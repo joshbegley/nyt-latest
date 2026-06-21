@@ -1,3 +1,7 @@
+**Drone Footage Captures Massive Fire at Dominican Resort**\
+`A large fire at a beach resort in the Dominican Republic forced the evacuation of nearly 1,700 guests and killed one person, emergency officials said.`\
+https://www.nytimes.com/video/world/americas/100000010981594/dominican-republic-fire.html
+
 **Trump, Claiming Vandalism, Says Reflecting Pool Will Likely Need to Be Drained**\
 `The pool has taken on clouds of algae after a hasty renovation. A three-time Olympian was charged with destroying government property after he says he touched one of the strands of blue paint peeling off the pool’s bottom.`\
 https://www.nytimes.com/2026/06/20/us/politics/trump-reflecting-pool-drained.html

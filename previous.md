@@ -1,3 +1,7 @@
+**Drone Footage Captures Massive Fire at Dominican Resort**\
+`A large fire at a beach resort in the Dominican Republic forced the evacuation of nearly 1,700 guests and killed one person, emergency officials said.`\
+https://www.nytimes.com/video/world/americas/100000010981594/dominican-republic-fire.html
+
 **Trump, Claiming Vandalism, Says Reflecting Pool Will Likely Need to Be Drained**\
 `The pool has taken on clouds of algae after a hasty renovation. A three-time Olympian was charged with destroying government property after he says he touched one of the strands of blue paint peeling off the pool’s bottom.`\
 https://www.nytimes.com/2026/06/20/us/politics/trump-reflecting-pool-drained.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/pageoneplus/corrections-june-20-2026.html
 **Tyla, FKA Twigs: Songs to Know This Week**\
 `Uplift for Juneteenth from Allison Russell, tangled love songs from Tyla and FKA twigs, and more.`\
 https://www.nytimes.com/2026/06/20/arts/music/tyla-fka-twigs-steve-lacy-songs.html
-
-**Mines, Logistics and Deep Uncertainty Threaten a Middle East Oil Rebound**\
-`More oil is getting out of the Persian Gulf, but the region’s producers are looking for signs that it is safe as they ramp up plans for alternative routes.`\
-https://www.nytimes.com/2026/06/20/business/iran-us-persian-gulf-oil-production.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
