@@ -1,3 +1,7 @@
+**Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
+`Vice President JD Vance was expected to talk with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
+https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
+
 **Segunda vuelta de las elecciones en Colombia: lo que hay que saber**\
 `Las votaciones de este domingo enfrentan a un candidato de derecha respaldado por Trump contra un candidato que promete continuidad con el presidente saliente de izquierda.`\
 https://www.nytimes.com/es/2026/06/21/espanol/america-latina/segunda-vuelta-elecciones-colombia.html
