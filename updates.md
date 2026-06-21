@@ -1,3 +1,7 @@
+**Claude Guillemot, Ubisoft Co-Founder, Is Dead After Plane Crash in France**\
+`Claude Guillemot, 69, founded the video game company, which was also known for the hit Far Cry, with his brothers in 1986. He was killed in western France.`\
+https://www.nytimes.com/2026/06/20/arts/claude-guillemot-dead-ubisoft-plane-crash.html
+
 **What We Know About the Los Angeles Warehouse Fire**\
 `The fire began in a cold-storage facility in the Boyle Heights neighborhood and was still burning on Saturday, prompting a local emergency declaration.`\
 https://www.nytimes.com/2026/06/20/us/what-we-know-about-the-los-angeles-warehouse-fire.html
