@@ -1,3 +1,7 @@
+**F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
+`A Delta Air Lines flight aborted its landing to avoid another plane that was taking off from an intersecting runway, the agency said.`\
+https://www.nytimes.com/2026/06/21/us/faa-investigates-near-miss-between-planes-at-bostons-logan-airport.html
+
 **What I Learned About Parenting as a Trans Dad**\
 `Becoming a father taught Zach Ellams how to overcome shame.`\
 https://www.nytimes.com/2026/06/21/opinion/trans-dad-parenting-fathers-day.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/movies/dad-movies.html
 **Quote of the Day: No Shipwrecks Available to Stem Population Decline**\
 `Quotation of the Day for Sunday, June 21, 2026.`\
 https://www.nytimes.com/2026/06/21/pageoneplus/quote-of-the-day-no-shipwrecks-available-to-stem-population-decline.html
-
-**Drone Footage Captures Massive Fire at Dominican Resort**\
-`A large fire at a beach resort in the Dominican Republic forced the evacuation of nearly 1,700 guests and killed one person, emergency officials said.`\
-https://www.nytimes.com/video/world/americas/100000010981594/dominican-republic-fire.html
 
