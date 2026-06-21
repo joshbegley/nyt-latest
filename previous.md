@@ -1,3 +1,7 @@
+**‘Dios es caboverdiano’: una pequeña nación en la cima tras un debut sensacional en el Mundial**\
+`Después de su empate con España, una mezcla de confianza y nerviosismo se ha apoderado del pequeño país africano, que espera repetir la hazaña frente a Uruguay.`\
+https://www.nytimes.com/es/2026/06/21/espanol/deportes/cabo-verde-mundial-espana.html
+
 **Wildfire in Central Utah Prompts Evacuation Order for Hundreds of People**\
 `The Iron fire had burned more than 13,000 acres by Saturday night. Containment efforts have been made more difficult by the region’s steep terrain.`\
 https://www.nytimes.com/2026/06/21/us/utah-iron-fire-eureka.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/crosswords/wordle-review-1828.html
 **NYT Connections Answers for June 21, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
 https://www.nytimes.com/2026/06/20/crosswords/connections-companion-1106.html
-
-**NYT Strands Hints for June 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
-https://www.nytimes.com/2026/06/20/crosswords/strands-sidekick-840.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\

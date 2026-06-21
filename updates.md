@@ -1,3 +1,7 @@
+**‘Dios es caboverdiano’: una pequeña nación en la cima tras un debut sensacional en el Mundial**\
+`Después de su empate con España, una mezcla de confianza y nerviosismo se ha apoderado del pequeño país africano, que espera repetir la hazaña frente a Uruguay.`\
+https://www.nytimes.com/es/2026/06/21/espanol/deportes/cabo-verde-mundial-espana.html
+
 **Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
 `Vice President JD Vance was expected to meet with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
