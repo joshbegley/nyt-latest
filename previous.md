@@ -1,3 +1,7 @@
+**Mark Singer, Longtime Writer for The New Yorker, Dies at 75**\
+`He joined the magazine’s staff at 23. Among the subjects of his profiles were the magician Ricky Jay and a pre-politics Donald Trump.`\
+https://www.nytimes.com/2026/06/21/obituaries/mark-singer-dead.html
+
 **Tesla Driver Using Autopilot Crashes Into Home in Texas and Kills a Woman, Officials Say**\
 `The driver told investigators he was using the vehicle’s automated-driver system when the vehicle left the roadway and crashed into a house in Harris County, Texas.`\
 https://www.nytimes.com/2026/06/21/us/tesla-autopilot-crash-texas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/arts/for-heirs-of-custer-and-sitting-bull-a-1
 **Is Your Vibe ‘High-Signal’ or ‘Anti-Signal’?**\
 `Subtle cues are shaping notions of what’s hot and what’s not in the tech world.`\
 https://www.nytimes.com/2026/06/21/business/signal-tech-silicon-valley.html
-
-**Protect Every Animal From Cruelty? Not in 2026, Oregon Democrats Say**\
-`A possible referendum in Oregon on animal rights would end fishing, hunting, even pest control, just when Democrats are trying really hard not to be seen as “weirdos again.”`\
-https://www.nytimes.com/2026/06/21/us/politics/animal-rights-cruelty-oregon.html
 

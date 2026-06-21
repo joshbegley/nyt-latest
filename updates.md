@@ -1,3 +1,7 @@
+**Mark Singer, Longtime Writer for The New Yorker, Dies at 75**\
+`He joined the magazine’s staff at 23. Among the subjects of his profiles were the magician Ricky Jay and a pre-politics Donald Trump.`\
+https://www.nytimes.com/2026/06/21/obituaries/mark-singer-dead.html
+
 **Tesla Driver Using Autopilot Crashes Into Home in Texas and Kills a Woman, Officials Say**\
 `The driver told investigators he was using the vehicle’s automated-driver system when the vehicle left the roadway and crashed into a house in Harris County, Texas.`\
 https://www.nytimes.com/2026/06/21/us/tesla-autopilot-crash-texas.html
