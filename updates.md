@@ -1,3 +1,15 @@
+**Oil Rises Amid Uncertainty Over Strait of Hormuz**\
+`Modest reactions in the oil and financial markets as Iran and the U.S. met in Switzerland for a first round of talks aimed at making a temporary cease-fire permanent.`\
+https://www.nytimes.com/2026/06/21/business/oil-rises-amid-uncertainty-over-strait-of-hormuz.html
+
+**The Deadly Rise of Giant Trucks and S.U.V.s**\
+`The vehicles on American roads have grown larger — and they are killing thousands more pedestrians, a Times investigation found.`\
+https://www.nytimes.com/interactive/2026/06/21/us/trucks-suv-pedestrian-crashes.html
+
+**NYT Crossword Answers for June 22, 2026**\
+`Victoria Fernandez Grande clears the bar.`\
+https://www.nytimes.com/2026/06/21/crosswords/daily-puzzle-2026-06-22.html
+
 **The Man Trumpifying FIFA**\
 `Gianni Infantino, the FIFA president, has unabashedly courted the U.S. president’s favor.`\
 https://www.nytimes.com/2026/06/21/world/infantino-trump-fifa-iran-talks.html
