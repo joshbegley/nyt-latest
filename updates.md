@@ -1,3 +1,11 @@
+**Five Fast Dinners I Will Definitely Make Again**\
+`Starting with this easy but elegant spicy sardine pasta with leeks and lemon.`\
+https://www.nytimes.com/2026/06/21/dining/five-fast-dinners-i-will-definitely-make-again.html
+
+**Menopause and the Failure of Women’s Health Care**\
+`Readers respond to “Menopause Should Not Be Such a Mystery,” an Opinion guest essay by Melinda French Gates.`\
+https://www.nytimes.com/2026/06/21/opinion/menopause-women-health.html
+
 **Maps: Tracking Typhoon Mekkhala**\
 `See the likely path and wind arrival times for Mekkhala`\
 https://www.nytimes.com/interactive/2026/06/21/weather/mekkhala-map-path-tracker.html

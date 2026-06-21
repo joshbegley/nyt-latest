@@ -1,3 +1,11 @@
+**Five Fast Dinners I Will Definitely Make Again**\
+`Starting with this easy but elegant spicy sardine pasta with leeks and lemon.`\
+https://www.nytimes.com/2026/06/21/dining/five-fast-dinners-i-will-definitely-make-again.html
+
+**Menopause and the Failure of Women’s Health Care**\
+`Readers respond to “Menopause Should Not Be Such a Mystery,” an Opinion guest essay by Melinda French Gates.`\
+https://www.nytimes.com/2026/06/21/opinion/menopause-women-health.html
+
 **Maps: Tracking Typhoon Mekkhala**\
 `See the likely path and wind arrival times for Mekkhala`\
 https://www.nytimes.com/interactive/2026/06/21/weather/mekkhala-map-path-tracker.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
 **‘Dios es caboverdiano’: una pequeña nación en la cima tras un debut sensacional en el Mundial**\
 `Después de su empate con España, una mezcla de confianza y nerviosismo se ha apoderado del pequeño país africano, que espera repetir la hazaña frente a Uruguay.`\
 https://www.nytimes.com/es/2026/06/21/espanol/deportes/cabo-verde-mundial-espana.html
-
-**Wildfire in Central Utah Prompts Evacuation Order for Hundreds of People**\
-`The Iron fire had burned more than 13,000 acres by Saturday night. Containment efforts have been made more difficult by the region’s steep terrain.`\
-https://www.nytimes.com/2026/06/21/us/utah-iron-fire-eureka.html
-
-**Elon Musk Is Too Rich. We’ve Known That Since Plato.**\
-`The philosopher made a radical proposal about wealth.`\
-https://www.nytimes.com/2026/06/21/opinion/elon-musk-trillionaire-wealth-plato.html
 
 **Mideast Live Updates: New Round of U.S.-Iran Talks Begins in Switzerland**\
 `An American delegation, led by Vice President JD Vance, was attending the talks along with Iranian negotiators. The conflict in Lebanon is complicating efforts to reach a broader peace and keep the Strait of Hormuz open.`\
