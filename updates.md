@@ -1,3 +1,7 @@
+**Three Men Are Key to Iran’s Approach to U.S. Talks**\
+`Iran’s supreme leader, foreign minister and parliament speaker all play central roles in hammering out an agreement with Washington.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/three-men-are-key-to-irans-approach-to-us-talks.html
+
 **Five Fast Dinners I Will Definitely Make Again**\
 `Starting with this easy but elegant spicy sardine pasta with leeks and lemon.`\
 https://www.nytimes.com/2026/06/21/dining/five-fast-dinners-i-will-definitely-make-again.html
