@@ -1,3 +1,7 @@
+**Trump, Claiming Vandalism, Says Reflecting Pool Will Be Drained**\
+`The pool has taken on clouds of algae after a hasty renovation. A three-time Olympian was charged with destroying government property after he says he touched one of the strands of blue paint peeling off the pool’s bottom.`\
+https://www.nytimes.com/2026/06/20/us/politics/trump-reflecting-pool-drained.html
+
 **Claude Guillemot, Ubisoft Co-Founder, Is Dead After Plane Crash in France**\
 `Claude Guillemot, 69, founded the video game company, which was also known for the hit Far Cry, with his brothers in 1986. He was killed in western France.`\
 https://www.nytimes.com/2026/06/20/arts/claude-guillemot-dead-ubisoft-plane-crash.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/arts/music/tyla-fka-twigs-steve-lacy-songs.ht
 **Mines, Logistics and Deep Uncertainty Threaten a Middle East Oil Rebound**\
 `More oil is getting out of the Persian Gulf, but the region’s producers are looking for signs that it is safe as they ramp up plans for alternative routes.`\
 https://www.nytimes.com/2026/06/20/business/iran-us-persian-gulf-oil-production.html
-
-**The Newest Wing in the City’s Oldest Museum Celebrates Democracy**\
-`The New York Historical’s expansive Tang Wing highlights the role of protest for America’s 250th anniversary.`\
-https://www.nytimes.com/2026/06/20/arts/the-newest-wing-in-the-citys-oldest-museum-celebrates-democracy.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
