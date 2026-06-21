@@ -1,3 +1,7 @@
+**Begoña Gómez, primera dama de España, irá a juicio por corrupción**\
+`Begoña Gómez está acusada de corrupción y tráfico de influencias por apoyar la postulación de empresas con las que tiene vínculos personales para un contrato público.`\
+https://www.nytimes.com/es/2026/06/21/espanol/mundo/la-esposa-del-presidente-del-gobierno-espanol-ira-a-juicio-por-corrupcion.html
+
 **Man, 51, Dies in Fall From Balcony During Concert at the Garden**\
 `The band Goose was playing on Saturday night when the fall took place. The cause of the incident was not clear.`\
 https://www.nytimes.com/2026/06/21/nyregion/death-fall-madison-square-garden.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/us/politics/trump-fraudster-priest-investigat
 **Father and Uncle of Slain New York Girl Given Life Sentences in Pakistan**\
 `The killing of the victim, a 14-year-old girl from Yonkers who was known for posting videos on TikTok, was premeditated, a court ruled.`\
 https://www.nytimes.com/2026/06/21/world/asia/pakistan-yonkers-hira-anwar.html
-
-**Tengo 53 años. Dejen de decirme que soy invisible**\
-`Nunca ha habido un mejor momento para ser una mujer de mediana edad.`\
-https://www.nytimes.com/es/2026/06/21/espanol/opinion/mujer-mediana-edad-invisible.html
 

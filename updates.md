@@ -1,3 +1,7 @@
+**Begoña Gómez, primera dama de España, irá a juicio por corrupción**\
+`Begoña Gómez está acusada de corrupción y tráfico de influencias por apoyar la postulación de empresas con las que tiene vínculos personales para un contrato público.`\
+https://www.nytimes.com/es/2026/06/21/espanol/mundo/la-esposa-del-presidente-del-gobierno-espanol-ira-a-juicio-por-corrupcion.html
+
 **Man, 51, Dies in Fall From Balcony During Concert at the Garden**\
 `The band Goose was playing on Saturday night when the fall took place. The cause of the incident was not clear.`\
 https://www.nytimes.com/2026/06/21/nyregion/death-fall-madison-square-garden.html

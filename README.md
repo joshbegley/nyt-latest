@@ -1,3 +1,7 @@
+**As Vance Offers Iran ‘Outstretched Hand’ in Talks, Trump Threatens Bombing**\
+`The administration’s split message came as the United States and Iran began a new round of nuclear negotiations in Switzerland.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/vance-iran-talks-trump.html
+
 **Begoña Gómez, primera dama de España, irá a juicio por corrupción**\
 `Begoña Gómez está acusada de corrupción y tráfico de influencias por apoyar la postulación de empresas con las que tiene vínculos personales para un contrato público.`\
 https://www.nytimes.com/es/2026/06/21/espanol/mundo/la-esposa-del-presidente-del-gobierno-espanol-ira-a-juicio-por-corrupcion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/books/review/lifeguard-janet-fash-memoir.html
 **Trump Administration Shuttered a Criminal Probe Into Fraudster’s Clemency**\
 `Federal prosecutors had been examining the circumstances behind the commutation of David Gentile’s sentence. He was aided by a Catholic priest friendly with the president.`\
 https://www.nytimes.com/2026/06/21/us/politics/trump-fraudster-priest-investigation-brooklyn.html
-
-**Father and Uncle of Slain New York Girl Given Life Sentences in Pakistan**\
-`The killing of the victim, a 14-year-old girl from Yonkers who was known for posting videos on TikTok, was premeditated, a court ruled.`\
-https://www.nytimes.com/2026/06/21/world/asia/pakistan-yonkers-hira-anwar.html
 
