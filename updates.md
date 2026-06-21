@@ -1,3 +1,7 @@
+**Al líder supremo de Irán le disgusta el acuerdo con EE. UU., dice**\
+`El ayatolá Mojtaba Jameneí dijo que había dado su visto bueno al acuerdo, pero que no estaba de acuerdo con firmarlo, “por una cuestión de principios”.`\
+https://www.nytimes.com/es/2026/06/21/espanol/mundo/acuerdo-iran-lider-supremo.html
+
 **California Governor Declares State of Emergency for L.A. Warehouse Fire**\
 `A fire that broke out on Wednesday at a cold storage facility in Los Angeles continued to burn on Sunday. Gov. Gavin Newsom declared an emergency.`\
 https://www.nytimes.com/video/us/100000010981847/la-warehouse-fire-state-of-emergency.html
