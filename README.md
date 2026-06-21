@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/06/21/business/oil-rises-amid-uncertainty-over-stra
 
 **The Deadly Rise of Giant Trucks and S.U.V.s**\
 `The vehicles on American roads have grown larger — and they are killing thousands more pedestrians, a Times investigation found.`\
-https://www.nytimes.com/interactive/2026/06/21/us/inv-trucks.html
+https://www.nytimes.com/interactive/2026/06/21/us/trucks-suv-pedestrian-crashes.html
 
 **NYT Crossword Answers for June 22, 2026**\
 `Victoria Fernandez Grande clears the bar.`\
