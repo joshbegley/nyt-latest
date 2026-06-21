@@ -1,3 +1,11 @@
+**Man, 51, Dies in Fall From Balcony During Concert at the Garden**\
+`The band Goose was playing on Saturday night when the fall took place. The cause of the incident was not clear.`\
+https://www.nytimes.com/2026/06/21/nyregion/death-fall-madison-square-garden.html
+
+**Tom Dreesen, Comic Who Kept Sinatra’s Crowds Laughing, Dies at 86**\
+`He rose from a hardscrabble childhood to form a pioneering interracial comedy duo. He later spent years opening for Frank Sinatra.`\
+https://www.nytimes.com/2026/06/21/arts/tom-dreesen-dead.html
+
 **Severe Weather Expected in the Northeast on Monday**\
 `A storm system will bring a chance of heavy rain and damaging winds to Philadelphia, New York City and Washington. Forecasters warned of power outages and scattered flooding.`\
 https://www.nytimes.com/2026/06/21/weather/northeast-storms-flooding-weather.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/21/world/asia/pakistan-yonkers-hira-anwar.html
 **Tengo 53 años. Dejen de decirme que soy invisible**\
 `Nunca ha habido un mejor momento para ser una mujer de mediana edad.`\
 https://www.nytimes.com/es/2026/06/21/espanol/opinion/mujer-mediana-edad-invisible.html
-
-**Mamdani Burns Allies in Making a Big Bet for Congress and the Left**\
-`The strength of the mayor’s political brand will be tested on Tuesday, when his slate of leftist congressional candidates takes aim at Democratic incumbents.`\
-https://www.nytimes.com/2026/06/21/nyregion/mamdani-burns-allies-in-making-a-big-bet-for-congress-and-the-left.html
-
-**A Reporter’s Memories Cross Two-Lane Highways in Missouri**\
-`“Kenrex” reimagines a notorious killing in Skidmore, Mo. Jesse McKinley wrote about the play — and the crime — after getting a tip from his son.`\
-https://www.nytimes.com/2026/06/21/insider/kenrex-skidmore-missouri.html
 
