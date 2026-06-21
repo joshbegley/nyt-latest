@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/21/world/asia/women-taliban-restrictions-jobs-ed
 `What is it about a certain kind of film that appeals to fathers? Our writer took a stab at defining Dad Cinema and rounding up its greatest hits.`\
 https://www.nytimes.com/2026/06/21/movies/dad-movies.html
 
-**Quote of the Day: No Shipwrecks Available to Stem Population Decline**\
-`Quotation of the Day for Sunday, June 21, 2026.`\
-https://www.nytimes.com/2026/06/21/pageoneplus/quote-of-the-day-no-shipwrecks-available-to-stem-population-decline.html
-
