@@ -1,3 +1,7 @@
+**Hantavirus Quarantine Ends for 18 Americans Exposed on a Cruise Ship**\
+`No cases associated with the outbreak on the MV Hondius cruise ship have been confirmed in the U.S., health officials said.`\
+https://www.nytimes.com/2026/06/21/us/hantavirus-quarantine-end.html
+
 **Uncertainty Remains Over the Strait of Hormuz**\
 `The United States and Iranian militaries have offered conflicting accounts over whether the crucial waterway is open.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/uncertainty-strait-hormuz-iran-us.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/headway/minneapolis-ice-donors-eviction-rent.
 **The Father-Daughter Wedding Dance Gets an Upgrade**\
 `Alex Zsoldos, the owner of First Dance Charlotte, said more fathers and daughters are learning customized routines that feature modern dance moves and song mash-ups.`\
 https://www.nytimes.com/2026/06/21/style/the-father-daughter-wedding-dance-gets-an-upgrade.html
-
-**Cities and Schools Are Testing Wastewater for Illicit Drugs**\
-`The White House recently endorsed monitoring sewage for evidence of drug use. Critics fear such efforts could violate privacy and stigmatize neighborhoods.`\
-https://www.nytimes.com/2026/06/21/health/drug-testing-wastwater-sewage.html
 

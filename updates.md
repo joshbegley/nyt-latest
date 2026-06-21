@@ -1,3 +1,7 @@
+**Hantavirus Quarantine Ends for 18 Americans Exposed on a Cruise Ship**\
+`No cases associated with the outbreak on the MV Hondius cruise ship have been confirmed in the U.S., health officials said.`\
+https://www.nytimes.com/2026/06/21/us/hantavirus-quarantine-end.html
+
 **Uncertainty Remains Over the Strait of Hormuz**\
 `The United States and Iranian militaries have offered conflicting accounts over whether the crucial waterway is open.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/uncertainty-strait-hormuz-iran-us.html
