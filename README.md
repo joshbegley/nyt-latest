@@ -1,3 +1,7 @@
+**Netanyahu faces one of the biggest challenges of his career.**\
+`In a ‘plot twist’, Prime Minister Benjamin Netanyahu appears to be heading into an election this fall without his main prop: President Trump.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/netanyahu-iran-deal-trump.html
+
 **Melissa Clark's Buttermilk Pancakes and More Father’s Day Recipes**\
 `That’s breakfast for Dad, done. Then for dinner, how about Sam Sifton’s BBQ chicken?`\
 https://www.nytimes.com/2026/06/21/dining/my-very-best-buttermilk-pancakes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.
 **How Remote Work Has Helped a Generation of Working Parents**\
 `Post-pandemic, a new openness to accommodating family needs has made it possible for more mothers and fathers to balance work and parenting — particularly mothers of young children.`\
 https://www.nytimes.com/2026/06/21/upshot/remote-work-parents-mothers.html
-
-**‘What Do I Do? Do I Tell Her? How Do I Fix This?’**\
-`Some notable friends of Metropolitan Diary, including the actors Andrew Rannells and Tony Danza, share their stories in the first of a special series of columns marking the feature’s 50th anniversary.`\
-https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
 
