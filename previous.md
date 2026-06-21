@@ -1,3 +1,7 @@
+**U.S. and Iran Have Plenty to Negotiate Beyond Nuclear Issues**\
+`Both sides have committed to discussing sanctions relief and the shape of a reconstruction fund, as well as Iran’s nuclear program.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/us-iran-negotiations-issues.html
+
 **Netanyahu faces one of the biggest challenges of his career.**\
 `In a ‘plot twist’, Prime Minister Benjamin Netanyahu appears to be heading into an election this fall without his main prop: President Trump.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/netanyahu-iran-deal-trump.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.htm
 `We catch up with The Times’s restaurant critics.`\
 https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
 
-**Israel directs its military to limit its actions in Lebanon, though tensions persist.**\
-`(No description)`\
+**Israel Directs Its Military to Limit Its Actions in Lebanon, but Tensions Persist**\
+`It was not clear whether the new directive would resolve the friction that led to deadly clashes on Friday and Saturday and threatened to derail a preliminary U.S.-Iran peace deal.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/israel-directs-its-military-to-limit-its-actions-in-lebanon-though-tensions-persist.html
 
 **F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/crosswords/spelling-bee-forum.html
 **For Half a Century, Capturing New York’s Human Moments**\
 `Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain and so much more of the city’s daily poetry.`\
 https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.html
-
-**How Remote Work Has Helped a Generation of Working Parents**\
-`Post-pandemic, a new openness to accommodating family needs has made it possible for more mothers and fathers to balance work and parenting — particularly mothers of young children.`\
-https://www.nytimes.com/2026/06/21/upshot/remote-work-parents-mothers.html
 

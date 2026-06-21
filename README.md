@@ -1,3 +1,7 @@
+**How Basel Went From Art to Art Basel**\
+`Basel’s art history predates the world’s most prominent art fair by a few centuries.`\
+https://www.nytimes.com/2026/06/21/arts/design/basel-switzerland-art-development-timeline.html
+
 **U.S. and Iran Have Plenty to Negotiate Beyond Nuclear Issues**\
 `Both sides have committed to discussing sanctions relief and the shape of a reconstruction fund, as well as Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/us-iran-negotiations-issues.html
@@ -40,7 +44,7 @@ https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
 
 **Israel Directs Its Military to Limit Its Actions in Lebanon, but Tensions Persist**\
 `It was not clear whether the new directive would resolve the friction that led to deadly clashes on Friday and Saturday and threatened to derail a preliminary U.S.-Iran peace deal.`\
-https://www.nytimes.com/2026/06/21/world/middleeast/israel-directs-its-military-to-limit-its-actions-in-lebanon-though-tensions-persist.html
+https://www.nytimes.com/2026/06/21/world/middleeast/israel-lebanon-hezbollah-fighting.html
 
 **F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
 `A Delta Air Lines flight aborted its landing on Saturday to avoid another plane that was taking off from an intersecting runway, the agency said.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/insider/kenrex-skidmore-missouri.html
 **NYT Spelling Bee Answers for June 21, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/21/crosswords/spelling-bee-forum.html
-
-**For Half a Century, Capturing New York’s Human Moments**\
-`Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain and so much more of the city’s daily poetry.`\
-https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.html
 

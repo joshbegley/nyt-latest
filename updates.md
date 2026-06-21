@@ -1,3 +1,11 @@
+**U.S. and Iran Have Plenty to Negotiate Beyond Nuclear Issues**\
+`Both sides have committed to discussing sanctions relief and the shape of a reconstruction fund, as well as Iran’s nuclear program.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/us-iran-negotiations-issues.html
+
+**Israel Directs Its Military to Limit Its Actions in Lebanon, but Tensions Persist**\
+`It was not clear whether the new directive would resolve the friction that led to deadly clashes on Friday and Saturday and threatened to derail a preliminary U.S.-Iran peace deal.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/israel-directs-its-military-to-limit-its-actions-in-lebanon-though-tensions-persist.html
+
 **Netanyahu faces one of the biggest challenges of his career.**\
 `In a ‘plot twist’, Prime Minister Benjamin Netanyahu appears to be heading into an election this fall without his main prop: President Trump.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/netanyahu-iran-deal-trump.html
