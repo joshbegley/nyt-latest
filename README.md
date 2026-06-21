@@ -1,3 +1,7 @@
+**Maps: Tracking Typhoon Mekkhala**\
+`See the likely path and wind arrival times for Mekkhala`\
+https://www.nytimes.com/interactive/2026/06/21/weather/mekkhala-map-path-tracker.html
+
 **Three Men Are Key to Iran’s Approach to U.S. Talks**\
 `Iran’s supreme leader, foreign minister and parliament speaker all play central roles in  hammering out an agreement with Washington.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/three-men-are-key-to-irans-approach-to-us-talks.html
