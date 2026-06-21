@@ -1,3 +1,11 @@
+**Abelardo De La Espriella, Trump-Backed Rightist, Headed for Win in Colombia**\
+`A victory for Abelardo de la Espriella, a lawyer with no previous political experience, would be a rebuke to the left and another win for the right in Latin America.`\
+https://www.nytimes.com/2026/06/21/world/americas/colombia-election-de-la-espriella.html
+
+**Margaret Kerry, Body and Soul of Disney’s Tinker Bell, Dies at 97**\
+`A film crew and illustrator meticulously documented her pirouettes and pouts, giving substance to a character depicted previously as a spotlight onstage.`\
+https://www.nytimes.com/2026/06/21/obituaries/margaret-kerry-dead.html
+
 **Oil Rises Amid Uncertainty Over Strait of Hormuz**\
 `Modest reactions in the oil and financial markets as Iran and the U.S. met in Switzerland for a first round of talks aimed at making a temporary cease-fire permanent.`\
 https://www.nytimes.com/2026/06/21/business/oil-rises-amid-uncertainty-over-strait-of-hormuz.html
