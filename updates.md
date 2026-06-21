@@ -1,3 +1,27 @@
+**Mamdani Burns Allies in Making a Big Bet for Congress and the Left**\
+`The strength of the mayor’s political brand will be tested on Tuesday, when his slate of leftist congressional candidates takes aim at Democratic incumbents.`\
+https://www.nytimes.com/2026/06/21/nyregion/mamdani-burns-allies-in-making-a-big-bet-for-congress-and-the-left.html
+
+**A Reporter’s Memories Cross Two-Lane Highways in Missouri**\
+`“Kenrex” reimagines a notorious killing in Skidmore, Mo. Jesse McKinley wrote about the play — and the crime — after getting a tip from his son.`\
+https://www.nytimes.com/2026/06/21/insider/kenrex-skidmore-missouri.html
+
+**NYT Spelling Bee Answers for June 21, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/21/crosswords/spelling-bee-forum.html
+
+**For Half a Century, Capturing New York’s Human Moments**\
+`Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain, and so much more of the city’s daily poetry.`\
+https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.html
+
+**How Remote Work Has Helped a Generation of Working Parents**\
+`Post-pandemic, a new openness to accommodating family needs has made it possible for more mothers and fathers to balance work and parenting — particularly mothers of young children.`\
+https://www.nytimes.com/2026/06/21/upshot/remote-work-parents-mothers.html
+
+**‘What Do I Do? Do I Tell Her? How Do I Fix This?’**\
+`Some notable friends of Metropolitan Diary share their New York stories in the first of a special, limited series of columns marking the feature’s 50th anniversary.`\
+https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
+
 **Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
 `Vice President JD Vance was expected to talk with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon

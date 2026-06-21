@@ -1,3 +1,27 @@
+**Mamdani Burns Allies in Making a Big Bet for Congress and the Left**\
+`The strength of the mayor’s political brand will be tested on Tuesday, when his slate of leftist congressional candidates takes aim at Democratic incumbents.`\
+https://www.nytimes.com/2026/06/21/nyregion/mamdani-burns-allies-in-making-a-big-bet-for-congress-and-the-left.html
+
+**A Reporter’s Memories Cross Two-Lane Highways in Missouri**\
+`“Kenrex” reimagines a notorious killing in Skidmore, Mo. Jesse McKinley wrote about the play — and the crime — after getting a tip from his son.`\
+https://www.nytimes.com/2026/06/21/insider/kenrex-skidmore-missouri.html
+
+**NYT Spelling Bee Answers for June 21, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/21/crosswords/spelling-bee-forum.html
+
+**For Half a Century, Capturing New York’s Human Moments**\
+`Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain, and so much more of the city’s daily poetry.`\
+https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.html
+
+**How Remote Work Has Helped a Generation of Working Parents**\
+`Post-pandemic, a new openness to accommodating family needs has made it possible for more mothers and fathers to balance work and parenting — particularly mothers of young children.`\
+https://www.nytimes.com/2026/06/21/upshot/remote-work-parents-mothers.html
+
+**‘What Do I Do? Do I Tell Her? How Do I Fix This?’**\
+`Some notable friends of Metropolitan Diary share their New York stories in the first of a special, limited series of columns marking the feature’s 50th anniversary.`\
+https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
+
 **‘Dios es caboverdiano’: una pequeña nación en la cima tras un debut sensacional en el Mundial**\
 `Después de su empate con España, una mezcla de confianza y nerviosismo se ha apoderado del pequeño país africano, que espera repetir la hazaña frente a Uruguay.`\
 https://www.nytimes.com/es/2026/06/21/espanol/deportes/cabo-verde-mundial-espana.html
@@ -169,30 +193,6 @@ https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
 **Creature From the Green Lagoon**\
 `Trump’s slimy, stinky swamp within the swamp.`\
 https://www.nytimes.com/2026/06/20/opinion/trump-reflecting-pool-algae-green-dc.html
-
-**My Father’s Death Was the Start of My Life**\
-`It was the worst thing that ever happened to me. It also taught me everything I needed to live.`\
-https://www.nytimes.com/2026/06/20/opinion/fathers-day-family-death.html
-
-**Will the Real JD Vance Please Stand Up?**\
-`Three Opinion writers share their views on “Communion,” the vice president’s new book.`\
-https://www.nytimes.com/video/opinion/100000010971727/will-the-real-jd-vance-please-stand-up.html
-
-**Game Change**\
-`New York City’s temporary transformation by the Knicks’ resurgence offers a glimpse of a kinder, more connected world.`\
-https://www.nytimes.com/2026/06/20/briefing/game-change.html
-
-**I’m Worried My Friends’ Son May Harm Them. What Should I Do?**\
-`He’s volatile, angry and armed.`\
-https://www.nytimes.com/2026/06/20/magazine/friends-son-harm-ethics.html
-
-**Today’s Wordle Hints for June 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
-https://www.nytimes.com/2026/06/20/crosswords/wordle-review-1828.html
-
-**NYT Connections Answers for June 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 21, 2026.`\
-https://www.nytimes.com/2026/06/20/crosswords/connections-companion-1106.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
