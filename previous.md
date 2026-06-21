@@ -1,3 +1,7 @@
+**Uncertainty Remains Over the Strait of Hormuz**\
+`The United States and Iranian militaries have offered conflicting accounts over whether the crucial waterway is open.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/uncertainty-strait-hormuz-iran-us.html
+
 **‘Toy Story 5’ Fuels Hollywood’s Hottest Summer Since 2019**\
 `The Disney-Pixar sequel was expected to make $160 million in North America over the weekend, lifting the summer box office to $1.85 billion to date.`\
 https://www.nytimes.com/2026/06/21/business/media/toy-story-5-box-office-hollywood-summer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/style/the-father-daughter-wedding-dance-gets-
 **Cities and Schools Are Testing Wastewater for Illicit Drugs**\
 `The White House recently endorsed monitoring sewage for evidence of drug use. Critics fear such efforts could violate privacy and stigmatize neighborhoods.`\
 https://www.nytimes.com/2026/06/21/health/drug-testing-wastwater-sewage.html
-
-**Where Billionaires Summer, a Gardener Died in the Snow**\
-`A landscaper’s difficult life and lonely death reveal the human cost behind the Hamptons’ manicured landscape.`\
-https://www.nytimes.com/2026/06/21/realestate/where-billionaires-summer-a-gardener-died-in-the-snow.html
 

@@ -1,3 +1,7 @@
+**Uncertainty Remains Over the Strait of Hormuz**\
+`The United States and Iranian militaries have offered conflicting accounts over whether the crucial waterway is open.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/uncertainty-strait-hormuz-iran-us.html
+
 **‘Toy Story 5’ Fuels Hollywood’s Hottest Summer Since 2019**\
 `The Disney-Pixar sequel was expected to make $160 million in North America over the weekend, lifting the summer box office to $1.85 billion to date.`\
 https://www.nytimes.com/2026/06/21/business/media/toy-story-5-box-office-hollywood-summer.html
