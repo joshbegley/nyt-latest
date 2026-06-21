@@ -1,3 +1,7 @@
+**Wildfire in Central Utah Prompts Evacuation Order for Hundreds of People**\
+`The Iron fire had burned more than 13,000 acres by Saturday night. Containment efforts have been made more difficult by the region’s steep terrain.`\
+https://www.nytimes.com/2026/06/21/us/utah-iron-fire-eureka.html
+
 **Elon Musk Is Too Rich. We’ve Known That Since Plato.**\
 `The philosopher made a radical proposal about wealth.`\
 https://www.nytimes.com/2026/06/21/opinion/elon-musk-trillionaire-wealth-plato.html
