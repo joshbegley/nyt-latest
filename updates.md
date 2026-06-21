@@ -1,3 +1,11 @@
+**A Glamorous Swiss Resort Hosts Officials for U.S.-Iran Talks**\
+`The Bürgenstock Resort Lake Lucerne has hosted some of the world’s wealthiest and most powerful people for more than 100 years.`\
+https://www.nytimes.com/2026/06/21/world/europe/switzerland-resort-us-iran-meeting.html
+
+**How Trump’s Fragile Agreement With Iran Is Shaping the Midterms**\
+`Democrats say the president started an economically painful war that resulted in nothing positive. Republicans are more divided, even as they show some signs of relief at falling gas prices.`\
+https://www.nytimes.com/2026/06/21/us/politics/trump-iran-agreement-midterms.html
+
 **Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
 `Vice President JD Vance was expected to talk with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
