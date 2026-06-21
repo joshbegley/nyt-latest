@@ -1,3 +1,7 @@
+**El secreto de Seth Rogen: ternura, marihuana y no competir con nadie**\
+`Con 30 años en Hollywood, el actor y director reflexiona sobre lo que hace funcionar un matrimonio, una amistad y una carrera que no deja de crecer.`\
+https://www.nytimes.com/es/2026/06/21/espanol/seth-rogen-entrevista-matrimonio.html
+
 **Man Dies at MSG in Fall From Balcony During Goose Concert**\
 `The band Goose was playing on Saturday night when the fall took place. The cause of the episode was not clear.`\
 https://www.nytimes.com/2026/06/21/nyregion/death-fall-madison-square-garden.html
