@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.
 https://www.nytimes.com/2026/06/21/upshot/remote-work-parents-mothers.html
 
 **‘What Do I Do? Do I Tell Her? How Do I Fix This?’**\
-`Some notable friends of Metropolitan Diary share their New York stories in the first of a special, limited series of columns marking the feature’s 50th anniversary.`\
+`Some notable friends of Metropolitan Diary, including the actors Andrew Rannells and Tony Danza, share their stories in the first of a special series of columns marking the feature’s 50th anniversary.`\
 https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
 
 **‘Dios es caboverdiano’: una pequeña nación en la cima tras un debut sensacional en el Mundial**\
