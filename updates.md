@@ -1,3 +1,11 @@
+**Man, 51, Dies in Fall From Balcony During Concert at the Garden**\
+`The band Goose was playing on Saturday night when the fall took place. The cause of the incident was not clear.`\
+https://www.nytimes.com/2026/06/21/nyregion/death-fall-madison-square-garden.html
+
+**Tom Dreesen, Comic Who Kept Sinatra’s Crowds Laughing, Dies at 86**\
+`He rose from a hardscrabble childhood to form a pioneering interracial comedy duo. He later spent years opening for Frank Sinatra.`\
+https://www.nytimes.com/2026/06/21/arts/tom-dreesen-dead.html
+
 **Severe Weather Expected in the Northeast on Monday**\
 `A storm system will bring a chance of heavy rain and damaging winds to Philadelphia, New York City and Washington. Forecasters warned of power outages and scattered flooding.`\
 https://www.nytimes.com/2026/06/21/weather/northeast-storms-flooding-weather.html
