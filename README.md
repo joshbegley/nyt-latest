@@ -1,3 +1,7 @@
+**El secreto de Seth Rogen: ternura, marihuana y no competir con nadie**\
+`Con 30 años en Hollywood, el actor y director reflexiona sobre lo que hace funcionar un matrimonio, una amistad y una carrera que no deja de crecer.`\
+https://www.nytimes.com/es/2026/06/21/espanol/seth-rogen-entrevista-matrimonio.html
+
 **Hantavirus Quarantine Ends for 18 Americans Exposed on a Cruise Ship**\
 `No cases associated with the outbreak on the MV Hondius cruise ship have been confirmed in the U.S., health officials said.`\
 https://www.nytimes.com/2026/06/21/us/hantavirus-quarantine-end.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/us/politics/border-wall-catholic-church-mount
 **Minneapolis Donors Gave as ICE Surged, but Eviction Filings Are Rising**\
 `Residents organized to keep their neighbors housed during Operation Metro Surge, and convinced state legislators to pass a rent relief bill in May. Some fear it won’t be enough.`\
 https://www.nytimes.com/2026/06/21/headway/minneapolis-ice-donors-eviction-rent.html
-
-**The Father-Daughter Wedding Dance Gets an Upgrade**\
-`Alex Zsoldos, the owner of First Dance Charlotte, said more fathers and daughters are learning customized routines that feature modern dance moves and song mash-ups.`\
-https://www.nytimes.com/2026/06/21/style/the-father-daughter-wedding-dance-gets-an-upgrade.html
 
