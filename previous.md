@@ -1,7 +1,3 @@
-**Claude Guillemot, Ubisoft Co-Founder, Is Dead After Plane Crash in France**\
-`Claude Guillemot, 69, founded the video game company, which was also known for the hit Far Cry, with his brothers in 1986. He was killed in western France.`\
-https://www.nytimes.com/2026/06/20/arts/claude-guillemot-dead-ubisoft-plane-crash.html
-
 **What We Know About the Los Angeles Warehouse Fire**\
 `The fire began in a cold-storage facility in the Boyle Heights neighborhood and was still burning on Saturday, prompting a local emergency declaration.`\
 https://www.nytimes.com/2026/06/20/us/what-we-know-about-the-los-angeles-warehouse-fire.html
@@ -193,6 +189,10 @@ https://www.nytimes.com/2026/06/20/business/iran-us-persian-gulf-oil-production.
 **The Newest Wing in the City’s Oldest Museum Celebrates Democracy**\
 `The New York Historical’s expansive Tang Wing highlights the role of protest for America’s 250th anniversary.`\
 https://www.nytimes.com/2026/06/20/arts/the-newest-wing-in-the-citys-oldest-museum-celebrates-democracy.html
+
+**A Nearsighted Artist Changed Her View and Found Paradise**\
+`A nearsighted artist with a solitary streak stumbled on a world of cultural experiences and authentic connections after years of taking refuge in her bookshelves.`\
+https://www.nytimes.com/2026/06/20/arts/myopia-thomas-more-utopia.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
