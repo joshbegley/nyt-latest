@@ -1,3 +1,11 @@
+**‘What Do I Do? Do I Tell Her? How Do I Fix This?’**\
+`Some notable friends of Metropolitan Diary, including the actors Andrew Rannells and Tony Danza, share their stories in the first of a special series of columns marking the feature’s 50th anniversary.`\
+https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
+
+**Mideast Live Updates: New Round of U.S.-Iran Talks Underway in Switzerland**\
+`An American delegation, led by Vice President JD Vance, was meeting with Iranian negotiators. The conflict in Lebanon is complicating efforts to reach a broader peace and keep the Strait of Hormuz open.`\
+https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
+
 **F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
 `A Delta Air Lines flight aborted its landing on Saturday to avoid another plane that was taking off from an intersecting runway, the agency said.`\
 https://www.nytimes.com/2026/06/21/us/boston-airport-planes-near-miss.html
