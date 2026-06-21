@@ -1,3 +1,11 @@
+**Tesla Driver Using Autopilot Crashes Into Home, Killing a Woman, Officials Say**\
+`The driver told investigators he was using the vehicle’s automated-driver system when the vehicle left the roadway and crashed into a house in Harris County, Texas.`\
+https://www.nytimes.com/2026/06/21/us/tesla-autopilot-crash-texas.html
+
+**Trump dice que probablemente habrá que vaciar el estanque reflectante**\
+`El estanque se ha llenado de algas tras una renovación apresurada. Un atleta olímpico fue acusado de destruir propiedad del gobierno después de tocar uno de los restos de pintura azul que se desprendían del fondo.`\
+https://www.nytimes.com/es/2026/06/21/espanol/estados-unidos/estanque-reflectante-vaciarlo-trump.html
+
 **Al líder supremo de Irán le disgusta el acuerdo con EE. UU., dice**\
 `El ayatolá Mojtaba Jameneí dijo que había dado su visto bueno al acuerdo, pero que no estaba de acuerdo con firmarlo, “por una cuestión de principios”.`\
 https://www.nytimes.com/es/2026/06/21/espanol/mundo/acuerdo-iran-lider-supremo.html
