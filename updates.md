@@ -1,3 +1,7 @@
+**F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
+`A Delta Air Lines flight aborted its landing on Saturday to avoid another plane that was taking off from an intersecting runway, the agency said.`\
+https://www.nytimes.com/2026/06/21/us/boston-airport-planes-near-miss.html
+
 **Three Men Are Key to Iran’s Approach to U.S. Talks**\
 `Iran’s supreme leader, foreign minister and parliament speaker all play central roles in hammering out an agreement with Washington.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/three-men-are-key-to-irans-approach-to-us-talks.html

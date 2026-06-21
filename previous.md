@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.htm
 https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
 
 **F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
-`A Delta Air Lines flight aborted its landing to avoid another plane that was taking off from an intersecting runway, the agency said.`\
+`A Delta Air Lines flight aborted its landing on Saturday to avoid another plane that was taking off from an intersecting runway, the agency said.`\
 https://www.nytimes.com/2026/06/21/us/boston-airport-planes-near-miss.html
 
 **What I Learned About Parenting as a Trans Dad**\
