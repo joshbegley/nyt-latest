@@ -1,3 +1,7 @@
+**The Man Trumpifying FIFA**\
+`Gianni Infantino, the FIFA president, has unabashedly courted the U.S. president’s favor.`\
+https://www.nytimes.com/2026/06/21/world/infantino-trump-fifa-iran-talks.html
+
 **Mark Singer, Longtime Writer for The New Yorker, Dies at 75**\
 `He joined the magazine’s staff at 23. Among the subjects of his profiles were the magician Ricky Jay and a pre-politics Donald Trump.`\
 https://www.nytimes.com/2026/06/21/obituaries/mark-singer-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/world/americas/colombia-election-cepeda-espri
 **For Heirs of Custer and Sitting Bull, a 150-Year-Old Battle Is Personal**\
 `As the anniversary of the Battle of the Little Bighorn approaches, relatives of the two men still grapple with the legacy of a contentious moment in U.S. history.`\
 https://www.nytimes.com/2026/06/21/arts/for-heirs-of-custer-and-sitting-bull-a-150-year-old-battle-is-personal.html
-
-**Is Your Vibe ‘High-Signal’ or ‘Anti-Signal’?**\
-`Subtle cues are shaping notions of what’s hot and what’s not in the tech world.`\
-https://www.nytimes.com/2026/06/21/business/signal-tech-silicon-valley.html
 
