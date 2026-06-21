@@ -1,4 +1,4 @@
-**Tesla Driver Using Autopilot Crashes Into Home, Killing a Woman, Officials Say**\
+**Tesla Driver Using Autopilot Crashes Into Home in Texas and Kills a Woman, Officials Say**\
 `The driver told investigators he was using the vehicle’s automated-driver system when the vehicle left the roadway and crashed into a house in Harris County, Texas.`\
 https://www.nytimes.com/2026/06/21/us/tesla-autopilot-crash-texas.html
 
