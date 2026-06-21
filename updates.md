@@ -1,3 +1,7 @@
+**Netanyahu faces one of the biggest challenges of his career.**\
+`In a ‘plot twist’, Prime Minister Benjamin Netanyahu appears to be heading into an election this fall without his main prop: President Trump.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/netanyahu-iran-deal-trump.html
+
 **Melissa Clark's Buttermilk Pancakes and More Father’s Day Recipes**\
 `That’s breakfast for Dad, done. Then for dinner, how about Sam Sifton’s BBQ chicken?`\
 https://www.nytimes.com/2026/06/21/dining/my-very-best-buttermilk-pancakes.html
