@@ -1,3 +1,11 @@
+**Keir Starmer Reflects on ‘Political Challenges’ as Pressure to Resign Mounts**\
+`An ally of Keir Starmer’s told the BBC on Sunday that Mr. Starmer was “taking the time to think through what the political realities are today compared to last week.”`\
+https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.html
+
+**Sweet or Salty?**\
+`We catch up with The Times’s restaurant critics.`\
+https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
+
 **F.A.A. Investigates Near Miss Between Planes at Boston’s Logan Airport**\
 `A Delta Air Lines flight aborted its landing to avoid another plane that was taking off from an intersecting runway, the agency said.`\
 https://www.nytimes.com/2026/06/21/us/faa-investigates-near-miss-between-planes-at-bostons-logan-airport.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/21/world/europe/albania-kushner-project-protests
 **Albanians Protest Corruption and Kushner-Linked Resort**\
 `For more than three weeks, thousands of Albanians have been protesting a planned luxury hotel development on the Adriatic coast that is partially financed by President Trump’s son-in-law Jared Kushner.`\
 https://www.nytimes.com/video/world/europe/100000010981148/albania-protests-kushner.html
-
-**The Women Running Businesses Under Taliban Rules**\
-`With secondary education and most jobs out of reach, thousands of Afghan women have turned to entrepreneurship as the only path to make money and maintain a social life.`\
-https://www.nytimes.com/2026/06/21/world/asia/women-taliban-restrictions-jobs-education.html
-
-**The Dad Movie Canon: Films That Define Dad Cinema**\
-`What is it about a certain kind of film that appeals to fathers? Our writer took a stab at defining Dad Cinema and rounding up its greatest hits.`\
-https://www.nytimes.com/2026/06/21/movies/dad-movies.html
 
