@@ -1,3 +1,11 @@
+**‘Toy Story 5’ Fuels Hollywood’s Hottest Summer Since 2019**\
+`The Disney-Pixar sequel was expected to make $160 million in North America over the weekend, lifting the summer box office to $1.85 billion to date.`\
+https://www.nytimes.com/2026/06/21/business/media/toy-story-5-box-office-hollywood-summer.html
+
+**San Antonio Mayor Says Kanye West’s July 4 Concert There Should Be Canceled**\
+`The mayor’s appeal comes after several of the rapper’s shows were canceled in Europe. A planned concert in Tampa, Fla., has also raised concern.`\
+https://www.nytimes.com/2026/06/21/arts/music/kanye-west-ye-san-antonio-concert-antisemitism.html
+
 **As Vance Offers Iran ‘Outstretched Hand’ in Talks, Trump Threatens Bombing**\
 `The administration’s split message came as the United States and Iran began a new round of nuclear negotiations in Switzerland.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/vance-iran-talks-trump.html
@@ -82,7 +90,7 @@ https://www.nytimes.com/2026/06/21/opinion/chicago-broadwater-six-misconduct-min
 `Even the most powerful state in the world is not all that powerful when it decides to go it alone.`\
 https://www.nytimes.com/2026/06/21/opinion/america-allies-superpower-iran.html
 
-**‘There Was Love and Then There Was Suffering’: A Q&A With Christian Wiman**\
+**‘There Was Love, and Then There Was Suffering’: A Q&A With Christian Wiman**\
 `“The minute you are convinced that you have grasped something true about God, it dissolves in you.”`\
 https://www.nytimes.com/2026/06/21/opinion/christian-wiman-chistianity-poetry-faith.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/21/health/drug-testing-wastwater-sewage.html
 **Where Billionaires Summer, a Gardener Died in the Snow**\
 `A landscaper’s difficult life and lonely death reveal the human cost behind the Hamptons’ manicured landscape.`\
 https://www.nytimes.com/2026/06/21/realestate/where-billionaires-summer-a-gardener-died-in-the-snow.html
-
-**A Tenacious Lifeguard Still Swims Against the Tide**\
-`Janet Fash was always outspoken when it came to keeping beachgoers safe. She lays it all out in her feisty new memoir.`\
-https://www.nytimes.com/2026/06/21/books/review/lifeguard-janet-fash-memoir.html
-
-**Trump Administration Shuttered a Criminal Probe Into Fraudster’s Clemency**\
-`Federal prosecutors had been examining the circumstances behind the commutation of David Gentile’s sentence. He was aided by a Catholic priest friendly with the president.`\
-https://www.nytimes.com/2026/06/21/us/politics/trump-fraudster-priest-investigation-brooklyn.html
 

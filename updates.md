@@ -1,3 +1,15 @@
+**‘Toy Story 5’ Fuels Hollywood’s Hottest Summer Since 2019**\
+`The Disney-Pixar sequel was expected to make $160 million in North America over the weekend, lifting the summer box office to $1.85 billion to date.`\
+https://www.nytimes.com/2026/06/21/business/media/toy-story-5-box-office-hollywood-summer.html
+
+**San Antonio Mayor Says Kanye West’s July 4 Concert There Should Be Canceled**\
+`The mayor’s appeal comes after several of the rapper’s shows were canceled in Europe. A planned concert in Tampa, Fla., has also raised concern.`\
+https://www.nytimes.com/2026/06/21/arts/music/kanye-west-ye-san-antonio-concert-antisemitism.html
+
+**‘There Was Love, and Then There Was Suffering’: A Q&A With Christian Wiman**\
+`“The minute you are convinced that you have grasped something true about God, it dissolves in you.”`\
+https://www.nytimes.com/2026/06/21/opinion/christian-wiman-chistianity-poetry-faith.html
+
 **As Vance Offers Iran ‘Outstretched Hand’ in Talks, Trump Threatens Bombing**\
 `The administration’s split message came as the United States and Iran began a new round of nuclear negotiations in Switzerland.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/vance-iran-talks-trump.html
