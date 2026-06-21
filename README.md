@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/06/21/world/middleeast/vance-iran-talks-trump.html
 https://www.nytimes.com/es/2026/06/21/espanol/mundo/la-esposa-del-presidente-del-gobierno-espanol-ira-a-juicio-por-corrupcion.html
 
 **Man Dies at MSG in Fall From Balcony During Goose Concert**\
-`The band Goose was playing on Saturday night when the fall took place. The cause of the incident was not clear.`\
+`The band Goose was playing on Saturday night when the fall took place. The cause of the episode was not clear.`\
 https://www.nytimes.com/2026/06/21/nyregion/death-fall-madison-square-garden.html
 
 **Tom Dreesen, Comic Who Kept Sinatra’s Crowds Laughing, Dies at 86**\
