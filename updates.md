@@ -1,3 +1,7 @@
+**Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
+`Vice President JD Vance was expected to meet with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
+https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
+
 **Father and Uncle of Slain New York Girl Given Life Sentences in Pakistan**\
 `The killing of the victim, a 14-year-old girl from Yonkers who was known for posting videos on TikTok, was premeditated, a court ruled.`\
 https://www.nytimes.com/2026/06/21/world/asia/pakistan-yonkers-hira-anwar.html
