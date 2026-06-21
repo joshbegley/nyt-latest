@@ -1,3 +1,15 @@
+**Severe Weather Expected in the Northeast on Monday**\
+`A storm system will bring a chance of heavy rain and damaging winds to Philadelphia, New York City and Washington. Forecasters warned of power outages and scattered flooding.`\
+https://www.nytimes.com/2026/06/21/weather/northeast-storms-flooding-weather.html
+
+**How Basel Went From Art to Art Basel**\
+`Basel’s art history predates the world’s most prominent art fair by a few centuries.`\
+https://www.nytimes.com/2026/06/21/arts/design/basel-switzerland-art-development-timeline.html
+
+**Israel Directs Its Military to Limit Its Actions in Lebanon, but Tensions Persist**\
+`It was not clear whether the new directive would resolve the friction that led to deadly clashes on Friday and Saturday and threatened to derail a preliminary U.S.-Iran peace deal.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/israel-lebanon-hezbollah-fighting.html
+
 **U.S. and Iran Have Plenty to Negotiate Beyond Nuclear Issues**\
 `Both sides have committed to discussing sanctions relief and the shape of a reconstruction fund, as well as Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/us-iran-negotiations-issues.html
