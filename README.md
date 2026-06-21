@@ -1,3 +1,7 @@
+**A Glamorous Swiss Resort Hosts Officials for U.S.-Iran Talks**\
+`The Bürgenstock Resort Lake Lucerne has hosted some of the world’s wealthiest and most powerful people for more than 100 years.`\
+https://www.nytimes.com/2026/06/21/world/europe/switzerland-resort-us-iran-meeting.html
+
 **Segunda vuelta de las elecciones en Colombia: lo que hay que saber**\
 `Las votaciones de este domingo enfrentan a un candidato de derecha respaldado por Trump contra un candidato que promete continuidad con el presidente saliente de izquierda.`\
 https://www.nytimes.com/es/2026/06/21/espanol/america-latina/segunda-vuelta-elecciones-colombia.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/06/21/briefing/are-there-limits-to-an-apology.html
 https://www.nytimes.com/2026/06/21/us/iran-us-peace-deal-nuclear-program-threats.html
 
 **How Trump’s Fragile Agreement With Iran Is Shaping the Midterms**\
-`Democrats say the president started an economically painful war that resulted in nothing positive. Republicans are showing some signs of relief at falling gas prices.`\
+`Democrats say the president started an economically painful war that resulted in nothing positive. Republicans are more divided, even as they show some signs of relief at falling gas prices.`\
 https://www.nytimes.com/2026/06/21/us/politics/trump-iran-agreement-midterms.html
 
 **While the World Scrambles for Oil, China Sits on Full Tanks**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000010981147/strait-hormuz-ira
 **Man Is Arrested in Scotland After Rampage Leaves 5 Hurt**\
 `An advocacy group identified some of the victims as Muslims. Counterterrorism authorities are leading the investigation, but a motive for the attacks is so far unknown.`\
 https://www.nytimes.com/2026/06/20/world/europe/edinburgh-stabbing-arrest-injuries.html
-
-**Huge Blaze Ravages Dominican Republic Beach Resort**\
-`The fire on Friday forced the emergency evacuation of nearly 1,700 guests. Authorities said at least one person, an Italian tourist, was killed.`\
-https://www.nytimes.com/2026/06/20/world/americas/dominican-republic-fire.html
 
