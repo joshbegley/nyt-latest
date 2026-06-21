@@ -1,3 +1,7 @@
+**The Man Trumpifying FIFA**\
+`Gianni Infantino, the FIFA president, has unabashedly courted the U.S. president’s favor.`\
+https://www.nytimes.com/2026/06/21/world/infantino-trump-fifa-iran-talks.html
+
 **Mark Singer, Longtime Writer for The New Yorker, Dies at 75**\
 `He joined the magazine’s staff at 23. Among the subjects of his profiles were the magician Ricky Jay and a pre-politics Donald Trump.`\
 https://www.nytimes.com/2026/06/21/obituaries/mark-singer-dead.html
