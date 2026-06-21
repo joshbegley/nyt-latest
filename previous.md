@@ -1,3 +1,7 @@
+**Resultados de las elecciones de Colombia: De la Espriella se perfila ganador**\
+`La victoria del candidato respaldado por Trump supondría un revés para la izquierda y otra victoria para la derecha en Latinoamérica.`\
+https://www.nytimes.com/es/2026/06/21/espanol/america-latina/elecciones-colombia-resultados-delaespriella.html
+
 **Abelardo De La Espriella, Trump-Backed Rightist, Headed for Win in Colombia**\
 `A victory for Abelardo De La Espriella, a lawyer with no previous political experience, would be a rebuke to the left and another win for the right in Latin America.`\
 https://www.nytimes.com/2026/06/21/world/americas/colombia-election-de-la-espriella.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/us/iran-us-peace-deal-nuclear-program-threats
 **How Trump’s Fragile Agreement With Iran Is Shaping the Midterms**\
 `Democrats say the president started an economically painful war that resulted in nothing positive. Republicans are more divided, even as they show some signs of relief at falling gas prices.`\
 https://www.nytimes.com/2026/06/21/us/politics/trump-iran-agreement-midterms.html
-
-**While the World Scrambles for Oil, China Sits on Full Tanks**\
-`The possible reopening of the Strait of Hormuz may not prompt China to return quickly to prewar levels of oil purchases from the Persian Gulf.`\
-https://www.nytimes.com/2026/06/21/business/china-oil-iran.html
 

@@ -1,3 +1,7 @@
+**Resultados de las elecciones de Colombia: De la Espriella se perfila ganador**\
+`La victoria del candidato respaldado por Trump supondría un revés para la izquierda y otra victoria para la derecha en Latinoamérica.`\
+https://www.nytimes.com/es/2026/06/21/espanol/america-latina/elecciones-colombia-resultados-delaespriella.html
+
 **Abelardo De La Espriella, Trump-Backed Rightist, Headed for Win in Colombia**\
 `A victory for Abelardo De La Espriella, a lawyer with no previous political experience, would be a rebuke to the left and another win for the right in Latin America.`\
 https://www.nytimes.com/2026/06/21/world/americas/colombia-election-de-la-espriella.html
