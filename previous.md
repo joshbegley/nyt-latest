@@ -1,3 +1,7 @@
+**Melissa Clark's Buttermilk Pancakes and More Father’s Day Recipes**\
+`That’s breakfast for Dad, done. Then for dinner, how about Sam Sifton’s BBQ chicken?`\
+https://www.nytimes.com/2026/06/21/dining/my-very-best-buttermilk-pancakes.html
+
 **Five Fast Dinners I Will Definitely Make Again**\
 `Starting with this easy but elegant spicy sardine pasta with leeks and lemon.`\
 https://www.nytimes.com/2026/06/21/dining/five-fast-dinners-i-will-definitely-make-again.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/upshot/remote-work-parents-mothers.html
 **‘What Do I Do? Do I Tell Her? How Do I Fix This?’**\
 `Some notable friends of Metropolitan Diary, including the actors Andrew Rannells and Tony Danza, share their stories in the first of a special series of columns marking the feature’s 50th anniversary.`\
 https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
-
-**‘Dios es caboverdiano’: una pequeña nación en la cima tras un debut sensacional en el Mundial**\
-`Después de su empate con España, una mezcla de confianza y nerviosismo se ha apoderado del pequeño país africano, que espera repetir la hazaña frente a Uruguay.`\
-https://www.nytimes.com/es/2026/06/21/espanol/deportes/cabo-verde-mundial-espana.html
 

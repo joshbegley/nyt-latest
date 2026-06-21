@@ -1,3 +1,7 @@
+**Melissa Clark's Buttermilk Pancakes and More Father’s Day Recipes**\
+`That’s breakfast for Dad, done. Then for dinner, how about Sam Sifton’s BBQ chicken?`\
+https://www.nytimes.com/2026/06/21/dining/my-very-best-buttermilk-pancakes.html
+
 **Israel directs its military to limit its actions in Lebanon, though tensions persist.**\
 `(No description)`\
 https://www.nytimes.com/2026/06/21/world/middleeast/israel-directs-its-military-to-limit-its-actions-in-lebanon-though-tensions-persist.html
