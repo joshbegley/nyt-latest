@@ -1,3 +1,7 @@
+**California Governor Declares State of Emergency for L.A. Warehouse Fire**\
+`A fire that broke out on Wednesday at a cold storage facility in Los Angeles continued to burn on Sunday. Gov. Gavin Newsom declared an emergency.`\
+https://www.nytimes.com/video/us/100000010981847/la-warehouse-fire-state-of-emergency.html
+
 **El secreto de Seth Rogen: ternura, marihuana y no competir con nadie**\
 `Con 30 años en Hollywood, el actor y director reflexiona sobre lo que hace funcionar un matrimonio, una amistad y una carrera que no deja de crecer.`\
 https://www.nytimes.com/es/2026/06/21/espanol/seth-rogen-entrevista-matrimonio.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/business/whitman-college-tuition-pricing.html
 **A Diocese Tries to Protect Its 29-Foot Jesus From Trump’s Border Wall**\
 `In a battle of symbols, the Catholics of Las Cruces, N.M., argue that religious freedom should stop the wall from scarring a mountain that has attracted pilgrims for nearly a century.`\
 https://www.nytimes.com/2026/06/21/us/politics/border-wall-catholic-church-mount-christo-rey.html
-
-**Minneapolis Donors Gave as ICE Surged, but Eviction Filings Are Rising**\
-`Residents organized to keep their neighbors housed during Operation Metro Surge, and convinced state legislators to pass a rent relief bill in May. Some fear it won’t be enough.`\
-https://www.nytimes.com/2026/06/21/headway/minneapolis-ice-donors-eviction-rent.html
 

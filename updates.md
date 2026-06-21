@@ -1,3 +1,7 @@
+**California Governor Declares State of Emergency for L.A. Warehouse Fire**\
+`A fire that broke out on Wednesday at a cold storage facility in Los Angeles continued to burn on Sunday. Gov. Gavin Newsom declared an emergency.`\
+https://www.nytimes.com/video/us/100000010981847/la-warehouse-fire-state-of-emergency.html
+
 **El secreto de Seth Rogen: ternura, marihuana y no competir con nadie**\
 `Con 30 años en Hollywood, el actor y director reflexiona sobre lo que hace funcionar un matrimonio, una amistad y una carrera que no deja de crecer.`\
 https://www.nytimes.com/es/2026/06/21/espanol/seth-rogen-entrevista-matrimonio.html
