@@ -1,5 +1,5 @@
 **Abelardo De La Espriella, Trump-Backed Rightist, Headed for Win in Colombia**\
-`A victory for Abelardo de la Espriella, a lawyer with no previous political experience, would be a rebuke to the left and another win for the right in Latin America.`\
+`A victory for Abelardo De La Espriella, a lawyer with no previous political experience, would be a rebuke to the left and another win for the right in Latin America.`\
 https://www.nytimes.com/2026/06/21/world/americas/colombia-election-de-la-espriella.html
 
 **Margaret Kerry, Body and Soul of Disney’s Tinker Bell, Dies at 97**\
