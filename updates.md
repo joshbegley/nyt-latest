@@ -1,3 +1,7 @@
+**Man Dies at MSG in Fall From Balcony During Goose Concert**\
+`The band Goose was playing on Saturday night when the fall took place. The cause of the episode was not clear.`\
+https://www.nytimes.com/2026/06/21/nyregion/death-fall-madison-square-garden.html
+
 **Hantavirus Quarantine Ends for 18 Americans Exposed on a Cruise Ship**\
 `No cases associated with the outbreak on the MV Hondius cruise ship have been confirmed in the U.S., health officials said.`\
 https://www.nytimes.com/2026/06/21/us/hantavirus-quarantine-end.html
