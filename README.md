@@ -1,3 +1,7 @@
+**Segunda vuelta de las elecciones en Colombia: lo que hay que saber**\
+`Las votaciones de este domingo enfrentan a un candidato de derecha respaldado por Trump contra un candidato que promete continuidad con el presidente saliente de izquierda.`\
+https://www.nytimes.com/es/2026/06/21/espanol/america-latina/segunda-vuelta-elecciones-colombia.html
+
 **No Corrections: June 21, 2026**\
 `No corrections appeared in print on Sunday, June 21, 2026.`\
 https://www.nytimes.com/2026/06/21/pageoneplus/no-corrections-june-21-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/world/europe/edinburgh-stabbing-arrest-injuri
 **Huge Blaze Ravages Dominican Republic Beach Resort**\
 `The fire on Friday forced the emergency evacuation of nearly 1,700 guests. Authorities said at least one person, an Italian tourist, was killed.`\
 https://www.nytimes.com/2026/06/20/world/americas/dominican-republic-fire.html
-
-**Former Gotti Associate Turned Councilman Arrested in Loan Scheme**\
-`John Alite, a borough council member in Englishtown, N.J., since 2025, had in recent years established himself as a man who learned from his mistakes.`\
-https://www.nytimes.com/2026/06/20/nyregion/john-alite-councilman-gambino-nj.html
 
