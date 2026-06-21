@@ -1,3 +1,7 @@
+**Tengo 53 años. Dejen de decirme que soy invisible**\
+`Nunca ha habido un mejor momento para ser una mujer de mediana edad.`\
+https://www.nytimes.com/es/2026/06/21/espanol/opinion/mujer-mediana-edad-invisible.html
+
 **Mamdani Burns Allies in Making a Big Bet for Congress and the Left**\
 `The strength of the mayor’s political brand will be tested on Tuesday, when his slate of leftist congressional candidates takes aim at Democratic incumbents.`\
 https://www.nytimes.com/2026/06/21/nyregion/mamdani-burns-allies-in-making-a-big-bet-for-congress-and-the-left.html
