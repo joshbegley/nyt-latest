@@ -1,3 +1,7 @@
+**Severe Weather Expected in the Northeast on Monday**\
+`A storm system will bring a chance of heavy rain and damaging winds to Philadelphia, New York City and Washington. Forecasters warned of power outages and scattered flooding.`\
+https://www.nytimes.com/2026/06/21/weather/northeast-storms-flooding-weather.html
+
 **How Basel Went From Art to Art Basel**\
 `Basel’s art history predates the world’s most prominent art fair by a few centuries.`\
 https://www.nytimes.com/2026/06/21/arts/design/basel-switzerland-art-development-timeline.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/nyregion/mamdani-burns-allies-in-making-a-big
 **A Reporter’s Memories Cross Two-Lane Highways in Missouri**\
 `“Kenrex” reimagines a notorious killing in Skidmore, Mo. Jesse McKinley wrote about the play — and the crime — after getting a tip from his son.`\
 https://www.nytimes.com/2026/06/21/insider/kenrex-skidmore-missouri.html
-
-**NYT Spelling Bee Answers for June 21, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/21/crosswords/spelling-bee-forum.html
 
