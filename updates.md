@@ -1,3 +1,7 @@
+**For Half a Century, Capturing New York’s Human Moments**\
+`Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain and so much more of the city’s daily poetry.`\
+https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.html
+
 **‘What Do I Do? Do I Tell Her? How Do I Fix This?’**\
 `Some notable friends of Metropolitan Diary, including the actors Andrew Rannells and Tony Danza, share their stories in the first of a special series of columns marking the feature’s 50th anniversary.`\
 https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html

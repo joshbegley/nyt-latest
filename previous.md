@@ -179,7 +179,7 @@ https://www.nytimes.com/2026/06/21/insider/kenrex-skidmore-missouri.html
 https://www.nytimes.com/2026/06/21/crosswords/spelling-bee-forum.html
 
 **For Half a Century, Capturing New York’s Human Moments**\
-`Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain, and so much more of the city’s daily poetry.`\
+`Lovers’ quarrels on sidewalks, acts of kindness on public transportation, friendships forged under awnings in the rain and so much more of the city’s daily poetry.`\
 https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary-50th-anniversary.html
 
 **How Remote Work Has Helped a Generation of Working Parents**\
