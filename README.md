@@ -1,3 +1,7 @@
+**Iran Nuclear Talks Expected to Hinge on These 4 Questions**\
+`Tehran insists that its nuclear program is for peaceful purposes. The Trump administration is demanding assurances that Iran cannot secretly develop a weapon.`\
+https://www.nytimes.com/2026/06/21/world/middleeast/iran-nuclear-talks-questions.html
+
 **A Glamorous Swiss Resort Hosts Officials for U.S.-Iran Talks**\
 `The Bürgenstock Resort Lake Lucerne has hosted some of the world’s wealthiest and most powerful people for more than 100 years.`\
 https://www.nytimes.com/2026/06/21/world/europe/switzerland-resort-us-iran-meeting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/20/world/middleeast/mona-kahlil-turtles-lebanon-
 **U.S. and Iran Offer Contradictory Statements on Strait of Hormuz**\
 `Iran’s military announced that it had closed the Strait of Hormuz around the same time on Saturday that Vice President JD Vance told Fox News the Trump administration had accomplished its goal of opening the strait.`\
 https://www.nytimes.com/video/world/middleeast/100000010981147/strait-hormuz-iran-trump-vance.html
-
-**Man Is Arrested in Scotland After Rampage Leaves 5 Hurt**\
-`An advocacy group identified some of the victims as Muslims. Counterterrorism authorities are leading the investigation, but a motive for the attacks is so far unknown.`\
-https://www.nytimes.com/2026/06/20/world/europe/edinburgh-stabbing-arrest-injuries.html
 
