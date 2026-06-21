@@ -1,3 +1,7 @@
+**Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
+`Vice President JD Vance was expected to meet with Iranian negotiators. But the conflict in Lebanon threatens efforts to reach a broader peace and keep the Strait of Hormuz open.`\
+https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
+
 **Wildfire in Central Utah Prompts Evacuation Order for Hundreds of People**\
 `The Iron fire had burned more than 13,000 acres by Saturday night. Containment efforts have been made more difficult by the region’s steep terrain.`\
 https://www.nytimes.com/2026/06/21/us/utah-iron-fire-eureka.html
