@@ -1,3 +1,7 @@
+**Tengo 53 años. Dejen de decirme que soy invisible**\
+`Nunca ha habido un mejor momento para ser una mujer de mediana edad.`\
+https://www.nytimes.com/es/2026/06/21/espanol/opinion/mujer-mediana-edad-invisible.html
+
 **Mamdani Burns Allies in Making a Big Bet for Congress and the Left**\
 `The strength of the mayor’s political brand will be tested on Tuesday, when his slate of leftist congressional candidates takes aim at Democratic incumbents.`\
 https://www.nytimes.com/2026/06/21/nyregion/mamdani-burns-allies-in-making-a-big-bet-for-congress-and-the-left.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/20/opinion/jd-vance-communion-trump.html
 **We Need to Keep Funding Weird Science**\
 `Science turned a serendipitous finding about lizard venom into one of the most important drugs of the century, but that type of research is getting harder to do.`\
 https://www.nytimes.com/2026/06/20/opinion/glp1-research-science-funding.html
-
-**Creature From the Green Lagoon**\
-`Trump’s slimy, stinky swamp within the swamp.`\
-https://www.nytimes.com/2026/06/20/opinion/trump-reflecting-pool-algae-green-dc.html
 
 **World Cup Updates: Smaller U.S. Cities Give Visiting Teams an Extra-Warm Embrace**\
 `(No description)`\
