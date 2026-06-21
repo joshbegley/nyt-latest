@@ -1,3 +1,15 @@
+**Oil Rises Amid Uncertainty Over Strait of Hormuz**\
+`Modest reactions in the oil and financial markets as Iran and the U.S. met in Switzerland for a first round of talks aimed at making a temporary cease-fire permanent.`\
+https://www.nytimes.com/2026/06/21/business/oil-rises-amid-uncertainty-over-strait-of-hormuz.html
+
+**The Deadly Rise of Giant Trucks and S.U.V.s**\
+`The vehicles on American roads have grown larger — and they are killing thousands more pedestrians, a Times investigation found.`\
+https://www.nytimes.com/interactive/2026/06/21/us/inv-trucks.html
+
+**NYT Crossword Answers for June 22, 2026**\
+`Victoria Fernandez Grande clears the bar.`\
+https://www.nytimes.com/2026/06/21/crosswords/daily-puzzle-2026-06-22.html
+
 **The Man Trumpifying FIFA**\
 `Gianni Infantino, the FIFA president, has unabashedly courted the U.S. president’s favor.`\
 https://www.nytimes.com/2026/06/21/world/infantino-trump-fifa-iran-talks.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/21/movies/hayley-kiyoko-interview-girls-like-gir
 **World Cup Visitors in Miami Encounter Beaches Thick With Smelly Seaweed**\
 `Carpets of sargassum now regularly invade South Florida’s coastline in June. The timing is unfortunate for visiting soccer fans hoping to sunbathe and swim.`\
 https://www.nytimes.com/2026/06/21/us/miami-beaches-sargassum-seaweed-world-cup.html
-
-**When a Job Goes From Dreamy to Dreary**\
-`Plus, should I follow through on complaints about one workplace after I’ve moved on to another?`\
-https://www.nytimes.com/2026/06/21/business/when-a-job-goes-from-dreamy-to-dreary.html
-
-**Colombia’s High-Stakes Election: What to Know About the Candidates, Issues and Expected Results**\
-`Colombia’s election on Sunday pits a right-wing candidate endorsed by President Trump against a candidate promising continuity with the country’s departing leftist president.`\
-https://www.nytimes.com/2026/06/21/world/americas/colombia-election-cepeda-espriella.html
-
-**For Heirs of Custer and Sitting Bull, a 150-Year-Old Battle Is Personal**\
-`As the anniversary of the Battle of the Little Bighorn approaches, relatives of the two men still grapple with the legacy of a contentious moment in U.S. history.`\
-https://www.nytimes.com/2026/06/21/arts/for-heirs-of-custer-and-sitting-bull-a-150-year-old-battle-is-personal.html
 
