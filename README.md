@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/21/nyregion/metropolitan-diary.html
 `Después de su empate con España, una mezcla de confianza y nerviosismo se ha apoderado del pequeño país africano, que espera repetir la hazaña frente a Uruguay.`\
 https://www.nytimes.com/es/2026/06/21/espanol/deportes/cabo-verde-mundial-espana.html
 
-**Mideast Live Updates: New Round of U.S.-Iran Talks Begins in Switzerland**\
-`An American delegation, led by Vice President JD Vance, was attending the talks along with Iranian negotiators. The conflict in Lebanon is complicating efforts to reach a broader peace and keep the Strait of Hormuz open.`\
+**Mideast Live Updates: New Round of U.S.-Iran Talks Underway in Switzerland**\
+`An American delegation, led by Vice President JD Vance, was meeting with Iranian negotiators. The conflict in Lebanon is complicating efforts to reach a broader peace and keep the Strait of Hormuz open.`\
 https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
 
