@@ -1,3 +1,7 @@
+**Mideast Live Updates: New Round of U.S.-Iran Talks Set to Start in Switzerland**\
+`Vice President JD Vance was expected to meet with Iranian negotiators on Sunday. Pakistan, an intermediary in the talks, said it was sending a delegation.`\
+https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon
+
 **Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension**\
 `Vice President JD Vance said he would prioritize nuclear issues and renewed fighting in Lebanon in talks with an Iranian delegation in Switzerland. Shipping in the Strait of Hormuz faced new disruption after Iran’s military said it was closing the waterway.`\
 https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon
