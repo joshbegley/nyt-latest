@@ -1,3 +1,7 @@
+**Conductor de Tesla en piloto automático choca contra una casa y mata a una mujer**\
+`El conductor dijo a los investigadores que usaba el sistema de conducción automatizada del vehículo cuando este se salió de la vía y se estrelló en el condado de Harris, Texas.`\
+https://www.nytimes.com/es/2026/06/21/espanol/tesla-piloto-automatico-choque.html
+
 **Tornadoes Reported in Southern Illinois Leave Trail of Damage**\
 `By Sunday night, there had already been at least 13 reports of tornadic activity or damage, a meteorologist said.`\
 https://www.nytimes.com/2026/06/21/us/tornado-warning-illinois-weather.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/world/europe/switzerland-resort-us-iran-meeti
 **Segunda vuelta de las elecciones en Colombia: lo que hay que saber**\
 `Las votaciones de este domingo enfrentan a un candidato de derecha respaldado por Trump contra un candidato que promete continuidad con el presidente saliente de izquierda.`\
 https://www.nytimes.com/es/2026/06/21/espanol/america-latina/segunda-vuelta-elecciones-colombia.html
-
-**No Corrections: June 21, 2026**\
-`No corrections appeared in print on Sunday, June 21, 2026.`\
-https://www.nytimes.com/2026/06/21/pageoneplus/no-corrections-june-21-2026.html
 
