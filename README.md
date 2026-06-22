@@ -1,3 +1,7 @@
+**How Many Prime Ministers Has the UK Had Since Brexit?**\
+`The years since the Brexit vote have been some of the most tumultuous in Britain’s recent political history. Here’s a look at the revolving door in Downing Street.`\
+https://www.nytimes.com/2026/06/22/world/europe/starmer-resigns-uk-prime-ministers-how-long.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnham-swearing-in-28680.html
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk
 https://www.nytimes.com/2026/06/22/realestate/parks-slope-library-house-renovation.html
 
 **Cuba’s Fuel Crisis Brings Schools to a Standstill**\
-`Cuba’s already struggling schools are ending the academic year early because of a crippling fuel shortage caused by the U.S. oil blockade.`\
+`The country’s already-struggling schools are ending the academic year early because of a crippling fuel shortage caused by the U.S. oil blockade.`\
 https://www.nytimes.com/2026/06/22/world/americas/cuba-oil-gas-crisis-schools-education.html
 
 **The Dispute Over Events for America’s 250th Birthday, Explained**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/climate/california-canals-solar-panels-water-
 **America is 250. One Maine Woman Is Making the Celebration Last All Year.**\
 `Kim Smith, a city worker in Presque Isle, Maine, planned a year’s worth of festivities with a commitment that bordered on obsession. Her approach felt quintessentially American.`\
 https://www.nytimes.com/2026/06/22/us/presque-isle-maine-america-250.html
-
-**Why Are Dress Sneakers Everywhere?**\
-`A reader wonders how a shoe-sneaker hybrid became an acceptable part of men’s professional wardrobes.`\
-https://www.nytimes.com/2026/06/22/fashion/dress-sneakers-silicon-valley-wall-street.html
 

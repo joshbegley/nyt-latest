@@ -1,3 +1,19 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnham-swearing-in-28680.html
+
+**Dua Lipa and the Art of the Celebrity Wedding-Dress Reveal**\
+`The singer’s Chanel gown is almost guaranteed to set trends in more ways than one.`\
+https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
+
+**What I Learned About Masculinity at Thai Kickboxing School**\
+`A week inside a grueling Muay Thai training program in Phuket.`\
+https://www.nytimes.com/2026/06/22/magazine/muay-thai-training-kickboxing-thailand.html
+
+**Doctors Can Test Your Baby for Hundreds of Genetic Anomalies. Should They?**\
+`A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
+https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
+
 **China Tightens Rare-Earth Grip on U.S. Firms, Threatening Trade Clash**\
 `The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
 https://www.nytimes.com/2026/06/22/business/china-rare-earths.html

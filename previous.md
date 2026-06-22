@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnham-swearing-in-28680.html
+
+**Dua Lipa and the Art of the Celebrity Wedding-Dress Reveal**\
+`The singer’s Chanel gown is almost guaranteed to set trends in more ways than one.`\
+https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
+
 **The Guardrails Designed to Protect U.S.-Iran Talks**\
 `The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/the-guardrails-designed-to-protect-us-iran-talks.html
@@ -138,7 +146,7 @@ https://www.nytimes.com/2026/06/22/health/cystic-fibrosis-drug-triko-trikafta.ht
 `Brent Leggs will lead the preservation organization, which has been in the news recently for challenging the Trump administration’s ballroom and Kennedy Center projects.`\
 https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-brent-leggs.html
 
-**Could I Become a Kickboxer at 48? I Went to Thailand to Find Out.**\
+**What I Learned About Masculinity at Thai Kickboxing School**\
 `A week inside a grueling Muay Thai training program in Phuket.`\
 https://www.nytimes.com/2026/06/22/magazine/muay-thai-training-kickboxing-thailand.html
 
@@ -154,7 +162,7 @@ https://www.nytimes.com/2026/06/22/nyregion/metropolitan-diary-50th-anniversary.
 `Bret McKenzie and Jemaine Clement are routinely asked about performing their musical satires again. They always said no, until this year. What changed?`\
 https://www.nytimes.com/2026/06/22/arts/television/flight-of-the-conchords-jemaine-clement-bret-mckenzie.html
 
-**In the Near Future, All Babies May Receive Genetic Testing. We Need to Prepare.**\
+**Doctors Can Test Your Baby for Hundreds of Genetic Anomalies. Should They?**\
 `A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
 https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/22/us/presque-isle-maine-america-250.html
 **Why Are Dress Sneakers Everywhere?**\
 `A reader wonders how a shoe-sneaker hybrid became an acceptable part of men’s professional wardrobes.`\
 https://www.nytimes.com/2026/06/22/fashion/dress-sneakers-silicon-valley-wall-street.html
-
-**A.I. Doomaxxing Is Bad for Our Economy**\
-`The economic impact of A.I. is less concerning than consumers’ fear-based reactions to it.`\
-https://www.nytimes.com/2026/06/22/opinion/ai-doom-jobs-economy.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010982776/22vid-starmer-clip-1-66118.html
 
