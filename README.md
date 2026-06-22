@@ -1,3 +1,7 @@
+**Tesla Crash That Killed a Texas Woman Will be Investigated by Federal Regulators**\
+`The car’s driver-assistance system was in use when the crash killed a woman on Friday, the police said.`\
+https://www.nytimes.com/2026/06/22/business/tesla-texas-autopilot-crash-nhtsa.html
+
 **Keir Starmer renuncia como primer ministro del Reino Unido. ¿Qué sigue ahora?**\
 `Su salida allana el camino para que Andy Burnham, un popular exalcalde del Partido Laborista, se convierta en el séptimo primer ministro del país en una década.`\
 https://www.nytimes.com/es/2026/06/22/espanol/mundo/keir-starmer-renuncia-reino-unido.html
@@ -115,7 +119,7 @@ https://www.nytimes.com/2026/06/22/nyregion/coffee-shop-poetica-dan-goldman-isra
 https://www.nytimes.com/2026/06/22/t-magazine/fashion/canvas-strapped-watches.html
 
 **Radar Maps Show Philadelphia and New York Face Heavy Rain and Storms on Monday**\
-`The World Cup games in Philadelphia and New Jersey could be affected by storms.`\
+`At least one of the two World Cup games in the region was affected by storms.`\
 https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rain.html
 
 **Will New York Swing Further to the Left? Here’s a Preview of Tuesday’s Primaries.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/22/espanol/mundo/conversaciones-paz-iran-eeuu
 **Andy Burnham Says He Will Run to Become Britain’s Next Prime Minister**\
 `Andy Burnham, who rejoined the British Parliament after a special election victory, said he would seek the roles of prime minister and Labour Party leader after Keir Starmer announced his resignation from both positions.`\
 https://www.nytimes.com/video/world/europe/100000010982931/andy-burnham-starmer-uk-prime-minister.html
-
-**Taliban and E.U. Officials to Discuss Afghan Deportees in Brussels**\
-`The delegation received visas from Belgium to attend talks with the European Union about the deportation of Afghans. Officials in Afghanistan said the meeting would take place on Tuesday.`\
-https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-deportees.html
 
