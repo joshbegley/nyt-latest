@@ -1,3 +1,7 @@
+**YouTube Stars Take Center Stage at Creative Artists Agency**\
+`For years, creators were on the fringes at Creative Artists Agency, a Hollywood talent behemoth. Now the agency is putting them center stage.`\
+https://www.nytimes.com/2026/06/22/business/media/youtube-hollywood-creative-artists-agency.html
+
 **Former Ally to Spain’s Prime Minister Is Sentenced to 24 Years in Prison on Bribery Charges**\
 `José Luis Ábalos, once a minister in the government of Prime Minister Pedro Sánchez, was convicted of bribery. The decision compounds a crisis for Mr. Sánchez’ circle.`\
 https://www.nytimes.com/2026/06/22/world/europe/spain-abalos-sentenced-corruption-sanchez.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/06/22/world/middleeast/us-sanctions-reprieve-iran-o
 `Rates of gray divorce have risen sharply over the past few decades — and experts have a few theories as to why.`\
 https://www.nytimes.com/2026/06/22/well/family/gray-divorce-empty-shell-marriage.html
 
-**After Starmer Quits, Investors Wonder Where the British Economy Goes Next**\
+**U.K. Markets React Calmly to Starmer Resignation, but Economic Uncertainties Linger**\
 `Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
 https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/22/nyregion/nyc-budgeting-affordabil
 **Hollywood Needs Regular Jolts of Creativity. It Just Got One.**\
 `The runaway success of horror films made by internet-bred creators shouldn’t scare Hollywood. It should inspire us.`\
 https://www.nytimes.com/2026/06/22/opinion/obsession-backrooms-hollywood-lessons.html
-
-**In the Choreographer Pioneer Winter’s World, Every Body Is a Dancing Body**\
-`Pioneer Winter’s works expand ideas about who gets to be a professional dancer. In “Apollo,” his muses are older dancers, who are like living archives.`\
-https://www.nytimes.com/2026/06/22/arts/dance/pioneer-winter-apollo-.html
 
