@@ -1,3 +1,7 @@
+**Embattled Superintendent of Los Angeles School District Resigns**\
+`Alberto Carvalho resigned Sunday, months after the F.B.I. raided his home and office. He came to Los Angeles from Miami with a reputation for raising student test scores but also made missteps.`\
+https://www.nytimes.com/2026/06/22/us/superintendent-lausd-alberto-carvalho-resigns.html
+
 **Word of the Day: equipoise**\
 `This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/22/learning/word-of-the-day-equipoise.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.htm
 **Sweet or Salty?**\
 `We catch up with The Times’s restaurant critics.`\
 https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
-
-**Israel Directs Its Military to Limit Its Actions in Lebanon, but Tensions Persist**\
-`It was not clear whether the new directive would resolve the friction that led to deadly clashes on Friday and Saturday and threatened to derail a preliminary U.S.-Iran peace deal.`\
-https://www.nytimes.com/2026/06/21/world/middleeast/israel-lebanon-hezbollah-fighting.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
