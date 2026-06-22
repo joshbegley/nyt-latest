@@ -1,3 +1,7 @@
+**At the Great Nosh, Food Lovers Celebrate Jewish Food and Culture**\
+`New Yorkers descended on Governors Island for the Great Nosh, a festival devoted to Jewish cuisine and culture.`\
+https://www.nytimes.com/2026/06/22/style/great-nosh-jewish-food-festival-governors-island.html
+
 **Barry Manilow, Bruce Springsteen and Others Mourn Clive Davis**\
 `Davis “treated me with the same respect and kindness as a 22-year-old nobody as he did after all my success,” Springsteen said after the music executive’s death on Monday.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-death-celebrity-reactions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
 **The Guardrails Designed to Protect U.S.-Iran Talks**\
 `The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/will-do-iran-us-peace-talks-lebanon-hormuz.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010982983/22vid-burnham-euston-37887.html
 

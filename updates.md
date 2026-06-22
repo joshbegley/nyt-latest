@@ -1,3 +1,7 @@
+**At the Great Nosh, Food Lovers Celebrate Jewish Food and Culture**\
+`New Yorkers descended on Governors Island for the Great Nosh, a festival devoted to Jewish cuisine and culture.`\
+https://www.nytimes.com/2026/06/22/style/great-nosh-jewish-food-festival-governors-island.html
+
 **Shootout Suspect Is Dead After Killing Montreal Police Officer, Authorities Say**\
 `Fady Dagher, the city’s police chief, said that the “immediate threat to the public is no longer present” and that sheltering in place was no longer required.`\
 https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
