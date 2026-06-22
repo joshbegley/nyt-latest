@@ -1,3 +1,15 @@
+**Pochettino Exclusive Interview, and Messi’s Hat Trick**\
+`There are no limits to the USMNT’s ambitions at this World Cup.`\
+https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html
+
+**China Tightens Rare Earth Grip on U.S. Firms, Threatening Trade Clash**\
+`The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
+https://www.nytimes.com/2026/06/22/business/china-rare-earths.html
+
+**Here’s What ‘the Most Important Mozart Discovery in Decades’ Sounds Like**\
+`A newly found notebook documenting the composer’s lessons with a student includes seven previously unknown compositions.`\
+https://www.nytimes.com/2026/06/22/arts/music/mozart-music-flute-harp.html
+
 **U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
 `Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
 https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
