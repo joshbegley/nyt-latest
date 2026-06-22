@@ -1,3 +1,7 @@
+**Does This Radio Host Really Know Everyone in Wales?**\
+`Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
+https://www.nytimes.com/2026/06/22/world/europe/elis-james-wales-radio.html
+
 ****\
 `tktktkt`\
 https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips-HS.html
