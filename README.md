@@ -1,3 +1,7 @@
+**Dutch Prime Minister Apologizes for Mistreatment of Moluccan Soldiers**\
+`Rob Jetten’s acknowledgment of the historical injustice is part of a larger reckoning with the Netherlands’ colonial past.`\
+https://www.nytimes.com/2026/06/22/world/europe/dutch-netherlands-apology-indonesia-moluccan.html
+
 **U.S. Temporarily Lifts Sanctions on Iranian Oil**\
 `In a sharp reversal of American policy, the Treasury announced a 60-day reprieve, permitting the sale of Iranian crude as part of the preliminary U.S.-Iran deal toward ending the war.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/us-sanctions-reprieve-iran-oil.html
