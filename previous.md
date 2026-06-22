@@ -166,8 +166,8 @@ https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer
 `President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
 https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
 
-**U.K. Live Updates: Starmer Announces Resignation as Prime Minister**\
-`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. His decision clears the way for Britain’s seventh prime minister in the last decade.`\
+**U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
+`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
 https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
 
 **Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\

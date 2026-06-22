@@ -1,3 +1,7 @@
+**U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
+`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
+
 **First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
 `Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
 https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html

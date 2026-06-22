@@ -1,3 +1,15 @@
+**Pochettino Exclusive Interview, and Messi’s Hat Trick**\
+`There are no limits to the USMNT’s ambitions at this World Cup.`\
+https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html
+
+**China Tightens Rare Earth Grip on U.S. Firms, Threatening Trade Clash**\
+`The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
+https://www.nytimes.com/2026/06/22/business/china-rare-earths.html
+
+**Here’s What ‘the Most Important Mozart Discovery in Decades’ Sounds Like**\
+`A newly found notebook documenting the composer’s lessons with a student includes seven previously unknown compositions.`\
+https://www.nytimes.com/2026/06/22/arts/music/mozart-music-flute-harp.html
+
 **First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
 `Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
 https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
 **He Provided Security to 3 Governors. Then He Snapped.**\
 `Lt. Ricardo Santos of the New Jersey State Police had faced questions about his judgment and conduct before he became the primary suspect in a double murder-suicide.`\
 https://www.nytimes.com/2026/06/22/nyregion/new-jersey-state-trooper-murder-couple.html
-
-**For Schlossberg, Quirky Charm and a Claim to Camelot May Not Be Enough**\
-`Jack Schlossberg, the grandson of John F. Kennedy, has found it difficult to overcome some of his perceived shortcomings in a high-profile House primary race.`\
-https://www.nytimes.com/2026/06/22/nyregion/jack-schlossberg-campaign-congress.html
-
-**Two Boys Arrested After Deadly School Shooting in the Philippines**\
-`Three people were killed and seven wounded after two ninth graders opened fire on Monday morning in Tacloban City, the police said.`\
-https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-tacloban.html
-
-**Embattled Superintendent of Los Angeles School District Resigns**\
-`Alberto Carvalho resigned Sunday, months after the F.B.I. raided his home and office. He came to Los Angeles from Miami with a reputation for raising student test scores but also made missteps.`\
-https://www.nytimes.com/2026/06/22/us/superintendent-lausd-alberto-carvalho-resigns.html
 
