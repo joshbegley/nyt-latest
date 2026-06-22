@@ -1,3 +1,11 @@
+**How Will Colombia’s New President Fuel Trump’s Drug War?**\
+`Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
+https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html
+
+**Jeffrey Donaldson, Longtime Northern Irish Political Leader, Is Convicted of Child Sex Abuse**\
+`Mr. Donaldson, 63, was found guilty after a weekslong jury trial in Northern Ireland.`\
+https://www.nytimes.com/2026/06/22/world/europe/jeffrey-donaldson-child-abuse-rape-guilty-dup.html
+
 **Today, In Short**\
 `Cottage cheese. Cheating. World Cup joy.`\
 https://www.nytimes.com/2026/06/22/briefing/today-in-short.html
@@ -166,7 +174,7 @@ https://www.nytimes.com/es/2026/06/22/espanol/america-latina/bloqueo-cuba-crisis
 `All Starbucks stores in South Korea shut early on Monday because of a franchise-wide training instituted in the wake of a disastrous marketing campaign.`\
 https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-controversy-closure.html
 
-**Thousands Are Fleeing Ukraine’s Donbas Strongholds as Russia Pushes Closer**\
+**Thousands Are Fleeing as Putin Bombs the Donbas Cities He Most Covets**\
 `While Kyiv’s fortunes have brightened in other ways in the war, Moscow’s forces are raining bombs and drones on “fortress belt” cities like Sloviansk and Kramatorsk.`\
 https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk-kramatorsk-russia.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000010977042/the-rise-of-deadly-trucks-and-s
 **Cannibals, Lobotomies, Lethal Birds: A Tennessee Williams Opera**\
 `“Suddenly Last Summer,” the composer Courtney Bryan’s first opera, adapts Williams’s play for Bard SummerScape.`\
 https://www.nytimes.com/2026/06/22/arts/music/suddenly-last-summer-tennessee-williams-courtney-bryan-daniel-fish.html
-
-**Book Review: ‘The Emergency Playbook,’ by Amy Edelman and Chris Begley**\
-`“The Emergency Playbook” is a disaster preparation guide that emphasizes community rather than lone-hero fantasies.`\
-https://www.nytimes.com/2026/06/22/books/review/emergency-playbook-amy-edelman-chris-begley.html
-
-**How a Security Guard Lives on $46,000 a Year in the East Bronx**\
-`Maruf Abubakari Sadick works two security jobs to pay for rent, cologne and sheep to help feed his parents in Ghana.`\
-https://www.nytimes.com/interactive/2026/06/22/nyregion/nyc-budgeting-affordability-sadick.html
 
