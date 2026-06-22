@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/06/22/crosswords/wordle-review-1830.html
 https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-keir-starmer-resigns.html
 
 **With No Team in the World Cup, China’s Fans Celebrate a Referee**\
-`Most people watching Curaçao play Ecuador focused on the team’s goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
+`Most people watching Curaçao play Ecuador focused on the Curaçaoan goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
 https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
 
 **Mideast Live Updates: Vance Points to Progress After First Round of U.S.-Iran Talks**\
