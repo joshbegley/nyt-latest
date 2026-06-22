@@ -1,3 +1,7 @@
+**Who Will Replace Keir Starmer as UK Prime Minister? Here’s What Happens Next.**\
+`Keir Starmer, the British prime minister, could be replaced through a full leadership contest. But if the top contender, Andy Burnham, is the only candidate, the process will be much faster.`\
+https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prime-minister-burnham-uk.html
+
 **Is China Closing the A.I. Gap Faster Than Expected?**\
 `Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
 https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/world/middleeast/qatar-explosion-gas.html
 **First Round of U.S.-Iran Talks End, Mediators Say**\
 `The first round of negotiations between Washington and Tehran in Switzerland ended with a “roadmap” to reach a final deal within 60 days, Pakistani and Qatari mediators said.`\
 https://www.nytimes.com/video/world/middleeast/100000010982591/first-round-of-us-iran-talks-end-mediators-say.html
-
-**Keir Starmer Delivers Speech From Downing Street**\
-`Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
-https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
 

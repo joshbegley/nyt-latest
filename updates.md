@@ -1,3 +1,7 @@
+**Who Will Replace Keir Starmer as UK Prime Minister? Here’s What Happens Next.**\
+`Keir Starmer, the British prime minister, could be replaced through a full leadership contest. But if the top contender, Andy Burnham, is the only candidate, the process will be much faster.`\
+https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prime-minister-burnham-uk.html
+
 **Is China Closing the A.I. Gap Faster Than Expected?**\
 `Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
 https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
