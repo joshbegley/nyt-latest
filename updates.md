@@ -1,3 +1,7 @@
+**Israel Holds to Lebanon Truce, With Troops Kept on Defense**\
+`Israel and Hezbollah, the Iran-backed Lebanese militant group, appeared to maintain a tense cease-fire for a second day. Israel’s military has new orders that restrict troops to defensive actions.`\
+https://www.nytimes.com/2026/06/22/world/europe/israel-lebanon-hezbollah-truce.html
+
 **No Gas, No Summer Camps, Sporadic Power: Ukraine Escalates Crimea Attacks**\
 `To pressure Moscow, Ukraine is stepping up an air campaign to isolate the peninsula, which Russia annexed in 2014.`\
 https://www.nytimes.com/2026/06/22/world/europe/ukraine-russia-crimea-attacks.html

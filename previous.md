@@ -1,3 +1,7 @@
+**Israel Holds to Lebanon Truce, With Troops Kept on Defense**\
+`Israel and Hezbollah, the Iran-backed Lebanese militant group, appeared to maintain a tense cease-fire for a second day. Israel’s military has new orders that restrict troops to defensive actions.`\
+https://www.nytimes.com/2026/06/22/world/europe/israel-lebanon-hezbollah-truce.html
+
 **No Gas, No Summer Camps, Sporadic Power: Ukraine Escalates Crimea Attacks**\
 `To pressure Moscow, Ukraine is stepping up an air campaign to isolate the peninsula, which Russia annexed in 2014.`\
 https://www.nytimes.com/2026/06/22/world/europe/ukraine-russia-crimea-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/opinion/office-work-wfh-bosses.html
 **The 50-Year-Old Diary That’s Very Dear to Readers**\
 `It’s the 50th anniversary year of Metropolitan Diary, a feature that sheds light on everyday life in New York City.`\
 https://www.nytimes.com/2026/06/22/nyregion/metropolitan-diary-50th-anniversary.html
-
-**Flight of the Conchords and the Perils of Reunions**\
-`Bret McKenzie and Jemaine Clement are routinely asked about performing their musical satires again. They always said no, until this year. What changed?`\
-https://www.nytimes.com/2026/06/22/arts/television/flight-of-the-conchords-jemaine-clement-bret-mckenzie.html
 
