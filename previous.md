@@ -1,3 +1,11 @@
+**The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html
+
+**The Enslaved Woman Who Sued for Freedom and Emancipated Herself**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/elizabeth-freeman-slavery-lawsuit-usa-revolution.html
+
 **Britons React to Prime Minister Keir Starmer’s Resignation Announcement**\
 `After Prime Minister Keir Starmer announced that he is resigning from his position, Britons shared their thoughts about a change of leadership.`\
 https://www.nytimes.com/video/world/europe/100000010983411/starmer-resignation-reaction-britain.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/arts/music/clive-davis-songs.html
 **How Will Colombia’s New President Fuel Trump’s Drug War?**\
 `Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
 https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html
-
-**Jeffrey Donaldson, Longtime Northern Irish Political Leader, Is Convicted of Child Sex Abuse**\
-`Mr. Donaldson, 63, was found guilty after a weekslong jury trial in Northern Ireland.`\
-https://www.nytimes.com/2026/06/22/world/europe/jeffrey-donaldson-child-abuse-rape-guilty-dup.html
-
-**Today, In Short**\
-`Cottage cheese. Cheating. World Cup joy.`\
-https://www.nytimes.com/2026/06/22/briefing/today-in-short.html
 

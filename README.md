@@ -42,13 +42,13 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/good-peter-oneida-histor
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/usa-250-anniversary-american-revolution.html
 
-**U.S. Temporarily Lifts Oil Sanctions Against Iran, Citing ‘Productive’ Talks**\
-`President Trump and Vice President JD Vance pointed to progress on Iran’s nuclear program, but officials in Tehran said “no new commitments” had been made.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/us-iran-oil-sanctions.html
-
 **Doctors Thought It Was Asthma. A.I. Flagged a Serious Heart Problem.**\
 `Artificial intelligence programs can spot patterns in electrocardiograms that humans miss. Now, one program is going to be widely available — for free — to doctors.`\
 https://www.nytimes.com/2026/06/22/health/artificial-intelligence-heart-damage.html
+
+**U.S. Temporarily Lifts Oil Sanctions Against Iran, Citing ‘Productive’ Talks**\
+`President Trump and Vice President JD Vance pointed to progress on Iran’s nuclear program, but officials in Tehran said “no new commitments” had been made.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/us-iran-oil-sanctions.html
 
 **Ramiro Valdés Menéndez, Architect of Cuba’s Surveillance State, Dies at 94**\
 `Considered the country’s most powerful leader after the Castro brothers, he was the first director of the Interior Ministry, keeping a close eye on dissent.`\
@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/06/22/world/americas/ramiro-valdes-menendez-dead.ht
 https://www.nytimes.com/video/world/asia/100000010983022/starbucks-south-korea-ad.html
 
 **Vance Says Iran Has Agreed to Allow Nuclear Inspectors Into Country**\
-`The Trump administration relaxed sanctions on Iranian oil after Vice President JD Vance said that Iran had agreed to invite U.N. nuclear inspectors into the country. Iran said that it had made “no new commitments.”`\
+`Vice President JD Vance was in Switzerland on Monday, where he declared the negotiations a “very good foundation” for a lasting agreement to end the war the United States and Israel began in February.`\
 https://www.nytimes.com/video/world/middleeast/100000010982939/vance-iran-nuclear-inspectors.html
 
 **At Least One Tornado Touches Down in Illinois, Leaving 2 Dead**\
