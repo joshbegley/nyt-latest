@@ -1,3 +1,51 @@
+**Britons React to Prime Minister Keir Starmer’s Resignation Announcement**\
+`After Prime Minister Keir Starmer announced that he is resigning from his position, Britons shared their thoughts about a change of leadership.`\
+https://www.nytimes.com/video/world/europe/100000010983411/starmer-resignation-reaction-britain.html
+
+**The Man of Faith Who Heard a Righteous Call in the Founding Credo**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/revolutionary-war-lemuel-haynes-black-soldier-essay.html
+
+**Why Democrats Need a Politics of Joy**\
+`The joylessness of metrics-obsessed, achievement-oriented elite culture is eroding the simple joys of living, the novelist Gary Shteyngart argues on “The Ezra Klein Show.” And, he says, this antipathy toward pleasure is a problem for Democrats.`\
+https://www.nytimes.com/video/opinion/100000010970914/why-democrats-need-a-politics-of-joy.html
+
+**The Housewife Whose Plays Helped Push American Toward Revolution**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html
+
+**The Radical Act of Enjoying This Life**\
+`On “The Ezra Klein Show,” the Times Opinion columnist Ezra Klein asks the novelist Gary Shteyngart about his philosophy of enjoyment and why it can feel like such a radical act to simply be present.`\
+https://www.nytimes.com/video/opinion/the-radical-act-of-enjoying-this-life.html
+
+**The Teenage Soldier Who Revealed How the Patriots Really Won the War**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/usa-revolutionary-war-history-joseph-plumb-martin.html
+
+**The Radical Pacifist Who Inspired the First Armed Rebellion of the Founding Era**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-hermon-husband-william-tryon.html
+
+**The Native Leader Who Tied His People’s Fate to the Patriot Cause**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/good-peter-oneida-history-american-revolution.html
+
+**The American Revolution Through the Eyes of Seven Everyday Founders**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/usa-250-anniversary-american-revolution.html
+
+**U.S. Temporarily Lifts Oil Sanctions Against Iran, Citing ‘Productive’ Talks**\
+`President Trump and Vice President JD Vance pointed to progress on Iran’s nuclear program, but officials in Tehran said “no new commitments” had been made.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/us-iran-oil-sanctions.html
+
+**Doctors Thought It Was Asthma. A.I. Flagged a Serious Heart Problem.**\
+`Artificial intelligence programs can spot patterns in electrocardiograms that humans miss. Now, one program is going to be widely available — for free — to doctors.`\
+https://www.nytimes.com/2026/06/22/health/artificial-intelligence-heart-damage.html
+
+**Ramiro Valdés Menéndez, Architect of Cuba’s Surveillance State, Dies at 94**\
+`Considered the country’s most powerful leader after the Castro brothers, he was the first director of the Interior Ministry, keeping a close eye on dissent.`\
+https://www.nytimes.com/2026/06/22/world/americas/ramiro-valdes-menendez-dead.html
+
 **South Korean Starbucks Shops Close for History Lesson After Ad Backlash**\
 `Starbucks temporarily closed more than 2,000 locations in South Korea early on Monday to hold employee training on historical awareness and cultural sensitivity after a disastrous marketing campaign.`\
 https://www.nytimes.com/video/world/asia/100000010983022/starbucks-south-korea-ad.html
