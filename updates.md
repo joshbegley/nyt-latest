@@ -1,3 +1,7 @@
+**Shootout Suspect Is Dead After Killing Montreal Police Officer, Authorities Say**\
+`Fady Dagher, the city’s police chief, said that the “immediate threat to the public is no longer present” and that sheltering in place was no longer required.`\
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
+
 **Barry Manilow, Bruce Springsteen and Others Mourn Clive Davis**\
 `Davis “treated me with the same respect and kindness as a 22-year-old nobody as he did after all my success,” Springsteen said after the music executive’s death on Monday.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-death-celebrity-reactions.html
