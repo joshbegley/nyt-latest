@@ -1,8 +1,16 @@
+**Police in Montreal Launch Manhunt After Shootout**\
+`The province of Quebec issued a shelter-in-place alert after a shooting in which two officers and one civilian were wounded.`\
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shootout.html
+
+**Conversaciones entre EE. UU. e Irán: la primera ronda termina con grandes esperanzas y retos**\
+`Los mediadores han informado de que se han hecho avances para llegar a un acuerdo definitivo en un plazo de 60 días. También dijeron que los negociadores se han quedado atascados en temas que se creían ya resueltos.`\
+https://www.nytimes.com/es/2026/06/22/espanol/mundo/conversaciones-paz-iran-eeuu.html
+
 **Andy Burnham Says He Will Run to Become Britain’s Next Prime Minister**\
 `Andy Burnham, who rejoined the British Parliament after a special election victory, said he would seek the roles of prime minister and Labour Party leader after Keir Starmer announced his resignation from both positions.`\
 https://www.nytimes.com/video/world/europe/100000010982931/andy-burnham-starmer-uk-prime-minister.html
 
-**Taliban Officials to Head to Brussels for Talks on Afghan Deportees**\
+**Taliban and E.U. Officials to Discuss Afghan Deportees in Belgium**\
 `The delegation received visas from Belgium to attend talks with the European Union about the deportation of Afghans. Officials in Afghanistan said the meeting would take place on Tuesday.`\
 https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-deportees.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/crosswords/connections-companion-1108.html
 **NYT Strands Hints for June 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
 https://www.nytimes.com/2026/06/22/crosswords/strands-sidekick-842.html
-
-**Today’s Wordle Hints for June 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
-https://www.nytimes.com/2026/06/22/crosswords/wordle-review-1830.html
-
-**Starmer Resigns as U.K. Prime Minister and Labour Party Leader**\
-`Keir Starmer of Britain resigned as leader of the Labour Party and said he would remain prime minister until a new party leader was selected.`\
-https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-keir-starmer-resigns.html
 
