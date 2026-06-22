@@ -1,3 +1,11 @@
+**Andy Burnham Says He Will Run to Become Britain’s Next Prime Minister**\
+`Andy Burnham, who rejoined the British Parliament after a special election victory, said he would seek the roles of prime minister and Labour Party leader after Keir Starmer announced his resignation from both positions.`\
+https://www.nytimes.com/video/world/europe/100000010982931/andy-burnham-starmer-uk-prime-minister.html
+
+**Taliban Officials to Head to Brussels for Talks on Afghan Deportees**\
+`The delegation received visas from Belgium to attend talks with the European Union about the deportation of Afghans. Officials in Afghanistan said the meeting would take place on Tuesday.`\
+https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-deportees.html
+
 **5 alimentos que contienen fibra y proteína**\
 `Encontrar ambos nutrientes en un solo alimento no es fácil. Estas categorías son una buena opción, según los expertos.`\
 https://www.nytimes.com/es/2026/06/22/espanol/fibra-proteina-alimentos.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/crosswords/wordle-review-1830.html
 **Starmer Resigns as U.K. Prime Minister and Labour Party Leader**\
 `Keir Starmer of Britain resigned as leader of the Labour Party and said he would remain prime minister until a new party leader was selected.`\
 https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-keir-starmer-resigns.html
-
-**With No Team in the World Cup, China’s Fans Celebrate a Referee**\
-`Most people watching Curaçao play Ecuador focused on the Curaçaoan goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
-https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
-
-**Mideast Live Updates: U.S. Eases Sanctions as Vance Says Iran Agrees to Resume Nuclear Inspections**\
-`If confirmed, the provisions would be in line with an Obama-era deal President Trump tore up in 2018. Vice President JD Vance hailed the latest round of talks as a “foundation” for lasting peace.`\
-https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
 

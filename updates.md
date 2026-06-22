@@ -1,3 +1,11 @@
+**5 alimentos que contienen fibra y proteína**\
+`Encontrar ambos nutrientes en un solo alimento no es fácil. Estas categorías son una buena opción, según los expertos.`\
+https://www.nytimes.com/es/2026/06/22/espanol/fibra-proteina-alimentos.html
+
+**Do You Find the ‘Tradwife’ Lifestyle Intriguing? Tell Us Why.**\
+`For women who are newly interested in traditional gender roles and lifestyles: What’s making you feel this way?`\
+https://www.nytimes.com/2026/06/22/us/traditional-gender-roles.html
+
 **Judge Finds Justice Dept. Overreach in Subpoenas to Minnesota Officials**\
 `The judge quashed the subpoenas, writing that they were designed to “harass and retaliate against” Democratic officials who bucked the Trump administration on immigration enforcement.`\
 https://www.nytimes.com/2026/06/22/us/minnesota-democrats-judge-ruling.html
