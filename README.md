@@ -1,3 +1,7 @@
+**U.S. Eases Sanctions on Iran’s Oil**\
+`Also, Alan Greenspan dies at 100. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/22/briefing/us-eases-sanctions-on-irans-oil.html
+
 **With Win in Washington, Socialists Are on the March in Urban America**\
 `Democratic socialists, harnessing generational frustration over affordability, lead New York and Seattle and are knocking on the door in Los Angeles and Washington.`\
 https://www.nytimes.com/2026/06/22/us/politics/democratic-socialist-mayors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/us/minnesota-democrats-judge-ruling.html
 **Keir Starmer Resigns as UK Prime Minister**\
 `His departure in the coming weeks clears a path for Andy Burnham, a popular Labour Party mayor, to become the country’s seventh prime minister in a decade.`\
 https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-andy-burnham-prime-minister-britain.html
-
-**Taking Trump to Task Over the Iran War**\
-`Readers react to President Trump’s threats against Iran, and other aspects of the war. Also: A memory of Dad; the New York-New Jersey tussle.`\
-https://www.nytimes.com/2026/06/22/opinion/trump-iran-war.html
 
