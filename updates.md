@@ -1,3 +1,15 @@
+**Tesla Crash That Killed a Texas Woman Will be Investigated by Federal Regulators**\
+`The car’s driver-assistance system was in use when the crash killed a woman on Friday, the police said.`\
+https://www.nytimes.com/2026/06/22/business/tesla-texas-autopilot-crash-nhtsa.html
+
+**Keir Starmer renuncia como primer ministro del Reino Unido. ¿Qué sigue ahora?**\
+`Su salida allana el camino para que Andy Burnham, un popular exalcalde del Partido Laborista, se convierta en el séptimo primer ministro del país en una década.`\
+https://www.nytimes.com/es/2026/06/22/espanol/mundo/keir-starmer-renuncia-reino-unido.html
+
+**Radar Maps Show Philadelphia and New York Face Heavy Rain and Storms on Monday**\
+`At least one of the two World Cup games in the region was affected by storms.`\
+https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rain.html
+
 **Iran Team Leaves Locker Room Note: The ‘Spirit of Iran Remains Alive and Steadfast’**\
 `After fighting Belgium to a draw for one of Iran’s best World Cup results, the Iranians had a note for their fans and the world.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/iran-world-cup-locker-room-note.html
