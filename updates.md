@@ -1,3 +1,7 @@
+**Interior Department Moves to Relax Rules for Drilling on Public Lands**\
+`A pair of proposals from the Trump administration would lower costs and weaken requirements for fossil fuel companies that drill on federal property.`\
+https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html
+
 **Vance Claims Progress in First Day of Iran Talks**\
 `Vice President JD Vance, the lead U.S. negotiator, said the two sides had agreed on technical issues and at least one substantive one, international inspection of Iranian nuclear sites, but an Iranian official said his country had made “no new commitments.”`\
 https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-talks-progress.html
