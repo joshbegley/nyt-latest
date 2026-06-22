@@ -1,3 +1,19 @@
+**Warsh Looks to Greenspan in Designing Approach to Fed Chairmanship**\
+`Kevin M. Warsh has long singled out Alan Greenspan, who died on Monday, as the central banker he wants to exemplify.`\
+https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
+
+**Justice Department Makes It Easier to Bypass Pollution Controls on Pickups**\
+`It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
+https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
+
+**Police in Montreal Launch Manhunt After Shootout**\
+`The province of Quebec issued a shelter-in-place alert after a shooting in which two officers and one civilian were wounded.`\
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
+
+**Taliban and E.U. Officials to Discuss Afghan Deportees in Brussels**\
+`The delegation received visas from Belgium to attend talks with the European Union about the deportation of Afghans. Officials in Afghanistan said the meeting would take place on Tuesday.`\
+https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-deportees.html
+
 **Police in Montreal Launch Manhunt After Shootout**\
 `The province of Quebec issued a shelter-in-place alert after a shooting in which two officers and one civilian were wounded.`\
 https://www.nytimes.com/2026/06/22/world/canada/montreal-shootout.html

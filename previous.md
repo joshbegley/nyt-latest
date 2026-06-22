@@ -1,6 +1,14 @@
+**Warsh Looks to Greenspan in Designing Approach to Fed Chairmanship**\
+`Kevin M. Warsh has long singled out Alan Greenspan, who died on Monday, as the central banker he wants to exemplify.`\
+https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
+
+**Justice Department Makes It Easier to Bypass Pollution Controls on Pickups**\
+`It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
+https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
+
 **Police in Montreal Launch Manhunt After Shootout**\
 `The province of Quebec issued a shelter-in-place alert after a shooting in which two officers and one civilian were wounded.`\
-https://www.nytimes.com/2026/06/22/world/canada/montreal-shootout.html
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 
 **Conversaciones entre EE. UU. e Irán: la primera ronda termina con grandes esperanzas y retos**\
 `Los mediadores han informado de que se han hecho avances para llegar a un acuerdo definitivo en un plazo de 60 días. También dijeron que los negociadores se han quedado atascados en temas que se creían ya resueltos.`\
@@ -10,7 +18,7 @@ https://www.nytimes.com/es/2026/06/22/espanol/mundo/conversaciones-paz-iran-eeuu
 `Andy Burnham, who rejoined the British Parliament after a special election victory, said he would seek the roles of prime minister and Labour Party leader after Keir Starmer announced his resignation from both positions.`\
 https://www.nytimes.com/video/world/europe/100000010982931/andy-burnham-starmer-uk-prime-minister.html
 
-**Taliban and E.U. Officials to Discuss Afghan Deportees in Belgium**\
+**Taliban and E.U. Officials to Discuss Afghan Deportees in Brussels**\
 `The delegation received visas from Belgium to attend talks with the European Union about the deportation of Afghans. Officials in Afghanistan said the meeting would take place on Tuesday.`\
 https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-deportees.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-get
 **The Key Players in the U.S.-Iran Talks, and the Deadly Rise of Giant Trucks and S.U.V.s**\
 `Plus, the “Steven Spielberg of sitcoms.”`\
 https://www.nytimes.com/2026/06/22/podcasts/the-headlines/the-key-players-in-the-us-iran-talks-and-the-deadly-rise-of-giant-trucks-and-suvs.html
-
-**NYT Connections Answers for June 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
-https://www.nytimes.com/2026/06/22/crosswords/connections-companion-1108.html
-
-**NYT Strands Hints for June 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
-https://www.nytimes.com/2026/06/22/crosswords/strands-sidekick-842.html
 
