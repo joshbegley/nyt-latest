@@ -1,3 +1,7 @@
+**Abortion Rights Group Endorses Platner Over Collins in Maine**\
+`Senator Susan Collins, a Republican, drew criticism from Planned Parenthood for voting to confirm Justice Brett Kavanaugh, who helped overturn Roe v. Wade.`\
+https://www.nytimes.com/2026/06/22/us/politics/abortion-rights-group-endorses-platner-over-collins-in-maine.html
+
 **La razón secreta por la que los jefes quieren que todos vuelvan a la oficina**\
 `La reticencia a cualquier tipo de trabajo remoto quizá se deba a algo muy específico: el ego`\
 https://www.nytimes.com/es/2026/06/22/espanol/opinion/oficina-semana-completa-trabajo-remoto.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
 **Justice Department Makes It Easier to Bypass Pollution Controls on Pickups**\
 `It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
-
-**Suspect and a Civilian Are Among Three Killed in Montreal Shooting**\
-`A police officer and a civilian also died in a gun battle that prompted a citywide shelter-in-place alert.`\
-https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 

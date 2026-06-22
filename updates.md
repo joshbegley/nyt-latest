@@ -1,3 +1,7 @@
+**Abortion Rights Group Endorses Platner Over Collins in Maine**\
+`Senator Susan Collins, a Republican, drew criticism from Planned Parenthood for voting to confirm Justice Brett Kavanaugh, who helped overturn Roe v. Wade.`\
+https://www.nytimes.com/2026/06/22/us/politics/abortion-rights-group-endorses-platner-over-collins-in-maine.html
+
 **La razón secreta por la que los jefes quieren que todos vuelvan a la oficina**\
 `La reticencia a cualquier tipo de trabajo remoto quizá se deba a algo muy específico: el ego`\
 https://www.nytimes.com/es/2026/06/22/espanol/opinion/oficina-semana-completa-trabajo-remoto.html
