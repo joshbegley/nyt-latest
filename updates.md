@@ -1,3 +1,115 @@
+**Taking Trump to Task Over the Iran War**\
+`Readers react to President Trump’s threats against Iran, and other aspects of the war. Also: A memory of Dad; the New York-New Jersey tussle.`\
+https://www.nytimes.com/2026/06/22/opinion/trump-iran-war.html
+
+**What is the Heat Dome Causing Europe’s Record Temperatures?**\
+`Heat domes happen all over the world, and the one over Europe this week is locking in days of near-record highs across Britain, Spain and France.`\
+https://www.nytimes.com/2026/06/22/weather/europe-heat-dome.html
+
+**Vance Says Iran Will Allow Nuclear Watchdog to Restart Inspections**\
+`Vice President JD Vance said Iran had agreed to invite experts from the U.N. agency to resume operations in the country. Tehran and the nuclear watchdog have not commented.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-nuclear-inspections.html
+
+**11 Essential Songs Shepherded by Clive Davis**\
+`The label boss, who died on Monday, had a passion for hits — especially ones he masterminded — during his formidable tenures at Columbia, Arista and J Records.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-songs.html
+
+**How Will Colombia’s New President Fuel Trump’s Drug War?**\
+`Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
+https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html
+
+**Jeffrey Donaldson, Longtime Northern Irish Political Leader, Is Convicted of Child Sex Abuse**\
+`Mr. Donaldson, 63, was found guilty after a weekslong jury trial in Northern Ireland.`\
+https://www.nytimes.com/2026/06/22/world/europe/jeffrey-donaldson-child-abuse-rape-guilty-dup.html
+
+**Today, In Short**\
+`Cottage cheese. Cheating. World Cup joy.`\
+https://www.nytimes.com/2026/06/22/briefing/today-in-short.html
+
+**YouTube Stars Take Center Stage at Creative Artists Agency**\
+`For years, creators were on the fringes at Creative Artists Agency, a Hollywood talent behemoth. Now the agency is putting them center stage.`\
+https://www.nytimes.com/2026/06/22/business/media/youtube-hollywood-creative-artists-agency.html
+
+**Former Ally to Spain’s Prime Minister Is Sentenced to 24 Years in Prison on Bribery Charges**\
+`José Luis Ábalos, once a minister in the government of Prime Minister Pedro Sánchez, was convicted of bribery. The decision compounds a crisis for Mr. Sánchez’ circle.`\
+https://www.nytimes.com/2026/06/22/world/europe/spain-abalos-sentenced-corruption-sanchez.html
+
+**Congressional Democrats Warn Pulte Against Mass Firings**\
+`Current and former officials say the acting director of national intelligence is planning to announce major cuts to his office as early as Monday.`\
+https://www.nytimes.com/2026/06/22/us/politics/bill-pulte-firings-national-intelligence.html
+
+**Clive Davis, Music Industry Titan Who Signed Whitney Houston, Dies at 94**\
+`He rose from a midlevel position at Columbia Records to become one of music’s most powerful executives, shepherding stars like Barry Manilow and Whitney Houston.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
+
+**Temperaturas récord en Europa: esto es lo que tienes que saber**\
+`Gran parte de Europa está bajo alertas de alto nivel por calor extremo, y los meteorólogos prevén un impacto “grave” en las condiciones meteorológicas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/tiempo-y-clima/europa-ola-calor.html
+
+**‘The View’ Asks Its Audience for Help in Battle With F.C.C.**\
+`The daytime TV talk show is at the center of a dispute with the Federal Communications Commission over political speech.`\
+https://www.nytimes.com/2026/06/22/business/media/the-view-fcc-abc-investigation.html
+
+**Healthy Salmon With Olive-Oil-Braised Zucchini and Chickpeas Recipe**\
+`With olive-oil-braised zucchini and chickpeas, because summer.`\
+https://www.nytimes.com/2026/06/22/dining/a-healthy-speedy-satisfying-salmon-dinner.html
+
+**Israel Holds to Lebanon Truce, With Troops Kept on Defense**\
+`Israel and Hezbollah, the Iran-backed Lebanese militant group, appeared to maintain a tense cease-fire for a second day. Israel’s military has new orders that restrict troops to defensive actions.`\
+https://www.nytimes.com/2026/06/22/world/europe/israel-lebanon-hezbollah-truce.html
+
+**Ukraine Escalates Crimea Attacks, Creating a New Pressure Point for Russia**\
+`To pressure Moscow, Ukraine is stepping up an air campaign to isolate the peninsula, which Russia annexed in 2014.`\
+https://www.nytimes.com/2026/06/22/world/europe/ukraine-russia-crimea-attacks.html
+
+**Dutch Prime Minister Apologizes for Mistreatment of Moluccan Soldiers**\
+`Rob Jetten’s acknowledgment of the historical injustice is part of a larger reckoning with the Netherlands’ colonial past.`\
+https://www.nytimes.com/2026/06/22/world/europe/dutch-netherlands-apology-indonesia-moluccan.html
+
+**U.S. Temporarily Lifts Sanctions on Iranian Oil**\
+`In a sharp reversal of American policy, the Treasury announced a 60-day reprieve, permitting the sale of Iranian crude as part of the preliminary U.S.-Iran deal toward ending the war.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/us-sanctions-reprieve-iran-oil.html
+
+**Why Older People Are Divorcing More Than They Used To**\
+`Rates of gray divorce have risen sharply over the past few decades — and experts have a few theories as to why.`\
+https://www.nytimes.com/2026/06/22/well/family/gray-divorce-empty-shell-marriage.html
+
+**U.K. Markets React Calmly to Starmer Resignation, but Economic Uncertainties Linger**\
+`Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
+https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
+
+**Supreme Court Restores Conviction in 1979 Murder of Etan Patz**\
+`Pedro Hernandez was convicted in 2017 of kidnapping and murdering the 6-year-old boy, but an appeals court in July had said Mr. Hernandez was entitled to a new trial.`\
+https://www.nytimes.com/2026/06/22/us/politics/etan-patz-pedro-hernandez.html
+
+**U.S. Oil Is Skipping the Chance to Grab Market Share From the Gulf**\
+`U.S. oil production is expected to grow only modestly next year as companies hesitate to spend more in an uncertain market.`\
+https://www.nytimes.com/2026/06/22/business/energy-environment/iran-war-us-oil-companies.html
+
+**Pakistan Plans to Cut Tax on Menstrual Pads, but Many Say It’s Not Enough**\
+`Activists said more action was needed to solve the larger problem: Only 12 percent of Pakistani women and girls use safe, commercially made menstrual products.`\
+https://www.nytimes.com/2026/06/22/world/asia/pakistan-menstrual-period-tax.html
+
+**How Many Prime Ministers Has the UK Had Since Brexit?**\
+`The years since the Brexit vote have been some of the most tumultuous in Britain’s recent political history. Here’s a look at the revolving door in Downing Street.`\
+https://www.nytimes.com/2026/06/22/world/europe/starmer-resigns-uk-prime-ministers-how-long.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnham-swearing-in-28680.html
+
+**Dua Lipa and the Art of the Celebrity Wedding-Dress Reveal**\
+`The singer’s Chanel gown is almost guaranteed to set trends in more ways than one.`\
+https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
+
+**The Guardrails Designed to Protect U.S.-Iran Talks**\
+`The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/will-do-iran-us-peace-talks-lebanon-hormuz.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010982983/22vid-burnham-euston-37887.html
+
 **With Win in Washington, Socialists Have Momentum in Urban America**\
 `Democratic socialists, harnessing generational frustration over affordability, lead New York and Seattle and are knocking on the door in Los Angeles and Washington.`\
 https://www.nytimes.com/2026/06/22/us/politics/democratic-socialist-mayors.html
