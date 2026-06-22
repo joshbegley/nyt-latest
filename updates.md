@@ -1,3 +1,11 @@
+**With Win in Washington, Socialists Have Momentum in Urban America**\
+`Democratic socialists, harnessing generational frustration over affordability, lead New York and Seattle and are knocking on the door in Los Angeles and Washington.`\
+https://www.nytimes.com/2026/06/22/us/politics/democratic-socialist-mayors.html
+
+**Suspect and a Civilian Are Among Three Killed in Montreal Shooting**\
+`A police officer and a civilian also died in a gun battle that prompted a citywide shelter-in-place alert.`\
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
+
 **U.S. Eases Sanctions on Iran’s Oil**\
 `Also, Alan Greenspan dies at 100. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/06/22/briefing/us-eases-sanctions-on-irans-oil.html

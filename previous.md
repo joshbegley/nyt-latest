@@ -2,7 +2,7 @@
 `Also, Alan Greenspan dies at 100. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/06/22/briefing/us-eases-sanctions-on-irans-oil.html
 
-**With Win in Washington, Socialists Are on the March in Urban America**\
+**With Win in Washington, Socialists Have Momentum in Urban America**\
 `Democratic socialists, harnessing generational frustration over affordability, lead New York and Seattle and are knocking on the door in Los Angeles and Washington.`\
 https://www.nytimes.com/2026/06/22/us/politics/democratic-socialist-mayors.html
 
@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
 `It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
 
-**Shootout Suspect Is Dead After Killing Montreal Police Officer, Authorities Say**\
+**Suspect and a Civilian Are Among Three Killed in Montreal Shooting**\
 `A police officer and a civilian also died in a gun battle that prompted a citywide shelter-in-place alert.`\
 https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 
