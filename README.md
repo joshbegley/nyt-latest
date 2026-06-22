@@ -1,3 +1,7 @@
+**First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
+`Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
+https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
+
 **R.F.K. Jr.’s Newest Mission: Getting Us Off Antidepressants**\
 `The process of “deprescribing,” in which a doctor helps a patient taper off a psychiatric medication, is now being considered in the development of federal health policy.`\
 https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-getting-us-off-antidepressants.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-taclob
 **Embattled Superintendent of Los Angeles School District Resigns**\
 `Alberto Carvalho resigned Sunday, months after the F.B.I. raided his home and office. He came to Los Angeles from Miami with a reputation for raising student test scores but also made missteps.`\
 https://www.nytimes.com/2026/06/22/us/superintendent-lausd-alberto-carvalho-resigns.html
-
-**Word of the Day: equipoise**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/22/learning/word-of-the-day-equipoise.html
 
