@@ -1,3 +1,7 @@
+**Word of the Day: equipoise**\
+`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/22/learning/word-of-the-day-equipoise.html
+
 **¿Qué cambió tras casi cuatro meses de guerra? Según los analistas, casi nada**\
 `Ni la guerra ni el acuerdo eliminaron las principales amenazas que emanan de Irán, según numerosos analistas.`\
 https://www.nytimes.com/es/2026/06/22/espanol/mundo/cambio-iran-acuerdo-guerra.html
