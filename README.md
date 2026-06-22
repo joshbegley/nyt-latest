@@ -1,3 +1,7 @@
+**South Korea’s Starbucks Shut Early After ‘Tank Day’ Promotion Debacle**\
+`All Starbucks stores in South Korea shut early on Monday because of a franchise-wide training instituted in the wake of a disastrous marketing campaign.`\
+https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-controversy-closure.html
+
 **Thousands Are Fleeing Ukraine’s Donbas Strongholds as Russia Pushes Closer**\
 `While Kyiv’s fortunes have brightened in other ways in the war, Moscow’s forces are raining bombs and drones on “fortress belt” cities like Sloviansk and Kramatorsk.`\
 https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk-kramatorsk-russia.html
@@ -42,13 +46,13 @@ https://www.nytimes.com/2026/06/22/arts/dance/pioneer-winter-apollo-.html
 `Ben McAdams, a moderate former congressman, faces a handful of left-wing opponents in a rare opportunity for a Democrat to win in a Republican state.`\
 https://www.nytimes.com/2026/06/22/us/politics/utah-house-salt-lake-city-democrats.html
 
-**The National Trust Names New President**\
-`Brent Leggs will lead the preservation organization, which has been in the news recently for challenging the Trump administration’s ballroom and Kennedy Center projects.`\
-https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-brent-leggs.html
-
 **A Loophole Brings Cystic Fibrosis Patients a ‘Miracle Drug’ in Generic Form**\
 `A generic version of a breakthrough cystic fibrosis drug, manufactured in Bangladesh for a fraction of the American price, may give some families around the world an unlikely lifeline.`\
 https://www.nytimes.com/2026/06/22/health/cystic-fibrosis-drug-triko-trikafta.html
+
+**The National Trust Names New President**\
+`Brent Leggs will lead the preservation organization, which has been in the news recently for challenging the Trump administration’s ballroom and Kennedy Center projects.`\
+https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-brent-leggs.html
 
 **Could I Become a Kickboxer at 48? I Went to Thailand to Find Out.**\
 `A week inside a grueling Muay Thai training program in Phuket.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/pageoneplus/quote-of-the-day-highway-1-is-one
 **‘House of the Dragon’ Season 3 Premiere Recap: A Song of Water and Fire**\
 `The Dance of the Dragons got into full swing with no shortage of blood, flames and intrigue, much of it at sea.`\
 https://www.nytimes.com/2026/06/21/arts/television/house-of-the-dragon-recap-season-3-episode-1.html
-
-**World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
