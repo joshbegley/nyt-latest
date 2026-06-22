@@ -1,3 +1,11 @@
+**The Guardrails Designed to Protect U.S.-Iran Talks**\
+`The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/the-guardrails-designed-to-protect-us-iran-talks.html
+
+**The Secret Reason Bosses Want Everyone Back in the Office, Every Day of the Week**\
+`It’s all about them.`\
+https://www.nytimes.com/2026/06/22/opinion/office-work-wfh-bosses.html
+
 **With No Team in the World Cup, China’s Fans Celebrate a Referee**\
 `Most people watching Curaçao play Ecuador focused on the Curaçaoan goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
 https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
