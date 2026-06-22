@@ -1,3 +1,15 @@
+**Does This Radio Host Really Know Everyone in Wales?**\
+`Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
+https://www.nytimes.com/2026/06/22/world/europe/does-this-radio-host-really-know-everyone-in-wales.html
+
+**No Corrections: June 22, 2026**\
+`No corrections appeared in print on Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/22/corrections/no-corrections-june-22-2026.html
+
+**Quote of the Day: Highway 1 Is One Way to See Coast. Swimming the Length of It Is Another.**\
+`Quotation of the Day for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/22/pageoneplus/quote-of-the-day-highway-1-is-one-way-to-see-coast-swimming-the-length-of-it-is-another.html
+
 **‘House of the Dragon’ Season 3 Premiere Recap: A Song of Water and Fire**\
 `The Dance of the Dragons got into full swing with no shortage of blood, flames and intrigue, much of it at sea.`\
 https://www.nytimes.com/2026/06/21/arts/television/house-of-the-dragon-recap-season-3-episode-1.html
