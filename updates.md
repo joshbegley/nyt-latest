@@ -1,3 +1,7 @@
+**U.K. Live Updates: Starmer Announces He Will Resign as Labour Party Leader**\
+`A sagging economy and policy flip-flops had fueled demands for Prime Minister Keir Starmer of Britain to step down. The announcement means he has set out a timetable for his departure as prime minister.`\
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure
+
 **First Round of U.S.-Iran Talks End, Mediators Say**\
 `The first round of negotiations between Washington and Tehran in Switzerland ended with a “roadmap” to reach a final deal within 60 days, Pakistani and Qatari mediators said.`\
 https://www.nytimes.com/video/world/middleeast/100000010982591/first-round-of-us-iran-talks-end-mediators-say.html
