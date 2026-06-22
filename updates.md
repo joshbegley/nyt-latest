@@ -1,3 +1,7 @@
+**¿Qué cambió tras casi cuatro meses de guerra? Según los analistas, casi nada**\
+`Ni la guerra ni el acuerdo eliminaron las principales amenazas que emanan de Irán, según numerosos analistas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/mundo/cambio-iran-acuerdo-guerra.html
+
 **Exceptionalism Can Be Lonely. Ask Britain.**\
 `Brexit was supposed to let Britain return to a time when it still counted as a global power. A decade later, the costs are blindingly apparent.`\
 https://www.nytimes.com/2026/06/22/opinion/brexit-britain-europe-power.html
