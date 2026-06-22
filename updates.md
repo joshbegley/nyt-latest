@@ -1,3 +1,7 @@
+**World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 ****\
 `A funnel cloud forming in Keenes, Ill., on Sunday. Several tornadoes were reported in the region.`\
 https://www.nytimes.com/video/embedded/weather/100000010982447/21xp-tornado-jr3-21130.html
