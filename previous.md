@@ -46,7 +46,7 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/revolutionary-war-lemuel
 `The joylessness of metrics-obsessed, achievement-oriented elite culture is eroding the simple joys of living, the novelist Gary Shteyngart argues on “The Ezra Klein Show.” And, he says, this antipathy toward pleasure is a problem for Democrats.`\
 https://www.nytimes.com/video/opinion/100000010970914/why-democrats-need-a-politics-of-joy.html
 
-**The Housewife Whose Plays Helped Push American Toward Revolution**\
+**The Patriot Housewife Whose Plays Helped Push American Toward Revolution**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html
 

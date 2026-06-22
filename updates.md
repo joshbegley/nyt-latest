@@ -1,3 +1,7 @@
+**The Patriot Housewife Whose Plays Helped Push American Toward Revolution**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html
+
 **Clive Davis Knew to Let Patti Smith Have Free Rein**\
 `For Patti Smith, the best guidance was something that Davis rarely granted: free rein.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-patti-smith.html
