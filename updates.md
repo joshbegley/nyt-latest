@@ -1,3 +1,7 @@
+**First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
+`Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
+https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
+
 **R.F.K. Jr.’s Newest Mission: Getting Us Off Antidepressants**\
 `The process of “deprescribing,” in which a doctor helps a patient taper off a psychiatric medication, is now being considered in the development of federal health policy.`\
 https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-getting-us-off-antidepressants.html
