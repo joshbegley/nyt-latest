@@ -1,3 +1,7 @@
+**America is 250. One Maine Woman Is Making the Celebration Last All Year.**\
+`Kim Smith, a city worker in Presque Isle, Maine, planned a year’s worth of festivities with a commitment that bordered on obsession. Her approach felt quintessentially American.`\
+https://www.nytimes.com/2026/06/22/us/presque-isle-maine-america-250.html
+
 **Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
 `The pre-eminent economic policymaker of his time and a skilled political operator, his market-friendly stances would later come to be associated with destructive financial forces.`\
 https://www.nytimes.com/2026/06/22/obituaries/alan-greenspan-dead.html
