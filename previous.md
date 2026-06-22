@@ -1,9 +1,17 @@
+**Vance Says Iran Has Agreed to Allow Nuclear Inspectors Into Country**\
+`The Trump administration relaxed sanctions on Iranian oil after Vice President JD Vance said that Iran had agreed to invite U.N. nuclear inspectors into the country. Iran said that it had made “no new commitments.”`\
+https://www.nytimes.com/video/world/middleeast/100000010982939/vance-iran-nuclear-inspectors.html
+
+**At Least One Tornado Touches Down in Illinois, Leaving 2 Dead**\
+`Bystander footage shows a funnel cloud forming over Jefferson County, Ill., on Sunday. At least two people were killed, local officials said.`\
+https://www.nytimes.com/video/weather/100000010984058/tornado-illinois-jefferson-county.html
+
 **Charisma Alone Can’t Fix Britain**\
 `It will take more than a change in leadership to solve the country’s problems.`\
 https://www.nytimes.com/2026/06/22/world/britain-prime-minister.html
 
 **Cafe Tells Congressman He’s Not Welcome Because of His Stance on Israel**\
-`After Representative Dan Goldman visited a left-leaning coffee shop chain, the shop owner posted caustic remarks on Instagram that made it clear he shouldn’t come back.`\
+`After Representative Dan Goldman visited a left-leaning coffee shop chain, the shop owner posted caustic remarks on Instagram that made it clear the congressman shouldn’t come back.`\
 https://www.nytimes.com/2026/06/22/nyregion/coffee-shop-poetica-dan-goldman-israel.html
 
 **The Coolest Canvas-Strapped Watches**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/well/family/gray-divorce-empty-shell-marriage
 **U.K. Markets React Calmly to Starmer Resignation, but Economic Uncertainties Linger**\
 `Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
 https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
-
-**Supreme Court Restores Conviction in 1979 Murder of Etan Patz**\
-`Pedro Hernandez was convicted in 2017 of kidnapping and murdering the 6-year-old boy, but an appeals court in July had said Mr. Hernandez was entitled to a new trial.`\
-https://www.nytimes.com/2026/06/22/us/politics/etan-patz-pedro-hernandez.html
-
-**U.S. Oil Is Skipping the Chance to Grab Market Share From the Gulf**\
-`U.S. oil production is expected to grow only modestly next year as companies hesitate to spend more in an uncertain market.`\
-https://www.nytimes.com/2026/06/22/business/energy-environment/iran-war-us-oil-companies.html
 
