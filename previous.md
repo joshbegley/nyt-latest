@@ -1,4 +1,16 @@
-**Live Updates: Police in Montreal Launch Manhunt After Shootout Kills Officer**\
+**Netflix Buys a ‘Hot Ones’ Spinoff**\
+`The streaming giant bought a spinoff of a popular online interview series that features celebrities eating fiery chicken wings, the latest salvo in its rivalry with YouTube.`\
+https://www.nytimes.com/2026/06/22/business/media/hot-ones-sean-evans-netflix.html
+
+**Historic Brooklyn Church Destroyed in Fire**\
+`The South Bushwick Church was engulfed in flames on Friday, and the cause of the fire is still under investigation. The church was built in 1853 and is Bushwick’s oldest landmark, according to an expert.`\
+https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-fire.html
+
+**‘Why I Love the Beautiful Game’ With Wagner Moura**\
+`The Brazilian actor tells us why Brazil needs their ‘sixth star’`\
+https://www.nytimes.com/2026/06/22/podcasts/why-i-love-the-beautiful-game-with-wagner-moura.html
+
+**Live Updates: Police in Montreal Open Manhunt After Shootout Kills Officer**\
 `The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
 https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prim
 **Is China Closing the A.I. Gap Faster Than Expected?**\
 `Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
 https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
-
-**Test Your Knowledge of History’s Most Famous Libraries**\
-`Try this short quiz on five of the globe’s renowned repositories of human learning.`\
-https://www.nytimes.com/interactive/2026/06/22/books/review/world-libraries-quiz.html
-
-**What to Know About Heat in Europe This Week**\
-`Big parts of Europe are under high-level warnings for extreme heat, with forecasters predicting “severe” weather impact.`\
-https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.html
-
-**Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
-`The pre-eminent economic policymaker of his time and a skilled political operator, he favored market-friendly stances that would later come to be associated with destructive financial forces.`\
-https://www.nytimes.com/2026/06/22/us/alan-greenspan-dead.html
 
