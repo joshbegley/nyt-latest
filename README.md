@@ -10,8 +10,8 @@ https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer
 `President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
 https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
 
-**U.K. Live Updates: Starmer Faces Mounting Pressure to Step Down**\
-`A sagging economy and policy flip-flops have fueled demands within the Labour Party for Prime Minister Keir Starmer to resign. He could announce a decision as early as Monday.`\
+**U.K. Live Updates: Starmer Announces He Will Resign as Labour Party Leader**\
+`A sagging economy and policy flip-flops had fueled demands for Prime Minister Keir Starmer of Britain to step down. The announcement means he has set out a timetable for his departure as prime minister.`\
 https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure
 
 **Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
