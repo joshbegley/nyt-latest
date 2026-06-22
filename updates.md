@@ -1,3 +1,23 @@
+**YouTube Stars Take Center Stage at Creative Artists Agency**\
+`For years, creators were on the fringes at Creative Artists Agency, a Hollywood talent behemoth. Now the agency is putting them center stage.`\
+https://www.nytimes.com/2026/06/22/business/media/youtube-hollywood-creative-artists-agency.html
+
+**Former Ally to Spain’s Prime Minister Is Sentenced to 24 Years in Prison on Bribery Charges**\
+`José Luis Ábalos, once a minister in the government of Prime Minister Pedro Sánchez, was convicted of bribery. The decision compounds a crisis for Mr. Sánchez’ circle.`\
+https://www.nytimes.com/2026/06/22/world/europe/spain-abalos-sentenced-corruption-sanchez.html
+
+**Congressional Democrats Warn Pulte Against Mass Firings**\
+`Current and former officials say the acting director of national intelligence is planning to announce major cuts to his office as early as Monday.`\
+https://www.nytimes.com/2026/06/22/us/politics/bill-pulte-firings-national-intelligence.html
+
+**U.K. Markets React Calmly to Starmer Resignation, but Economic Uncertainties Linger**\
+`Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
+https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
+
+**Mideast Live Updates: U.S. Eases Sanctions as Vance Says Iran Agrees to Resume Nuclear Inspections**\
+`If confirmed, the provisions would be in line with an Obama-era deal President Trump tore up in 2018. Vice President JD Vance hailed the latest round of talks as a “foundation” for lasting peace.`\
+https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
+
 **Clive Davis, Hitmaking Titan of the Music Industry, Dies at 94**\
 `He rose from a midlevel position at Columbia Records to become one of music’s most powerful executives, shepherding stars like Barry Manilow and Whitney Houston.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
