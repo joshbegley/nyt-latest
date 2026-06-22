@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/06/22/briefing/danger-behind-the-wheel.html
 `There are no limits to the USMNT’s ambitions at this World Cup.`\
 https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html
 
-**China Tightens Rare Earth Grip on U.S. Firms, Threatening Trade Clash**\
+**China Tightens Rare-Earth Grip on U.S. Firms, Threatening Trade Clash**\
 `The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
 https://www.nytimes.com/2026/06/22/business/china-rare-earths.html
 

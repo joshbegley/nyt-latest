@@ -1,3 +1,7 @@
+**China Tightens Rare-Earth Grip on U.S. Firms, Threatening Trade Clash**\
+`The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
+https://www.nytimes.com/2026/06/22/business/china-rare-earths.html
+
 **The Guardrails Designed to Protect U.S.-Iran Talks**\
 `The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/the-guardrails-designed-to-protect-us-iran-talks.html
