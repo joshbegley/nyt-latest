@@ -1,3 +1,7 @@
+**With No Team at the World Cup, China’s Fans Celebrate a Referee**\
+`Most people watching Curaçao play Ecuador focused on the team’s goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
+https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
+
 **Mideast Live Updates: Mediators Point to Progress After First Round of U.S.-Iran Talks**\
 `Qatar and Pakistan said that high-level talks in Switzerland ended early Monday, with technical discussions to follow. Tensions over fighting in Lebanon and other issues have complicated efforts to reach a lasting peace.`\
 https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips
 **Does This Radio Host Really Know Everyone in Wales?**\
 `Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
 https://www.nytimes.com/2026/06/22/world/europe/elis-james-wales-radio.html
-
-**No Corrections: June 22, 2026**\
-`No corrections appeared in print on Monday, June 22, 2026.`\
-https://www.nytimes.com/2026/06/22/corrections/no-corrections-june-22-2026.html
 
