@@ -1,3 +1,15 @@
+**Federal Citizenship Data Tool Cannot Be Used to Screen Voters, Judge Rules**\
+`A federal judge ruled that the Trump administration’s providing federal data to states to check and purge their voter rolls violated several laws prohibiting the disclosure.`\
+https://www.nytimes.com/2026/06/22/us/politics/federal-citizenship-database-voting.html
+
+**Looking Back on the U.S.A.’s Many Founders, 250 Years In**\
+`In the past 50 years, the way we tell the story of the Revolution has become dramatically more complex. Can it still inspire us all?`\
+https://www.nytimes.com/2026/06/22/magazine/america-founders-history-usa-250th-anniversary.html
+
+**School Year Cut Short and Aid Delivery Slowed Amid Fuel Crisis in Cuba**\
+`A U.S. oil blockade imposed by the Trump administration has set off an increasingly agonizing energy crisis that has brought transportation largely to a standstill. In an effort to save energy resources, the government ended the school year early.`\
+https://www.nytimes.com/video/world/americas/100000010983461/cuba-us-trump-fuel-crisis-oil-blockade.html
+
 **The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/22/opinion/trump-iran-war.html
 **What is the Heat Dome Causing Europe’s Record Temperatures?**\
 `Heat domes happen all over the world, and the one over Europe this week is locking in days of near-record highs across Britain, Spain and France.`\
 https://www.nytimes.com/2026/06/22/weather/europe-heat-dome.html
-
-**Vance Says Iran Will Allow Nuclear Watchdog to Restart Inspections**\
-`Vice President JD Vance said Iran had agreed to invite experts from the U.N. agency to resume operations in the country. Tehran and the nuclear watchdog have not commented.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-nuclear-inspections.html
-
-**11 Essential Songs Shepherded by Clive Davis**\
-`The label boss, who died on Monday, had a passion for hits — especially ones he masterminded — during his formidable tenures at Columbia, Arista and J Records.`\
-https://www.nytimes.com/2026/06/22/arts/music/clive-davis-songs.html
-
-**How Will Colombia’s New President Fuel Trump’s Drug War?**\
-`Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
-https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html
 
