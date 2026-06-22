@@ -1,3 +1,11 @@
+**Andy Burnham Says He Will Run to Become Britain’s Next Prime Minister**\
+`Andy Burnham, who rejoined the British Parliament after a special election victory, said he would seek the roles of prime minister and Labour Party leader after Keir Starmer announced his resignation from both positions.`\
+https://www.nytimes.com/video/world/europe/100000010982931/andy-burnham-starmer-uk-prime-minister.html
+
+**Taliban Officials to Head to Brussels for Talks on Afghan Deportees**\
+`The delegation received visas from Belgium to attend talks with the European Union about the deportation of Afghans. Officials in Afghanistan said the meeting would take place on Tuesday.`\
+https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-deportees.html
+
 **5 alimentos que contienen fibra y proteína**\
 `Encontrar ambos nutrientes en un solo alimento no es fácil. Estas categorías son una buena opción, según los expertos.`\
 https://www.nytimes.com/es/2026/06/22/espanol/fibra-proteina-alimentos.html
