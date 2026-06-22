@@ -1,3 +1,15 @@
+**Charisma Alone Can’t Fix Britain**\
+`It will take more than a change in leadership to solve the country’s problems.`\
+https://www.nytimes.com/2026/06/22/world/britain-prime-minister.html
+
+**Cafe Tells Congressman He’s Not Welcome Because of His Stance on Israel**\
+`After Representative Dan Goldman visited a left-leaning coffee shop chain, the shop owner posted caustic remarks on Instagram that made it clear he shouldn’t come back.`\
+https://www.nytimes.com/2026/06/22/nyregion/coffee-shop-poetica-dan-goldman-israel.html
+
+**The Coolest Canvas-Strapped Watches**\
+`Originally designed for soldiers, these timepieces have become summer staples.`\
+https://www.nytimes.com/2026/06/22/t-magazine/fashion/canvas-strapped-watches.html
+
 **THE COOLEST CANVAS-STRAPPED WATCHES**\
 `Originally designed for soldiers, these timepieces have become summer staples.`\
 https://www.nytimes.com/2026/06/22/t-magazine/fashion/canvas-strapped-watches.html
