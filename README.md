@@ -1,3 +1,7 @@
+**Warsh Looks to Greenspan in Designing Approach to Fed Chairmanship**\
+`Kevin M. Warsh has long singled out Alan Greenspan, who died on Monday, as the central banker he wants to exemplify.`\
+https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
+
 **Justice Department Makes It Easier to Bypass Pollution Controls on Pickups**\
 `It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-get
 **The Key Players in the U.S.-Iran Talks, and the Deadly Rise of Giant Trucks and S.U.V.s**\
 `Plus, the “Steven Spielberg of sitcoms.”`\
 https://www.nytimes.com/2026/06/22/podcasts/the-headlines/the-key-players-in-the-us-iran-talks-and-the-deadly-rise-of-giant-trucks-and-suvs.html
-
-**NYT Connections Answers for June 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
-https://www.nytimes.com/2026/06/22/crosswords/connections-companion-1108.html
 
