@@ -1,3 +1,7 @@
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips-HS.html
+
 **Does This Radio Host Really Know Everyone in Wales?**\
 `Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
 https://www.nytimes.com/2026/06/22/world/europe/does-this-radio-host-really-know-everyone-in-wales.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/06/21/us/warehouse-fire-la-los-angeles-smoke.html
 https://www.nytimes.com/es/2026/06/21/espanol/america-latina/elecciones-colombia-resultados-delaespriella.html
 
 **Abelardo De La Espriella, Trump-Backed Rightist, Headed for Win in Colombia**\
-`A victory for Abelardo De La Espriella, a lawyer with no previous political experience, would be a rebuke to the left and another win for the right in Latin America.`\
+`A victory for Abelardo De La Espriella, a lawyer with no previous political experience, would be another win for the right in Latin America.`\
 https://www.nytimes.com/2026/06/21/world/americas/colombia-election-de-la-espriella.html
 
 **Margaret Kerry, Body and Soul of Disney’s Tinker Bell, Dies at 97**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/21/opinion/america-allies-superpower-iran.html
 **‘There Was Love, and Then There Was Suffering’: A Q&A With Christian Wiman**\
 `“The minute you are convinced that you have grasped something true about God, it dissolves in you.”`\
 https://www.nytimes.com/2026/06/21/opinion/christian-wiman-chistianity-poetry-faith.html
-
-**NYT Connections Answers for June 22, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
-https://www.nytimes.com/2026/06/21/crosswords/connections-companion-1107.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
