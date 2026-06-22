@@ -1,3 +1,7 @@
+**Barry Manilow, Bruce Springsteen and Others Mourn Clive Davis**\
+`Davis “treated me with the same respect and kindness as a 22-year-old nobody as he did after all my success,” Springsteen said after the music executive’s death on Monday.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-death-celebrity-reactions.html
+
 **Officers provide update on the shooting in Montreal on Monday.**\
 `Officials provide an update on the shooting in Montreal.`\
 https://www.nytimes.com/video/world/americas/100000010984199/officers-provide-update-on-the-shooting-in-montreal-on-monday.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-
 https://www.nytimes.com/2026/06/22/podcasts/why-i-love-the-beautiful-game-with-wagner-moura.html
 
 **Live Updates: Montreal Manhunt Ends After Shootout That Killed Police Officer**\
-`The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
+`Fady Dagher, the chief of the Montreal police, said that the “immediate threat to the public is no longer present” and that sheltering in place was no longer required.`\
 https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
 
 **Muere Alan Greenspan, conocido presidente de la Reserva Federal de EE. UU.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/middleeast/will-do-iran-us-peace-talks-
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010982983/22vid-burnham-euston-37887.html
-
-**Who Will Replace Keir Starmer as UK Prime Minister? Here’s What Happens Next.**\
-`Keir Starmer, the British prime minister, could be replaced through a full leadership contest. But if the top contender, Andy Burnham, is the only candidate, the process will be much faster.`\
-https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prime-minister-burnham-uk.html
 

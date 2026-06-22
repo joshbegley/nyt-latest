@@ -1,3 +1,11 @@
+**Barry Manilow, Bruce Springsteen and Others Mourn Clive Davis**\
+`Davis “treated me with the same respect and kindness as a 22-year-old nobody as he did after all my success,” Springsteen said after the music executive’s death on Monday.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-death-celebrity-reactions.html
+
+**Live Updates: Montreal Manhunt Ends After Shootout That Killed Police Officer**\
+`Fady Dagher, the chief of the Montreal police, said that the “immediate threat to the public is no longer present” and that sheltering in place was no longer required.`\
+https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
+
 **Live Updates: Montreal Manhunt Ends After Shootout That Killed Police Officer**\
 `The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
 https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
