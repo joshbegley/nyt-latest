@@ -1,3 +1,7 @@
+**U.K. Live Updates: Starmer Announces Resignation as Prime Minister**\
+`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. His decision clears the way for Britain’s seventh prime minister in the last decade.`\
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure
+
 **U.K. Live Updates: Starmer Announces He Will Resign as Labour Party Leader**\
 `A sagging economy and policy flip-flops had fueled demands for Prime Minister Keir Starmer of Britain to step down. The announcement means he has set out a timetable for his departure as prime minister.`\
 https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure
