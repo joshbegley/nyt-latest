@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
 
 **Shootout Suspect Is Dead After Killing Montreal Police Officer, Authorities Say**\
-`Fady Dagher, the city’s police chief, said that the “immediate threat to the public is no longer present” and that sheltering in place was no longer required.`\
+`A police officer and a civilian also died in a gun battle that prompted a citywide shelter-in-place alert.`\
 https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 
 **Conversaciones entre EE. UU. e Irán: la primera ronda termina con grandes esperanzas y retos**\

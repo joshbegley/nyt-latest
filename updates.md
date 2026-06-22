@@ -1,3 +1,7 @@
+**Shootout Suspect Is Dead After Killing Montreal Police Officer, Authorities Say**\
+`A police officer and a civilian also died in a gun battle that prompted a citywide shelter-in-place alert.`\
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
+
 **Federal Citizenship Data Tool Cannot Be Used to Screen Voters, Judge Rules**\
 `A federal judge ruled that the Trump administration’s providing federal data to states to check and purge their voter rolls violated several laws prohibiting the disclosure.`\
 https://www.nytimes.com/2026/06/22/us/politics/federal-citizenship-database-voting.html
