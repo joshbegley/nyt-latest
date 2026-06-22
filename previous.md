@@ -1,3 +1,7 @@
+**The Moment Alan Greenspan Should Be Remembered For**\
+`A crucial episode in the famous Fed chair’s legacy.`\
+https://www.nytimes.com/2026/06/22/opinion/alan-greenspan-federal-reserve.html
+
 **Warsh Looks to Greenspan in Designing Approach to Fed Chairmanship**\
 `Kevin M. Warsh has long singled out Alan Greenspan, who died on Monday, as the central banker he wants to exemplify.`\
 https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
 `It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
 
-**Police in Montreal Launch Manhunt After Shootout**\
-`The province of Quebec issued a shelter-in-place alert after a shooting in which two officers and one civilian were wounded.`\
+**Montreal Police Launches Manhunt for Suspect After Shooting**\
+`The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
 https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 
 **Conversaciones entre EE. UU. e Irán: la primera ronda termina con grandes esperanzas y retos**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
 **R.F.K. Jr.’s Newest Mission: Getting Us Off Antidepressants**\
 `The process of “deprescribing,” in which a doctor helps a patient taper off a psychiatric medication, is now being considered in the development of federal health policy.`\
 https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-getting-us-off-antidepressants.html
-
-**The Key Players in the U.S.-Iran Talks, and the Deadly Rise of Giant Trucks and S.U.V.s**\
-`Plus, the “Steven Spielberg of sitcoms.”`\
-https://www.nytimes.com/2026/06/22/podcasts/the-headlines/the-key-players-in-the-us-iran-talks-and-the-deadly-rise-of-giant-trucks-and-suvs.html
 

@@ -1,3 +1,11 @@
+**The Moment Alan Greenspan Should Be Remembered For**\
+`A crucial episode in the famous Fed chair’s legacy.`\
+https://www.nytimes.com/2026/06/22/opinion/alan-greenspan-federal-reserve.html
+
+**Montreal Police Launches Manhunt for Suspect After Shooting**\
+`The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
+
 **Warsh Looks to Greenspan in Designing Approach to Fed Chairmanship**\
 `Kevin M. Warsh has long singled out Alan Greenspan, who died on Monday, as the central banker he wants to exemplify.`\
 https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
