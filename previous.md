@@ -1,3 +1,11 @@
+**Is China Closing the A.I. Gap Faster Than Expected?**\
+`Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
+https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
+
+**Test Your Knowledge of History’s Most Famous Libraries**\
+`Try this short quiz on five of the globe’s renowned repositories of human learning.`\
+https://www.nytimes.com/interactive/2026/06/22/books/review/world-libraries-quiz.html
+
 **What to Know About Heat in Europe This Week**\
 `Big parts of Europe are under high-level warnings for extreme heat, with forecasters predicting “severe” weather impact.`\
 https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/middleeast/100000010982591/first-round-of-us
 **Keir Starmer Delivers Speech From Downing Street**\
 `Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
 https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
-
-**Right-Wing Outsider Appears to Win Colombia’s Election**\
-`President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
-https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
-
-**U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
-`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
-https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
 
