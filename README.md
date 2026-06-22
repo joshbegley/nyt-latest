@@ -1,3 +1,7 @@
+**The Guardrails Designed to Protect U.S.-Iran Talks**\
+`The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/the-guardrails-designed-to-protect-us-iran-talks.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010982983/22vid-burnham-euston-37887.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/opinion/ai-doom-jobs-economy.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010982776/22vid-starmer-clip-1-66118.html
-
-**Explosion at Qatar Gas Plant Leaves at Least 54 Injured**\
-`The blast happened at a key site for natural gas production. The authorities blamed a technical malfunction while operations were being restarted after the U.S.-Israeli war against Iran.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/qatar-explosion-gas.html
 
