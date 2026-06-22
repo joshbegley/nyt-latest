@@ -1,3 +1,15 @@
+**How Will Colombia’s New President Fuel Trump’s Drug War?**\
+`Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
+https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html
+
+**Jeffrey Donaldson, Longtime Northern Irish Political Leader, Is Convicted of Child Sex Abuse**\
+`Mr. Donaldson, 63, was found guilty after a weekslong jury trial in Northern Ireland.`\
+https://www.nytimes.com/2026/06/22/world/europe/jeffrey-donaldson-child-abuse-rape-guilty-dup.html
+
+**Thousands Are Fleeing as Putin Bombs the Donbas Cities He Most Covets**\
+`While Kyiv’s fortunes have brightened in other ways in the war, Moscow’s forces are raining bombs and drones on “fortress belt” cities like Sloviansk and Kramatorsk.`\
+https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk-kramatorsk-russia.html
+
 **Today, In Short**\
 `Cottage cheese. Cheating. World Cup joy.`\
 https://www.nytimes.com/2026/06/22/briefing/today-in-short.html
