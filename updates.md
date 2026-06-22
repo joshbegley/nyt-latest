@@ -1,3 +1,19 @@
+**Federal Citizenship Data Tool Cannot Be Used to Screen Voters, Judge Rules**\
+`A federal judge ruled that the Trump administration’s providing federal data to states to check and purge their voter rolls violated several laws prohibiting the disclosure.`\
+https://www.nytimes.com/2026/06/22/us/politics/federal-citizenship-database-voting.html
+
+**Looking Back on the U.S.A.’s Many Founders, 250 Years In**\
+`In the past 50 years, the way we tell the story of the Revolution has become dramatically more complex. Can it still inspire us all?`\
+https://www.nytimes.com/2026/06/22/magazine/america-founders-history-usa-250th-anniversary.html
+
+**School Year Cut Short and Aid Delivery Slowed Amid Fuel Crisis in Cuba**\
+`A U.S. oil blockade imposed by the Trump administration has set off an increasingly agonizing energy crisis that has brought transportation largely to a standstill. In an effort to save energy resources, the government ended the school year early.`\
+https://www.nytimes.com/video/world/americas/100000010983461/cuba-us-trump-fuel-crisis-oil-blockade.html
+
+**Vance Says Iran Has Agreed to Allow Nuclear Inspectors Into Country**\
+`Vice President JD Vance was in Switzerland on Monday, where he declared the negotiations a “very good foundation” for a lasting agreement to end the war the United States and Israel began in February.`\
+https://www.nytimes.com/video/world/middleeast/100000010982939/vance-iran-nuclear-inspectors.html
+
 **The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html

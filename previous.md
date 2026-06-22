@@ -1,3 +1,15 @@
+**Federal Citizenship Data Tool Cannot Be Used to Screen Voters, Judge Rules**\
+`A federal judge ruled that the Trump administration’s providing federal data to states to check and purge their voter rolls violated several laws prohibiting the disclosure.`\
+https://www.nytimes.com/2026/06/22/us/politics/federal-citizenship-database-voting.html
+
+**Looking Back on the U.S.A.’s Many Founders, 250 Years In**\
+`In the past 50 years, the way we tell the story of the Revolution has become dramatically more complex. Can it still inspire us all?`\
+https://www.nytimes.com/2026/06/22/magazine/america-founders-history-usa-250th-anniversary.html
+
+**School Year Cut Short and Aid Delivery Slowed Amid Fuel Crisis in Cuba**\
+`A U.S. oil blockade imposed by the Trump administration has set off an increasingly agonizing energy crisis that has brought transportation largely to a standstill. In an effort to save energy resources, the government ended the school year early.`\
+https://www.nytimes.com/video/world/americas/100000010983461/cuba-us-trump-fuel-crisis-oil-blockade.html
+
 **The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html
@@ -42,13 +54,13 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/good-peter-oneida-histor
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/usa-250-anniversary-american-revolution.html
 
-**U.S. Temporarily Lifts Oil Sanctions Against Iran, Citing ‘Productive’ Talks**\
-`President Trump and Vice President JD Vance pointed to progress on Iran’s nuclear program, but officials in Tehran said “no new commitments” had been made.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/us-iran-oil-sanctions.html
-
 **Doctors Thought It Was Asthma. A.I. Flagged a Serious Heart Problem.**\
 `Artificial intelligence programs can spot patterns in electrocardiograms that humans miss. Now, one program is going to be widely available — for free — to doctors.`\
 https://www.nytimes.com/2026/06/22/health/artificial-intelligence-heart-damage.html
+
+**U.S. Temporarily Lifts Oil Sanctions Against Iran, Citing ‘Productive’ Talks**\
+`President Trump and Vice President JD Vance pointed to progress on Iran’s nuclear program, but officials in Tehran said “no new commitments” had been made.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/us-iran-oil-sanctions.html
 
 **Ramiro Valdés Menéndez, Architect of Cuba’s Surveillance State, Dies at 94**\
 `Considered the country’s most powerful leader after the Castro brothers, he was the first director of the Interior Ministry, keeping a close eye on dissent.`\
@@ -59,7 +71,7 @@ https://www.nytimes.com/2026/06/22/world/americas/ramiro-valdes-menendez-dead.ht
 https://www.nytimes.com/video/world/asia/100000010983022/starbucks-south-korea-ad.html
 
 **Vance Says Iran Has Agreed to Allow Nuclear Inspectors Into Country**\
-`The Trump administration relaxed sanctions on Iranian oil after Vice President JD Vance said that Iran had agreed to invite U.N. nuclear inspectors into the country. Iran said that it had made “no new commitments.”`\
+`Vice President JD Vance was in Switzerland on Monday, where he declared the negotiations a “very good foundation” for a lasting agreement to end the war the United States and Israel began in February.`\
 https://www.nytimes.com/video/world/middleeast/100000010982939/vance-iran-nuclear-inspectors.html
 
 **At Least One Tornado Touches Down in Illinois, Leaving 2 Dead**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/22/opinion/trump-iran-war.html
 **What is the Heat Dome Causing Europe’s Record Temperatures?**\
 `Heat domes happen all over the world, and the one over Europe this week is locking in days of near-record highs across Britain, Spain and France.`\
 https://www.nytimes.com/2026/06/22/weather/europe-heat-dome.html
-
-**Vance Says Iran Will Allow Nuclear Watchdog to Restart Inspections**\
-`Vice President JD Vance said Iran had agreed to invite experts from the U.N. agency to resume operations in the country. Tehran and the nuclear watchdog have not commented.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-nuclear-inspections.html
-
-**11 Essential Songs Shepherded by Clive Davis**\
-`The label boss, who died on Monday, had a passion for hits — especially ones he masterminded — during his formidable tenures at Columbia, Arista and J Records.`\
-https://www.nytimes.com/2026/06/22/arts/music/clive-davis-songs.html
-
-**How Will Colombia’s New President Fuel Trump’s Drug War?**\
-`Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
-https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html
 
