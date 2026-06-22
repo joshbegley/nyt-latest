@@ -1,3 +1,11 @@
+**With No Team at the World Cup, China’s Fans Celebrate a Referee**\
+`Most people watching Curaçao play Ecuador focused on the team’s goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
+https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
+
+**Mideast Live Updates: Mediators Point to Progress After First Round of U.S.-Iran Talks**\
+`Qatar and Pakistan said that high-level talks in Switzerland ended early Monday, with technical discussions to follow. Tensions over fighting in Lebanon and other issues have complicated efforts to reach a lasting peace.`\
+https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
+
 **El bloqueo de EE. UU. a Cuba hace que los niños falten a la escuela**\
 `La escasez de petróleo ha desencadenado una crisis energética que ha paralizado en gran medida el transporte y, como consecuencia, menos alumnos y profesores pueden llegar a las aulas.`\
 https://www.nytimes.com/es/2026/06/22/espanol/america-latina/bloqueo-cuba-crisis-escuelas.html
