@@ -1,3 +1,11 @@
+**Keir Starmer Resigns as UK Prime Minister**\
+`His departure in the coming weeks clears a path for Andy Burnham, a popular Labour Party mayor, to become the country’s seventh prime minister in a decade.`\
+https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-andy-burnham-prime-minister-britain.html
+
+**Taking Trump to Task Over the Iran War**\
+`Readers react to President Trump’s threats against Iran, and other aspects of the war. Also: A memory of Dad; the New York-New Jersey tussle.`\
+https://www.nytimes.com/2026/06/22/opinion/trump-iran-war.html
+
 **What is the Heat Dome Causing Europe’s Record Temperatures?**\
 `Heat domes happen all over the world, and the one over Europe this week is locking in days of near-record highs across Britain, Spain and France.`\
 https://www.nytimes.com/2026/06/22/weather/europe-heat-dome.html

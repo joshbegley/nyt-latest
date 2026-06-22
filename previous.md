@@ -1,3 +1,11 @@
+**Keir Starmer Resigns as UK Prime Minister**\
+`His departure in the coming weeks clears a path for Andy Burnham, a popular Labour Party mayor, to become the country’s seventh prime minister in a decade.`\
+https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-andy-burnham-prime-minister-britain.html
+
+**Taking Trump to Task Over the Iran War**\
+`Readers react to President Trump’s threats against Iran, and other aspects of the war. Also: A memory of Dad; the New York-New Jersey tussle.`\
+https://www.nytimes.com/2026/06/22/opinion/trump-iran-war.html
+
 **What is the Heat Dome Causing Europe’s Record Temperatures?**\
 `Heat domes happen all over the world, and the one over Europe this week is locking in days of near-record highs across Britain, Spain and France.`\
 https://www.nytimes.com/2026/06/22/weather/europe-heat-dome.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-con
 **Thousands Are Fleeing as Putin Bombs the Donbas Cities He Most Covets**\
 `While Kyiv’s fortunes have brightened in other ways in the war, Moscow’s forces are raining bombs and drones on “fortress belt” cities like Sloviansk and Kramatorsk.`\
 https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk-kramatorsk-russia.html
-
-**A New-Build in Brooklyn Filled With Light and Tons of Books**\
-`A family moved to New York from London, found a tear-down in Park Slope, and were able to double the previous square footage.`\
-https://www.nytimes.com/2026/06/22/realestate/parks-slope-library-house-renovation.html
-
-**Cuba’s Fuel Crisis Brings Schools to a Standstill**\
-`The country’s already-struggling schools are ending the academic year early because of a crippling fuel shortage caused by the U.S. oil blockade.`\
-https://www.nytimes.com/2026/06/22/world/americas/cuba-oil-gas-crisis-schools-education.html
 
