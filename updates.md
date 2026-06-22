@@ -1,3 +1,7 @@
+**Starmer Resigns as U.K. Prime Minister and Labour Party Leader**\
+`Keir Starmer of Britain resigned as leader of the Labour Party and said he would remain prime minister until a new party leader was selected.`\
+https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-keir-starmer-resigns.html
+
 **With No Team at the World Cup, China’s Fans Celebrate a Referee**\
 `Most people watching Curaçao play Ecuador focused on the team’s goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
 https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
