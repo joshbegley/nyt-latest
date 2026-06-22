@@ -1,10 +1,30 @@
+**Britons React to Prime Minister Keir Starmer’s Resignation Announcement**\
+`After Prime Minister Keir Starmer announced that he is resigning from his position, Britons shared their thoughts about a change of leadership.`\
+https://www.nytimes.com/video/world/europe/100000010983411/starmer-resignation-reaction-britain.html
+
+**The Man of Faith Who Heard a Righteous Call in the Founding Credo**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/revolutionary-war-lemuel-haynes-black-soldier-essay.html
+
+**Why Democrats Need a Politics of Joy**\
+`The joylessness of metrics-obsessed, achievement-oriented elite culture is eroding the simple joys of living, the novelist Gary Shteyngart argues on “The Ezra Klein Show.” And, he says, this antipathy toward pleasure is a problem for Democrats.`\
+https://www.nytimes.com/video/opinion/100000010970914/why-democrats-need-a-politics-of-joy.html
+
+**The Housewife Whose Plays Helped Push American Toward Revolution**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html
+
+**The Radical Act of Enjoying This Life**\
+`On “The Ezra Klein Show,” the Times Opinion columnist Ezra Klein asks the novelist Gary Shteyngart about his philosophy of enjoyment and why it can feel like such a radical act to simply be present.`\
+https://www.nytimes.com/video/opinion/the-radical-act-of-enjoying-this-life.html
+
 **The Teenage Soldier Who Revealed How the Patriots Really Won the War**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/usa-revolutionary-war-history-joseph-plumb-martin.html
 
 **The Radical Pacifist Who Inspired the First Armed Rebellion of the Founding Era**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-herman-husband-william-tryon.html
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-hermon-husband-william-tryon.html
 
 **The Native Leader Who Tied His People’s Fate to the Patriot Cause**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/22/world/europe/jeffrey-donaldson-child-abuse-ra
 **Today, In Short**\
 `Cottage cheese. Cheating. World Cup joy.`\
 https://www.nytimes.com/2026/06/22/briefing/today-in-short.html
-
-**YouTube Stars Take Center Stage at Creative Artists Agency**\
-`For years, creators were on the fringes at Creative Artists Agency, a Hollywood talent behemoth. Now the agency is putting them center stage.`\
-https://www.nytimes.com/2026/06/22/business/media/youtube-hollywood-creative-artists-agency.html
-
-**Former Ally to Spain’s Prime Minister Is Sentenced to 24 Years in Prison on Bribery Charges**\
-`José Luis Ábalos, once a minister in the government of Prime Minister Pedro Sánchez, was convicted of bribery. The decision compounds a crisis for Mr. Sánchez’ circle.`\
-https://www.nytimes.com/2026/06/22/world/europe/spain-abalos-sentenced-corruption-sanchez.html
-
-**Congressional Democrats Warn Pulte Against Mass Firings**\
-`Current and former officials say the acting director of national intelligence is planning to announce major cuts to his office as early as Monday.`\
-https://www.nytimes.com/2026/06/22/us/politics/bill-pulte-firings-national-intelligence.html
-
-**Clive Davis, Music Industry Titan Who Signed Whitney Houston, Dies at 94**\
-`He rose from a midlevel position at Columbia Records to become one of music’s most powerful executives, shepherding stars like Barry Manilow and Whitney Houston.`\
-https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
-
-**Temperaturas récord en Europa: esto es lo que tienes que saber**\
-`Gran parte de Europa está bajo alertas de alto nivel por calor extremo, y los meteorólogos prevén un impacto “grave” en las condiciones meteorológicas.`\
-https://www.nytimes.com/es/2026/06/22/espanol/tiempo-y-clima/europa-ola-calor.html
 
