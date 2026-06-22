@@ -1,3 +1,7 @@
+**Temperaturas récord en Europa: esto es lo que tienes que saber**\
+`Gran parte de Europa está bajo alertas de alto nivel por calor extremo, y los meteorólogos prevén un impacto “grave” en las condiciones meteorológicas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/tiempo-y-clima/europa-ola-calor.html
+
 **‘The View’ Asks Its Audience for Help in Battle With F.C.C.**\
 `The daytime TV talk show is at the center of a dispute with the Federal Communications Commission over political speech.`\
 https://www.nytimes.com/2026/06/22/business/media/the-view-fcc-abc-investigation.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/06/22/dining/a-healthy-speedy-satisfying-salmon-din
 `Israel and Hezbollah, the Iran-backed Lebanese militant group, appeared to maintain a tense cease-fire for a second day. Israel’s military has new orders that restrict troops to defensive actions.`\
 https://www.nytimes.com/2026/06/22/world/europe/israel-lebanon-hezbollah-truce.html
 
-**No Gas, No Summer Camps, Sporadic Power: Ukraine Escalates Crimea Attacks**\
+**Ukraine Escalates Crimea Attacks, Creating a New Pressure Point for Russia**\
 `To pressure Moscow, Ukraine is stepping up an air campaign to isolate the peninsula, which Russia annexed in 2014.`\
 https://www.nytimes.com/2026/06/22/world/europe/ukraine-russia-crimea-attacks.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/health/cystic-fibrosis-drug-triko-trikafta.ht
 **The National Trust Names New President**\
 `Brent Leggs will lead the preservation organization, which has been in the news recently for challenging the Trump administration’s ballroom and Kennedy Center projects.`\
 https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-brent-leggs.html
-
-**What I Learned About Masculinity at Thai Kickboxing School**\
-`A week inside a grueling Muay Thai training program in Phuket.`\
-https://www.nytimes.com/2026/06/22/magazine/muay-thai-training-kickboxing-thailand.html
 

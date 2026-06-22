@@ -1,3 +1,7 @@
+**Clive Davis, Hitmaking Titan of the Music Industry, Dies at 94**\
+`He rose from a midlevel position at Columbia Records to become one of music’s most powerful executives, shepherding stars like Barry Manilow and Whitney Houston.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
+
 **Temperaturas récord en Europa: esto es lo que tienes que saber**\
 `Gran parte de Europa está bajo alertas de alto nivel por calor extremo, y los meteorólogos prevén un impacto “grave” en las condiciones meteorológicas.`\
 https://www.nytimes.com/es/2026/06/22/espanol/tiempo-y-clima/europa-ola-calor.html
@@ -134,8 +138,8 @@ https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-kei
 `Most people watching Curaçao play Ecuador focused on the Curaçaoan goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
 https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
 
-**Mideast Live Updates: Vance Points to Progress After First Round of U.S.-Iran Talks**\
-`Vice President JD Vance said Iran had agreed to invite U.N. nuclear inspectors back into the country in the first round of negotiations that ended Monday. Iran did not immediately comment.`\
+**Mideast Live Updates: U.S. Eases Sanctions as Vance Says Iran Agrees to Resume Nuclear Inspections**\
+`Vice President JD Vance said Iran had agreed to invite U.N. nuclear inspectors back into the country in the first round of negotiations that ended Monday. Iran and the U.N. did not immediately comment.`\
 https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
 
 **El bloqueo de EE. UU. a Cuba hace que los niños falten a la escuela**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/us/politics/utah-house-salt-lake-city-democra
 **A Loophole Brings Cystic Fibrosis Patients a ‘Miracle Drug’ in Generic Form**\
 `A generic version of a breakthrough cystic fibrosis drug, manufactured in Bangladesh for a fraction of the American price, may give some families around the world an unlikely lifeline.`\
 https://www.nytimes.com/2026/06/22/health/cystic-fibrosis-drug-triko-trikafta.html
-
-**The National Trust Names New President**\
-`Brent Leggs will lead the preservation organization, which has been in the news recently for challenging the Trump administration’s ballroom and Kennedy Center projects.`\
-https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-brent-leggs.html
 

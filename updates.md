@@ -1,3 +1,11 @@
+**Temperaturas récord en Europa: esto es lo que tienes que saber**\
+`Gran parte de Europa está bajo alertas de alto nivel por calor extremo, y los meteorólogos prevén un impacto “grave” en las condiciones meteorológicas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/tiempo-y-clima/europa-ola-calor.html
+
+**Ukraine Escalates Crimea Attacks, Creating a New Pressure Point for Russia**\
+`To pressure Moscow, Ukraine is stepping up an air campaign to isolate the peninsula, which Russia annexed in 2014.`\
+https://www.nytimes.com/2026/06/22/world/europe/ukraine-russia-crimea-attacks.html
+
 **‘The View’ Asks Its Audience for Help in Battle With F.C.C.**\
 `The daytime TV talk show is at the center of a dispute with the Federal Communications Commission over political speech.`\
 https://www.nytimes.com/2026/06/22/business/media/the-view-fcc-abc-investigation.html
