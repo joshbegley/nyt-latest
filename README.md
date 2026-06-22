@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
 `It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
 
-**Police in Montreal Launch Manhunt After Shootout Kills Officer**\
+**Montreal Police Launches Manhunt for Suspect After Shooting**\
 `The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
 https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 
