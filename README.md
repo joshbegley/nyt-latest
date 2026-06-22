@@ -1,3 +1,7 @@
+**Why Older People Are Divorcing More Than They Used To**\
+`Rates of gray divorce have risen sharply over the past few decades — and experts have a few theories as to why.`\
+https://www.nytimes.com/2026/06/22/well/family/gray-divorce-empty-shell-marriage.html
+
 **After Starmer Quits, Investors Wonder Where the British Economy Goes Next**\
 `Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
 https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
 **The ‘No Child Left Behind’ Nostalgia Is Delusional**\
 `Test scores are poor measures of an education.`\
 https://www.nytimes.com/2026/06/22/opinion/schools-testing-accountability.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010982784/22vid-starmer-clip-2-27012.html
 
