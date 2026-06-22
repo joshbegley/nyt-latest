@@ -1,3 +1,7 @@
+**Two Boys Arrested After Deadly School Shooting in the Philippines**\
+`Three people were killed and seven wounded after two ninth graders opened fire on Monday morning in Tacloban City, the police said.`\
+https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-tacloban.html
+
 **Ten Years After Brexit, the Dismal Verdict Is In**\
 `Brexit was supposed to let Britain return to a time when it still counted as a global power. A decade later, the costs are blindingly apparent.`\
 https://www.nytimes.com/2026/06/22/opinion/brexit-britain-europe-power.html
