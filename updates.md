@@ -1,3 +1,119 @@
+**South Korea’s Starbucks Shut Early After ‘Tank Day’ Promotion Debacle**\
+`All Starbucks stores in South Korea shut early on Monday because of a franchise-wide training instituted in the wake of a disastrous marketing campaign.`\
+https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-controversy-closure.html
+
+**Thousands Are Fleeing Ukraine’s Donbas Strongholds as Russia Pushes Closer**\
+`While Kyiv’s fortunes have brightened in other ways in the war, Moscow’s forces are raining bombs and drones on “fortress belt” cities like Sloviansk and Kramatorsk.`\
+https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk-kramatorsk-russia.html
+
+**A New-Build in Brooklyn Filled With Light and Tons of Books**\
+`A family moved to New York from London, found a tear-down in Park Slope, and were able to double the previous square footage.`\
+https://www.nytimes.com/2026/06/22/realestate/parks-slope-library-house-renovation.html
+
+**Cuba’s Fuel Crisis Brings Schools to a Standstill**\
+`Cuba’s already struggling schools are ending the academic year early because of a crippling fuel shortage caused by the U.S. oil blockade.`\
+https://www.nytimes.com/2026/06/22/world/americas/cuba-oil-gas-crisis-schools-education.html
+
+**The Dispute Over Events for America’s 250th Birthday, Explained**\
+`Two national groups, including one backed by President Trump, have planned an array of activities to celebrate the country’s semiquincentennial. States are also hosting many events.`\
+https://www.nytimes.com/2026/06/22/us/dispute-americas-250th-birthday-explained.html
+
+**The Rise of Deadly Trucks and S.U.V.s**\
+`A once-steady decline in pedestrian deaths in the United States has reversed, even as other countries have grown safer. Michael Keller, a New York Times investigative reporter, used crash test results, 3-D visibility scans and real-world reconstructions to explore how the boom in taller, heavier trucks and S.U.V.s has changed what happens when a person is struck.`\
+https://www.nytimes.com/video/us/100000010977042/the-rise-of-deadly-trucks-and-suvs.html
+
+**Cannibals, Lobotomies, Lethal Birds: A Tennessee Williams Opera**\
+`“Suddenly Last Summer,” the composer Courtney Bryan’s first opera, adapts Williams’s play for Bard SummerScape.`\
+https://www.nytimes.com/2026/06/22/arts/music/suddenly-last-summer-tennessee-williams-courtney-bryan-daniel-fish.html
+
+**Book Review: ‘The Emergency Playbook,’ by Amy Edelman and Chris Begley**\
+`“The Emergency Playbook” is a disaster preparation guide that emphasizes community rather than lone-hero fantasies.`\
+https://www.nytimes.com/2026/06/22/books/review/emergency-playbook-amy-edelman-chris-begley.html
+
+**How a Security Guard Lives on $46,000 a Year in the East Bronx**\
+`Maruf Abubakari Sadick works two security jobs to pay for rent, cologne and sheep to help feed his parents in Ghana.`\
+https://www.nytimes.com/interactive/2026/06/22/nyregion/nyc-budgeting-affordability-sadick.html
+
+**Hollywood Needs Regular Jolts of Creativity. It Just Got One.**\
+`The runaway success of horror films made by internet-bred creators shouldn’t scare Hollywood. It should inspire us.`\
+https://www.nytimes.com/2026/06/22/opinion/obsession-backrooms-hollywood-lessons.html
+
+**In the Choreographer Pioneer Winter’s World, Every Body Is a Dancing Body**\
+`Pioneer Winter’s works expand ideas about who gets to be a professional dancer. In “Apollo,” his muses are older dancers, who are like living archives.`\
+https://www.nytimes.com/2026/06/22/arts/dance/pioneer-winter-apollo-.html
+
+**In Utah House Race, Progressives Assail Democrat Who Backed Abortion Restrictions**\
+`Ben McAdams, a moderate former congressman, faces a handful of left-wing opponents in a rare opportunity for a Democrat to win in a Republican state.`\
+https://www.nytimes.com/2026/06/22/us/politics/utah-house-salt-lake-city-democrats.html
+
+**A Loophole Brings Cystic Fibrosis Patients a ‘Miracle Drug’ in Generic Form**\
+`A generic version of a breakthrough cystic fibrosis drug, manufactured in Bangladesh for a fraction of the American price, may give some families around the world an unlikely lifeline.`\
+https://www.nytimes.com/2026/06/22/health/cystic-fibrosis-drug-triko-trikafta.html
+
+**The National Trust Names New President**\
+`Brent Leggs will lead the preservation organization, which has been in the news recently for challenging the Trump administration’s ballroom and Kennedy Center projects.`\
+https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-brent-leggs.html
+
+**Could I Become a Kickboxer at 48? I Went to Thailand to Find Out.**\
+`A week inside a grueling Muay Thai training program in Phuket.`\
+https://www.nytimes.com/2026/06/22/magazine/muay-thai-training-kickboxing-thailand.html
+
+**The Real Reason Bosses Want You Back in the Office Full Time (It’s Not Productivity)**\
+`It’s all about them.`\
+https://www.nytimes.com/2026/06/22/opinion/office-work-wfh-bosses.html
+
+**The 50-Year-Old Diary That’s Very Dear to Readers**\
+`It’s the 50th anniversary year of Metropolitan Diary, a feature that sheds light on everyday life in New York City.`\
+https://www.nytimes.com/2026/06/22/nyregion/metropolitan-diary-50th-anniversary.html
+
+**Flight of the Conchords and the Perils of Reunions**\
+`Bret McKenzie and Jemaine Clement are routinely asked about performing their musical satires again. They always said no, until this year. What changed?`\
+https://www.nytimes.com/2026/06/22/arts/television/flight-of-the-conchords-jemaine-clement-bret-mckenzie.html
+
+**Would You Want to Know Your Baby’s Genetic Future?**\
+`A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
+https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
+
+**The ‘No Child Left Behind’ Nostalgia Is Delusional**\
+`Test scores are poor measures of an education.`\
+https://www.nytimes.com/2026/06/22/opinion/schools-testing-accountability.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010982784/22vid-starmer-clip-2-27012.html
+
+**Going to a National Park This Summer? Here’s What to Expect.**\
+`Huge visitor numbers, sharply reduced staffing, scrapped reservation systems and higher entry fees for nonresidents could make your trip a bit less serene.`\
+https://www.nytimes.com/2026/06/22/travel/national-park-visit-yosemite-yellowstone-grand-canyon.html
+
+**5 Foods That Contain Both Protein and Fiber**\
+`It’s challenging to find the two nutrients in a single food, experts say. These categories offer a nice mix.`\
+https://www.nytimes.com/2026/06/22/well/eat/fiber-protein-foods.html
+
+**California Needs Water and Clean Power. It Might Have a Fix for Both.**\
+`A pilot program is building solar panels over irrigation canals to generate electricity. As a bonus, the shade prevents water from evaporating.`\
+https://www.nytimes.com/2026/06/22/climate/california-canals-solar-panels-water-nexus.html
+
+**Over-Celebrate the Nation’s 250th? Absolutely, if Kim Smith Has Her Way.**\
+`Ms. Smith, a city worker in Presque Isle, Maine, planned a year’s worth of festivities with a commitment that bordered on obsession. Her approach felt quintessentially American.`\
+https://www.nytimes.com/2026/06/22/us/presque-isle-maine-america-250.html
+
+**Why Are Dress Sneakers Everywhere?**\
+`A reader wonders how a shoe-sneaker hybrid became an acceptable part of men’s professional wardrobes.`\
+https://www.nytimes.com/2026/06/22/fashion/dress-sneakers-silicon-valley-wall-street.html
+
+**A.I. Doomaxxing Is Bad for Our Economy**\
+`The economic impact of A.I. is less concerning than consumers’ fear-based reactions to it.`\
+https://www.nytimes.com/2026/06/22/opinion/ai-doom-jobs-economy.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010982776/22vid-starmer-clip-1-66118.html
+
+**Explosion at Qatar Gas Plant Leaves at Least 54 Injured**\
+`The blast happened at a key site for natural gas production. The authorities blamed a technical malfunction while operations were being restarted after the U.S.-Israeli war against Iran.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/qatar-explosion-gas.html
+
 **U.K. Live Updates: Starmer Announces Resignation as Prime Minister**\
 `Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. His decision clears the way for Britain’s seventh prime minister in the last decade.`\
 https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure

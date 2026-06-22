@@ -1,3 +1,7 @@
+**El bloqueo de EE. UU. a Cuba hace que los niños falten a la escuela**\
+`La escasez de petróleo ha desencadenado una crisis energética que ha paralizado en gran medida el transporte y, como consecuencia, menos alumnos y profesores pueden llegar a las aulas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/america-latina/bloqueo-cuba-crisis-escuelas.html
+
 **South Korea’s Starbucks Shut Early After ‘Tank Day’ Promotion Debacle**\
 `All Starbucks stores in South Korea shut early on Monday because of a franchise-wide training instituted in the wake of a disastrous marketing campaign.`\
 https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-controversy-closure.html
@@ -128,7 +132,7 @@ https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidenti
 
 **U.K. Live Updates: Starmer Announces Resignation as Prime Minister**\
 `Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. His decision clears the way for Britain’s seventh prime minister in the last decade.`\
-https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
 
 **Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
 `The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/corrections/no-corrections-june-22-2026.html
 **Quote of the Day: Highway 1 Is One Way to See Coast. Swimming the Length of It Is Another.**\
 `Quotation of the Day for Monday, June 22, 2026.`\
 https://www.nytimes.com/2026/06/22/pageoneplus/quote-of-the-day-highway-1-is-one-way-to-see-coast-swimming-the-length-of-it-is-another.html
-
-**‘House of the Dragon’ Season 3 Premiere Recap: A Song of Water and Fire**\
-`The Dance of the Dragons got into full swing with no shortage of blood, flames and intrigue, much of it at sea.`\
-https://www.nytimes.com/2026/06/21/arts/television/house-of-the-dragon-recap-season-3-episode-1.html
 
