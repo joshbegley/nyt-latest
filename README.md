@@ -1,5 +1,5 @@
 **With Win in Washington, Socialists Are on the March in Urban America**\
-`Democratic socialists, harnessing generational frustration over affordability, lead New York and Seattle, and are knocking on the door in Los Angeles and Washington.`\
+`Democratic socialists, harnessing generational frustration over affordability, lead New York and Seattle and are knocking on the door in Los Angeles and Washington.`\
 https://www.nytimes.com/2026/06/22/us/politics/democratic-socialist-mayors.html
 
 **Federal Citizenship Data Tool Cannot Be Used to Screen Voters, Judge Rules**\
