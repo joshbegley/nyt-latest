@@ -18,10 +18,6 @@ https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-
 `The Brazilian actor tells us why Brazil needs their ‘sixth star’`\
 https://www.nytimes.com/2026/06/22/podcasts/why-i-love-the-beautiful-game-with-wagner-moura.html
 
-**Live Updates: Montreal Manhunt Ends After Shootout That Killed Police Officer**\
-`Fady Dagher, the chief of the Montreal police, said that the “immediate threat to the public is no longer present” and that sheltering in place was no longer required.`\
-https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
-
 **Muere Alan Greenspan, conocido presidente de la Reserva Federal de EE. UU.**\
 `Legislador destacado en su momento y operador político sagaz, defendió posturas que más tarde se asociaron con fuerzas financieras destructivas.`\
 https://www.nytimes.com/es/2026/06/22/espanol/estados-unidos/muere-alan-greenspan-reserva-federal.html
@@ -57,6 +53,10 @@ https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
 **Justice Department Makes It Easier to Bypass Pollution Controls on Pickups**\
 `It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
+
+**Shootout Suspect Is Dead After Killing Montreal Police Officer, Authorities Say**\
+`Fady Dagher, the city’s police chief, said that the “immediate threat to the public is no longer present” and that sheltering in place was no longer required.`\
+https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 
 **Conversaciones entre EE. UU. e Irán: la primera ronda termina con grandes esperanzas y retos**\
 `Los mediadores han informado de que se han hecho avances para llegar a un acuerdo definitivo en un plazo de 60 días. También dijeron que los negociadores se han quedado atascados en temas que se creían ya resueltos.`\
