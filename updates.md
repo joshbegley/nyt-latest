@@ -1,3 +1,23 @@
+**R.F.K. Jr.’s Newest Mission: Getting Us Off Antidepressants**\
+`The process of “deprescribing,” in which a doctor helps a patient taper off a psychiatric medication, is now being considered in the development of federal health policy.`\
+https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-getting-us-off-antidepressants.html
+
+**The Key Players in the U.S.-Iran Talks, and the Deadly Rise of Giant Trucks and S.U.V.s**\
+`Plus, the “Steven Spielberg of sitcoms.”`\
+https://www.nytimes.com/2026/06/22/podcasts/the-headlines/the-key-players-in-the-us-iran-talks-and-the-deadly-rise-of-giant-trucks-and-suvs.html
+
+**NYT Connections Answers for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/connections-companion-1108.html
+
+**NYT Strands Hints for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/strands-sidekick-842.html
+
+**Today’s Wordle Hints for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/wordle-review-1830.html
+
 **Starmer Resigns as U.K. Prime Minister and Labour Party Leader**\
 `Keir Starmer of Britain resigned as leader of the Labour Party and said he would remain prime minister until a new party leader was selected.`\
 https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-keir-starmer-resigns.html
