@@ -1,3 +1,7 @@
+**South Korean Starbucks Shops Close for History Lesson After Ad Backlash**\
+`Starbucks temporarily closed more than 2,000 locations in South Korea early on Monday to hold employee training on historical awareness and cultural sensitivity after a disastrous marketing campaign.`\
+https://www.nytimes.com/video/world/asia/100000010983022/starbucks-south-korea-ad.html
+
 **Vance Says Iran Has Agreed to Allow Nuclear Inspectors Into Country**\
 `The Trump administration relaxed sanctions on Iranian oil after Vice President JD Vance said that Iran had agreed to invite U.N. nuclear inspectors into the country. Iran said that it had made “no new commitments.”`\
 https://www.nytimes.com/video/world/middleeast/100000010982939/vance-iran-nuclear-inspectors.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
 `New Yorkers descended on Governors Island for the Great Nosh, a festival devoted to Jewish cuisine and culture.`\
 https://www.nytimes.com/2026/06/22/style/great-nosh-jewish-food-festival-governors-island.html
 
-**Barry Manilow, Bruce Springsteen and Others Mourn Clive Davis**\
+**Carlos Santana, Patti Smith and Other Celebs Pay Tribute to Clive Davis**\
 `Davis “treated me with the same respect and kindness as a 22-year-old nobody as he did after all my success,” Springsteen said after the music executive’s death on Monday.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-death-celebrity-reactions.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/middleeast/us-sanctions-reprieve-iran-o
 **Why Older People Are Divorcing More Than They Used To**\
 `Rates of gray divorce have risen sharply over the past few decades — and experts have a few theories as to why.`\
 https://www.nytimes.com/2026/06/22/well/family/gray-divorce-empty-shell-marriage.html
-
-**U.K. Markets React Calmly to Starmer Resignation, but Economic Uncertainties Linger**\
-`Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
-https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
 

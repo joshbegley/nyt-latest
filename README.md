@@ -1,3 +1,31 @@
+**The Teenage Soldier Who Revealed How the Patriots Really Won the War**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/usa-revolutionary-war-history-joseph-plumb-martin.html
+
+**The Radical Pacifist Who Inspired the First Armed Rebellion of the Founding Era**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-herman-husband-william-tryon.html
+
+**The Native Leader Who Tied His People’s Fate to the Patriot Cause**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/good-peter-oneida-history-american-revolution.html
+
+**The American Revolution Through the Eyes of Seven Everyday Founders**\
+`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/usa-250-anniversary-american-revolution.html
+
+**U.S. Temporarily Lifts Oil Sanctions Against Iran, Citing ‘Productive’ Talks**\
+`President Trump and Vice President JD Vance pointed to progress on Iran’s nuclear program, but officials in Tehran said “no new commitments” had been made.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/us-iran-oil-sanctions.html
+
+**Doctors Thought It Was Asthma. A.I. Flagged a Serious Heart Problem.**\
+`Artificial intelligence programs can spot patterns in electrocardiograms that humans miss. Now, one program is going to be widely available — for free — to doctors.`\
+https://www.nytimes.com/2026/06/22/health/artificial-intelligence-heart-damage.html
+
+**Ramiro Valdés Menéndez, Architect of Cuba’s Surveillance State, Dies at 94**\
+`Considered the country’s most powerful leader after the Castro brothers, he was the first director of the Interior Ministry, keeping a close eye on dissent.`\
+https://www.nytimes.com/2026/06/22/world/americas/ramiro-valdes-menendez-dead.html
+
 **South Korean Starbucks Shops Close for History Lesson After Ad Backlash**\
 `Starbucks temporarily closed more than 2,000 locations in South Korea early on Monday to hold employee training on historical awareness and cultural sensitivity after a disastrous marketing campaign.`\
 https://www.nytimes.com/video/world/asia/100000010983022/starbucks-south-korea-ad.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
 **Temperaturas récord en Europa: esto es lo que tienes que saber**\
 `Gran parte de Europa está bajo alertas de alto nivel por calor extremo, y los meteorólogos prevén un impacto “grave” en las condiciones meteorológicas.`\
 https://www.nytimes.com/es/2026/06/22/espanol/tiempo-y-clima/europa-ola-calor.html
-
-**‘The View’ Asks Its Audience for Help in Battle With F.C.C.**\
-`The daytime TV talk show is at the center of a dispute with the Federal Communications Commission over political speech.`\
-https://www.nytimes.com/2026/06/22/business/media/the-view-fcc-abc-investigation.html
-
-**Healthy Salmon With Olive-Oil-Braised Zucchini and Chickpeas Recipe**\
-`With olive-oil-braised zucchini and chickpeas, because summer.`\
-https://www.nytimes.com/2026/06/22/dining/a-healthy-speedy-satisfying-salmon-dinner.html
-
-**Israel Holds to Lebanon Truce, With Troops Kept on Defense**\
-`Israel and Hezbollah, the Iran-backed Lebanese militant group, appeared to maintain a tense cease-fire for a second day. Israel’s military has new orders that restrict troops to defensive actions.`\
-https://www.nytimes.com/2026/06/22/world/europe/israel-lebanon-hezbollah-truce.html
-
-**Ukraine Escalates Crimea Attacks, Creating a New Pressure Point for Russia**\
-`To pressure Moscow, Ukraine is stepping up an air campaign to isolate the peninsula, which Russia annexed in 2014.`\
-https://www.nytimes.com/2026/06/22/world/europe/ukraine-russia-crimea-attacks.html
-
-**Dutch Prime Minister Apologizes for Mistreatment of Moluccan Soldiers**\
-`Rob Jetten’s acknowledgment of the historical injustice is part of a larger reckoning with the Netherlands’ colonial past.`\
-https://www.nytimes.com/2026/06/22/world/europe/dutch-netherlands-apology-indonesia-moluccan.html
-
-**U.S. Temporarily Lifts Sanctions on Iranian Oil**\
-`In a sharp reversal of American policy, the Treasury announced a 60-day reprieve, permitting the sale of Iranian crude as part of the preliminary U.S.-Iran deal toward ending the war.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/us-sanctions-reprieve-iran-oil.html
-
-**Why Older People Are Divorcing More Than They Used To**\
-`Rates of gray divorce have risen sharply over the past few decades — and experts have a few theories as to why.`\
-https://www.nytimes.com/2026/06/22/well/family/gray-divorce-empty-shell-marriage.html
 
