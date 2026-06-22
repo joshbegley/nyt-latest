@@ -1,3 +1,7 @@
+**What to Know About Heat in Europe This Week**\
+`Big parts of Europe are under high-level warnings for extreme heat, with forecasters predicting “severe” weather impact.`\
+https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.html
+
 **America is 250. One Maine Woman Is Making the Celebration Last All Year.**\
 `Kim Smith, a city worker in Presque Isle, Maine, planned a year’s worth of festivities with a commitment that bordered on obsession. Her approach felt quintessentially American.`\
 https://www.nytimes.com/2026/06/22/us/presque-isle-maine-america-250.html

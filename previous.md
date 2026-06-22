@@ -1,3 +1,7 @@
+**What to Know About Heat in Europe This Week**\
+`Big parts of Europe are under high-level warnings for extreme heat, with forecasters predicting “severe” weather impact.`\
+https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.html
+
 **Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
 `The pre-eminent economic policymaker of his time and a skilled political operator, his market-friendly stances would later come to be associated with destructive financial forces.`\
 https://www.nytimes.com/2026/06/22/obituaries/alan-greenspan-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidenti
 **U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
 `Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
 https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
-
-**Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
-`The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
-https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
 
