@@ -1,3 +1,27 @@
+**Who Will Replace Keir Starmer as UK Prime Minister? Here’s What Happens Next.**\
+`Keir Starmer, the British prime minister, could be replaced through a full leadership contest. But if the top contender, Andy Burnham, is the only candidate, the process will be much faster.`\
+https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prime-minister-burnham-uk.html
+
+**Is China Closing the A.I. Gap Faster Than Expected?**\
+`Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
+https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
+
+**Test Your Knowledge of History’s Most Famous Libraries**\
+`Try this short quiz on five of the globe’s renowned repositories of human learning.`\
+https://www.nytimes.com/interactive/2026/06/22/books/review/world-libraries-quiz.html
+
+**What to Know About Heat in Europe This Week**\
+`Big parts of Europe are under high-level warnings for extreme heat, with forecasters predicting “severe” weather impact.`\
+https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.html
+
+**Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
+`The pre-eminent economic policymaker of his time and a skilled political operator, he favored market-friendly stances that would later come to be associated with destructive financial forces.`\
+https://www.nytimes.com/2026/06/22/us/alan-greenspan-dead.html
+
+**In the Near Future, All Babies May Receive Genetic Testing. We Need to Prepare.**\
+`A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
+https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
+
 **Keir Starmer Delivers Speech From Downing Street**\
 `Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
 https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
