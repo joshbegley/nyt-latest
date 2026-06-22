@@ -1,3 +1,7 @@
+**With No Team in the World Cup, China’s Fans Celebrate a Referee**\
+`Most people watching Curaçao play Ecuador focused on the team’s goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
+https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
+
 **Pochettino Exclusive Interview, and Messi’s Hat Trick**\
 `There are no limits to the USMNT’s ambitions at this World Cup.`\
 https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html
