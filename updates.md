@@ -1,3 +1,11 @@
+**First Round of U.S.-Iran Talks End, Mediators Say**\
+`The first round of negotiations between Washington and Tehran in Switzerland ended with a “roadmap” to reach a final deal within 60 days, Pakistani and Qatari mediators said.`\
+https://www.nytimes.com/video/world/middleeast/100000010982591/first-round-of-us-iran-talks-end-mediators-say.html
+
+**Keir Starmer Delivers Speech From Downing Street**\
+`Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
+https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
+
 **Right-Wing Outsider Appears to Win Colombia’s Election**\
 `President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
 https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
