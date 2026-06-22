@@ -138,7 +138,7 @@ https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-
 `A week inside a grueling Muay Thai training program in Phuket.`\
 https://www.nytimes.com/2026/06/22/magazine/muay-thai-training-kickboxing-thailand.html
 
-**The Real Reason Bosses Want You Back in the Office Full Time (It’s Not Productivity)**\
+**The Secret Reason Bosses Want Everyone Back in the Office, Every Day of the Week**\
 `It’s all about them.`\
 https://www.nytimes.com/2026/06/22/opinion/office-work-wfh-bosses.html
 
