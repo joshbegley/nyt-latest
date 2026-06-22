@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3 Premiere Recap: A Song of Water and Fire**\
+`The Dance of the Dragons got into full swing with no shortage of blood, flames and intrigue, much of it at sea.`\
+https://www.nytimes.com/2026/06/21/arts/television/house-of-the-dragon-recap-season-3-episode-1.html
+
 ****\
 `A funnel cloud forming in Keenes, Ill., on Sunday. Several tornadoes were reported in the region.`\
 https://www.nytimes.com/video/embedded/weather/100000010982447/21xp-tornado-jr3-21130.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/21/podcasts/the-daily/can-a-bad-man-be-a-good-fa
 **NYT Strands Hints for June 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 22, 2026.`\
 https://www.nytimes.com/2026/06/21/crosswords/strands-sidekick-841.html
-
-**Iran Nuclear Talks Expected to Hinge on These 4 Questions**\
-`Tehran insists that its nuclear program is for peaceful purposes. The Trump administration is demanding assurances that Iran cannot secretly develop a weapon.`\
-https://www.nytimes.com/2026/06/21/world/middleeast/iran-nuclear-talks-questions.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
