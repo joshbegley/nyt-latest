@@ -1,3 +1,11 @@
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips-HS.html
+
+**Abelardo De La Espriella, Trump-Backed Rightist, Headed for Win in Colombia**\
+`A victory for Abelardo De La Espriella, a lawyer with no previous political experience, would be another win for the right in Latin America.`\
+https://www.nytimes.com/2026/06/21/world/americas/colombia-election-de-la-espriella.html
+
 **Does This Radio Host Really Know Everyone in Wales?**\
 `Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
 https://www.nytimes.com/2026/06/22/world/europe/does-this-radio-host-really-know-everyone-in-wales.html
