@@ -1,3 +1,95 @@
+**Right-Wing Outsider Appears to Win Colombia’s Election**\
+`President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
+https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
+
+**U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
+`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
+
+**Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
+`The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
+https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
+
+**NYT Spelling Bee Answers for June 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
+
+**He Provided Security to 3 Governors. Then He Snapped.**\
+`Lt. Ricardo Santos of the New Jersey State Police had faced questions about his judgment and conduct before he became the primary suspect in a double murder-suicide.`\
+https://www.nytimes.com/2026/06/22/nyregion/new-jersey-state-trooper-murder-couple.html
+
+**For Schlossberg, Quirky Charm and a Claim to Camelot May Not Be Enough**\
+`Jack Schlossberg, the grandson of John F. Kennedy, has found it difficult to overcome some of his perceived shortcomings in a high-profile House primary race.`\
+https://www.nytimes.com/2026/06/22/nyregion/jack-schlossberg-campaign-congress.html
+
+**Two Boys Arrested After Deadly School Shooting in the Philippines**\
+`Three people were killed and seven wounded after two ninth graders opened fire on Monday morning in Tacloban City, the police said.`\
+https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-tacloban.html
+
+**Embattled Superintendent of Los Angeles School District Resigns**\
+`Alberto Carvalho resigned Sunday, months after the F.B.I. raided his home and office. He came to Los Angeles from Miami with a reputation for raising student test scores but also made missteps.`\
+https://www.nytimes.com/2026/06/22/us/superintendent-lausd-alberto-carvalho-resigns.html
+
+**Word of the Day: equipoise**\
+`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/22/learning/word-of-the-day-equipoise.html
+
+**¿Qué cambió tras casi cuatro meses de guerra? Según los analistas, casi nada**\
+`Ni la guerra ni el acuerdo eliminaron las principales amenazas que emanan de Irán, según numerosos analistas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/mundo/cambio-iran-acuerdo-guerra.html
+
+**Ten Years After Brexit, the Dismal Verdict Is In**\
+`Brexit was supposed to let Britain return to a time when it still counted as a global power. A decade later, the costs are blindingly apparent.`\
+https://www.nytimes.com/2026/06/22/opinion/brexit-britain-europe-power.html
+
+**‘The Bear’ and 7 More Shows to Watch on TV This Week**\
+`The hit FX series reaches its fifth and final season. The BET Awards are live in Los Angeles.`\
+https://www.nytimes.com/2026/06/22/arts/television/the-bear-tv-this-week.html
+
+**Oil Prices Fall as U.S.-Iran Talks Show Signs of Progress**\
+`Oil prices retreated after Iran’s foreign minister said there had been “major progress” toward ending the fighting in Lebanon during the first session of high-level talks.`\
+https://www.nytimes.com/2026/06/22/business/oil-gas-price-iran.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips-HS.html
+
+**Does This Radio Host Really Know Everyone in Wales?**\
+`Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
+https://www.nytimes.com/2026/06/22/world/europe/elis-james-wales-radio.html
+
+**No Corrections: June 22, 2026**\
+`No corrections appeared in print on Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/22/corrections/no-corrections-june-22-2026.html
+
+**Quote of the Day: Highway 1 Is One Way to See Coast. Swimming the Length of It Is Another.**\
+`Quotation of the Day for Monday, June 22, 2026.`\
+https://www.nytimes.com/2026/06/22/pageoneplus/quote-of-the-day-highway-1-is-one-way-to-see-coast-swimming-the-length-of-it-is-another.html
+
+**‘House of the Dragon’ Season 3 Premiere Recap: A Song of Water and Fire**\
+`The Dance of the Dragons got into full swing with no shortage of blood, flames and intrigue, much of it at sea.`\
+https://www.nytimes.com/2026/06/21/arts/television/house-of-the-dragon-recap-season-3-episode-1.html
+
+**‘The world knows we exist now’: Cape Verde fans lure neutral spectators to their side.**\
+`Dancing exuberantly in the bleachers and teaching the crowd Cape Verde chants.`\
+https://www.nytimes.com/2026/06/21/us/the-world-knows-we-exist-now-cape-verde-fans-lure-neutral-spectators-to-their-side.html
+
+****\
+`A funnel cloud forming in Keenes, Ill., on Sunday. Several tornadoes were reported in the region.`\
+https://www.nytimes.com/video/embedded/weather/100000010982447/21xp-tornado-jr3-21130.html
+
+**Conductor de Tesla en piloto automático choca contra una casa y mata a una mujer**\
+`El conductor dijo a los investigadores que usaba el sistema de conducción automatizada del vehículo cuando este se salió de la vía y se estrelló en el condado de Harris, Texas.`\
+https://www.nytimes.com/es/2026/06/21/espanol/tesla-piloto-automatico-choque.html
+
+**Tornadoes Reported in Southern Illinois Leave Trail of Damage**\
+`By Sunday night, there had already been at least 13 reports of tornadic activity or damage, a meteorologist said.`\
+https://www.nytimes.com/2026/06/21/us/tornado-warning-illinois-weather.html
+
+**La presidenta del Banco Central de Rusia aparece tras 2 semanas de ausencia**\
+`Elvira Nabiullina dio un mensaje de tranquilidad en una rueda de prensa después de un paréntesis que evidenció profundas tensiones en la élite política y económica del país.`\
+https://www.nytimes.com/es/2026/06/21/espanol/mundo/rusia-banco-central.html
+
 **Is China Closing the A.I. Gap Faster Than Expected?**\
 `Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
 https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html

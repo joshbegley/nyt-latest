@@ -1,3 +1,95 @@
+**Is China Closing the A.I. Gap Faster Than Expected?**\
+`Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
+https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
+
+**Test Your Knowledge of History’s Most Famous Libraries**\
+`Try this short quiz on five of the globe’s renowned repositories of human learning.`\
+https://www.nytimes.com/interactive/2026/06/22/books/review/world-libraries-quiz.html
+
+**What to Know About Heat in Europe This Week**\
+`Big parts of Europe are under high-level warnings for extreme heat, with forecasters predicting “severe” weather impact.`\
+https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.html
+
+**Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
+`The pre-eminent economic policymaker of his time and a skilled political operator, he favored market-friendly stances that would later come to be associated with destructive financial forces.`\
+https://www.nytimes.com/2026/06/22/us/alan-greenspan-dead.html
+
+**Behind the Wheel**\
+`We look into the dangers posed by large S.U.V.s and pickup trucks.`\
+https://www.nytimes.com/2026/06/22/briefing/danger-behind-the-wheel.html
+
+**Pochettino Exclusive Interview, and Messi’s Hat Trick**\
+`There are no limits to the USMNT’s ambitions at this World Cup.`\
+https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html
+
+**China Tightens Rare Earth Grip on U.S. Firms, Threatening Trade Clash**\
+`The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
+https://www.nytimes.com/2026/06/22/business/china-rare-earths.html
+
+**Here’s What ‘the Most Important Mozart Discovery in Decades’ Sounds Like**\
+`A newly found notebook documenting the composer’s lessons with a student includes seven previously unknown compositions.`\
+https://www.nytimes.com/2026/06/22/arts/music/mozart-music-flute-harp.html
+
+**First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
+`Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
+https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
+
+**R.F.K. Jr.’s Newest Mission: Getting Us Off Antidepressants**\
+`The process of “deprescribing,” in which a doctor helps a patient taper off a psychiatric medication, is now being considered in the development of federal health policy.`\
+https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-getting-us-off-antidepressants.html
+
+**The Key Players in the U.S.-Iran Talks, and the Deadly Rise of Giant Trucks and S.U.V.s**\
+`Plus, the “Steven Spielberg of sitcoms.”`\
+https://www.nytimes.com/2026/06/22/podcasts/the-headlines/the-key-players-in-the-us-iran-talks-and-the-deadly-rise-of-giant-trucks-and-suvs.html
+
+**NYT Connections Answers for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/connections-companion-1108.html
+
+**NYT Strands Hints for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/strands-sidekick-842.html
+
+**Today’s Wordle Hints for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/wordle-review-1830.html
+
+**Starmer Resigns as U.K. Prime Minister and Labour Party Leader**\
+`Keir Starmer of Britain resigned as leader of the Labour Party and said he would remain prime minister until a new party leader was selected.`\
+https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-keir-starmer-resigns.html
+
+**With No Team in the World Cup, China’s Fans Celebrate a Referee**\
+`Most people watching Curaçao play Ecuador focused on the team’s goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
+https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
+
+**Mideast Live Updates: Vance Points to Progress After First Round of U.S.-Iran Talks**\
+`Vice President JD Vance said Iran had agreed to invite U.N. nuclear inspectors back into the country in the first round of negotiations that ended Monday. Iran did not immediately comment.`\
+https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
+
+**El bloqueo de EE. UU. a Cuba hace que los niños falten a la escuela**\
+`La escasez de petróleo ha desencadenado una crisis energética que ha paralizado en gran medida el transporte y, como consecuencia, menos alumnos y profesores pueden llegar a las aulas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/america-latina/bloqueo-cuba-crisis-escuelas.html
+
+**South Korea’s Starbucks Shut Early After ‘Tank Day’ Promotion Debacle**\
+`All Starbucks stores in South Korea shut early on Monday because of a franchise-wide training instituted in the wake of a disastrous marketing campaign.`\
+https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-controversy-closure.html
+
+**Thousands Are Fleeing Ukraine’s Donbas Strongholds as Russia Pushes Closer**\
+`While Kyiv’s fortunes have brightened in other ways in the war, Moscow’s forces are raining bombs and drones on “fortress belt” cities like Sloviansk and Kramatorsk.`\
+https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk-kramatorsk-russia.html
+
+**A New-Build in Brooklyn Filled With Light and Tons of Books**\
+`A family moved to New York from London, found a tear-down in Park Slope, and were able to double the previous square footage.`\
+https://www.nytimes.com/2026/06/22/realestate/parks-slope-library-house-renovation.html
+
+**Cuba’s Fuel Crisis Brings Schools to a Standstill**\
+`Cuba’s already struggling schools are ending the academic year early because of a crippling fuel shortage caused by the U.S. oil blockade.`\
+https://www.nytimes.com/2026/06/22/world/americas/cuba-oil-gas-crisis-schools-education.html
+
+**The Dispute Over Events for America’s 250th Birthday, Explained**\
+`Two national groups, including one backed by President Trump, have planned an array of activities to celebrate the country’s semiquincentennial. States are also hosting many events.`\
+https://www.nytimes.com/2026/06/22/us/dispute-americas-250th-birthday-explained.html
+
 **The Rise of Deadly Trucks and S.U.V.s**\
 `A once-steady decline in pedestrian deaths in the United States has reversed, even as other countries have grown safer. Michael Keller, a New York Times investigative reporter, used crash test results, 3-D visibility scans and real-world reconstructions to explore how the boom in taller, heavier trucks and S.U.V.s has changed what happens when a person is struck.`\
 https://www.nytimes.com/video/us/100000010977042/the-rise-of-deadly-trucks-and-suvs.html
@@ -101,96 +193,4 @@ https://www.nytimes.com/video/world/middleeast/100000010982591/first-round-of-us
 **Keir Starmer Delivers Speech From Downing Street**\
 `Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
 https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
-
-**Right-Wing Outsider Appears to Win Colombia’s Election**\
-`President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
-https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
-
-**U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
-`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
-https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
-
-**Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
-`The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
-https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
-
-**NYT Spelling Bee Answers for June 22, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
-
-**He Provided Security to 3 Governors. Then He Snapped.**\
-`Lt. Ricardo Santos of the New Jersey State Police had faced questions about his judgment and conduct before he became the primary suspect in a double murder-suicide.`\
-https://www.nytimes.com/2026/06/22/nyregion/new-jersey-state-trooper-murder-couple.html
-
-**For Schlossberg, Quirky Charm and a Claim to Camelot May Not Be Enough**\
-`Jack Schlossberg, the grandson of John F. Kennedy, has found it difficult to overcome some of his perceived shortcomings in a high-profile House primary race.`\
-https://www.nytimes.com/2026/06/22/nyregion/jack-schlossberg-campaign-congress.html
-
-**Two Boys Arrested After Deadly School Shooting in the Philippines**\
-`Three people were killed and seven wounded after two ninth graders opened fire on Monday morning in Tacloban City, the police said.`\
-https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-tacloban.html
-
-**Embattled Superintendent of Los Angeles School District Resigns**\
-`Alberto Carvalho resigned Sunday, months after the F.B.I. raided his home and office. He came to Los Angeles from Miami with a reputation for raising student test scores but also made missteps.`\
-https://www.nytimes.com/2026/06/22/us/superintendent-lausd-alberto-carvalho-resigns.html
-
-**Word of the Day: equipoise**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/22/learning/word-of-the-day-equipoise.html
-
-**¿Qué cambió tras casi cuatro meses de guerra? Según los analistas, casi nada**\
-`Ni la guerra ni el acuerdo eliminaron las principales amenazas que emanan de Irán, según numerosos analistas.`\
-https://www.nytimes.com/es/2026/06/22/espanol/mundo/cambio-iran-acuerdo-guerra.html
-
-**Ten Years After Brexit, the Dismal Verdict Is In**\
-`Brexit was supposed to let Britain return to a time when it still counted as a global power. A decade later, the costs are blindingly apparent.`\
-https://www.nytimes.com/2026/06/22/opinion/brexit-britain-europe-power.html
-
-**‘The Bear’ and 7 More Shows to Watch on TV This Week**\
-`The hit FX series reaches its fifth and final season. The BET Awards are live in Los Angeles.`\
-https://www.nytimes.com/2026/06/22/arts/television/the-bear-tv-this-week.html
-
-**Oil Prices Fall as U.S.-Iran Talks Show Signs of Progress**\
-`Oil prices retreated after Iran’s foreign minister said there had been “major progress” toward ending the fighting in Lebanon during the first session of high-level talks.`\
-https://www.nytimes.com/2026/06/22/business/oil-gas-price-iran.html
-
-****\
-`tktktkt`\
-https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips-HS.html
-
-**Does This Radio Host Really Know Everyone in Wales?**\
-`Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
-https://www.nytimes.com/2026/06/22/world/europe/elis-james-wales-radio.html
-
-**No Corrections: June 22, 2026**\
-`No corrections appeared in print on Monday, June 22, 2026.`\
-https://www.nytimes.com/2026/06/22/corrections/no-corrections-june-22-2026.html
-
-**Quote of the Day: Highway 1 Is One Way to See Coast. Swimming the Length of It Is Another.**\
-`Quotation of the Day for Monday, June 22, 2026.`\
-https://www.nytimes.com/2026/06/22/pageoneplus/quote-of-the-day-highway-1-is-one-way-to-see-coast-swimming-the-length-of-it-is-another.html
-
-**‘House of the Dragon’ Season 3 Premiere Recap: A Song of Water and Fire**\
-`The Dance of the Dragons got into full swing with no shortage of blood, flames and intrigue, much of it at sea.`\
-https://www.nytimes.com/2026/06/21/arts/television/house-of-the-dragon-recap-season-3-episode-1.html
-
-**‘The world knows we exist now’: Cape Verde fans lure neutral spectators to their side.**\
-`Dancing exuberantly in the bleachers and teaching the crowd Cape Verde chants.`\
-https://www.nytimes.com/2026/06/21/us/the-world-knows-we-exist-now-cape-verde-fans-lure-neutral-spectators-to-their-side.html
-
-****\
-`A funnel cloud forming in Keenes, Ill., on Sunday. Several tornadoes were reported in the region.`\
-https://www.nytimes.com/video/embedded/weather/100000010982447/21xp-tornado-jr3-21130.html
-
-**Conductor de Tesla en piloto automático choca contra una casa y mata a una mujer**\
-`El conductor dijo a los investigadores que usaba el sistema de conducción automatizada del vehículo cuando este se salió de la vía y se estrelló en el condado de Harris, Texas.`\
-https://www.nytimes.com/es/2026/06/21/espanol/tesla-piloto-automatico-choque.html
-
-**Tornadoes Reported in Southern Illinois Leave Trail of Damage**\
-`By Sunday night, there had already been at least 13 reports of tornadic activity or damage, a meteorologist said.`\
-https://www.nytimes.com/2026/06/21/us/tornado-warning-illinois-weather.html
-
-**La presidenta del Banco Central de Rusia aparece tras 2 semanas de ausencia**\
-`Elvira Nabiullina dio un mensaje de tranquilidad en una rueda de prensa después de un paréntesis que evidenció profundas tensiones en la élite política y económica del país.`\
-https://www.nytimes.com/es/2026/06/21/espanol/mundo/rusia-banco-central.html
 
