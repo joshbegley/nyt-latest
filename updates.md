@@ -1,3 +1,7 @@
+**Live Updates: Montreal Manhunt Ends After Shootout That Killed Police Officer**\
+`The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
+https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
+
 **Officers provide update on the shooting in Montreal on Monday.**\
 `Officials provide an update on the shooting in Montreal.`\
 https://www.nytimes.com/video/world/americas/100000010984199/officers-provide-update-on-the-shooting-in-montreal-on-monday.html

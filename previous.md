@@ -14,7 +14,7 @@ https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-
 `The Brazilian actor tells us why Brazil needs their ‘sixth star’`\
 https://www.nytimes.com/2026/06/22/podcasts/why-i-love-the-beautiful-game-with-wagner-moura.html
 
-**Live Updates: Police in Montreal Open Manhunt After Shootout Kills Officer**\
+**Live Updates: Montreal Manhunt Ends After Shootout That Killed Police Officer**\
 `The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
 https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
 
