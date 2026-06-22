@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/06/22/nyregion/metropolitan-diary-50th-anniversary.
 `Bret McKenzie and Jemaine Clement are routinely asked about performing their musical satires again. They always said no, until this year. What changed?`\
 https://www.nytimes.com/2026/06/22/arts/television/flight-of-the-conchords-jemaine-clement-bret-mckenzie.html
 
-**In the Near Future, All Babies May Receive Genetic Testing. We Need to Prepare.**\
+**Doctors Can Test Your Baby for Hundreds of Genetic Anomalies. Should They?**\
 `A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
 https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
 
