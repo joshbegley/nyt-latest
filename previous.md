@@ -1,3 +1,7 @@
+**Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
+`The pre-eminent economic policymaker of his time and a skilled political operator, his market-friendly stances would later come to be associated with destructive financial forces.`\
+https://www.nytimes.com/2026/06/22/obituaries/alan-greenspan-dead.html
+
 **Behind the Wheel**\
 `We look into the dangers posed by large S.U.V.s and pickup trucks.`\
 https://www.nytimes.com/2026/06/22/briefing/danger-behind-the-wheel.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-kei
 `Most people watching Curaçao play Ecuador focused on the team’s goalkeeper. For some fans in China, the draw was Ma Ning, the tournament’s highest-ranking Chinese referee.`\
 https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
 
-**Mideast Live Updates: Mediators Point to Progress After First Round of U.S.-Iran Talks**\
-`Qatar and Pakistan said that high-level talks in Switzerland ended early Monday, with technical discussions to follow. Tensions over fighting in Lebanon and other issues have complicated efforts to reach a lasting peace.`\
+**Mideast Live Updates: Vance Points to Progress After First Round of U.S.-Iran Talks**\
+`Vice President JD Vance said Iran had agreed to invite U.N. nuclear inspectors back into the country in the first round of negotiations that ended Monday. Iran did not immediately comment.`\
 https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
 
 **El bloqueo de EE. UU. a Cuba hace que los niños falten a la escuela**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
 **Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
 `The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
 https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
-
-**NYT Spelling Bee Answers for June 22, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
 

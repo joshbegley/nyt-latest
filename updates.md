@@ -1,3 +1,11 @@
+**Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
+`The pre-eminent economic policymaker of his time and a skilled political operator, his market-friendly stances would later come to be associated with destructive financial forces.`\
+https://www.nytimes.com/2026/06/22/obituaries/alan-greenspan-dead.html
+
+**Mideast Live Updates: Vance Points to Progress After First Round of U.S.-Iran Talks**\
+`Vice President JD Vance said Iran had agreed to invite U.N. nuclear inspectors back into the country in the first round of negotiations that ended Monday. Iran did not immediately comment.`\
+https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
+
 **Behind the Wheel**\
 `We look into the dangers posed by large S.U.V.s and pickup trucks.`\
 https://www.nytimes.com/2026/06/22/briefing/danger-behind-the-wheel.html
