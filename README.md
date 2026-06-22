@@ -1,3 +1,7 @@
+****\
+`A funnel cloud forming in Keenes, Ill., on Sunday. Several tornadoes were reported in the region.`\
+https://www.nytimes.com/video/embedded/weather/100000010982447/21xp-tornado-jr3-21130.html
+
 **Conductor de Tesla en piloto automático choca contra una casa y mata a una mujer**\
 `El conductor dijo a los investigadores que usaba el sistema de conducción automatizada del vehículo cuando este se salió de la vía y se estrelló en el condado de Harris, Texas.`\
 https://www.nytimes.com/es/2026/06/21/espanol/tesla-piloto-automatico-choque.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/21/world/middleeast/iran-nuclear-talks-questions
 **A Glamorous Swiss Resort Hosts Officials for U.S.-Iran Talks**\
 `The Bürgenstock Resort Lake Lucerne has hosted some of the world’s wealthiest and most powerful people for more than 100 years.`\
 https://www.nytimes.com/2026/06/21/world/europe/switzerland-resort-us-iran-meeting.html
-
-**Segunda vuelta de las elecciones en Colombia: lo que hay que saber**\
-`Las votaciones de este domingo enfrentan a un candidato de derecha respaldado por Trump contra un candidato que promete continuidad con el presidente saliente de izquierda.`\
-https://www.nytimes.com/es/2026/06/21/espanol/america-latina/segunda-vuelta-elecciones-colombia.html
 
