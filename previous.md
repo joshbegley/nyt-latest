@@ -1,3 +1,7 @@
+**Tornadoes Reported in Southern Illinois Leave Trail of Damage**\
+`By Sunday night, there had already been at least 13 reports of tornadic activity or damage, a meteorologist said.`\
+https://www.nytimes.com/2026/06/21/us/tornado-warning-illinois-weather.html
+
 **La presidenta del Banco Central de Rusia aparece tras 2 semanas de ausencia**\
 `Elvira Nabiullina dio un mensaje de tranquilidad en una rueda de prensa después de un paréntesis que evidenció profundas tensiones en la élite política y económica del país.`\
 https://www.nytimes.com/es/2026/06/21/espanol/mundo/rusia-banco-central.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/21/espanol/america-latina/segunda-vuelta-elec
 **No Corrections: June 21, 2026**\
 `No corrections appeared in print on Sunday, June 21, 2026.`\
 https://www.nytimes.com/2026/06/21/pageoneplus/no-corrections-june-21-2026.html
-
-**Are There Limits to an Apology?**\
-`What a Catholic abuse settlement offer reveals about reparative justice.`\
-https://www.nytimes.com/2026/06/21/briefing/are-there-limits-to-an-apology.html
 

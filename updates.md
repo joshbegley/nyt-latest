@@ -1,3 +1,7 @@
+**Tornadoes Reported in Southern Illinois Leave Trail of Damage**\
+`By Sunday night, there had already been at least 13 reports of tornadic activity or damage, a meteorologist said.`\
+https://www.nytimes.com/2026/06/21/us/tornado-warning-illinois-weather.html
+
 **La presidenta del Banco Central de Rusia aparece tras 2 semanas de ausencia**\
 `Elvira Nabiullina dio un mensaje de tranquilidad en una rueda de prensa después de un paréntesis que evidenció profundas tensiones en la élite política y económica del país.`\
 https://www.nytimes.com/es/2026/06/21/espanol/mundo/rusia-banco-central.html
