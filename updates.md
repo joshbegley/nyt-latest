@@ -1,3 +1,7 @@
+**Judge Finds Justice Dept. Overreach in Subpoenas to Minnesota Officials**\
+`The judge quashed the subpoenas, writing that they were designed to “harass and retaliate against” Democratic officials who bucked the Trump administration on immigration enforcement.`\
+https://www.nytimes.com/2026/06/22/us/minnesota-democrats-judge-ruling.html
+
 **Keir Starmer Resigns as UK Prime Minister**\
 `His departure in the coming weeks clears a path for Andy Burnham, a popular Labour Party mayor, to become the country’s seventh prime minister in a decade.`\
 https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-andy-burnham-prime-minister-britain.html

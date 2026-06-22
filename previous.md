@@ -1,3 +1,7 @@
+**Judge Finds Justice Dept. Overreach in Subpoenas to Minnesota Officials**\
+`The judge quashed the subpoenas, writing that they were designed to “harass and retaliate against” Democratic officials who bucked the Trump administration on immigration enforcement.`\
+https://www.nytimes.com/2026/06/22/us/minnesota-democrats-judge-ruling.html
+
 **Keir Starmer Resigns as UK Prime Minister**\
 `His departure in the coming weeks clears a path for Andy Burnham, a popular Labour Party mayor, to become the country’s seventh prime minister in a decade.`\
 https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-andy-burnham-prime-minister-britain.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/22/espanol/america-latina/bloqueo-cuba-crisis
 **South Korea’s Starbucks Shut Early After ‘Tank Day’ Promotion Debacle**\
 `All Starbucks stores in South Korea shut early on Monday because of a franchise-wide training instituted in the wake of a disastrous marketing campaign.`\
 https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-controversy-closure.html
-
-**Thousands Are Fleeing as Putin Bombs the Donbas Cities He Most Covets**\
-`While Kyiv’s fortunes have brightened in other ways in the war, Moscow’s forces are raining bombs and drones on “fortress belt” cities like Sloviansk and Kramatorsk.`\
-https://www.nytimes.com/2026/06/22/world/europe/ukraine-donetsk-donbas-sloviansk-kramatorsk-russia.html
 
