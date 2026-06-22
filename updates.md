@@ -1,3 +1,19 @@
+**After Starmer Quits, Investors Wonder Where the British Economy Goes Next**\
+`Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
+https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
+
+**Supreme Court Restores Conviction in 1979 Murder of Etan Patz**\
+`Pedro Hernandez was convicted in 2017 of kidnapping and murdering the 6-year-old boy, but an appeals court in July had said Mr. Hernandez was entitled to a new trial.`\
+https://www.nytimes.com/2026/06/22/us/politics/etan-patz-pedro-hernandez.html
+
+**U.S. Oil Is Skipping the Chance to Grab Market Share From the Gulf**\
+`U.S. oil production is expected to grow only modestly next year as companies hesitate to spend more in an uncertain market.`\
+https://www.nytimes.com/2026/06/22/business/energy-environment/iran-war-us-oil-companies.html
+
+**The Guardrails Designed to Protect U.S.-Iran Talks**\
+`The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/will-do-iran-us-peace-talks-lebanon-hormuz.html
+
 **Pakistan Plans to Cut Tax on Menstrual Pads, but Many Say It’s Not Enough**\
 `Activists said more action was needed to solve the larger problem: Only 12 percent of Pakistani women and girls use safe, commercially made menstrual products.`\
 https://www.nytimes.com/2026/06/22/world/asia/pakistan-menstrual-period-tax.html

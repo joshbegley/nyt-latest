@@ -1,3 +1,15 @@
+**After Starmer Quits, Investors Wonder Where the British Economy Goes Next**\
+`Markets reacted calmly to the prime minister’s announcement, which laid out a timeline for succession. Still, there’s not much clarity about the next government.`\
+https://www.nytimes.com/2026/06/22/business/starmer-burnham-chancellor.html
+
+**Supreme Court Restores Conviction in 1979 Murder of Etan Patz**\
+`Pedro Hernandez was convicted in 2017 of kidnapping and murdering the 6-year-old boy, but an appeals court in July had said Mr. Hernandez was entitled to a new trial.`\
+https://www.nytimes.com/2026/06/22/us/politics/etan-patz-pedro-hernandez.html
+
+**U.S. Oil Is Skipping the Chance to Grab Market Share From the Gulf**\
+`U.S. oil production is expected to grow only modestly next year as companies hesitate to spend more in an uncertain market.`\
+https://www.nytimes.com/2026/06/22/business/energy-environment/iran-war-us-oil-companies.html
+
 **Pakistan Plans to Cut Tax on Menstrual Pads, but Many Say It’s Not Enough**\
 `Activists said more action was needed to solve the larger problem: Only 12 percent of Pakistani women and girls use safe, commercially made menstrual products.`\
 https://www.nytimes.com/2026/06/22/world/asia/pakistan-menstrual-period-tax.html
@@ -16,7 +28,7 @@ https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
 
 **The Guardrails Designed to Protect U.S.-Iran Talks**\
 `The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/the-guardrails-designed-to-protect-us-iran-talks.html
+https://www.nytimes.com/2026/06/22/world/middleeast/will-do-iran-us-peace-talks-lebanon-hormuz.html
 
 ****\
 `(No description)`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/22/opinion/schools-testing-accountability.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010982784/22vid-starmer-clip-2-27012.html
-
-**Going to a National Park This Summer? Here’s What to Expect.**\
-`Huge visitor numbers, sharply reduced staffing, scrapped reservation systems and higher entry fees for nonresidents could make your trip a bit less serene.`\
-https://www.nytimes.com/2026/06/22/travel/national-park-visit-yosemite-yellowstone-grand-canyon.html
-
-**5 Foods That Contain Both Protein and Fiber**\
-`It’s challenging to find the two nutrients in a single food, experts say. These categories offer a nice mix.`\
-https://www.nytimes.com/2026/06/22/well/eat/fiber-protein-foods.html
-
-**California Needs Water and Clean Power. It Might Have a Fix for Both.**\
-`A pilot program is building solar panels over irrigation canals to generate electricity. As a bonus, the shade prevents water from evaporating.`\
-https://www.nytimes.com/2026/06/22/climate/california-canals-solar-panels-water-nexus.html
 
