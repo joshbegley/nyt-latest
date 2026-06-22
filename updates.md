@@ -1,3 +1,23 @@
+**Keir Starmer Delivers Speech From Downing Street**\
+`Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
+https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
+
+**Right-Wing Outsider Appears to Win Colombia’s Election**\
+`President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
+https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
+
+**U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
+`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
+
+**Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
+`The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
+https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
+
+**NYT Spelling Bee Answers for June 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
+
 **Who Will Replace Keir Starmer as UK Prime Minister? Here’s What Happens Next.**\
 `Keir Starmer, the British prime minister, could be replaced through a full leadership contest. But if the top contender, Andy Burnham, is the only candidate, the process will be much faster.`\
 https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prime-minister-burnham-uk.html

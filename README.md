@@ -1,3 +1,23 @@
+**Who Will Replace Keir Starmer as UK Prime Minister? Here’s What Happens Next.**\
+`Keir Starmer, the British prime minister, could be replaced through a full leadership contest. But if the top contender, Andy Burnham, is the only candidate, the process will be much faster.`\
+https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prime-minister-burnham-uk.html
+
+**Is China Closing the A.I. Gap Faster Than Expected?**\
+`Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
+https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
+
+**Test Your Knowledge of History’s Most Famous Libraries**\
+`Try this short quiz on five of the globe’s renowned repositories of human learning.`\
+https://www.nytimes.com/interactive/2026/06/22/books/review/world-libraries-quiz.html
+
+**What to Know About Heat in Europe This Week**\
+`Big parts of Europe are under high-level warnings for extreme heat, with forecasters predicting “severe” weather impact.`\
+https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.html
+
+**Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
+`The pre-eminent economic policymaker of his time and a skilled political operator, he favored market-friendly stances that would later come to be associated with destructive financial forces.`\
+https://www.nytimes.com/2026/06/22/us/alan-greenspan-dead.html
+
 **Behind the Wheel**\
 `We look into the dangers posed by large S.U.V.s and pickup trucks.`\
 https://www.nytimes.com/2026/06/22/briefing/danger-behind-the-wheel.html
@@ -126,7 +146,7 @@ https://www.nytimes.com/2026/06/22/nyregion/metropolitan-diary-50th-anniversary.
 `Bret McKenzie and Jemaine Clement are routinely asked about performing their musical satires again. They always said no, until this year. What changed?`\
 https://www.nytimes.com/2026/06/22/arts/television/flight-of-the-conchords-jemaine-clement-bret-mckenzie.html
 
-**Would You Want to Know Your Baby’s Genetic Future?**\
+**In the Near Future, All Babies May Receive Genetic Testing. We Need to Prepare.**\
 `A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
 https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
 
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/06/22/world/middleeast/qatar-explosion-gas.html
 **First Round of U.S.-Iran Talks End, Mediators Say**\
 `The first round of negotiations between Washington and Tehran in Switzerland ended with a “roadmap” to reach a final deal within 60 days, Pakistani and Qatari mediators said.`\
 https://www.nytimes.com/video/world/middleeast/100000010982591/first-round-of-us-iran-talks-end-mediators-say.html
-
-**Keir Starmer Delivers Speech From Downing Street**\
-`Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
-https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
-
-**Right-Wing Outsider Appears to Win Colombia’s Election**\
-`President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
-https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
-
-**U.K. Live Updates: Starmer Announces Resignation; Burnham Wins Key Endorsement**\
-`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. Andy Burnham, the party’s most popular politician, said he would seek the prime minister’s job and secured the support of a potential rival.`\
-https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
-
-**Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
-`The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
-https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
-
-**NYT Spelling Bee Answers for June 22, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
 
