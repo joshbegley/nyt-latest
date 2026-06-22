@@ -1,3 +1,7 @@
+**Two Boys Arrested After Deadly School Shooting in the Philippines**\
+`Three people were killed and seven wounded after two ninth graders opened fire on Monday morning in Tacloban City, the police said.`\
+https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-tacloban.html
+
 **Embattled Superintendent of Los Angeles School District Resigns**\
 `Alberto Carvalho resigned Sunday, months after the F.B.I. raided his home and office. He came to Los Angeles from Miami with a reputation for raising student test scores but also made missteps.`\
 https://www.nytimes.com/2026/06/22/us/superintendent-lausd-alberto-carvalho-resigns.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/21/world/europe/ukraine-poland-alliance-russia.h
 **Keir Starmer Reflects on ‘Political Challenges’ as Pressure to Resign Mounts**\
 `An ally of Keir Starmer’s told the BBC on Sunday that Mr. Starmer was “taking the time to think through what the political realities are today compared to last week.”`\
 https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.html
-
-**Sweet or Salty?**\
-`We catch up with The Times’s restaurant critics.`\
-https://www.nytimes.com/2026/06/21/briefing/sweet-or-salty.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
