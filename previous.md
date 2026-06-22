@@ -1,3 +1,7 @@
+**Iran Team Leaves Locker Room Note: The ‘Spirit of Iran Remains Alive and Steadfast’**\
+`After fighting Belgium to a draw for one of Iran’s best World Cup results, the Iranians had a note for their fans and the world.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/iran-world-cup-locker-room-note.html
+
 **Clive Davis Knew to Let Patti Smith Have Free Rein**\
 `For Patti Smith, the best guidance was something that Davis rarely granted: free rein.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-patti-smith.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-depo
 **5 alimentos que contienen fibra y proteína**\
 `Encontrar ambos nutrientes en un solo alimento no es fácil. Estas categorías son una buena opción, según los expertos.`\
 https://www.nytimes.com/es/2026/06/22/espanol/fibra-proteina-alimentos.html
-
-**Do You Find the ‘Tradwife’ Lifestyle Intriguing? Tell Us Why.**\
-`For women who are newly interested in traditional gender roles and lifestyles: What’s making you feel this way?`\
-https://www.nytimes.com/2026/06/22/us/traditional-gender-roles.html
 

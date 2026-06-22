@@ -1,3 +1,7 @@
+**Iran Team Leaves Locker Room Note: The ‘Spirit of Iran Remains Alive and Steadfast’**\
+`After fighting Belgium to a draw for one of Iran’s best World Cup results, the Iranians had a note for their fans and the world.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/iran-world-cup-locker-room-note.html
+
 **The Patriot Housewife Whose Plays Helped Push American Toward Revolution**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html

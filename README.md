@@ -1,3 +1,7 @@
+**Keir Starmer renuncia como primer ministro del Reino Unido. ¿Qué sigue ahora?**\
+`Su salida allana el camino para que Andy Burnham, un popular exalcalde del Partido Laborista, se convierta en el séptimo primer ministro del país en una década.`\
+https://www.nytimes.com/es/2026/06/22/espanol/mundo/keir-starmer-renuncia-reino-unido.html
+
 **Iran Team Leaves Locker Room Note: The ‘Spirit of Iran Remains Alive and Steadfast’**\
 `After fighting Belgium to a draw for one of Iran’s best World Cup results, the Iranians had a note for their fans and the world.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/iran-world-cup-locker-room-note.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000010982931/andy-burnham-starmer-
 **Taliban and E.U. Officials to Discuss Afghan Deportees in Brussels**\
 `The delegation received visas from Belgium to attend talks with the European Union about the deportation of Afghans. Officials in Afghanistan said the meeting would take place on Tuesday.`\
 https://www.nytimes.com/2026/06/22/world/europe/afganistan-taliban-brussels-deportees.html
-
-**5 alimentos que contienen fibra y proteína**\
-`Encontrar ambos nutrientes en un solo alimento no es fácil. Estas categorías son una buena opción, según los expertos.`\
-https://www.nytimes.com/es/2026/06/22/espanol/fibra-proteina-alimentos.html
 
