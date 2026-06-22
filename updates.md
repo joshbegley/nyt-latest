@@ -1,3 +1,7 @@
+**Boyle Heights Warehouse Fire Spreads Smoke Across Los Angeles**\
+`Firefighters say they are making progress against the blaze, which began Wednesday at a cold-storage facility. But smoke continued to blow across the region, and the authorities reiterated air-quality warnings.`\
+https://www.nytimes.com/2026/06/21/us/warehouse-fire-la-los-angeles-smoke.html
+
 **Resultados de las elecciones de Colombia: De la Espriella se perfila ganador**\
 `La victoria del candidato respaldado por Trump supondría un revés para la izquierda y otra victoria para la derecha en Latinoamérica.`\
 https://www.nytimes.com/es/2026/06/21/espanol/america-latina/elecciones-colombia-resultados-delaespriella.html
