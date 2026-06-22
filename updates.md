@@ -1,3 +1,11 @@
+**Vance Says Iran Will Allow Nuclear Watchdog to Restart Inspections**\
+`Vice President JD Vance said Iran had agreed to invite experts from the U.N. agency to resume operations in the country. Tehran and the nuclear watchdog have not commented.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-nuclear-inspections.html
+
+**11 Essential Songs Shepherded by Clive Davis**\
+`The label boss, who died on Monday, had a passion for hits — especially ones he masterminded — during his formidable tenures at Columbia, Arista and J Records.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-songs.html
+
 **How Will Colombia’s New President Fuel Trump’s Drug War?**\
 `Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
 https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html

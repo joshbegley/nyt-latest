@@ -1,3 +1,11 @@
+**Vance Says Iran Will Allow Nuclear Watchdog to Restart Inspections**\
+`Vice President JD Vance said Iran had agreed to invite experts from the U.N. agency to resume operations in the country. Tehran and the nuclear watchdog have not commented.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-nuclear-inspections.html
+
+**11 Essential Songs Shepherded by Clive Davis**\
+`The label boss, who died on Monday, had a passion for hits — especially ones he masterminded — during his formidable tenures at Columbia, Arista and J Records.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-songs.html
+
 **How Will Colombia’s New President Fuel Trump’s Drug War?**\
 `Abelardo De La Espriella, who has vowed to destroy traffickers with military power, appears set to be the country’s next president.`\
 https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/world/americas/cuba-oil-gas-crisis-schools-ed
 **The Dispute Over Events for America’s 250th Birthday, Explained**\
 `Two national groups, including one backed by President Trump, have planned an array of activities to celebrate the country’s semiquincentennial. States are also hosting many events.`\
 https://www.nytimes.com/2026/06/22/us/dispute-americas-250th-birthday-explained.html
-
-**The Rise of Deadly Trucks and S.U.V.s**\
-`A once-steady decline in pedestrian deaths in the United States has reversed, even as other countries have grown safer. Michael Keller, a New York Times investigative reporter, used crash test results, 3-D visibility scans and real-world reconstructions to explore how the boom in taller, heavier trucks and S.U.V.s has changed what happens when a person is struck.`\
-https://www.nytimes.com/video/us/100000010977042/the-rise-of-deadly-trucks-and-suvs.html
-
-**Cannibals, Lobotomies, Lethal Birds: A Tennessee Williams Opera**\
-`“Suddenly Last Summer,” the composer Courtney Bryan’s first opera, adapts Williams’s play for Bard SummerScape.`\
-https://www.nytimes.com/2026/06/22/arts/music/suddenly-last-summer-tennessee-williams-courtney-bryan-daniel-fish.html
 
