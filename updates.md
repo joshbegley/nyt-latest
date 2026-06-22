@@ -1,3 +1,7 @@
+**Un exaliado de Pedro Sánchez es condenado a 24 años de cárcel**\
+`José Luis Ábalos, que en su día fue ministro en el gobierno del presidente Pedro Sánchez, ha sido condenado por delitos de corrupción. La sentencia agrava la crisis en el entorno de Sánchez.`\
+https://www.nytimes.com/es/2026/06/22/espanol/mundo/abalos-psoe-condenado-cohecho.html
+
 **The Moment Alan Greenspan Should Be Remembered For**\
 `A crucial episode in the famous Fed chair’s legacy.`\
 https://www.nytimes.com/2026/06/22/opinion/alan-greenspan-federal-reserve.html

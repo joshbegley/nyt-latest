@@ -1,3 +1,7 @@
+**Un exaliado de Pedro Sánchez es condenado a 24 años de cárcel**\
+`José Luis Ábalos, que en su día fue ministro en el gobierno del presidente Pedro Sánchez, ha sido condenado por delitos de corrupción. La sentencia agrava la crisis en el entorno de Sánchez.`\
+https://www.nytimes.com/es/2026/06/22/espanol/mundo/abalos-psoe-condenado-cohecho.html
+
 **The Moment Alan Greenspan Should Be Remembered For**\
 `A crucial episode in the famous Fed chair’s legacy.`\
 https://www.nytimes.com/2026/06/22/opinion/alan-greenspan-federal-reserve.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/arts/music/mozart-music-flute-harp.html
 **First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
 `Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
 https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
-
-**R.F.K. Jr.’s Newest Mission: Getting Us Off Antidepressants**\
-`The process of “deprescribing,” in which a doctor helps a patient taper off a psychiatric medication, is now being considered in the development of federal health policy.`\
-https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-getting-us-off-antidepressants.html
 
