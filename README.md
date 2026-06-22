@@ -1,3 +1,11 @@
+**First Round of U.S.-Iran Talks End, Mediators Say**\
+`The first round of negotiations between Washington and Tehran in Switzerland ended with a “roadmap” to reach a final deal within 60 days, Pakistani and Qatari mediators said.`\
+https://www.nytimes.com/video/world/middleeast/100000010982591/first-round-of-us-iran-talks-end-mediators-say.html
+
+**Keir Starmer Delivers Speech From Downing Street**\
+`Prime Minister Keir Starmer of Britain is making a speech as pressure has mounted for him to resign.`\
+https://www.nytimes.com/video/embedded/world/europe/100000010982716/keir-starmer-delivers-speech-from-downing-street.html
+
 **Right-Wing Outsider Appears to Win Colombia’s Election**\
 `President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
 https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/21/arts/design/basel-switzerland-art-development
 **U.S. and Iran Have Plenty to Negotiate Beyond Nuclear Issues**\
 `Both sides have committed to discussing sanctions relief and the shape of a reconstruction fund, as well as Iran’s nuclear program.`\
 https://www.nytimes.com/2026/06/21/world/middleeast/us-iran-negotiations-issues.html
-
-**Netanyahu faces one of the biggest challenges of his career.**\
-`In a ‘plot twist’, Prime Minister Benjamin Netanyahu appears to be heading into an election this fall without his main prop: President Trump.`\
-https://www.nytimes.com/2026/06/21/world/middleeast/netanyahu-iran-deal-trump.html
-
-**Melissa Clark's Buttermilk Pancakes and More Father’s Day Recipes**\
-`That’s breakfast for Dad, done. Then for dinner, how about Sam Sifton’s BBQ chicken?`\
-https://www.nytimes.com/2026/06/21/dining/my-very-best-buttermilk-pancakes.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
