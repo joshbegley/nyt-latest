@@ -1,3 +1,11 @@
+**El bloqueo de EE. UU. a Cuba hace que los niños falten a la escuela**\
+`La escasez de petróleo ha desencadenado una crisis energética que ha paralizado en gran medida el transporte y, como consecuencia, menos alumnos y profesores pueden llegar a las aulas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/america-latina/bloqueo-cuba-crisis-escuelas.html
+
+**U.K. Live Updates: Starmer Announces Resignation as Prime Minister**\
+`Prime Minister Keir Starmer stepped down as leader of the governing Labour Party. His decision clears the way for Britain’s seventh prime minister in the last decade.`\
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign
+
 **South Korea’s Starbucks Shut Early After ‘Tank Day’ Promotion Debacle**\
 `All Starbucks stores in South Korea shut early on Monday because of a franchise-wide training instituted in the wake of a disastrous marketing campaign.`\
 https://www.nytimes.com/2026/06/22/world/asia/south-korea-starbucks-tank-day-controversy-closure.html
