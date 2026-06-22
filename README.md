@@ -1,3 +1,23 @@
+**R.F.K. Jr.’s Newest Mission: Getting Us Off Antidepressants**\
+`The process of “deprescribing,” in which a doctor helps a patient taper off a psychiatric medication, is now being considered in the development of federal health policy.`\
+https://www.nytimes.com/2026/06/22/podcasts/the-daily/rfk-jrs-newest-mission-getting-us-off-antidepressants.html
+
+**The Key Players in the U.S.-Iran Talks, and the Deadly Rise of Giant Trucks and S.U.V.s**\
+`Plus, the “Steven Spielberg of sitcoms.”`\
+https://www.nytimes.com/2026/06/22/podcasts/the-headlines/the-key-players-in-the-us-iran-talks-and-the-deadly-rise-of-giant-trucks-and-suvs.html
+
+**NYT Connections Answers for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/connections-companion-1108.html
+
+**NYT Strands Hints for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/strands-sidekick-842.html
+
+**Today’s Wordle Hints for June 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/22/crosswords/wordle-review-1830.html
+
 **Starmer Resigns as U.K. Prime Minister and Labour Party Leader**\
 `Keir Starmer of Britain resigned as leader of the Labour Party and said he would remain prime minister until a new party leader was selected.`\
 https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-keir-starmer-resigns.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/06/22/us/superintendent-lausd-alberto-carvalho-resi
 **Word of the Day: equipoise**\
 `This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/22/learning/word-of-the-day-equipoise.html
-
-**¿Qué cambió tras casi cuatro meses de guerra? Según los analistas, casi nada**\
-`Ni la guerra ni el acuerdo eliminaron las principales amenazas que emanan de Irán, según numerosos analistas.`\
-https://www.nytimes.com/es/2026/06/22/espanol/mundo/cambio-iran-acuerdo-guerra.html
-
-**Ten Years After Brexit, the Dismal Verdict Is In**\
-`Brexit was supposed to let Britain return to a time when it still counted as a global power. A decade later, the costs are blindingly apparent.`\
-https://www.nytimes.com/2026/06/22/opinion/brexit-britain-europe-power.html
-
-**‘The Bear’ and 7 More Shows to Watch on TV This Week**\
-`The hit FX series reaches its fifth and final season. The BET Awards are live in Los Angeles.`\
-https://www.nytimes.com/2026/06/22/arts/television/the-bear-tv-this-week.html
-
-**Oil Prices Fall as U.S.-Iran Talks Show Signs of Progress**\
-`Oil prices retreated after Iran’s foreign minister said there had been “major progress” toward ending the fighting in Lebanon during the first session of high-level talks.`\
-https://www.nytimes.com/2026/06/22/business/oil-gas-price-iran.html
-
-****\
-`tktktkt`\
-https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips-HS.html
 
