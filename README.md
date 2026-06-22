@@ -1,3 +1,7 @@
+**U.S. Temporarily Lifts Sanctions on Iranian Oil**\
+`In a sharp reversal of American policy, the Treasury announced a 60-day reprieve, permitting the sale of Iranian crude as part of the preliminary U.S.-Iran deal toward ending the war.`\
+https://www.nytimes.com/2026/06/22/world/middleeast/us-sanctions-reprieve-iran-oil.html
+
 **Why Older People Are Divorcing More Than They Used To**\
 `Rates of gray divorce have risen sharply over the past few decades — and experts have a few theories as to why.`\
 https://www.nytimes.com/2026/06/22/well/family/gray-divorce-empty-shell-marriage.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/22/arts/television/flight-of-the-conchords-jemai
 **Doctors Can Test Your Baby for Hundreds of Genetic Anomalies. Should They?**\
 `A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
 https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
-
-**The ‘No Child Left Behind’ Nostalgia Is Delusional**\
-`Test scores are poor measures of an education.`\
-https://www.nytimes.com/2026/06/22/opinion/schools-testing-accountability.html
 
