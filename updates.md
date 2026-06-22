@@ -1,3 +1,11 @@
+****\
+`A funnel cloud forming in Keenes, Ill., on Sunday. Several tornadoes were reported in the region.`\
+https://www.nytimes.com/video/embedded/weather/100000010982447/21xp-tornado-jr3-21130.html
+
+**Conductor de Tesla en piloto automático choca contra una casa y mata a una mujer**\
+`El conductor dijo a los investigadores que usaba el sistema de conducción automatizada del vehículo cuando este se salió de la vía y se estrelló en el condado de Harris, Texas.`\
+https://www.nytimes.com/es/2026/06/21/espanol/tesla-piloto-automatico-choque.html
+
 **Tornadoes Reported in Southern Illinois Leave Trail of Damage**\
 `By Sunday night, there had already been at least 13 reports of tornadic activity or damage, a meteorologist said.`\
 https://www.nytimes.com/2026/06/21/us/tornado-warning-illinois-weather.html
