@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3 Premiere Recap: A Song of Water and Fire**\
+`The Dance of the Dragons got into full swing with no shortage of blood, flames and intrigue, much of it at sea.`\
+https://www.nytimes.com/2026/06/21/arts/television/house-of-the-dragon-recap-season-3-episode-1.html
+
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
