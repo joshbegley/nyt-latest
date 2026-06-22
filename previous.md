@@ -1,3 +1,19 @@
+**Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
+`The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
+https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
+
+**NYT Spelling Bee Answers for June 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
+
+**He Provided Security to 3 Governors. Then He Snapped.**\
+`Lt. Ricardo Santos of the New Jersey State Police had faced questions about his judgment and conduct before he became the primary suspect in a double murder-suicide.`\
+https://www.nytimes.com/2026/06/22/nyregion/new-jersey-state-trooper-murder-couple.html
+
+**For Schlossberg, Quirky Charm and a Claim to Camelot May Not Be Enough**\
+`Jack Schlossberg, the grandson of John F. Kennedy, has found it difficult to overcome some of his perceived shortcomings in a high-profile House primary race.`\
+https://www.nytimes.com/2026/06/22/nyregion/jack-schlossberg-campaign-congress.html
+
 **Two Boys Arrested After Deadly School Shooting in the Philippines**\
 `Three people were killed and seven wounded after two ninth graders opened fire on Monday morning in Tacloban City, the police said.`\
 https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-tacloban.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/06/21/dining/five-fast-dinners-i-will-definitely-ma
 **Menopause and the Failure of Women’s Health Care**\
 `Readers respond to “Menopause Should Not Be Such a Mystery,” an Opinion guest essay by Melinda French Gates.`\
 https://www.nytimes.com/2026/06/21/opinion/menopause-women-health.html
-
-**Maps: Tracking Typhoon Mekkhala**\
-`See the likely path and wind arrival times for Mekkhala`\
-https://www.nytimes.com/interactive/2026/06/21/weather/mekkhala-map-path-tracker.html
-
-**Three Men Are Key to Iran’s Approach to U.S. Talks**\
-`Iran’s supreme leader, foreign minister and parliament speaker all play central roles in hammering out an agreement with Washington.`\
-https://www.nytimes.com/2026/06/21/world/middleeast/three-men-are-key-to-irans-approach-to-us-talks.html
-
-**Bitter Historical Feud Threatens Ukraine-Poland Alliance**\
-`President Volodymyr Zelensky of Ukraine signed a decree honoring World War II partisan fighters that has inflamed tensions with Warsaw.`\
-https://www.nytimes.com/2026/06/21/world/europe/ukraine-poland-alliance-russia.html
-
-**Keir Starmer Reflects on ‘Political Challenges’ as Pressure to Resign Mounts**\
-`An ally of Keir Starmer’s told the BBC on Sunday that Mr. Starmer was “taking the time to think through what the political realities are today compared to last week.”`\
-https://www.nytimes.com/2026/06/21/world/europe/keir-starmer-andy-burnham-uk.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\

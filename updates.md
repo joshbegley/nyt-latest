@@ -1,3 +1,19 @@
+**Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
+`The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
+https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
+
+**NYT Spelling Bee Answers for June 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/22/crosswords/spelling-bee-forum.html
+
+**He Provided Security to 3 Governors. Then He Snapped.**\
+`Lt. Ricardo Santos of the New Jersey State Police had faced questions about his judgment and conduct before he became the primary suspect in a double murder-suicide.`\
+https://www.nytimes.com/2026/06/22/nyregion/new-jersey-state-trooper-murder-couple.html
+
+**For Schlossberg, Quirky Charm and a Claim to Camelot May Not Be Enough**\
+`Jack Schlossberg, the grandson of John F. Kennedy, has found it difficult to overcome some of his perceived shortcomings in a high-profile House primary race.`\
+https://www.nytimes.com/2026/06/22/nyregion/jack-schlossberg-campaign-congress.html
+
 **Two Boys Arrested After Deadly School Shooting in the Philippines**\
 `Three people were killed and seven wounded after two ninth graders opened fire on Monday morning in Tacloban City, the police said.`\
 https://www.nytimes.com/2026/06/22/world/asia/philippines-school-shooting-tacloban.html
