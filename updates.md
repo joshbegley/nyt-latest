@@ -1,3 +1,15 @@
+**Pakistan Plans to Cut Tax on Menstrual Pads, but Many Say It’s Not Enough**\
+`Activists said more action was needed to solve the larger problem: Only 12 percent of Pakistani women and girls use safe, commercially made menstrual products.`\
+https://www.nytimes.com/2026/06/22/world/asia/pakistan-menstrual-period-tax.html
+
+**How Many Prime Ministers Has the UK Had Since Brexit?**\
+`The years since the Brexit vote have been some of the most tumultuous in Britain’s recent political history. Here’s a look at the revolving door in Downing Street.`\
+https://www.nytimes.com/2026/06/22/world/europe/starmer-resigns-uk-prime-ministers-how-long.html
+
+**Cuba’s Fuel Crisis Brings Schools to a Standstill**\
+`The country’s already-struggling schools are ending the academic year early because of a crippling fuel shortage caused by the U.S. oil blockade.`\
+https://www.nytimes.com/2026/06/22/world/americas/cuba-oil-gas-crisis-schools-education.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnham-swearing-in-28680.html

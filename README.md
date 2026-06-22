@@ -16,7 +16,7 @@ https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
 
 **The Guardrails Designed to Protect U.S.-Iran Talks**\
 `The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/the-guardrails-designed-to-protect-us-iran-talks.html
+https://www.nytimes.com/2026/06/22/world/middleeast/will-do-iran-us-peace-talks-lebanon-hormuz.html
 
 ****\
 `(No description)`\
