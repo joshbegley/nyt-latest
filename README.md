@@ -1,3 +1,7 @@
+**Netflix Buys a ‘Hot Ones’ Spinoff**\
+`The streaming giant bought a spinoff of a popular online interview series that features celebrities eating fiery chicken wings, the latest salvo in its rivalry with YouTube.`\
+https://www.nytimes.com/2026/06/22/business/media/hot-ones-sean-evans-netflix.html
+
 **Historic Brooklyn Church Destroyed in Fire**\
 `The South Bushwick Church was engulfed in flames on Friday, and the cause of the fire is still under investigation. The church was built in 1853 and is Bushwick’s oldest landmark, according to an expert.`\
 https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prim
 **Is China Closing the A.I. Gap Faster Than Expected?**\
 `Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
 https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
-
-**Test Your Knowledge of History’s Most Famous Libraries**\
-`Try this short quiz on five of the globe’s renowned repositories of human learning.`\
-https://www.nytimes.com/interactive/2026/06/22/books/review/world-libraries-quiz.html
 
