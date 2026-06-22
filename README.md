@@ -1,3 +1,7 @@
+**U.K. Live Updates: Starmer Faces Mounting Pressure to Step Down**\
+`A sagging economy and policy flip-flops have fueled demands within the Labour Party for Prime Minister Keir Starmer to resign. He could announce a decision as early as Monday.`\
+https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure
+
 **Staten Island Was Promised a Sea Wall After Sandy. It’s Still Waiting.**\
 `The U.S. Army fired the contractor building the 4.3-mile-long structure. More than 13 years ago, a hurricane killed 24 people in the borough.`\
 https://www.nytimes.com/2026/06/22/nyregion/staten-island-sea-wall-delayed.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/21/dining/my-very-best-buttermilk-pancakes.html
 **Five Fast Dinners I Will Definitely Make Again**\
 `Starting with this easy but elegant spicy sardine pasta with leeks and lemon.`\
 https://www.nytimes.com/2026/06/21/dining/five-fast-dinners-i-will-definitely-make-again.html
-
-**Menopause and the Failure of Women’s Health Care**\
-`Readers respond to “Menopause Should Not Be Such a Mystery,” an Opinion guest essay by Melinda French Gates.`\
-https://www.nytimes.com/2026/06/21/opinion/menopause-women-health.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
