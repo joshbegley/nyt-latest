@@ -1,3 +1,7 @@
+**Officers provide update on the shooting in Montreal on Monday.**\
+`Officials provide an update on the shooting in Montreal.`\
+https://www.nytimes.com/video/world/americas/100000010984199/officers-provide-update-on-the-shooting-in-montreal-on-monday.html
+
 **Netflix Buys a ‘Hot Ones’ Spinoff**\
 `The streaming giant bought a spinoff of a popular online interview series that features celebrities eating fiery chicken wings, the latest salvo in its rivalry with YouTube.`\
 https://www.nytimes.com/2026/06/22/business/media/hot-ones-sean-evans-netflix.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000010982983/22vid-burnha
 **Who Will Replace Keir Starmer as UK Prime Minister? Here’s What Happens Next.**\
 `Keir Starmer, the British prime minister, could be replaced through a full leadership contest. But if the top contender, Andy Burnham, is the only candidate, the process will be much faster.`\
 https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-resign-replace-prime-minister-burnham-uk.html
-
-**Is China Closing the A.I. Gap Faster Than Expected?**\
-`Silicon Valley and corporate America are increasingly turning to cheaper, open-source artificial intelligence models built in China.`\
-https://www.nytimes.com/2026/06/22/business/dealbook/china-closing-ai-gap.html
 

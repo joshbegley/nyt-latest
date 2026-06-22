@@ -1,3 +1,7 @@
+**Officers provide update on the shooting in Montreal on Monday.**\
+`Officials provide an update on the shooting in Montreal.`\
+https://www.nytimes.com/video/world/americas/100000010984199/officers-provide-update-on-the-shooting-in-montreal-on-monday.html
+
 **Netflix Buys a ‘Hot Ones’ Spinoff**\
 `The streaming giant bought a spinoff of a popular online interview series that features celebrities eating fiery chicken wings, the latest salvo in its rivalry with YouTube.`\
 https://www.nytimes.com/2026/06/22/business/media/hot-ones-sean-evans-netflix.html
