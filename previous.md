@@ -1,3 +1,7 @@
+**What is the Heat Dome Causing Europe’s Record Temperatures?**\
+`Heat domes happen all over the world, and the one over Europe this week is locking in days of near-record highs across Britain, Spain and France.`\
+https://www.nytimes.com/2026/06/22/weather/europe-heat-dome.html
+
 **Vance Says Iran Will Allow Nuclear Watchdog to Restart Inspections**\
 `Vice President JD Vance said Iran had agreed to invite experts from the U.N. agency to resume operations in the country. Tehran and the nuclear watchdog have not commented.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-nuclear-inspections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/realestate/parks-slope-library-house-renovati
 **Cuba’s Fuel Crisis Brings Schools to a Standstill**\
 `The country’s already-struggling schools are ending the academic year early because of a crippling fuel shortage caused by the U.S. oil blockade.`\
 https://www.nytimes.com/2026/06/22/world/americas/cuba-oil-gas-crisis-schools-education.html
-
-**The Dispute Over Events for America’s 250th Birthday, Explained**\
-`Two national groups, including one backed by President Trump, have planned an array of activities to celebrate the country’s semiquincentennial. States are also hosting many events.`\
-https://www.nytimes.com/2026/06/22/us/dispute-americas-250th-birthday-explained.html
 

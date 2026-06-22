@@ -1,3 +1,7 @@
+**What is the Heat Dome Causing Europe’s Record Temperatures?**\
+`Heat domes happen all over the world, and the one over Europe this week is locking in days of near-record highs across Britain, Spain and France.`\
+https://www.nytimes.com/2026/06/22/weather/europe-heat-dome.html
+
 **Vance Says Iran Will Allow Nuclear Watchdog to Restart Inspections**\
 `Vice President JD Vance said Iran had agreed to invite experts from the U.N. agency to resume operations in the country. Tehran and the nuclear watchdog have not commented.`\
 https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-nuclear-inspections.html
