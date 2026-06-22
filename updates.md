@@ -1,3 +1,19 @@
+**Pochettino Exclusive Interview, and Messi’s Hat Trick**\
+`There are no limits to the USMNT’s ambitions at this World Cup.`\
+https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html
+
+**China Tightens Rare-Earth Grip on U.S. Firms, Threatening Trade Clash**\
+`The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
+https://www.nytimes.com/2026/06/22/business/china-rare-earths.html
+
+**Here’s What ‘the Most Important Mozart Discovery in Decades’ Sounds Like**\
+`A newly found notebook documenting the composer’s lessons with a student includes seven previously unknown compositions.`\
+https://www.nytimes.com/2026/06/22/arts/music/mozart-music-flute-harp.html
+
+**First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
+`Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
+https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
+
 **Interior Department Moves to Relax Rules for Drilling on Public Lands**\
 `A pair of proposals from the Trump administration would lower costs and weaken requirements for fossil fuel companies that drill on federal property.`\
 https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html
