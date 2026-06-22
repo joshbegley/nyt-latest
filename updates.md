@@ -1,3 +1,11 @@
+**Exceptionalism Can Be Lonely. Ask Britain.**\
+`Brexit was supposed to let Britain return to a time when it still counted as a global power. A decade later, the costs are blindingly apparent.`\
+https://www.nytimes.com/2026/06/22/opinion/brexit-britain-europe-power.html
+
+**‘The Bear’ and 7 More Shows to Watch on TV This Week**\
+`The hit FX series reaches its fifth and final season. The BET Awards are live in Los Angeles.`\
+https://www.nytimes.com/2026/06/22/arts/television/the-bear-tv-this-week.html
+
 **Oil Prices Fall as U.S.-Iran Talks Show Signs of Progress**\
 `Oil prices retreated after Iran’s foreign minister said there had been “major progress” toward ending the fighting in Lebanon during the first session of high-level talks.`\
 https://www.nytimes.com/2026/06/22/business/oil-gas-price-iran.html
