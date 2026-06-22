@@ -1,3 +1,7 @@
+**Right-Wing Outsider Appears to Win Colombia’s Election**\
+`President Trump had endorsed Abelardo De La Espriella, a lawyer with no previous political experience, in Colombia’s presidential election. He appeared headed for a slim victory.`\
+https://www.nytimes.com/video/world/americas/100000010982528/colombia-presidential-election-espriella.html
+
 **U.K. Live Updates: Starmer Faces Mounting Pressure to Step Down**\
 `A sagging economy and policy flip-flops have fueled demands within the Labour Party for Prime Minister Keir Starmer to resign. He could announce a decision as early as Monday.`\
 https://www.nytimes.com/live/2026/06/22/world/uk-keir-starmer-resign-pressure
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/21/world/middleeast/netanyahu-iran-deal-trump.ht
 **Melissa Clark's Buttermilk Pancakes and More Father’s Day Recipes**\
 `That’s breakfast for Dad, done. Then for dinner, how about Sam Sifton’s BBQ chicken?`\
 https://www.nytimes.com/2026/06/21/dining/my-very-best-buttermilk-pancakes.html
-
-**Five Fast Dinners I Will Definitely Make Again**\
-`Starting with this easy but elegant spicy sardine pasta with leeks and lemon.`\
-https://www.nytimes.com/2026/06/21/dining/five-fast-dinners-i-will-definitely-make-again.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
