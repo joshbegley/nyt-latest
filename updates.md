@@ -1,3 +1,7 @@
+**Oil Prices Fall as U.S.-Iran Talks Show Signs of Progress**\
+`Oil prices retreated after Iran’s foreign minister said there had been “major progress” toward ending the fighting in Lebanon during the first session of high-level talks.`\
+https://www.nytimes.com/2026/06/22/business/oil-gas-price-iran.html
+
 **Does This Radio Host Really Know Everyone in Wales?**\
 `Elis James thinks he has a friend in common with just about everyone else in Wales. Don’t believe him? Give him 60 seconds to prove it.`\
 https://www.nytimes.com/2026/06/22/world/europe/elis-james-wales-radio.html
