@@ -1,4 +1,12 @@
-**THE COOLEST CANVAS-STRAPPED WATCHES**\
+**Charisma Alone Can’t Fix Britain**\
+`It will take more than a change in leadership to solve the country’s problems.`\
+https://www.nytimes.com/2026/06/22/world/britain-prime-minister.html
+
+**Cafe Tells Congressman He’s Not Welcome Because of His Stance on Israel**\
+`After Representative Dan Goldman visited a left-leaning coffee shop chain, the shop owner posted caustic remarks on Instagram that made it clear he shouldn’t come back.`\
+https://www.nytimes.com/2026/06/22/nyregion/coffee-shop-poetica-dan-goldman-israel.html
+
+**The Coolest Canvas-Strapped Watches**\
 `Originally designed for soldiers, these timepieces have become summer staples.`\
 https://www.nytimes.com/2026/06/22/t-magazine/fashion/canvas-strapped-watches.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/us/politics/etan-patz-pedro-hernandez.html
 **U.S. Oil Is Skipping the Chance to Grab Market Share From the Gulf**\
 `U.S. oil production is expected to grow only modestly next year as companies hesitate to spend more in an uncertain market.`\
 https://www.nytimes.com/2026/06/22/business/energy-environment/iran-war-us-oil-companies.html
-
-**Pakistan Plans to Cut Tax on Menstrual Pads, but Many Say It’s Not Enough**\
-`Activists said more action was needed to solve the larger problem: Only 12 percent of Pakistani women and girls use safe, commercially made menstrual products.`\
-https://www.nytimes.com/2026/06/22/world/asia/pakistan-menstrual-period-tax.html
-
-**How Many Prime Ministers Has the UK Had Since Brexit?**\
-`The years since the Brexit vote have been some of the most tumultuous in Britain’s recent political history. Here’s a look at the revolving door in Downing Street.`\
-https://www.nytimes.com/2026/06/22/world/europe/starmer-resigns-uk-prime-ministers-how-long.html
 
