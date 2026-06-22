@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Cottage cheese. Cheating. World Cup joy.`\
+https://www.nytimes.com/2026/06/22/briefing/today-in-short.html
+
 **YouTube Stars Take Center Stage at Creative Artists Agency**\
 `For years, creators were on the fringes at Creative Artists Agency, a Hollywood talent behemoth. Now the agency is putting them center stage.`\
 https://www.nytimes.com/2026/06/22/business/media/youtube-hollywood-creative-artists-agency.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/06/22/world/europe/spain-abalos-sentenced-corruptio
 `Current and former officials say the acting director of national intelligence is planning to announce major cuts to his office as early as Monday.`\
 https://www.nytimes.com/2026/06/22/us/politics/bill-pulte-firings-national-intelligence.html
 
-**Clive Davis, Hitmaking Titan of the Music Industry, Dies at 94**\
+**Clive Davis, Music Industry Titan Who Signed Whitney Houston, Dies at 94**\
 `He rose from a midlevel position at Columbia Records to become one of music’s most powerful executives, shepherding stars like Barry Manilow and Whitney Houston.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/books/review/emergency-playbook-amy-edelman-c
 **How a Security Guard Lives on $46,000 a Year in the East Bronx**\
 `Maruf Abubakari Sadick works two security jobs to pay for rent, cologne and sheep to help feed his parents in Ghana.`\
 https://www.nytimes.com/interactive/2026/06/22/nyregion/nyc-budgeting-affordability-sadick.html
-
-**Hollywood Needs Regular Jolts of Creativity. It Just Got One.**\
-`The runaway success of horror films made by internet-bred creators shouldn’t scare Hollywood. It should inspire us.`\
-https://www.nytimes.com/2026/06/22/opinion/obsession-backrooms-hollywood-lessons.html
 
