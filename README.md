@@ -1,3 +1,7 @@
+**Oil Prices Fall as U.S.-Iran Talks Show Signs of Progress**\
+`Oil prices retreated after Iran’s foreign minister said there had been “major progress” toward ending the fighting in Lebanon during the first session of high-level talks.`\
+https://www.nytimes.com/2026/06/22/business/oil-gas-price-iran.html
+
 ****\
 `tktktkt`\
 https://www.nytimes.com/video/embedded/business/100000010982623/Biz-Skorea-Chips-HS.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/21/opinion/chicago-broadwater-six-misconduct-min
 **You Can’t Be a Superpower Without Allies**\
 `Even the most powerful state in the world is not all that powerful when it decides to go it alone.`\
 https://www.nytimes.com/2026/06/21/opinion/america-allies-superpower-iran.html
-
-**‘There Was Love, and Then There Was Suffering’: A Q&A With Christian Wiman**\
-`“The minute you are convinced that you have grasped something true about God, it dissolves in you.”`\
-https://www.nytimes.com/2026/06/21/opinion/christian-wiman-chistianity-poetry-faith.html
 
 **World Cup Updates: Visiting Soccer Fans in Miami Encounter Beaches With Smelly Seaweed**\
 `(No description)`\
