@@ -1,3 +1,11 @@
+**Will New York Swing Further to the Left? Here’s a Preview of Tuesday’s Primaries.**\
+`The city’s high-drama, high-spending primaries will offer clues of progressive momentum and Mayor Zohran Mamdani’s influence.`\
+https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
+
+**Historic Brooklyn Church Destroyed in Fire**\
+`The South Bushwick Church in Brooklyn was engulfed in flames on Friday, and the cause of the fire is still under investigation. The church was built in 1853 and is Bushwick’s oldest landmark, according to an expert.`\
+https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-fire.html
+
 **At the Great Nosh, Food Lovers Celebrate Jewish Food and Culture**\
 `New Yorkers descended on Governors Island for the Great Nosh, a festival devoted to Jewish cuisine and culture.`\
 https://www.nytimes.com/2026/06/22/style/great-nosh-jewish-food-festival-governors-island.html

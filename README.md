@@ -1,3 +1,7 @@
+**Radar Maps Show Philadelphia and New York Face Heavy Rain and Storms on Monday**\
+`The World Cup games in Philadelphia and New Jersey could be affected by storms.`\
+https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rain.html
+
 **Will New York Swing Further to the Left? Here’s a Preview of Tuesday’s Primaries.**\
 `The city’s high-drama, high-spending primaries will offer clues of progressive momentum and Mayor Zohran Mamdani’s influence.`\
 https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/europe/starmer-resigns-uk-prime-ministe
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnham-swearing-in-28680.html
-
-**Dua Lipa and the Art of the Celebrity Wedding-Dress Reveal**\
-`The singer’s Chanel gown is almost guaranteed to set trends in more ways than one.`\
-https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
 

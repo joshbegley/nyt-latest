@@ -1,3 +1,7 @@
+**Will New York Swing Further to the Left? Here’s a Preview of Tuesday’s Primaries.**\
+`The city’s high-drama, high-spending primaries will offer clues of progressive momentum and Mayor Zohran Mamdani’s influence.`\
+https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
+
 **At the Great Nosh, Food Lovers Celebrate Jewish Food and Culture**\
 `New Yorkers descended on Governors Island for the Great Nosh, a festival devoted to Jewish cuisine and culture.`\
 https://www.nytimes.com/2026/06/22/style/great-nosh-jewish-food-festival-governors-island.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/video/world/americas/100000010984199/officers-provide-up
 https://www.nytimes.com/2026/06/22/business/media/hot-ones-sean-evans-netflix.html
 
 **Historic Brooklyn Church Destroyed in Fire**\
-`The South Bushwick Church was engulfed in flames on Friday, and the cause of the fire is still under investigation. The church was built in 1853 and is Bushwick’s oldest landmark, according to an expert.`\
+`The South Bushwick Church in Brooklyn was engulfed in flames on Friday, and the cause of the fire is still under investigation. The church was built in 1853 and is Bushwick’s oldest landmark, according to an expert.`\
 https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-fire.html
 
 **‘Why I Love the Beautiful Game’ With Wagner Moura**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnha
 **Dua Lipa and the Art of the Celebrity Wedding-Dress Reveal**\
 `The singer’s Chanel gown is almost guaranteed to set trends in more ways than one.`\
 https://www.nytimes.com/2026/06/22/style/dua-lipa-wedding-chanel.html
-
-**The Guardrails Designed to Protect U.S.-Iran Talks**\
-`The U.S. and Iran have agreed to set up a Strait of Hormuz hotline and a “de-confliction cell” for Lebanon, according to mediators from Pakistan and Qatar.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/will-do-iran-us-peace-talks-lebanon-hormuz.html
 
