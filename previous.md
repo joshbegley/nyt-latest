@@ -1,3 +1,11 @@
+**‘The View’ Asks Its Audience for Help in Battle With F.C.C.**\
+`The daytime TV talk show is at the center of a dispute with the Federal Communications Commission over political speech.`\
+https://www.nytimes.com/2026/06/22/business/media/the-view-fcc-abc-investigation.html
+
+**Healthy Salmon With Olive-Oil-Braised Zucchini and Chickpeas Recipe**\
+`With olive-oil-braised zucchini and chickpeas, because summer.`\
+https://www.nytimes.com/2026/06/22/dining/a-healthy-speedy-satisfying-salmon-dinner.html
+
 **Israel Holds to Lebanon Truce, With Troops Kept on Defense**\
 `Israel and Hezbollah, the Iran-backed Lebanese militant group, appeared to maintain a tense cease-fire for a second day. Israel’s military has new orders that restrict troops to defensive actions.`\
 https://www.nytimes.com/2026/06/22/world/europe/israel-lebanon-hezbollah-truce.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/arts/design/the-national-trust-new-president-
 **What I Learned About Masculinity at Thai Kickboxing School**\
 `A week inside a grueling Muay Thai training program in Phuket.`\
 https://www.nytimes.com/2026/06/22/magazine/muay-thai-training-kickboxing-thailand.html
-
-**The Secret Reason Bosses Want Everyone Back in the Office, Every Day of the Week**\
-`It’s all about them.`\
-https://www.nytimes.com/2026/06/22/opinion/office-work-wfh-bosses.html
-
-**The 50-Year-Old Diary That’s Very Dear to Readers**\
-`It’s the 50th anniversary year of Metropolitan Diary, a feature that sheds light on everyday life in New York City.`\
-https://www.nytimes.com/2026/06/22/nyregion/metropolitan-diary-50th-anniversary.html
 
