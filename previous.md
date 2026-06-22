@@ -1,3 +1,7 @@
+**THE COOLEST CANVAS-STRAPPED WATCHES**\
+`Originally designed for soldiers, these timepieces have become summer staples.`\
+https://www.nytimes.com/2026/06/22/t-magazine/fashion/canvas-strapped-watches.html
+
 **Radar Maps Show Philadelphia and New York Face Heavy Rain and Storms on Monday**\
 `The World Cup games in Philadelphia and New Jersey could be affected by storms.`\
 https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rain.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/asia/pakistan-menstrual-period-tax.html
 **How Many Prime Ministers Has the UK Had Since Brexit?**\
 `The years since the Brexit vote have been some of the most tumultuous in Britain’s recent political history. Here’s a look at the revolving door in Downing Street.`\
 https://www.nytimes.com/2026/06/22/world/europe/starmer-resigns-uk-prime-ministers-how-long.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010983026/22vid-burnham-swearing-in-28680.html
 

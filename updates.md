@@ -1,3 +1,7 @@
+**THE COOLEST CANVAS-STRAPPED WATCHES**\
+`Originally designed for soldiers, these timepieces have become summer staples.`\
+https://www.nytimes.com/2026/06/22/t-magazine/fashion/canvas-strapped-watches.html
+
 **Radar Maps Show Philadelphia and New York Face Heavy Rain and Storms on Monday**\
 `The World Cup games in Philadelphia and New Jersey could be affected by storms.`\
 https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rain.html
