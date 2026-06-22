@@ -1,3 +1,7 @@
+**La razón secreta por la que los jefes quieren que todos vuelvan a la oficina**\
+`La reticencia a cualquier tipo de trabajo remoto quizá se deba a algo muy específico: el ego`\
+https://www.nytimes.com/es/2026/06/22/espanol/opinion/oficina-semana-completa-trabajo-remoto.html
+
 **High School Students Heckle Bard President Over His Ties With Epstein**\
 `At a graduation ceremony for high schools affiliated with the college, Leon Botstein said, “To get anything done, you’re going to have to dance with the devil.”`\
 https://www.nytimes.com/2026/06/22/nyregion/bard-college-botsein-epstein-high-school-commencement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-die
 **Suspect and a Civilian Are Among Three Killed in Montreal Shooting**\
 `A police officer and a civilian also died in a gun battle that prompted a citywide shelter-in-place alert.`\
 https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
-
-**Conversaciones entre EE. UU. e Irán: la primera ronda termina con grandes esperanzas y retos**\
-`Los mediadores han informado de que se han hecho avances para llegar a un acuerdo definitivo en un plazo de 60 días. También dijeron que los negociadores se han quedado atascados en temas que se creían ya resueltos.`\
-https://www.nytimes.com/es/2026/06/22/espanol/mundo/conversaciones-paz-iran-eeuu.html
 
