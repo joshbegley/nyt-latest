@@ -1,3 +1,11 @@
+**Former Ally to Spain’s Prime Minister Is Sentenced to 24 Years in Prison on Bribery Charges**\
+`José Luis Ábalos, once a minister in the government of Prime Minister Pedro Sánchez, was convicted of bribery. The decision compounds a crisis for Mr. Sánchez’ circle.`\
+https://www.nytimes.com/2026/06/22/world/europe/spain-abalos-sentenced-corruption-sanchez.html
+
+**Congressional Democrats Warn Pulte Against Mass Firings**\
+`Current and former officials say the acting director of national intelligence is planning to announce major cuts to his office as early as Monday.`\
+https://www.nytimes.com/2026/06/22/us/politics/bill-pulte-firings-national-intelligence.html
+
 **Clive Davis, Hitmaking Titan of the Music Industry, Dies at 94**\
 `He rose from a midlevel position at Columbia Records to become one of music’s most powerful executives, shepherding stars like Barry Manilow and Whitney Houston.`\
 https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
@@ -139,7 +147,7 @@ https://www.nytimes.com/video/world/europe/100000010982767/uk-prime-minister-kei
 https://www.nytimes.com/2026/06/22/sports/world-cup/world-cup-china-referee-ma-ning.html
 
 **Mideast Live Updates: U.S. Eases Sanctions as Vance Says Iran Agrees to Resume Nuclear Inspections**\
-`Vice President JD Vance said Iran had agreed to invite U.N. nuclear inspectors back into the country in the first round of negotiations that ended Monday. Iran and the U.N. did not immediately comment.`\
+`If confirmed, the provisions would be in line with an Obama-era deal President Trump tore up in 2018. Vice President JD Vance hailed the latest round of talks as a “foundation” for lasting peace.`\
 https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
 
 **El bloqueo de EE. UU. a Cuba hace que los niños falten a la escuela**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/22/opinion/obsession-backrooms-hollywood-lessons
 **In the Choreographer Pioneer Winter’s World, Every Body Is a Dancing Body**\
 `Pioneer Winter’s works expand ideas about who gets to be a professional dancer. In “Apollo,” his muses are older dancers, who are like living archives.`\
 https://www.nytimes.com/2026/06/22/arts/dance/pioneer-winter-apollo-.html
-
-**In Utah House Race, Progressives Assail Democrat Who Backed Abortion Restrictions**\
-`Ben McAdams, a moderate former congressman, faces a handful of left-wing opponents in a rare opportunity for a Democrat to win in a Republican state.`\
-https://www.nytimes.com/2026/06/22/us/politics/utah-house-salt-lake-city-democrats.html
-
-**A Loophole Brings Cystic Fibrosis Patients a ‘Miracle Drug’ in Generic Form**\
-`A generic version of a breakthrough cystic fibrosis drug, manufactured in Bangladesh for a fraction of the American price, may give some families around the world an unlikely lifeline.`\
-https://www.nytimes.com/2026/06/22/health/cystic-fibrosis-drug-triko-trikafta.html
 

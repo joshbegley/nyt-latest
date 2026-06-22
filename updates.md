@@ -1,3 +1,11 @@
+**Clive Davis, Hitmaking Titan of the Music Industry, Dies at 94**\
+`He rose from a midlevel position at Columbia Records to become one of music’s most powerful executives, shepherding stars like Barry Manilow and Whitney Houston.`\
+https://www.nytimes.com/2026/06/22/arts/music/clive-davis-dead.html
+
+**Mideast Live Updates: U.S. Eases Sanctions as Vance Says Iran Agrees to Resume Nuclear Inspections**\
+`Vice President JD Vance said Iran had agreed to invite U.N. nuclear inspectors back into the country in the first round of negotiations that ended Monday. Iran and the U.N. did not immediately comment.`\
+https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon
+
 **Temperaturas récord en Europa: esto es lo que tienes que saber**\
 `Gran parte de Europa está bajo alertas de alto nivel por calor extremo, y los meteorólogos prevén un impacto “grave” en las condiciones meteorológicas.`\
 https://www.nytimes.com/es/2026/06/22/espanol/tiempo-y-clima/europa-ola-calor.html
