@@ -1,3 +1,7 @@
+**No Gas, No Summer Camps, Sporadic Power: Ukraine Escalates Crimea Attacks**\
+`To pressure Moscow, Ukraine is stepping up an air campaign to isolate the peninsula, which Russia annexed in 2014.`\
+https://www.nytimes.com/2026/06/22/world/europe/ukraine-russia-crimea-attacks.html
+
 **Dutch Prime Minister Apologizes for Mistreatment of Moluccan Soldiers**\
 `Rob Jetten’s acknowledgment of the historical injustice is part of a larger reckoning with the Netherlands’ colonial past.`\
 https://www.nytimes.com/2026/06/22/world/europe/dutch-netherlands-apology-indonesia-moluccan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/nyregion/metropolitan-diary-50th-anniversary.
 **Flight of the Conchords and the Perils of Reunions**\
 `Bret McKenzie and Jemaine Clement are routinely asked about performing their musical satires again. They always said no, until this year. What changed?`\
 https://www.nytimes.com/2026/06/22/arts/television/flight-of-the-conchords-jemaine-clement-bret-mckenzie.html
-
-**Doctors Can Test Your Baby for Hundreds of Genetic Anomalies. Should They?**\
-`A National Institutes of Health study will evaluate whether to screen tens of thousands of healthy infants for genetic diseases.`\
-https://www.nytimes.com/2026/06/22/opinion/infants-genetic-screening.html
 
