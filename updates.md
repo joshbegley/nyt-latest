@@ -1,3 +1,7 @@
+**Radar Maps Show Philadelphia and New York Face Heavy Rain and Storms on Monday**\
+`The World Cup games in Philadelphia and New Jersey could be affected by storms.`\
+https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rain.html
+
 **Will New York Swing Further to the Left? Here’s a Preview of Tuesday’s Primaries.**\
 `The city’s high-drama, high-spending primaries will offer clues of progressive momentum and Mayor Zohran Mamdani’s influence.`\
 https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
