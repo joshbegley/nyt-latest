@@ -1,3 +1,27 @@
+**Live Updates: Police in Montreal Launch Manhunt After Shootout Kills Officer**\
+`The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
+https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
+
+**Muere Alan Greenspan, conocido presidente de la Reserva Federal de EE. UU.**\
+`Legislador destacado en su momento y operador político sagaz, defendió posturas que más tarde se asociaron con fuerzas financieras destructivas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/estados-unidos/muere-alan-greenspan-reserva-federal.html
+
+**Interior Department Moves to Relax Rules for Drilling on Public Lands**\
+`A pair of proposals from the Trump administration would lower costs and weaken requirements for fossil fuel companies that drill on federal property.`\
+https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html
+
+**Vance Claims Progress in First Day of Iran Talks**\
+`Vice President JD Vance, the lead U.S. negotiator, said the two sides had agreed on technical issues and at least one substantive one, international inspection of Iranian nuclear sites, but an Iranian official said his country had made “no new commitments.”`\
+https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-talks-progress.html
+
+**Trump acaba de conseguir un aliado en Colombia para su guerra antidroga**\
+`Con la aparente victoria de Abelardo de la Espriella, que ha prometido acabar con los narcotraficantes mediante la fuerza militar, Colombia está a punto de volver a ganarse el favor de EE. UU.`\
+https://www.nytimes.com/es/2026/06/22/espanol/america-latina/trump-colombia-delaespriella-drogas.html
+
+**At Least 14 People Killed in Fire in North India Educational Center**\
+`A blaze in a commercial building that housed a study center in a north Indian city killed at least a dozen people, most aged 16 to 18.`\
+https://www.nytimes.com/2026/06/22/world/asia/fire-lucknow-india-kills-14.html
+
 **Pochettino Exclusive Interview, and Messi’s Hat Trick**\
 `There are no limits to the USMNT’s ambitions at this World Cup.`\
 https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html

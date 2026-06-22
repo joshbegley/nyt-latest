@@ -1,3 +1,27 @@
+**Live Updates: Police in Montreal Launch Manhunt After Shootout Kills Officer**\
+`The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
+https://www.nytimes.com/live/2026/06/22/world/shooting-montreal-news
+
+**Muere Alan Greenspan, conocido presidente de la Reserva Federal de EE. UU.**\
+`Legislador destacado en su momento y operador político sagaz, defendió posturas que más tarde se asociaron con fuerzas financieras destructivas.`\
+https://www.nytimes.com/es/2026/06/22/espanol/estados-unidos/muere-alan-greenspan-reserva-federal.html
+
+**Interior Department Moves to Relax Rules for Drilling on Public Lands**\
+`A pair of proposals from the Trump administration would lower costs and weaken requirements for fossil fuel companies that drill on federal property.`\
+https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html
+
+**Vance Claims Progress in First Day of Iran Talks**\
+`Vice President JD Vance, the lead U.S. negotiator, said the two sides had agreed on technical issues and at least one substantive one, international inspection of Iranian nuclear sites, but an Iranian official said his country had made “no new commitments.”`\
+https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-talks-progress.html
+
+**Trump acaba de conseguir un aliado en Colombia para su guerra antidroga**\
+`Con la aparente victoria de Abelardo de la Espriella, que ha prometido acabar con los narcotraficantes mediante la fuerza militar, Colombia está a punto de volver a ganarse el favor de EE. UU.`\
+https://www.nytimes.com/es/2026/06/22/espanol/america-latina/trump-colombia-delaespriella-drogas.html
+
+**At Least 14 People Killed in Fire in North India Educational Center**\
+`A blaze in a commercial building that housed a study center in a north Indian city killed at least a dozen people, most aged 16 to 18.`\
+https://www.nytimes.com/2026/06/22/world/asia/fire-lucknow-india-kills-14.html
+
 **Un exaliado de Pedro Sánchez es condenado a 24 años de cárcel**\
 `José Luis Ábalos, que en su día fue ministro en el gobierno del presidente Pedro Sánchez, ha sido condenado por delitos de corrupción. La sentencia agrava la crisis en el entorno de Sánchez.`\
 https://www.nytimes.com/es/2026/06/22/espanol/mundo/abalos-psoe-condenado-cohecho.html
@@ -13,10 +37,6 @@ https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
 **Justice Department Makes It Easier to Bypass Pollution Controls on Pickups**\
 `It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
 https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
-
-**Montreal Police Launches Manhunt for Suspect After Shooting**\
-`The province of Quebec issued a shelter-in-place alert after one officer was killed and two people, another officer and a civilian, were wounded.`\
-https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html
 
 **Conversaciones entre EE. UU. e Irán: la primera ronda termina con grandes esperanzas y retos**\
 `Los mediadores han informado de que se han hecho avances para llegar a un acuerdo definitivo en un plazo de 60 días. También dijeron que los negociadores se han quedado atascados en temas que se creían ya resueltos.`\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/22/weather/europe-extreme-heat-wave-forecast.htm
 **Alan Greenspan, Fed Chairman Through Prosperity and Crisis, Dies at 100**\
 `The pre-eminent economic policymaker of his time and a skilled political operator, he favored market-friendly stances that would later come to be associated with destructive financial forces.`\
 https://www.nytimes.com/2026/06/22/us/alan-greenspan-dead.html
-
-**Behind the Wheel**\
-`We look into the dangers posed by large S.U.V.s and pickup trucks.`\
-https://www.nytimes.com/2026/06/22/briefing/danger-behind-the-wheel.html
-
-**Pochettino Exclusive Interview, and Messi’s Hat Trick**\
-`There are no limits to the USMNT’s ambitions at this World Cup.`\
-https://www.nytimes.com/2026/06/22/us/pochettino-exclusive-interview-and-messis-hat-trick.html
-
-**China Tightens Rare-Earth Grip on U.S. Firms, Threatening Trade Clash**\
-`The move targets two U.S. manufacturers at the center of the Trump administration’s effort to rebuild the domestic supply chain for critical magnets.`\
-https://www.nytimes.com/2026/06/22/business/china-rare-earths.html
-
-**Here’s What ‘the Most Important Mozart Discovery in Decades’ Sounds Like**\
-`A newly found notebook documenting the composer’s lessons with a student includes seven previously unknown compositions.`\
-https://www.nytimes.com/2026/06/22/arts/music/mozart-music-flute-harp.html
-
-**First Round of U.S.-Iran Talks Ends With High Hopes and Big Challenges**\
-`Mediators reported progress toward reaching a final deal within 60 days. They also said that negotiators had dwelled on issues that were supposed to be settled.`\
-https://www.nytimes.com/2026/06/22/world/europe/iran-us-peace-talks.html
 
