@@ -1,3 +1,7 @@
+**Two Dead After Shooting at California Library**\
+`A gunman used a firearm inside the library while it was open, killing two and injuring another person before being taken into custody, the police said.`\
+https://www.nytimes.com/2026/06/22/us/shooting-chico-california-library.html
+
 **Danny McBride on Why It’s So Hard for Art to Break Through**\
 `“Nothing has its moment in the sun. And I think that that’s probably just because of the world we live in. There’s just so much stuff out there, old and new,” Danny McBride says on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000010984938/danny-mcbride-on-why-its-so-hard-for-art-to-break-through.html
