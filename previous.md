@@ -1,3 +1,11 @@
+**As Vance Leads Iran Negotiations, Trump Creates Disruptions in His Path**\
+`Vice President JD Vance is in a politically precarious spot.`\
+https://www.nytimes.com/2026/06/22/us/politics/jd-vance-iran-negotiations.html
+
+**NYT Crossword Answers for June 23, 2026**\
+`Kathy Bloomer won’t give us a straight answer.`\
+https://www.nytimes.com/2026/06/22/crosswords/daily-puzzle-2026-06-23.html
+
 **Judge Blocks Bans on Using Food Stamps for Sugary Drinks and Candy**\
 `A federal judge ruled that the Agriculture Department lacked the authority to approve state waivers that restrict what SNAP participants can buy with their benefits.`\
 https://www.nytimes.com/2026/06/22/us/politics/judge-ruling-food-stamps-sugary-drinks.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-
 **‘Why I Love the Beautiful Game’ With Wagner Moura**\
 `The Brazilian actor tells us why Brazil needs their ‘sixth star’`\
 https://www.nytimes.com/2026/06/22/podcasts/why-i-love-the-beautiful-game-with-wagner-moura.html
-
-**Muere Alan Greenspan, conocido presidente de la Reserva Federal de EE. UU.**\
-`Legislador destacado en su momento y operador político sagaz, defendió posturas que más tarde se asociaron con fuerzas financieras destructivas.`\
-https://www.nytimes.com/es/2026/06/22/espanol/estados-unidos/muere-alan-greenspan-reserva-federal.html
-
-**Interior Department Moves to Relax Rules for Drilling on Public Lands**\
-`A pair of proposals from the Trump administration would lower costs and weaken requirements for fossil fuel companies that drill on federal property.`\
-https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html
 

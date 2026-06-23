@@ -1,3 +1,11 @@
+**As Vance Leads Iran Negotiations, Trump Creates Disruptions in His Path**\
+`Vice President JD Vance is in a politically precarious spot.`\
+https://www.nytimes.com/2026/06/22/us/politics/jd-vance-iran-negotiations.html
+
+**NYT Crossword Answers for June 23, 2026**\
+`Kathy Bloomer won’t give us a straight answer.`\
+https://www.nytimes.com/2026/06/22/crosswords/daily-puzzle-2026-06-23.html
+
 **Judge Blocks Bans on Using Food Stamps for Sugary Drinks and Candy**\
 `A federal judge ruled that the Agriculture Department lacked the authority to approve state waivers that restrict what SNAP participants can buy with their benefits.`\
 https://www.nytimes.com/2026/06/22/us/politics/judge-ruling-food-stamps-sugary-drinks.html
