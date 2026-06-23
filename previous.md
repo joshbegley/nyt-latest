@@ -1,3 +1,7 @@
+**Brad Lander Isn’t an Incumbent. But He Has Run Like One.**\
+`Mr. Lander has longstanding ties to the district in parts of Brooklyn and Lower Manhattan where he is challenging Representative Dan Goldman.`\
+https://www.nytimes.com/2026/06/23/nyregion/lander-goldman-house-race-nyc.html
+
 **Jill Smokler, Who Blogged as Scary Mommy, Dies at 48**\
 `A mother of three, she turned a whim into an online powerhouse, sharing a warts-and-all look at parenting that attracted millions of readers.`\
 https://www.nytimes.com/2026/06/23/parenting/jill-smokler-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York 19th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-19-primary.html
-
-**New York 18th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-18-primary.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\

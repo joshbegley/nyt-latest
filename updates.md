@@ -1,3 +1,7 @@
+**Brad Lander Isn’t an Incumbent. But He Has Run Like One.**\
+`Mr. Lander has longstanding ties to the district in parts of Brooklyn and Lower Manhattan where he is challenging Representative Dan Goldman.`\
+https://www.nytimes.com/2026/06/23/nyregion/lander-goldman-house-race-nyc.html
+
 **Jill Smokler, Who Blogged as Scary Mommy, Dies at 48**\
 `A mother of three, she turned a whim into an online powerhouse, sharing a warts-and-all look at parenting that attracted millions of readers.`\
 https://www.nytimes.com/2026/06/23/parenting/jill-smokler-dead.html
