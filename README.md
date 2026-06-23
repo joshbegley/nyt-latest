@@ -1,3 +1,7 @@
+**At Least 40 People Drown in France Amid Heat Wave**\
+`At least 40 people have drowned in the last five days in France, according to the country’s prime minister, amid a scorching heat wave that has gripped much of Europe.`\
+https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-france-drowning.html
+
 **What Is Your Holy Grail?**\
 `We want to know what you love so much that it’s sacred to you.`\
 https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/23/realestate/golden-visa-panama-portugal-greece
 **How Does Rent Regulation Work Across the U. S.?**\
 `As New York City considers a rent freeze, a look at how cities and states across the U.S. keep costs in check.`\
 https://www.nytimes.com/2026/06/23/realestate/national-rent-regulation-explainer.html
-
-**America’s Thirst for Gasoline May Not Recover After Iran War**\
-`People drove less and bought more-efficient cars when fuel prices surged, habits that could stick over the long term.`\
-https://www.nytimes.com/2026/06/23/business/economy/gasoline-demand-destruction.html
 
