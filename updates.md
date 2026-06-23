@@ -1,3 +1,11 @@
+**Ethnicity Becomes Instrument of Division in Espaillat’s Re-election Bid**\
+`Darializa Avila Chevalier has been targeted with false accusations about her ethnicity, as foes seek to portray her as an outsider hoping to usurp Dominican power in the district.`\
+https://www.nytimes.com/2026/06/23/nyregion/darializa-avila-chevalier-dominican-haiti.html
+
+**When to Expect Results in Maryland, New York, South Carolina and Utah**\
+`Voters have been casting ballots in several primaries and runoff elections. Unofficial results will probably be known late Tuesday or early Wednesday.`\
+https://www.nytimes.com/2026/06/23/us/elections/when-to-expect-election-results-maryland-ny-south-carolina-utah.html
+
 **Services Sold to Boost I.V.F. Odds Backed by Little Evidence, Study Finds**\
 `Some patients spend thousands of dollars on these extra ‘add-on’ procedures during fertility treatment.`\
 https://www.nytimes.com/2026/06/23/well/live/ivf-fertility-treatment-study.html
