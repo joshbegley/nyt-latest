@@ -1,3 +1,63 @@
+**Utah Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-2-primary.html
+
+**Utah First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-1-primary.html
+
+**Utah Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-4-primary.html
+
+**South Carolina Agriculture Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-runoff.html
+
+**Utah Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-3-primary.html
+
+**Sioux Falls, South Dakota, Mayor 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Dakota election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-mayor-sioux-falls.html
+
+**New York Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-9-primary.html
+
+**New York Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-8-primary.html
+
+**New York Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-7-primary.html
+
+**New York Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-governor-primary.html
+
+**New York Comptroller Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroller-primary.html
+
+**New York Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-general-primary.html
+
+**Maryland Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-7-primary.html
+
+**Maryland Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-8-primary.html
+
+**Maryland Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-6-primary.html
+
 **Trump Says Vandals Sabotaged the Reflecting Pool. Internal Documents Raise Doubts.**\
 `The documents do not indicate that the peeling blue coating and algae blooms were caused intentionally.`\
 https://www.nytimes.com/2026/06/23/us/trump-reflecting-pool-green-peeling.html
