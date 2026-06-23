@@ -1,3 +1,7 @@
+**How Shannon Manson, a Security Worker During the World Cup, Became Known in Jordan**\
+`Shannon Manson cheerily ushered a man from Jordan’s delegation away from fans. It turns out he was a prince, and now she is an unexpected internet sensation.`\
+https://www.nytimes.com/2026/06/23/sports/soccer/jordan-hilton-hotel-worker.html
+
 **Brad Lander Isn’t an Incumbent. But He Has Run Like One.**\
 `Mr. Lander has longstanding ties to the district in parts of Brooklyn and Lower Manhattan where he is challenging Representative Dan Goldman.`\
 https://www.nytimes.com/2026/06/23/nyregion/lander-goldman-house-race-nyc.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-1-primary.html
-
-**New York 19th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-19-primary.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
