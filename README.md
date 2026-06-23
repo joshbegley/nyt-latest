@@ -1,3 +1,7 @@
+**AIPAC, Crypto Cash and Rich Candidates Dominate Maryland House Races**\
+`In two competitive Democratic primaries, well-funded interest groups as well as wealthy candidates themselves have poured tens of millions of dollars into advertising.`\
+https://www.nytimes.com/2026/06/23/us/politics/aipac-crypto-maryland-house-races.html
+
 **Chicken Salad Slaw With Peanuts and Nori**\
 `This no-cook, main-dish slaw is all about texture and toppings. The cabbage and shredded chicken are only the beginning. It also has a double dose of savory nuttiness from nori and peanuts, a creamy peanut-ginger dressing and refreshing scallions and cucumbers.`\
 https://www.nytimes.com/video/dining/100000010987721/chicken-salad-slaw-with-peanuts-and-nori.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/23/nyregion/mamdani-allies-no-lander.html
 **Goldman Says Cafe’s Hostile Post About Him Does Not Warrant Civil Rights Case**\
 `After a Justice Department official said her office was opening an investigation, Representative Dan Goldman said the department should focus on “other people in the Jewish community who are really scared.”`\
 https://www.nytimes.com/2026/06/23/nyregion/goldman-poetica-civil-rights-case.html
-
-**New York Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-6-primary.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
