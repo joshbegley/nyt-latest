@@ -1,3 +1,11 @@
+**7 Songs That Spun My Head Around**\
+`Hear a Rosalía tour highlight, forgotten new-wave from the 1970s and more.`\
+https://www.nytimes.com/2026/06/23/arts/music/amplifier-newsletter-rosalia-sylvan-esso.html
+
+**Customers Sue Madison Square Garden Over Hacking of 26 Million Records**\
+`Three class-action lawsuits accuse a hacking group of publishing data that included personal and corporate information stolen from the arena.`\
+https://www.nytimes.com/2026/06/23/nyregion/madison-square-garden-data-breach-hackers.html
+
 **Hard Fork Live Part 3**\
 `Our live interview with Figma C.E.O. Dylan Field.`\
 https://www.nytimes.com/video/podcasts/100000010978970/hard-fork-live-part-3.html
