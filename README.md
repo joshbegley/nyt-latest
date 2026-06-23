@@ -1,3 +1,7 @@
+**Israeli Soldiers Fatally Shoot 2 People in Southern Lebanon, Health Officials Say**\
+`The shooting came a day after Israeli troops began operating under new orders intended to reduce the risk of flare-ups in its conflict with Iran-backed Hezbollah militants.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/israel-soldiers-lebanon-shooting-hezbollah.html
+
 **2026 Jimmy Awards: With Bowen Yang as Host, Teen Winners Are Crowned**\
 `Students from Georgia and Arizona won the top prizes at the ceremony, which was hosted by Bowen Yang and celebrates excellence in high school musical theater.`\
 https://www.nytimes.com/2026/06/23/theater/jimmy-awards-bowen-yang-musical-theater.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/06/23/podcasts/sarah-jessica-parker-knicks-new-york
 **Trump dice que Venezuela es ‘un país feliz’. Su gente no está de acuerdo**\
 `El lento ritmo de la recuperación económica está poniendo a prueba la paciencia de los venezolanos con la presidenta en funciones, Delcy Rodríguez.`\
 https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-trump-delcy-rodriguez.html
-
-**What’s the Matter With Congress?**\
-`A debate between old friends about whether it is fear or polarization that is making Congress weak.`\
-https://www.nytimes.com/2026/06/23/opinion/congress-house-partisanship-fear.html
 
