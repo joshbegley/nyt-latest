@@ -1,3 +1,11 @@
+**Letter From Conservatives Prompted Inquiry of Civil Rights Group, Lawyers Say**\
+`Several right-wing groups sent a letter in September to Stephen Miller, a top aide to President Trump, urging greater scrutiny of the Southern Poverty Law Center.`\
+https://www.nytimes.com/2026/06/23/nyregion/fbi-southern-poverty-law-center-letter.html
+
+**Lin-Manuel Miranda’s ‘Warriors’ Musical to Hit Broadway Next Spring**\
+`Miranda is co-writing the musical — his first since “Hamilton” — with Eisa Davis. It’s based on “The Warriors” film and novel.`\
+https://www.nytimes.com/2026/06/23/theater/warriors-broadway-lin-manuel-miranda.html
+
 **In Middle East, Rubio Says ‘No Country’ Can Charge for Hormuz Traffic**\
 `The secretary of state dismissed Iran’s talk of charging ships to pass through the vital Persian Gulf portal as prohibited under international law.`\
 https://www.nytimes.com/2026/06/23/world/middleeast/rubio-strait-of-hormuz-charges-traffic.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-2-primary.html
-
-**New York 19th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-19-primary.html
-
-**New York 24th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-24-primary.html
 
