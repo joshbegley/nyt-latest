@@ -1,3 +1,7 @@
+**Justice Dept. Withdraws Grand Jury Subpoenas of Journalists**\
+`The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
+https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
+
 **Una cantante iraní fue condenada a 74 latigazos por actuar sin hiyab**\
 `A Parastoo Ahmadi y a su grupo también se les prohibirá salir del país o actuar durante dos años. La sentencia frena las esperanzas de un régimen más moderado tras la guerra en Irán.`\
 https://www.nytimes.com/es/2026/06/23/espanol/mundo/cantante-iran-latigazos.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/23/business/economy/gasoline-demand-destruction.
 **Social Security Is Running Out of Money, Fast**\
 `To save the program, we need to eliminate the payroll tax cap.`\
 https://www.nytimes.com/2026/06/23/opinion/moreno-warren-social-security.html
-
-**Charles Hinman, Who Brought New Dimensions to Painting, Dies at 93**\
-`Starting in the early 1960s, the New York artist blurred the line between painting and sculpture with his shaped, protruding canvases.`\
-https://www.nytimes.com/2026/06/23/arts/design/charles-hinman-dead.html
 
