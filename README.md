@@ -1,3 +1,15 @@
+**Those British Strawberries Are Being Picked by Central Asian Workers**\
+`Ten years after Brexit, most seasonal workers in Britain are from countries such as Kyrgyzstan and Tajikistan. Without them, agricultural chiefs say, many farms would fail.`\
+https://www.nytimes.com/2026/06/23/world/europe/uk-brexit-seasonal-farm-workers-central-asia.html
+
+**Quote of the Day: Starmer Exits With His Rivals at the Gates**\
+`Quotation of the Day for Tuesday, June 23, 2026`\
+https://www.nytimes.com/2026/06/23/pageoneplus/quote-of-the-day-starmer-exits-with-his-rivals-at-the-gates.html
+
+**Brexit Has Cost the UK Growth, Analysts Say, in the Decade Since the Vote**\
+`Citing lower trade and investment, analysts broadly agree that Britain’s economy is smaller than it would have been if the country had stayed in the E.U.`\
+https://www.nytimes.com/2026/06/23/business/brexit-uk-economy.html
+
 **Two Dead After Shooting at California Library**\
 `A gunman used a firearm inside the library while it was open, killing two and injuring another person before being taken into custody, the police said.`\
 https://www.nytimes.com/2026/06/22/us/shooting-chico-california-library.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
 **At the Great Nosh, Food Lovers Celebrate Jewish Food and Culture**\
 `New Yorkers descended on Governors Island for the Great Nosh, a festival devoted to Jewish cuisine and culture.`\
 https://www.nytimes.com/2026/06/22/style/great-nosh-jewish-food-festival-governors-island.html
-
-**Carlos Santana, Patti Smith and Other Celebs Pay Tribute to Clive Davis**\
-`Davis “treated me with the same respect and kindness as a 22-year-old nobody as he did after all my success,” Springsteen said after the music executive’s death on Monday.`\
-https://www.nytimes.com/2026/06/22/arts/music/clive-davis-death-celebrity-reactions.html
-
-**Officers provide update on the shooting in Montreal on Monday.**\
-`Officials provide an update on the shooting in Montreal.`\
-https://www.nytimes.com/video/world/americas/100000010984199/officers-provide-update-on-the-shooting-in-montreal-on-monday.html
-
-**Netflix Buys a ‘Hot Ones’ Spinoff**\
-`The streaming giant bought a spinoff of a popular online interview series that features celebrities eating fiery chicken wings, the latest salvo in its rivalry with YouTube.`\
-https://www.nytimes.com/2026/06/22/business/media/hot-ones-sean-evans-netflix.html
 
