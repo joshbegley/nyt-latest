@@ -1,3 +1,11 @@
+**Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
+`Chipmakers led the way down in South Korea, where the main index crashed 10 percent. Stocks in Europe were lower and S&P 500 futures pointed to a sharp fall.`\
+https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
+
+**Sarah Jessica Parker on the Seductive Power of Sports and the City**\
+`The actress — and Knicks superfan — on what it means to be a New Yorker, circa summer 2026.`\
+https://www.nytimes.com/2026/06/23/podcasts/sarah-jessica-parker-knicks-new-york.html
+
 **Trump dice que Venezuela es ‘un país feliz’. Su gente no está de acuerdo**\
 `El lento ritmo de la recuperación económica está poniendo a prueba la paciencia de los venezolanos con la presidenta en funciones, Delcy Rodríguez.`\
 https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-trump-delcy-rodriguez.html
