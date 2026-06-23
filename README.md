@@ -1,3 +1,83 @@
+**What’s the Matter With Congress?**\
+`A debate between old friends about whether it is fear or polarization that is making Congress weak.`\
+https://www.nytimes.com/2026/06/23/opinion/congress-house-partisanship-fear.html
+
+**Major Supreme Court Decisions Testing Trump’s Policies Remain**\
+`Over the next two weeks, the justices will release more than a dozen final opinions, including high-profile decisions on birthright citizenship, the Federal Reserve and transgender athletes.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-trump-major-cases.html
+
+**China Takes Supercomputer Crown From U.S. For First Time Since 2017**\
+`A supercomputer in Shenzhen was declared the world’s fastest. It uses only standard microprocessors and not the special-purpose chips called graphics processing units.`\
+https://www.nytimes.com/2026/06/23/technology/china-supercomputer-crown-us.html
+
+**This Backyard A.D.U. Is Multigenerational by Design**\
+`Father-and-daughter architects Jim and Cotton Estes collaborated on their first project, right in Ms. Estes’s San Antonio backyard.`\
+https://www.nytimes.com/2026/06/23/realestate/san-antonio-adu-estes-architecture.html
+
+**Europe Created Heat-Wave Protections. Now Comes the ‘Crash Test.’**\
+`Searing temperatures in Western Europe are drawing comparisons to 2003, when a deadly heat wave sparked a reckoning.`\
+https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-protective-measures.html
+
+**Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
+`The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
+https://www.nytimes.com/2026/06/23/arts/rare-books-on-sex-have-spiced-things-up-at-a-library-franklin-founded.html
+
+**X-Ray Specs for the World’s Oldest, Sealed Letters**\
+`A team of historians, scientists and engineers has developed a portable X-ray scanner to study 4,000-year-old letters encased in clay envelopes.`\
+https://www.nytimes.com/2026/06/23/science/x-ray-specs-for-the-worlds-oldest-sealed-letters.html
+
+**A Glimmer of Hope for Fixing Penn Station**\
+`The plans that Amtrak has released for redoing the notorious station offers good architecture and some promise of moving ahead, our architecture critic says.`\
+https://www.nytimes.com/2026/06/23/nyregion/a-glimmer-of-hope-for-fixing-penn-station.html
+
+**Corrections: June 23, 2026**\
+`Corrections that appeared in print on Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/23/pageoneplus/corrections-june-23-2026.html
+
+**How Mark Rutte of NATO Manages an Unpredictable Trump**\
+`Secretary General Mark Rutte is headed to Washington. His style has at times frustrated the very European leaders who need him to hold the alliance together.`\
+https://www.nytimes.com/2026/06/23/world/europe/mark-rutte-nato-trump.html
+
+**Iranian Singer Sentenced to 74 Lashes for Performing Without Hijab**\
+`Parastoo Ahmadi and her band will also be barred from leaving the country or performing for two years, dampening hopes for a more moderate postwar regime in Iran.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/iranian-singer-lashing-sentence.html
+
+**At the Obama Center in Chicago, the Food Reflects the Former First Family**\
+`At the new presidential center and museum in Chicago, the restaurants reflect the former first family’s longstanding interest in food and food policy.`\
+https://www.nytimes.com/2026/06/23/dining/barack-obama-center-restaurants-food-chicago.html
+
+**Exercise and Stress: Do High-Intensity Workouts Spike Cortisol Levels?**\
+`We asked experts to explain the relationship between the stress hormone and exercise.`\
+https://www.nytimes.com/2026/06/23/well/move/exercise-stress-cortisol-levels.html
+
+**From Florence to Malta, 5 New Boutique Hotels**\
+`Whether set amid vineyards in Burgundy or in the heart of Florence, these boutique hotels will keep the crowds at bay.`\
+https://www.nytimes.com/2026/06/23/travel/boutique-hotels.html
+
+**Iran Makes Moves to Assert Control Over the Strait of Hormuz**\
+`After Iran weaponized the waterway by making it too dangerous for businesses, experts say, the country is now looking to charge fees to vessels seeking to transit the vital water.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/iran-control-strait-of-hormuz.html
+
+**Want to Live Abroad? You Can Still Find a Great Golden Visa.**\
+`As some countries curtail or even cancel their residency-by-investment programs, we scan the world for the most attractive visa plans for Americans.`\
+https://www.nytimes.com/2026/06/23/realestate/golden-visa-panama-portugal-greece-costa-rica.html
+
+**How Does Rent Regulation Work Across the U. S.?**\
+`As New York City considers a rent freeze, a look at how cities and states across the U.S. keep costs in check.`\
+https://www.nytimes.com/2026/06/23/realestate/national-rent-regulation-explainer.html
+
+**America’s Thirst for Gasoline May Not Recover After Iran War**\
+`People drove less and bought more-efficient cars when fuel prices surged, habits that could stick over the long term.`\
+https://www.nytimes.com/2026/06/23/business/economy/gasoline-demand-destruction.html
+
+**Social Security Is Running Out of Money, Fast**\
+`To save the program, we need to eliminate the payroll tax cap.`\
+https://www.nytimes.com/2026/06/23/opinion/moreno-warren-social-security.html
+
+**Charles Hinman, Who Brought New Dimensions to Painting, Dies at 93**\
+`Starting in the early 1960s, the New York artist blurred the line between painting and sculpture with his shaped, protruding canvases.`\
+https://www.nytimes.com/2026/06/23/arts/design/charles-hinman-dead.html
+
 **Of Course the Pope Is a Natural at Memes**\
 `Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
 https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
@@ -117,84 +197,4 @@ https://www.nytimes.com/2026/06/22/us/shooting-chico-california-library.html
 **Danny McBride on Why It’s So Hard for Art to Break Through**\
 `“Nothing has its moment in the sun. And I think that that’s probably just because of the world we live in. There’s just so much stuff out there, old and new,” Danny McBride says on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000010984938/danny-mcbride-on-why-its-so-hard-for-art-to-break-through.html
-
-**As Vance Leads Iran Negotiations, Trump Creates Disruptions in His Path**\
-`Vice President JD Vance is in a politically precarious spot.`\
-https://www.nytimes.com/2026/06/22/us/politics/jd-vance-iran-negotiations.html
-
-**NYT Crossword Answers for June 23, 2026**\
-`Kathy Bloomer won’t give us a straight answer.`\
-https://www.nytimes.com/2026/06/22/crosswords/daily-puzzle-2026-06-23.html
-
-**Judge Blocks Bans on Using Food Stamps for Sugary Drinks and Candy**\
-`A federal judge ruled that the Agriculture Department lacked the authority to approve state waivers that restrict what SNAP participants can buy with their benefits.`\
-https://www.nytimes.com/2026/06/22/us/politics/judge-ruling-food-stamps-sugary-drinks.html
-
-**Storms Disrupt World Cup Matches in Philadelphia and New Jersey**\
-`The ponchos came out as fans did what they could to stay dry. The France-Iraq match in Philadelphia endured a lengthy weather delay.`\
-https://www.nytimes.com/2026/06/22/us/world-cup-storms-rain-photos.html
-
-**Collapsed Surfside Condo Had Been Failing for Weeks, Investigators Find**\
-`Two columns that held up the building’s pool deck began to fail several weeks before the 2021 collapse, according to a new federal report.`\
-https://www.nytimes.com/2026/06/22/us/surfside-condo-investigation.html
-
-**Dark Smoke in a Sunny Place: Neighbors of L.A. Fire Struggle for Breath**\
-`The plume from the stubborn blaze in a cold-storage facility has dissipated, but people in the Boyle Heights neighborhood say they are in a toxic miasma.`\
-https://www.nytimes.com/2026/06/22/us/los-angeles-warehouse-fire-boyle-heights.html
-
-**Trump on the Shabby Condition of the Reflecting Pool: Not My Fault**\
-`President Trump said the blooms of green algae and the peeling polyurethane had nothing to do with the rushed $16.4 million makeover he had ordered.`\
-https://www.nytimes.com/2026/06/22/us/politics/trump-reflecting-pool-blame.html
-
-**Police Officer Killed in Shootout in Montreal**\
-`On Monday, a police officer was killed during a shootout. A civilian was killed and another police officer was wounded, the police said.`\
-https://www.nytimes.com/video/world/canada/100000010984251/montreal-shooting-officer-killed.html
-
-**In New York City, Early Voting Saw Major Changes From 2025**\
-`Turnout was low and the electorate was much older than it was last year when the mayoral race between Mamdani and Cuomo fueled heavy early voting.`\
-https://www.nytimes.com/2026/06/22/nyregion/nyc-early-voting.html
-
-**Abortion Rights Group Endorses Platner Over Collins in Maine**\
-`Senator Susan Collins, a Republican, drew criticism from Planned Parenthood for voting to confirm Justice Brett Kavanaugh, who helped overturn Roe v. Wade.`\
-https://www.nytimes.com/2026/06/22/us/politics/platner-collins-maine-senate-abortion.html
-
-**La razón secreta por la que los jefes quieren que todos vuelvan a la oficina**\
-`La reticencia a cualquier tipo de trabajo remoto quizá se deba a algo muy específico: el ego`\
-https://www.nytimes.com/es/2026/06/22/espanol/opinion/oficina-semana-completa-trabajo-remoto.html
-
-**High School Students Heckle Bard President Over His Ties With Epstein**\
-`At a graduation ceremony for high schools affiliated with the college, Leon Botstein said, “To get anything done, you’re going to have to dance with the devil.”`\
-https://www.nytimes.com/2026/06/22/nyregion/bard-college-botsein-epstein-high-school-commencement.html
-
-**Tesla Crash That Killed a Texas Woman Will be Investigated by Federal Regulators**\
-`The car’s driver-assistance system was in use when the crash killed a woman on Friday, the police said.`\
-https://www.nytimes.com/2026/06/22/business/tesla-texas-autopilot-crash-nhtsa.html
-
-**Keir Starmer renuncia como primer ministro del Reino Unido. ¿Qué sigue ahora?**\
-`Su salida allana el camino para que Andy Burnham, un popular exalcalde del Partido Laborista, se convierta en el séptimo primer ministro del país en una década.`\
-https://www.nytimes.com/es/2026/06/22/espanol/mundo/keir-starmer-renuncia-reino-unido.html
-
-**Iran Team Leaves Locker Room Note: The ‘Spirit of Iran Remains Alive and Steadfast’**\
-`After fighting Belgium to a draw for one of Iran’s best World Cup results, the Iranians had a note for their fans and the world.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/iran-world-cup-locker-room-note.html
-
-**Clive Davis Knew to Let Patti Smith Have Free Rein**\
-`For Patti Smith, the best guidance was something that Davis rarely granted: free rein.`\
-https://www.nytimes.com/2026/06/22/arts/music/clive-davis-patti-smith.html
-
-**Protester Is Struck by Driver Outside Immigration Detention Center**\
-`The Delaney Hall facility in New Jersey has been the site of daily protests for nearly a month. Police officials in Newark are continuing to investigate the incident.`\
-https://www.nytimes.com/2026/06/22/nyregion/delaney-hall-protester-hit.html
-
-**U.S. Eases Sanctions on Iran’s Oil**\
-`Also, Alan Greenspan dies at 100. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/06/22/briefing/us-eases-sanctions-on-irans-oil.html
-
-**With Win in Washington, Socialists Have Momentum in Urban America**\
-`Democratic socialists, harnessing generational frustration over affordability, lead New York and Seattle and are knocking on the door in Los Angeles and Washington.`\
-https://www.nytimes.com/2026/06/22/us/politics/democratic-socialist-mayors.html
-
-**Federal Citizenship Data Tool Cannot Be Used to Screen Voters, Judge Rules**\
-`A federal judge ruled that the Trump administration’s providing federal data to states to check and purge their voter rolls violated several laws prohibiting the disclosure.`\
-https://www.nytimes.com/2026/06/22/us/politics/federal-citizenship-database-voting.html
 

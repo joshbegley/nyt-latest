@@ -1,3 +1,47 @@
+**Of Course the Pope Is a Natural at Memes**\
+`Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
+https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
+
+**Covid Politics Don’t Have to Be Toxic**\
+`Nirav Shah is something that would seem anathema in contemporary politics: a public health technocrat who became a household name during Covid.`\
+https://www.nytimes.com/2026/06/23/opinion/nirav-shah-maine-covid.html
+
+**The A.I. Boom Boosted Teacher Pay in a Rural County. Can It Last?**\
+`The large bonuses tied to data center construction in Richland Parish, La., are unprecedented, but critics say it is not a panacea.`\
+https://www.nytimes.com/2026/06/23/us/louisana-teachers-bonus-meta-tax-revenue.html
+
+**Delcy Rodríguez, Venezuela’s President, Struggles to Uphold Trump’s Narrative of Success**\
+`President Trump says Venezuela, under U.S. oversight, has “never made the money” it is making now. But new oil revenue isn’t helping ordinary Venezuelans, and anger seems to be mounting.`\
+https://www.nytimes.com/2026/06/23/world/americas/venezuela-oil-delcy-rodriguez-trump.html
+
+**Plays, Musicals and Theater Festivals Across the U.S. Worth Traveling For**\
+`Across the country, audiences will find an abundance of Shakespeare, exciting new plays, and musicals and regional repertories in bucolic settings.`\
+https://www.nytimes.com/2026/06/23/theater/theater-musicals-festivals-summer.html
+
+**Book Review: ‘The Housewives Underground,’ by Kaitlyn Tiffany**\
+`In “The Housewives Underground,” the Atlantic writer Kaitlyn Tiffany salutes a loose network of skeptics who questioned the findings of the Warren Report.`\
+https://www.nytimes.com/2026/06/23/books/review/the-housewives-underground-kaitlyn-tiffany.html
+
+**Searching for Clues in Jeffrey Epstein’s Boyhood**\
+`“Jeff” grew up in an insular world, kept company with a few brainy boys and fixated on girls. Was a monster hiding in plain sight?`\
+https://www.nytimes.com/2026/06/23/well/jeffrey-epstein-childhood-sea-gate-coney-island.html
+
+**This Megafactory Is a Test Case for the U.S.-China Tech Race**\
+`Chinese firms have some of the world’s most advanced technology. But U.S. officials say relying on it could come with a downside.`\
+https://www.nytimes.com/2026/06/23/business/economy/china-megafactory-us-tech-race.html
+
+**Is This the Year Florida Turns Blue?**\
+`David Jolly must persuade voters who have been increasingly hostile to Democrats that he’s a different kind of Democrat.`\
+https://www.nytimes.com/2026/06/23/opinion/florida-politics-midterms-governors-race.html
+
+**Short Cruises Off the New England Coast**\
+`From Connecticut to Maine, narrated excursions, and even a mailboat run, are ready to be added to summer vacation itineraries.`\
+https://www.nytimes.com/2026/06/23/travel/short-new-england-cruises.html
+
+**Book Review: “Nebraska,” by Monica Datta**\
+`Monica Datta’s “Nebraska” is a maximalist, continent-spanning story of a mother killing her youngest child, as relayed by a highly idiosyncratic psychoanalyst.`\
+https://www.nytimes.com/2026/06/23/books/review/nebraska-monica-datta.html
+
 **Fans React as Messi Breaks World Cup Scoring Record**\
 `Fans went wild on Monday when Lionel Messi, the captain of Argentina’s national soccer team, broke the record for the most goals scored by a player in World Cup history.`\
 https://www.nytimes.com/video/sports/soccer/100000010985062/world-cup-messi-argentina-record.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/06/22/us/politics/democratic-socialist-mayors.html
 **Federal Citizenship Data Tool Cannot Be Used to Screen Voters, Judge Rules**\
 `A federal judge ruled that the Trump administration’s providing federal data to states to check and purge their voter rolls violated several laws prohibiting the disclosure.`\
 https://www.nytimes.com/2026/06/22/us/politics/federal-citizenship-database-voting.html
-
-**Looking Back on the U.S.A.’s Many Founders, 250 Years In**\
-`In the past 50 years, the way we tell the story of the Revolution has become dramatically more complex. Can it still inspire us all?`\
-https://www.nytimes.com/2026/06/22/magazine/america-founders-history-usa-250th-anniversary.html
-
-**School Year Cut Short and Aid Delivery Slowed Amid Fuel Crisis in Cuba**\
-`A U.S. oil blockade imposed by the Trump administration has set off an increasingly agonizing energy crisis that has brought transportation largely to a standstill. In an effort to save energy resources, the government ended the school year early.`\
-https://www.nytimes.com/video/world/americas/100000010983461/cuba-us-trump-fuel-crisis-oil-blockade.html
-
-**The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
-`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html
-
-**The Enslaved Woman Who Sued for Freedom and Emancipated Herself**\
-`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/elizabeth-freeman-slavery-lawsuit-usa-revolution.html
-
-**Britons React to Prime Minister Keir Starmer’s Resignation Announcement**\
-`After Prime Minister Keir Starmer announced that he is resigning from his position, Britons shared their thoughts about a change of leadership.`\
-https://www.nytimes.com/video/world/europe/100000010983411/starmer-resignation-reaction-britain.html
-
-**The Man of Faith Who Heard a Righteous Call in the Founding Credo**\
-`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/revolutionary-war-lemuel-haynes-black-soldier-essay.html
-
-**Why Democrats Need a Politics of Joy**\
-`The joylessness of metrics-obsessed, achievement-oriented elite culture is eroding the simple joys of living, the novelist Gary Shteyngart argues on “The Ezra Klein Show.” And, he says, this antipathy toward pleasure is a problem for Democrats.`\
-https://www.nytimes.com/video/opinion/100000010970914/why-democrats-need-a-politics-of-joy.html
-
-**The Patriot Housewife Whose Plays Helped Push American Toward Revolution**\
-`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html
-
-**The Radical Act of Enjoying This Life**\
-`On “The Ezra Klein Show,” the Times Opinion columnist Ezra Klein asks the novelist Gary Shteyngart about his philosophy of enjoyment and why it can feel like such a radical act to simply be present.`\
-https://www.nytimes.com/video/opinion/the-radical-act-of-enjoying-this-life.html
-
-**The Teenage Soldier Who Revealed How the Patriots Really Won the War**\
-`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/usa-revolutionary-war-history-joseph-plumb-martin.html
-
-**The Radical Pacifist Who Inspired the First Armed Rebellion of the Founding Era**\
-`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-hermon-husband-william-tryon.html
 

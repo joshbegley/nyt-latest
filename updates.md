@@ -1,3 +1,47 @@
+**Of Course the Pope Is a Natural at Memes**\
+`Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
+https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
+
+**Covid Politics Don’t Have to Be Toxic**\
+`Nirav Shah is something that would seem anathema in contemporary politics: a public health technocrat who became a household name during Covid.`\
+https://www.nytimes.com/2026/06/23/opinion/nirav-shah-maine-covid.html
+
+**The A.I. Boom Boosted Teacher Pay in a Rural County. Can It Last?**\
+`The large bonuses tied to data center construction in Richland Parish, La., are unprecedented, but critics say it is not a panacea.`\
+https://www.nytimes.com/2026/06/23/us/louisana-teachers-bonus-meta-tax-revenue.html
+
+**Delcy Rodríguez, Venezuela’s President, Struggles to Uphold Trump’s Narrative of Success**\
+`President Trump says Venezuela, under U.S. oversight, has “never made the money” it is making now. But new oil revenue isn’t helping ordinary Venezuelans, and anger seems to be mounting.`\
+https://www.nytimes.com/2026/06/23/world/americas/venezuela-oil-delcy-rodriguez-trump.html
+
+**Plays, Musicals and Theater Festivals Across the U.S. Worth Traveling For**\
+`Across the country, audiences will find an abundance of Shakespeare, exciting new plays, and musicals and regional repertories in bucolic settings.`\
+https://www.nytimes.com/2026/06/23/theater/theater-musicals-festivals-summer.html
+
+**Book Review: ‘The Housewives Underground,’ by Kaitlyn Tiffany**\
+`In “The Housewives Underground,” the Atlantic writer Kaitlyn Tiffany salutes a loose network of skeptics who questioned the findings of the Warren Report.`\
+https://www.nytimes.com/2026/06/23/books/review/the-housewives-underground-kaitlyn-tiffany.html
+
+**Searching for Clues in Jeffrey Epstein’s Boyhood**\
+`“Jeff” grew up in an insular world, kept company with a few brainy boys and fixated on girls. Was a monster hiding in plain sight?`\
+https://www.nytimes.com/2026/06/23/well/jeffrey-epstein-childhood-sea-gate-coney-island.html
+
+**This Megafactory Is a Test Case for the U.S.-China Tech Race**\
+`Chinese firms have some of the world’s most advanced technology. But U.S. officials say relying on it could come with a downside.`\
+https://www.nytimes.com/2026/06/23/business/economy/china-megafactory-us-tech-race.html
+
+**Is This the Year Florida Turns Blue?**\
+`David Jolly must persuade voters who have been increasingly hostile to Democrats that he’s a different kind of Democrat.`\
+https://www.nytimes.com/2026/06/23/opinion/florida-politics-midterms-governors-race.html
+
+**Short Cruises Off the New England Coast**\
+`From Connecticut to Maine, narrated excursions, and even a mailboat run, are ready to be added to summer vacation itineraries.`\
+https://www.nytimes.com/2026/06/23/travel/short-new-england-cruises.html
+
+**Book Review: “Nebraska,” by Monica Datta**\
+`Monica Datta’s “Nebraska” is a maximalist, continent-spanning story of a mother killing her youngest child, as relayed by a highly idiosyncratic psychoanalyst.`\
+https://www.nytimes.com/2026/06/23/books/review/nebraska-monica-datta.html
+
 **The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
 `For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html
