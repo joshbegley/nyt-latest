@@ -163,11 +163,11 @@ https://www.nytimes.com/2026/06/22/magazine/america-founders-history-usa-250th-a
 https://www.nytimes.com/video/world/americas/100000010983461/cuba-us-trump-fuel-crisis-oil-blockade.html
 
 **The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
-`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html
 
 **The Enslaved Woman Who Sued for Freedom and Emancipated Herself**\
-`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/elizabeth-freeman-slavery-lawsuit-usa-revolution.html
 
 **Britons React to Prime Minister Keir Starmer’s Resignation Announcement**\
@@ -175,7 +175,7 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/elizabeth-freeman-slaver
 https://www.nytimes.com/video/world/europe/100000010983411/starmer-resignation-reaction-britain.html
 
 **The Man of Faith Who Heard a Righteous Call in the Founding Credo**\
-`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/revolutionary-war-lemuel-haynes-black-soldier-essay.html
 
 **Why Democrats Need a Politics of Joy**\
@@ -183,7 +183,7 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/revolutionary-war-lemuel
 https://www.nytimes.com/video/opinion/100000010970914/why-democrats-need-a-politics-of-joy.html
 
 **The Patriot Housewife Whose Plays Helped Push American Toward Revolution**\
-`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html
 
 **The Radical Act of Enjoying This Life**\
@@ -191,10 +191,10 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-
 https://www.nytimes.com/video/opinion/the-radical-act-of-enjoying-this-life.html
 
 **The Teenage Soldier Who Revealed How the Patriots Really Won the War**\
-`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/usa-revolutionary-war-history-joseph-plumb-martin.html
 
 **The Radical Pacifist Who Inspired the First Armed Rebellion of the Founding Era**\
-`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-hermon-husband-william-tryon.html
 

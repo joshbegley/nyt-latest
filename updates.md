@@ -1,3 +1,27 @@
+**The Itinerant Preacher Who Helped Secure the Separation of Church and State**\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-constitution-john-leland-baptist-preacher.html
+
+**The Enslaved Woman Who Sued for Freedom and Emancipated Herself**\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/elizabeth-freeman-slavery-lawsuit-usa-revolution.html
+
+**The Man of Faith Who Heard a Righteous Call in the Founding Credo**\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/revolutionary-war-lemuel-haynes-black-soldier-essay.html
+
+**The Patriot Housewife Whose Plays Helped Push American Toward Revolution**\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-the-adulateur-mercy-otis-warren.html
+
+**The Teenage Soldier Who Revealed How the Patriots Really Won the War**\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/usa-revolutionary-war-history-joseph-plumb-martin.html
+
+**The Radical Pacifist Who Inspired the First Armed Rebellion of the Founding Era**\
+`For the 250th anniversary, the Times Magazine asked leading historians to profile founding-era Americans whose roles in the drama have been often overlooked.`\
+https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-hermon-husband-william-tryon.html
+
 **Fans React as Messi Breaks World Cup Scoring Record**\
 `Fans went wild on Monday when Lionel Messi, the captain of Argentina’s national soccer team, broke the record for the most goals scored by a player in World Cup history.`\
 https://www.nytimes.com/video/sports/soccer/100000010985062/world-cup-messi-argentina-record.html
