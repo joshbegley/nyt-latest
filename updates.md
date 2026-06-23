@@ -1,3 +1,7 @@
+**If You Love America, Cringe for It**\
+`Let’s remember who we once were, because it’s what we may yet be again.`\
+https://www.nytimes.com/2026/06/23/opinion/trump-meloni-america-cringe.html
+
 **Ukrainian Women Plead for News of Disabled Relatives Held by Russia**\
 `Four years after Ukraine was invaded, many of the people who lived in institutional settings remain unaccounted for.`\
 https://www.nytimes.com/2026/06/23/world/europe/ukraine-missing-children-russia.html
