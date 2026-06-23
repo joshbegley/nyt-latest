@@ -1,3 +1,7 @@
+**Dark Smoke in a Sunny Place: Neighbors of L.A. Fire Struggle for Breath**\
+`The plume from the stubborn blaze in a cold-storage facility has dissipated, but people in the Boyle Heights neighborhood say they are in a toxic miasma.`\
+https://www.nytimes.com/2026/06/22/us/los-angeles-warehouse-fire-boyle-heights.html
+
 **Trump on the Shabby Condition of the Reflecting Pool: Not My Fault**\
 `President Trump said the blooms of green algae and the peeling polyurethane had nothing to do with the rushed $16.4 million makeover he had ordered.`\
 https://www.nytimes.com/2026/06/22/us/politics/trump-reflecting-pool-blame.html
