@@ -1,3 +1,7 @@
+**Major League Baseball Clears Top Doctor in Doping Case**\
+`The commissioner’s office said it had no concerns about Dr. Neal ElAttrache after investigating his role in supporting the use of performance-enhancing drugs by a U.F.C. star.`\
+https://www.nytimes.com/2026/06/23/sports/baseball/mlb-elattrache-mcgregor-doping.html
+
 **How to Add LED Light Therapy to Your Beauty Routine**\
 `An expert-backed guide on the benefits of incorporating red, blue and near-infrared light therapy into your beauty routine.`\
 https://www.nytimes.com/2026/06/23/t-magazine/led-light-therapy-guide.html
