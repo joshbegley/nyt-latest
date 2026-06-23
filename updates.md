@@ -1,3 +1,15 @@
+**Japan to Raise Some Tourist Visa Fees More Than 400 Percent**\
+`The hike, from around $18 to $93 for a single trip, will apply to visitors from countries including China, India and Vietnam, but not most Western travelers.`\
+https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.html
+
+**Mideast Live Updates: Iran Says It Will Not Allow Inspections of Damaged Nuclear Sites**\
+`Iran’s foreign ministry spokesman pushed back on Vice President JD Vance’s claims of a “major milestone” in talks over the weekend, saying that negotiators had “no detailed discussions on the nuclear issue.”`\
+https://www.nytimes.com/live/2026/06/23/world/iran-us-trump-lebanon
+
+**‘A Terrible Inheritance’: Could Andy Burnham Succeed Where Starmer Failed?**\
+`The likely successor to Prime Minister Keir Starmer will inherit the same challenges of economic stagnation and ascendant populism. Will a divided nation be prepared to give him time?`\
+https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
+
 **Reino Unido: nuevo líder, mismos problemas**\
 `Se necesitará más que un cambio de liderazgo para sacar adelante al país.`\
 https://www.nytimes.com/es/2026/06/23/espanol/mundo/reino-unido-nuevo-lider-mismos-problemas.html
