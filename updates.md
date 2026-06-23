@@ -1,3 +1,11 @@
+**Iranian Court Sentences Singer to 74 Lashes for Performing Without Hijab**\
+`The Iranian singer Parastoo Ahmadi was punished for performing without a hijab, according to a person close to her family and state media news reports.`\
+https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hijab.html
+
+**Senate Votes to Check Trump’s War Powers, Rebuking Him on Iran**\
+`A few Republicans joined Democrats in favor of a measure instructing President Trump to halt military operations against Iran or seek congressional authorization.`\
+https://www.nytimes.com/2026/06/23/us/politics/senate-trump-war-powers-iran.html
+
 **Tucker Carlson and Marjorie Taylor Greene Say They Are Done With the G.O.P.**\
 `Their split with the Republican Party represents an expansion of a feud with President Trump that could further complicate the party’s midterm prospects.`\
 https://www.nytimes.com/2026/06/23/us/politics/tucker-carlson-marjorie-taylor-greene.html

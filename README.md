@@ -1,3 +1,7 @@
+**U.N. Report Says Israeli Killings of Gaza Children Post-Truce Amount to Genocide**\
+`Israel’s U.N. mission dismissed the report as a “libelous sham,” and called the investigating commission a “fundamentally flawed mechanism.”`\
+https://www.nytimes.com/2026/06/23/world/middleeast/un-report-israel-palestinian-children.html
+
 **Iranian Court Sentences Singer to 74 Lashes for Performing Without Hijab**\
 `The Iranian singer Parastoo Ahmadi was punished for performing without a hijab, according to a person close to her family and state media news reports.`\
 https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hijab.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/arts/music/amplifier-newsletter-rosalia-sylva
 **Customers Sue Madison Square Garden Over Hacking of 26 Million Records**\
 `Three class-action lawsuits accuse a hacking group of publishing data that included personal and corporate information stolen from the arena.`\
 https://www.nytimes.com/2026/06/23/nyregion/madison-square-garden-data-breach-hackers.html
-
-**Hard Fork Live Part 3**\
-`Our live interview with Figma C.E.O. Dylan Field.`\
-https://www.nytimes.com/video/podcasts/100000010978970/hard-fork-live-part-3.html
 

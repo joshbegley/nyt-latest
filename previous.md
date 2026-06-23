@@ -1,3 +1,11 @@
+**Iranian Court Sentences Singer to 74 Lashes for Performing Without Hijab**\
+`The Iranian singer Parastoo Ahmadi was punished for performing without a hijab, according to a person close to her family and state media news reports.`\
+https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hijab.html
+
+**Senate Votes to Check Trump’s War Powers, Rebuking Him on Iran**\
+`A few Republicans joined Democrats in favor of a measure instructing President Trump to halt military operations against Iran or seek congressional authorization.`\
+https://www.nytimes.com/2026/06/23/us/politics/senate-trump-war-powers-iran.html
+
 **Tucker Carlson and Marjorie Taylor Greene Say They Are Done With the G.O.P.**\
 `Their split with the Republican Party represents an expansion of a feud with President Trump that could further complicate the party’s midterm prospects.`\
 https://www.nytimes.com/2026/06/23/us/politics/tucker-carlson-marjorie-taylor-greene.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/23/nyregion/madison-square-garden-data-breach-ha
 **Hard Fork Live Part 3**\
 `Our live interview with Figma C.E.O. Dylan Field.`\
 https://www.nytimes.com/video/podcasts/100000010978970/hard-fork-live-part-3.html
-
-**A 10 años del brexit: los efectos en la economía y la política del Reino Unido**\
-`Al señalar la caída del comercio y la inversión, los analistas coinciden en general en que la economía británica es más pequeña de lo que habría sido si el país se hubiera quedado en la UE.`\
-https://www.nytimes.com/es/2026/06/23/espanol/negocios/brexit-efectos-economicos.html
-
-**U.N. Sets Plan to Evacuate Stranded Ships Out of Persian Gulf**\
-`The International Maritime Organization, working with multiple countries, said it has ensured that vessels can sail safely through the Strait of Hormuz after months of being idled.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/imo-persian-gulf-stranded-ships.html
 
