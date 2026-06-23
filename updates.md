@@ -1,3 +1,15 @@
+**Neighborhood Reels From Loss of Landmark Church That Stood for 173 Years**\
+`The South Bushwick Church, whose steeple was a local beacon, was heavily damaged in a fire on Friday in a blow to a Brooklyn neighborhood known for its architectural gems.`\
+https://www.nytimes.com/2026/06/23/nyregion/bushwick-church-fire.html
+
+**$50 Million Spent on N.Y. Primaries Includes A.I. and AIPAC Money**\
+`As early voting began earlier this month, AIPAC emerged from the sidelines to funnel $650,000 to Representative Adriano Espaillat, a candidate opposed by a democratic socialist.`\
+https://www.nytimes.com/2026/06/23/nyregion/new-york-primary-campaign-spending.html
+
+**NYT Spelling Bee Answers for June 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/23/crosswords/spelling-bee-forum.html
+
 **At World Cup Soccer Game, Palestinian Emblems Abound**\
 `Jordan’s first qualification for the World Cup also means a World Cup berth for Palestinians, millions of whom live in the country.`\
 https://www.nytimes.com/2026/06/23/world/europe/world-cup-jordan-palestinians.html
