@@ -1,3 +1,7 @@
+**Europe Is Sweltering in an Extreme Heat Wave. Here’s What to Know.**\
+`The most intense conditions are happening in Britain, France and Spain, which are all under high-level heat warnings.`\
+https://www.nytimes.com/2026/06/23/weather/europe-extreme-heat-wave-warning.html
+
 **Bread and Roses**\
 `We look at the democratic socialists who are leading some of America’s big cities.`\
 https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/23/travel/short-new-england-cruises.html
 **Book Review: “Nebraska,” by Monica Datta**\
 `Monica Datta’s “Nebraska” is a maximalist, continent-spanning story of a mother killing her youngest child, as relayed by a highly idiosyncratic psychoanalyst.`\
 https://www.nytimes.com/2026/06/23/books/review/nebraska-monica-datta.html
-
-**Fans React as Messi Breaks World Cup Scoring Record**\
-`Fans went wild on Monday when Lionel Messi, the captain of Argentina’s national soccer team, broke the record for the most goals scored by a player in World Cup history.`\
-https://www.nytimes.com/video/sports/soccer/100000010985062/world-cup-messi-argentina-record.html
 
