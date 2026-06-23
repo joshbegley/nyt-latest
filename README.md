@@ -154,7 +154,7 @@ https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-fran
 `We want to know what you love so much that it’s sacred to you.`\
 https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
 
-**Justice Dept. Withdraws Grand Jury Subpoenas of Journalists**\
+**Justice Dept. Issued, Then Withdrew, Grand Jury Subpoenas of Journalists**\
 `The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
 https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
 
