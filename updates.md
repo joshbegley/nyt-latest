@@ -1,3 +1,7 @@
+**Factors in the N.Y. Primaries: Mamdani, Big Money and a Threat of Rain**\
+`The congressional primaries in New York on Tuesday will answer key questions about the potency of super PACs and the extent of Zohran Mamdani’s influence.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
+
 **Election Live Updates: New York Primaries Will Set Stage for November Battles**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah and Maryland.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah

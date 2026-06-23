@@ -1,3 +1,7 @@
+**Factors in the N.Y. Primaries: Mamdani, Big Money and a Threat of Rain**\
+`The congressional primaries in New York on Tuesday will answer key questions about the potency of super PACs and the extent of Zohran Mamdani’s influence.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
+
 **Iranian Oil Is Moving Again, but Getting Through the Strait Is Complicated**\
 `With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
 https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/23/world/americas/venezuela-oil-delcy-rodriguez-
 **Plays, Musicals and Theater Festivals Across the U.S. Worth Traveling For**\
 `Across the country, audiences will find an abundance of Shakespeare, exciting new plays, and musicals and regional repertories in bucolic settings.`\
 https://www.nytimes.com/2026/06/23/theater/theater-musicals-festivals-summer.html
-
-**Book Review: ‘The Housewives Underground,’ by Kaitlyn Tiffany**\
-`In “The Housewives Underground,” the Atlantic writer Kaitlyn Tiffany salutes a loose network of skeptics who questioned the findings of the Warren Report.`\
-https://www.nytimes.com/2026/06/23/books/review/the-housewives-underground-kaitlyn-tiffany.html
 
