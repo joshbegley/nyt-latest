@@ -1,3 +1,55 @@
+**Strait Reopens and Iranian Oil Flows, But the Path Through Is Complicated**\
+`With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
+https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
+
+**How Mark Rutte of NATO Manages an Unpredictable Trump**\
+`Secretary General Mark Rutte is headed to Washington. His style has at times frustrated the very European leaders who need him to hold the alliance together.`\
+https://www.nytimes.com/2026/06/23/world/europe/mark-rutte-nato-trump.html
+
+**Iranian Singer Sentenced to 74 Lashes for Performing Without Hijab**\
+`Parastoo Ahmadi and her band will also be barred from leaving the country or performing for two years, dampening hopes for a more moderate postwar regime in Iran.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/iranian-singer-lashing-sentence.html
+
+**At the Obama Center in Chicago, the Food Reflects the Former First Family**\
+`At the new presidential center and museum in Chicago, the restaurants reflect the former first family’s longstanding interest in food and food policy.`\
+https://www.nytimes.com/2026/06/23/dining/barack-obama-center-restaurants-food-chicago.html
+
+**Exercise and Stress: Do High-Intensity Workouts Spike Cortisol Levels?**\
+`We asked experts to explain the relationship between the stress hormone and exercise.`\
+https://www.nytimes.com/2026/06/23/well/move/exercise-stress-cortisol-levels.html
+
+**From Florence to Malta, 5 New Boutique Hotels**\
+`Whether set amid vineyards in Burgundy or in the heart of Florence, these boutique hotels will keep the crowds at bay.`\
+https://www.nytimes.com/2026/06/23/travel/boutique-hotels.html
+
+**Iran Makes Moves to Assert Control Over the Strait of Hormuz**\
+`After Iran weaponized the waterway by making it too dangerous for businesses, experts say, the country is now looking to charge fees to vessels seeking to transit the vital water.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/iran-control-strait-of-hormuz.html
+
+**Want to Live Abroad? You Can Still Find a Great Golden Visa.**\
+`As some countries curtail or even cancel their residency-by-investment programs, we scan the world for the most attractive visa plans for Americans.`\
+https://www.nytimes.com/2026/06/23/realestate/golden-visa-panama-portugal-greece-costa-rica.html
+
+**How Does Rent Regulation Work Across the U. S.?**\
+`As New York City considers a rent freeze, a look at how cities and states across the U.S. keep costs in check.`\
+https://www.nytimes.com/2026/06/23/realestate/national-rent-regulation-explainer.html
+
+**America’s Thirst for Gasoline May Not Recover After Iran War**\
+`People drove less and bought more-efficient cars when fuel prices surged, habits that could stick over the long term.`\
+https://www.nytimes.com/2026/06/23/business/economy/gasoline-demand-destruction.html
+
+**Social Security Is Running Out of Money, Fast**\
+`To save the program, we need to eliminate the payroll tax cap.`\
+https://www.nytimes.com/2026/06/23/opinion/moreno-warren-social-security.html
+
+**Charles Hinman, Who Brought New Dimensions to Painting, Dies at 93**\
+`Starting in the early 1960s, the New York artist blurred the line between painting and sculpture with his shaped, protruding canvases.`\
+https://www.nytimes.com/2026/06/23/arts/design/charles-hinman-dead.html
+
+**Of Course the Pope Is a Natural at Memes**\
+`Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
+https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
+
 **‘The Sound of Music’ and ‘A Few Good Men’ Are Coming to Broadway**\
 `Lincoln Center Theater, basking in the glow of its Tony-winning “Ragtime” run, plans revivals of two more well-known titles this season.`\
 https://www.nytimes.com/2026/06/23/theater/sound-of-music-a-few-good-men-broadway.html

@@ -1,3 +1,79 @@
+**2026 Jimmy Awards: With Bowen Yang as Host, Teen Winners Are Crowned**\
+`Students from Georgia and Arizona won the top prizes at the ceremony, which was hosted by Bowen Yang and celebrates excellence in high school musical theater.`\
+https://www.nytimes.com/2026/06/23/theater/jimmy-awards-bowen-yang-musical-theater.html
+
+**Mourning After the Michael Jackson Movie? It Might Be ‘Michosis.’**\
+`Some Michael Jackson fans are experiencing deep, lingering grief after watching the biopic — a potent reminder that he is gone, they say.`\
+https://www.nytimes.com/2026/06/23/movies/michael-jackson-mourning-michosis.html
+
+**CBS News Hired an Independent Watchdog. What’s He Doing?**\
+`With CBS News rocked by controversy, some viewers have turned to the network ombudsman for a public response. So far, they haven’t gotten one.`\
+https://www.nytimes.com/2026/06/23/business/media/cbs-news-ombudsman.html
+
+**Vance lidera las negociaciones con Irán y Trump le pone obstáculos**\
+`Poco después de abandonar Suiza, las bases que el vicepresidente de EE. UU. había esbozado para un posible acuerdo a largo plazo comenzaron a mostrar fisuras.`\
+https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/jd-vance-iran-negociaciones.html
+
+**A Primary in Upstate New York Tests G.O.P. Voters’ Loyalty to Trump**\
+`State party leaders are backing Assemblyman Robert Smullen. But a local businessman and provocateur, Anthony Constantino, has President Trump’s endorsement.`\
+https://www.nytimes.com/2026/06/23/nyregion/trump-republican-new-york-primary-stefanik.html
+
+**Capitaine Washes Ashore in the West Village With Tavern Takes on Seafood**\
+`It’s a hat trick this week with Grimm Tavern from the beer brand, and Trudie’s Tavern from the Gertrude’s owners.`\
+https://www.nytimes.com/2026/06/23/dining/nyc-restaurant-news.html
+
+**Former NOAA Employees Revive Climate Web Site**\
+`The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
+https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
+
+**‘The Sound of Music’ and ‘A Few Good Men’ Are Coming to Broadway**\
+`Lincoln Center Theater, basking in the glow of its Tony-winning “Ragtime” run, plans revivals of two more well-known titles this season.`\
+https://www.nytimes.com/2026/06/23/theater/sound-of-music-a-few-good-men-broadway.html
+
+**The Iran War’s Persistent Threat to Farmers in Poor Countries**\
+`A reopening of the Strait of Hormuz would do little to swiftly ease the pain inflicted by higher prices for fertilizer, food and fuel in Ivory Coast.`\
+https://www.nytimes.com/2026/06/23/business/iran-war-africa-farming.html
+
+**Supreme Court Bars Lawsuit After Prison Guards Shaved Inmate’s Dreadlocks**\
+`Damon Landor, a Rastafarian, tried to sue Louisiana prison officials for violating his religious rights.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-inmates-dreadlocks.html
+
+**Maps: Tracking Tropical Depression Higos**\
+`See the likely path and wind arrival times for Higos`\
+https://www.nytimes.com/interactive/2026/06/23/weather/higos-map-path-tracker.html
+
+**Photos Behind Kennedy Center Tarps Show No Sign of Trump’s Name**\
+`Images circulated by an activist group reveal bare marble where President Trump’s name once resided. The Kennedy Center previously told a federal judge it had been removed.`\
+https://www.nytimes.com/2026/06/23/arts/music/kennedy-center-trump-name-photos-tarps.html
+
+**U.S. and Iran’s Conflicting Claims on Nuclear Inspection Show Challenge Ahead**\
+`President Trump said that in the latest round of peace talks, Iran had agreed to full inspection of its nuclear sites. Iran’s government said it had not.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/diverging-accounts-iran-nuclear-inspections.html
+
+**Ferraris and Shell Companies: Five Charged in Medicare Fraud Schemes**\
+`The Justice Department is taking aim at pricey “skin substitutes,” an overused wound care treatment that cost the government $10 billion in 2024.`\
+https://www.nytimes.com/2026/06/23/us/skin-substitutes-medicare-fraud.html
+
+**Supreme Court Rejects Lawsuit Claiming Cisco Systems Helped China Target Falun Gong**\
+`The court’s decision could have broader implications for whether companies can be held liable for aiding in international human rights abuses.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-cisco-falun-gong.html
+
+**At Least 40 People Drown in France Amid Heat Wave**\
+`At least 40 people have drowned in the last five days in France, according to the country’s prime minister, amid a scorching heat wave that has gripped much of Europe.`\
+https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-france-drowning.html
+
+**What Is Your Holy Grail?**\
+`We want to know what you love so much that it’s sacred to you.`\
+https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
+
+**Justice Dept. Withdraws Grand Jury Subpoenas of Journalists**\
+`The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
+https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
+
+**Una cantante iraní fue condenada a 74 latigazos por actuar sin hiyab**\
+`A Parastoo Ahmadi y a su grupo también se les prohibirá salir del país o actuar durante dos años. La sentencia frena las esperanzas de un régimen más moderado tras la guerra en Irán.`\
+https://www.nytimes.com/es/2026/06/23/espanol/mundo/cantante-iran-latigazos.html
+
 **After Wars and False Starts, Cautious Optimism for U.S.-Iran Talks**\
 `Tehran and Washington face myriad negotiating pitfalls. But both sides are exhausted and running out of options. They may finally need a deal.`\
 https://www.nytimes.com/2026/06/23/world/middleeast/united-states-iran-talks-optimism.html
@@ -105,84 +181,4 @@ https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-
 **What’s the Matter With Congress?**\
 `A debate between old friends about whether it is fear or polarization that is making Congress weak.`\
 https://www.nytimes.com/2026/06/23/opinion/congress-house-partisanship-fear.html
-
-**Major Supreme Court Decisions Testing Trump’s Policies Remain**\
-`Over the next two weeks, the justices will release more than a dozen final opinions, including high-profile decisions on birthright citizenship, the Federal Reserve and transgender athletes.`\
-https://www.nytimes.com/2026/06/23/us/politics/supreme-court-trump-major-cases.html
-
-**China Takes Supercomputer Crown From U.S. For First Time Since 2017**\
-`A supercomputer in Shenzhen was declared the world’s fastest. It uses only standard microprocessors and not the special-purpose chips called graphics processing units.`\
-https://www.nytimes.com/2026/06/23/technology/china-supercomputer-crown-us.html
-
-**This Backyard A.D.U. Is Multigenerational by Design**\
-`Father-and-daughter architects Jim and Cotton Estes collaborated on their first project, right in Ms. Estes’s San Antonio backyard.`\
-https://www.nytimes.com/2026/06/23/realestate/san-antonio-adu-estes-architecture.html
-
-**Europe Created Heat-Wave Protections. Now Comes the ‘Crash Test.’**\
-`Searing temperatures in Western Europe are drawing comparisons to 2003, when a deadly heat wave sparked a reckoning.`\
-https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-protective-measures.html
-
-**Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
-`The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
-https://www.nytimes.com/2026/06/23/arts/rare-books-sex-library-benjamin-franklin.html
-
-**X-Ray Specs for the World’s Oldest, Sealed Letters**\
-`A team of historians, scientists and engineers has developed a portable X-ray scanner to study 4,000-year-old letters encased in clay envelopes.`\
-https://www.nytimes.com/2026/06/23/science/x-ray-specs-for-the-worlds-oldest-sealed-letters.html
-
-**A Glimmer of Hope for Fixing Penn Station**\
-`The plans that Amtrak has released for redoing the notorious station offers good architecture and some promise of moving ahead, our architecture critic says.`\
-https://www.nytimes.com/2026/06/23/nyregion/a-glimmer-of-hope-for-fixing-penn-station.html
-
-**Corrections: June 23, 2026**\
-`Corrections that appeared in print on Tuesday, June 23, 2026.`\
-https://www.nytimes.com/2026/06/23/pageoneplus/corrections-june-23-2026.html
-
-**How Mark Rutte of NATO Manages an Unpredictable Trump**\
-`Secretary General Mark Rutte is headed to Washington. His style has at times frustrated the very European leaders who need him to hold the alliance together.`\
-https://www.nytimes.com/2026/06/23/world/europe/mark-rutte-nato-trump.html
-
-**Iranian Singer Sentenced to 74 Lashes for Performing Without Hijab**\
-`Parastoo Ahmadi and her band will also be barred from leaving the country or performing for two years, dampening hopes for a more moderate postwar regime in Iran.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/iranian-singer-lashing-sentence.html
-
-**At the Obama Center in Chicago, the Food Reflects the Former First Family**\
-`At the new presidential center and museum in Chicago, the restaurants reflect the former first family’s longstanding interest in food and food policy.`\
-https://www.nytimes.com/2026/06/23/dining/barack-obama-center-restaurants-food-chicago.html
-
-**Exercise and Stress: Do High-Intensity Workouts Spike Cortisol Levels?**\
-`We asked experts to explain the relationship between the stress hormone and exercise.`\
-https://www.nytimes.com/2026/06/23/well/move/exercise-stress-cortisol-levels.html
-
-**From Florence to Malta, 5 New Boutique Hotels**\
-`Whether set amid vineyards in Burgundy or in the heart of Florence, these boutique hotels will keep the crowds at bay.`\
-https://www.nytimes.com/2026/06/23/travel/boutique-hotels.html
-
-**Iran Makes Moves to Assert Control Over the Strait of Hormuz**\
-`After Iran weaponized the waterway by making it too dangerous for businesses, experts say, the country is now looking to charge fees to vessels seeking to transit the vital water.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/iran-control-strait-of-hormuz.html
-
-**Want to Live Abroad? You Can Still Find a Great Golden Visa.**\
-`As some countries curtail or even cancel their residency-by-investment programs, we scan the world for the most attractive visa plans for Americans.`\
-https://www.nytimes.com/2026/06/23/realestate/golden-visa-panama-portugal-greece-costa-rica.html
-
-**How Does Rent Regulation Work Across the U. S.?**\
-`As New York City considers a rent freeze, a look at how cities and states across the U.S. keep costs in check.`\
-https://www.nytimes.com/2026/06/23/realestate/national-rent-regulation-explainer.html
-
-**America’s Thirst for Gasoline May Not Recover After Iran War**\
-`People drove less and bought more-efficient cars when fuel prices surged, habits that could stick over the long term.`\
-https://www.nytimes.com/2026/06/23/business/economy/gasoline-demand-destruction.html
-
-**Social Security Is Running Out of Money, Fast**\
-`To save the program, we need to eliminate the payroll tax cap.`\
-https://www.nytimes.com/2026/06/23/opinion/moreno-warren-social-security.html
-
-**Charles Hinman, Who Brought New Dimensions to Painting, Dies at 93**\
-`Starting in the early 1960s, the New York artist blurred the line between painting and sculpture with his shaped, protruding canvases.`\
-https://www.nytimes.com/2026/06/23/arts/design/charles-hinman-dead.html
-
-**Of Course the Pope Is a Natural at Memes**\
-`Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
-https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
 
