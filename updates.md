@@ -1,3 +1,83 @@
+**New York 24th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-24-primary.html
+
+**New York 25th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-25-primary.html
+
+**New York 21st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-21-primary.html
+
+**New York 20th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-20-primary.html
+
+**New York 19th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-19-primary.html
+
+**New York 18th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-18-primary.html
+
+**New York 17th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-17-primary.html
+
+**New York 14th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-14-primary.html
+
+**New York 16th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-16-primary.html
+
+**New York 15th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-15-primary.html
+
+**New York 11th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-11-primary.html
+
+**New York 13th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-13-primary.html
+
+**Maryland Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-5-primary.html
+
+**Maryland First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-1-primary.html
+
+**Maryland Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-2-primary.html
+
+**Maryland Governor Primary 2026: Live Election Results, Moore vs. Felber**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-governor-primary.html
+
+**Maryland Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-3-primary.html
+
+**Maryland Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-4-primary.html
+
+**Maryland Comptroller Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-comptroller-primary.html
+
+**Maryland Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-attorney-general-primary.html
+
 **Letter From Conservatives Prompted Inquiry of Civil Rights Group, Lawyers Say**\
 `Several right-wing groups sent a letter in September to Stephen Miller, a top aide to President Trump, urging greater scrutiny of the Southern Poverty Law Center.`\
 https://www.nytimes.com/2026/06/23/us/fbi-southern-poverty-law-center-letter.html
