@@ -1,3 +1,11 @@
+**Street Style Look of the Week: French Fishnets for a Lengthy Layover**\
+`A young European wasn’t counting on staying in San Francisco when he missed his flight. Luckily, he had some Pride-worthy items in his suitcase.`\
+https://www.nytimes.com/2026/06/23/style/street-style-look-fishnets.html
+
+**The Extraordinary Embezzlement Case That Rocked Scottish Politics**\
+`Peter Murrell, the husband of the former Scottish leader Nicola Sturgeon, was sentenced on Tuesday after he admitted to buying a bizarre range of items with the Scottish National Party’s money.`\
+https://www.nytimes.com/2026/06/23/world/europe/scotland-peter-murrell-nicola-sturgeon-scottish-national-party.html
+
 **The N.Y. Primaries Will Answer Key Questions: Mamdani, Israel and More**\
 `The congressional primaries in New York on Tuesday will answer key questions about the potency of super PACs and the extent of Zohran Mamdani’s influence.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/23/us/louisana-teachers-bonus-meta-tax-revenue.h
 **Covid Politics Don’t Have to Be Toxic**\
 `Nirav Shah is something that would seem anathema in contemporary politics: a public health technocrat who became a household name during Covid.`\
 https://www.nytimes.com/2026/06/23/opinion/nirav-shah-maine-covid.html
-
-**Delcy Rodríguez, Venezuela’s President, Struggles to Uphold Trump’s Narrative of Success**\
-`President Trump says Venezuela, under U.S. oversight, has “never made the money” it is making now. But new oil revenue isn’t helping ordinary Venezuelans, and anger seems to be mounting.`\
-https://www.nytimes.com/2026/06/23/world/americas/venezuela-oil-delcy-rodriguez-trump.html
-
-**Plays, Musicals and Theater Festivals Across the U.S. Worth Traveling For**\
-`Across the country, audiences will find an abundance of Shakespeare, exciting new plays, and musicals and regional repertories in bucolic settings.`\
-https://www.nytimes.com/2026/06/23/theater/theater-musicals-festivals-summer.html
 

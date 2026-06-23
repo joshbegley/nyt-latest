@@ -1,3 +1,11 @@
+**Street Style Look of the Week: French Fishnets for a Lengthy Layover**\
+`A young European wasn’t counting on staying in San Francisco when he missed his flight. Luckily, he had some Pride-worthy items in his suitcase.`\
+https://www.nytimes.com/2026/06/23/style/street-style-look-fishnets.html
+
+**The Extraordinary Embezzlement Case That Rocked Scottish Politics**\
+`Peter Murrell, the husband of the former Scottish leader Nicola Sturgeon, was sentenced on Tuesday after he admitted to buying a bizarre range of items with the Scottish National Party’s money.`\
+https://www.nytimes.com/2026/06/23/world/europe/scotland-peter-murrell-nicola-sturgeon-scottish-national-party.html
+
 **The N.Y. Primaries Will Answer Key Questions: Mamdani, Israel and More**\
 `The congressional primaries in New York on Tuesday will answer key questions about the potency of super PACs and the extent of Zohran Mamdani’s influence.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
