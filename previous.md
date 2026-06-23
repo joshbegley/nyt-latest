@@ -1,3 +1,11 @@
+**Fire at Educational Center in Northern India Kills at Least 14**\
+`At least 14 people, most aged 16 to 18, were killed when a fire blazed through a commercial building that housed an educational center, a pet shop, and a clinic in the northern Indian city of Lucknow on Monday. The cause of the fire is being investigated.`\
+https://www.nytimes.com/video/world/asia/100000010985897/lucknow-india-fire.html
+
+**Vendors Told to Start Dismantling Florida’s ‘Alligator Alcatraz’ Detention Center**\
+`The directive came days after the federal government said all detainees had been transferred out of the state-run immigration detention center in the Florida Everglades.`\
+https://www.nytimes.com/2026/06/23/us/alligator-alcatraz-closing.html
+
 **7 Songs That Spun My Head Around**\
 `Hear a Rosalía tour highlight, forgotten new-wave from the 1970s and more.`\
 https://www.nytimes.com/2026/06/23/arts/music/amplifier-newsletter-rosalia-sylvan-esso.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-general-primary.html
-
-**New York Comptroller Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroller-primary.html
-
-**Maryland Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-5-primary.html
 
