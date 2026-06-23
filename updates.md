@@ -1,3 +1,11 @@
+**Alan Wilson Wins Republican Primary for South Carolina Governor**\
+`The runoff was one of the few races this year featuring both candidates endorsed by President Trump. His picks have had mixed results in governor’s contests.`\
+https://www.nytimes.com/2026/06/23/us/south-carolina-governor-alan-wilson.html
+
+**Congress Clears Housing Bill, Cementing a Rare Bipartisan Feat**\
+`A lopsided House vote cleared the measure for President Trump’s signature after a lengthy back and forth and several nearly fatal blows to the legislation.`\
+https://www.nytimes.com/2026/06/23/us/politics/congress-housing-bill.html
+
 **AIPAC, Crypto Cash and Rich Candidates Dominate Maryland House Races**\
 `In two competitive Democratic primaries, well-funded interest groups as well as wealthy candidates themselves have poured tens of millions of dollars into advertising.`\
 https://www.nytimes.com/2026/06/23/us/politics/aipac-crypto-maryland-house-races.html
