@@ -1,3 +1,7 @@
+**Supreme Court Rejects Lawsuit Claiming Cisco Systems Helped China Target Falun Gong**\
+`The court’s decision could have broader implications for whether companies can be held liable for aiding in international human rights abuses.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-cisco-falun-gong.html
+
 **At Least 40 People Drown in France Amid Heat Wave**\
 `At least 40 people have drowned in the last five days in France, according to the country’s prime minister, amid a scorching heat wave that has gripped much of Europe.`\
 https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-france-drowning.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/23/world/middleeast/iran-control-strait-of-hormu
 **Want to Live Abroad? You Can Still Find a Great Golden Visa.**\
 `As some countries curtail or even cancel their residency-by-investment programs, we scan the world for the most attractive visa plans for Americans.`\
 https://www.nytimes.com/2026/06/23/realestate/golden-visa-panama-portugal-greece-costa-rica.html
-
-**How Does Rent Regulation Work Across the U. S.?**\
-`As New York City considers a rent freeze, a look at how cities and states across the U.S. keep costs in check.`\
-https://www.nytimes.com/2026/06/23/realestate/national-rent-regulation-explainer.html
 

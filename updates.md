@@ -1,3 +1,11 @@
+**At Least 40 People Drown in France Amid Heat Wave**\
+`At least 40 people have drowned in the last five days in France, according to the country’s prime minister, amid a scorching heat wave that has gripped much of Europe.`\
+https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-france-drowning.html
+
+**What Is Your Holy Grail?**\
+`We want to know what you love so much that it’s sacred to you.`\
+https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
+
 **Justice Dept. Withdraws Grand Jury Subpoenas of Journalists**\
 `The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
 https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
