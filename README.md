@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/23/world/middleeast/un-report-israel-palestinian
 `The Iranian singer Parastoo Ahmadi was punished for performing without a hijab, according to a person close to her family and state media news reports.`\
 https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hijab.html
 
-**Senate Votes to Check Trump’s War Powers, Rebuking Him on Iran**\
+**Senate Votes to Direct End to Iran War, Rebuking Trump on War Powers**\
 `A few Republicans joined Democrats in favor of a measure instructing President Trump to halt military operations against Iran or seek congressional authorization.`\
 https://www.nytimes.com/2026/06/23/us/politics/senate-trump-war-powers-iran.html
 
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/23/us/alligator-alcatraz-closing.html
 `Hear a Rosalía tour highlight, forgotten new-wave from the 1970s and more.`\
 https://www.nytimes.com/2026/06/23/arts/music/amplifier-newsletter-rosalia-sylvan-esso.html
 
-**Customers Sue Madison Square Garden Over Hacking of 26 Million Records**\
-`Three class-action lawsuits accuse a hacking group of publishing data that included personal and corporate information stolen from the arena.`\
-https://www.nytimes.com/2026/06/23/nyregion/madison-square-garden-data-breach-hackers.html
+**Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
+`Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
