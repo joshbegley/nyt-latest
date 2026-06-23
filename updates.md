@@ -1,3 +1,27 @@
+**Supreme Court Bars Lawsuit After Prison Guards Shaved Inmate’s Dreadlocks**\
+`Damon Landor, a Rastafarian, tried to sue Louisiana prison officials for violating his religious rights.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-inmates-dreadlocks.html
+
+**Maps: Tracking Tropical Depression Higos**\
+`See the likely path and wind arrival times for Higos`\
+https://www.nytimes.com/interactive/2026/06/23/weather/higos-map-path-tracker.html
+
+**Photos Behind Kennedy Center Tarps Show No Sign of Trump’s Name**\
+`Images circulated by an activist group reveal bare marble where President Trump’s name once resided. The Kennedy Center previously told a federal judge it had been removed.`\
+https://www.nytimes.com/2026/06/23/arts/music/kennedy-center-trump-name-photos-tarps.html
+
+**Clashing U.S. and Iranian Claims on Nuclear Inspection Show Challenge Ahead**\
+`President Trump said that in the latest round of peace talks, Iran had agreed to full inspection of its nuclear sites. Iran’s government said it had not.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/diverging-accounts-iran-nuclear-inspections.html
+
+**Ferraris and Shell Companies: Five Charged in Medicare Fraud Schemes**\
+`The Justice Department is taking aim at pricey “skin substitutes,” an overused wound care treatment that cost the government $10 billion in 2024.`\
+https://www.nytimes.com/2026/06/23/us/skin-substitutes-medicare-fraud.html
+
+**Supreme Court Rejects Lawsuit Claiming Cisco Systems Helped China Target Falun Gong**\
+`The court’s decision could have broader implications for whether companies can be held liable for aiding in international human rights abuses.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-cisco-falun-gong.html
+
 **At Least 40 People Drown in France Amid Heat Wave**\
 `At least 40 people have drowned in the last five days in France, according to the country’s prime minister, amid a scorching heat wave that has gripped much of Europe.`\
 https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-france-drowning.html
