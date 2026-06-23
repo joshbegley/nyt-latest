@@ -1,3 +1,11 @@
+**Is the Australian Prime Minister’s Pragmatism Enough in Uncertain Times?**\
+`Buffeted by global turmoil and a populist far-right ascendance at home, Anthony Albanese is trying to keep the country feeling hopeful.`\
+https://www.nytimes.com/2026/06/23/world/australia/australia-albanese-prime-minister-popularity.html
+
+**Comedian Guy Branum on ‘What the Old Gays Remember’**\
+`Telling tales from the ancient past of 1997, the comedian Guy Branum is teaching Gen Z what their forefathers knew.`\
+https://www.nytimes.com/2026/06/23/style/guy-branum-what-old-gays-remember.html
+
 **Why Neither Candidate for Governor of New York Faces a Primary Challenge**\
 `Six months ago, Gov. Kathy Hochul expected to have to run in a primary, and it looked like two leading state Republicans would be fighting for their party’s nod. Then things changed.`\
 https://www.nytimes.com/2026/06/23/nyregion/blakeman-hochul-governor-new-york.html
