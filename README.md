@@ -1,3 +1,11 @@
+**Japan to Raise Some Tourist Visa Fees More Than 400 Percent**\
+`The hike, from around $18 to $93 for a single trip, will apply to visitors from countries including China, India and Vietnam, but not most Western travelers.`\
+https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.html
+
+**Mideast Live Updates: Iran Says It Will Not Allow Inspections of Damaged Nuclear Sites**\
+`Iran’s foreign ministry spokesman pushed back on Vice President JD Vance’s claims of a “major milestone” in talks over the weekend, saying that negotiators had “no detailed discussions on the nuclear issue.”`\
+https://www.nytimes.com/live/2026/06/23/world/iran-us-trump-lebanon
+
 **Reino Unido: nuevo líder, mismos problemas**\
 `Se necesitará más que un cambio de liderazgo para sacar adelante al país.`\
 https://www.nytimes.com/es/2026/06/23/espanol/mundo/reino-unido-nuevo-lider-mismos-problemas.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/06/23/crosswords/strands-sidekick-843.html
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
 https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
 
-**Can Andy Burnham Succeed in a Disgruntled Britain Where Starmer Failed?**\
+**‘A Terrible Inheritance’: Could Andy Burnham Succeed Where Starmer Failed?**\
 `The likely successor to Prime Minister Keir Starmer will inherit the same challenges of economic stagnation and ascendant populism. Will a divided nation be prepared to give him time?`\
 https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/23/espanol/opinion/elon-musk-dinero-riqueza-m
 **Neighborhood Reels From Loss of Landmark Church That Stood for 173 Years**\
 `The South Bushwick Church, whose steeple was a local beacon, was heavily damaged in a fire on Friday in a blow to a Brooklyn neighborhood known for its architectural gems.`\
 https://www.nytimes.com/2026/06/23/nyregion/bushwick-church-fire.html
-
-**$50 Million Spent on N.Y. Primaries Includes A.I. and AIPAC Money**\
-`As early voting began earlier this month, AIPAC emerged from the sidelines to funnel $650,000 to Representative Adriano Espaillat, a candidate opposed by a democratic socialist.`\
-https://www.nytimes.com/2026/06/23/nyregion/new-york-primary-campaign-spending.html
-
-**NYT Spelling Bee Answers for June 23, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/23/crosswords/spelling-bee-forum.html
 
