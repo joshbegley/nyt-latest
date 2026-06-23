@@ -1,3 +1,11 @@
+**Britain Is Still Deep in the Shadow of Brexit**\
+`Ten years after a slim majority voted to leave the European Union, the economic and political effects of that decision continue to disrupt the United Kingdom.`\
+https://www.nytimes.com/2026/06/23/world/europe/britain-brexit-legacy.html
+
+**SpaceX Stock Price Is Slumping After Its Blockbuster IPO**\
+`On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
+https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
+
 **Apple Just Closed Its First Unionized U.S. Store**\
 `The company said it had shuttered a Maryland location because of “declining conditions” in a surrounding mall. The union accuses Apple of retaliation.`\
 https://www.nytimes.com/2026/06/23/business/apple-union-store-closure.html
