@@ -1,3 +1,7 @@
+**U.S. Eases Travel Restrictions on Iran’s World Cup Team**\
+`The Iranians will be allowed to enter the United States two days, instead of one, before a pivotal game in Seattle on Friday, officials said.`\
+https://www.nytimes.com/2026/06/23/us/iran-world-cup-travel-restrictions.html
+
 **Major League Baseball Clears Top Doctor in Doping Case**\
 `The commissioner’s office said it had no concerns about Dr. Neal ElAttrache after investigating his role in supporting the use of performance-enhancing drugs by a U.F.C. star.`\
 https://www.nytimes.com/2026/06/23/sports/baseball/mlb-elattrache-mcgregor-doping.html

@@ -1,3 +1,7 @@
+**Services Sold to Boost I.V.F. Odds Backed by Little Evidence, Study Finds**\
+`Some patients spend thousands of dollars on these extra ‘add-on’ procedures during fertility treatment.`\
+https://www.nytimes.com/2026/06/23/well/live/ivf-fertility-treatment-study.html
+
 **U.S. Eases Travel Restrictions on Iran’s World Cup Team**\
 `The Iranians will be allowed to enter the United States two days, instead of one, before a pivotal game in Seattle on Friday, officials said.`\
 https://www.nytimes.com/2026/06/23/us/iran-world-cup-travel-restrictions.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-2-primary.html
 
-**New York 24th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-24-primary.html
-
-**Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
-`Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
+**Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
+`New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
