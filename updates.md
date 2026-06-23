@@ -1,3 +1,11 @@
+**With Starmer’s Resignation, ‘Hot Podium Guy’ Has Outlasted Five U.K. Prime Ministers**\
+`A sound engineer has emerged as an unexpected heartthrob amid Britain’s political tumult.`\
+https://www.nytimes.com/2026/06/23/style/hot-podium-guy-uk-starmer-prime-minister.html
+
+**Trump’s Colombia Prize**\
+`Abelardo De La Espriella appears set to be the country’s next president. It adds another right-wing populist leader to a growing roster around the world.`\
+https://www.nytimes.com/2026/06/23/world/trump-us-colombia-europe-heat-world-cup.html
+
 **If You Love America, Cringe for It**\
 `Let’s remember who we once were, because it’s what we may yet be again.`\
 https://www.nytimes.com/2026/06/23/opinion/trump-meloni-america-cringe.html

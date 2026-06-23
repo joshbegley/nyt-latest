@@ -1,3 +1,7 @@
+**Why Neither Candidate for Governor of New York Faces a Primary Challenge**\
+`Six months ago, Gov. Kathy Hochul expected to have to run in a primary, and it looked like two leading state Republicans would be fighting for their party’s nod. Then things changed.`\
+https://www.nytimes.com/2026/06/23/nyregion/blakeman-hochul-governor-new-york.html
+
 **With Starmer’s Resignation, ‘Hot Podium Guy’ Has Outlasted Five U.K. Prime Ministers**\
 `A sound engineer has emerged as an unexpected heartthrob amid Britain’s political tumult.`\
 https://www.nytimes.com/2026/06/23/style/hot-podium-guy-uk-starmer-prime-minister.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York 13th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-13-primary.html
-
-**Maryland Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-5-primary.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
