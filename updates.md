@@ -1,3 +1,7 @@
+**‘The Sound of Music’ and ‘A Few Good Men’ Are Coming to Broadway**\
+`Lincoln Center Theater, basking in the glow of its Tony-winning “Ragtime” run, plans revivals of two more well-known titles this season.`\
+https://www.nytimes.com/2026/06/23/theater/sound-of-music-a-few-good-men-broadway.html
+
 **The Iran War’s Persistent Threat to Farmers in Poor Countries**\
 `A reopening of the Strait of Hormuz would do little to swiftly ease the pain inflicted by higher prices for fertilizer, food and fuel in Ivory Coast.`\
 https://www.nytimes.com/2026/06/23/business/iran-war-africa-farming.html

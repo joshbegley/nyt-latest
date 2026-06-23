@@ -1,3 +1,15 @@
+**A Primary in Upstate New York Tests G.O.P. Voters’ Loyalty to Trump**\
+`State party leaders are backing Assemblyman Robert Smullen. But a local businessman and provocateur, Anthony Constantino, has President Trump’s endorsement.`\
+https://www.nytimes.com/2026/06/23/nyregion/trump-republican-new-york-primary-stefanik.html
+
+**Capitaine Washes Ashore in the West Village With Tavern Takes on Seafood**\
+`It’s a hat trick this week with Grimm Tavern from the beer brand, and Trudie’s Tavern from the Gertrude’s owners.`\
+https://www.nytimes.com/2026/06/23/dining/nyc-restaurant-news.html
+
+**Former NOAA Employees Revive Climate Web Site**\
+`The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
+https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
+
 **‘The Sound of Music’ and ‘A Few Good Men’ Are Coming to Broadway**\
 `Lincoln Center Theater, basking in the glow of its Tony-winning “Ragtime” run, plans revivals of two more well-known titles this season.`\
 https://www.nytimes.com/2026/06/23/theater/sound-of-music-a-few-good-men-broadway.html
@@ -18,7 +30,7 @@ https://www.nytimes.com/interactive/2026/06/23/weather/higos-map-path-tracker.ht
 `Images circulated by an activist group reveal bare marble where President Trump’s name once resided. The Kennedy Center previously told a federal judge it had been removed.`\
 https://www.nytimes.com/2026/06/23/arts/music/kennedy-center-trump-name-photos-tarps.html
 
-**Clashing U.S. and Iranian Claims on Nuclear Inspection Show Challenge Ahead**\
+**U.S. and Iran’s Conflicting Claims on Nuclear Inspection Show Challenge Ahead**\
 `President Trump said that in the latest round of peace talks, Iran had agreed to full inspection of its nuclear sites. Iran’s government said it had not.`\
 https://www.nytimes.com/2026/06/23/world/middleeast/diverging-accounts-iran-nuclear-inspections.html
 
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-protective-measures.
 **Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
 `The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
 https://www.nytimes.com/2026/06/23/arts/rare-books-sex-library-benjamin-franklin.html
-
-**X-Ray Specs for the World’s Oldest, Sealed Letters**\
-`A team of historians, scientists and engineers has developed a portable X-ray scanner to study 4,000-year-old letters encased in clay envelopes.`\
-https://www.nytimes.com/2026/06/23/science/x-ray-specs-for-the-worlds-oldest-sealed-letters.html
-
-**A Glimmer of Hope for Fixing Penn Station**\
-`The plans that Amtrak has released for redoing the notorious station offers good architecture and some promise of moving ahead, our architecture critic says.`\
-https://www.nytimes.com/2026/06/23/nyregion/a-glimmer-of-hope-for-fixing-penn-station.html
-
-**Corrections: June 23, 2026**\
-`Corrections that appeared in print on Tuesday, June 23, 2026.`\
-https://www.nytimes.com/2026/06/23/pageoneplus/corrections-june-23-2026.html
 
