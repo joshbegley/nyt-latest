@@ -1,3 +1,7 @@
+**Fans React as Messi Breaks World Cup Scoring Record**\
+`Fans went wild on Monday when Lionel Messi, the captain of Argentina’s national soccer team, broke the record for the most goals scored by a player in World Cup history.`\
+https://www.nytimes.com/video/sports/soccer/100000010985062/world-cup-messi-argentina-record.html
+
 **Elon Musk confirma las antiguas preocupaciones sobre los superricos**\
 `Platón hizo una propuesta radical sobre la riqueza que resuena mucho en nuestros tiempos.`\
 https://www.nytimes.com/es/2026/06/23/espanol/opinion/elon-musk-dinero-riqueza-millonarios.html
