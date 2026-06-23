@@ -1,3 +1,31 @@
+**Is Cristiano Ronaldo Hurting Portugal? Plus, USMNT Goalkeeper Matt Freese’s Moment.**\
+`Portugal is one of the favorites to win the World Cup — but is it better off without its legendary superstar?`\
+https://www.nytimes.com/2026/06/23/podcasts/cristiano-ronaldo-portugal-usmnt-goalkeeper-matt-freese.html
+
+**As Trump Purges Immigration Judges, One Speaks Out**\
+`Judges are coming under significant pressure from the administration to carry out deportations or risk losing their jobs.`\
+https://www.nytimes.com/2026/06/23/podcasts/the-daily/trump-immigration-judges.html
+
+**5 Major Supreme Court Decisions to Watch, and the Rise of Sewage Surveillance**\
+`Plus, where did all the cottage cheese go?`\
+https://www.nytimes.com/2026/06/23/podcasts/the-headlines/supreme-court-sewage-surveillance.html
+
+**NYT Connections Answers for June 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
+https://www.nytimes.com/2026/06/23/crosswords/connections-companion-1109.html
+
+**NYT Strands Hints for June 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
+https://www.nytimes.com/2026/06/23/crosswords/strands-sidekick-843.html
+
+**Today’s Wordle Review for June 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
+https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
+
+**Can Andy Burnham Succeed in a Disgruntled Britain Where Starmer Failed?**\
+`The likely successor to Prime Minister Keir Starmer will inherit the same challenges of economic stagnation and ascendant populism. Will a divided nation be prepared to give him time?`\
+https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
+
 **Election Live Updates: New York Primaries Will Set Stage for November Battles**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
