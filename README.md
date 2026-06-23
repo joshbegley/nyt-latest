@@ -1,3 +1,7 @@
+**Britain Is Still Deep in the Shadow of Brexit**\
+`Ten years after a slim majority voted to leave the European Union, the economic and political effects of that decision continue to disrupt the United Kingdom.`\
+https://www.nytimes.com/2026/06/23/world/europe/britain-brexit-legacy.html
+
 **Apple Just Closed Its First Unionized U.S. Store**\
 `The company said it had shuttered a Maryland location because of “declining conditions” in a surrounding mall. The union accuses Apple of retaliation.`\
 https://www.nytimes.com/2026/06/23/business/apple-union-store-closure.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/06/23/business/apple-union-store-closure.html
 `Records are being broken for the second time in a month, leading scientists to probe the upper limits of what the warming climate can dish out.`\
 https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-climate-change.html
 
-**SpaceX Shares Are Slumping After After Its Blockbuster I.P.O.**\
+**SpaceX Stock Price Is Slumping After Its Blockbuster IPO**\
 `On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
 https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
 
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
 **Japan to Raise Some Tourist Visa Fees More Than 400 Percent**\
 `The hike, from around $18 to $93 for a single trip, will apply to visitors from countries including China, India and Vietnam, but not most Western travelers.`\
 https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.html
-
-**Mideast Live Updates: U.S. and Iran Offer Conflicting Accounts of Nuclear Discussions**\
-`President Trump said Iran had agreed to the “highest level” inspections, hours after an Iranian official said there were “no detailed discussions on the nuclear issue,” as the two sides continued to present different narratives of their latest talks.`\
-https://www.nytimes.com/live/2026/06/23/world/iran-us-trump-lebanon
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\

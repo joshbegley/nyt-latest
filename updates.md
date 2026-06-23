@@ -1,3 +1,15 @@
+**Apple Just Closed Its First Unionized U.S. Store**\
+`The company said it had shuttered a Maryland location because of “declining conditions” in a surrounding mall. The union accuses Apple of retaliation.`\
+https://www.nytimes.com/2026/06/23/business/apple-union-store-closure.html
+
+**Europe’s Heat Has Scientists Asking: How Much Hotter Can It Get?**\
+`Records are being broken for the second time in a month, leading scientists to probe the upper limits of what the warming climate can dish out.`\
+https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-climate-change.html
+
+**Appeals Court Allows Trump to Resume Expedited Deportations Nationwide**\
+`In a 2-to-1 vote, a federal appeals court panel ruled that the president can expand the procedure, previously used primarily near the border, to arrests nationally.`\
+https://www.nytimes.com/2026/06/23/us/politics/appeals-court-expedited-deportations.html
+
 **Trump Gives Teamsters a Chance to Shed Oversight Meant to Curb Mob Ties**\
 `Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
 https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
