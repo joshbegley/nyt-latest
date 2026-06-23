@@ -1,3 +1,11 @@
+**The Tech Sell-off Goes Global**\
+`Investors are bracing for rough trading after stocks in Asia and Europe were clobbered on Tuesday. A.I. companies like SpaceX are getting hit hard.`\
+https://www.nytimes.com/2026/06/23/business/dealbook/tech-stocks-chips-spacex.html
+
+**40 People Drown in France as Heat Wave Persists**\
+`Most of the victims, swimming in unsupervised areas, were young, officials said.`\
+https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
+
 **Europe Is Sweltering in an Extreme Heat Wave. Here’s What to Know.**\
 `The most intense conditions are happening in Britain, France and Spain, which are all under high-level heat warnings.`\
 https://www.nytimes.com/2026/06/23/weather/europe-extreme-heat-wave-warning.html
