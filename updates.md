@@ -1,3 +1,7 @@
+**Collapsed Surfside Condo Had Been Failing for Weeks, Investigators Find**\
+`Two columns that held up the building’s pool deck began to fail several weeks before the 2021 collapse, according to a new federal report.`\
+https://www.nytimes.com/2026/06/22/us/surfside-condo-investigation.html
+
 **Dark Smoke in a Sunny Place: Neighbors of L.A. Fire Struggle for Breath**\
 `The plume from the stubborn blaze in a cold-storage facility has dissipated, but people in the Boyle Heights neighborhood say they are in a toxic miasma.`\
 https://www.nytimes.com/2026/06/22/us/los-angeles-warehouse-fire-boyle-heights.html
