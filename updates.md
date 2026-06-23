@@ -1,3 +1,7 @@
+**An Influx of Climate Cash**\
+`Many philanthropists are backing away from climate giving. But one is writing very big checks.`\
+https://www.nytimes.com/2026/06/23/climate/an-influx-of-climate-cash.html
+
 **Utah Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Utah primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-2-primary.html

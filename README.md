@@ -1,3 +1,7 @@
+**Ukrainian Women Plead for News of Disabled Relatives Held by Russia**\
+`Four years after Ukraine was invaded, many of the people who lived in institutional settings remain unaccounted for.`\
+https://www.nytimes.com/2026/06/23/world/europe/ukraine-missing-children-russia.html
+
 **An Influx of Climate Cash**\
 `Many philanthropists are backing away from climate giving. But one is writing very big checks.`\
 https://www.nytimes.com/2026/06/23/climate/an-influx-of-climate-cash.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-
 **Maryland Governor Primary 2026: Live Election Results, Moore vs. Felber**\
 `Get live results and maps from the 2026 Maryland primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maryland-governor-primary.html
-
-**Maryland Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-3-primary.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
