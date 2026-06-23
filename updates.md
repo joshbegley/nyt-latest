@@ -1,3 +1,15 @@
+**Those British Strawberries Are Being Picked by Central Asian Workers**\
+`Ten years after Brexit, most seasonal workers in Britain are from countries such as Kyrgyzstan and Tajikistan. Without them, agricultural chiefs say, many farms would fail.`\
+https://www.nytimes.com/2026/06/23/world/europe/uk-brexit-seasonal-farm-workers-central-asia.html
+
+**Quote of the Day: Starmer Exits With His Rivals at the Gates**\
+`Quotation of the Day for Tuesday, June 23, 2026`\
+https://www.nytimes.com/2026/06/23/pageoneplus/quote-of-the-day-starmer-exits-with-his-rivals-at-the-gates.html
+
+**Brexit Has Cost the UK Growth, Analysts Say, in the Decade Since the Vote**\
+`Citing lower trade and investment, analysts broadly agree that Britain’s economy is smaller than it would have been if the country had stayed in the E.U.`\
+https://www.nytimes.com/2026/06/23/business/brexit-uk-economy.html
+
 **Two Dead After Shooting at California Library**\
 `A gunman used a firearm inside the library while it was open, killing two and injuring another person before being taken into custody, the police said.`\
 https://www.nytimes.com/2026/06/22/us/shooting-chico-california-library.html
