@@ -1,3 +1,7 @@
+**Judge Blocks Bans on Using Food Stamps for Sugary Drinks and Candy**\
+`A federal judge ruled that the Agriculture Department lacked the authority to approve state waivers that restrict what SNAP participants can buy with their benefits.`\
+https://www.nytimes.com/2026/06/22/us/politics/judge-ruling-food-stamps-sugary-drinks.html
+
 **Storms Disrupt World Cup Matches in Philadelphia and New Jersey**\
 `The ponchos came out as fans did what they could to stay dry. The France-Iraq match in Philadelphia endured a lengthy weather delay.`\
 https://www.nytimes.com/2026/06/22/us/world-cup-storms-rain-photos.html
