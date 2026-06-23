@@ -1,3 +1,7 @@
+**AIPAC, Crypto Cash and Rich Candidates Dominate Maryland House Races**\
+`In two competitive Democratic primaries, well-funded interest groups as well as wealthy candidates themselves have poured tens of millions of dollars into advertising.`\
+https://www.nytimes.com/2026/06/23/us/politics/aipac-crypto-maryland-house-races.html
+
 **Chicken Salad Slaw With Peanuts and Nori**\
 `This no-cook, main-dish slaw is all about texture and toppings. The cabbage and shredded chicken are only the beginning. It also has a double dose of savory nuttiness from nori and peanuts, a creamy peanut-ginger dressing and refreshing scallions and cucumbers.`\
 https://www.nytimes.com/video/dining/100000010987721/chicken-salad-slaw-with-peanuts-and-nori.html

@@ -1,3 +1,11 @@
+**Alan Wilson Wins Republican Primary for South Carolina Governor**\
+`The runoff was one of the few races this year featuring both candidates endorsed by President Trump. His picks have had mixed results in governor’s contests.`\
+https://www.nytimes.com/2026/06/23/us/south-carolina-governor-alan-wilson.html
+
+**Congress Clears Housing Bill, Cementing a Rare Bipartisan Feat**\
+`A lopsided House vote cleared the measure for President Trump’s signature after a lengthy back and forth and several nearly fatal blows to the legislation.`\
+https://www.nytimes.com/2026/06/23/us/politics/congress-housing-bill.html
+
 **AIPAC, Crypto Cash and Rich Candidates Dominate Maryland House Races**\
 `In two competitive Democratic primaries, well-funded interest groups as well as wealthy candidates themselves have poured tens of millions of dollars into advertising.`\
 https://www.nytimes.com/2026/06/23/us/politics/aipac-crypto-maryland-house-races.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/23/us/politics/senate-trump-war-powers-iran.html
 **Tucker Carlson and Marjorie Taylor Greene Say They Are Done With the G.O.P.**\
 `Their split with the Republican Party represents an expansion of a feud with President Trump that could further complicate the party’s midterm prospects.`\
 https://www.nytimes.com/2026/06/23/us/politics/tucker-carlson-marjorie-taylor-greene.html
-
-**‘This Is the Team,’ Mamdani Says. His Allies Hint Lander Doesn’t Belong.**\
-`Mayor Zohran Mamdani has backed three people for Congress in New York City, but some closest to him have chosen to push only Claire Valdez and Darializa Avila Chevalier.`\
-https://www.nytimes.com/2026/06/23/nyregion/mamdani-allies-no-lander.html
-
-**Goldman Says Cafe’s Hostile Post About Him Does Not Warrant Civil Rights Case**\
-`After a Justice Department official said her office was opening an investigation, Representative Dan Goldman said the department should focus on “other people in the Jewish community who are really scared.”`\
-https://www.nytimes.com/2026/06/23/nyregion/goldman-poetica-civil-rights-case.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
