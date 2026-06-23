@@ -1,3 +1,11 @@
+**Election Live Updates: New York Primaries Will Set Stage for November Battles**\
+`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah and Maryland.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
+**Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
+`The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
+https://www.nytimes.com/2026/06/23/arts/rare-books-sex-library-benjamin-franklin.html
+
 **Iranian Oil Is Moving Again, but Getting Through the Strait Is Complicated**\
 `With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
 https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
