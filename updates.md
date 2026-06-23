@@ -1,3 +1,7 @@
+**SpaceX Shares Are Slumping After After Its Blockbuster I.P.O.**\
+`On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
+https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
+
 **Today, In Short**\
 `Hyper goo. Dive bars. And the best Prime Day deals.`\
 https://www.nytimes.com/2026/06/23/briefing/today-in-short.html
