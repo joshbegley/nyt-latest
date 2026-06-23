@@ -1,3 +1,7 @@
+**Dark Smoke in a Sunny Place: Neighbors of L.A. Fire Struggle for Breath**\
+`The plume from the stubborn blaze in a cold-storage facility has dissipated, but people in the Boyle Heights neighborhood say they are in a toxic miasma.`\
+https://www.nytimes.com/2026/06/22/us/los-angeles-warehouse-fire-boyle-heights.html
+
 **Trump on the Shabby Condition of the Reflecting Pool: Not My Fault**\
 `President Trump said the blooms of green algae and the peeling polyurethane had nothing to do with the rushed $16.4 million makeover he had ordered.`\
 https://www.nytimes.com/2026/06/22/us/politics/trump-reflecting-pool-blame.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/22/espanol/america-latina/trump-colombia-dela
 **At Least 14 People Killed in Fire in North India Educational Center**\
 `A blaze in a commercial building that housed a study center in a north Indian city killed at least a dozen people, most aged 16 to 18.`\
 https://www.nytimes.com/2026/06/22/world/asia/fire-lucknow-india-kills-14.html
-
-**Un exaliado de Pedro Sánchez es condenado a 24 años de cárcel**\
-`José Luis Ábalos, que en su día fue ministro en el gobierno del presidente Pedro Sánchez, ha sido condenado por delitos de corrupción. La sentencia agrava la crisis en el entorno de Sánchez.`\
-https://www.nytimes.com/es/2026/06/22/espanol/mundo/abalos-psoe-condenado-cohecho.html
 
