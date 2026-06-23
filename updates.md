@@ -1,3 +1,15 @@
+**Qué es un domo de calor y por qué está aumentando las temperaturas en Europa**\
+`Este fenómeno meteorológico, común en distintas regiones del mundo, está provocando varios días de calor cercano a niveles récord en el Reino Unido, España y Francia.`\
+https://www.nytimes.com/es/2026/06/23/espanol/tiempo-y-clima/calor-cupula-europa-espana.html
+
+**In Colombia, a Right-Wing Wildcard Rises**\
+`A right-wing victory in Latin America’s third-largest country could ripple across the region.`\
+https://www.nytimes.com/2026/06/23/opinion/colombia-election-espriella-petro.html
+
+**Trump’s Iran Debacle Could Be a Gift for America**\
+`There is at least a chance that America will not return to war with Iran, but find a way to turn the page on 47 years of animosity and confrontation.`\
+https://www.nytimes.com/2026/06/23/opinion/trump-iran-war-confrontation.html
+
 **La misión militar de EE. UU. en la frontera con México no tiene previsto un final**\
 `El patrullaje ha ayudado a empujar a los cárteles y a los traficantes a zonas más remotas. Pero a los analistas les preocupa que las misiones fronterizas puedan restar atención al entrenamiento, agotar los recursos y mermar la preparación.`\
 https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/mexico-frontera-operativo-militar.html
