@@ -1,3 +1,51 @@
+**Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
+`Chipmakers led the way down in South Korea, where the main index plunged 10.5 percent. The Nasdaq in the U.S. was down 2.2 percent at Tuesday’s open.`\
+https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
+
+**Sarah Jessica Parker on the Seductive Power of Sports and the City**\
+`The actress — and Knicks superfan — on what it means to be a New Yorker, circa summer 2026.`\
+https://www.nytimes.com/2026/06/23/podcasts/sarah-jessica-parker-knicks-new-york.html
+
+**Trump dice que Venezuela es ‘un país feliz’. Su gente no está de acuerdo**\
+`El lento ritmo de la recuperación económica está poniendo a prueba la paciencia de los venezolanos con la presidenta en funciones, Delcy Rodríguez.`\
+https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-trump-delcy-rodriguez.html
+
+**What’s the Matter With Congress?**\
+`A debate between old friends about whether it is fear or polarization that is making Congress weak.`\
+https://www.nytimes.com/2026/06/23/opinion/congress-house-partisanship-fear.html
+
+**Major Supreme Court Decisions Testing Trump’s Policies Remain**\
+`Over the next two weeks, the justices will release more than a dozen final opinions, including high-profile decisions on birthright citizenship, the Federal Reserve and transgender athletes.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-trump-major-cases.html
+
+**China Takes Supercomputer Crown From U.S. For First Time Since 2017**\
+`A supercomputer in Shenzhen was declared the world’s fastest. It uses only standard microprocessors and not the special-purpose chips called graphics processing units.`\
+https://www.nytimes.com/2026/06/23/technology/china-supercomputer-crown-us.html
+
+**This Backyard A.D.U. Is Multigenerational by Design**\
+`Father-and-daughter architects Jim and Cotton Estes collaborated on their first project, right in Ms. Estes’s San Antonio backyard.`\
+https://www.nytimes.com/2026/06/23/realestate/san-antonio-adu-estes-architecture.html
+
+**Europe Created Heat-Wave Protections. Now Comes the ‘Crash Test.’**\
+`Searing temperatures in Western Europe are drawing comparisons to 2003, when a deadly heat wave sparked a reckoning.`\
+https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-protective-measures.html
+
+**Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
+`The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
+https://www.nytimes.com/2026/06/23/arts/rare-books-sex-library-benjamin-franklin.html
+
+**X-Ray Specs for the World’s Oldest, Sealed Letters**\
+`A team of historians, scientists and engineers has developed a portable X-ray scanner to study 4,000-year-old letters encased in clay envelopes.`\
+https://www.nytimes.com/2026/06/23/science/x-ray-specs-for-the-worlds-oldest-sealed-letters.html
+
+**A Glimmer of Hope for Fixing Penn Station**\
+`The plans that Amtrak has released for redoing the notorious station offers good architecture and some promise of moving ahead, our architecture critic says.`\
+https://www.nytimes.com/2026/06/23/nyregion/a-glimmer-of-hope-for-fixing-penn-station.html
+
+**Corrections: June 23, 2026**\
+`Corrections that appeared in print on Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/23/pageoneplus/corrections-june-23-2026.html
+
 **Teamsters Make a Bid to End Federal Oversight, With Trump’s Backing**\
 `Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
 https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html

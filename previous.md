@@ -1,47 +1,3 @@
-**Teamsters Make a Bid to End Federal Oversight, With Trump’s Backing**\
-`Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
-https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
-
-**Energy Dept. Promises $17.5 Billion in Loans for Nuclear Power**\
-`The federal government wants to help utilities buy large components for up to 10 large nuclear reactors. It’s unclear which, if any, companies might participate.`\
-https://www.nytimes.com/2026/06/23/climate/trump-energy-nuclear-loans.html
-
-**She’s in Line to Be Mayor of D.C. How Will She Handle Trump’s Threat?**\
-`“We’re going to find ways to resist,” a defiant Janeese Lewis George, the democratic socialist who won the Democratic primary last week in Washington, said in an interview.`\
-https://www.nytimes.com/2026/06/23/us/politics/janeese-lewis-george-trump-washington-dc.html
-
-**Israeli Soldiers Fatally Shoot 2 People in Southern Lebanon, Health Officials Say**\
-`The shooting came a day after Israeli troops began operating under new orders intended to reduce the risk of flare-ups in its conflict with Iran-backed Hezbollah militants.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/israel-soldiers-lebanon-shooting-hezbollah.html
-
-**2026 Jimmy Awards: With Bowen Yang as Host, Teen Winners Are Crowned**\
-`Students from Georgia and Arizona won the top prizes at the ceremony, which was hosted by Bowen Yang and celebrates excellence in high school musical theater.`\
-https://www.nytimes.com/2026/06/23/theater/jimmy-awards-bowen-yang-musical-theater.html
-
-**Mourning After the Michael Jackson Movie? It Might Be ‘Michosis.’**\
-`Some Michael Jackson fans are experiencing deep, lingering grief after watching the biopic — a potent reminder that he is gone, they say.`\
-https://www.nytimes.com/2026/06/23/movies/michael-jackson-mourning-michosis.html
-
-**CBS News Hired an Independent Watchdog. What’s He Doing?**\
-`With CBS News rocked by controversy, some viewers have turned to the network ombudsman for a public response. So far, they haven’t gotten one.`\
-https://www.nytimes.com/2026/06/23/business/media/cbs-news-ombudsman.html
-
-**Vance lidera las negociaciones con Irán y Trump le pone obstáculos**\
-`Poco después de abandonar Suiza, las bases que el vicepresidente de EE. UU. había esbozado para un posible acuerdo a largo plazo comenzaron a mostrar fisuras.`\
-https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/jd-vance-iran-negociaciones.html
-
-**A Primary in Upstate New York Tests G.O.P. Voters’ Loyalty to Trump**\
-`State party leaders are backing Assemblyman Robert Smullen. But a local businessman and provocateur, Anthony Constantino, has President Trump’s endorsement.`\
-https://www.nytimes.com/2026/06/23/nyregion/trump-republican-new-york-primary-stefanik.html
-
-**Capitaine Washes Ashore in the West Village With Tavern Takes on Seafood**\
-`It’s a hat trick this week with Grimm Tavern from the beer brand, and Trudie’s Tavern from the Gertrude’s owners.`\
-https://www.nytimes.com/2026/06/23/dining/nyc-restaurant-news.html
-
-**Former NOAA Employees Revive Climate Web Site**\
-`The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
-https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
-
 **‘The Sound of Music’ and ‘A Few Good Men’ Are Coming to Broadway**\
 `Lincoln Center Theater, basking in the glow of its Tony-winning “Ragtime” run, plans revivals of two more well-known titles this season.`\
 https://www.nytimes.com/2026/06/23/theater/sound-of-music-a-few-good-men-broadway.html
@@ -181,4 +137,52 @@ https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html
 **How Bad Could the Ebola Outbreak Get? Latest on Testing, Tracing and Vaccines**\
 `Contact tracing is improving. Treatments may be months away. Here’s what could determine whether a fast-expanding outbreak can be slowed down.`\
 https://www.nytimes.com/interactive/2026/06/23/world/africa/ebola-virus-outbreak-update.html
+
+**Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
+`Chipmakers led the way down in South Korea, where the main index plunged 10.5 percent. The Nasdaq in the U.S. was down 2.2 percent at Tuesday’s open.`\
+https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
+
+**Sarah Jessica Parker on the Seductive Power of Sports and the City**\
+`The actress — and Knicks superfan — on what it means to be a New Yorker, circa summer 2026.`\
+https://www.nytimes.com/2026/06/23/podcasts/sarah-jessica-parker-knicks-new-york.html
+
+**Trump dice que Venezuela es ‘un país feliz’. Su gente no está de acuerdo**\
+`El lento ritmo de la recuperación económica está poniendo a prueba la paciencia de los venezolanos con la presidenta en funciones, Delcy Rodríguez.`\
+https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-trump-delcy-rodriguez.html
+
+**What’s the Matter With Congress?**\
+`A debate between old friends about whether it is fear or polarization that is making Congress weak.`\
+https://www.nytimes.com/2026/06/23/opinion/congress-house-partisanship-fear.html
+
+**Major Supreme Court Decisions Testing Trump’s Policies Remain**\
+`Over the next two weeks, the justices will release more than a dozen final opinions, including high-profile decisions on birthright citizenship, the Federal Reserve and transgender athletes.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-trump-major-cases.html
+
+**China Takes Supercomputer Crown From U.S. For First Time Since 2017**\
+`A supercomputer in Shenzhen was declared the world’s fastest. It uses only standard microprocessors and not the special-purpose chips called graphics processing units.`\
+https://www.nytimes.com/2026/06/23/technology/china-supercomputer-crown-us.html
+
+**This Backyard A.D.U. Is Multigenerational by Design**\
+`Father-and-daughter architects Jim and Cotton Estes collaborated on their first project, right in Ms. Estes’s San Antonio backyard.`\
+https://www.nytimes.com/2026/06/23/realestate/san-antonio-adu-estes-architecture.html
+
+**Europe Created Heat-Wave Protections. Now Comes the ‘Crash Test.’**\
+`Searing temperatures in Western Europe are drawing comparisons to 2003, when a deadly heat wave sparked a reckoning.`\
+https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-protective-measures.html
+
+**Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
+`The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
+https://www.nytimes.com/2026/06/23/arts/rare-books-sex-library-benjamin-franklin.html
+
+**X-Ray Specs for the World’s Oldest, Sealed Letters**\
+`A team of historians, scientists and engineers has developed a portable X-ray scanner to study 4,000-year-old letters encased in clay envelopes.`\
+https://www.nytimes.com/2026/06/23/science/x-ray-specs-for-the-worlds-oldest-sealed-letters.html
+
+**A Glimmer of Hope for Fixing Penn Station**\
+`The plans that Amtrak has released for redoing the notorious station offers good architecture and some promise of moving ahead, our architecture critic says.`\
+https://www.nytimes.com/2026/06/23/nyregion/a-glimmer-of-hope-for-fixing-penn-station.html
+
+**Corrections: June 23, 2026**\
+`Corrections that appeared in print on Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/23/pageoneplus/corrections-june-23-2026.html
 
