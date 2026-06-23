@@ -1,3 +1,7 @@
+**Danny McBride on Why It’s So Hard for Art to Break Through**\
+`“Nothing has its moment in the sun. And I think that that’s probably just because of the world we live in. There’s just so much stuff out there, old and new,” Danny McBride says on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010984938/danny-mcbride-on-why-its-so-hard-for-art-to-break-through.html
+
 **As Vance Leads Iran Negotiations, Trump Creates Disruptions in His Path**\
 `Vice President JD Vance is in a politically precarious spot.`\
 https://www.nytimes.com/2026/06/22/us/politics/jd-vance-iran-negotiations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/business/media/hot-ones-sean-evans-netflix.ht
 **Historic Brooklyn Church Destroyed in Fire**\
 `The South Bushwick Church in Brooklyn was engulfed in flames on Friday, and the cause of the fire is still under investigation. The church was built in 1853 and is Bushwick’s oldest landmark, according to an expert.`\
 https://www.nytimes.com/video/nyregion/100000010983479/brooklyn-new-york-church-fire.html
-
-**‘Why I Love the Beautiful Game’ With Wagner Moura**\
-`The Brazilian actor tells us why Brazil needs their ‘sixth star’`\
-https://www.nytimes.com/2026/06/22/podcasts/why-i-love-the-beautiful-game-with-wagner-moura.html
 
