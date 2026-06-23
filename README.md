@@ -1,3 +1,7 @@
+**Bread and Roses**\
+`We look at the democratic socialists who are leading some of America’s big cities.`\
+https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
+
 **Japan to Raise Some Tourist Visa Fees More Than 400 Percent**\
 `The hike, from around $18 to $93 for a single trip, will apply to visitors from countries including China, India and Vietnam, but not most Western travelers.`\
 https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/23/books/review/nebraska-monica-datta.html
 **Fans React as Messi Breaks World Cup Scoring Record**\
 `Fans went wild on Monday when Lionel Messi, the captain of Argentina’s national soccer team, broke the record for the most goals scored by a player in World Cup history.`\
 https://www.nytimes.com/video/sports/soccer/100000010985062/world-cup-messi-argentina-record.html
-
-**Elon Musk confirma las antiguas preocupaciones sobre los superricos**\
-`Platón hizo una propuesta radical sobre la riqueza que resuena mucho en nuestros tiempos.`\
-https://www.nytimes.com/es/2026/06/23/espanol/opinion/elon-musk-dinero-riqueza-millonarios.html
 
