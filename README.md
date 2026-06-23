@@ -1,3 +1,11 @@
+**Apple Just Closed Its First Unionized U.S. Store**\
+`The company said it had shuttered a Maryland location because of “declining conditions” in a surrounding mall. The union accuses Apple of retaliation.`\
+https://www.nytimes.com/2026/06/23/business/apple-union-store-closure.html
+
+**Europe’s Heat Has Scientists Asking: How Much Hotter Can It Get?**\
+`Records are being broken for the second time in a month, leading scientists to probe the upper limits of what the warming climate can dish out.`\
+https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-climate-change.html
+
 **SpaceX Shares Are Slumping After After Its Blockbuster I.P.O.**\
 `On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
 https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-
 https://www.nytimes.com/video/health/100000010970611/why-milder-symptoms-could-make-this-ebola-outbreak-more-dangerous.html
 
 **Appeals Court Allows Trump to Resume Expedited Deportations Nationwide**\
-`In a 2-to-1 vote, a federal appeals court panel ruled that the president can expand the procedure, previously used only near the border, to arrests nationally.`\
+`In a 2-to-1 vote, a federal appeals court panel ruled that the president can expand the procedure, previously used primarily near the border, to arrests nationally.`\
 https://www.nytimes.com/2026/06/23/us/politics/appeals-court-expedited-deportations.html
 
 **Manhattan Borough President Gives $50 Million to N.Y.C. Arts Groups**\
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.ht
 **Mideast Live Updates: U.S. and Iran Offer Conflicting Accounts of Nuclear Discussions**\
 `President Trump said Iran had agreed to the “highest level” inspections, hours after an Iranian official said there were “no detailed discussions on the nuclear issue,” as the two sides continued to present different narratives of their latest talks.`\
 https://www.nytimes.com/live/2026/06/23/world/iran-us-trump-lebanon
-
-**Reino Unido: nuevo líder, mismos problemas**\
-`Se necesitará más que un cambio de liderazgo para sacar adelante al país.`\
-https://www.nytimes.com/es/2026/06/23/espanol/mundo/reino-unido-nuevo-lider-mismos-problemas.html
-
-**Is Cristiano Ronaldo Hurting Portugal? Plus, USMNT Goalkeeper Matt Freese’s Moment.**\
-`Portugal is one of the favorites to win the World Cup — but is it better off without its legendary superstar?`\
-https://www.nytimes.com/2026/06/23/podcasts/cristiano-ronaldo-portugal-usmnt-goalkeeper-matt-freese.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
