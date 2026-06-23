@@ -1,3 +1,15 @@
+**Letter From Conservatives Prompted Inquiry of Civil Rights Group, Lawyers Say**\
+`Several right-wing groups sent a letter in September to Stephen Miller, a top aide to President Trump, urging greater scrutiny of the Southern Poverty Law Center.`\
+https://www.nytimes.com/2026/06/23/nyregion/fbi-southern-poverty-law-center-letter.html
+
+**Lin-Manuel Miranda’s ‘Warriors’ Musical to Hit Broadway Next Spring**\
+`Miranda is co-writing the musical — his first since “Hamilton” — with Eisa Davis. It’s based on “The Warriors” film and novel.`\
+https://www.nytimes.com/2026/06/23/theater/warriors-broadway-lin-manuel-miranda.html
+
+**In Middle East, Rubio Says ‘No Country’ Can Charge for Hormuz Traffic**\
+`The secretary of state dismissed Iran’s talk of charging ships to pass through the vital Persian Gulf portal as prohibited under international law.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/rubio-strait-of-hormuz-charges-traffic.html
+
 **A Look Inside the Welcome Bags Planned for White South African Refugees**\
 `The United States is putting together bags with a children’s book on so-called reverse racism, and with a document that defends the country’s founding on the basis of slavery.`\
 https://www.nytimes.com/2026/06/23/us/politics/south-africa-refugees-welcome-bags.html
