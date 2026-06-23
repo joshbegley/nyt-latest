@@ -1,3 +1,7 @@
+**SpaceX Shares Are Slumping After After Its Blockbuster I.P.O.**\
+`On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
+https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
+
 **Today, In Short**\
 `Hyper goo. Dive bars. And the best Prime Day deals.`\
 https://www.nytimes.com/2026/06/23/briefing/today-in-short.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/23/crosswords/strands-sidekick-843.html
 **Today’s Wordle Review for June 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
 https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
-
-**‘A Terrible Inheritance’: Could Andy Burnham Succeed Where Starmer Failed?**\
-`The likely successor to Prime Minister Keir Starmer will inherit the same challenges of economic stagnation and ascendant populism. Will a divided nation be prepared to give him time?`\
-https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
