@@ -1,3 +1,15 @@
+**Iranian Oil Is Moving Again, but Getting Through the Strait Is Complicated**\
+`With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
+https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
+
+**Would You Let an A.I. Michael Caine Read You the ‘Odyssey’?**\
+`The longtime Christopher Nolan collaborator isn’t in the director’s forthcoming Homeric adaptation. But a new audiobook sets Caine’s voice off on its own adventure.`\
+https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
+
+**40 People Drown in France Amid Scorching Temperatures**\
+`Most of the victims were young people swimming in unsupervised areas, officials said.`\
+https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
+
 **40 People Drown in France as Heat Wave Persists**\
 `Most of the victims were young people swimming in unsupervised areas, officials said.`\
 https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html

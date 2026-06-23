@@ -1,8 +1,16 @@
+**Iranian Oil Is Moving Again, but Getting Through the Strait Is Complicated**\
+`With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
+https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
+
+**Would You Let an A.I. Michael Caine Read You the ‘Odyssey’?**\
+`The longtime Christopher Nolan collaborator isn’t in the director’s forthcoming Homeric adaptation. But a new audiobook sets Caine’s voice off on its own adventure.`\
+https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
+
 **The Tech Sell-off Goes Global**\
 `Investors are bracing for rough trading after stocks in Asia and Europe were clobbered on Tuesday. A.I. companies like SpaceX are getting hit hard.`\
 https://www.nytimes.com/2026/06/23/business/dealbook/tech-stocks-chips-spacex.html
 
-**40 People Drown in France as Heat Wave Persists**\
+**40 People Drown in France Amid Scorching Temperatures**\
 `Most of the victims were young people swimming in unsupervised areas, officials said.`\
 https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/23/theater/theater-musicals-festivals-summer.htm
 **Book Review: ‘The Housewives Underground,’ by Kaitlyn Tiffany**\
 `In “The Housewives Underground,” the Atlantic writer Kaitlyn Tiffany salutes a loose network of skeptics who questioned the findings of the Warren Report.`\
 https://www.nytimes.com/2026/06/23/books/review/the-housewives-underground-kaitlyn-tiffany.html
-
-**Searching for Clues in Jeffrey Epstein’s Boyhood**\
-`“Jeff” grew up in an insular world, kept company with a few brainy boys and fixated on girls. Was a monster hiding in plain sight?`\
-https://www.nytimes.com/2026/06/23/well/jeffrey-epstein-childhood-sea-gate-coney-island.html
-
-**This Megafactory Is a Test Case for the U.S.-China Tech Race**\
-`Chinese firms have some of the world’s most advanced technology. But U.S. officials say relying on it could come with a downside.`\
-https://www.nytimes.com/2026/06/23/business/economy/china-megafactory-us-tech-race.html
 
