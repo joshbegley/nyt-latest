@@ -182,10 +182,6 @@ https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hij
 `A few Republicans joined Democrats in favor of a measure instructing President Trump to halt military operations against Iran or seek congressional authorization.`\
 https://www.nytimes.com/2026/06/23/us/politics/senate-trump-war-powers-iran.html
 
-**Tucker Carlson and Marjorie Taylor Greene Say They Are Done With the G.O.P.**\
-`Their split with the Republican Party represents an expansion of a feud with President Trump that could further complicate the party’s midterm prospects.`\
-https://www.nytimes.com/2026/06/23/us/politics/tucker-carlson-marjorie-taylor-greene.html
-
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
