@@ -1,3 +1,7 @@
+**Is Cristiano Ronaldo Hurting Portugal? Plus, USMNT Goalkeeper Matt Freese’s Moment.**\
+`Portugal is one of the favorites to win the World Cup — but is it better off without its legendary superstar?`\
+https://www.nytimes.com/2026/06/23/podcasts/cristiano-ronaldo-portugal-usmnt-goalkeeper-matt-freese.html
+
 **As Trump Purges Immigration Judges, One Speaks Out**\
 `Judges are coming under significant pressure from the administration to carry out deportations or risk losing their jobs.`\
 https://www.nytimes.com/2026/06/23/podcasts/the-daily/trump-immigration-judges.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/crosswords/spelling-bee-forum.html
 **At World Cup Soccer Game, Palestinian Emblems Abound**\
 `Jordan’s first qualification for the World Cup also means a World Cup berth for Palestinians, millions of whom live in the country.`\
 https://www.nytimes.com/2026/06/23/world/europe/world-cup-jordan-palestinians.html
-
-**Late Night Dunks on Trump for Hiring Greenwater Services**\
-`Jimmy Fallon poked fun at the name of the business under fire for turning the Lincoln Memorial Reflecting Pool bright green: “Nailed it.”`\
-https://www.nytimes.com/2026/06/23/arts/television/late-night-trump-greenwater.html
 
