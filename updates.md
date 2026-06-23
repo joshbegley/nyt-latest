@@ -1,3 +1,15 @@
+**Trump Administration Sues New York State Over ICE Mask Ban**\
+`A Department of Justice lawsuit said that a measure prohibiting law enforcement officers from covering their faces would endanger agents.`\
+https://www.nytimes.com/2026/06/23/nyregion/ice-masks-ny-ban-trump-lawsuit.html
+
+**The Pool That Reflects Trump’s Presidency**\
+`Readers respond to articles about the Lincoln Memorial Reflecting Pool. Also: The politics of fine dining; learning something new.`\
+https://www.nytimes.com/2026/06/23/opinion/trump-reflecting-pool.html
+
+**Justice Dept. Issued, Then Withdrew, Grand Jury Subpoenas of Journalists**\
+`The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
+https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
+
 **Meta Has Created a Prediction Markets App**\
 `The experimental app, internally called “Arena,” would be independent of Facebook and Instagram. It could compete for attention with Polymarket and Kalshi, the biggest prediction markets.`\
 https://www.nytimes.com/2026/06/23/technology/meta-prediction-markets-app.html

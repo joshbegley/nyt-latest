@@ -1,3 +1,11 @@
+**Trump Administration Sues New York State Over ICE Mask Ban**\
+`A Department of Justice lawsuit said that a measure prohibiting law enforcement officers from covering their faces would endanger agents.`\
+https://www.nytimes.com/2026/06/23/nyregion/ice-masks-ny-ban-trump-lawsuit.html
+
+**The Pool That Reflects Trump’s Presidency**\
+`Readers respond to articles about the Lincoln Memorial Reflecting Pool. Also: The politics of fine dining; learning something new.`\
+https://www.nytimes.com/2026/06/23/opinion/trump-reflecting-pool.html
+
 **Artist Pulls Work From London Museum After Clash Over Churchill’s Legacy**\
 `A historian and others said that a video installation had incorrectly blamed Winston Churchill for a famine in colonial India.`\
 https://www.nytimes.com/2026/06/23/arts/churchill-bengal-famine-national-portrait-gallery.html
@@ -146,7 +154,7 @@ https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-fran
 `We want to know what you love so much that it’s sacred to you.`\
 https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
 
-**Justice Dept. Withdraws Grand Jury Subpoenas of Journalists**\
+**Justice Dept. Issued, Then Withdrew, Grand Jury Subpoenas of Journalists**\
 `The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
 https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
 
@@ -177,10 +185,6 @@ https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traf
 **Would You Let an A.I. Michael Caine Read You the ‘Odyssey’?**\
 `The longtime Christopher Nolan collaborator isn’t in the director’s forthcoming Homeric adaptation. But a new audiobook sets Caine’s voice off on its own adventure.`\
 https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
-
-**The Tech Sell-off Goes Global**\
-`Investors are bracing for rough trading after stocks in Asia and Europe were clobbered on Tuesday. A.I. companies like SpaceX are getting hit hard.`\
-https://www.nytimes.com/2026/06/23/business/dealbook/tech-stocks-chips-spacex.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\

@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
 `With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
 https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
 
-**Would You Let an A.I. Michael Caine Read You the ‘Odyssey’?**\
+**A New ‘Odyssey’ Audiobook Puts the ‘A.I.’ in ‘Michael Caine’**\
 `The longtime Christopher Nolan collaborator isn’t in the director’s forthcoming Homeric adaptation. But a new audiobook sets Caine’s voice off on its own adventure.`\
 https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
 
