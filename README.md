@@ -1,3 +1,7 @@
+**If You Love America, Cringe for It**\
+`Let’s remember who we once were, because it’s what we may yet be again.`\
+https://www.nytimes.com/2026/06/23/opinion/trump-meloni-america-cringe.html
+
 **Ukrainian Women Plead for News of Disabled Relatives Held by Russia**\
 `Four years after Ukraine was invaded, many of the people who lived in institutional settings remain unaccounted for.`\
 https://www.nytimes.com/2026/06/23/world/europe/ukraine-missing-children-russia.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-
 **Maryland Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Maryland primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-2-primary.html
-
-**Maryland Governor Primary 2026: Live Election Results, Moore vs. Felber**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-governor-primary.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
