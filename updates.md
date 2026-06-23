@@ -1,3 +1,7 @@
+**Europe Is Sweltering in an Extreme Heat Wave. Here’s What to Know.**\
+`The most intense conditions are happening in Britain, France and Spain, which are all under high-level heat warnings.`\
+https://www.nytimes.com/2026/06/23/weather/europe-extreme-heat-wave-warning.html
+
 **Bread and Roses**\
 `We look at the democratic socialists who are leading some of America’s big cities.`\
 https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
