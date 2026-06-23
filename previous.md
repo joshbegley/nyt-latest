@@ -1,3 +1,7 @@
+**Lorcan O’Herlihy, Architect of Innovative Urban Housing, Dies at 66**\
+`Arguing that architecture is a “social act,” he built affordable homes on small lots in Los Angeles and elsewhere, with an eye toward smarter, more equitable design.`\
+https://www.nytimes.com/2026/06/23/arts/design/lorcan-oherlihy-dead.html
+
 **Fire at Educational Center in Northern India Kills at Least 14**\
 `At least 14 people, most aged 16 to 18, were killed when a fire blazed through a commercial building that housed an educational center, a pet shop, and a clinic in the northern Indian city of Lucknow on Monday. The cause of the fire is being investigated.`\
 https://www.nytimes.com/video/world/asia/100000010985897/lucknow-india-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York 17th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-17-primary.html
-
-**New York Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-general-primary.html
 
