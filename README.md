@@ -1,3 +1,11 @@
+**Soldier, Scholar and Symbol: Marc Bloch Is Elevated to France’s Panthéon**\
+`French politicians, including those on the far right, are embracing a Jewish Resistance fighter murdered by the Gestapo in 1944.`\
+https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html
+
+**How Bad Could the Ebola Outbreak Get? Latest on Testing, Tracing and Vaccines**\
+`Contact tracing is improving. Treatments may be months away. Here’s what could determine whether a fast-expanding outbreak can be slowed down.`\
+https://www.nytimes.com/interactive/2026/06/23/world/africa/ebola-virus-outbreak-update.html
+
 **Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
 `Chipmakers led the way down in South Korea, where the main index crashed 10 percent. Stocks in Europe were lower and S&P 500 futures pointed to a sharp fall.`\
 https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/23/opinion/trump-iran-war-confrontation.html
 **La misión militar de EE. UU. en la frontera con México no tiene previsto un final**\
 `El patrullaje ha ayudado a empujar a los cárteles y a los traficantes a zonas más remotas. Pero a los analistas les preocupa que las misiones fronterizas puedan restar atención al entrenamiento, agotar los recursos y mermar la preparación.`\
 https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/mexico-frontera-operativo-militar.html
-
-**Those British Strawberries Are Being Picked by Central Asian Workers**\
-`Ten years after Brexit, most seasonal workers in Britain are from countries such as Kyrgyzstan and Tajikistan. Without them, agricultural chiefs say, many farms would fail.`\
-https://www.nytimes.com/2026/06/23/world/europe/uk-brexit-seasonal-farm-workers-central-asia.html
-
-**Quote of the Day: Starmer Exits With His Rivals at the Gates**\
-`Quotation of the Day for Tuesday, June 23, 2026`\
-https://www.nytimes.com/2026/06/23/pageoneplus/quote-of-the-day-starmer-exits-with-his-rivals-at-the-gates.html
 
