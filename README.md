@@ -1,3 +1,7 @@
+**What Is Your Holy Grail?**\
+`We want to know what you love so much that it’s sacred to you.`\
+https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
+
 **Justice Dept. Withdraws Grand Jury Subpoenas of Journalists**\
 `The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
 https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/23/realestate/national-rent-regulation-explainer
 **America’s Thirst for Gasoline May Not Recover After Iran War**\
 `People drove less and bought more-efficient cars when fuel prices surged, habits that could stick over the long term.`\
 https://www.nytimes.com/2026/06/23/business/economy/gasoline-demand-destruction.html
-
-**Social Security Is Running Out of Money, Fast**\
-`To save the program, we need to eliminate the payroll tax cap.`\
-https://www.nytimes.com/2026/06/23/opinion/moreno-warren-social-security.html
 
