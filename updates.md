@@ -1,3 +1,7 @@
+**La misión militar de EE. UU. en la frontera con México no tiene previsto un final**\
+`El patrullaje ha ayudado a empujar a los cárteles y a los traficantes a zonas más remotas. Pero a los analistas les preocupa que las misiones fronterizas puedan restar atención al entrenamiento, agotar los recursos y mermar la preparación.`\
+https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/mexico-frontera-operativo-militar.html
+
 **Those British Strawberries Are Being Picked by Central Asian Workers**\
 `Ten years after Brexit, most seasonal workers in Britain are from countries such as Kyrgyzstan and Tajikistan. Without them, agricultural chiefs say, many farms would fail.`\
 https://www.nytimes.com/2026/06/23/world/europe/uk-brexit-seasonal-farm-workers-central-asia.html

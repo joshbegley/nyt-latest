@@ -1,3 +1,7 @@
+**La misión militar de EE. UU. en la frontera con México no tiene previsto un final**\
+`El patrullaje ha ayudado a empujar a los cárteles y a los traficantes a zonas más remotas. Pero a los analistas les preocupa que las misiones fronterizas puedan restar atención al entrenamiento, agotar los recursos y mermar la preparación.`\
+https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/mexico-frontera-operativo-militar.html
+
 **Those British Strawberries Are Being Picked by Central Asian Workers**\
 `Ten years after Brexit, most seasonal workers in Britain are from countries such as Kyrgyzstan and Tajikistan. Without them, agricultural chiefs say, many farms would fail.`\
 https://www.nytimes.com/2026/06/23/world/europe/uk-brexit-seasonal-farm-workers-central-asia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rai
 **Will New York Swing Further to the Left? Here’s a Preview of Tuesday’s Primaries.**\
 `The city’s high-drama, high-spending primaries will offer clues of progressive momentum and Mayor Zohran Mamdani’s influence.`\
 https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
-
-**At the Great Nosh, Food Lovers Celebrate Jewish Food and Culture**\
-`New Yorkers descended on Governors Island for the Great Nosh, a festival devoted to Jewish cuisine and culture.`\
-https://www.nytimes.com/2026/06/22/style/great-nosh-jewish-food-festival-governors-island.html
 
