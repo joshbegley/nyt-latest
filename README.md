@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/06/23/world/middleeast/rubio-strait-of-hormuz-charg
 https://www.nytimes.com/2026/06/23/us/politics/south-africa-refugees-welcome-bags.html
 
 **How Trump Turned America’s Refugee Program Into a Pathway for White People**\
-`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program designed for people fleeing persecution and disaster.`\
+`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program intended for people fleeing persecution and disaster.`\
 https://www.nytimes.com/2026/06/23/us/politics/trump-refugee-program-whites.html
 
 **A Last-Minute Guide to the Candidates in New York’s Primaries**\

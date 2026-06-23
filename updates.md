@@ -1,3 +1,11 @@
+**‘This Is the Team,’ Mamdani Says. His Allies Say Lander Doesn’t Belong.**\
+`Mayor Zohran Mamdani has backed three people for Congress in New York City, but some closest to him have chosen to push only Claire Valdez and Darializa Avila Chevalier.`\
+https://www.nytimes.com/2026/06/23/nyregion/mamdani-allies-no-lander.html
+
+**Goldman Says Cafe’s Hostile Post About Him Does Not Warrant Civil Rights Case**\
+`After a Justice Department official said her office was opening an investigation, Representative Dan Goldman said the department should focus on “other people in the Jewish community who are really scared.”`\
+https://www.nytimes.com/2026/06/23/nyregion/goldman-poetica-civil-rights-case.html
+
 **New York 24th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-24-primary.html
