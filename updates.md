@@ -1,3 +1,83 @@
+**Israeli Soldiers Fatally Shoot 2 People in Southern Lebanon, Health Officials Say**\
+`The shooting came a day after Israeli troops began operating under new orders intended to reduce the risk of flare-ups in its conflict with Iran-backed Hezbollah militants.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/israel-soldiers-lebanon-shooting-hezbollah.html
+
+**2026 Jimmy Awards: With Bowen Yang as Host, Teen Winners Are Crowned**\
+`Students from Georgia and Arizona won the top prizes at the ceremony, which was hosted by Bowen Yang and celebrates excellence in high school musical theater.`\
+https://www.nytimes.com/2026/06/23/theater/jimmy-awards-bowen-yang-musical-theater.html
+
+**Mourning After the Michael Jackson Movie? It Might Be ‘Michosis.’**\
+`Some Michael Jackson fans are experiencing deep, lingering grief after watching the biopic — a potent reminder that he is gone, they say.`\
+https://www.nytimes.com/2026/06/23/movies/michael-jackson-mourning-michosis.html
+
+**CBS News Hired an Independent Watchdog. What’s He Doing?**\
+`With CBS News rocked by controversy, some viewers have turned to the network ombudsman for a public response. So far, they haven’t gotten one.`\
+https://www.nytimes.com/2026/06/23/business/media/cbs-news-ombudsman.html
+
+**Vance lidera las negociaciones con Irán y Trump le pone obstáculos**\
+`Poco después de abandonar Suiza, las bases que el vicepresidente de EE. UU. había esbozado para un posible acuerdo a largo plazo comenzaron a mostrar fisuras.`\
+https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/jd-vance-iran-negociaciones.html
+
+**A Primary in Upstate New York Tests G.O.P. Voters’ Loyalty to Trump**\
+`State party leaders are backing Assemblyman Robert Smullen. But a local businessman and provocateur, Anthony Constantino, has President Trump’s endorsement.`\
+https://www.nytimes.com/2026/06/23/nyregion/trump-republican-new-york-primary-stefanik.html
+
+**Capitaine Washes Ashore in the West Village With Tavern Takes on Seafood**\
+`It’s a hat trick this week with Grimm Tavern from the beer brand, and Trudie’s Tavern from the Gertrude’s owners.`\
+https://www.nytimes.com/2026/06/23/dining/nyc-restaurant-news.html
+
+**Former NOAA Employees Revive Climate Web Site**\
+`The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
+https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
+
+**‘The Sound of Music’ and ‘A Few Good Men’ Are Coming to Broadway**\
+`Lincoln Center Theater, basking in the glow of its Tony-winning “Ragtime” run, plans revivals of two more well-known titles this season.`\
+https://www.nytimes.com/2026/06/23/theater/sound-of-music-a-few-good-men-broadway.html
+
+**The Iran War’s Persistent Threat to Farmers in Poor Countries**\
+`A reopening of the Strait of Hormuz would do little to swiftly ease the pain inflicted by higher prices for fertilizer, food and fuel in Ivory Coast.`\
+https://www.nytimes.com/2026/06/23/business/iran-war-africa-farming.html
+
+**Supreme Court Bars Lawsuit After Prison Guards Shaved Inmate’s Dreadlocks**\
+`Damon Landor, a Rastafarian, tried to sue Louisiana prison officials for violating his religious rights.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-inmates-dreadlocks.html
+
+**Maps: Tracking Tropical Depression Higos**\
+`See the likely path and wind arrival times for Higos`\
+https://www.nytimes.com/interactive/2026/06/23/weather/higos-map-path-tracker.html
+
+**Photos Behind Kennedy Center Tarps Show No Sign of Trump’s Name**\
+`Images circulated by an activist group reveal bare marble where President Trump’s name once resided. The Kennedy Center previously told a federal judge it had been removed.`\
+https://www.nytimes.com/2026/06/23/arts/music/kennedy-center-trump-name-photos-tarps.html
+
+**U.S. and Iran’s Conflicting Claims on Nuclear Inspection Show Challenge Ahead**\
+`President Trump said that in the latest round of peace talks, Iran had agreed to full inspection of its nuclear sites. Iran’s government said it had not.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/diverging-accounts-iran-nuclear-inspections.html
+
+**Ferraris and Shell Companies: Five Charged in Medicare Fraud Schemes**\
+`The Justice Department is taking aim at pricey “skin substitutes,” an overused wound care treatment that cost the government $10 billion in 2024.`\
+https://www.nytimes.com/2026/06/23/us/skin-substitutes-medicare-fraud.html
+
+**Supreme Court Rejects Lawsuit Claiming Cisco Systems Helped China Target Falun Gong**\
+`The court’s decision could have broader implications for whether companies can be held liable for aiding in international human rights abuses.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-cisco-falun-gong.html
+
+**At Least 40 People Drown in France Amid Heat Wave**\
+`At least 40 people have drowned in the last five days in France, according to the country’s prime minister, amid a scorching heat wave that has gripped much of Europe.`\
+https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-france-drowning.html
+
+**What Is Your Holy Grail?**\
+`We want to know what you love so much that it’s sacred to you.`\
+https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
+
+**Justice Dept. Withdraws Grand Jury Subpoenas of Journalists**\
+`The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
+https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
+
+**Una cantante iraní fue condenada a 74 latigazos por actuar sin hiyab**\
+`A Parastoo Ahmadi y a su grupo también se les prohibirá salir del país o actuar durante dos años. La sentencia frena las esperanzas de un régimen más moderado tras la guerra en Irán.`\
+https://www.nytimes.com/es/2026/06/23/espanol/mundo/cantante-iran-latigazos.html
+
 **Strait Reopens and Iranian Oil Flows, But the Path Through Is Complicated**\
 `With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
 https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html

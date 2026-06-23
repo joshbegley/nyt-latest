@@ -1,3 +1,7 @@
+**She’s in Line to Be Mayor of D.C. How Will She Handle Trump’s Threat?**\
+`“We’re going to find ways to resist,” a defiant Janeese Lewis George, the democratic socialist who won the Democratic primary last week in Washington, said in an interview.`\
+https://www.nytimes.com/2026/06/23/us/politics/janeese-lewis-george-trump-washington-dc.html
+
 **Israeli Soldiers Fatally Shoot 2 People in Southern Lebanon, Health Officials Say**\
 `The shooting came a day after Israeli troops began operating under new orders intended to reduce the risk of flare-ups in its conflict with Iran-backed Hezbollah militants.`\
 https://www.nytimes.com/2026/06/23/world/middleeast/israel-soldiers-lebanon-shooting-hezbollah.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500
 **Sarah Jessica Parker on the Seductive Power of Sports and the City**\
 `The actress — and Knicks superfan — on what it means to be a New Yorker, circa summer 2026.`\
 https://www.nytimes.com/2026/06/23/podcasts/sarah-jessica-parker-knicks-new-york.html
-
-**Trump dice que Venezuela es ‘un país feliz’. Su gente no está de acuerdo**\
-`El lento ritmo de la recuperación económica está poniendo a prueba la paciencia de los venezolanos con la presidenta en funciones, Delcy Rodríguez.`\
-https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-trump-delcy-rodriguez.html
 
