@@ -1,3 +1,87 @@
+**Trump dice que Venezuela es ‘un país feliz’. Su gente no está de acuerdo**\
+`El lento ritmo de la recuperación económica está poniendo a prueba la paciencia de los venezolanos con la presidenta en funciones, Delcy Rodríguez.`\
+https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-trump-delcy-rodriguez.html
+
+**What’s the Matter With Congress?**\
+`A debate between old friends about whether it is fear or polarization that is making Congress weak.`\
+https://www.nytimes.com/2026/06/23/opinion/congress-house-partisanship-fear.html
+
+**Major Supreme Court Decisions Testing Trump’s Policies Remain**\
+`Over the next two weeks, the justices will release more than a dozen final opinions, including high-profile decisions on birthright citizenship, the Federal Reserve and transgender athletes.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-trump-major-cases.html
+
+**China Takes Supercomputer Crown From U.S. For First Time Since 2017**\
+`A supercomputer in Shenzhen was declared the world’s fastest. It uses only standard microprocessors and not the special-purpose chips called graphics processing units.`\
+https://www.nytimes.com/2026/06/23/technology/china-supercomputer-crown-us.html
+
+**This Backyard A.D.U. Is Multigenerational by Design**\
+`Father-and-daughter architects Jim and Cotton Estes collaborated on their first project, right in Ms. Estes’s San Antonio backyard.`\
+https://www.nytimes.com/2026/06/23/realestate/san-antonio-adu-estes-architecture.html
+
+**Europe Created Heat-Wave Protections. Now Comes the ‘Crash Test.’**\
+`Searing temperatures in Western Europe are drawing comparisons to 2003, when a deadly heat wave sparked a reckoning.`\
+https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-protective-measures.html
+
+**Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
+`The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
+https://www.nytimes.com/2026/06/23/arts/rare-books-on-sex-have-spiced-things-up-at-a-library-franklin-founded.html
+
+**X-Ray Specs for the World’s Oldest, Sealed Letters**\
+`A team of historians, scientists and engineers has developed a portable X-ray scanner to study 4,000-year-old letters encased in clay envelopes.`\
+https://www.nytimes.com/2026/06/23/science/x-ray-specs-for-the-worlds-oldest-sealed-letters.html
+
+**A Glimmer of Hope for Fixing Penn Station**\
+`The plans that Amtrak has released for redoing the notorious station offers good architecture and some promise of moving ahead, our architecture critic says.`\
+https://www.nytimes.com/2026/06/23/nyregion/a-glimmer-of-hope-for-fixing-penn-station.html
+
+**Corrections: June 23, 2026**\
+`Corrections that appeared in print on Tuesday, June 23, 2026.`\
+https://www.nytimes.com/2026/06/23/pageoneplus/corrections-june-23-2026.html
+
+**How Mark Rutte of NATO Manages an Unpredictable Trump**\
+`Secretary General Mark Rutte is headed to Washington. His style has at times frustrated the very European leaders who need him to hold the alliance together.`\
+https://www.nytimes.com/2026/06/23/world/europe/mark-rutte-nato-trump.html
+
+**Iranian Singer Sentenced to 74 Lashes for Performing Without Hijab**\
+`Parastoo Ahmadi and her band will also be barred from leaving the country or performing for two years, dampening hopes for a more moderate postwar regime in Iran.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/iranian-singer-lashing-sentence.html
+
+**At the Obama Center in Chicago, the Food Reflects the Former First Family**\
+`At the new presidential center and museum in Chicago, the restaurants reflect the former first family’s longstanding interest in food and food policy.`\
+https://www.nytimes.com/2026/06/23/dining/barack-obama-center-restaurants-food-chicago.html
+
+**Exercise and Stress: Do High-Intensity Workouts Spike Cortisol Levels?**\
+`We asked experts to explain the relationship between the stress hormone and exercise.`\
+https://www.nytimes.com/2026/06/23/well/move/exercise-stress-cortisol-levels.html
+
+**From Florence to Malta, 5 New Boutique Hotels**\
+`Whether set amid vineyards in Burgundy or in the heart of Florence, these boutique hotels will keep the crowds at bay.`\
+https://www.nytimes.com/2026/06/23/travel/boutique-hotels.html
+
+**Iran Makes Moves to Assert Control Over the Strait of Hormuz**\
+`After Iran weaponized the waterway by making it too dangerous for businesses, experts say, the country is now looking to charge fees to vessels seeking to transit the vital water.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/iran-control-strait-of-hormuz.html
+
+**Want to Live Abroad? You Can Still Find a Great Golden Visa.**\
+`As some countries curtail or even cancel their residency-by-investment programs, we scan the world for the most attractive visa plans for Americans.`\
+https://www.nytimes.com/2026/06/23/realestate/golden-visa-panama-portugal-greece-costa-rica.html
+
+**How Does Rent Regulation Work Across the U. S.?**\
+`As New York City considers a rent freeze, a look at how cities and states across the U.S. keep costs in check.`\
+https://www.nytimes.com/2026/06/23/realestate/national-rent-regulation-explainer.html
+
+**America’s Thirst for Gasoline May Not Recover After Iran War**\
+`People drove less and bought more-efficient cars when fuel prices surged, habits that could stick over the long term.`\
+https://www.nytimes.com/2026/06/23/business/economy/gasoline-demand-destruction.html
+
+**Social Security Is Running Out of Money, Fast**\
+`To save the program, we need to eliminate the payroll tax cap.`\
+https://www.nytimes.com/2026/06/23/opinion/moreno-warren-social-security.html
+
+**Charles Hinman, Who Brought New Dimensions to Painting, Dies at 93**\
+`Starting in the early 1960s, the New York artist blurred the line between painting and sculpture with his shaped, protruding canvases.`\
+https://www.nytimes.com/2026/06/23/arts/design/charles-hinman-dead.html
+
 **Of Course the Pope Is a Natural at Memes**\
 `Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
 https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
