@@ -1,3 +1,15 @@
+**U.S. Warns of ‘Imminent’ Atrocities in El Obeid, Sudan**\
+`A highway running through El Obeid links Darfur in west Sudan to the east, making it a strategically significant battleground.`\
+https://www.nytimes.com/2026/06/23/world/africa/sudan-war-rsf-atrocities.html
+
+**Trump dice que el mal estado del estanque reflectante no es su culpa**\
+`Según la versión del presidente, la renovación iba de maravilla hasta que unos vándalos armados con cuchillos y fertilizante pusieron sus miras en el monumento.`\
+https://www.nytimes.com/es/2026/06/23/espanol/trump-dice-que-el-mal-estado-del-estanque-reflectante-no-es-su-culpa.html
+
+**Former NOAA Employees Revive Climate.gov Web Site**\
+`The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
+https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
+
 **Britain Is Still Deep in the Shadow of Brexit**\
 `Ten years after a slim majority voted to leave the European Union, the economic and political effects of that decision continue to disrupt the United Kingdom.`\
 https://www.nytimes.com/2026/06/23/world/europe/britain-brexit-legacy.html

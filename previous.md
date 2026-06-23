@@ -1,3 +1,11 @@
+**U.S. Warns of ‘Imminent’ Atrocities in El Obeid, Sudan**\
+`A highway running through El Obeid links Darfur in west Sudan to the east, making it a strategically significant battleground.`\
+https://www.nytimes.com/2026/06/23/world/africa/sudan-war-rsf-atrocities.html
+
+**Trump dice que el mal estado del estanque reflectante no es su culpa**\
+`Según la versión del presidente, la renovación iba de maravilla hasta que unos vándalos armados con cuchillos y fertilizante pusieron sus miras en el monumento.`\
+https://www.nytimes.com/es/2026/06/23/espanol/trump-dice-que-el-mal-estado-del-estanque-reflectante-no-es-su-culpa.html
+
 **Britain Is Still Deep in the Shadow of Brexit**\
 `Ten years after a slim majority voted to leave the European Union, the economic and political effects of that decision continue to disrupt the United Kingdom.`\
 https://www.nytimes.com/2026/06/23/world/europe/britain-brexit-legacy.html
@@ -82,7 +90,7 @@ https://www.nytimes.com/2026/06/23/nyregion/trump-republican-new-york-primary-st
 `It’s a hat trick this week with Grimm Tavern from the beer brand, and Trudie’s Tavern from the Gertrude’s owners.`\
 https://www.nytimes.com/2026/06/23/dining/nyc-restaurant-news.html
 
-**Former NOAA Employees Revive Climate Web Site**\
+**Former NOAA Employees Revive Climate.gov Web Site**\
 `The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
 https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
 
@@ -173,10 +181,6 @@ https://www.nytimes.com/2026/06/23/weather/europe-extreme-heat-wave-warning.html
 **Bread and Roses**\
 `We look at the democratic socialists who are leading some of America’s big cities.`\
 https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
-
-**Japan to Raise Some Tourist Visa Fees More Than 400 Percent**\
-`The hike, from around $18 to $93 for a single trip, will apply to visitors from countries including China, India and Vietnam, but not most Western travelers.`\
-https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
