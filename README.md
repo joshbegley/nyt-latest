@@ -1,192 +1,200 @@
+**U.N. Sets Plan to Evacuate Stranded Ships Out of Persian Gulf**\
+`The International Maritime Organization, working with multiple countries, said it has ensured that vessels can sail safely through the Strait of Hormuz after months of being idled.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/imo-persian-gulf-stranded-ships.html
+
+**Colombia se lanza al vacío**\
+`Otra victoria de la derecha, ahora en el tercer país más poblado de Latinoamérica, podría tener repercusiones en toda la región.`\
+https://www.nytimes.com/es/2026/06/23/espanol/opinion/colombia-elecciones-espriella-petro.html
+
+**Utah Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-primary.html
+
+**South Carolina 2026: Live Runoff Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-runoff.html
+
+**South Carolina Governor Runoff 2026: Live Election Results, Evette vs. Wilson**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-governor-runoff.html
+
+**New York 12th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-12-primary.html
+
+**New York 10th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-10-primary.html
+
+**New York Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-primary.html
+
+**Maryland Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-primary.html
+
+**Key Race Results in New York, Maryland, South Carolina and Utah**\
+`See results in key races from the June 23 elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-key-races-june-23-ny-ut-md-sc.html
+
+**‘Error 404: Humanity Not Found’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Katheryn Chan, age 15.`\
+https://www.nytimes.com/2026/06/23/learning/error-404-humanity-not-found.html
+
+**‘Could You Patent the Sun?’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Isabelle Kim, age 15.`\
+https://www.nytimes.com/2026/06/23/learning/could-you-patent-the-sun.html
+
+**‘Mourning the Silence of Civic Education’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Chan-Yul Kim, age 16.`\
+https://www.nytimes.com/2026/06/23/learning/mourning-the-silence-of-civic-education.html
+
+**The Winners of Our Third Annual Open Letter Contest**\
+`This year’s winning letters — chosen from more than 11,000 entries — on civic education, data centers, social media bans and more.`\
+https://www.nytimes.com/2026/06/23/learning/the-winners-of-our-third-annual-open-letter-contest.html
+
 **Polling Is Limited in New York’s Democratic House Primaries**\
 `Few independent surveys were published in Democratic primaries despite prominent candidates and some ideological tests.`\
 https://www.nytimes.com/2026/06/23/us/elections/new-york-city-house-polls.html
 
-**Trump Administration Sues New York State Over ICE Mask Ban**\
-`A Department of Justice lawsuit said that a measure prohibiting law enforcement officers from covering their faces would endanger agents.`\
-https://www.nytimes.com/2026/06/23/nyregion/ice-masks-ny-ban-trump-lawsuit.html
+**Utah Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-3-primary.html
 
-**The Pool That Reflects Trump’s Presidency**\
-`Readers respond to articles about the Lincoln Memorial Reflecting Pool. Also: The politics of fine dining; learning something new.`\
-https://www.nytimes.com/2026/06/23/opinion/trump-reflecting-pool.html
+**Utah First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-1-primary.html
 
-**Artist Pulls Work From London Museum After Clash Over Churchill’s Legacy**\
-`A historian and others said that a video installation had incorrectly blamed Winston Churchill for a famine in colonial India.`\
-https://www.nytimes.com/2026/06/23/arts/churchill-bengal-famine-national-portrait-gallery.html
+**Utah Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-4-primary.html
 
-**Meta Has Created a Prediction Markets App**\
-`The experimental app, internally called “Arena,” would be independent of Facebook and Instagram. It could compete for attention with Polymarket and Kalshi, the biggest prediction markets.`\
-https://www.nytimes.com/2026/06/23/technology/meta-prediction-markets-app.html
+**Sioux Falls, South Dakota, Mayor 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Dakota election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-mayor-sioux-falls.html
 
-**Supreme Court Sides With Exxon in Lawsuit Over Assets Seized by Cuba**\
-`The Trump administration backed Exxon Mobil’s effort to be compensated for oil and gas assets confiscated by the Cuban government in 1960.`\
-https://www.nytimes.com/2026/06/23/us/politics/supreme-court-cuba-exxon.html
+**Utah Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-2-primary.html
 
-**U.S. Warns of ‘Imminent’ Atrocities in El Obeid, Sudan**\
-`A highway running through El Obeid links Darfur in west Sudan to the east, making it a strategically significant battleground.`\
-https://www.nytimes.com/2026/06/23/world/africa/sudan-war-rsf-atrocities.html
+**South Carolina Second Congressional District Runoff 2026: Live Election Results, Khalifa vs. Robinson**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-2-runoff.html
 
-**Trump dice que el mal estado del estanque reflectante no es su culpa**\
-`Según la versión del presidente, la renovación iba de maravilla hasta que unos vándalos armados con cuchillos y fertilizante pusieron sus miras en el monumento.`\
-https://www.nytimes.com/es/2026/06/23/espanol/trump-dice-que-el-mal-estado-del-estanque-reflectante-no-es-su-culpa.html
+**New York Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-7-primary.html
 
-**Britain Is Still Deep in the Shadow of Brexit**\
-`Ten years after a slim majority voted to leave the European Union, the economic and political effects of that decision continue to disrupt the United Kingdom.`\
-https://www.nytimes.com/2026/06/23/world/europe/britain-brexit-legacy.html
+**New York Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-4-primary.html
 
-**Apple Just Closed Its First Unionized U.S. Store**\
-`The company said it had shuttered a Maryland location because of “declining conditions” in a surrounding mall. The union accuses Apple of retaliation.`\
-https://www.nytimes.com/2026/06/23/business/apple-union-store-closure.html
+**South Carolina First Congressional District Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-1-runoff.html
 
-**Europe’s Heat Has Scientists Asking: How Much Hotter Can It Get?**\
-`Records are being broken for the second time in a month, leading scientists to probe the upper limits of what the warming climate can dish out.`\
-https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-climate-change.html
+**New York Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-9-primary.html
 
-**SpaceX Stock Price Is Slumping After Its Blockbuster IPO**\
-`On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
-https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
+**South Carolina Attorney General Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-runoff.html
 
-**Why Milder Symptoms Could Make This Ebola Outbreak More Dangerous**\
-`Early signs indicate that the species of Ebola behind the current outbreak in the Democratic Republic of Congo may have milder symptoms than past outbreaks. Our global health reporter Apoorva Mandavilli explains why this might actually make it more dangerous.`\
-https://www.nytimes.com/video/health/100000010970611/why-milder-symptoms-could-make-this-ebola-outbreak-more-dangerous.html
+**New York Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-5-primary.html
 
-**Appeals Court Allows Trump to Resume Expedited Deportations Nationwide**\
-`In a 2-to-1 vote, a federal appeals court panel ruled that the president can expand the procedure, previously used primarily near the border, to arrests nationally.`\
-https://www.nytimes.com/2026/06/23/us/politics/appeals-court-expedited-deportations.html
+**New York Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-3-primary.html
 
-**Manhattan Borough President Gives $50 Million to N.Y.C. Arts Groups**\
-`In allocating the borough’s discretionary budget entirely to cultural projects, Brad Hoylman-Sigal said he wanted to send a message to President Trump about the need to keep arts funding.`\
-https://www.nytimes.com/2026/06/23/arts/design/nyc-arts-funding-manhattan-borough-president.html
+**South Carolina Agriculture Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-runoff.html
 
-**Can’t Stop Second-Screening? Netflix Is Counting on It.**\
-`A new game featuring the voices of Zoë Kravitz and Sadie Sink turns a user’s phone into a controller in an attempt to combine the first and second screen experience.`\
-https://www.nytimes.com/2026/06/23/arts/television/netflix-unhinged.html
+**New York Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-6-primary.html
 
-**Today, In Short**\
-`Hyper goo. Dive bars. And the best Prime Day deals.`\
-https://www.nytimes.com/2026/06/23/briefing/today-in-short.html
+**New York Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-8-primary.html
 
-**Ebola Symptoms in Current Outbreak May Be Milder Than in Previous Ones**\
-`That is good news for patients, but officials fear it will make controlling the spread of the disease harder.`\
-https://www.nytimes.com/2026/06/23/health/ebola-symptoms-death-rate.html
+**New York 23rd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-23-primary.html
 
-**Up Late With Botticelli as the Uffizi Gets a Reset**\
-`The museum’s director, Simone Verde, is working long hours as he tries to remake the institution into a living encyclopedia.`\
-https://www.nytimes.com/2026/06/23/arts/design/uffizi-botticelli-rehang-simone-verde.html
+**New York 26th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-26-primary.html
 
-**Trump Gives Teamsters a Chance to Shed Oversight Meant to Curb Mob Ties**\
-`Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
-https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
+**New York First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-1-primary.html
 
-**Energy Dept. Promises $17.5 Billion in Loans for Nuclear Power**\
-`The federal government wants to help utilities buy large components for up to 10 large nuclear reactors. It’s unclear which, if any, companies might participate.`\
-https://www.nytimes.com/2026/06/23/climate/trump-energy-nuclear-loans.html
+**New York 22nd Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-22-primary.html
 
-**She’s in Line to Be Mayor of D.C. How Will She Handle Trump’s Threat?**\
-`“We’re going to find ways to resist,” a defiant Janeese Lewis George, the democratic socialist who won the Democratic primary last week in Washington, said in an interview.`\
-https://www.nytimes.com/2026/06/23/us/politics/janeese-lewis-george-trump-washington-dc.html
+**New York Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-2-primary.html
 
-**Israeli Soldiers Fatally Shoot 2 People in Southern Lebanon, Health Officials Say**\
-`The shooting came a day after Israeli troops began operating under new orders intended to reduce the risk of flare-ups in its conflict with Iran-backed Hezbollah militants.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/israel-soldiers-lebanon-shooting-hezbollah.html
+**New York 19th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-19-primary.html
 
-**2026 Jimmy Awards: With Bowen Yang as Host, Teen Winners Are Crowned**\
-`Students from Georgia and Arizona won the top prizes at the ceremony, which was hosted by Bowen Yang and celebrates excellence in high school musical theater.`\
-https://www.nytimes.com/2026/06/23/theater/jimmy-awards-bowen-yang-musical-theater.html
+**New York 24th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-24-primary.html
 
-**Mourning After the Michael Jackson Movie? It Might Be ‘Michosis.’**\
-`Some Michael Jackson fans are experiencing deep, lingering grief after watching the biopic — a potent reminder that he is gone, they say.`\
-https://www.nytimes.com/2026/06/23/movies/michael-jackson-mourning-michosis.html
+**New York 25th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-25-primary.html
 
-**CBS News Hired an Independent Watchdog. What’s He Doing?**\
-`With CBS News rocked by controversy, some viewers have turned to the network ombudsman for a public response. So far, they haven’t gotten one.`\
-https://www.nytimes.com/2026/06/23/business/media/cbs-news-ombudsman.html
+**New York 11th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-11-primary.html
 
-**Vance lidera las negociaciones con Irán y Trump le pone obstáculos**\
-`Poco después de abandonar Suiza, las bases que el vicepresidente de EE. UU. había esbozado para un posible acuerdo a largo plazo comenzaron a mostrar fisuras.`\
-https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/jd-vance-iran-negociaciones.html
+**New York 20th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-20-primary.html
 
-**A Primary in Upstate New York Tests G.O.P. Voters’ Loyalty to Trump**\
-`State party leaders are backing Assemblyman Robert Smullen. But a local businessman and provocateur, Anthony Constantino, has President Trump’s endorsement.`\
-https://www.nytimes.com/2026/06/23/nyregion/trump-republican-new-york-primary-stefanik.html
+**New York 21st Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-21-primary.html
 
-**Capitaine Washes Ashore in the West Village With Tavern Takes on Seafood**\
-`It’s a hat trick this week with Grimm Tavern from the beer brand, and Trudie’s Tavern from the Gertrude’s owners.`\
-https://www.nytimes.com/2026/06/23/dining/nyc-restaurant-news.html
+**New York 17th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-17-primary.html
 
-**Former NOAA Employees Revive Climate.gov Web Site**\
-`The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
-https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
+**New York Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-general-primary.html
 
-**‘The Sound of Music’ and ‘A Few Good Men’ Are Coming to Broadway**\
-`Lincoln Center Theater, basking in the glow of its Tony-winning “Ragtime” run, plans revivals of two more well-known titles this season.`\
-https://www.nytimes.com/2026/06/23/theater/sound-of-music-a-few-good-men-broadway.html
+**New York Comptroller Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroller-primary.html
 
-**The Iran War’s Persistent Threat to Farmers in Poor Countries**\
-`A reopening of the Strait of Hormuz would do little to swiftly ease the pain inflicted by higher prices for fertilizer, food and fuel in Ivory Coast.`\
-https://www.nytimes.com/2026/06/23/business/iran-war-africa-farming.html
+**Maryland Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-5-primary.html
 
-**Supreme Court Bars Lawsuit After Prison Guards Shaved Inmate’s Dreadlocks**\
-`Damon Landor, a Rastafarian, tried to sue Louisiana prison officials for violating his religious rights.`\
-https://www.nytimes.com/2026/06/23/us/politics/supreme-court-inmates-dreadlocks.html
+**New York Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-governor-primary.html
 
-**Maps: Tracking Tropical Depression Higos**\
-`See the likely path and wind arrival times for Higos`\
-https://www.nytimes.com/interactive/2026/06/23/weather/higos-map-path-tracker.html
+**Maryland First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-1-primary.html
 
-**Photos Behind Kennedy Center Tarps Show No Sign of Trump’s Name**\
-`Images circulated by an activist group reveal bare marble where President Trump’s name once resided. The Kennedy Center previously told a federal judge it had been removed.`\
-https://www.nytimes.com/2026/06/23/arts/music/kennedy-center-trump-name-photos-tarps.html
+**New York 15th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-15-primary.html
 
-**U.S. and Iran’s Conflicting Claims on Nuclear Inspection Show Challenge Ahead**\
-`President Trump said that in the latest round of peace talks, Iran had agreed to full inspection of its nuclear sites. Iran’s government said it had not.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/diverging-accounts-iran-nuclear-inspections.html
-
-**Ferraris and Shell Companies: Five Charged in Medicare Fraud Schemes**\
-`The Justice Department is taking aim at pricey “skin substitutes,” an overused wound care treatment that cost the government $10 billion in 2024.`\
-https://www.nytimes.com/2026/06/23/us/skin-substitutes-medicare-fraud.html
-
-**Supreme Court Rejects Lawsuit Claiming Cisco Systems Helped China Target Falun Gong**\
-`The court’s decision could have broader implications for whether companies can be held liable for aiding in international human rights abuses.`\
-https://www.nytimes.com/2026/06/23/us/politics/supreme-court-cisco-falun-gong.html
-
-**At Least 40 People Drown in France Amid Heat Wave**\
-`At least 40 people have drowned in the last five days in France, according to the country’s prime minister, amid a scorching heat wave that has gripped much of Europe.`\
-https://www.nytimes.com/video/world/europe/100000010985430/heat-wave-europe-france-drowning.html
-
-**What Is Your Holy Grail?**\
-`We want to know what you love so much that it’s sacred to you.`\
-https://www.nytimes.com/2026/06/23/briefing/what-is-your-holy-grail.html
-
-**Justice Dept. Issued, Then Withdrew, Grand Jury Subpoenas of Journalists**\
-`The administration backed down after the news organizations, The Wall Street Journal and The Washington Post, fought them in sealed filings.`\
-https://www.nytimes.com/2026/06/23/us/subpoenas-wall-street-journal-washington-post.html
-
-**Una cantante iraní fue condenada a 74 latigazos por actuar sin hiyab**\
-`A Parastoo Ahmadi y a su grupo también se les prohibirá salir del país o actuar durante dos años. La sentencia frena las esperanzas de un régimen más moderado tras la guerra en Irán.`\
-https://www.nytimes.com/es/2026/06/23/espanol/mundo/cantante-iran-latigazos.html
-
-**After Wars and False Starts, Cautious Optimism for U.S.-Iran Talks**\
-`Tehran and Washington face myriad negotiating pitfalls. But both sides are exhausted and running out of options. They may finally need a deal.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/united-states-iran-talks-optimism.html
-
-**Street Style Look of the Week: French Fishnets for a Lengthy Layover**\
-`A young European wasn’t counting on staying in San Francisco when he missed his flight. Luckily, he had some Pride-worthy items in his suitcase.`\
-https://www.nytimes.com/2026/06/23/style/street-style-look-fishnets.html
-
-**The Extraordinary Embezzlement Case That Rocked Scottish Politics**\
-`Peter Murrell, the husband of the former Scottish leader Nicola Sturgeon, was sentenced on Tuesday after he admitted to buying a bizarre range of items with the Scottish National Party’s money.`\
-https://www.nytimes.com/2026/06/23/world/europe/scotland-peter-murrell-nicola-sturgeon-scottish-national-party.html
-
-**The N.Y. Primaries Will Answer Key Questions: Mamdani, Israel and More**\
-`The congressional primaries in New York on Tuesday will answer key questions about the potency of super PACs and the extent of Zohran Mamdani’s influence.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
-
-**Strait Reopens and Iranian Oil Flows, But the Path Through Is Complicated**\
-`With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
-https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
-
-**Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
-`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
-https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+**New York 13th Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-13-primary.html
 
