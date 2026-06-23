@@ -1,3 +1,7 @@
+**Elon Musk confirma las antiguas preocupaciones sobre los superricos**\
+`Platón hizo una propuesta radical sobre la riqueza que resuena mucho en nuestros tiempos.`\
+https://www.nytimes.com/es/2026/06/23/espanol/opinion/elon-musk-dinero-riqueza-millonarios.html
+
 **Neighborhood Reels From Loss of Landmark Church That Stood for 173 Years**\
 `The South Bushwick Church, whose steeple was a local beacon, was heavily damaged in a fire on Friday in a blow to a Brooklyn neighborhood known for its architectural gems.`\
 https://www.nytimes.com/2026/06/23/nyregion/bushwick-church-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/american-revolution-herm
 **The Native Leader Who Tied His People’s Fate to the Patriot Cause**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/good-peter-oneida-history-american-revolution.html
-
-**The American Revolution Through the Eyes of Seven Everyday Founders**\
-`For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
-https://www.nytimes.com/interactive/2026/06/22/magazine/usa-250-anniversary-american-revolution.html
 
