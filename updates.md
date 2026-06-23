@@ -1,3 +1,11 @@
+**40 People Drown in France as Heat Wave Persists**\
+`Most of the victims were young people swimming in unsupervised areas, officials said.`\
+https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
+
+**Mideast Live Updates: U.S. and Iran Offer Conflicting Accounts of Nuclear Discussions**\
+`President Trump said Iran had agreed to the “highest level” inspections, hours after an Iranian official said there were “no detailed discussions on the nuclear issue,” as the two sides continued to present different narratives of their latest talks.`\
+https://www.nytimes.com/live/2026/06/23/world/iran-us-trump-lebanon
+
 **The Tech Sell-off Goes Global**\
 `Investors are bracing for rough trading after stocks in Asia and Europe were clobbered on Tuesday. A.I. companies like SpaceX are getting hit hard.`\
 https://www.nytimes.com/2026/06/23/business/dealbook/tech-stocks-chips-spacex.html

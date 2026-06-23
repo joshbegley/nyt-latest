@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/23/business/dealbook/tech-stocks-chips-spacex.html
 
 **40 People Drown in France as Heat Wave Persists**\
-`Most of the victims, swimming in unsupervised areas, were young, officials said.`\
+`Most of the victims were young people swimming in unsupervised areas, officials said.`\
 https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
 
 **Europe Is Sweltering in an Extreme Heat Wave. Here’s What to Know.**\
@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
 `The hike, from around $18 to $93 for a single trip, will apply to visitors from countries including China, India and Vietnam, but not most Western travelers.`\
 https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.html
 
-**Mideast Live Updates: Iran Says It Will Not Allow Inspections of Damaged Nuclear Sites**\
-`Iran’s foreign ministry spokesman pushed back on Vice President JD Vance’s claims of a “major milestone” in talks over the weekend, saying that negotiators had “no detailed discussions on the nuclear issue.”`\
+**Mideast Live Updates: U.S. and Iran Offer Conflicting Accounts of Nuclear Discussions**\
+`President Trump said Iran had agreed to the “highest level” inspections, hours after an Iranian official said there were “no detailed discussions on the nuclear issue,” as the two sides continued to present different narratives of their latest talks.`\
 https://www.nytimes.com/live/2026/06/23/world/iran-us-trump-lebanon
 
 **Reino Unido: nuevo líder, mismos problemas**\

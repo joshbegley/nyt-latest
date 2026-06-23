@@ -162,13 +162,13 @@ https://www.nytimes.com/2026/06/23/arts/design/charles-hinman-dead.html
 `Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
 https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
 
-**Covid Politics Don’t Have to Be Toxic**\
-`Nirav Shah is something that would seem anathema in contemporary politics: a public health technocrat who became a household name during Covid.`\
-https://www.nytimes.com/2026/06/23/opinion/nirav-shah-maine-covid.html
-
 **The A.I. Boom Boosted Teacher Pay in a Rural County. Can It Last?**\
 `The large bonuses tied to data center construction in Richland Parish, La., are unprecedented, but critics say it is not a panacea.`\
 https://www.nytimes.com/2026/06/23/us/louisana-teachers-bonus-meta-tax-revenue.html
+
+**Covid Politics Don’t Have to Be Toxic**\
+`Nirav Shah is something that would seem anathema in contemporary politics: a public health technocrat who became a household name during Covid.`\
+https://www.nytimes.com/2026/06/23/opinion/nirav-shah-maine-covid.html
 
 **Delcy Rodríguez, Venezuela’s President, Struggles to Uphold Trump’s Narrative of Success**\
 `President Trump says Venezuela, under U.S. oversight, has “never made the money” it is making now. But new oil revenue isn’t helping ordinary Venezuelans, and anger seems to be mounting.`\
