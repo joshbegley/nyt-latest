@@ -1,3 +1,7 @@
+**Late Night Dunks on Trump for Hiring Greenwater Services**\
+`Jimmy Fallon poked fun at the name of the business under fire for turning the Lincoln Memorial Reflecting Pool bright green: “Nailed it.”`\
+https://www.nytimes.com/2026/06/23/arts/television/late-night-trump-greenwater.html
+
 **Por qué cada vez más adultos mayores eligen el divorcio en EE. UU.**\
 `Cada vez más personas de la tercera edad deciden poner fin a sus matrimonios, y los expertos tienen varias teorías sobre por qué.`\
 https://www.nytimes.com/es/2026/06/23/espanol/matrimonio-envejecer-divorcio-separacion.html
