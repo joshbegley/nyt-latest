@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/23/business/dealbook/tech-stocks-chips-spacex.html
 
 **40 People Drown in France as Heat Wave Persists**\
-`Most of the victims, swimming in unsupervised areas, were young, officials said.`\
+`Most of the victims were young people swimming in unsupervised areas, officials said.`\
 https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
 
 **Europe Is Sweltering in an Extreme Heat Wave. Here’s What to Know.**\
