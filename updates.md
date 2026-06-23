@@ -1,3 +1,15 @@
+**Tucker Carlson and Marjorie Taylor Greene Say They Are Done With the G.O.P.**\
+`Their split with the Republican Party represents an expansion of a feud with President Trump that could further complicate the party’s midterm prospects.`\
+https://www.nytimes.com/2026/06/23/us/politics/tucker-carlson-marjorie-taylor-greene.html
+
+**‘This Is the Team,’ Mamdani Says. His Allies Hint Lander Doesn’t Belong.**\
+`Mayor Zohran Mamdani has backed three people for Congress in New York City, but some closest to him have chosen to push only Claire Valdez and Darializa Avila Chevalier.`\
+https://www.nytimes.com/2026/06/23/nyregion/mamdani-allies-no-lander.html
+
+**How Trump Turned America’s Refugee Program Into a Pathway for White People**\
+`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program intended for people fleeing persecution and disaster.`\
+https://www.nytimes.com/2026/06/23/us/politics/trump-refugee-program-whites.html
+
 **‘This Is the Team,’ Mamdani Says. His Allies Say Lander Doesn’t Belong.**\
 `Mayor Zohran Mamdani has backed three people for Congress in New York City, but some closest to him have chosen to push only Claire Valdez and Darializa Avila Chevalier.`\
 https://www.nytimes.com/2026/06/23/nyregion/mamdani-allies-no-lander.html

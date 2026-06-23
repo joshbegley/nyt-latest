@@ -1,4 +1,8 @@
-**‘This Is the Team,’ Mamdani Says. His Allies Say Lander Doesn’t Belong.**\
+**Tucker Carlson and Marjorie Taylor Greene Say They Are Done With the G.O.P.**\
+`Their split with the Republican Party represents an expansion of a feud with President Trump that could further complicate the party’s midterm prospects.`\
+https://www.nytimes.com/2026/06/23/us/politics/tucker-carlson-marjorie-taylor-greene.html
+
+**‘This Is the Team,’ Mamdani Says. His Allies Hint Lander Doesn’t Belong.**\
 `Mayor Zohran Mamdani has backed three people for Congress in New York City, but some closest to him have chosen to push only Claire Valdez and Darializa Avila Chevalier.`\
 https://www.nytimes.com/2026/06/23/nyregion/mamdani-allies-no-lander.html
 
@@ -139,7 +143,7 @@ https://www.nytimes.com/2026/06/23/world/middleeast/rubio-strait-of-hormuz-charg
 https://www.nytimes.com/2026/06/23/us/politics/south-africa-refugees-welcome-bags.html
 
 **How Trump Turned America’s Refugee Program Into a Pathway for White People**\
-`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program designed for people fleeing persecution and disaster.`\
+`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program intended for people fleeing persecution and disaster.`\
 https://www.nytimes.com/2026/06/23/us/politics/trump-refugee-program-whites.html
 
 **A Last-Minute Guide to the Candidates in New York’s Primaries**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/23/espanol/negocios/brexit-efectos-economicos
 **U.N. Sets Plan to Evacuate Stranded Ships Out of Persian Gulf**\
 `The International Maritime Organization, working with multiple countries, said it has ensured that vessels can sail safely through the Strait of Hormuz after months of being idled.`\
 https://www.nytimes.com/2026/06/23/world/middleeast/imo-persian-gulf-stranded-ships.html
-
-**Colombia se lanza al vacío**\
-`Otra victoria de la derecha, ahora en el tercer país más poblado de Latinoamérica, podría tener repercusiones en toda la región.`\
-https://www.nytimes.com/es/2026/06/23/espanol/opinion/colombia-elecciones-espriella-petro.html
 
