@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/23/arts/churchill-bengal-famine-national-portrait-gallery.html
 
 **Meta Has Created a Prediction Markets App**\
-`The app, internally called “Arena,” would be independent of Facebook and Instagram. It could compete for attention with Polymarket and Kalshi, the biggest prediction markets.`\
+`The experimental app, internally called “Arena,” would be independent of Facebook and Instagram. It could compete for attention with Polymarket and Kalshi, the biggest prediction markets.`\
 https://www.nytimes.com/2026/06/23/technology/meta-prediction-markets-app.html
 
 **Supreme Court Sides With Exxon in Lawsuit Over Assets Seized by Cuba**\

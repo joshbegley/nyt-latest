@@ -1,3 +1,7 @@
+**Meta Has Created a Prediction Markets App**\
+`The experimental app, internally called “Arena,” would be independent of Facebook and Instagram. It could compete for attention with Polymarket and Kalshi, the biggest prediction markets.`\
+https://www.nytimes.com/2026/06/23/technology/meta-prediction-markets-app.html
+
 **Artist Pulls Work From London Museum After Clash Over Churchill’s Legacy**\
 `A historian and others said that a video installation had incorrectly blamed Winston Churchill for a famine in colonial India.`\
 https://www.nytimes.com/2026/06/23/arts/churchill-bengal-famine-national-portrait-gallery.html
