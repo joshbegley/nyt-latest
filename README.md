@@ -1,3 +1,7 @@
+**Judge Blocks Bans on Using Food Stamps for Sugary Drinks and Candy**\
+`A federal judge ruled that the Agriculture Department lacked the authority to approve state waivers that restrict what SNAP participants can buy with their benefits.`\
+https://www.nytimes.com/2026/06/22/us/politics/judge-ruling-food-stamps-sugary-drinks.html
+
 **Storms Disrupt World Cup Matches in Philadelphia and New Jersey**\
 `The ponchos came out as fans did what they could to stay dry. The France-Iraq match in Philadelphia endured a lengthy weather delay.`\
 https://www.nytimes.com/2026/06/22/us/world-cup-storms-rain-photos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/22/espanol/estados-unidos/muere-alan-greenspa
 **Interior Department Moves to Relax Rules for Drilling on Public Lands**\
 `A pair of proposals from the Trump administration would lower costs and weaken requirements for fossil fuel companies that drill on federal property.`\
 https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html
-
-**Vance Claims Progress in First Day of Iran Talks**\
-`Vice President JD Vance, the lead U.S. negotiator, said the two sides had agreed on technical issues and at least one substantive one, international inspection of Iranian nuclear sites, but an Iranian official said his country had made “no new commitments.”`\
-https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-talks-progress.html
 
