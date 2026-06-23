@@ -1,3 +1,7 @@
+**Iranian Oil Is Moving Again, but Getting Through the Strait Is Complicated**\
+`With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
+https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
+
 **Would You Let an A.I. Michael Caine Read You the ‘Odyssey’?**\
 `The longtime Christopher Nolan collaborator isn’t in the director’s forthcoming Homeric adaptation. But a new audiobook sets Caine’s voice off on its own adventure.`\
 https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/23/theater/theater-musicals-festivals-summer.htm
 **Book Review: ‘The Housewives Underground,’ by Kaitlyn Tiffany**\
 `In “The Housewives Underground,” the Atlantic writer Kaitlyn Tiffany salutes a loose network of skeptics who questioned the findings of the Warren Report.`\
 https://www.nytimes.com/2026/06/23/books/review/the-housewives-underground-kaitlyn-tiffany.html
-
-**Searching for Clues in Jeffrey Epstein’s Boyhood**\
-`“Jeff” grew up in an insular world, kept company with a few brainy boys and fixated on girls. Was a monster hiding in plain sight?`\
-https://www.nytimes.com/2026/06/23/well/jeffrey-epstein-childhood-sea-gate-coney-island.html
 
