@@ -1,3 +1,7 @@
+**N.S.A. Lost Access to Powerful A.I. Model Amid Anthropic Dispute**\
+`A recent episode underscored the Trump administration’s increasing reliance on advanced A.I. systems for cybersecurity even as it battles a leading U.S. developer.`\
+https://www.nytimes.com/2026/06/23/us/politics/nsa-lost-access-anthropic-tool.html
+
 **Is the Australian Prime Minister’s Pragmatism Enough in Uncertain Times?**\
 `Buffeted by global turmoil and a populist far-right ascendance at home, Anthony Albanese is trying to keep the country feeling hopeful.`\
 https://www.nytimes.com/2026/06/23/world/australia/australia-albanese-prime-minister-popularity.html
