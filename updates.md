@@ -1,3 +1,7 @@
+**A New ‘Odyssey’ Audiobook Puts the ‘A.I.’ in ‘Michael Caine’**\
+`The longtime Christopher Nolan collaborator isn’t in the director’s forthcoming Homeric adaptation. But a new audiobook sets Caine’s voice off on its own adventure.`\
+https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
+
 **Trump Administration Sues New York State Over ICE Mask Ban**\
 `A Department of Justice lawsuit said that a measure prohibiting law enforcement officers from covering their faces would endanger agents.`\
 https://www.nytimes.com/2026/06/23/nyregion/ice-masks-ny-ban-trump-lawsuit.html

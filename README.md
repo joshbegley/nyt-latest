@@ -1,3 +1,7 @@
+**Polling Is Limited in New York’s Democratic House Primaries**\
+`Few independent surveys were published in Democratic primaries despite prominent candidates and some ideological tests.`\
+https://www.nytimes.com/2026/06/23/us/elections/new-york-city-house-polls.html
+
 **Trump Administration Sues New York State Over ICE Mask Ban**\
 `A Department of Justice lawsuit said that a measure prohibiting law enforcement officers from covering their faces would endanger agents.`\
 https://www.nytimes.com/2026/06/23/nyregion/ice-masks-ny-ban-trump-lawsuit.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
 **Strait Reopens and Iranian Oil Flows, But the Path Through Is Complicated**\
 `With the central route of the Strait of Hormuz laden with mines, ships are taking the northern route in Iranian waters or the southern path in Omani waters. Both have risks.`\
 https://www.nytimes.com/2026/06/23/business/iran-strait-hormuz-oil-shipping-traffic.html
-
-**A New ‘Odyssey’ Audiobook Puts the ‘A.I.’ in ‘Michael Caine’**\
-`The longtime Christopher Nolan collaborator isn’t in the director’s forthcoming Homeric adaptation. But a new audiobook sets Caine’s voice off on its own adventure.`\
-https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
