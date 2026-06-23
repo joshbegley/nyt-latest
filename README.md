@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
 https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
 
 **Election Live Updates: New York Primaries Will Set Stage for November Battles**\
-`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
+`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah and Maryland.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
 **Soldier, Scholar and Symbol: Marc Bloch Is Elevated to France’s Panthéon**\
@@ -108,7 +108,7 @@ https://www.nytimes.com/2026/06/23/climate/europe-heat-wave-protective-measures.
 
 **Rare Books on Sex Have Spiced Things Up at a Library Franklin Founded**\
 `The Library Company of Philadelphia, created in 1731 by Benjamin Franklin, has received a gift of 1,500 volumes about sexuality dating back to the 17th century.`\
-https://www.nytimes.com/2026/06/23/arts/rare-books-on-sex-have-spiced-things-up-at-a-library-franklin-founded.html
+https://www.nytimes.com/2026/06/23/arts/rare-books-sex-library-benjamin-franklin.html
 
 **X-Ray Specs for the World’s Oldest, Sealed Letters**\
 `A team of historians, scientists and engineers has developed a portable X-ray scanner to study 4,000-year-old letters encased in clay envelopes.`\
