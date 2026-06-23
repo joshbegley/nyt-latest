@@ -1,3 +1,7 @@
+**Trump Says Vandals Sabotaged the Reflecting Pool. Internal Documents Raise Doubts.**\
+`The documents do not indicate that the peeling blue coating and algae blooms were caused intentionally.`\
+https://www.nytimes.com/2026/06/23/us/trump-reflecting-pool-green-peeling.html
+
 **U.N. Report Says Israeli Killings of Gaza Children Post-Truce Amount to Genocide**\
 `Israel’s U.N. mission dismissed the report as a “libelous sham,” and called the investigating commission a “fundamentally flawed mechanism.”`\
 https://www.nytimes.com/2026/06/23/world/middleeast/un-report-israel-palestinian-children.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/asia/100000010985897/lucknow-india-fire.html
 **Vendors Told to Start Dismantling Florida’s ‘Alligator Alcatraz’ Detention Center**\
 `The directive came days after the federal government said all detainees had been transferred out of the state-run immigration detention center in the Florida Everglades.`\
 https://www.nytimes.com/2026/06/23/us/alligator-alcatraz-closing.html
-
-**7 Songs That Spun My Head Around**\
-`Hear a Rosalía tour highlight, forgotten new-wave from the 1970s and more.`\
-https://www.nytimes.com/2026/06/23/arts/music/amplifier-newsletter-rosalia-sylvan-esso.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\

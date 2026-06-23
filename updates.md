@@ -1,3 +1,15 @@
+**U.N. Report Says Israeli Killings of Gaza Children Post-Truce Amount to Genocide**\
+`Israel’s U.N. mission dismissed the report as a “libelous sham,” and called the investigating commission a “fundamentally flawed mechanism.”`\
+https://www.nytimes.com/2026/06/23/world/middleeast/un-report-israel-palestinian-children.html
+
+**Senate Votes to Direct End to Iran War, Rebuking Trump on War Powers**\
+`A few Republicans joined Democrats in favor of a measure instructing President Trump to halt military operations against Iran or seek congressional authorization.`\
+https://www.nytimes.com/2026/06/23/us/politics/senate-trump-war-powers-iran.html
+
+**Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
+`Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **Iranian Court Sentences Singer to 74 Lashes for Performing Without Hijab**\
 `The Iranian singer Parastoo Ahmadi was punished for performing without a hijab, according to a person close to her family and state media news reports.`\
 https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hijab.html
