@@ -1,3 +1,11 @@
+**New Yorkers Vote in High-Stakes Primaries**\
+`Also, the Strait of Hormuz sees a notable uptick in traffic. Here's the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/06/23/briefing/new-york-primary-elections.html
+
+**Trump Is Making Big Claims About the Iran Talks. Iran Keeps Contradicting Him.**\
+`President Trump appears to be describing his preferences as fully negotiated deals, in hopes of locking the Iranians in. The question is whether a succession of such disputes will sink the whole venture.`\
+https://www.nytimes.com/2026/06/23/us/politics/trump-iran-talks-contradictions.html
+
 **How Shannon Manson, a Security Worker During the World Cup, Became Known in Jordan**\
 `Shannon Manson cheerily ushered a man from Jordan’s delegation away from fans. It turns out he was a prince, and now she is an unexpected internet sensation.`\
 https://www.nytimes.com/2026/06/23/sports/soccer/jordan-hilton-hotel-worker.html
