@@ -1,3 +1,27 @@
+**As Trump Purges Immigration Judges, One Speaks Out**\
+`Judges are coming under significant pressure from the administration to carry out deportations or risk losing their jobs.`\
+https://www.nytimes.com/2026/06/23/podcasts/the-daily/trump-immigration-judges.html
+
+**5 Major Supreme Court Decisions to Watch, and the Rise of Sewage Surveillance**\
+`Plus, where did all the cottage cheese go?`\
+https://www.nytimes.com/2026/06/23/podcasts/the-headlines/supreme-court-sewage-surveillance.html
+
+**NYT Connections Answers for June 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
+https://www.nytimes.com/2026/06/23/crosswords/connections-companion-1109.html
+
+**NYT Strands Hints for June 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
+https://www.nytimes.com/2026/06/23/crosswords/strands-sidekick-843.html
+
+**Today’s Wordle Review for June 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
+https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
+
+**Can Andy Burnham Succeed in a Disgruntled Britain Where Starmer Failed?**\
+`The likely successor to Prime Minister Keir Starmer will inherit the same challenges of economic stagnation and ascendant populism. Will a divided nation be prepared to give him time?`\
+https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
+
 **Election Live Updates: New York Primaries Will Set Stage for November Battles**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/23/world/europe/world-cup-jordan-palestinians.ht
 **Late Night Dunks on Trump for Hiring Greenwater Services**\
 `Jimmy Fallon poked fun at the name of the business under fire for turning the Lincoln Memorial Reflecting Pool bright green: “Nailed it.”`\
 https://www.nytimes.com/2026/06/23/arts/television/late-night-trump-greenwater.html
-
-**Por qué cada vez más adultos mayores eligen el divorcio en EE. UU.**\
-`Cada vez más personas de la tercera edad deciden poner fin a sus matrimonios, y los expertos tienen varias teorías sobre por qué.`\
-https://www.nytimes.com/es/2026/06/23/espanol/matrimonio-envejecer-divorcio-separacion.html
-
-**7 composiciones de Mozart desconocidas hasta ahora aparecen en un cuaderno**\
-`Un cuaderno que acaba de salir a la luz recoge las clases que el compositor impartía a una alumna e incluye siete composiciones hasta ahora desconocidas.`\
-https://www.nytimes.com/es/2026/06/23/espanol/cultura/mozart-descubrimiento-como-suena.html
-
-**Word of the Day: hauteur**\
-`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/23/learning/word-of-the-day-hauteur.html
-
-**Qué es un domo de calor y por qué está aumentando las temperaturas en Europa**\
-`Este fenómeno meteorológico, común en distintas regiones del mundo, está provocando varios días de calor cercano a niveles récord en el Reino Unido, España y Francia.`\
-https://www.nytimes.com/es/2026/06/23/espanol/tiempo-y-clima/calor-cupula-europa-espana.html
-
-**In Colombia, a Right-Wing Wildcard Rises**\
-`A right-wing victory in Latin America’s third-largest country could ripple across the region.`\
-https://www.nytimes.com/2026/06/23/opinion/colombia-election-espriella-petro.html
-
-**Trump’s Iran Debacle Could Be a Gift for America**\
-`There is at least a chance that America will not return to war with Iran, but find a way to turn the page on 47 years of animosity and confrontation.`\
-https://www.nytimes.com/2026/06/23/opinion/trump-iran-war-confrontation.html
 

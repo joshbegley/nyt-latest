@@ -1,3 +1,7 @@
+**Election Live Updates: New York Primaries Will Set Stage for November Battles**\
+`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **Soldier, Scholar and Symbol: Marc Bloch Is Elevated to France’s Panthéon**\
 `French politicians, including those on the far right, are embracing a Jewish Resistance fighter murdered by the Gestapo in 1944.`\
 https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html

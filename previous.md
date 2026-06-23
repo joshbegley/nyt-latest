@@ -1,3 +1,7 @@
+**Election Live Updates: New York Primaries Will Set Stage for November Battles**\
+`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **Soldier, Scholar and Symbol: Marc Bloch Is Elevated to France’s Panthéon**\
 `French politicians, including those on the far right, are embracing a Jewish Resistance fighter murdered by the Gestapo in 1944.`\
 https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/opinion/colombia-election-espriella-petro.htm
 **Trump’s Iran Debacle Could Be a Gift for America**\
 `There is at least a chance that America will not return to war with Iran, but find a way to turn the page on 47 years of animosity and confrontation.`\
 https://www.nytimes.com/2026/06/23/opinion/trump-iran-war-confrontation.html
-
-**La misión militar de EE. UU. en la frontera con México no tiene previsto un final**\
-`El patrullaje ha ayudado a empujar a los cárteles y a los traficantes a zonas más remotas. Pero a los analistas les preocupa que las misiones fronterizas puedan restar atención al entrenamiento, agotar los recursos y mermar la preparación.`\
-https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/mexico-frontera-operativo-militar.html
 
