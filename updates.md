@@ -1,3 +1,7 @@
+**Trump Says Vandals Sabotaged the Reflecting Pool. Internal Documents Raise Doubts.**\
+`The documents do not indicate that the peeling blue coating and algae blooms were caused intentionally.`\
+https://www.nytimes.com/2026/06/23/us/trump-reflecting-pool-green-peeling.html
+
 **U.N. Report Says Israeli Killings of Gaza Children Post-Truce Amount to Genocide**\
 `Israel’s U.N. mission dismissed the report as a “libelous sham,” and called the investigating commission a “fundamentally flawed mechanism.”`\
 https://www.nytimes.com/2026/06/23/world/middleeast/un-report-israel-palestinian-children.html

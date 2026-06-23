@@ -1,3 +1,63 @@
+**Utah Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-2-primary.html
+
+**Utah First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-1-primary.html
+
+**Utah Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-4-primary.html
+
+**South Carolina Agriculture Commissioner Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-runoff.html
+
+**Utah Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-3-primary.html
+
+**Sioux Falls, South Dakota, Mayor 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Dakota election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-mayor-sioux-falls.html
+
+**New York Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-9-primary.html
+
+**New York Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-8-primary.html
+
+**New York Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-7-primary.html
+
+**New York Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-governor-primary.html
+
+**New York Comptroller Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroller-primary.html
+
+**New York Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-general-primary.html
+
+**Maryland Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-7-primary.html
+
+**Maryland Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-8-primary.html
+
+**Maryland Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-6-primary.html
+
 **Trump Says Vandals Sabotaged the Reflecting Pool. Internal Documents Raise Doubts.**\
 `The documents do not indicate that the peeling blue coating and algae blooms were caused intentionally.`\
 https://www.nytimes.com/2026/06/23/us/trump-reflecting-pool-green-peeling.html
@@ -133,66 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-
 **Maryland Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Maryland primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-4-primary.html
-
-**Maryland Comptroller Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-comptroller-primary.html
-
-**Maryland Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-attorney-general-primary.html
-
-**Letter From Conservatives Prompted Inquiry of Civil Rights Group, Lawyers Say**\
-`Several right-wing groups sent a letter in September to Stephen Miller, a top aide to President Trump, urging greater scrutiny of the Southern Poverty Law Center.`\
-https://www.nytimes.com/2026/06/23/us/fbi-southern-poverty-law-center-letter.html
-
-**Lin-Manuel Miranda’s ‘Warriors’ Musical to Hit Broadway Next Spring**\
-`Miranda is co-writing the musical — his first since “Hamilton” — with Eisa Davis. It’s based on “The Warriors” film and novel.`\
-https://www.nytimes.com/2026/06/23/theater/warriors-broadway-lin-manuel-miranda.html
-
-**In Middle East, Rubio Says ‘No Country’ Can Charge for Hormuz Traffic**\
-`The secretary of state dismissed Iran’s talk of charging ships to pass through the vital Persian Gulf portal as prohibited under international law.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/rubio-strait-of-hormuz-charges-traffic.html
-
-**A Look Inside the Welcome Bags Planned for White South African Refugees**\
-`The United States is putting together bags with a children’s book on so-called reverse racism, and with a document that defends the country’s founding on the basis of slavery.`\
-https://www.nytimes.com/2026/06/23/us/politics/south-africa-refugees-welcome-bags.html
-
-**How Trump Turned America’s Refugee Program Into a Pathway for White People**\
-`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program intended for people fleeing persecution and disaster.`\
-https://www.nytimes.com/2026/06/23/us/politics/trump-refugee-program-whites.html
-
-**A Last-Minute Guide to the Candidates in New York’s Primaries**\
-`There are more than half a dozen competitive races underway. Here’s what to know.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny-primary-elections-candidate-guide.html
-
-**South Carolina Attorney General Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-runoff.html
-
-**South Carolina Second Congressional District Runoff 2026: Live Election Results, Khalifa vs. Robinson**\
-`Get live results and maps from the 2026 South Carolina runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-2-runoff.html
-
-**South Carolina First Congressional District Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-1-runoff.html
-
-**Protesters Accused of Antifa Ties Sentenced to Up to 100 Years in ICE Attack**\
-`The penalties, issued in an attack where a police officer was shot, dwarfed those given to Jan. 6 rioters and appeared to signal that at least some courts will deal aggressively with ICE protesters.`\
-https://www.nytimes.com/2026/06/23/us/politics/antifa-ice-protesters-sentencing.html
-
-**Lorcan O’Herlihy, Architect of Innovative Urban Housing, Dies at 66**\
-`Arguing that architecture is a “social act,” he built affordable homes on small lots in Los Angeles and elsewhere, with an eye toward smarter, more equitable design.`\
-https://www.nytimes.com/2026/06/23/arts/design/lorcan-oherlihy-dead.html
-
-**Fire at Educational Center in Northern India Kills at Least 14**\
-`At least 14 people, most aged 16 to 18, were killed when a fire blazed through a commercial building that housed an educational center, a pet shop, and a clinic in the northern Indian city of Lucknow on Monday. The cause of the fire is being investigated.`\
-https://www.nytimes.com/video/world/asia/100000010985897/lucknow-india-fire.html
-
-**Vendors Told to Start Dismantling Florida’s ‘Alligator Alcatraz’ Detention Center**\
-`The directive came days after the federal government said all detainees had been transferred out of the state-run immigration detention center in the Florida Everglades.`\
-https://www.nytimes.com/2026/06/23/us/alligator-alcatraz-closing.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
