@@ -1,3 +1,7 @@
+**How to Add LED Light Therapy to Your Beauty Routine**\
+`An expert-backed guide on the benefits of incorporating red, blue and near-infrared light therapy into your beauty routine.`\
+https://www.nytimes.com/2026/06/23/t-magazine/led-light-therapy-guide.html
+
 **New Yorkers Vote in High-Stakes Primaries**\
 `Also, the Strait of Hormuz sees a notable uptick in traffic. Here's the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/06/23/briefing/new-york-primary-elections.html

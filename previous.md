@@ -1,3 +1,7 @@
+**How to Add LED Light Therapy to Your Beauty Routine**\
+`An expert-backed guide on the benefits of incorporating red, blue and near-infrared light therapy into your beauty routine.`\
+https://www.nytimes.com/2026/06/23/t-magazine/led-light-therapy-guide.html
+
 **New Yorkers Vote in High-Stakes Primaries**\
 `Also, the Strait of Hormuz sees a notable uptick in traffic. Here's the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/06/23/briefing/new-york-primary-elections.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York 23rd Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-23-primary.html
-
-**New York 22nd Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-22-primary.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
