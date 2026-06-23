@@ -1,3 +1,7 @@
+**Bread and Roses**\
+`We look at the democratic socialists who are leading some of America’s big cities.`\
+https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
+
 **Japan to Raise Some Tourist Visa Fees More Than 400 Percent**\
 `The hike, from around $18 to $93 for a single trip, will apply to visitors from countries including China, India and Vietnam, but not most Western travelers.`\
 https://www.nytimes.com/2026/06/23/world/asia/japan-visa-fee-increase-tourism.html
