@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
 `The likely successor to Prime Minister Keir Starmer will inherit the same challenges of economic stagnation and ascendant populism. Will a divided nation be prepared to give him time?`\
 https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
 
-**Election Live Updates: New York Primaries Will Set Stage for November Battles**\
+**Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah and Maryland.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html
 https://www.nytimes.com/interactive/2026/06/23/world/africa/ebola-virus-outbreak-update.html
 
 **Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
-`Chipmakers led the way down in South Korea, where the main index plunged 10 percent. Stocks in Europe were lower and S&P 500 futures pointed to a sharp fall.`\
+`Chipmakers led the way down in South Korea, where the main index plunged 10.5 percent. The Nasdaq in the U.S. was down 2.2 percent at Tuesday’s open.`\
 https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
 
 **Sarah Jessica Parker on the Seductive Power of Sports and the City**\

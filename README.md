@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
 https://www.nytimes.com/2026/06/23/world/europe/uk-burnham-starmer-politics.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
-`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah and Maryland.`\
+`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
 **Soldier, Scholar and Symbol: Marc Bloch Is Elevated to France’s Panthéon**\
@@ -185,8 +185,4 @@ https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
 **The A.I. Boom Boosted Teacher Pay in a Rural County. Can It Last?**\
 `The large bonuses tied to data center construction in Richland Parish, La., are unprecedented, but critics say it is not a panacea.`\
 https://www.nytimes.com/2026/06/23/us/louisana-teachers-bonus-meta-tax-revenue.html
-
-**Covid Politics Don’t Have to Be Toxic**\
-`Nirav Shah is something that would seem anathema in contemporary politics: a public health technocrat who became a household name during Covid.`\
-https://www.nytimes.com/2026/06/23/opinion/nirav-shah-maine-covid.html
 

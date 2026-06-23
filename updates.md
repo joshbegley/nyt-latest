@@ -1,3 +1,11 @@
+**Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
+`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah and Maryland.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
+**Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
+`Chipmakers led the way down in South Korea, where the main index plunged 10.5 percent. The Nasdaq in the U.S. was down 2.2 percent at Tuesday’s open.`\
+https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
+
 **Street Style Look of the Week: French Fishnets for a Lengthy Layover**\
 `A young European wasn’t counting on staying in San Francisco when he missed his flight. Luckily, he had some Pride-worthy items in his suitcase.`\
 https://www.nytimes.com/2026/06/23/style/street-style-look-fishnets.html
