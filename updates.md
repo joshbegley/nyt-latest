@@ -1,3 +1,7 @@
+**Protesters Accused of Antifa Ties Sentenced to Up to 100 Years in ICE Attack**\
+`The penalties, issued in an attack where a police officer was shot, dwarfed those given to Jan. 6 rioters and appeared to signal that at least some courts will deal aggressively with ICE protesters.`\
+https://www.nytimes.com/2026/06/23/us/politics/antifa-ice-protesters-sentencing.html
+
 **Lorcan O’Herlihy, Architect of Innovative Urban Housing, Dies at 66**\
 `Arguing that architecture is a “social act,” he built affordable homes on small lots in Los Angeles and elsewhere, with an eye toward smarter, more equitable design.`\
 https://www.nytimes.com/2026/06/23/arts/design/lorcan-oherlihy-dead.html
