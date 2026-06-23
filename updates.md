@@ -1,3 +1,7 @@
+**Trump Gives Teamsters a Chance to Shed Oversight Meant to Curb Mob Ties**\
+`Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
+https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
+
 **Why Milder Symptoms Could Make This Ebola Outbreak More Dangerous**\
 `Early signs indicate that the species of Ebola behind the current outbreak in the Democratic Republic of Congo may have milder symptoms than past outbreaks. Our global health reporter Apoorva Mandavilli explains why this might actually make it more dangerous.`\
 https://www.nytimes.com/video/health/100000010970611/why-milder-symptoms-could-make-this-ebola-outbreak-more-dangerous.html

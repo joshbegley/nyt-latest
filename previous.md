@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/06/23/health/ebola-symptoms-death-rate.html
 `The museum’s director, Simone Verde, is working long hours as he tries to remake the institution into a living encyclopedia.`\
 https://www.nytimes.com/2026/06/23/arts/design/uffizi-botticelli-rehang-simone-verde.html
 
-**Teamsters Make a Bid to End Federal Oversight, With Trump’s Backing**\
+**Trump Gives Teamsters a Chance to Shed Oversight Meant to Curb Mob Ties**\
 `Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
 https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
 
@@ -177,10 +177,6 @@ https://www.nytimes.com/es/2026/06/23/espanol/mundo/reino-unido-nuevo-lider-mism
 **Is Cristiano Ronaldo Hurting Portugal? Plus, USMNT Goalkeeper Matt Freese’s Moment.**\
 `Portugal is one of the favorites to win the World Cup — but is it better off without its legendary superstar?`\
 https://www.nytimes.com/2026/06/23/podcasts/cristiano-ronaldo-portugal-usmnt-goalkeeper-matt-freese.html
-
-**As Trump Purges Immigration Judges, One Speaks Out**\
-`Judges are coming under significant pressure from the administration to carry out deportations or risk losing their jobs.`\
-https://www.nytimes.com/2026/06/23/podcasts/the-daily/trump-immigration-judges.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\

@@ -1,3 +1,7 @@
+**SpaceX Shares Are Slumping After After Its Blockbuster I.P.O.**\
+`On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
+https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
+
 **Why Milder Symptoms Could Make This Ebola Outbreak More Dangerous**\
 `Early signs indicate that the species of Ebola behind the current outbreak in the Democratic Republic of Congo may have milder symptoms than past outbreaks. Our global health reporter Apoorva Mandavilli explains why this might actually make it more dangerous.`\
 https://www.nytimes.com/video/health/100000010970611/why-milder-symptoms-could-make-this-ebola-outbreak-more-dangerous.html
@@ -13,10 +17,6 @@ https://www.nytimes.com/2026/06/23/arts/design/nyc-arts-funding-manhattan-boroug
 **Can’t Stop Second-Screening? Netflix Is Counting on It.**\
 `A new game featuring the voices of Zoë Kravitz and Sadie Sink turns a user’s phone into a controller in an attempt to combine the first and second screen experience.`\
 https://www.nytimes.com/2026/06/23/arts/television/netflix-unhinged.html
-
-**SpaceX Shares Are Slumping After After Its Blockbuster I.P.O.**\
-`On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
-https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
 
 **Today, In Short**\
 `Hyper goo. Dive bars. And the best Prime Day deals.`\
