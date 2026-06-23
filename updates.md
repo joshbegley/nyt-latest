@@ -1,5 +1,9 @@
 **Letter From Conservatives Prompted Inquiry of Civil Rights Group, Lawyers Say**\
 `Several right-wing groups sent a letter in September to Stephen Miller, a top aide to President Trump, urging greater scrutiny of the Southern Poverty Law Center.`\
+https://www.nytimes.com/2026/06/23/us/fbi-southern-poverty-law-center-letter.html
+
+**Letter From Conservatives Prompted Inquiry of Civil Rights Group, Lawyers Say**\
+`Several right-wing groups sent a letter in September to Stephen Miller, a top aide to President Trump, urging greater scrutiny of the Southern Poverty Law Center.`\
 https://www.nytimes.com/2026/06/23/nyregion/fbi-southern-poverty-law-center-letter.html
 
 **Lin-Manuel Miranda’s ‘Warriors’ Musical to Hit Broadway Next Spring**\
