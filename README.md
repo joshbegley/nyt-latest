@@ -1,4 +1,4 @@
-**Factors in the N.Y. Primaries: Mamdani, Big Money and a Threat of Rain**\
+**The N.Y. Primaries Will Answer Key Questions: Mamdani, Israel and More**\
 `The congressional primaries in New York on Tuesday will answer key questions about the potency of super PACs and the extent of Zohran Mamdani’s influence.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny-primaries-what-to-know.html
 
