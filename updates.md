@@ -1,3 +1,11 @@
+**Soldier, Scholar and Symbol: Marc Bloch Is Elevated to France’s Panthéon**\
+`French politicians, including those on the far right, are embracing a Jewish Resistance fighter murdered by the Gestapo in 1944.`\
+https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html
+
+**How Bad Could the Ebola Outbreak Get? Latest on Testing, Tracing and Vaccines**\
+`Contact tracing is improving. Treatments may be months away. Here’s what could determine whether a fast-expanding outbreak can be slowed down.`\
+https://www.nytimes.com/interactive/2026/06/23/world/africa/ebola-virus-outbreak-update.html
+
 **Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
 `Chipmakers led the way down in South Korea, where the main index crashed 10 percent. Stocks in Europe were lower and S&P 500 futures pointed to a sharp fall.`\
 https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
