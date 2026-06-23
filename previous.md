@@ -1,3 +1,7 @@
+**After Wars and False Starts, Cautious Optimism for U.S.-Iran Talks**\
+`Tehran and Washington face myriad negotiating pitfalls. But both sides are exhausted and running out of options. They may finally need a deal.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/united-states-iran-talks-optimism.html
+
 **Street Style Look of the Week: French Fishnets for a Lengthy Layover**\
 `A young European wasn’t counting on staying in San Francisco when he missed his flight. Luckily, he had some Pride-worthy items in his suitcase.`\
 https://www.nytimes.com/2026/06/23/style/street-style-look-fishnets.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/23/arts/design/charles-hinman-dead.html
 **Of Course the Pope Is a Natural at Memes**\
 `Pope Leo XIV is the perfect vessel for 6-7 and other internet trends, where juxtaposition — and sparring with Trump — boost virality.`\
 https://www.nytimes.com/2026/06/23/magazine/pope-memes.html
-
-**The A.I. Boom Boosted Teacher Pay in a Rural County. Can It Last?**\
-`The large bonuses tied to data center construction in Richland Parish, La., are unprecedented, but critics say it is not a panacea.`\
-https://www.nytimes.com/2026/06/23/us/louisana-teachers-bonus-meta-tax-revenue.html
 

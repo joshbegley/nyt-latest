@@ -1,3 +1,7 @@
+**After Wars and False Starts, Cautious Optimism for U.S.-Iran Talks**\
+`Tehran and Washington face myriad negotiating pitfalls. But both sides are exhausted and running out of options. They may finally need a deal.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/united-states-iran-talks-optimism.html
+
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
