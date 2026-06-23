@@ -1,3 +1,19 @@
+**Why Milder Symptoms Could Make This Ebola Outbreak More Dangerous**\
+`Early signs indicate that the species of Ebola behind the current outbreak in the Democratic Republic of Congo may have milder symptoms than past outbreaks. Our global health reporter Apoorva Mandavilli explains why this might actually make it more dangerous.`\
+https://www.nytimes.com/video/health/100000010970611/why-milder-symptoms-could-make-this-ebola-outbreak-more-dangerous.html
+
+**Appeals Court Allows Trump to Resume Expedited Deportations Nationwide**\
+`In a 2-to-1 vote, a federal appeals court panel ruled that the president can expand the procedure, previously used only near the border, to arrests nationally.`\
+https://www.nytimes.com/2026/06/23/us/politics/appeals-court-expedited-deportations.html
+
+**Manhattan Borough President Gives $50 Million to N.Y.C. Arts Groups**\
+`In allocating the borough’s discretionary budget entirely to cultural projects, Brad Hoylman-Sigal said he wanted to send a message to President Trump about the need to keep arts funding.`\
+https://www.nytimes.com/2026/06/23/arts/design/nyc-arts-funding-manhattan-borough-president.html
+
+**Can’t Stop Second-Screening? Netflix Is Counting on It.**\
+`A new game featuring the voices of Zoë Kravitz and Sadie Sink turns a user’s phone into a controller in an attempt to combine the first and second screen experience.`\
+https://www.nytimes.com/2026/06/23/arts/television/netflix-unhinged.html
+
 **SpaceX Shares Are Slumping After After Its Blockbuster I.P.O.**\
 `On Tuesday, SpaceX briefly fell below $150 a share, which is where the stock first began trading when the company listed publicly just over a week ago.`\
 https://www.nytimes.com/2026/06/23/business/after-blockbuster-ipo-spacex-shares-are-slumping.html
@@ -165,22 +181,6 @@ https://www.nytimes.com/2026/06/23/podcasts/cristiano-ronaldo-portugal-usmnt-goa
 **As Trump Purges Immigration Judges, One Speaks Out**\
 `Judges are coming under significant pressure from the administration to carry out deportations or risk losing their jobs.`\
 https://www.nytimes.com/2026/06/23/podcasts/the-daily/trump-immigration-judges.html
-
-**5 Major Supreme Court Decisions to Watch, and the Rise of Sewage Surveillance**\
-`Plus, where did all the cottage cheese go?`\
-https://www.nytimes.com/2026/06/23/podcasts/the-headlines/supreme-court-sewage-surveillance.html
-
-**NYT Connections Answers for June 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
-https://www.nytimes.com/2026/06/23/crosswords/connections-companion-1109.html
-
-**NYT Strands Hints for June 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
-https://www.nytimes.com/2026/06/23/crosswords/strands-sidekick-843.html
-
-**Today’s Wordle Review for June 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, June 24, 2026.`\
-https://www.nytimes.com/2026/06/23/crosswords/wordle-review-1831.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
