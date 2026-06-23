@@ -1,3 +1,7 @@
+**Hard Fork Live Part 3**\
+`Our live interview with Figma C.E.O. Dylan Field.`\
+https://www.nytimes.com/video/podcasts/100000010978970/hard-fork-live-part-3.html
+
 **A 10 años del brexit: los efectos en la economía y la política del Reino Unido**\
 `Al señalar la caída del comercio y la inversión, los analistas coinciden en general en que la economía británica es más pequeña de lo que habría sido si el país se hubiera quedado en la UE.`\
 https://www.nytimes.com/es/2026/06/23/espanol/negocios/brexit-efectos-economicos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-governor-
 **Maryland First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Maryland primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-1-primary.html
-
-**New York 15th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-15-primary.html
 
