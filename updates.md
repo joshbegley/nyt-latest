@@ -1,3 +1,59 @@
+**Today, In Short**\
+`Hyper goo. Dive bars. And the best Prime Day deals.`\
+https://www.nytimes.com/2026/06/23/briefing/today-in-short.html
+
+**Ebola Symptoms in Current Outbreak May Be Milder Than in Previous Ones**\
+`That is good news for patients, but officials fear it will make controlling the spread of the disease harder.`\
+https://www.nytimes.com/2026/06/23/health/ebola-symptoms-death-rate.html
+
+**Up Late With Botticelli as the Uffizi Gets a Reset**\
+`The museum’s director, Simone Verde, is working long hours as he tries to remake the institution into a living encyclopedia.`\
+https://www.nytimes.com/2026/06/23/arts/design/uffizi-botticelli-rehang-simone-verde.html
+
+**Teamsters Make a Bid to End Federal Oversight, With Trump’s Backing**\
+`Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
+https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
+
+**Energy Dept. Promises $17.5 Billion in Loans for Nuclear Power**\
+`The federal government wants to help utilities buy large components for up to 10 large nuclear reactors. It’s unclear which, if any, companies might participate.`\
+https://www.nytimes.com/2026/06/23/climate/trump-energy-nuclear-loans.html
+
+**She’s in Line to Be Mayor of D.C. How Will She Handle Trump’s Threat?**\
+`“We’re going to find ways to resist,” a defiant Janeese Lewis George, the democratic socialist who won the Democratic primary last week in Washington, said in an interview.`\
+https://www.nytimes.com/2026/06/23/us/politics/janeese-lewis-george-trump-washington-dc.html
+
+**Israeli Soldiers Fatally Shoot 2 People in Southern Lebanon, Health Officials Say**\
+`The shooting came a day after Israeli troops began operating under new orders intended to reduce the risk of flare-ups in its conflict with Iran-backed Hezbollah militants.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/israel-soldiers-lebanon-shooting-hezbollah.html
+
+**2026 Jimmy Awards: With Bowen Yang as Host, Teen Winners Are Crowned**\
+`Students from Georgia and Arizona won the top prizes at the ceremony, which was hosted by Bowen Yang and celebrates excellence in high school musical theater.`\
+https://www.nytimes.com/2026/06/23/theater/jimmy-awards-bowen-yang-musical-theater.html
+
+**Mourning After the Michael Jackson Movie? It Might Be ‘Michosis.’**\
+`Some Michael Jackson fans are experiencing deep, lingering grief after watching the biopic — a potent reminder that he is gone, they say.`\
+https://www.nytimes.com/2026/06/23/movies/michael-jackson-mourning-michosis.html
+
+**CBS News Hired an Independent Watchdog. What’s He Doing?**\
+`With CBS News rocked by controversy, some viewers have turned to the network ombudsman for a public response. So far, they haven’t gotten one.`\
+https://www.nytimes.com/2026/06/23/business/media/cbs-news-ombudsman.html
+
+**Vance lidera las negociaciones con Irán y Trump le pone obstáculos**\
+`Poco después de abandonar Suiza, las bases que el vicepresidente de EE. UU. había esbozado para un posible acuerdo a largo plazo comenzaron a mostrar fisuras.`\
+https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/jd-vance-iran-negociaciones.html
+
+**A Primary in Upstate New York Tests G.O.P. Voters’ Loyalty to Trump**\
+`State party leaders are backing Assemblyman Robert Smullen. But a local businessman and provocateur, Anthony Constantino, has President Trump’s endorsement.`\
+https://www.nytimes.com/2026/06/23/nyregion/trump-republican-new-york-primary-stefanik.html
+
+**Capitaine Washes Ashore in the West Village With Tavern Takes on Seafood**\
+`It’s a hat trick this week with Grimm Tavern from the beer brand, and Trudie’s Tavern from the Gertrude’s owners.`\
+https://www.nytimes.com/2026/06/23/dining/nyc-restaurant-news.html
+
+**Former NOAA Employees Revive Climate Web Site**\
+`The database of federal global warming research recreates a website that was closed amid the administration’s broad retreat from climate science.`\
+https://www.nytimes.com/2026/06/23/climate/noaa-climate-science-data-website.html
+
 **Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
 `Chipmakers led the way down in South Korea, where the main index plunged 10.5 percent. The Nasdaq in the U.S. was down 2.2 percent at Tuesday’s open.`\
 https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
