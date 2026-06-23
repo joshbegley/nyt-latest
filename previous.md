@@ -1,3 +1,7 @@
+**Storms Disrupt World Cup Matches in Philadelphia and New Jersey**\
+`The ponchos came out as fans did what they could to stay dry. The France-Iraq match in Philadelphia endured a lengthy weather delay.`\
+https://www.nytimes.com/2026/06/22/us/world-cup-storms-rain-photos.html
+
 **Collapsed Surfside Condo Had Been Failing for Weeks, Investigators Find**\
 `Two columns that held up the building’s pool deck began to fail several weeks before the 2021 collapse, according to a new federal report.`\
 https://www.nytimes.com/2026/06/22/us/surfside-condo-investigation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html
 **Vance Claims Progress in First Day of Iran Talks**\
 `Vice President JD Vance, the lead U.S. negotiator, said the two sides had agreed on technical issues and at least one substantive one, international inspection of Iranian nuclear sites, but an Iranian official said his country had made “no new commitments.”`\
 https://www.nytimes.com/2026/06/22/world/middleeast/vance-iran-talks-progress.html
-
-**Trump acaba de conseguir un aliado en Colombia para su guerra antidroga**\
-`Con la aparente victoria de Abelardo de la Espriella, que ha prometido acabar con los narcotraficantes mediante la fuerza militar, Colombia está a punto de volver a ganarse el favor de EE. UU.`\
-https://www.nytimes.com/es/2026/06/22/espanol/america-latina/trump-colombia-delaespriella-drogas.html
 

@@ -1,3 +1,7 @@
+**Storms Disrupt World Cup Matches in Philadelphia and New Jersey**\
+`The ponchos came out as fans did what they could to stay dry. The France-Iraq match in Philadelphia endured a lengthy weather delay.`\
+https://www.nytimes.com/2026/06/22/us/world-cup-storms-rain-photos.html
+
 **Collapsed Surfside Condo Had Been Failing for Weeks, Investigators Find**\
 `Two columns that held up the building’s pool deck began to fail several weeks before the 2021 collapse, according to a new federal report.`\
 https://www.nytimes.com/2026/06/22/us/surfside-condo-investigation.html
