@@ -1,3 +1,7 @@
+**N.S.A. Lost Access to Powerful A.I. Model Amid Anthropic Dispute**\
+`A recent episode underscored the Trump administration’s increasing reliance on advanced A.I. systems for cybersecurity even as it battles a leading U.S. developer.`\
+https://www.nytimes.com/2026/06/23/us/politics/nsa-lost-access-anthropic-tool.html
+
 **Is the Australian Prime Minister’s Pragmatism Enough in Uncertain Times?**\
 `Buffeted by global turmoil and a populist far-right ascendance at home, Anthony Albanese is trying to keep the country feeling hopeful.`\
 https://www.nytimes.com/2026/06/23/world/australia/australia-albanese-prime-minister-popularity.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York 16th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-16-primary.html
-
-**New York 15th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-15-primary.html
 
 **Election Live Updates: Voting in New York’s High-Stakes Primaries Enters Final Hours**\
 `Candidates made last-minute campaign stops as New Yorkers picked nominees in a half-dozen House races that could test the power of progressive Democrats. There are also closely watched races in Utah, Maryland and South Carolina.`\
