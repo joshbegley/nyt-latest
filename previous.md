@@ -1,3 +1,15 @@
+**Por qué cada vez más adultos mayores eligen el divorcio en EE. UU.**\
+`Cada vez más personas de la tercera edad deciden poner fin a sus matrimonios, y los expertos tienen varias teorías sobre por qué.`\
+https://www.nytimes.com/es/2026/06/23/espanol/matrimonio-envejecer-divorcio-separacion.html
+
+**7 composiciones de Mozart desconocidas hasta ahora aparecen en un cuaderno**\
+`Un cuaderno que acaba de salir a la luz recoge las clases que el compositor impartía a una alumna e incluye siete composiciones hasta ahora desconocidas.`\
+https://www.nytimes.com/es/2026/06/23/espanol/cultura/mozart-descubrimiento-como-suena.html
+
+**Word of the Day: hauteur**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/23/learning/word-of-the-day-hauteur.html
+
 **Qué es un domo de calor y por qué está aumentando las temperaturas en Europa**\
 `Este fenómeno meteorológico, común en distintas regiones del mundo, está provocando varios días de calor cercano a niveles récord en el Reino Unido, España y Francia.`\
 https://www.nytimes.com/es/2026/06/23/espanol/tiempo-y-clima/calor-cupula-europa-espana.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/asia/100000010983022/starbucks-south-korea-a
 **Vance Says Iran Has Agreed to Allow Nuclear Inspectors Into Country**\
 `Vice President JD Vance was in Switzerland on Monday, where he declared the negotiations a “very good foundation” for a lasting agreement to end the war the United States and Israel began in February.`\
 https://www.nytimes.com/video/world/middleeast/100000010982939/vance-iran-nuclear-inspectors.html
-
-**At Least One Tornado Touches Down in Illinois, Leaving 2 Dead**\
-`Bystander footage shows a funnel cloud forming over Jefferson County, Ill., on Sunday. At least two people were killed, local officials said.`\
-https://www.nytimes.com/video/weather/100000010984058/tornado-illinois-jefferson-county.html
-
-**Charisma Alone Can’t Fix Britain**\
-`It will take more than a change in leadership to solve the country’s problems.`\
-https://www.nytimes.com/2026/06/22/world/britain-prime-minister.html
-
-**Cafe Tells Congressman He’s Not Welcome Because of His Stance on Israel**\
-`After Representative Dan Goldman visited a left-leaning coffee shop chain, the shop owner posted caustic remarks on Instagram that made it clear the congressman shouldn’t come back.`\
-https://www.nytimes.com/2026/06/22/nyregion/coffee-shop-poetica-dan-goldman-israel.html
 

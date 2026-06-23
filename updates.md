@@ -1,3 +1,15 @@
+**Por qué cada vez más adultos mayores eligen el divorcio en EE. UU.**\
+`Cada vez más personas de la tercera edad deciden poner fin a sus matrimonios, y los expertos tienen varias teorías sobre por qué.`\
+https://www.nytimes.com/es/2026/06/23/espanol/matrimonio-envejecer-divorcio-separacion.html
+
+**7 composiciones de Mozart desconocidas hasta ahora aparecen en un cuaderno**\
+`Un cuaderno que acaba de salir a la luz recoge las clases que el compositor impartía a una alumna e incluye siete composiciones hasta ahora desconocidas.`\
+https://www.nytimes.com/es/2026/06/23/espanol/cultura/mozart-descubrimiento-como-suena.html
+
+**Word of the Day: hauteur**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/23/learning/word-of-the-day-hauteur.html
+
 **Qué es un domo de calor y por qué está aumentando las temperaturas en Europa**\
 `Este fenómeno meteorológico, común en distintas regiones del mundo, está provocando varios días de calor cercano a niveles récord en el Reino Unido, España y Francia.`\
 https://www.nytimes.com/es/2026/06/23/espanol/tiempo-y-clima/calor-cupula-europa-espana.html

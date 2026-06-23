@@ -1,3 +1,7 @@
+**Late Night Dunks on Trump for Hiring Greenwater Services**\
+`Jimmy Fallon poked fun at the name of the business under fire for turning the Lincoln Memorial Reflecting Pool bright green: “Nailed it.”`\
+https://www.nytimes.com/2026/06/23/arts/television/late-night-trump-greenwater.html
+
 **Por qué cada vez más adultos mayores eligen el divorcio en EE. UU.**\
 `Cada vez más personas de la tercera edad deciden poner fin a sus matrimonios, y los expertos tienen varias teorías sobre por qué.`\
 https://www.nytimes.com/es/2026/06/23/espanol/matrimonio-envejecer-divorcio-separacion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/22/world/americas/ramiro-valdes-menendez-dead.ht
 **South Korean Starbucks Shops Close for History Lesson After Ad Backlash**\
 `Starbucks temporarily closed more than 2,000 locations in South Korea early on Monday to hold employee training on historical awareness and cultural sensitivity after a disastrous marketing campaign.`\
 https://www.nytimes.com/video/world/asia/100000010983022/starbucks-south-korea-ad.html
-
-**Vance Says Iran Has Agreed to Allow Nuclear Inspectors Into Country**\
-`Vice President JD Vance was in Switzerland on Monday, where he declared the negotiations a “very good foundation” for a lasting agreement to end the war the United States and Israel began in February.`\
-https://www.nytimes.com/video/world/middleeast/100000010982939/vance-iran-nuclear-inspectors.html
 
