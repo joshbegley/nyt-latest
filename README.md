@@ -1,3 +1,7 @@
+**Ethnicity Becomes Instrument of Division in Espaillat’s Re-election Bid**\
+`Darializa Avila Chevalier has been targeted with false accusations about her ethnicity, as foes seek to portray her as an outsider hoping to usurp Dominican power in the district.`\
+https://www.nytimes.com/2026/06/23/nyregion/darializa-avila-chevalier-dominican-haiti.html
+
 **When to Expect Results in Maryland, New York, South Carolina and Utah**\
 `Voters have been casting ballots in several primaries and runoff elections. Unofficial results will probably be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/06/23/us/elections/when-to-expect-election-results-maryland-ny-south-carolina-utah.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-4-primary.html
-
-**New York Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-3-primary.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
