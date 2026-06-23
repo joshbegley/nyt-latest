@@ -1,3 +1,7 @@
+**Trump dice que Venezuela es ‘un país feliz’. Su gente no está de acuerdo**\
+`El lento ritmo de la recuperación económica está poniendo a prueba la paciencia de los venezolanos con la presidenta en funciones, Delcy Rodríguez.`\
+https://www.nytimes.com/es/2026/06/23/espanol/america-latina/venezuela-economia-trump-delcy-rodriguez.html
+
 **What’s the Matter With Congress?**\
 `A debate between old friends about whether it is fear or polarization that is making Congress weak.`\
 https://www.nytimes.com/2026/06/23/opinion/congress-house-partisanship-fear.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/business/brexit-uk-economy.html
 **Two Dead After Shooting at California Library**\
 `A gunman used a firearm inside the library while it was open, killing two and injuring another person before being taken into custody, the police said.`\
 https://www.nytimes.com/2026/06/22/us/shooting-chico-california-library.html
-
-**Danny McBride on Why It’s So Hard for Art to Break Through**\
-`“Nothing has its moment in the sun. And I think that that’s probably just because of the world we live in. There’s just so much stuff out there, old and new,” Danny McBride says on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000010984938/danny-mcbride-on-why-its-so-hard-for-art-to-break-through.html
 
