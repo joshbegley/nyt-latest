@@ -194,7 +194,3 @@ https://www.nytimes.com/video/sports/soccer/100000010985062/world-cup-messi-arge
 `Platón hizo una propuesta radical sobre la riqueza que resuena mucho en nuestros tiempos.`\
 https://www.nytimes.com/es/2026/06/23/espanol/opinion/elon-musk-dinero-riqueza-millonarios.html
 
-**Neighborhood Reels From Loss of Landmark Church That Stood for 173 Years**\
-`The South Bushwick Church, whose steeple was a local beacon, was heavily damaged in a fire on Friday in a blow to a Brooklyn neighborhood known for its architectural gems.`\
-https://www.nytimes.com/2026/06/23/nyregion/bushwick-church-fire.html
-
