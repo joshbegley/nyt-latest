@@ -1,3 +1,15 @@
+**Artist Pulls Work From London Museum After Clash Over Churchill’s Legacy**\
+`A historian and others said that a video installation had incorrectly blamed Winston Churchill for a famine in colonial India.`\
+https://www.nytimes.com/2026/06/23/arts/churchill-bengal-famine-national-portrait-gallery.html
+
+**Meta Has Created a Prediction Markets App**\
+`The app, internally called “Arena,” would be independent of Facebook and Instagram. It could compete for attention with Polymarket and Kalshi, the biggest prediction markets.`\
+https://www.nytimes.com/2026/06/23/technology/meta-prediction-markets-app.html
+
+**Supreme Court Sides With Exxon in Lawsuit Over Assets Seized by Cuba**\
+`The Trump administration backed Exxon Mobil’s effort to be compensated for oil and gas assets confiscated by the Cuban government in 1960.`\
+https://www.nytimes.com/2026/06/23/us/politics/supreme-court-cuba-exxon.html
+
 **U.S. Warns of ‘Imminent’ Atrocities in El Obeid, Sudan**\
 `A highway running through El Obeid links Darfur in west Sudan to the east, making it a strategically significant battleground.`\
 https://www.nytimes.com/2026/06/23/world/africa/sudan-war-rsf-atrocities.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/06/23/books/michael-caine-odyssey-ai.html
 **The Tech Sell-off Goes Global**\
 `Investors are bracing for rough trading after stocks in Asia and Europe were clobbered on Tuesday. A.I. companies like SpaceX are getting hit hard.`\
 https://www.nytimes.com/2026/06/23/business/dealbook/tech-stocks-chips-spacex.html
-
-**40 People Drown in France Amid Scorching Temperatures**\
-`Most of the victims were young people swimming in unsupervised areas, officials said.`\
-https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
-
-**Europe Is Sweltering in an Extreme Heat Wave. Here’s What to Know.**\
-`The most intense conditions are happening in Britain, France and Spain, which are all under high-level heat warnings.`\
-https://www.nytimes.com/2026/06/23/weather/europe-extreme-heat-wave-warning.html
-
-**Bread and Roses**\
-`We look at the democratic socialists who are leading some of America’s big cities.`\
-https://www.nytimes.com/2026/06/23/briefing/socialist-mayors.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
