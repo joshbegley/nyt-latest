@@ -1,3 +1,11 @@
+**Chicken Salad Slaw With Peanuts and Nori**\
+`This no-cook, main-dish slaw is all about texture and toppings. The cabbage and shredded chicken are only the beginning. It also has a double dose of savory nuttiness from nori and peanuts, a creamy peanut-ginger dressing and refreshing scallions and cucumbers.`\
+https://www.nytimes.com/video/dining/100000010987721/chicken-salad-slaw-with-peanuts-and-nori.html
+
+**Areas to Watch in a Complicated South Carolina Primary Runoff**\
+`President Trump has said he supports both Pamela Evette and Alan Wilson in the Republican primary runoff for governor.`\
+https://www.nytimes.com/2026/06/23/us/elections/south-carolina-governor-areas-to-watch.html
+
 **Ethnicity Becomes Instrument of Division in Espaillat’s Re-election Bid**\
 `Darializa Avila Chevalier has been targeted with false accusations about her ethnicity, as foes seek to portray her as an outsider hoping to usurp Dominican power in the district.`\
 https://www.nytimes.com/2026/06/23/nyregion/darializa-avila-chevalier-dominican-haiti.html
