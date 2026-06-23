@@ -1,3 +1,7 @@
+**40 People Drown in France as Heat Wave Persists**\
+`Most of the victims, swimming in unsupervised areas, were young, officials said.`\
+https://www.nytimes.com/2026/06/23/world/europe/heat-wave-france-drowning-deaths.html
+
 **Europe Is Sweltering in an Extreme Heat Wave. Here’s What to Know.**\
 `The most intense conditions are happening in Britain, France and Spain, which are all under high-level heat warnings.`\
 https://www.nytimes.com/2026/06/23/weather/europe-extreme-heat-wave-warning.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/06/23/business/economy/china-megafactory-us-tech-ra
 **Is This the Year Florida Turns Blue?**\
 `David Jolly must persuade voters who have been increasingly hostile to Democrats that he’s a different kind of Democrat.`\
 https://www.nytimes.com/2026/06/23/opinion/florida-politics-midterms-governors-race.html
-
-**Short Cruises Off the New England Coast**\
-`From Connecticut to Maine, narrated excursions, and even a mailboat run, are ready to be added to summer vacation itineraries.`\
-https://www.nytimes.com/2026/06/23/travel/short-new-england-cruises.html
-
-**Book Review: “Nebraska,” by Monica Datta**\
-`Monica Datta’s “Nebraska” is a maximalist, continent-spanning story of a mother killing her youngest child, as relayed by a highly idiosyncratic psychoanalyst.`\
-https://www.nytimes.com/2026/06/23/books/review/nebraska-monica-datta.html
 
