@@ -1,3 +1,11 @@
+**Reino Unido: nuevo líder, mismos problemas**\
+`Se necesitará más que un cambio de liderazgo para sacar adelante al país.`\
+https://www.nytimes.com/es/2026/06/23/espanol/mundo/reino-unido-nuevo-lider-mismos-problemas.html
+
+**Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
+`Chipmakers led the way down in South Korea, where the main index plunged 10 percent. Stocks in Europe were lower and S&P 500 futures pointed to a sharp fall.`\
+https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
+
 **Is Cristiano Ronaldo Hurting Portugal? Plus, USMNT Goalkeeper Matt Freese’s Moment.**\
 `Portugal is one of the favorites to win the World Cup — but is it better off without its legendary superstar?`\
 https://www.nytimes.com/2026/06/23/podcasts/cristiano-ronaldo-portugal-usmnt-goalkeeper-matt-freese.html
