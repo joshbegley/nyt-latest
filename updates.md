@@ -1,3 +1,15 @@
+**A Look Inside the Welcome Bags Planned for White South African Refugees**\
+`The United States is putting together bags with a children’s book on so-called reverse racism, and with a document that defends the country’s founding on the basis of slavery.`\
+https://www.nytimes.com/2026/06/23/us/politics/south-africa-refugees-welcome-bags.html
+
+**How Trump Turned America’s Refugee Program Into a Pathway for White People**\
+`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program designed for people fleeing persecution and disaster.`\
+https://www.nytimes.com/2026/06/23/us/politics/trump-refugee-program-whites.html
+
+**A Last-Minute Guide to the Candidates in New York’s Primaries**\
+`There are more than half a dozen competitive races underway. Here’s what to know.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny-primary-elections-candidate-guide.html
+
 **Protesters Accused of Antifa Ties Sentenced to Up to 100 Years in ICE Attack**\
 `The penalties, issued in an attack where a police officer was shot, dwarfed those given to Jan. 6 rioters and appeared to signal that at least some courts will deal aggressively with ICE protesters.`\
 https://www.nytimes.com/2026/06/23/us/politics/antifa-ice-protesters-sentencing.html

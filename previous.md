@@ -1,3 +1,27 @@
+**A Look Inside the Welcome Bags Planned for White South African Refugees**\
+`The United States is putting together bags with a children’s book on so-called reverse racism, and with a document that defends the country’s founding on the basis of slavery.`\
+https://www.nytimes.com/2026/06/23/us/politics/south-africa-refugees-welcome-bags.html
+
+**How Trump Turned America’s Refugee Program Into a Pathway for White People**\
+`President Trump has created an exception to his refugee ban for white South Africans, reshaping a program designed for people fleeing persecution and disaster.`\
+https://www.nytimes.com/2026/06/23/us/politics/trump-refugee-program-whites.html
+
+**A Last-Minute Guide to the Candidates in New York’s Primaries**\
+`There are more than half a dozen competitive races underway. Here’s what to know.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny-primary-elections-candidate-guide.html
+
+**South Carolina Attorney General Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-runoff.html
+
+**South Carolina Second Congressional District Runoff 2026: Live Election Results, Khalifa vs. Robinson**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-2-runoff.html
+
+**South Carolina First Congressional District Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-1-runoff.html
+
 **Protesters Accused of Antifa Ties Sentenced to Up to 100 Years in ICE Attack**\
 `The penalties, issued in an attack where a police officer was shot, dwarfed those given to Jan. 6 rioters and appeared to signal that at least some courts will deal aggressively with ICE protesters.`\
 https://www.nytimes.com/2026/06/23/us/politics/antifa-ice-protesters-sentencing.html
@@ -110,10 +134,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-mayor
 `Get live results and maps from the 2026 Utah primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-2-primary.html
 
-**South Carolina Second Congressional District Runoff 2026: Live Election Results, Khalifa vs. Robinson**\
-`Get live results and maps from the 2026 South Carolina runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-2-runoff.html
-
 **New York Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-7-primary.html
@@ -122,17 +142,9 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-4-primary.html
 
-**South Carolina First Congressional District Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-us-house-1-runoff.html
-
 **New York Ninth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-9-primary.html
-
-**South Carolina Attorney General Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-attorney-general-runoff.html
 
 **New York Fifth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York 25th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-25-primary.html
-
-**New York 11th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-11-primary.html
-
-**New York 20th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-20-primary.html
-
-**New York 21st Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-21-primary.html
 

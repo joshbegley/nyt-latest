@@ -1,3 +1,7 @@
+**In Middle East, Rubio Says ‘No Country’ Can Charge for Hormuz Traffic**\
+`The secretary of state dismissed Iran’s talk of charging ships to pass through the vital Persian Gulf portal as prohibited under international law.`\
+https://www.nytimes.com/2026/06/23/world/middleeast/rubio-strait-of-hormuz-charges-traffic.html
+
 **A Look Inside the Welcome Bags Planned for White South African Refugees**\
 `The United States is putting together bags with a children’s book on so-called reverse racism, and with a document that defends the country’s founding on the basis of slavery.`\
 https://www.nytimes.com/2026/06/23/us/politics/south-africa-refugees-welcome-bags.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 **New York 24th Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-24-primary.html
-
-**New York 25th Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-25-primary.html
 
