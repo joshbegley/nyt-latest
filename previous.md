@@ -1,18 +1,6 @@
-**Trump on the Shabby Condition of the Reflecting Pool: Not My Fault**\
-`President Trump said the blooms of green algae and the peeling polyurethane had nothing to do with the rushed $16.4 million makeover he had ordered.`\
-https://www.nytimes.com/2026/06/22/us/politics/trump-reflecting-pool-blame.html
-
-**Police Officer Killed in Shootout in Montreal**\
-`On Monday, a police officer was killed during a shootout. A civilian was killed and another police officer was wounded, the police said.`\
-https://www.nytimes.com/video/world/canada/100000010984251/montreal-shooting-officer-killed.html
-
-**In New York City, Early Voting Saw Major Changes From 2025**\
-`Turnout was low and the electorate was much older than it was last year when the mayoral race between Mamdani and Cuomo fueled heavy early voting.`\
-https://www.nytimes.com/2026/06/22/nyregion/nyc-early-voting.html
-
 **Abortion Rights Group Endorses Platner Over Collins in Maine**\
 `Senator Susan Collins, a Republican, drew criticism from Planned Parenthood for voting to confirm Justice Brett Kavanaugh, who helped overturn Roe v. Wade.`\
-https://www.nytimes.com/2026/06/22/us/politics/platner-collins-maine-senate-abortion.html
+https://www.nytimes.com/2026/06/22/us/politics/abortion-rights-group-endorses-platner-over-collins-in-maine.html
 
 **La razón secreta por la que los jefes quieren que todos vuelvan a la oficina**\
 `La reticencia a cualquier tipo de trabajo remoto quizá se deba a algo muy específico: el ego`\
@@ -197,4 +185,16 @@ https://www.nytimes.com/2026/06/22/world/asia/fire-lucknow-india-kills-14.html
 **Un exaliado de Pedro Sánchez es condenado a 24 años de cárcel**\
 `José Luis Ábalos, que en su día fue ministro en el gobierno del presidente Pedro Sánchez, ha sido condenado por delitos de corrupción. La sentencia agrava la crisis en el entorno de Sánchez.`\
 https://www.nytimes.com/es/2026/06/22/espanol/mundo/abalos-psoe-condenado-cohecho.html
+
+**The Moment Alan Greenspan Should Be Remembered For**\
+`A crucial episode in the famous Fed chair’s legacy.`\
+https://www.nytimes.com/2026/06/22/opinion/alan-greenspan-federal-reserve.html
+
+**In Alan Greenspan, Kevin Warsh Saw a Fed Chairman Role Model**\
+`Kevin M. Warsh has long singled out Alan Greenspan, who died on Monday, as the central banker he wants to exemplify.`\
+https://www.nytimes.com/2026/06/22/business/warsh-greenspan-federal-reserve.html
+
+**Justice Department Makes It Easier to Bypass Pollution Controls on Pickups**\
+`It has stopped criminal prosecutions of people who install “defeat devices,” which make diesel trucks faster and more efficient but also dirtier.`\
+https://www.nytimes.com/2026/06/22/climate/justice-department-defeat-devices-diesel-truck-pollution.html
 
