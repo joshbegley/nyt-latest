@@ -1,3 +1,7 @@
+**Danny McBride on Why It’s So Hard for Art to Break Through**\
+`“Nothing has its moment in the sun. And I think that that’s probably just because of the world we live in. There’s just so much stuff out there, old and new,” Danny McBride says on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010984938/danny-mcbride-on-why-its-so-hard-for-art-to-break-through.html
+
 **As Vance Leads Iran Negotiations, Trump Creates Disruptions in His Path**\
 `Vice President JD Vance is in a politically precarious spot.`\
 https://www.nytimes.com/2026/06/22/us/politics/jd-vance-iran-negotiations.html
