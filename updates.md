@@ -1,3 +1,7 @@
+**She’s in Line to Be Mayor of D.C. How Will She Handle Trump’s Threat?**\
+`“We’re going to find ways to resist,” a defiant Janeese Lewis George, the democratic socialist who won the Democratic primary last week in Washington, said in an interview.`\
+https://www.nytimes.com/2026/06/23/us/politics/janeese-lewis-george-trump-washington-dc.html
+
 **Israeli Soldiers Fatally Shoot 2 People in Southern Lebanon, Health Officials Say**\
 `The shooting came a day after Israeli troops began operating under new orders intended to reduce the risk of flare-ups in its conflict with Iran-backed Hezbollah militants.`\
 https://www.nytimes.com/2026/06/23/world/middleeast/israel-soldiers-lebanon-shooting-hezbollah.html
