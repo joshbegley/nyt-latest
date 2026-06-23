@@ -1,3 +1,7 @@
+**Why Neither Candidate for Governor of New York Faces a Primary Challenge**\
+`Six months ago, Gov. Kathy Hochul expected to have to run in a primary, and it looked like two leading state Republicans would be fighting for their party’s nod. Then things changed.`\
+https://www.nytimes.com/2026/06/23/nyregion/blakeman-hochul-governor-new-york.html
+
 **With Starmer’s Resignation, ‘Hot Podium Guy’ Has Outlasted Five U.K. Prime Ministers**\
 `A sound engineer has emerged as an unexpected heartthrob amid Britain’s political tumult.`\
 https://www.nytimes.com/2026/06/23/style/hot-podium-guy-uk-starmer-prime-minister.html
