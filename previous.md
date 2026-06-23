@@ -1,3 +1,11 @@
+**Teamsters Make a Bid to End Federal Oversight, With Trump’s Backing**\
+`Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
+https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
+
+**Energy Dept. Promises $17.5 Billion in Loans for Nuclear Power**\
+`The federal government wants to help utilities buy large components for up to 10 large nuclear reactors. It’s unclear which, if any, companies might participate.`\
+https://www.nytimes.com/2026/06/23/climate/trump-energy-nuclear-loans.html
+
 **She’s in Line to Be Mayor of D.C. How Will She Handle Trump’s Threat?**\
 `“We’re going to find ways to resist,” a defiant Janeese Lewis George, the democratic socialist who won the Democratic primary last week in Washington, said in an interview.`\
 https://www.nytimes.com/2026/06/23/us/politics/janeese-lewis-george-trump-washington-dc.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html
 **How Bad Could the Ebola Outbreak Get? Latest on Testing, Tracing and Vaccines**\
 `Contact tracing is improving. Treatments may be months away. Here’s what could determine whether a fast-expanding outbreak can be slowed down.`\
 https://www.nytimes.com/interactive/2026/06/23/world/africa/ebola-virus-outbreak-update.html
-
-**Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
-`Chipmakers led the way down in South Korea, where the main index plunged 10.5 percent. The Nasdaq in the U.S. was down 2.2 percent at Tuesday’s open.`\
-https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
-
-**Sarah Jessica Parker on the Seductive Power of Sports and the City**\
-`The actress — and Knicks superfan — on what it means to be a New Yorker, circa summer 2026.`\
-https://www.nytimes.com/2026/06/23/podcasts/sarah-jessica-parker-knicks-new-york.html
 

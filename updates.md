@@ -1,3 +1,11 @@
+**Teamsters Make a Bid to End Federal Oversight, With Trump’s Backing**\
+`Sean M. O’Brien, re-elected to a second term leading the union, has used a relationship with President Trump to end court-ordered corruption monitoring.`\
+https://www.nytimes.com/2026/06/23/business/economy/teamsters-justice-sean-obrien.html
+
+**Energy Dept. Promises $17.5 Billion in Loans for Nuclear Power**\
+`The federal government wants to help utilities buy large components for up to 10 large nuclear reactors. It’s unclear which, if any, companies might participate.`\
+https://www.nytimes.com/2026/06/23/climate/trump-energy-nuclear-loans.html
+
 **She’s in Line to Be Mayor of D.C. How Will She Handle Trump’s Threat?**\
 `“We’re going to find ways to resist,” a defiant Janeese Lewis George, the democratic socialist who won the Democratic primary last week in Washington, said in an interview.`\
 https://www.nytimes.com/2026/06/23/us/politics/janeese-lewis-george-trump-washington-dc.html
