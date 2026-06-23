@@ -1,3 +1,7 @@
+**The Iran War’s Persistent Threat to Farmers in Poor Countries**\
+`A reopening of the Strait of Hormuz would do little to swiftly ease the pain inflicted by higher prices for fertilizer, food and fuel in Ivory Coast.`\
+https://www.nytimes.com/2026/06/23/business/iran-war-africa-farming.html
+
 **Supreme Court Bars Lawsuit After Prison Guards Shaved Inmate’s Dreadlocks**\
 `Damon Landor, a Rastafarian, tried to sue Louisiana prison officials for violating his religious rights.`\
 https://www.nytimes.com/2026/06/23/us/politics/supreme-court-inmates-dreadlocks.html
