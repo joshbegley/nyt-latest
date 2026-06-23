@@ -1,3 +1,15 @@
+**Qué es un domo de calor y por qué está aumentando las temperaturas en Europa**\
+`Este fenómeno meteorológico, común en distintas regiones del mundo, está provocando varios días de calor cercano a niveles récord en el Reino Unido, España y Francia.`\
+https://www.nytimes.com/es/2026/06/23/espanol/tiempo-y-clima/calor-cupula-europa-espana.html
+
+**In Colombia, a Right-Wing Wildcard Rises**\
+`A right-wing victory in Latin America’s third-largest country could ripple across the region.`\
+https://www.nytimes.com/2026/06/23/opinion/colombia-election-espriella-petro.html
+
+**Trump’s Iran Debacle Could Be a Gift for America**\
+`There is at least a chance that America will not return to war with Iran, but find a way to turn the page on 47 years of animosity and confrontation.`\
+https://www.nytimes.com/2026/06/23/opinion/trump-iran-war-confrontation.html
+
 **La misión militar de EE. UU. en la frontera con México no tiene previsto un final**\
 `El patrullaje ha ayudado a empujar a los cárteles y a los traficantes a zonas más remotas. Pero a los analistas les preocupa que las misiones fronterizas puedan restar atención al entrenamiento, agotar los recursos y mermar la preparación.`\
 https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/mexico-frontera-operativo-militar.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/22/world/britain-prime-minister.html
 **Cafe Tells Congressman He’s Not Welcome Because of His Stance on Israel**\
 `After Representative Dan Goldman visited a left-leaning coffee shop chain, the shop owner posted caustic remarks on Instagram that made it clear the congressman shouldn’t come back.`\
 https://www.nytimes.com/2026/06/22/nyregion/coffee-shop-poetica-dan-goldman-israel.html
-
-**The Coolest Canvas-Strapped Watches**\
-`Originally designed for soldiers, these timepieces have become summer staples.`\
-https://www.nytimes.com/2026/06/22/t-magazine/fashion/canvas-strapped-watches.html
-
-**Radar Maps Show Philadelphia and New York Face Heavy Rain and Storms on Monday**\
-`At least one of the two World Cup games in the region was affected by storms.`\
-https://www.nytimes.com/2026/06/22/weather/northeast-storms-nyc-philadelphia-rain.html
-
-**Will New York Swing Further to the Left? Here’s a Preview of Tuesday’s Primaries.**\
-`The city’s high-drama, high-spending primaries will offer clues of progressive momentum and Mayor Zohran Mamdani’s influence.`\
-https://www.nytimes.com/2026/06/22/us/politics/new-york-primaries-preview.html
 
