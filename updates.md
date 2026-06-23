@@ -1,4 +1,8 @@
 **Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
+`Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah, Maryland and South Carolina.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
+**Election Live Updates: New York’s High-Stakes Primaries Will Determine November Matchups**\
 `Tuesday’s contests could test the power of progressive Democrats as New Yorkers pick nominees for a half-dozen coveted House seats. There are also closely watched races in Utah and Maryland.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
