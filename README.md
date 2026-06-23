@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/06/23/world/europe/marc-bloch-pantheon-france.html
 https://www.nytimes.com/interactive/2026/06/23/world/africa/ebola-virus-outbreak-update.html
 
 **Markets Recoil in Global Sell-Off Driven by Tech Stocks**\
-`Chipmakers led the way down in South Korea, where the main index crashed 10 percent. Stocks in Europe were lower and S&P 500 futures pointed to a sharp fall.`\
+`Chipmakers led the way down in South Korea, where the main index plunged 10 percent. Stocks in Europe were lower and S&P 500 futures pointed to a sharp fall.`\
 https://www.nytimes.com/2026/06/23/business/stock-market-down-tech-ai-asia-sp500-oil-gas.html
 
 **Sarah Jessica Parker on the Seductive Power of Sports and the City**\
