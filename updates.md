@@ -1,3 +1,15 @@
+**Jill Smokler, Who Blogged as Scary Mommy, Dies at 48**\
+`A mother of three, she turned a whim into an online powerhouse, sharing a warts-and-all look at parenting that attracted millions of readers.`\
+https://www.nytimes.com/2026/06/23/parenting/jill-smokler-dead.html
+
+**A Challenger to Ritchie Torres Struggled to Gain Traction**\
+`Mr. Torres, who represents a House district in the Bronx, vastly out-raised Michael Blake, a former mayoral candidate.`\
+https://www.nytimes.com/2026/06/23/nyregion/ritchie-torres-michael-blake-primary-bronx.html
+
+**U.S. Presses Meta to Agree to A.I. Reviews**\
+`Federal officials are urging the lone major tech company holdout to allow government safety evaluations, weeks after ordering Anthropic to pull its latest model.`\
+https://www.nytimes.com/2026/06/23/business/meta-ai-government-reviews-security.html
+
 **N.S.A. Lost Access to Powerful A.I. Model Amid Anthropic Dispute**\
 `A recent episode underscored the Trump administration’s increasing reliance on advanced A.I. systems for cybersecurity even as it battles a leading U.S. developer.`\
 https://www.nytimes.com/2026/06/23/us/politics/nsa-lost-access-anthropic-tool.html
