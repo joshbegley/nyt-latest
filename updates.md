@@ -1,3 +1,19 @@
+**Trump on the Shabby Condition of the Reflecting Pool: Not My Fault**\
+`President Trump said the blooms of green algae and the peeling polyurethane had nothing to do with the rushed $16.4 million makeover he had ordered.`\
+https://www.nytimes.com/2026/06/22/us/politics/trump-reflecting-pool-blame.html
+
+**Police Officer Killed in Shootout in Montreal**\
+`On Monday, a police officer was killed during a shootout. A civilian was killed and another police officer was wounded, the police said.`\
+https://www.nytimes.com/video/world/canada/100000010984251/montreal-shooting-officer-killed.html
+
+**In New York City, Early Voting Saw Major Changes From 2025**\
+`Turnout was low and the electorate was much older than it was last year when the mayoral race between Mamdani and Cuomo fueled heavy early voting.`\
+https://www.nytimes.com/2026/06/22/nyregion/nyc-early-voting.html
+
+**Abortion Rights Group Endorses Platner Over Collins in Maine**\
+`Senator Susan Collins, a Republican, drew criticism from Planned Parenthood for voting to confirm Justice Brett Kavanaugh, who helped overturn Roe v. Wade.`\
+https://www.nytimes.com/2026/06/22/us/politics/platner-collins-maine-senate-abortion.html
+
 **Abortion Rights Group Endorses Platner Over Collins in Maine**\
 `Senator Susan Collins, a Republican, drew criticism from Planned Parenthood for voting to confirm Justice Brett Kavanaugh, who helped overturn Roe v. Wade.`\
 https://www.nytimes.com/2026/06/22/us/politics/abortion-rights-group-endorses-platner-over-collins-in-maine.html
