@@ -1,3 +1,15 @@
+**Neighborhood Reels From Loss of Landmark Church That Stood for 173 Years**\
+`The South Bushwick Church, whose steeple was a local beacon, was heavily damaged in a fire on Friday in a blow to a Brooklyn neighborhood known for its architectural gems.`\
+https://www.nytimes.com/2026/06/23/nyregion/bushwick-church-fire.html
+
+**$50 Million Spent on N.Y. Primaries Includes A.I. and AIPAC Money**\
+`As early voting began earlier this month, AIPAC emerged from the sidelines to funnel $650,000 to Representative Adriano Espaillat, a candidate opposed by a democratic socialist.`\
+https://www.nytimes.com/2026/06/23/nyregion/new-york-primary-campaign-spending.html
+
+**NYT Spelling Bee Answers for June 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/23/crosswords/spelling-bee-forum.html
+
 **At World Cup Soccer Game, Palestinian Emblems Abound**\
 `Jordan’s first qualification for the World Cup also means a World Cup berth for Palestinians, millions of whom live in the country.`\
 https://www.nytimes.com/2026/06/23/world/europe/world-cup-jordan-palestinians.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/06/22/magazine/good-peter-oneida-histor
 **The American Revolution Through the Eyes of Seven Everyday Founders**\
 `For the 250th, the Times Magazine asked seven leading historians to profile a Revolutionary American whose story has rarely been told.`\
 https://www.nytimes.com/interactive/2026/06/22/magazine/usa-250-anniversary-american-revolution.html
-
-**Doctors Thought It Was Asthma. A.I. Flagged a Serious Heart Problem.**\
-`Artificial intelligence programs can spot patterns in electrocardiograms that humans miss. Now, one program is going to be widely available — for free — to doctors.`\
-https://www.nytimes.com/2026/06/22/health/artificial-intelligence-heart-damage.html
-
-**U.S. Temporarily Lifts Oil Sanctions Against Iran, Citing ‘Productive’ Talks**\
-`President Trump and Vice President JD Vance pointed to progress on Iran’s nuclear program, but officials in Tehran said “no new commitments” had been made.`\
-https://www.nytimes.com/2026/06/22/world/middleeast/us-iran-oil-sanctions.html
-
-**Ramiro Valdés Menéndez, Architect of Cuba’s Surveillance State, Dies at 94**\
-`Considered the country’s most powerful leader after the Castro brothers, he was the first director of the Interior Ministry, keeping a close eye on dissent.`\
-https://www.nytimes.com/2026/06/22/world/americas/ramiro-valdes-menendez-dead.html
 
