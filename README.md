@@ -1,3 +1,7 @@
+**The Iran War’s Persistent Threat to Farmers in Poor Countries**\
+`A reopening of the Strait of Hormuz would do little to swiftly ease the pain inflicted by higher prices for fertilizer, food and fuel in Ivory Coast.`\
+https://www.nytimes.com/2026/06/23/business/iran-war-africa-farming.html
+
 **Supreme Court Bars Lawsuit After Prison Guards Shaved Inmate’s Dreadlocks**\
 `Damon Landor, a Rastafarian, tried to sue Louisiana prison officials for violating his religious rights.`\
 https://www.nytimes.com/2026/06/23/us/politics/supreme-court-inmates-dreadlocks.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/06/23/pageoneplus/corrections-june-23-2026.html
 **How Mark Rutte of NATO Manages an Unpredictable Trump**\
 `Secretary General Mark Rutte is headed to Washington. His style has at times frustrated the very European leaders who need him to hold the alliance together.`\
 https://www.nytimes.com/2026/06/23/world/europe/mark-rutte-nato-trump.html
-
-**Iranian Singer Sentenced to 74 Lashes for Performing Without Hijab**\
-`Parastoo Ahmadi and her band will also be barred from leaving the country or performing for two years, dampening hopes for a more moderate postwar regime in Iran.`\
-https://www.nytimes.com/2026/06/23/world/middleeast/iranian-singer-lashing-sentence.html
 
