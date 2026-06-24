@@ -1,3 +1,7 @@
+**Moderate Democrat Wins Primary in Utah for Newly Blue Salt Lake City Seat**\
+`Ben McAdams, a former representative who had to distance himself from more conservative positions he once held, will be favored to win a blue seat created by court-ordered redistricting.`\
+https://www.nytimes.com/2026/06/23/us/politics/utah-democrats-mcadams-blouin-mohamed.html
+
 **Fired Navy Admiral Wins Democratic Runoff in South Carolina’s 1st District**\
 `Democrats expect Nancy Lacore to run a competitive general election despite the district’s Republican leaning.`\
 https://www.nytimes.com/2026/06/23/us/politics/nancy-lacore-nancy-mace-south-carolina-house-democrats.html
