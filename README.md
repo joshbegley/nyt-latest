@@ -1,3 +1,7 @@
+**Los Angeles Names a New Schools Superintendent After Scandal**\
+`Andres Chait is a district veteran who has helped keep peace with labor unions. He started in the classroom and now runs a district with hundreds of thousands of students.`\
+https://www.nytimes.com/2026/06/24/us/los-angeles-new-school-superintendent-lausd.html
+
 **Venezuela Hit by 7.1-Magnitude Earthquake**\
 `Residents in Caracas, the capital, said the quake shook buildings and knocked out electricity. Images showed damaged buildings and people congregating in the streets.`\
 https://www.nytimes.com/2026/06/24/world/americas/earthquake-venezuela.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
 **After Bruising Primaries in New York, Democrats Look to November Elections**\
 `The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
-
-**NY Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
-`Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
-https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
 

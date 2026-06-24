@@ -1,3 +1,75 @@
+**Venezuela Hit by 7.1-Magnitude Earthquake**\
+`Residents in Caracas, the capital, said the quake shook buildings and knocked out electricity. Images showed damaged buildings and people congregating in the streets.`\
+https://www.nytimes.com/2026/06/24/world/americas/earthquake-venezuela.html
+
+**Map: 6.9-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/quake-tracker-japan.html
+
+**‘You Nailed It’: One Pastor’s Feedback for Danny McBride**\
+`Danny McBride has helped create and has starred in three TV series, including “The Righteous Gemstones,” a comedy-drama about a family of televangelists. On “The Interview,” he talked about his visits to megachurches to prepare for his work on the show.`\
+https://www.nytimes.com/video/podcasts/100000010989661/you-nailed-it-one-pastors-feedback-for-danny-mcbride.html
+
+**Peach Upside-Down Cake**\
+`Peaches shine in this 1988 recipe. Ripe slices are coated with caramelized sugar, then a batter enhanced with just a bit of nutmeg. It’s ready in 30 minutes, perfect for those warm days when turning on the oven feels impossible.`\
+https://www.nytimes.com/video/dining/100000010990500/peach-upside-down-cake.html
+
+**Why New York’s Democratic Establishment Fell to Team Mamdani**\
+`Democratic leaders found that their traditional tools, from rallies to phone banks to big-name campaign events, were no match for the left’s ground game and messaging.`\
+https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
+
+**Maps: See Where Mamdani-Backed Candidates Did Best in New York House Primaries**\
+`Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
+https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
+
+**Mapa: un terremoto de magnitud 7,1 sacude Venezuela**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
+**Tsunami Alerts Issued After 7.1-Magnitude Earthquake Hits Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
+**Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
+`The ruling of a three-judge appeals panel in Michigan was the most significant rebuke yet to the Department of Justice’s effort to find ineligible voters in state voter rolls.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-voter-rolls-data-ruling.html
+
+**Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
+`El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
+https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html
+
+**Wildfire Risk in Utah and Across the West Is the Highest It’s Been All Year**\
+`Critical conditions are expected through the weekend across Utah, Arizona, Nevada and elsewhere.`\
+https://www.nytimes.com/2026/06/24/weather/utah-wildfires-colorado-smoke.html
+
+**Firefighters Respond to Iron Fire In Utah**\
+`The Iron fire in Eureka, Utah, has burned tens of thousands of acres since it started on Friday.`\
+https://www.nytimes.com/video/us/100000010989882/iron-wildfire-utah-western-us.html
+
+**A Record Sotheby’s Auction Thrills London After a Brexit Hangover**\
+`British auction sales have declined by nearly half since 2015, but Wednesday’s results hint at a return to form for London as an international auction center.`\
+https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis.html
+
+**Trump Cancels Plans to Sign a Bipartisan Housing Bill**\
+`Also, Western Europe is sweltering. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipartisan-housing-bill.html
+
+**Democrats Are Done With Caution**\
+`Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
+https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
+
+**Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
+`The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
+
+**Scotland’s Tartan Army Parties in Miami for World Cup**\
+`Ahead of the World Cup match between Scotland and Brazil, fans of Scotland partied in the streets of Miami, wearing tartan kilts and playing bagpipes.`\
+https://www.nytimes.com/video/sports/soccer/100000010988974/tartan-army-scotland-brazil-world-cup.html
+
+**Irán toma medidas para afianzar su control sobre el estrecho de Ormuz**\
+`Un nuevo seguro obligatorio, por ahora gratuito, sería un paso de Irán hacia el control de la vía navegable.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/iran-estrecho-ormuz-pagos.html
+
 **The Debate Over Remote Work Isn’t Over**\
 `Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
 https://www.nytimes.com/2026/06/24/opinion/remote-work.html
