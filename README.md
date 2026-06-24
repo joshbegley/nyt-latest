@@ -183,6 +183,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-governor-
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroller-primary.html
 
 **Election Live Updates: Brad Lander Gives Mamdani a Win in New York House Primary**\
-`Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race Mayor Zohran Mamdani targeted. There are also closely watched races in Utah, Maryland and South Carolina.`\
+`Mr. Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race in which Israel became a top issue. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 

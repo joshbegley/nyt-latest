@@ -1,3 +1,7 @@
+**Trump puede usar la expulsión acelerada en todo EE. UU., confirma un tribunal de apelaciones**\
+`Un fallo dividido permite al gobierno estadounidense aplicar el proceso de deportación sin audiencia migratoria a inmigrantes detenidos, sin importar cuánto tiempo lleven viviendo en el territorio.`\
+https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/trump-deportacion-rapida-expulsion-acelerada.html
+
 **Brad Lander Wins N.Y. House Primary in Which Israel Became a Top Issue**\
 `Mr. Lander, an ally of Mayor Zohran Mamdani, beat Representative Dan Goldman, a two-term incumbent Democrat, in a Lower Manhattan and Brooklyn district.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny10-primary-lander.html
