@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Unexpected celebrities. An old gay. Picnics.`\
+https://www.nytimes.com/2026/06/24/briefing/today-in-short.html
+
 **Trump Refuses to Sign Housing Bill Until Unpopular ‘SAVE’ Voting Act Passes Congress**\
 `The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/nyregion/the-biggest-winner-zohran-mamdani.ht
 **$900,000 Homes in Missouri, Texas and New York**\
 `An Italianate house in St. Louis, a stone house in Round Mountain, Texas and a farmhouse with outbuildings in Bovina, N.Y.`\
 https://www.nytimes.com/2026/06/24/realestate/homes-for-sale-in-texas-missouri-new-york.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a four-bedroom in Metuchen, N.J., and a three-bedroom in Bronxville, N.Y.`\
-https://www.nytimes.com/2026/06/24/realestate/housing-market-near-nyc.html
 
