@@ -1,3 +1,19 @@
+**Istanbul Ascends as a Tango Capital**\
+`Istanbul’s tango schools, clubs and skilled dancers have gained the city recognition as a global tango destination.`\
+https://www.nytimes.com/video/arts/dance/100000010988914/tango-instanbul-turkey.html
+
+**Trump Asks Congress for $88 Billion for War With Iran and Other Programs**\
+`The proposal was all but dead on arrival in the Senate, where it would need bipartisan support, and comes amid growing G.O.P. skepticism about the conflict.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-congress-iran-war-pentagon.html
+
+**Millions of Bees Are Unleashed, and Recaptured, After Truck Flips in Texas**\
+`Local beekeepers rushed to the rescue after a truck carrying roughly 20 million bees overturned on a wet country road in rural Texas.`\
+https://www.nytimes.com/2026/06/24/us/bees-texas-crash.html
+
+**Truck Full of Bees Crashes, Releasing a Swarm of Millions**\
+`An eighteen-wheeler carrying about 20 million bees tipped over in Orange County, Texas, on Sunday. About a dozen local beekeepers came to the rescue.`\
+https://www.nytimes.com/video/us/100000010988029/bees-truck-crash-texas.html
+
 **La esposa de Pedro Sánchez está acusada de corrupción. Eso podría beneficiarlo**\
 `A primera vista, el juicio a Begoña Gómez parece un posible tiro de gracia para el presidente español, pero los analistas dicen que se está convirtiendo en una ventaja para su sobrevivencia política.`\
 https://www.nytimes.com/es/2026/06/24/espanol/mundo/espana-pedro-sanchez-esposa-corrupcion.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/06/24/magazine/husband-best-friend-wife-ethics.html
 **Norma Yaeger, Barrier-Breaking Stockbroker, Dies at 96**\
 `Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
 https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
-
-**Maps: 5.6-Magnitude Earthquake Shakes Northern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-california.html
-
-**Today, In Short**\
-`Unexpected celebrities. An old gay. Picnics.`\
-https://www.nytimes.com/2026/06/24/briefing/today-in-short.html
-
-**Trump Refuses to Sign Housing Bill Until Divisive ‘SAVE’ Voting Act Passes Congress**\
-`The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
-
-**The Ebola Outbreak’s Central Mystery: Where Did This Virus Come From?**\
-`Scientists believe that the Bundibugyo virus persists in an animal species, occasionally spilling over into humans. But they have yet to identify the species.`\
-https://www.nytimes.com/2026/06/24/science/ebola-bundibugyo-animal-reservoir.html
 
