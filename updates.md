@@ -1,3 +1,11 @@
+**Polling in New York’s 12th District Points to a Competitive Race**\
+`Micah Lasher and Alex Bores have consistently led in recent polls as Jack Schlossberg’s support has dipped.`\
+https://www.nytimes.com/2026/06/23/us/elections/new-york-12th-district-polling.html
+
+**Election Live Updates: Polls Close in New York, Where High-Stakes Primaries Test Mamdani’s Reach**\
+`New Yorkers cast ballots in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **A Giraffe Named Gracie Is Missing in Texas**\
 `The giraffe wandered off a private ranch more than a week ago. Her owner is offering a $5,000 reward for information leading to her return.`\
 https://www.nytimes.com/2026/06/23/us/gracie-giraffe-texas-missing.html
