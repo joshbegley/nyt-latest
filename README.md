@@ -1,3 +1,15 @@
+**Read the Indictment of Brooklyn Power Broker Frank Carone**\
+`Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
+https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
+
+**Even in Defeat, a Democrat Showed the Upside of Angering the A.I. Industry**\
+`Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
+
+**Judge Orders U.S. to Stop Seeking Medical Records of Transgender Youth**\
+`The Justice Department had sought information about care provided at New York City hospitals, which were the subject of the ruling.`\
+https://www.nytimes.com/2026/06/24/nyregion/transgender-youth-medical-records-doj-judge.html
+
 **OpenAI and Broadcom Unveil Custom A.I. Chip Design**\
 `The maker of ChatGPT plans to use enough chips to consume 10 gigawatts of electricity, an amount that could power millions of households.`\
 https://www.nytimes.com/2026/06/24/technology/openai-broadcom-chip-jalapeno.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-power
 **Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
 `Brooklyn federal prosecutors accuse Mr. Carone and his brother of profiting from the city’s migrant crisis. He was the chief of staff to former Mayor Eric Adams.`\
 https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
-
-**France Identifies Its First Case of Ebola**\
-`A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
-https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
-
-**Why the Fed Could Loom Large Over the Midterms**\
-`Wall Street increasingly predicts the central bank will raise interest rates, possibly ahead of Election Day in November. That could anger President Trump.`\
-https://www.nytimes.com/2026/06/24/business/dealbook/fed-midterms-rates.html
-
-**‘“The Boy in the Striped Pajamas”: The Cost of Fictionalizing the Holocaust’: A Winning Student Open Letter**\
-`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Orly Kochinski, age 16.`\
-https://www.nytimes.com/2026/06/24/learning/the-boy-in-the-striped-pajamas-the-cost-of-fictionalizing-the-holocaust.html
 

@@ -1,3 +1,11 @@
+**OpenAI and Broadcom Unveil Custom A.I. Chip Design**\
+`The maker of ChatGPT plans to use enough chips to consume 10 gigawatts of electricity, an amount that could power millions of households.`\
+https://www.nytimes.com/2026/06/24/technology/openai-broadcom-chip-jalapeno.html
+
+**ICC Judges Sue Trump Administration Over Sanctions**\
+`Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
+https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
+
 **Mayor’s Race in South Dakota’s Largest City Rests on 2 Votes**\
 `With nearly all votes counted, a former Republican legislator was leading a Democratic state senator to be mayor of Sioux Falls, S.D.`\
 https://www.nytimes.com/2026/06/24/us/mayor-sioux-falls-south-dakota.html
