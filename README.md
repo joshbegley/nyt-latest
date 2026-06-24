@@ -1,3 +1,7 @@
+**Schlossberg’s Defeat Dampens Dream of a Renewed Camelot**\
+`Jack Schlossberg fell well short of his bid to win a highly contested Democratic primary in Manhattan, his campaign hurt by staff defections and missed meetings.`\
+https://www.nytimes.com/2026/06/23/nyregion/schlossberg-loses-camelot.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000010988119/24vid-met-elex-lander-sot1-95253.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/23/nyregion/ritchie-torres-michael-blake-primary
 **U.S. Presses Meta to Agree to A.I. Reviews**\
 `Federal officials are urging the lone major tech company holdout to allow government safety evaluations, weeks after ordering Anthropic to pull its latest model.`\
 https://www.nytimes.com/2026/06/23/business/meta-ai-government-reviews-security.html
-
-**N.S.A. Lost Access to Powerful A.I. Model Amid Anthropic Dispute**\
-`A recent episode underscored the Trump administration’s increasing reliance on advanced A.I. systems for cybersecurity even as it battles a leading U.S. developer.`\
-https://www.nytimes.com/2026/06/23/us/politics/nsa-lost-access-anthropic-tool.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
