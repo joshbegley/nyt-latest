@@ -2,7 +2,7 @@
 `It’s Brazil versus Scotland in the South Florida sun.`\
 https://www.nytimes.com/2026/06/24/us/world-cup-party-scotland-brazil-miami.html
 
-**A General Many Hoped Would Lead the Army Is Forced to Step Aside**\
+**Pete Hegseth Forces Christopher T. Donahue, a Top Prospect for Army Chief, to Resign**\
 `Gen. Christopher T. Donahue was seen as a rising star in the Army. But Defense Secretary Pete Hegseth viewed him with skepticism.`\
 https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegseth.html
 

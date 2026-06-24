@@ -1,3 +1,7 @@
+**The World Cup’s Best Party Is Raging in Miami**\
+`It’s Brazil versus Scotland in the South Florida sun.`\
+https://www.nytimes.com/2026/06/24/us/world-cup-party-scotland-brazil-miami.html
+
 **A General Many Hoped Would Lead the Army Is Forced to Step Aside**\
 `Gen. Christopher T. Donahue was seen as a rising star in the Army. But Defense Secretary Pete Hegseth viewed him with skepticism.`\
 https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegseth.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/world/europe/spain-sanchez-corruption.html
 **Israel Says It Has Trapped Hezbollah Fighters Underground in Southern Lebanon**\
 `The Israeli military says thousands of troops have surrounded a large tunnel network in southern Lebanon. The standoff is at the center of intense clashes in the area recently.`\
 https://www.nytimes.com/2026/06/24/world/middleeast/israel-lebanon-hezbollah-fighters-tunnels.html
-
-**Airbus Is Ordered to Inspect 16 Jets After Cracks Are Found in Wings**\
-`The European Union’s chief aviation regulator ordered five A380 superjumbo jets to be grounded immediately.`\
-https://www.nytimes.com/2026/06/24/business/airbus-a380-wing-cracks-inspection.html
 
