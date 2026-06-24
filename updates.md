@@ -1,3 +1,7 @@
+**La esposa de Pedro Sánchez está acusada de corrupción. Eso podría beneficiarlo**\
+`A primera vista, el juicio a Begoña Gómez parece un posible tiro de gracia para el presidente español, pero los analistas dicen que se está convirtiendo en una ventaja para su sobrevivencia política.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/espana-pedro-sanchez-esposa-corrupcion.html
+
 **Shortage of Chemotherapy Drugs Brings Rationing Fears for Cancer Patients**\
 `Doctors are contending with low supplies and unfilled orders of generic chemotherapy infusions that are central to the treatment of a long list of cancers.`\
 https://www.nytimes.com/2026/06/24/health/chemotherapy-drug-shortage.html
