@@ -1,3 +1,11 @@
+**‘You Nailed It’: One Pastor’s Feedback for Danny McBride**\
+`Danny McBride has helped create and has starred in three TV series, including “The Righteous Gemstones,” a comedy-drama about a family of televangelists. On “The Interview,” he talked about his visits to megachurches to prepare for his work on the show.`\
+https://www.nytimes.com/video/podcasts/100000010989661/you-nailed-it-one-pastors-feedback-for-danny-mcbride.html
+
+**Peach Upside-Down Cake**\
+`Peaches shine in this 1988 recipe. Ripe slices are coated with caramelized sugar, then a batter enhanced with just a bit of nutmeg. It’s ready in 30 minutes, perfect for those warm days when turning on the oven feels impossible.`\
+https://www.nytimes.com/video/dining/100000010990500/peach-upside-down-cake.html
+
 **Why New York’s Democratic Establishment Fell to Team Mamdani**\
 `Democratic leaders found that their traditional tools, from rallies to phone banks to big-name campaign events, were no match for the left’s ground game and messaging.`\
 https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/24/climate/europe-fastest-warming-continent.html
 **After New York’s Primary Elections, Democrats Face Five Big Questions**\
 `The anti-establishment left surged. How shaken are party leaders?`\
 https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-election-democrats-midterms.html
-
-**The Debate Over Remote Work Isn’t Over**\
-`Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
-https://www.nytimes.com/2026/06/24/opinion/remote-work.html
-
-**Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
 
