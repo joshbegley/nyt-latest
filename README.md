@@ -1,3 +1,7 @@
+**Postmaster General Confirms Plan to Hold Back Mail Ballots Under Proposed Rule**\
+`The postmaster general, David Steiner, said on Wednesday that under a proposed rule, his agency would not deliver mail ballots in states that decline to hand over voter data.`\
+https://www.nytimes.com/2026/06/24/us/politics/postmaster-mail-ballot-rule-trump-elections.html
+
 **A Climate Chaos Maker**\
 `Global warming is causing extreme heat around the world. Now El Niño, a natural phenomenon that disrupts global weather patterns, is also at work.`\
 https://www.nytimes.com/2026/06/24/world/europe-climate-heat-wave-ebola-world-cup.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/world/middleeast/bahrain-ashura-restrictions-
 **The Slow Cooker Is Your Sous-Chef in This Shreddy Hoisin Garlic Chicken**\
 `This recipe requires almost no handiwork, except for chopping garlic and clicking a button.`\
 https://www.nytimes.com/2026/06/24/dining/the-slow-cooker-is-your-sous-chef-in-this-shreddy-hoisin-garlic-chicken.html
-
-**‘Henry VI,’ ‘Camping’ and 6 More Shows to See Now**\
-`New York in June is a bonanza of Off and Off Off Broadway productions. Here’s our guide to shows we recommend, many in the city’s coziest spaces (and closing soon).`\
-https://www.nytimes.com/2026/06/24/theater/off-broadway-shows-to-see-now.html
 
