@@ -1,3 +1,63 @@
+**My Sister Is Delusional and an Attention Hog. Can I Ignore Her Texts?**\
+`A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
+https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
+
+**N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiries**\
+`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of the department, according to people with knowledge of the matter.`\
+https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
+
+**Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
+`Catastrophic floods that swept the Texas Hill Country last July killed 25 campers, two counselors and the camp’s executive director.`\
+https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
+
+**Senate Rebukes Trump in Vote to Check His War Powers in Iran**\
+`Four Senate Republicans sided with Democrats in a 50-to-48 vote calling for President Trump to end the war in Iran or seek congressional authorization to continue it. The House passed the same measure a few weeks earlier.`\
+https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
+
+**Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
+`Brooklyn federal prosecutors accuse Mr. Carone and his brother of profiting from the city’s migrant crisis. He was the chief of staff to former Mayor Eric Adams.`\
+https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
+
+**France Identifies Its First Case of Ebola**\
+`A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
+https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
+
+**Why the Fed Could Loom Large Over the Midterms**\
+`Wall Street increasingly predicts the central bank will raise interest rates, possibly ahead of Election Day in November. That could anger President Trump.`\
+https://www.nytimes.com/2026/06/24/business/dealbook/fed-midterms-rates.html
+
+**‘“The Boy in the Striped Pajamas”: The Cost of Fictionalizing the Holocaust’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Orly Kochinski, age 16.`\
+https://www.nytimes.com/2026/06/24/learning/the-boy-in-the-striped-pajamas-the-cost-of-fictionalizing-the-holocaust.html
+
+**‘Why Students Are Forced to Fight Hunger Themselves’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Mindy Lux, age 16.`\
+https://www.nytimes.com/2026/06/24/learning/why-students-are-forced-to-fight-hunger-themselves.html
+
+**Your Questions, Answered**\
+`We’re taking on reader queries about the news.`\
+https://www.nytimes.com/2026/06/24/briefing/your-questions-answered.html
+
+**Extreme Heat Across Europe Creates Divide Over Leaving Schools Open**\
+`Few schools in Britain or France have air-conditioning to keep children cool in soaring temperatures, leaving parents, teachers and officials divided about what to do.`\
+https://www.nytimes.com/2026/06/24/world/europe/heat-wave-schools-open-closed-france-uk.html
+
+**Folarin Balogun Transfer Updates, and the Doku Debate**\
+`The USMNT striker is turning heads at the World Cup.`\
+https://www.nytimes.com/2026/06/24/podcasts/folarin-balogun-transfer-updates-jeremy-doku-birth.html
+
+**How the Iran Deal Is Testing the U.S.-Israel Alliance**\
+`The conflict between Israel and Hezbollah in Lebanon poses a threat to U.S.-Iran negotiations to permanently end the war in Iran.`\
+https://www.nytimes.com/2026/06/24/podcasts/the-daily/iran-war-israel-alliance.html
+
+**Deadly Heat Wave Grips Europe, and Congress Passes a Landmark Housing Bill**\
+`Plus, why some tech companies are telling workers to cut back on A.I.`\
+https://www.nytimes.com/2026/06/24/podcasts/the-headlines/heatwave-europe-congress-housing-bill.html
+
+**NYT Strands Hints for June 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
+https://www.nytimes.com/2026/06/24/crosswords/strands-sidekick-844.html
+
 **From ‘Terrible People’ to ‘Smart People’: The Trump-Led Right Rethinks Iran**\
 `The president has sought to recast the Iranian government as he pursues a peace deal. But there are signs that a softening on Iran in the Republican Party goes well beyond him.`\
 https://www.nytimes.com/2026/06/24/us/politics/republicans-iran.html

@@ -1,3 +1,71 @@
+**A General Many Hoped Would Lead the Army Is Forced to Step Aside**\
+`Gen. Christopher T. Donahue was seen as a rising star in the Army. But Defense Secretary Pete Hegseth viewed him with skepticism.`\
+https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegseth.html
+
+**Visitors Look at the Reflecting Pool and Disagree on What They See**\
+`People have long gathered in solidarity by the Reflecting Pool, but amid the turmoil of President Trump’s attempted repairs there is little unity to be found.`\
+https://www.nytimes.com/2026/06/24/us/reflecting-pool-visitors.html
+
+**From ‘Terrible People’ to ‘Smart People’: The Trump-Led Right Rethinks Iran**\
+`The president has sought to recast the Iranian government as he pursues a peace deal. But there are signs that a softening on Iran in the Republican Party goes well beyond him.`\
+https://www.nytimes.com/2026/06/24/us/politics/republicans-iran.html
+
+**Jordyn Woods’s Lucky Knicks Bag is on Display in the Guggenheim**\
+`The orange clutch carried by Woods, who is engaged to the Knicks center Karl-Anthony Towns, became a talisman for the team’s N.B.A. Championship victory through memes and social media chatter.`\
+https://www.nytimes.com/2026/06/24/style/jordyn-woods-guggenheim-lucky-bag.html
+
+**Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
+`The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
+https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
+
+**7 Lessons and Consequences of the Iran War**\
+`Green energy, modern war and American hegemony`\
+https://www.nytimes.com/2026/06/24/opinion/iran-war-lessons.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Naming the moon, Sometimes Island and laughing in real life.`\
+https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthropeum.html
+
+**Read the Indictment of Brooklyn Power Broker Frank Carone**\
+`Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
+https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
+
+**What Alex Bores’s New York Defeat Reveals About the Fight Over A.I. Money in Politics**\
+`Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
+
+**Judge Orders U.S. to Stop Seeking Medical Records of Transgender Youth**\
+`The Justice Department had sought information about care provided at New York City hospitals, which were the subject of the ruling.`\
+https://www.nytimes.com/2026/06/24/nyregion/transgender-youth-medical-records-doj-judge.html
+
+**OpenAI and Broadcom Unveil Custom A.I. Chip Design**\
+`The maker of ChatGPT plans to use enough chips to consume 10 gigawatts of electricity, an amount that could power millions of households.`\
+https://www.nytimes.com/2026/06/24/technology/openai-broadcom-chip-jalapeno.html
+
+**Mayor’s Race in South Dakota’s Largest City Rests on 2 Votes**\
+`With nearly all votes counted, a former Republican legislator was leading a Democratic state senator to be mayor of Sioux Falls, S.D.`\
+https://www.nytimes.com/2026/06/24/us/mayor-sioux-falls-south-dakota.html
+
+**France Confirms First Ebola Case**\
+`The first case of Ebola was confirmed in France after a doctor, who returned from the Democratic Republic of Congo, tested positive.`\
+https://www.nytimes.com/video/world/europe/100000010988931/france-confirms-first-ebola-case.html
+
+**Ukrainian War Amputees Find Community in Sports**\
+`Groups of Ukrainian veterans who lost limbs in Russia’s invasion have found joy and formed new bonds after returning home through learning new sports.`\
+https://www.nytimes.com/video/world/europe/100000010988919/ukraine-war-amputees-sports.html
+
+**Cuba Announces Sweeping Overhaul of Struggling Communist Economy, But Obstacles Remain**\
+`The Cuban government announced a major economic restructuring, but experts say most changes would depend on buy-in from the Trump administration.`\
+https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communism-trump.html
+
+**ICC Judges Sue Trump Administration Over Sanctions**\
+`Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
+https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
+
+**Support Builds on the Right for Prosecuting Women Who Get Abortions**\
+`Sentiment is shifting amid frustration in the antiabortion movement that more abortions are happening now than when Roe v. Wade fell.`\
+https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
+
 **After Bruising Primaries in New York, Democrats Look to November Elections**\
 `The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
@@ -129,72 +197,4 @@ https://www.nytimes.com/2026/06/24/business/airbus-a380-wing-cracks-inspection.h
 **Calling Democrats ‘Communists,’ Trump Keeps Close Eye on N.Y. Primaries**\
 `The president posted repeatedly into Wednesday morning to label Democrats as extreme, delight in his rivals’ losses and express some apparent envy of Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/06/24/us/elections/trump-new-york-democratic-primaries-mamdani.html
-
-**France Records Hottest Day Ever**\
-`France on Tuesday recorded its hottest day ever amid a deadly heat wave that has disrupted the country’s power supply and forced attractions to close early.`\
-https://www.nytimes.com/video/world/europe/100000010988531/france-heat-wave-record-weather.html
-
-**The Must-Know Trends and Stories from Milan Fashion Week**\
-`From would-be cabana boys to a Rugby revival, here are the highlights from this season’s men's shows.`\
-https://www.nytimes.com/2026/06/24/style/milan-fashion-week-menswear-trends.html
-
-**My Sister Is Delusional and an Attention Hog. Can I Ignore Her Texts?**\
-`A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
-https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
-
-**N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiries**\
-`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of the department, according to people with knowledge of the matter.`\
-https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
-
-**Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
-`Catastrophic floods that swept the Texas Hill Country last July killed 25 campers, two counselors and the camp’s executive director.`\
-https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
-
-**Senate Rebukes Trump in Vote to Check His War Powers in Iran**\
-`Four Senate Republicans sided with Democrats in a 50-to-48 vote calling for President Trump to end the war in Iran or seek congressional authorization to continue it. The House passed the same measure a few weeks earlier.`\
-https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
-
-**Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
-`Brooklyn federal prosecutors accuse Mr. Carone and his brother of profiting from the city’s migrant crisis. He was the chief of staff to former Mayor Eric Adams.`\
-https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
-
-**France Identifies Its First Case of Ebola**\
-`A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
-https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
-
-**Why the Fed Could Loom Large Over the Midterms**\
-`Wall Street increasingly predicts the central bank will raise interest rates, possibly ahead of Election Day in November. That could anger President Trump.`\
-https://www.nytimes.com/2026/06/24/business/dealbook/fed-midterms-rates.html
-
-**‘“The Boy in the Striped Pajamas”: The Cost of Fictionalizing the Holocaust’: A Winning Student Open Letter**\
-`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Orly Kochinski, age 16.`\
-https://www.nytimes.com/2026/06/24/learning/the-boy-in-the-striped-pajamas-the-cost-of-fictionalizing-the-holocaust.html
-
-**‘Why Students Are Forced to Fight Hunger Themselves’: A Winning Student Open Letter**\
-`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Mindy Lux, age 16.`\
-https://www.nytimes.com/2026/06/24/learning/why-students-are-forced-to-fight-hunger-themselves.html
-
-**Your Questions, Answered**\
-`We’re taking on reader queries about the news.`\
-https://www.nytimes.com/2026/06/24/briefing/your-questions-answered.html
-
-**Extreme Heat Across Europe Creates Divide Over Leaving Schools Open**\
-`Few schools in Britain or France have air-conditioning to keep children cool in soaring temperatures, leaving parents, teachers and officials divided about what to do.`\
-https://www.nytimes.com/2026/06/24/world/europe/heat-wave-schools-open-closed-france-uk.html
-
-**Folarin Balogun Transfer Updates, and the Doku Debate**\
-`The USMNT striker is turning heads at the World Cup.`\
-https://www.nytimes.com/2026/06/24/podcasts/folarin-balogun-transfer-updates-jeremy-doku-birth.html
-
-**How the Iran Deal Is Testing the U.S.-Israel Alliance**\
-`The conflict between Israel and Hezbollah in Lebanon poses a threat to U.S.-Iran negotiations to permanently end the war in Iran.`\
-https://www.nytimes.com/2026/06/24/podcasts/the-daily/iran-war-israel-alliance.html
-
-**Deadly Heat Wave Grips Europe, and Congress Passes a Landmark Housing Bill**\
-`Plus, why some tech companies are telling workers to cut back on A.I.`\
-https://www.nytimes.com/2026/06/24/podcasts/the-headlines/heatwave-europe-congress-housing-bill.html
-
-**NYT Strands Hints for June 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
-https://www.nytimes.com/2026/06/24/crosswords/strands-sidekick-844.html
 
