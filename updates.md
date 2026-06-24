@@ -1,3 +1,7 @@
+**Map: 5.6-Magnitude Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-california.html
+
 **Today, In Short**\
 `Unexpected celebrities. An old gay. Picnics.`\
 https://www.nytimes.com/2026/06/24/briefing/today-in-short.html

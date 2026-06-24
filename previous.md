@@ -1,3 +1,7 @@
+**Map: 5.6-Magnitude Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-california.html
+
 **Today, In Short**\
 `Unexpected celebrities. An old gay. Picnics.`\
 https://www.nytimes.com/2026/06/24/briefing/today-in-short.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/opinion/thomas-friedman-iran-deal.html
 **The Biggest Winner: Zohran Mamdani**\
 `All the candidates the mayor backed won their primary races on Tuesday, enhancing his political clout in the city and the state.`\
 https://www.nytimes.com/2026/06/24/nyregion/the-biggest-winner-zohran-mamdani.html
-
-**$900,000 Homes in Missouri, Texas and New York**\
-`An Italianate house in St. Louis, a stone house in Round Mountain, Texas and a farmhouse with outbuildings in Bovina, N.Y.`\
-https://www.nytimes.com/2026/06/24/realestate/homes-for-sale-in-texas-missouri-new-york.html
 
