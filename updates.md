@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-northern-california.html
+
+**El calor extremo en Europa afecta las actividades escolares**\
+`En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/europa-ola-calor-escuelas.html
+
 **Eclipse solar en España: lugares para ver el espectáculo**\
 `En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
 https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
