@@ -1,3 +1,7 @@
+**Alibaba Sues Pentagon Over China Military Label**\
+`The Chinese tech giant said it had no ties to China’s military and that the U.S. government had violated the law by making that claim.`\
+https://www.nytimes.com/2026/06/24/business/alibaba-pentagon-lawsuit.html
+
 **Trump dice que unos vándalos dañaron el estanque reflectante. Unos documentos internos cuentan otra historia**\
 `Los trabajadores del Servicio de Parques Nacionales encontraron cortes en secciones de espuma, pero no estaban relacionados con el revestimiento ni con las algas.`\
 https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/trump-estanque-reflectante-cuchillo-que-paso.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/nyregion/ny7-house-race-demographic-fault-lin
 **Here Are 8 New York State Legislative Races to Watch**\
 `The left and moderate wings of the Democratic Party are fighting it out in several races around New York City.`\
 https://www.nytimes.com/2026/06/23/nyregion/new-york-state-legislature-races-to-watch.html
-
-**Clive Davis and Whitney Houston’s Successful and Tragic Story**\
-`The record industry titan guided Houston from a young star to worldwide phenomenon. But their story together was not without controversy.`\
-https://www.nytimes.com/2026/06/23/arts/music/clive-davis-whitney-houston.html
 
