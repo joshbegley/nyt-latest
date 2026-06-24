@@ -1,3 +1,11 @@
+**See Where Mamdani’s Slate of House Hopefuls Did Best**\
+`Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
+https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
+
+**Mapa: un terremoto de magnitud 7,1 sacude Venezuela**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
 **Map: 7.1-Magnitude Earthquake Shakes Venezuela**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
 **El calor extremo en Europa afecta las actividades escolares**\
 `En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
 https://www.nytimes.com/es/2026/06/24/espanol/mundo/europa-ola-calor-escuelas.html
-
-**Eclipse solar en España: lugares para ver el espectáculo**\
-`En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
-https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
-
-**Utah Senate President Loses Republican Primary After Data Center Backlash**\
-`The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
-https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
 
