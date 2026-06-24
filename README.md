@@ -2,7 +2,7 @@
 `A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
 https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
 
-**Investigators Search Homes of N.Y.P.D. Officials in Corruption Inquiry**\
+**N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiry**\
 `The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of department, according to people with knowledge of the matter.`\
 https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
 
