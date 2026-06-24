@@ -1,3 +1,11 @@
+**Support Builds on the Right for Prosecuting Women Who Get Abortions**\
+`Sentiment is shifting amid frustration in the antiabortion movement that more abortions are happening now than when Roe v. Wade fell.`\
+https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
+
+**Maps: 5.6-Magnitude Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-california.html
+
 **After Bruising Primaries in New York, Democrats Look to November Elections**\
 `The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html

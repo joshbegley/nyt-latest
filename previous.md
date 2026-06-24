@@ -1,3 +1,7 @@
+**Support Builds on the Right for Prosecuting Women Who Get Abortions**\
+`Sentiment is shifting amid frustration in the antiabortion movement that more abortions are happening now than when Roe v. Wade fell.`\
+https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
+
 **After Bruising Primaries in New York, Democrats Look to November Elections**\
 `The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/06/24/magazine/husband-best-friend-wife-ethics.html
 `Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
 https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
 
-**Map: 5.6-Magnitude Earthquake Shakes Northern California**\
+**Maps: 5.6-Magnitude Earthquake Shakes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-california.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/podcasts/the-daily/iran-war-israel-alliance.h
 **Deadly Heat Wave Grips Europe, and Congress Passes a Landmark Housing Bill**\
 `Plus, why some tech companies are telling workers to cut back on A.I.`\
 https://www.nytimes.com/2026/06/24/podcasts/the-headlines/heatwave-europe-congress-housing-bill.html
-
-**NYT Strands Hints for June 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
-https://www.nytimes.com/2026/06/24/crosswords/strands-sidekick-844.html
 

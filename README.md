@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
 `The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
 
-**NY’s Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
+**NY Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
 `Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
 https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
 
@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
 https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
 
 **Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
-`Brooklyn federal prosecutors are charging Mr. Carone, his brother and two others in a corruption indictment. He was the chief of staff to former Mayor Eric Adams.`\
+`Brooklyn federal prosecutors accuse Mr. Carone and his brother of profiting from the city’s migrant crisis. He was the chief of staff to former Mayor Eric Adams.`\
 https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
 
 **France Identifies Its First Case of Ebola**\
