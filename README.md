@@ -1,3 +1,7 @@
+**Mayor’s Race in South Dakota’s Largest City Rests on 2 Votes**\
+`With nearly all votes counted, a former Republican legislator was leading a Democratic state senator to be mayor of Sioux Falls, S.D.`\
+https://www.nytimes.com/2026/06/24/us/mayor-sioux-falls-south-dakota.html
+
 **France Confirms First Ebola Case**\
 `The first case of Ebola was confirmed in France after a doctor, who returned from the Democratic Republic of Congo, tested positive.`\
 https://www.nytimes.com/video/world/europe/100000010988931/france-confirms-first-ebola-case.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/learning/the-boy-in-the-striped-pajamas-the-c
 **‘Why Students Are Forced to Fight Hunger Themselves’: A Winning Student Open Letter**\
 `We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Mindy Lux, age 16.`\
 https://www.nytimes.com/2026/06/24/learning/why-students-are-forced-to-fight-hunger-themselves.html
-
-**Your Questions, Answered**\
-`We’re taking on reader queries about the news.`\
-https://www.nytimes.com/2026/06/24/briefing/your-questions-answered.html
 

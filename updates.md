@@ -1,3 +1,19 @@
+**France Confirms First Ebola Case**\
+`The first case of Ebola was confirmed in France after a doctor, who returned from the Democratic Republic of Congo, tested positive.`\
+https://www.nytimes.com/video/world/europe/100000010988931/france-confirms-first-ebola-case.html
+
+**Ukrainian War Amputees Find Community in Sports**\
+`Groups of Ukrainian veterans who lost limbs in Russia’s invasion have found joy and formed new bonds after returning home through learning new sports.`\
+https://www.nytimes.com/video/world/europe/100000010988919/ukraine-war-amputees-sports.html
+
+**Cuba Announces Sweeping Overhaul of Struggling Communist Economy, But Obstacles Remain**\
+`The Cuban government announced a major economic restructuring, but experts say most changes would depend on buy-in from the Trump administration.`\
+https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communism-trump.html
+
+**ICC Judges Hit Back Against Trump Sanctions**\
+`Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
+https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
+
 **NY Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
 `Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
 https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
