@@ -1,3 +1,11 @@
+**Cait Conley Wins Primary to Face Mike Lawler in N.Y. Swing District**\
+`Flipping the Hudson Valley seat in November would be an important victory for Democrats as they seek to take back control of the House.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny17-primary-cait-conley.html
+
+**Election Live Updates: Progressive Victories in New York House Primaries Show Mamdani’s Strength**\
+`Mayor Zohran Mamdani backed Brad Lander, who ousted Representative Dan Goldman, and Claire Valdez, a state lawmaker aiming for the seat being vacated by Representative Nydia Velázquez.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **5 Things to Know About Claire Valdez**\
 `Ms. Valdez, a relatively new state lawmaker in New York, won her House primary after a boost from Mayor Zohran Mamdani, who had recruited her to run.`\
 https://www.nytimes.com/2026/06/23/nyregion/who-is-claire-valdez.html

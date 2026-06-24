@@ -1,3 +1,7 @@
+**Cait Conley Wins Primary to Face Mike Lawler in N.Y. Swing District**\
+`Flipping the Hudson Valley seat in November would be an important victory for Democrats as they seek to take back control of the House.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny17-primary-cait-conley.html
+
 **5 Things to Know About Claire Valdez**\
 `Ms. Valdez, a relatively new state lawmaker in New York, won her House primary after a boost from Mayor Zohran Mamdani, who had recruited her to run.`\
 https://www.nytimes.com/2026/06/23/nyregion/who-is-claire-valdez.html
@@ -178,11 +182,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agr
 `Get live results and maps from the 2026 Utah primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-3-primary.html
 
-**Sioux Falls, South Dakota, Mayor 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Dakota election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-mayor-sioux-falls.html
-
-**Election Live Updates: Two Mamdani Picks Win Closely Watched New York House Primaries**\
-`Brad Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race in which Israel became a top issue. Claire Valdez, a state lawmaker, won the Democratic nomination for a seat being vacated by Representative Nydia Velázquez.`\
+**Election Live Updates: Progressive Victories in New York House Primaries Show Mamdani’s Strength**\
+`Mayor Zohran Mamdani backed Brad Lander, who ousted Representative Dan Goldman, and Claire Valdez, a state lawmaker aiming for the seat being vacated by Representative Nydia Velázquez.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
