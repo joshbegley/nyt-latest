@@ -1,3 +1,11 @@
+**My Sister Is Delusional and an Attention Hog. Can I Ignore Her Texts?**\
+`A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
+https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
+
+**Investigators Search Homes of N.Y.P.D. Officials in Corruption Inquiry**\
+`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of department, according to people with knowledge of the matter.`\
+https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
+
 **Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
 `Catastrophic floods that swept the Texas Hill Country last July killed 25 campers, two counselors and the camp’s executive director.`\
 https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/business/taiwan-korea-ai-chips.html
 **Lions, Tigers and Bomb-Sniffing Dogs: Zoos Face Scores of Swatting Calls**\
 `About 40 zoos and aquariums across the United States have responded to bombing and shooting threats in recent months that turned out to be hoaxes.`\
 https://www.nytimes.com/2026/06/24/us/zoos-aquariums-swatting.html
-
-**Gay Marriage Is Dividing Republicans, Again**\
-`A look at the backlash to same-sex marriage — its strength, seriousness and the reasons behind it.`\
-https://www.nytimes.com/2026/06/24/us/politics/gay-marriage-backlash-republicans-trans-rights.html
-
-**Book Review: ‘Lifeguard,’ by Janet Fash with Clio Chang**\
-`Janet Fash’s memoir is both a sunny coming-of-age story and an exposé of corruption, understaffing and unnecessary deaths at Rockaway Beach.`\
-https://www.nytimes.com/2026/06/24/books/review/lifeguard-a-love-story-janet-fash.html
 
