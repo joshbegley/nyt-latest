@@ -1,3 +1,7 @@
+**Iran’s Loyalists Promote a Wider Nationalism, Unveiled Women Included**\
+`Government supporters are showing off new ties with alleged former dissidents in a bid to show that they can withstand enemies at home as well as abroad.`\
+https://www.nytimes.com/2026/06/24/world/europe/iran-war-regime-nationalism.html
+
 **Mamdani Allies Sweep New York Primaries**\
 `Mayor Zohran Mamdani’s progressive coalition had a big night on Tuesday. Brad Lander, Darializa Avila Chevalier and Claire Valdez won their Democratic House primaries.`\
 https://www.nytimes.com/video/us/elections/100000010988238/mamdani-allies-sweep-new-york-primaries.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/nyregion/ny10-primary-lander.html
 **A Giraffe Named Gracie Is Missing in Texas**\
 `The giraffe wandered off a private ranch more than a week ago. Her owner is offering a $5,000 reward for information leading to her return.`\
 https://www.nytimes.com/2026/06/23/us/gracie-giraffe-texas-missing.html
-
-**Polling in New York’s 12th District Points to a Competitive Race**\
-`Micah Lasher and Alex Bores have consistently led in recent polls as Jack Schlossberg’s support has dipped.`\
-https://www.nytimes.com/2026/06/23/us/elections/new-york-12th-district-polling.html
 
