@@ -1,3 +1,15 @@
+**Trump-Backed Sticker C.E.O. Wins House Primary in New York**\
+`Anthony Constantino defeated Assemblyman Robert Smullen, the state Republican Party’s chosen candidate, in a right-leaning upstate district.`\
+https://www.nytimes.com/2026/06/23/nyregion/stefanik-ny21-primary-constantino.html
+
+**Hard-Liner Wins G.O.P. Nomination for Governor in Maryland**\
+`The Republican primary victory of Dan Cox sets up a rematch with Wes Moore, who defeated Mr. Cox handily four years ago.`\
+https://www.nytimes.com/2026/06/23/nyregion/maryland-governor-republican-primary-dan-cox.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010988072/24vid-met-elex-gowanus2-30346.html
+
 **Moderate Democrat Wins Primary in Utah for Newly Blue Salt Lake City Seat**\
 `Ben McAdams, a former representative who had to distance himself from more conservative positions he once held, will be favored to win a blue seat created by court-ordered redistricting.`\
 https://www.nytimes.com/2026/06/23/us/politics/utah-democrats-mcadams-blouin-mohamed.html

@@ -1,3 +1,15 @@
+**Trump-Backed Sticker C.E.O. Wins House Primary in New York**\
+`Anthony Constantino defeated Assemblyman Robert Smullen, the state Republican Party’s chosen candidate, in a right-leaning upstate district.`\
+https://www.nytimes.com/2026/06/23/nyregion/stefanik-ny21-primary-constantino.html
+
+**Hard-Liner Wins G.O.P. Nomination for Governor in Maryland**\
+`The Republican primary victory of Dan Cox sets up a rematch with Wes Moore, who defeated Mr. Cox handily four years ago.`\
+https://www.nytimes.com/2026/06/23/nyregion/maryland-governor-republican-primary-dan-cox.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010988072/24vid-met-elex-gowanus2-30346.html
+
 **Moderate Democrat Wins Primary in Utah for Newly Blue Salt Lake City Seat**\
 `Ben McAdams, a former representative who had to distance himself from more conservative positions he once held, will be favored to win a blue seat created by court-ordered redistricting.`\
 https://www.nytimes.com/2026/06/23/us/politics/utah-democrats-mcadams-blouin-mohamed.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/06/23/nyregion/blakeman-hochul-governor-new-york.ht
 **With Starmer’s Resignation, ‘Hot Podium Guy’ Has Outlasted Five U.K. Prime Ministers**\
 `A sound engineer has emerged as an unexpected heartthrob amid Britain’s political tumult.`\
 https://www.nytimes.com/2026/06/23/style/hot-podium-guy-uk-starmer-prime-minister.html
-
-**Trump’s Colombia Prize**\
-`Abelardo De La Espriella appears set to be the country’s next president. It adds another right-wing populist leader to a growing roster around the world.`\
-https://www.nytimes.com/2026/06/23/world/trump-us-colombia-europe-heat-world-cup.html
-
-**If You Love America, Cringe for It**\
-`Let’s remember who we once were, because it’s what we may yet be again.`\
-https://www.nytimes.com/2026/06/23/opinion/trump-meloni-america-cringe.html
-
-**Ukrainian Women Plead for News of Disabled Relatives Held by Russia**\
-`Four years after Ukraine was invaded, many of the people who lived in institutional settings remain unaccounted for.`\
-https://www.nytimes.com/2026/06/23/world/europe/ukraine-missing-children-russia.html
 
 **Election Live Updates: Progressive Victories in New York House Primaries Show Mamdani’s Strength**\
 `Mayor Zohran Mamdani backed Brad Lander, who ousted Representative Dan Goldman, and Claire Valdez, a state lawmaker aiming for the seat being vacated by Representative Nydia Velázquez.`\
