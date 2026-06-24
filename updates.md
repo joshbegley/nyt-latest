@@ -1,3 +1,7 @@
+**Alibaba Sues Pentagon Over China Military Label**\
+`The Chinese tech giant said it had no ties to China’s military and that the U.S. government had violated the law by making that claim.`\
+https://www.nytimes.com/2026/06/24/business/alibaba-pentagon-lawsuit.html
+
 **Trump dice que unos vándalos dañaron el estanque reflectante. Unos documentos internos cuentan otra historia**\
 `Los trabajadores del Servicio de Parques Nacionales encontraron cortes en secciones de espuma, pero no estaban relacionados con el revestimiento ni con las algas.`\
 https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/trump-estanque-reflectante-cuchillo-que-paso.html
