@@ -1,3 +1,11 @@
+**France Identifies First Case of Ebola**\
+`The patient had traveled to the Democratic Republic of Congo, the health ministry said. Workers are racing to trace those who may have had contact.`\
+https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
+
+**Why the Fed Could Loom Large Over the Midterms**\
+`Wall Street increasingly predicts the central bank will raise interest rates, possibly ahead of Election Day in November. That could anger President Trump.`\
+https://www.nytimes.com/2026/06/24/business/dealbook/fed-midterms-rates.html
+
 **‘“The Boy in the Striped Pajamas”: The Cost of Fictionalizing the Holocaust’: A Winning Student Open Letter**\
 `We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Orly Kochinski, age 16.`\
 https://www.nytimes.com/2026/06/24/learning/the-boy-in-the-striped-pajamas-the-cost-of-fictionalizing-the-holocaust.html
