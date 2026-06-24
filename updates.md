@@ -1,3 +1,11 @@
+**59% of Americans say they lack confidence in the Iran deal.**\
+`When it comes to the deal, there is a political divide, according to a new Quinnipiac University poll.`\
+https://www.nytimes.com/2026/06/24/us/politics/iran-deal-polling.html
+
+**Two Major Earthquakes Hit Venezuela, U.S.G.S. Says**\
+`View the location of the quake epicenters and shake areas.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
 **Who Is Ahead in Colorado's 1st Congressional District?**\
 `Track the latest polls in Colorado's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/colorado-us-house-1-polls-2026.html
