@@ -1,3 +1,143 @@
+**Este Mundial tiene pausas de hidratación. Muchos aficionados prefieren saltárselas**\
+`Además de la molestia por los anuncios adicionales, a muchos seguidores del deporte les disgusta que se interrumpa el ritmo del partido.`\
+https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-pausa-hidratacion-criticas.html
+
+**Friends for 16 Years. Lovers for One Night. (Encore)**\
+`They always wondered what it would be like to sleep together. By the time they were ready to find out, it was almost too late.`\
+https://www.nytimes.com/2026/06/24/podcasts/friends-for-16-years-lovers-for-one-night-encore.html
+
+**Trump to Meet With G.O.P. Senators Amid New Divisions**\
+`The president has been unhappy with pushback from Republican senators and a resistance to abandoning the filibuster to pass new voting restrictions.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-republicans-meeting.html
+
+**Kevin Warsh Is Missing Alan Greenspan’s Point**\
+`Fed chair Kevin Warsh shouldn’t point to Alan Greenspan’s experience to bolster his argument that A.I. will allow the central bank to keep interest rates low.`\
+https://www.nytimes.com/2026/06/24/opinion/alan-greenspan-kevin-warsh-technology-ai.html
+
+**Housing Package Passed by Congress Has Wide Appeal, but It’s No Quick Fix**\
+`The first housing package in decades will take time to put into effect, testing the patience of families rankled by high prices.`\
+https://www.nytimes.com/2026/06/24/business/housing-package-congress-midterms.html
+
+**Corrections: June 24, 2026**\
+`No corrections appeared in print on Wednesday, June 24, 2026.`\
+https://www.nytimes.com/2026/06/24/pageoneplus/no-corrections-june-24-2026.html
+
+**Your Home Could Help Solve AI’s Growing Power Demand**\
+`Tesla, Sunrun and Renew Home plan to tap solar panels, batteries, thermostats and other devices installed in millions of homes to meet the energy demands of artificial intelligence.`\
+https://www.nytimes.com/2026/06/24/business/energy-environment/ai-data-centers-tesla.html
+
+**Victories by Pro-Palestinian Democrats Show the Party’s Shift on Israel**\
+`Three Democrats who have been outspoken in their criticism of Israel won primaries in New York on Tuesday, signaling their party’s new skepticism of the country and its actions.`\
+https://www.nytimes.com/2026/06/24/us/politics/democrats-israel-new-york-chevalier-lander-valdez.html
+
+**How Drag Performers Use Double Entendre to Turn Heads**\
+`In forms both political and unserious, drag performers use double meanings to get their messages across.`\
+https://www.nytimes.com/2026/06/24/crosswords/drag-performance-wordplay-camp.html
+
+**‘The Moment,’ ‘Daddio’ and More Streaming Gems**\
+`A pair of unconventional takes to the life of a musician bookend this month’s under-the-radar recommendations for your subscription streaming services.`\
+https://www.nytimes.com/2026/06/24/movies/the-moment-daddio-streaming-recommendations.html
+
+**Another Spirit of ’76: George Washington’s Whiskey**\
+`A lesser-known legacy of the first president is his Mount Vernon distillery, whose return has helped revive an interest in American whiskey.`\
+https://www.nytimes.com/2026/06/24/dining/drinks/george-washington-rye-whiskey.html
+
+**Thomas L. Friedman on the Clash at the Core of the Iran Deal**\
+`How the world views of Jared Kushner and the founder of the Islamic Republic of Iran can help explain the issue at the heart of the negotiations.`\
+https://www.nytimes.com/2026/06/24/opinion/thomas-friedman-iran-deal.html
+
+**The Biggest Winner: Zohran Mamdani**\
+`All the candidates the mayor backed won their primary races on Tuesday, enhancing his political clout in the city and the state.`\
+https://www.nytimes.com/2026/06/24/nyregion/the-biggest-winner-zohran-mamdani.html
+
+**$900,000 Homes in Missouri, Texas and New York**\
+`An Italianate house in St. Louis, a stone house in Round Mountain, Texas and a farmhouse with outbuildings in Bovina, N.Y.`\
+https://www.nytimes.com/2026/06/24/realestate/homes-for-sale-in-texas-missouri-new-york.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a four-bedroom in Metuchen, N.J., and a three-bedroom in Bronxville, N.Y.`\
+https://www.nytimes.com/2026/06/24/realestate/housing-market-near-nyc.html
+
+**An Artist Creates Moments for Play, and Solidarity**\
+`From the Queens Museum to Times Square, the British artist Sonia Boyce shows art intimately connected to community.`\
+https://www.nytimes.com/2026/06/24/arts/design/sonia-boyce-queens-museum-art.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in the East Village, East Harlem and Crown Heights.`\
+https://www.nytimes.com/2026/06/24/realestate/housing-market-nyc.html
+
+**Could Brazil’s Next Big Soccer Star Be Scouted By AI?**\
+`Recruitment apps powered by artificial intelligence are gaining ground in Brazil, promising to even the playing field and find more soccer talent.`\
+https://www.nytimes.com/2026/06/24/world/americas/brazil-soccer-ai-scout-fc-santos.html
+
+**‘In the Hand of Dante’ Review: A Not So Divine Folly**\
+`Not even a double dose of Oscar Isaac can rescue this fanciful, oversauced tale of stolen art and spiritual questioning.`\
+https://www.nytimes.com/2026/06/24/movies/in-the-hand-of-dante-review.html
+
+**Soccer in 110 Degrees? Memories of a Match When Heat ‘Sucked the Soul.’**\
+`One of the hottest games in World Cup history took place in Orlando, Fla., in June 1994, when Mexico took on Ireland. The players look back on it in disbelief.`\
+https://www.nytimes.com/2026/06/24/us/world-cup-hottest-match-1994.html
+
+**The Wearable Data Your Doctor Actually Wants**\
+`Wearables can offer rough information about a person’s health, experts say, but only some metrics are medically useful.`\
+https://www.nytimes.com/2026/06/24/well/health-wearables-doctors-rfk-apple-watch.html
+
+**Book Review: New Fantasy Novels**\
+`Our columnist reviews “The Tapestry of Fate” and other new fantasy books.`\
+https://www.nytimes.com/2026/06/24/books/review/new-fantasy-books.html
+
+**‘I Love Boosters’ Is the Perfect Film for Our Savage Era**\
+`“I Love Boosters” is a brilliant sendup of the absurd contradictions of our age.`\
+https://www.nytimes.com/2026/06/24/opinion/boots-riley-i-love-boosters.html
+
+**Welcome to the Luxury City Built by Taiwan’s A.I. Boom**\
+`Fortunes, luxury buildings and birthrates are rising in the city at the center of Taiwan’s chip supply chain.`\
+https://www.nytimes.com/2026/06/24/business/taiwan-chips-boom.html
+
+**Great New Historical Fiction**\
+`Our critic looks at the best recent releases.`\
+https://www.nytimes.com/2026/06/24/books/review/new-historical-fiction.html
+
+**U.S. World Cup Cities Are on a Counterdrone Spending Spree**\
+`FEMA has given cities and states $250 million to protect the World Cup from airborne threats. That equipment will remain in place after the tournament.`\
+https://www.nytimes.com/2026/06/24/business/us-world-cup-cities-are-on-a-counterdrone-spending-spree.html
+
+**A.I. Riches Fuel Economic Divide in Asia’s Chip Powerhouses**\
+`A.I. demand is driving stock market gains and booming exports in South Korea and Taiwan. But the rest of the economy is being left behind.`\
+https://www.nytimes.com/2026/06/24/business/taiwan-korea-ai-chips.html
+
+**Lions, Tigers and Bomb-Sniffing Dogs: Zoos Face Scores of Swatting Calls**\
+`About 40 zoos and aquariums across the United States have responded to bombing and shooting threats in recent months that turned out to be hoaxes.`\
+https://www.nytimes.com/2026/06/24/us/zoos-aquariums-swatting.html
+
+**Gay Marriage Is Dividing Republicans, Again**\
+`A look at the backlash to same-sex marriage — its strength, seriousness and the reasons behind it.`\
+https://www.nytimes.com/2026/06/24/us/politics/gay-marriage-backlash-republicans-trans-rights.html
+
+**Book Review: ‘Lifeguard,’ by Janet Fash with Clio Chang**\
+`Janet Fash’s memoir is both a sunny coming-of-age story and an exposé of corruption, understaffing and unnecessary deaths at Rockaway Beach.`\
+https://www.nytimes.com/2026/06/24/books/review/lifeguard-a-love-story-janet-fash.html
+
+**When the World Cup Came to SoFi Stadium, He Got a Backyard View**\
+`SoFi Stadium, the $5 billion event venue near Los Angeles, is on global display for the soccer tournament. But for some who live close by, it is just another headache.`\
+https://www.nytimes.com/2026/06/24/arts/world-cup-sofi-stadium.html
+
+**What’s Behind Broadway’s New Musical Drought?**\
+`Hollywood actors in starry plays, skittish investors and gate-keeping theater owners have all contributed to an unusually tough climate for song-and-dance shows.`\
+https://www.nytimes.com/2026/06/24/theater/broadway-new-musical-theater.html
+
+**A Solar Eclipse Will Bring Tourists to Spain’s Rural Gems**\
+`In August, a celestial spectacle will draw millions to a sparsely populated swath of Spain. Visitors will find the region is full of earthly wonders, too.`\
+https://www.nytimes.com/2026/06/24/travel/solar-eclipse-spain-tourism.html
+
+**Usha Vance and the Power of the Pregnant Image**\
+`Usha Vance, along with Katie Miller and Karoline Leavitt, shows how much is said by an expectant silhouette, without anyone saying a word.`\
+https://www.nytimes.com/2026/06/24/style/usha-vance-maga-pregnancy-style.html
+
+**Podcasts are Changing the Doctor-Patient Dynamic. Is That a Good Thing?**\
+`The dynamic in the exam room is changing as more people show up ready to talk about what they’ve heard on podcasts.`\
+https://www.nytimes.com/2026/06/24/well/podcasts-patients-doctors-health.html
+
 **Iran’s Loyalists Promote a Wider Nationalism, Unveiled Women Included**\
 `Government supporters are showing off new ties with alleged former dissidents in a bid to show that they can withstand enemies at home as well as abroad.`\
 https://www.nytimes.com/2026/06/24/world/europe/iran-war-regime-nationalism.html
@@ -57,144 +197,4 @@ https://www.nytimes.com/2026/06/24/world/asia/japan-china-detained-smuggling-rar
 **Word of the Day: dilatory**\
 `This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/24/learning/word-of-the-day-dilatory.html
-
-**Three Parties, Two Boroughs, One Message: Mamdani’s Gamble Pays Off**\
-`From Brooklyn to Manhattan, Mayor Zohran Mamdani made stops at primary victory parties for the three congressional candidates on his slate.`\
-https://www.nytimes.com/2026/06/24/nyregion/mamdani-gamble-pays-off.html
-
-**Josh Johnson Muses on the Lincoln Memorial Reflecting Pool**\
-`“Hey, kids, remember you wanted to go to Disneyland? Instead, we’re going to go see the world’s largest kombucha!” Johnson said of the pool renovation as a tourist stop.`\
-https://www.nytimes.com/2026/06/24/arts/television/josh-johnson-trump-reflecting-pool.html
-
-**Insurgency Over Incumbency: 7 Takeaways From New York’s Primaries**\
-`All three congressional candidates who were backed by Mayor Zohran Mamdani won in Tuesday’s primary, bolstering his political movement.`\
-https://www.nytimes.com/2026/06/24/nyregion/new-york-primary-takeaways.html
-
-**El fiasco de Trump con Irán podría salvar a EE. UU. de la próxima guerra**\
-`El fracaso militar y político del conflicto deja un legado inesperado: una aversión duradera a la guerra que podría abrir paso, por fin, a una diplomacia seria.`\
-https://www.nytimes.com/es/2026/06/24/espanol/opinion/trump-guerra-iran-fracaso.html
-
-**U.S. Support Is Israel’s True Weakness**\
-`Israel’s dependence on the United States has allowed it to ignore the need for diplomacy.`\
-https://www.nytimes.com/2026/06/24/opinion/israel-iran-palestinians-us.html
-
-**Mamdani Emerges as Kingmaker, Pushing His Slate to a Primary Sweep**\
-`Mayor Zohran Mamdani shook the Democratic establishment by helping drive three progressive candidates to victory.`\
-https://www.nytimes.com/2026/06/24/nyregion/mamdani-politics-influence.html
-
-**Quote of the Day: Vance Balancing Disruptive Boss and a Wily Rival**\
-`Quotation of the Day for Wednesday, June 24, 2026`\
-https://www.nytimes.com/2026/06/24/pageoneplus/quote-of-the-day-vance-balancing-disruptive-boss-and-a-wily-rival.html
-
-**With a Turkish ‘Abrazo,’ Istanbul Ascends as a Tango Capital**\
-`Istanbul’s many tango schools, clubs and skilled dancers have won the city recognition, even among Argentine maestros, as a global tango destination.`\
-https://www.nytimes.com/2026/06/24/world/europe/turkey-tango.html
-
-**Myanmar’s Civil War Has Become an Apocalypse**\
-`Overshadowed by conflicts in Ukraine, Gaza and Lebanon, the fighting in Myanmar’s isolated heartland has reached new depths.`\
-https://www.nytimes.com/2026/06/24/world/asia/myanmar-civil-war-rebels-airstrikes.html
-
-**What to Know About Myanmar’s Chaotic War**\
-`The Southeast Asian nation recently experienced its highest monthly civilian death toll since the war began in 2021.`\
-https://www.nytimes.com/2026/06/24/world/asia/myanmar-civil-war-explained.html
-
-**On the Front Lines of Myanmar’s Forgotten War**\
-`Our Times correspondent, Hannah Beech, travels to the center of the armed resistance movement in Myanmar and meets rebel fighters who are outgunned and undermanned after years of fighting in a civil war.`\
-https://www.nytimes.com/video/world/asia/100000010633558/myanmar-civil-war.html
-
-**McClain Delaney Wins Democratic House Primary in Maryland Against Trone**\
-`Representative April McClain Delaney defeated David Trone, who lent himself $25 million in his unsuccessful bid to oust the woman who had succeeded him in the House.`\
-https://www.nytimes.com/2026/06/23/us/politics/delaney-trone-maryland-democratic-primary.html
-
-**Schlossberg’s Defeat Dampens Dream of a Renewed Camelot**\
-`Jack Schlossberg fell well short of his bid to win a highly contested Democratic primary in Manhattan, his campaign hurt by staff defections and missed meetings.`\
-https://www.nytimes.com/2026/06/23/nyregion/schlossberg-loses-camelot.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010988119/24vid-met-elex-lander-sot1-95253.html
-
-**Who Is Darializa Avila Chevalier?**\
-`Ms. Avila Chevalier pulled off one of the biggest upsets in a New York House primary since Alexandria Ocasio-Cortez defeated Joseph Crowley in 2018.`\
-https://www.nytimes.com/2026/06/23/nyregion/who-is-darializa-avila-chevalier.html
-
-**Darializa Avila Chevalier, a Mamdani Ally, Ousts Espaillat in Primary**\
-`The 32-year-old activist built a robust ground game powered by support from Mayor Zohran Mamdani. She would double the number of democratic socialists in Congress.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny13-darializa-avila-chevalier-espaillat.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/elections/100000010988086/24vid-Chevalier-embed-50161.html
-
-**Trump-Backed Sticker Magnate Wins House Primary in New York**\
-`Anthony Constantino defeated Assemblyman Robert Smullen, the state Republican Party’s chosen candidate, in a right-leaning upstate district.`\
-https://www.nytimes.com/2026/06/23/nyregion/stefanik-ny21-primary-constantino.html
-
-**Hard-Liner Wins G.O.P. Nomination for Governor in Maryland**\
-`The Republican primary victory of Dan Cox sets up a rematch with Wes Moore, who defeated Mr. Cox handily four years ago.`\
-https://www.nytimes.com/2026/06/23/nyregion/maryland-governor-republican-primary-dan-cox.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010988072/24vid-met-elex-gowanus2-30346.html
-
-**Moderate Democrat Wins Primary in Utah for Newly Blue Salt Lake City Seat**\
-`Ben McAdams, a former representative who had to distance himself from more conservative positions he once held, will be favored to win a blue seat created by court-ordered redistricting.`\
-https://www.nytimes.com/2026/06/23/us/politics/utah-democrats-mcadams-blouin-mohamed.html
-
-**Fired Navy Admiral Wins Democratic Runoff in South Carolina’s 1st District**\
-`Democrats expect Nancy Lacore to run a competitive general election despite the district’s Republican leaning.`\
-https://www.nytimes.com/2026/06/23/us/politics/nancy-lacore-nancy-mace-south-carolina-house-democrats.html
-
-**Micah Lasher Wins Manhattan Primary, Defeating Kennedy Heir and Others**\
-`Mr. Lasher, the chosen successor of Representative Jerrold Nadler, beat a field of Democratic candidates that included a fellow state assemblyman in a race for a coveted open seat.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny12-nadler-primary-micah-lasher.html
-
-**Local Republican Wins Primary for Nancy Mace’s House Seat in South Carolina**\
-`Jenny Costa Honeycutt, a Charleston County councilwoman and lawyer, topped a Republican rival in a runoff primary election for a seat that leans to the right but could be competitive in November.`\
-https://www.nytimes.com/2026/06/23/us/nancy-mace-jenny-honeycutt-south-carolina.html
-
-**NYT Crossword Answers for June 24, 2026**\
-`Two can play at Kevin Curry and Zhou Zhang’s crossword.`\
-https://www.nytimes.com/2026/06/23/crosswords/daily-puzzle-2026-06-24.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000010988016/24vid-met-elex-gowanus-93227.html
-
-**Cait Conley Wins Primary to Face Mike Lawler in N.Y. Swing District**\
-`Flipping the Hudson Valley seat in November would be an important victory for Democrats as they seek to take back control of the House.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny17-primary-cait-conley.html
-
-**5 Things to Know About Claire Valdez**\
-`Ms. Valdez, a relatively new state lawmaker in New York, won her House primary after a boost from Mayor Zohran Mamdani, who had recruited her to run.`\
-https://www.nytimes.com/2026/06/23/nyregion/who-is-claire-valdez.html
-
-**Trump’s Pick for Top I.R.S. Lawyer Works at Firm That Represents Him**\
-`James R. Gadwood, the president’s nominee for chief counsel at the Internal Revenue Service, works at Miller & Chevalier, which has represented Mr. Trump in tax matters.`\
-https://www.nytimes.com/2026/06/23/us/politics/trump-top-irs-lawyer.html
-
-**Ex-Hoyer Aide Buoyed by Super PACs Wins Democratic House Primary in Maryland**\
-`Adrian Boafo, a state delegate, won a primary to succeed the retiring Representative Steny Hoyer with help from more than $11 million in spending from pro-Israel and cryptocurrency interests.`\
-https://www.nytimes.com/2026/06/23/us/politics/maryland-5th-district-democratic-primary.html
-
-**Claire Valdez, a Socialist Backed by Mamdani, Wins Key New York Primary**\
-`Ms. Valdez, a first-term state lawmaker, defeated the Brooklyn borough president, Antonio Reynoso, to win an open House seat in a district divided along demographic fault lines.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny7-primary-claire-valdez.html
-
-**Thomas DiNapoli Beats 2 Challengers in N.Y. Comptroller Primary**\
-`Mr. DiNapoli, who was challenged from the left by Raj Goyle and Drew Warshaw, is on track to become the longest serving comptroller in New York history.`\
-https://www.nytimes.com/2026/06/23/nyregion/new-york-comptroller-dinapoli.html
-
-**Trump puede usar la expulsión acelerada en todo EE. UU., confirma un tribunal de apelaciones**\
-`Un fallo dividido permite al gobierno estadounidense aplicar el proceso de deportación sin audiencia migratoria a inmigrantes detenidos, sin importar cuánto tiempo lleven viviendo en el territorio.`\
-https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/trump-deportacion-rapida-expulsion-acelerada.html
-
-**Brad Lander Wins N.Y. House Primary in Which Israel Became a Top Issue**\
-`Mr. Lander, an ally of Mayor Zohran Mamdani, beat Representative Dan Goldman, a two-term incumbent Democrat, in a Lower Manhattan and Brooklyn district.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny10-primary-lander.html
-
-**A Giraffe Named Gracie Is Missing in Texas**\
-`The giraffe wandered off a private ranch more than a week ago. Her owner is offering a $5,000 reward for information leading to her return.`\
-https://www.nytimes.com/2026/06/23/us/gracie-giraffe-texas-missing.html
 
