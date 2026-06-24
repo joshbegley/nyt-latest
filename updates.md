@@ -1,3 +1,7 @@
+**A Show for All Seasons: Henry Moore’s Art, Reborn in Open Air**\
+`At the Kew Royal Botanic Gardens in London, a massive outdoor exhibition reveals a lifelong dialogue in the sculptor’s work between nature and human creations.`\
+https://www.nytimes.com/2026/06/24/arts/design/henry-moore-kew-gardens-london.html
+
 **¿La inteligencia artificial puede encontrar al próximo Pelé?**\
 `Nuevas aplicaciones prometen ampliar la búsqueda de jóvenes futbolistas y hacer más equitativa la detección de talento en el país del fútbol.`\
 https://www.nytimes.com/es/2026/06/24/espanol/ciencia-y-tecnologia/brasil-futbol-ia-santos.html

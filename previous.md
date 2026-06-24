@@ -1,3 +1,7 @@
+**A Show for All Seasons: Henry Moore’s Art, Reborn in Open Air**\
+`At the Kew Royal Botanic Gardens in London, a massive outdoor exhibition reveals a lifelong dialogue in the sculptor’s work between nature and human creations.`\
+https://www.nytimes.com/2026/06/24/arts/design/henry-moore-kew-gardens-london.html
+
 **¿La inteligencia artificial puede encontrar al próximo Pelé?**\
 `Nuevas aplicaciones prometen ampliar la búsqueda de jóvenes futbolistas y hacer más equitativa la detección de talento en el país del fútbol.`\
 https://www.nytimes.com/es/2026/06/24/espanol/ciencia-y-tecnologia/brasil-futbol-ia-santos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/nyregion/exonerations-new-york.html
 **Asia Tech Shares Swing Wildly as A.I. Jitters Persist**\
 `The turbulence in Asia’s chip-dominated stock markets highlighted how heavily global equities have come to depend on enthusiasm for artificial intelligence.`\
 https://www.nytimes.com/2026/06/24/business/stocks-oil-gas-prices.html
-
-**China Detained 2 Japanese on Suspicion of Smuggling**\
-`The Japanese nationals were detained in May in the northeastern Chinese city of Dalian, Japan’s government said, amid tensions between the two countries.`\
-https://www.nytimes.com/2026/06/24/world/asia/japan-china-detained-smuggling-rare-earths.html
 
