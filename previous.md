@@ -1,3 +1,7 @@
+**Norma Yaeger, Barrier-Breaking Stockbroker, Dies at 96**\
+`Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
+https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
+
 **Map: 5.6-Magnitude Earthquake Shakes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-california.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-power
 https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
 
 **France Identifies First Case of Ebola**\
-`The patient is a doctor who had traveled to the Democratic Republic of Congo, the health ministry said. Workers are racing to trace those who may have had contact.`\
+`A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
 https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
 
 **Why the Fed Could Loom Large Over the Midterms**\
@@ -154,8 +158,8 @@ https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-pausa-hidratacion
 `They always wondered what it would be like to sleep together. By the time they were ready to find out, it was almost too late.`\
 https://www.nytimes.com/2026/06/24/podcasts/friends-for-16-years-lovers-for-one-night-encore.html
 
-**Trump to Meet With G.O.P. Senators Amid New Divisions**\
-`The president has been unhappy with pushback from Republican senators and a resistance to abandoning the filibuster to pass voting restrictions. His visit comes after the Senate rebuked him on Iran.`\
+**Trump Meeting With G.O.P. Senators Puts Rifts on Display as He Upends Housing Bill**\
+`Hours before visiting the Capitol, the president scrapped plans to sign a bipartisan housing bill, railing against “bad Republicans” for resisting his demands to ram through new voting restrictions.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-republicans-meeting.html
 
 **Kevin Warsh Is Missing Alan Greenspan’s Point**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/dining/drinks/george-washington-rye-whiskey.h
 **Thomas L. Friedman on the Clash at the Core of the Iran Deal**\
 `How the world views of Jared Kushner and the founder of the Islamic Republic of Iran can help explain the issue at the heart of the negotiations.`\
 https://www.nytimes.com/2026/06/24/opinion/thomas-friedman-iran-deal.html
-
-**The Biggest Winner: Zohran Mamdani**\
-`All the candidates the mayor backed won their primary races on Tuesday, enhancing his political clout in the city and the state.`\
-https://www.nytimes.com/2026/06/24/nyregion/the-biggest-winner-zohran-mamdani.html
 

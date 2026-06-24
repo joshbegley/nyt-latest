@@ -1,3 +1,15 @@
+**Norma Yaeger, Barrier-Breaking Stockbroker, Dies at 96**\
+`Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
+https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
+
+**France Identifies First Case of Ebola**\
+`A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
+https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
+
+**Trump Meeting With G.O.P. Senators Puts Rifts on Display as He Upends Housing Bill**\
+`Hours before visiting the Capitol, the president scrapped plans to sign a bipartisan housing bill, railing against “bad Republicans” for resisting his demands to ram through new voting restrictions.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-republicans-meeting.html
+
 **Map: 5.6-Magnitude Earthquake Shakes Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-california.html
