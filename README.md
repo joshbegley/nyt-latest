@@ -182,7 +182,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroll
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-general-primary.html
 
-**Election Live Updates: Polls Close in New York, Where High-Stakes Primaries Test Mamdani’s Reach**\
-`New Yorkers cast ballots in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
+**Election Live Updates: Brad Lander Gives Mamdani a Win in New York House Primary**\
+`Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race Mayor Zohran Mamdani targeted. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
