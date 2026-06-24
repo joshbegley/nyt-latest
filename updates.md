@@ -1,3 +1,67 @@
+**The Debate Over Remote Work Isn’t Over**\
+`Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
+https://www.nytimes.com/2026/06/24/opinion/remote-work.html
+
+**Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
+
+**El calor extremo en Europa afecta las actividades escolares**\
+`En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/europa-ola-calor-escuelas.html
+
+**Eclipse solar en España: lugares para ver el espectáculo**\
+`En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
+
+**Utah Senate President Loses Republican Primary After Data Center Backlash**\
+`The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
+https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
+
+**With a Proposed $250 Bill, Trump Reimagines America by Putting Himself on Its Money**\
+`Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
+
+**The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
+`For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
+https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
+
+**Tiny Love Stories: ‘She Was Married; I Had a Girlfriend’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-married-i-had-a-girlfriend.html
+
+**See Record-Breaking Extreme Heat Wave Across Europe in Photos**\
+`Temperature records were broken in several European countries on Wednesday.`\
+https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
+
+**Pulte Trims Spy Agency, but Spares Bulk of Staff for Now**\
+`Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
+https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
+
+**The Drop-off in Dropouts**\
+`How high schools closed the graduation gap.`\
+https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
+
+**New Clues Point to Taylor Swift Wedding Event at M.S.G.**\
+`The New York Times has confirmed that Taylor Swift has rented the sports arena for the July 4 weekend, suggesting plans for a days-long celebration.`\
+https://www.nytimes.com/2026/06/24/nyregion/taylor-swift-wedding-madison-square-garden.html
+
+**Un juez federal prohíbe las detenciones de ICE en los juzgados de inmigración**\
+`El fallo pone fin a uno de los aspectos más agresivos de la campaña de deportaciones masivas del presidente Trump y es válido en todo el país.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/detencion-ice-corte-migracion.html
+
+**As Blockbusters Loom, Monkey Business at the Supreme Court**\
+`An unlikely trio of justices issued a slashing critique of plea bargains that included several references to orangutans.`\
+https://www.nytimes.com/2026/06/24/us/politics/the-docket-supreme-court-monkey-business.html
+
+**Should My Husband Tell His Best Friend That We Can’t Stand His Wife?**\
+`His friend has accused him of being distant, even hinting that he’s a social climber for not wanting to hang out with them.`\
+https://www.nytimes.com/2026/06/24/magazine/husband-best-friend-wife-ethics.html
+
+**Norma Yaeger, Barrier-Breaking Stockbroker, Dies at 96**\
+`Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
+https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
+
 **‘You Nailed It’: One Pastor’s Feedback for Danny McBride**\
 `Danny McBride has helped create and has starred in three TV series, including “The Righteous Gemstones,” a comedy-drama about a family of televangelists. On “The Interview,” he talked about his visits to megachurches to prepare for his work on the show.`\
 https://www.nytimes.com/video/podcasts/100000010989661/you-nailed-it-one-pastors-feedback-for-danny-mcbride.html

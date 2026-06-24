@@ -1,3 +1,75 @@
+**Venezuela Hit by 7.1-Magnitude Earthquake**\
+`Residents in Caracas, the capital, said the quake shook buildings and knocked out electricity. Images showed damaged buildings and people congregating in the streets.`\
+https://www.nytimes.com/2026/06/24/world/americas/earthquake-venezuela.html
+
+**Map: 6.9-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/quake-tracker-japan.html
+
+**‘You Nailed It’: One Pastor’s Feedback for Danny McBride**\
+`Danny McBride has helped create and has starred in three TV series, including “The Righteous Gemstones,” a comedy-drama about a family of televangelists. On “The Interview,” he talked about his visits to megachurches to prepare for his work on the show.`\
+https://www.nytimes.com/video/podcasts/100000010989661/you-nailed-it-one-pastors-feedback-for-danny-mcbride.html
+
+**Peach Upside-Down Cake**\
+`Peaches shine in this 1988 recipe. Ripe slices are coated with caramelized sugar, then a batter enhanced with just a bit of nutmeg. It’s ready in 30 minutes, perfect for those warm days when turning on the oven feels impossible.`\
+https://www.nytimes.com/video/dining/100000010990500/peach-upside-down-cake.html
+
+**Why New York’s Democratic Establishment Fell to Team Mamdani**\
+`Democratic leaders found that their traditional tools, from rallies to phone banks to big-name campaign events, were no match for the left’s ground game and messaging.`\
+https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
+
+**Maps: See Where Mamdani-Backed Candidates Did Best in New York House Primaries**\
+`Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
+https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
+
+**Mapa: un terremoto de magnitud 7,1 sacude Venezuela**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
+**Tsunami Alerts Issued After 7.1-Magnitude Earthquake Hits Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
+**Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
+`The ruling of a three-judge appeals panel in Michigan was the most significant rebuke yet to the Department of Justice’s effort to find ineligible voters in state voter rolls.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-voter-rolls-data-ruling.html
+
+**Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
+`El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
+https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html
+
+**Wildfire Risk in Utah and Across the West Is the Highest It’s Been All Year**\
+`Critical conditions are expected through the weekend across Utah, Arizona, Nevada and elsewhere.`\
+https://www.nytimes.com/2026/06/24/weather/utah-wildfires-colorado-smoke.html
+
+**Firefighters Respond to Iron Fire In Utah**\
+`The Iron fire in Eureka, Utah, has burned tens of thousands of acres since it started on Friday.`\
+https://www.nytimes.com/video/us/100000010989882/iron-wildfire-utah-western-us.html
+
+**A Record Sotheby’s Auction Thrills London After a Brexit Hangover**\
+`British auction sales have declined by nearly half since 2015, but Wednesday’s results hint at a return to form for London as an international auction center.`\
+https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis.html
+
+**Trump Cancels Plans to Sign a Bipartisan Housing Bill**\
+`Also, Western Europe is sweltering. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipartisan-housing-bill.html
+
+**Democrats Are Done With Caution**\
+`Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
+https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
+
+**Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
+`The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
+
+**Scotland’s Tartan Army Parties in Miami for World Cup**\
+`Ahead of the World Cup match between Scotland and Brazil, fans of Scotland partied in the streets of Miami, wearing tartan kilts and playing bagpipes.`\
+https://www.nytimes.com/video/sports/soccer/100000010988974/tartan-army-scotland-brazil-world-cup.html
+
+**Irán toma medidas para afianzar su control sobre el estrecho de Ormuz**\
+`Un nuevo seguro obligatorio, por ahora gratuito, sería un paso de Irán hacia el control de la vía navegable.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/iran-estrecho-ormuz-pagos.html
+
 **Istanbul Ascends as a Tango Capital**\
 `Istanbul’s tango schools, clubs and skilled dancers have gained the city recognition as a global tango destination.`\
 https://www.nytimes.com/video/arts/dance/100000010988914/tango-instanbul-turkey.html
@@ -121,76 +193,4 @@ https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrat
 **NY Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
 `Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
 https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
-
-**Why Is Europe the Fastest-Warming Continent**\
-`The burning of fossil fuels is raising temperatures worldwide, but local factors, on land and at sea, determine which regions warm most rapidly.`\
-https://www.nytimes.com/2026/06/24/climate/europe-fastest-warming-continent.html
-
-**After New York’s Primary Elections, Democrats Face Five Big Questions**\
-`The anti-establishment left surged. How shaken are party leaders?`\
-https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-election-democrats-midterms.html
-
-**The Debate Over Remote Work Isn’t Over**\
-`Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
-https://www.nytimes.com/2026/06/24/opinion/remote-work.html
-
-**Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
-
-**El calor extremo en Europa afecta las actividades escolares**\
-`En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
-https://www.nytimes.com/es/2026/06/24/espanol/mundo/europa-ola-calor-escuelas.html
-
-**Eclipse solar en España: lugares para ver el espectáculo**\
-`En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
-https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
-
-**Utah Senate President Loses Republican Primary After Data Center Backlash**\
-`The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
-https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
-
-**With a Proposed $250 Bill, Trump Reimagines America by Putting Himself on Its Money**\
-`Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
-
-**The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
-`For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
-https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
-
-**Tiny Love Stories: ‘She Was Married; I Had a Girlfriend’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-married-i-had-a-girlfriend.html
-
-**See Record-Breaking Extreme Heat Wave Across Europe in Photos**\
-`Temperature records were broken in several European countries on Wednesday.`\
-https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
-
-**Pulte Trims Spy Agency, but Spares Bulk of Staff for Now**\
-`Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
-https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
-
-**The Drop-off in Dropouts**\
-`How high schools closed the graduation gap.`\
-https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
-
-**New Clues Point to Taylor Swift Wedding Event at M.S.G.**\
-`The New York Times has confirmed that Taylor Swift has rented the sports arena for the July 4 weekend, suggesting plans for a days-long celebration.`\
-https://www.nytimes.com/2026/06/24/nyregion/taylor-swift-wedding-madison-square-garden.html
-
-**Un juez federal prohíbe las detenciones de ICE en los juzgados de inmigración**\
-`El fallo pone fin a uno de los aspectos más agresivos de la campaña de deportaciones masivas del presidente Trump y es válido en todo el país.`\
-https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/detencion-ice-corte-migracion.html
-
-**As Blockbusters Loom, Monkey Business at the Supreme Court**\
-`An unlikely trio of justices issued a slashing critique of plea bargains that included several references to orangutans.`\
-https://www.nytimes.com/2026/06/24/us/politics/the-docket-supreme-court-monkey-business.html
-
-**Should My Husband Tell His Best Friend That We Can’t Stand His Wife?**\
-`His friend has accused him of being distant, even hinting that he’s a social climber for not wanting to hang out with them.`\
-https://www.nytimes.com/2026/06/24/magazine/husband-best-friend-wife-ethics.html
-
-**Norma Yaeger, Barrier-Breaking Stockbroker, Dies at 96**\
-`Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
-https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
 
