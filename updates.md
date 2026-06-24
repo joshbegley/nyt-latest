@@ -1,3 +1,7 @@
+**Mamdani Emerges as Kingmaker, Pushing His Slate to a Primary Sweep**\
+`Mayor Zohran Mamdani shook the Democratic establishment by helping drive three progressive candidates to victory.`\
+https://www.nytimes.com/2026/06/24/nyregion/mamdani-politics-influence.html
+
 **Myanmar’s Civil War Has Become an Apocalypse**\
 `Overshadowed by conflicts in Ukraine, Gaza and Lebanon, the fighting in Myanmar’s isolated heartland has reached new depths.`\
 https://www.nytimes.com/2026/06/24/world/asia/myanmar-civil-war-rebels-airstrikes.html
