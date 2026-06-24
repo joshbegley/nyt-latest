@@ -1,3 +1,19 @@
+**Utah Senate President Loses Republican Primary After Data Center Backlash**\
+`The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
+https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
+
+**With a Proposed $250 Bill, Trump Reimagines America by Putting Himself on Its Money**\
+`Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
+
+**Pulte Trims Spy Agency, but Spares Bulk of Staff for Now**\
+`Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
+https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
+
+**France Identifies Its First Case of Ebola**\
+`A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
+https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
+
 **Trump Reimagines America by Putting Himself on Its Money**\
 `Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html

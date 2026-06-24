@@ -1,4 +1,8 @@
-**Trump Reimagines America by Putting Himself on Its Money**\
+**Utah Senate President Loses Republican Primary After Data Center Backlash**\
+`The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
+https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
+
+**With a Proposed $250 Bill, Trump Reimagines America by Putting Himself on Its Money**\
 `Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
 
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-marrie
 `Temperature records were broken in several European countries on Wednesday.`\
 https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
 
-**Pulte Begins Spy Agency Cuts, Though Fewer Than Feared, for Now**\
+**Pulte Trims Spy Agency, but Spares Bulk of Staff for Now**\
 `Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
 https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
 
@@ -122,7 +126,7 @@ https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-power
 `Brooklyn federal prosecutors are charging Mr. Carone, his brother and two others in a corruption indictment. He was the chief of staff to former Mayor Eric Adams.`\
 https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
 
-**France Identifies First Case of Ebola**\
+**France Identifies Its First Case of Ebola**\
 `A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
 https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/24/espanol/ciencia-y-tecnologia/brasil-futbol
 **Este Mundial tiene pausas de hidratación. Muchos aficionados prefieren saltárselas**\
 `Además de la molestia por los anuncios adicionales, a muchos seguidores del deporte les disgusta que se interrumpa el ritmo del partido.`\
 https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-pausa-hidratacion-criticas.html
-
-**Friends for 16 Years. Lovers for One Night. (Encore)**\
-`They always wondered what it would be like to sleep together. By the time they were ready to find out, it was almost too late.`\
-https://www.nytimes.com/2026/06/24/podcasts/friends-for-16-years-lovers-for-one-night-encore.html
 
