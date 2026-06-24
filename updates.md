@@ -1,3 +1,7 @@
+**Federal Judge Bars ICE From Making Arrests in Immigration Courts**\
+`The ruling in a class-action lawsuit filed in California applies to immigration courts nationwide.`\
+https://www.nytimes.com/2026/06/23/us/ice-arrests-immigration-courts-california.html
+
 **Alan Wilson Wins Republican Primary for South Carolina Governor**\
 `The runoff was one of the few races this year featuring both candidates endorsed by President Trump. His picks have had mixed results in governor’s contests.`\
 https://www.nytimes.com/2026/06/23/us/south-carolina-governor-alan-wilson.html

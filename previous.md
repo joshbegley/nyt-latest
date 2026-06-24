@@ -1,3 +1,7 @@
+**Federal Judge Bars ICE From Making Arrests in Immigration Courts**\
+`The ruling in a class-action lawsuit filed in California applies to immigration courts nationwide.`\
+https://www.nytimes.com/2026/06/23/us/ice-arrests-immigration-courts-california.html
+
 **Alan Wilson Wins Republican Primary for South Carolina Governor**\
 `The runoff was one of the few races this year featuring both candidates endorsed by President Trump. His picks have had mixed results in governor’s contests.`\
 https://www.nytimes.com/2026/06/23/us/south-carolina-governor-alan-wilson.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/23/world/middleeast/un-report-israel-palestinian
 **Iranian Court Sentences Singer to 74 Lashes for Performing Without Hijab**\
 `The Iranian singer Parastoo Ahmadi was punished for performing without a hijab, according to a person close to her family and state media news reports.`\
 https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hijab.html
-
-**Senate Votes to Direct End to Iran War, Rebuking Trump on War Powers**\
-`A few Republicans joined Democrats in favor of a measure instructing President Trump to halt military operations against Iran or seek congressional authorization.`\
-https://www.nytimes.com/2026/06/23/us/politics/senate-trump-war-powers-iran.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
