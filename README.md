@@ -14,7 +14,7 @@ https://www.nytimes.com/video/world/europe/100000010988919/ukraine-war-amputees-
 `The Cuban government announced a major economic restructuring, but experts say most changes would depend on buy-in from the Trump administration.`\
 https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communism-trump.html
 
-**ICC Judges Hit Back Against Trump Sanctions**\
+**ICC Judges Sue Trump Administration Over Sanctions**\
 `Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
 https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
 
