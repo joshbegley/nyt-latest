@@ -1,3 +1,7 @@
+**Frank Carone, a Brooklyn Power Broker, Is Arrested in Bribery Scheme**\
+`Brooklyn federal prosecutors are charging Mr. Carone, his brother and two others in a corruption indictment. He was the chief of staff to former Mayor Eric Adams.`\
+https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
+
 **France Identifies First Case of Ebola**\
 `The patient is a doctor who had traveled to the Democratic Republic of Congo, the health ministry said. Workers are racing to trace those who may have had contact.`\
 https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/arts/world-cup-sofi-stadium.html
 **What’s Behind Broadway’s New Musical Drought?**\
 `Hollywood actors in starry plays, skittish investors and gate-keeping theater owners have all contributed to an unusually tough climate for song-and-dance shows.`\
 https://www.nytimes.com/2026/06/24/theater/broadway-new-musical-theater.html
-
-**A Solar Eclipse Will Bring Tourists to Spain’s Rural Gems**\
-`In August, a celestial spectacle will draw millions to a sparsely populated swath of Spain. Visitors will find the region is full of earthly wonders, too.`\
-https://www.nytimes.com/2026/06/24/travel/solar-eclipse-spain-tourism.html
 
