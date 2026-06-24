@@ -1,3 +1,11 @@
+**Los Angeles Names a New Schools Superintendent After Scandal**\
+`Andres Chait is a district veteran who has helped keep peace with labor unions. He started in the classroom and now runs a district with hundreds of thousands of students.`\
+https://www.nytimes.com/2026/06/24/us/los-angeles-new-school-superintendent-lausd.html
+
+**Terremoto de magnitud terremoto de magnitud 7,1 en Venezuela: se emiten alertas de tsunami tras el sismo**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
 **Venezuela Hit by 7.1-Magnitude Earthquake**\
 `Residents in Caracas, the capital, said the quake shook buildings and knocked out electricity. Images showed damaged buildings and people congregating in the streets.`\
 https://www.nytimes.com/2026/06/24/world/americas/earthquake-venezuela.html
