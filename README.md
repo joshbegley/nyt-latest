@@ -147,7 +147,7 @@ https://www.nytimes.com/2026/06/24/opinion/boots-riley-i-love-boosters.html
 https://www.nytimes.com/2026/06/24/business/taiwan-chips-boom.html
 
 **Great New Historical Fiction**\
-`Our critic looks at the best recent releases.`\
+`Our columnist looks at the best recent releases.`\
 https://www.nytimes.com/2026/06/24/books/review/new-historical-fiction.html
 
 **U.S. World Cup Cities Are on a Counterdrone Spending Spree**\
