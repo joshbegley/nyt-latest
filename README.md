@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/06/24/world/europe/turkey-tango.html
 
 **Myanmar’s Civil War Has Become an Apocalypse**\
 `Overshadowed by conflicts in Ukraine, Gaza and Lebanon, the fighting in Myanmar’s isolated heartland has reached new depths.`\
-https://www.nytimes.com/2026/06/24/world/asia/myanmar-war-rebels-airstrikes.html
+https://www.nytimes.com/2026/06/24/world/asia/myanmar-civil-war-rebels-airstrikes.html
 
 **What to Know About Myanmar’s Chaotic War**\
 `The Southeast Asian nation recently experienced its highest monthly civilian death toll since the war began in 2021.`\
