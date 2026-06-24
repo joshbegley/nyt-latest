@@ -1,3 +1,7 @@
+**Schlossberg’s Defeat Dampens Dream of a Renewed Camelot**\
+`Jack Schlossberg fell well short of his bid to win a highly contested Democratic primary in Manhattan, his campaign hurt by staff defections and missed meetings.`\
+https://www.nytimes.com/2026/06/23/nyregion/schlossberg-loses-camelot.html
+
 **Who Is Darializa Avila Chevalier?**\
 `Ms. Avila Chevalier pulled off the one of the biggest upsets in a New York House primary since Alexandria Ocasio-Cortez defeated Joseph Crowley in 2018.`\
 https://www.nytimes.com/2026/06/23/nyregion/who-is-darializa-avila-chevalier.html
