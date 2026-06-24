@@ -1,4 +1,4 @@
-**Trump Refuses to Sign Housing Bill Until Unpopular Voting Restrictions Pass Congress**\
+**Trump Refuses to Sign Housing Bill Until Unpopular ‘SAVE’ Voting Act Passes Congress**\
 `The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
 
