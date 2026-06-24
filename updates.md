@@ -1,3 +1,11 @@
+**Restaurant Reviews: Baohaus, Cove and More**\
+`New stars drop for a New American restaurant from a culinary wunderkind, an idiosyncratic fine-dining spot on the Lower East Side and a Singaporean storefront in Hell’s Kitchen.`\
+https://www.nytimes.com/2026/06/24/dining/restaurant-reviews-cove-baohaus-and-more.html
+
+**Pete Hegseth Forces Christopher T. Donahue, a Top Prospect for Army Chief, to Resign**\
+`Gen. Christopher T. Donahue was seen as a rising star in the Army. But Defense Secretary Pete Hegseth viewed him with skepticism.`\
+https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegseth.html
+
 **The World Cup’s Best Party Is Raging in Miami**\
 `It’s Brazil versus Scotland in the South Florida sun.`\
 https://www.nytimes.com/2026/06/24/us/world-cup-party-scotland-brazil-miami.html
