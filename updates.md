@@ -1,3 +1,7 @@
+**Great New Historical Fiction**\
+`Our columnist looks at the best recent releases.`\
+https://www.nytimes.com/2026/06/24/books/review/new-historical-fiction.html
+
 **Wild, Haunting New Fantasy Novels**\
 `Our columnist reviews “The Tapestry of Fate” and other books.`\
 https://www.nytimes.com/2026/06/24/books/review/new-fantasy-books.html
