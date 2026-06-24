@@ -1,3 +1,19 @@
+**After Bruising Primaries in New York, Democrats Look to November Elections**\
+`The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
+https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
+
+**NY’s Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
+`Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
+https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
+
+**After New York’s Primary Elections, Democrats Face Five Big Questions**\
+`The anti-establishment left surged. How shaken are party leaders?`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-election-democrats-midterms.html
+
+**Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
+
 **Why Is Europe the Fastest-Warming Continent**\
 `The burning of fossil fuels is raising temperatures worldwide, but local factors, on land and at sea, determine which regions warm most rapidly.`\
 https://www.nytimes.com/2026/06/24/climate/europe-fastest-warming-continent.html
