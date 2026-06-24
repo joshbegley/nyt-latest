@@ -79,7 +79,7 @@ https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-power
 https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
 
 **France Identifies First Case of Ebola**\
-`The patient is a doctor who had traveled to the Democratic Republic of Congo, the health ministry said. Workers are racing to trace those who may have had contact.`\
+`A doctor who had traveled to the Democratic Republic of Congo was infected, the French health ministry said. The authorities said the risk to the wider population was low.`\
 https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
 
 **Why the Fed Could Loom Large Over the Midterms**\
