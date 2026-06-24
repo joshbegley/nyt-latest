@@ -1,3 +1,7 @@
+**Pulte Begins Spy Agency Cuts, Though Fewer Than Feared, for Now**\
+`Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
+https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
+
 **The Drop-off in Dropouts**\
 `How high schools closed the graduation gap.`\
 https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
