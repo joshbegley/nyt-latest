@@ -1,3 +1,7 @@
+**The Heat Wave in Europe Is Hitting Records. Here’s What to Know.**\
+`France had its hottest June day ever, with forecasters in Britain predicting that the record for the highest temperature for this time of year was also likely to be broken.`\
+https://www.nytimes.com/2026/06/24/weather/europe-extreme-heat-wave-warning.html
+
 **Alibaba Sues Pentagon Over China Military Label**\
 `The Chinese tech giant said it had no ties to China’s military and that the U.S. government had violated the law by making that claim.`\
 https://www.nytimes.com/2026/06/24/business/alibaba-pentagon-lawsuit.html
