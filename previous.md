@@ -1,3 +1,15 @@
+**The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
+`For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
+https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
+
+**Tiny Love Stories: ‘She Was Married; I Had a Girlfriend’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-married-i-had-a-girlfriend.html
+
+**Europe Is Sweltering. Here’s What That Looks Like**\
+`Temperature records were broken in several European countries on Wednesday.`\
+https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
+
 **Pulte Begins Spy Agency Cuts, Though Fewer Than Feared, for Now**\
 `Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
 https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/24/podcasts/friends-for-16-years-lovers-for-one-
 **Trump Meeting With G.O.P. Senators Puts Rifts on Display as He Upends Housing Bill**\
 `Hours before visiting the Capitol, the president scrapped plans to sign a bipartisan housing bill, railing against “bad Republicans” for resisting his demands to ram through new voting restrictions.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-republicans-meeting.html
-
-**Kevin Warsh Is Missing Alan Greenspan’s Point**\
-`Fed chair Kevin Warsh shouldn’t point to Alan Greenspan’s experience to bolster his argument that A.I. will allow the central bank to keep interest rates low.`\
-https://www.nytimes.com/2026/06/24/opinion/alan-greenspan-kevin-warsh-technology-ai.html
-
-**Housing Package Passed by Congress Has Wide Appeal, but It’s No Quick Fix**\
-`The first housing package in decades will take time to put into effect, testing the patience of families rankled by high prices.`\
-https://www.nytimes.com/2026/06/24/business/housing-package-congress-midterms.html
-
-**Corrections: June 24, 2026**\
-`No corrections appeared in print on Wednesday, June 24, 2026.`\
-https://www.nytimes.com/2026/06/24/pageoneplus/no-corrections-june-24-2026.html
 

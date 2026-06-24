@@ -1,3 +1,15 @@
+**The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
+`For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
+https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
+
+**Tiny Love Stories: ‘She Was Married; I Had a Girlfriend’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-married-i-had-a-girlfriend.html
+
+**Europe Is Sweltering. Here’s What That Looks Like**\
+`Temperature records were broken in several European countries on Wednesday.`\
+https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
+
 **Pulte Begins Spy Agency Cuts, Though Fewer Than Feared, for Now**\
 `Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
 https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
