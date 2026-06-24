@@ -1,3 +1,7 @@
+**Wild, Haunting New Fantasy Novels**\
+`Our columnist reviews “The Tapestry of Fate” and other books.`\
+https://www.nytimes.com/2026/06/24/books/review/new-fantasy-books.html
+
 **Your Questions, Answered**\
 `We’re taking on reader queries about the news.`\
 https://www.nytimes.com/2026/06/24/briefing/your-questions-answered.html
