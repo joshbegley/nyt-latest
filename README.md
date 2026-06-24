@@ -1,3 +1,7 @@
+**Insurgency Over Incumbency: 7 Takeaways From New York’s Primaries**\
+`All three congressional candidates who were backed by Mayor Zohran Mamdani won in Tuesday’s primary, bolstering his political movement.`\
+https://www.nytimes.com/2026/06/24/nyregion/new-york-primary-takeaways.html
+
 **El fiasco de Trump con Irán podría salvar a EE. UU. de la próxima guerra**\
 `El fracaso militar y político del conflicto deja un legado inesperado: una aversión duradera a la guerra que podría abrir paso, por fin, a una diplomacia seria.`\
 https://www.nytimes.com/es/2026/06/24/espanol/opinion/trump-guerra-iran-fracaso.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/23/well/live/ivf-fertility-treatment-study.html
 **U.S. Eases Travel Restrictions on Iran’s World Cup Team**\
 `The Iranians will be allowed to enter the United States two days, instead of one, before a pivotal game in Seattle on Friday, officials said.`\
 https://www.nytimes.com/2026/06/23/us/iran-world-cup-travel-restrictions.html
-
-**Major League Baseball Clears Top Doctor in Doping Case**\
-`The commissioner’s office said it had no concerns about Dr. Neal ElAttrache after investigating his role in supporting the use of performance-enhancing drugs by a U.F.C. star.`\
-https://www.nytimes.com/2026/06/23/sports/baseball/mlb-elattrache-mcgregor-doping.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\

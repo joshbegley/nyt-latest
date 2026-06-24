@@ -1,3 +1,11 @@
+**El fiasco de Trump con Irán podría salvar a EE. UU. de la próxima guerra**\
+`El fracaso militar y político del conflicto deja un legado inesperado: una aversión duradera a la guerra que podría abrir paso, por fin, a una diplomacia seria.`\
+https://www.nytimes.com/es/2026/06/24/espanol/opinion/trump-guerra-iran-fracaso.html
+
+**U.S. Support Is Israel’s True Weakness**\
+`Israel’s dependence on the United States has allowed it to ignore the need for diplomacy.`\
+https://www.nytimes.com/2026/06/24/opinion/israel-iran-palestinians-us.html
+
 **Mamdani Emerges as Kingmaker, Pushing His Slate to a Primary Sweep**\
 `Mayor Zohran Mamdani shook the Democratic establishment by helping drive three progressive candidates to victory.`\
 https://www.nytimes.com/2026/06/24/nyregion/mamdani-politics-influence.html
