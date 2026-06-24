@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthrope
 `Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
 https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
 
-**Even in Defeat, a Democrat Showed the Upside of Angering the A.I. Industry**\
+**What Alex Bores’s New York Defeat Reveals About the Fight Over A.I. Money in Politics**\
 `Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
 https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
 
@@ -138,7 +138,7 @@ https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-califor
 `Unexpected celebrities. An old gay. Picnics.`\
 https://www.nytimes.com/2026/06/24/briefing/today-in-short.html
 
-**Trump Refuses to Sign Housing Bill Until Unpopular ‘SAVE’ Voting Act Passes Congress**\
+**Trump Refuses to Sign Housing Bill Until Divisive ‘SAVE’ Voting Act Passes Congress**\
 `The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
 
