@@ -1,3 +1,7 @@
+**Tsunami Alerts Issued After 7.1-Magnitude Earthquake Hits Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
 **See Where Mamdani’s Slate of House Hopefuls Did Best**\
 `Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
 https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html

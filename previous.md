@@ -6,7 +6,7 @@ https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-re
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
 
-**Map: 7.1-Magnitude Earthquake Shakes Venezuela**\
+**Tsunami Alerts Issued After 7.1-Magnitude Earthquake Hits Venezuela**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
 

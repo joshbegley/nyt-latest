@@ -1,3 +1,7 @@
+**Why New York’s Democratic Establishment Fell to Team Mamdani**\
+`Democratic leaders found that their traditional tools, from rallies to phone banks to big-name campaign events, were no match for the left’s ground game and messaging.`\
+https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
+
 **See Where Mamdani’s Slate of House Hopefuls Did Best**\
 `Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
 https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/opinion/remote-work.html
 **Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
-
-**El calor extremo en Europa afecta las actividades escolares**\
-`En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
-https://www.nytimes.com/es/2026/06/24/espanol/mundo/europa-ola-calor-escuelas.html
 
