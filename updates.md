@@ -1,3 +1,27 @@
+**How the Iran Deal Is Testing the U.S.-Israel Alliance**\
+`The conflict between Israel and Hezbollah in Lebanon poses a threat to U.S.-Iran negotiations to permanently end the war in Iran.`\
+https://www.nytimes.com/2026/06/24/podcasts/the-daily/iran-war-israel-alliance.html
+
+**Deadly Heat Wave Grips Europe, and Congress Passes a Landmark Housing Bill**\
+`Plus, why some tech companies are telling workers to cut back on A.I.`\
+https://www.nytimes.com/2026/06/24/podcasts/the-headlines/heatwave-europe-congress-housing-bill.html
+
+**NYT Strands Hints for June 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
+https://www.nytimes.com/2026/06/24/crosswords/strands-sidekick-844.html
+
+**NYT Connections Answers for June 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
+https://www.nytimes.com/2026/06/24/crosswords/connections-companion-1110.html
+
+**Today’s Wordle Hints for June 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
+https://www.nytimes.com/2026/06/24/crosswords/wordle-review-1832.html
+
+**Rubio Seeks to Reassure Persian Gulf Allies on Iran Deal**\
+`Secretary of State Marco Rubio was scheduled to meet with leaders in Abu Dhabi, Kuwait and Bahrain, which were targeted by Iranian attacks during the war.`\
+https://www.nytimes.com/2026/06/24/world/middleeast/middle-east-iran-us-rubio.html
+
 **En busca de pistas en la juventud de Jeffrey Epstein**\
 `“Jeff” creció en un mundo cerrado. Se juntaba con unos cuantos chicos inteligentes y estaba obsesionado con las chicas. ¿Se ocultaba un monstruo a la vista de todos?`\
 https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/infancia-juventud-jeffrey-epstein.html

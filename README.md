@@ -1,3 +1,7 @@
+**Folarin Balogun Transfer Updates, and the Doku Debate**\
+`The USMNT striker is turning heads at the World Cup.`\
+https://www.nytimes.com/2026/06/24/podcasts/folarin-balogun-transfer-updates-jeremy-doku-birth.html
+
 **How the Iran Deal Is Testing the U.S.-Israel Alliance**\
 `The conflict between Israel and Hezbollah in Lebanon poses a threat to U.S.-Iran negotiations to permanently end the war in Iran.`\
 https://www.nytimes.com/2026/06/24/podcasts/the-daily/iran-war-israel-alliance.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/weather/europe-extreme-heat-wave-warning.html
 **Alibaba Sues Pentagon Over China Military Label**\
 `The Chinese tech giant said it had no ties to China’s military and that the U.S. government had violated the law by making that claim.`\
 https://www.nytimes.com/2026/06/24/business/alibaba-pentagon-lawsuit.html
-
-**Trump dice que unos vándalos dañaron el estanque reflectante. Unos documentos internos cuentan otra historia**\
-`Los trabajadores del Servicio de Parques Nacionales encontraron cortes en secciones de espuma, pero no estaban relacionados con el revestimiento ni con las algas.`\
-https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/trump-estanque-reflectante-cuchillo-que-paso.html
 
