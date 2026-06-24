@@ -1,4 +1,8 @@
 **France Identifies First Case of Ebola**\
+`The patient is a doctor who had traveled to the Democratic Republic of Congo, the health ministry said. Workers are racing to trace those who may have had contact.`\
+https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
+
+**France Identifies First Case of Ebola**\
 `The patient had traveled to the Democratic Republic of Congo, the health ministry said. Workers are racing to trace those who may have had contact.`\
 https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
 
