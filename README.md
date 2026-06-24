@@ -1,3 +1,7 @@
+**59% of Americans say they lack confidence in the Iran deal.**\
+`When it comes to the deal, there is a political divide, according to a new Quinnipiac University poll.`\
+https://www.nytimes.com/2026/06/24/us/politics/iran-deal-polling.html
+
 **Who Is Ahead in Colorado's 1st Congressional District?**\
 `Track the latest polls in Colorado's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/colorado-us-house-1-polls-2026.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-re
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
 
-**Tsunami Alerts Issued After 7.2-Magnitude Earthquake Hits Venezuela**\
-`View the location of the quake’s epicenter and shake area.`\
+**Two Major Earthquakes Hit Venezuela, U.S.G.S. Says**\
+`View the location of the quake epicenters and shake areas.`\
 https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
 
 **Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000010988919/ukraine-war-amputees-
 **Cuba Announces Sweeping Overhaul of Struggling Communist Economy, But Obstacles Remain**\
 `The Cuban government announced a major economic restructuring, but experts say most changes would depend on buy-in from the Trump administration.`\
 https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communism-trump.html
-
-**ICC Judges Sue Trump Administration Over Sanctions**\
-`Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
-https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
 
