@@ -1,3 +1,7 @@
+**Trump Cancels Plans to Sign a Bipartisan Housing Bill**\
+`Also, Western Europe is sweltering. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipartisan-housing-bill.html
+
 **The Left Is Ascendant in New York. Swing States Could Be Next.**\
 `Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
 https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
