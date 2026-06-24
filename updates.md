@@ -1,3 +1,15 @@
+**Ex-Hoyer Aide Buoyed by Super PACs Wins Democratic House Primary in Maryland**\
+`Adrian Boafo, a state delegate, won a primary to succeed the retiring Representative Steny Hoyer with help from more than $11 million in spending from pro-Israel and cryptocurrency interests.`\
+https://www.nytimes.com/2026/06/23/us/politics/maryland-5th-district-democratic-primary.html
+
+**Claire Valdez, a Socialist Backed by Mamdani, Wins Key New York Primary**\
+`Ms. Valdez, a first-term state lawmaker, defeated the Brooklyn borough president, Antonio Reynoso, to win an open House seat in a district divided along demographic fault lines.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny7-primary-claire-valdez.html
+
+**Election Live Updates: Two Mamdani Picks Win Closely Watched New York House Primaries**\
+`Brad Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race in which Israel became a top issue. Claire Valdez, a state lawmaker, won the Democratic nomination for a seat being vacated by Representative Nydia Velázquez.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **Thomas DiNapoli Beats 2 Challengers in N.Y. Comptroller Primary**\
 `Mr. DiNapoli, who was challenged from the left by Raj Goyle and Drew Warshaw, is on track to become the longest serving comptroller in New York history.`\
 https://www.nytimes.com/2026/06/23/nyregion/new-york-comptroller-dinapoli.html
