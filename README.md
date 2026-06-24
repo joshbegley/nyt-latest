@@ -2,7 +2,7 @@
 `The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
 
-**Jewish Leaders Wrestle With Israel Critics’ Sweep of N.Y. Primaries**\
+**NY’s Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
 `Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
 https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
 
@@ -10,9 +10,9 @@ https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
 `The burning of fossil fuels is raising temperatures worldwide, but local factors, on land and at sea, determine which regions warm most rapidly.`\
 https://www.nytimes.com/2026/06/24/climate/europe-fastest-warming-continent.html
 
-**Five Big Questions for Democrats After New York’s Primaries**\
+**After New York’s Primary Elections, Democrats Face Five Big Questions**\
 `The anti-establishment left surged. How shaken are party leaders?`\
-https://www.nytimes.com/2026/06/24/us/politics/questions-democrats-new-york-primaries.html
+https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-election-democrats-midterms.html
 
 **The Debate Over Remote Work Isn’t Over**\
 `Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
