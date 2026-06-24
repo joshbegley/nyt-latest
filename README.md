@@ -1,3 +1,7 @@
+**Mamdani Emerges as Kingmaker, Pushing His Slate to a Primary Sweep**\
+`Mayor Zohran Mamdani shook the Democratic establishment by helping drive three progressive candidates to victory.`\
+https://www.nytimes.com/2026/06/24/nyregion/mamdani-politics-influence.html
+
 **Quote of the Day: Vance Balancing Disruptive Boss and a Wily Rival**\
 `Quotation of the Day for Wednesday, June 24, 2026`\
 https://www.nytimes.com/2026/06/24/pageoneplus/quote-of-the-day-vance-balancing-disruptive-boss-and-a-wily-rival.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/23/t-magazine/led-light-therapy-guide.html
 **New Yorkers Vote in High-Stakes Primaries**\
 `Also, the Strait of Hormuz sees a notable uptick in traffic. Here's the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/06/23/briefing/new-york-primary-elections.html
-
-**Trump Is Making Big Claims About the Iran Talks. Iran Keeps Contradicting Him.**\
-`President Trump appears to be describing his preferences as fully negotiated deals, in hopes of locking the Iranians in. The question is whether a succession of such disputes will sink the whole venture.`\
-https://www.nytimes.com/2026/06/23/us/politics/trump-iran-talks-contradictions.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
