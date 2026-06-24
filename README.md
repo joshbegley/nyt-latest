@@ -1,5 +1,5 @@
 **5 Things to Know About Claire Valdez**\
-`Ms. Valdez, a relatively new state lawmaker in New York, received a boost in her House campaign from Mayor Zohran Mamdani, who had recruited her to run.`\
+`Ms. Valdez, a relatively new state lawmaker in New York, won her House primary after a boost from Mayor Zohran Mamdani, who had recruited her to run.`\
 https://www.nytimes.com/2026/06/23/nyregion/who-is-claire-valdez.html
 
 **Trump’s Pick for Top I.R.S. Lawyer Works at Firm That Represents Him**\
