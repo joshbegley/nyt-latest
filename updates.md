@@ -1,3 +1,15 @@
+**In New York Election Results, More Evidence of Eroding Support for Israel**\
+`If the shift in public opinion continues, it could reshape one of the United States’ closest alliances.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-elections-israel-support.html
+
+**California’s Plastic Law Goes to Court: Is It Too Strict or Too Lax?**\
+`The sweeping legislation, fully enacted last month, has been challenged by Republican-led states. Environmental groups have their own complaints.`\
+https://www.nytimes.com/2026/06/24/us/california-single-use-plastics-lawsuits.html
+
+**Temblor en Venezuela: alertas de tsunami tras sismo de magnitud 7,2**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
 **59% of Americans say they lack confidence in the Iran deal.**\
 `When it comes to the deal, there is a political divide, according to a new Quinnipiac University poll.`\
 https://www.nytimes.com/2026/06/24/us/politics/iran-deal-polling.html

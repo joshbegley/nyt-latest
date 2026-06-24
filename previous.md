@@ -1,3 +1,11 @@
+**In New York Election Results, More Evidence of Eroding Support for Israel**\
+`If the shift in public opinion continues, it could reshape one of the United States’ closest alliances.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-elections-israel-support.html
+
+**California’s Plastic Law Goes to Court: Is It Too Strict or Too Lax?**\
+`The sweeping legislation, fully enacted last month, has been challenged by Republican-led states. Environmental groups have their own complaints.`\
+https://www.nytimes.com/2026/06/24/us/california-single-use-plastics-lawsuits.html
+
 **59% of Americans say they lack confidence in the Iran deal.**\
 `When it comes to the deal, there is a political divide, according to a new Quinnipiac University poll.`\
 https://www.nytimes.com/2026/06/24/us/politics/iran-deal-polling.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
 `Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
 https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
 
-**Terremoto de magnitud terremoto de magnitud 7,2 en Venezuela: se emiten alertas de tsunami tras el sismo**\
+**Temblor en Venezuela: alertas de tsunami tras sismo de magnitud 7,2**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/24/us/mayor-sioux-falls-south-dakota.html
 **France Confirms First Ebola Case**\
 `The first case of Ebola was confirmed in France after a doctor, who returned from the Democratic Republic of Congo, tested positive.`\
 https://www.nytimes.com/video/world/europe/100000010988931/france-confirms-first-ebola-case.html
-
-**Ukrainian War Amputees Find Community in Sports**\
-`Groups of Ukrainian veterans who lost limbs in Russia’s invasion have found joy and formed new bonds after returning home through learning new sports.`\
-https://www.nytimes.com/video/world/europe/100000010988919/ukraine-war-amputees-sports.html
-
-**Cuba Announces Sweeping Overhaul of Struggling Communist Economy, But Obstacles Remain**\
-`The Cuban government announced a major economic restructuring, but experts say most changes would depend on buy-in from the Trump administration.`\
-https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communism-trump.html
 

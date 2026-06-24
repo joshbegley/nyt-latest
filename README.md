@@ -1,3 +1,7 @@
+**Meta pone la mira en los mercados de predicción**\
+`Una aplicación experimental, llamada internamente Arena, iría tras los clientes de Polymarket y Kalshi.`\
+https://www.nytimes.com/es/2026/06/24/espanol/negocios/meta-zuckerberg-prediccion-polymarket.html
+
 **In New York Election Results, More Evidence of Eroding Support for Israel**\
 `If the shift in public opinion continues, it could reshape one of the United States’ closest alliances.`\
 https://www.nytimes.com/2026/06/24/us/politics/new-york-elections-israel-support.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/technology/openai-broadcom-chip-jalapeno.html
 **Mayor’s Race in South Dakota’s Largest City Rests on 2 Votes**\
 `With nearly all votes counted, a former Republican legislator was leading a Democratic state senator to be mayor of Sioux Falls, S.D.`\
 https://www.nytimes.com/2026/06/24/us/mayor-sioux-falls-south-dakota.html
-
-**France Confirms First Ebola Case**\
-`The first case of Ebola was confirmed in France after a doctor, who returned from the Democratic Republic of Congo, tested positive.`\
-https://www.nytimes.com/video/world/europe/100000010988931/france-confirms-first-ebola-case.html
 
