@@ -1,3 +1,11 @@
+**Shortage of Chemotherapy Drugs Brings Rationing Fears for Cancer Patients**\
+`Doctors are contending with low supplies and unfilled orders of generic chemotherapy infusions that are central to the treatment of a long list of cancers.`\
+https://www.nytimes.com/2026/06/24/health/chemotherapy-drug-shortage.html
+
+**Cuba anuncia una transformación económica importante**\
+`Los economistas señalan que el plan representa un cambio radical: es la primera vez desde la revolución de 1959, que instauró el régimen comunista, que el gobierno ofrece renunciar al control total del comercio.`\
+https://www.nytimes.com/es/2026/06/24/espanol/america-latina/cuba-medidas-economicas.html
+
 **Postmaster General Confirms Plan to Hold Back Mail Ballots Under Proposed Rule**\
 `The postmaster general, David Steiner, said on Wednesday that under a proposed rule, his agency would not deliver mail ballots in states that decline to hand over voter data.`\
 https://www.nytimes.com/2026/06/24/us/politics/postmaster-mail-ballot-rule-trump-elections.html

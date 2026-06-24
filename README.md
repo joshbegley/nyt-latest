@@ -1,3 +1,7 @@
+**La esposa de Pedro Sánchez está acusada de corrupción. Eso podría beneficiarlo**\
+`A primera vista, el juicio a Begoña Gómez parece un posible tiro de gracia para el presidente español, pero los analistas dicen que se está convirtiendo en una ventaja para su sobrevivencia política.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/espana-pedro-sanchez-esposa-corrupcion.html
+
 **Shortage of Chemotherapy Drugs Brings Rationing Fears for Cancer Patients**\
 `Doctors are contending with low supplies and unfilled orders of generic chemotherapy infusions that are central to the treatment of a long list of cancers.`\
 https://www.nytimes.com/2026/06/24/health/chemotherapy-drug-shortage.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restric
 **The Ebola Outbreak’s Central Mystery: Where Did This Virus Come From?**\
 `Scientists believe that the Bundibugyo virus persists in an animal species, occasionally spilling over into humans. But they have yet to identify the species.`\
 https://www.nytimes.com/2026/06/24/science/ebola-bundibugyo-animal-reservoir.html
-
-**A Billionaire’s Basquiat Collection Goes Up at Pérez Art Museum Miami**\
-`Ken Griffin, the hedge fund manager, looks for artworks with a “wow” factor, never mind the number of zeros on the price tag. Ten of his Basquiats are on loan to the Pérez Art Museum Miami.`\
-https://www.nytimes.com/2026/06/24/arts/design/basquiat-ken-griffin-perez-art-museum.html
 
