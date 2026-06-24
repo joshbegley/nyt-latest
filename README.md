@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/23/nyregion/ny13-darializa-avila-chevalier-espai
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/elections/100000010988086/24vid-Chevalier-embed-50161.html
 
-**Trump-Backed Sticker C.E.O. Wins House Primary in New York**\
+**Trump-Backed Sticker Magnate Wins House Primary in New York**\
 `Anthony Constantino defeated Assemblyman Robert Smullen, the state Republican Party’s chosen candidate, in a right-leaning upstate district.`\
 https://www.nytimes.com/2026/06/23/nyregion/stefanik-ny21-primary-constantino.html
 
