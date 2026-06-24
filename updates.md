@@ -1,3 +1,23 @@
+**Quote of the Day: Vance Balancing Disruptive Boss and a Wily Rival**\
+`Quotation of the Day for Wednesday, June 24, 2026`\
+https://www.nytimes.com/2026/06/24/pageoneplus/quote-of-the-day-vance-balancing-disruptive-boss-and-a-wily-rival.html
+
+**With a Turkish ‘Abrazo,’ Istanbul Ascends as a Tango Capital**\
+`Istanbul’s many tango schools, clubs and skilled dancers have won the city recognition, even among Argentine maestros, as a global tango destination.`\
+https://www.nytimes.com/2026/06/24/world/europe/turkey-tango.html
+
+**Myanmar’s Civil War Has Become an Apocalypse**\
+`Overshadowed by conflicts in Ukraine, Gaza and Lebanon, the fighting in Myanmar’s isolated heartland has reached new depths.`\
+https://www.nytimes.com/2026/06/24/world/asia/myanmar-war-rebels-airstrikes.html
+
+**What to Know About Myanmar’s Chaotic War**\
+`The Southeast Asian nation recently experienced its highest monthly civilian death toll since the war began in 2021.`\
+https://www.nytimes.com/2026/06/24/world/asia/myanmar-civil-war-explained.html
+
+**On the Front Lines of Myanmar’s Forgotten War**\
+`Our Times correspondent, Hannah Beech, travels to the center of the armed resistance movement in Myanmar and meets rebel fighters who are outgunned and undermanned after years of fighting in a civil war.`\
+https://www.nytimes.com/video/world/asia/100000010633558/myanmar-civil-war.html
+
 **McClain Delaney Wins Democratic House Primary in Maryland Against Trone**\
 `Representative April McClain Delaney defeated David Trone, who lent himself $25 million in his unsuccessful bid to oust the woman who had succeeded him in the House.`\
 https://www.nytimes.com/2026/06/23/us/politics/delaney-trone-maryland-democratic-primary.html

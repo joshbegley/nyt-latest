@@ -1,3 +1,23 @@
+**Quote of the Day: Vance Balancing Disruptive Boss and a Wily Rival**\
+`Quotation of the Day for Wednesday, June 24, 2026`\
+https://www.nytimes.com/2026/06/24/pageoneplus/quote-of-the-day-vance-balancing-disruptive-boss-and-a-wily-rival.html
+
+**With a Turkish ‘Abrazo,’ Istanbul Ascends as a Tango Capital**\
+`Istanbul’s many tango schools, clubs and skilled dancers have won the city recognition, even among Argentine maestros, as a global tango destination.`\
+https://www.nytimes.com/2026/06/24/world/europe/turkey-tango.html
+
+**Myanmar’s Civil War Has Become an Apocalypse**\
+`Overshadowed by conflicts in Ukraine, Gaza and Lebanon, the fighting in Myanmar’s isolated heartland has reached new depths.`\
+https://www.nytimes.com/2026/06/24/world/asia/myanmar-war-rebels-airstrikes.html
+
+**What to Know About Myanmar’s Chaotic War**\
+`The Southeast Asian nation recently experienced its highest monthly civilian death toll since the war began in 2021.`\
+https://www.nytimes.com/2026/06/24/world/asia/myanmar-civil-war-explained.html
+
+**On the Front Lines of Myanmar’s Forgotten War**\
+`Our Times correspondent, Hannah Beech, travels to the center of the armed resistance movement in Myanmar and meets rebel fighters who are outgunned and undermanned after years of fighting in a civil war.`\
+https://www.nytimes.com/video/world/asia/100000010633558/myanmar-civil-war.html
+
 **McClain Delaney Wins Democratic House Primary in Maryland Against Trone**\
 `Representative April McClain Delaney defeated David Trone, who lent himself $25 million in his unsuccessful bid to oust the woman who had succeeded him in the House.`\
 https://www.nytimes.com/2026/06/23/us/politics/delaney-trone-maryland-democratic-primary.html
@@ -165,22 +185,6 @@ https://www.nytimes.com/2026/06/23/briefing/new-york-primary-elections.html
 **Trump Is Making Big Claims About the Iran Talks. Iran Keeps Contradicting Him.**\
 `President Trump appears to be describing his preferences as fully negotiated deals, in hopes of locking the Iranians in. The question is whether a succession of such disputes will sink the whole venture.`\
 https://www.nytimes.com/2026/06/23/us/politics/trump-iran-talks-contradictions.html
-
-**How Shannon Manson, a Security Worker During the World Cup, Became Known in Jordan**\
-`Shannon Manson cheerily ushered a man from Jordan’s delegation away from fans. It turns out he was a prince, and now she is an unexpected internet sensation.`\
-https://www.nytimes.com/2026/06/23/sports/soccer/jordan-hilton-hotel-worker.html
-
-**Brad Lander Isn’t an Incumbent. But He Has Run Like One.**\
-`Mr. Lander has longstanding ties to the district in parts of Brooklyn and Lower Manhattan where he is challenging Representative Dan Goldman.`\
-https://www.nytimes.com/2026/06/23/nyregion/lander-goldman-house-race-nyc.html
-
-**Jill Smokler, Who Blogged as Scary Mommy, Dies at 48**\
-`A mother of three, she turned a whim into an online powerhouse, sharing a warts-and-all look at parenting that attracted millions of readers.`\
-https://www.nytimes.com/2026/06/23/parenting/jill-smokler-dead.html
-
-**A Challenger to Ritchie Torres Struggled to Gain Traction**\
-`Mr. Torres, who represents a House district in the Bronx, vastly out-raised Michael Blake, a former mayoral candidate.`\
-https://www.nytimes.com/2026/06/23/nyregion/ritchie-torres-michael-blake-primary-bronx.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
