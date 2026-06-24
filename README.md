@@ -147,7 +147,7 @@ https://www.nytimes.com/2026/06/24/crosswords/connections-companion-1110.html
 https://www.nytimes.com/2026/06/24/crosswords/wordle-review-1832.html
 
 **Rubio Seeks to Reassure Persian Gulf Allies on Iran Deal**\
-`Secretary of State Marco Rubio was scheduled to meet with leaders in Abu Dhabi, Kuwait and Bahrain, which were targeted by Iranian attacks during the war.`\
+`Secretary of State Marco Rubio was scheduled to meet with leaders in the United Arab Emirates, Kuwait and Bahrain, which were targeted by Iranian attacks during the war.`\
 https://www.nytimes.com/2026/06/24/world/middleeast/middle-east-iran-us-rubio.html
 
 **En busca de pistas en la juventud de Jeffrey Epstein**\
