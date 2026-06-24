@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/24/world/middleeast/israel-lebanon-hezbollah-fig
 `The European Union’s chief aviation regulator ordered five A380 superjumbo jets to be grounded immediately.`\
 https://www.nytimes.com/2026/06/24/business/airbus-a380-wing-cracks-inspection.html
 
-**Calling Democrats ‘Communists,’ Trump Keeps Close Eye on N.Y. Primaries**\
-`The president posted repeatedly into Wednesday morning to label Democrats as extreme, delight in his rivals’ losses and express some apparent envy of Mayor Zohran Mamdani.`\
-https://www.nytimes.com/2026/06/24/us/elections/trump-new-york-democratic-primaries-mamdani.html
-
