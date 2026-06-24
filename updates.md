@@ -1,3 +1,15 @@
+**Why Is Europe the Fastest-Warming Continent**\
+`The burning of fossil fuels is raising temperatures worldwide, but local factors, on land and at sea, determine which regions warm most rapidly.`\
+https://www.nytimes.com/2026/06/24/climate/europe-fastest-warming-continent.html
+
+**Five Big Questions for Democrats After New York’s Primaries**\
+`The anti-establishment left surged. How shaken are party leaders?`\
+https://www.nytimes.com/2026/06/24/us/politics/questions-democrats-new-york-primaries.html
+
+**See Record-Breaking Extreme Heat Wave Across Europe in Photos**\
+`Temperature records were broken in several European countries on Wednesday.`\
+https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
+
 **The Debate Over Remote Work Isn’t Over**\
 `Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
 https://www.nytimes.com/2026/06/24/opinion/remote-work.html

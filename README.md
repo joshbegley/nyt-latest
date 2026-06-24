@@ -1,3 +1,11 @@
+**After Bruising Primaries in New York, Democrats Look to November Elections**\
+`The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
+https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
+
+**Jewish Leaders Wrestle With Israel Critics’ Sweep of N.Y. Primaries**\
+`Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
+https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
+
 **Why Is Europe the Fastest-Warming Continent**\
 `The burning of fossil fuels is raising temperatures worldwide, but local factors, on land and at sea, determine which regions warm most rapidly.`\
 https://www.nytimes.com/2026/06/24/climate/europe-fastest-warming-continent.html
@@ -12,7 +20,7 @@ https://www.nytimes.com/2026/06/24/opinion/remote-work.html
 
 **Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-northern-california.html
+https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
 
 **El calor extremo en Europa afecta las actividades escolares**\
 `En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/podcasts/the-headlines/heatwave-europe-congre
 **NYT Strands Hints for June 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
 https://www.nytimes.com/2026/06/24/crosswords/strands-sidekick-844.html
-
-**NYT Connections Answers for June 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
-https://www.nytimes.com/2026/06/24/crosswords/connections-companion-1110.html
-
-**Today’s Wordle Hints for June 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
-https://www.nytimes.com/2026/06/24/crosswords/wordle-review-1832.html
 

@@ -1,3 +1,11 @@
+**Why Is Europe the Fastest-Warming Continent**\
+`The burning of fossil fuels is raising temperatures worldwide, but local factors, on land and at sea, determine which regions warm most rapidly.`\
+https://www.nytimes.com/2026/06/24/climate/europe-fastest-warming-continent.html
+
+**Five Big Questions for Democrats After New York’s Primaries**\
+`The anti-establishment left surged. How shaken are party leaders?`\
+https://www.nytimes.com/2026/06/24/us/politics/questions-democrats-new-york-primaries.html
+
 **The Debate Over Remote Work Isn’t Over**\
 `Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
 https://www.nytimes.com/2026/06/24/opinion/remote-work.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-married-i-had-a-girlfriend.html
 
-**Europe Is Sweltering. Here’s What That Looks Like**\
+**See Record-Breaking Extreme Heat Wave Across Europe in Photos**\
 `Temperature records were broken in several European countries on Wednesday.`\
 https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/crosswords/connections-companion-1110.html
 **Today’s Wordle Hints for June 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, June 25, 2026.`\
 https://www.nytimes.com/2026/06/24/crosswords/wordle-review-1832.html
-
-**Rubio Seeks to Reassure Persian Gulf Allies on Iran Deal**\
-`Secretary of State Marco Rubio was scheduled to meet with leaders in the United Arab Emirates, Kuwait and Bahrain, which were targeted by Iranian attacks during the war.`\
-https://www.nytimes.com/2026/06/24/world/middleeast/middle-east-iran-us-rubio.html
-
-**En busca de pistas en la juventud de Jeffrey Epstein**\
-`“Jeff” creció en un mundo cerrado. Se juntaba con unos cuantos chicos inteligentes y estaba obsesionado con las chicas. ¿Se ocultaba un monstruo a la vista de todos?`\
-https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/infancia-juventud-jeffrey-epstein.html
 
