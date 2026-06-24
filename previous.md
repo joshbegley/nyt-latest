@@ -1,3 +1,11 @@
+**Three Parties, Two Boroughs, One Message: Mamdani’s Gamble Pays Off**\
+`From Brooklyn to Manhattan, Mayor Zohran Mamdani made stops at primary victory parties for the three congressional candidates on his slate.`\
+https://www.nytimes.com/2026/06/24/nyregion/mamdani-gamble-pays-off.html
+
+**Josh Johnson Muses on the Lincoln Memorial Reflecting Pool**\
+`“Hey, kids, remember you wanted to go to Disneyland? Instead, we’re going to go see the world’s largest kombucha!” Johnson said of the pool renovation as a tourist stop.`\
+https://www.nytimes.com/2026/06/24/arts/television/josh-johnson-trump-reflecting-pool.html
+
 **Insurgency Over Incumbency: 7 Takeaways From New York’s Primaries**\
 `All three congressional candidates who were backed by Mayor Zohran Mamdani won in Tuesday’s primary, bolstering his political movement.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primary-takeaways.html
@@ -181,10 +189,6 @@ https://www.nytimes.com/2026/06/23/us/elections/when-to-expect-election-results-
 **Services Sold to Boost I.V.F. Odds Backed by Little Evidence, Study Finds**\
 `Some patients spend thousands of dollars on these extra ‘add-on’ procedures during fertility treatment.`\
 https://www.nytimes.com/2026/06/23/well/live/ivf-fertility-treatment-study.html
-
-**U.S. Eases Travel Restrictions on Iran’s World Cup Team**\
-`The Iranians will be allowed to enter the United States two days, instead of one, before a pivotal game in Seattle on Friday, officials said.`\
-https://www.nytimes.com/2026/06/23/us/iran-world-cup-travel-restrictions.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\

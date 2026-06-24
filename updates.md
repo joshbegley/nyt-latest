@@ -1,3 +1,11 @@
+**Three Parties, Two Boroughs, One Message: Mamdani’s Gamble Pays Off**\
+`From Brooklyn to Manhattan, Mayor Zohran Mamdani made stops at primary victory parties for the three congressional candidates on his slate.`\
+https://www.nytimes.com/2026/06/24/nyregion/mamdani-gamble-pays-off.html
+
+**Josh Johnson Muses on the Lincoln Memorial Reflecting Pool**\
+`“Hey, kids, remember you wanted to go to Disneyland? Instead, we’re going to go see the world’s largest kombucha!” Johnson said of the pool renovation as a tourist stop.`\
+https://www.nytimes.com/2026/06/24/arts/television/josh-johnson-trump-reflecting-pool.html
+
 **Insurgency Over Incumbency: 7 Takeaways From New York’s Primaries**\
 `All three congressional candidates who were backed by Mayor Zohran Mamdani won in Tuesday’s primary, bolstering his political movement.`\
 https://www.nytimes.com/2026/06/24/nyregion/new-york-primary-takeaways.html
