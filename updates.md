@@ -1,3 +1,27 @@
+**A Billionaire’s Basquiat Collection Goes Up at Pérez Art Museum Miami**\
+`Ken Griffin, the hedge fund manager, looks for artworks with a “wow” factor, never mind the number of zeros on the price tag. Ten of his Basquiats are on loan to the Pérez Art Museum Miami.`\
+https://www.nytimes.com/2026/06/24/arts/design/basquiat-ken-griffin-perez-art-museum.html
+
+**Bahrain Restricts Shiite Holy Day Amid Iran War Crackdown**\
+`The restrictions are the latest in a string of measures Bahrain has taken against Shiite citizens in the Gulf country, with many accused of having loyalties to Iran.`\
+https://www.nytimes.com/2026/06/24/world/middleeast/bahrain-ashura-restrictions-shiite.html
+
+**The Slow Cooker Is Your Sous-Chef in This Shreddy Hoisin Garlic Chicken**\
+`This recipe requires almost no handiwork, except for chopping garlic and clicking a button.`\
+https://www.nytimes.com/2026/06/24/dining/the-slow-cooker-is-your-sous-chef-in-this-shreddy-hoisin-garlic-chicken.html
+
+**‘Henry VI,’ ‘Camping’ and 6 More Shows to See Now**\
+`New York in June is a bonanza of Off and Off Off Broadway productions. Here’s our guide to shows we recommend, many in the city’s coziest spaces (and closing soon).`\
+https://www.nytimes.com/2026/06/24/theater/off-broadway-shows-to-see-now.html
+
+**President Narcissus and the Fetid Reflecting Pool**\
+`Why the president’s latest renovation project is so irresistible and resonant.`\
+https://www.nytimes.com/2026/06/24/opinion/trump-reflecting-pool-washington.html
+
+**The Wife of Spain’s Leader Is Accused of Graft. It May Actually Help Him.**\
+`People close to Prime Minister Pedro Sánchez keep being investigated for corruption. Analysts say weaknesses in the latest case could help him discredit the others.`\
+https://www.nytimes.com/2026/06/24/world/europe/spain-sanchez-corruption.html
+
 **Calling Democrats ‘Communists,’ Trump Keeps Close Eye on N.Y. Primaries**\
 `The president posted repeatedly into Wednesday morning to label Democrats as extreme, delight in his rivals’ losses and express some apparent envy of Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/06/24/us/elections/trump-new-york-democratic-primaries-mamdani.html

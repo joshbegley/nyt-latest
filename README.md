@@ -1,3 +1,11 @@
+**Trump Refuses to Sign Housing Bill Until Unpopular Voting Restrictions Pass Congress**\
+`The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
+
+**The Ebola Outbreak’s Central Mystery: Where Did This Virus Come From?**\
+`Scientists believe that the Bundibugyo virus persists in an animal species, occasionally spilling over into humans. But they have yet to identify the species.`\
+https://www.nytimes.com/2026/06/24/science/ebola-bundibugyo-animal-reservoir.html
+
 **A Billionaire’s Basquiat Collection Goes Up at Pérez Art Museum Miami**\
 `Ken Griffin, the hedge fund manager, looks for artworks with a “wow” factor, never mind the number of zeros on the price tag. Ten of his Basquiats are on loan to the Pérez Art Museum Miami.`\
 https://www.nytimes.com/2026/06/24/arts/design/basquiat-ken-griffin-perez-art-museum.html
@@ -46,8 +54,8 @@ https://www.nytimes.com/2026/06/24/style/milan-fashion-week-menswear-trends.html
 `A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
 https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
 
-**N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiry**\
-`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of department, according to people with knowledge of the matter.`\
+**N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiries**\
+`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of the department, according to people with knowledge of the matter.`\
 https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
 
 **Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/realestate/homes-for-sale-in-texas-missouri-n
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are a four-bedroom in Metuchen, N.J., and a three-bedroom in Bronxville, N.Y.`\
 https://www.nytimes.com/2026/06/24/realestate/housing-market-near-nyc.html
-
-**An Artist Creates Moments for Play, and Solidarity**\
-`From the Queens Museum to Times Square, the British artist Sonia Boyce shows art intimately connected to community.`\
-https://www.nytimes.com/2026/06/24/arts/design/sonia-boyce-queens-museum-art.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in the East Village, East Harlem and Crown Heights.`\
-https://www.nytimes.com/2026/06/24/realestate/housing-market-nyc.html
 
