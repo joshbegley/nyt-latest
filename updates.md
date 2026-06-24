@@ -1,3 +1,7 @@
+**Here Are 8 New York State Legislative Races to Watch**\
+`The left and moderate wings of the Democratic Party are fighting it out in several races around New York City.`\
+https://www.nytimes.com/2026/06/23/nyregion/new-york-state-legislature-races-to-watch.html
+
 **Clive Davis and Whitney Houston’s Successful and Tragic Story**\
 `The record industry titan guided Houston from a young star to worldwide phenomenon. But their story together was not without controversy.`\
 https://www.nytimes.com/2026/06/23/arts/music/clive-davis-whitney-houston.html
