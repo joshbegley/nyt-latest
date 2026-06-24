@@ -1,3 +1,7 @@
+**¿La inteligencia artificial puede encontrar al próximo Pelé?**\
+`Nuevas aplicaciones prometen ampliar la búsqueda de jóvenes futbolistas y hacer más equitativa la detección de talento en el país del fútbol.`\
+https://www.nytimes.com/es/2026/06/24/espanol/ciencia-y-tecnologia/brasil-futbol-ia-santos.html
+
 **Este Mundial tiene pausas de hidratación. Muchos aficionados prefieren saltárselas**\
 `Además de la molestia por los anuncios adicionales, a muchos seguidores del deporte les disgusta que se interrumpa el ritmo del partido.`\
 https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-pausa-hidratacion-criticas.html
@@ -82,7 +86,7 @@ https://www.nytimes.com/2026/06/24/us/world-cup-hottest-match-1994.html
 `Wearables can offer rough information about a person’s health, experts say, but only some metrics are medically useful.`\
 https://www.nytimes.com/2026/06/24/well/health-wearables-doctors-rfk-apple-watch.html
 
-**Book Review: New Fantasy Novels**\
+**Thrilling Fantasy Novels to Take You on Wild Adventures**\
 `Our columnist reviews “The Tapestry of Fate” and other new fantasy books.`\
 https://www.nytimes.com/2026/06/24/books/review/new-fantasy-books.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/business/stocks-oil-gas-prices.html
 **China Detained 2 Japanese on Suspicion of Smuggling**\
 `The Japanese nationals were detained in May in the northeastern Chinese city of Dalian, Japan’s government said, amid tensions between the two countries.`\
 https://www.nytimes.com/2026/06/24/world/asia/japan-china-detained-smuggling-rare-earths.html
-
-**Word of the Day: dilatory**\
-`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/24/learning/word-of-the-day-dilatory.html
 
