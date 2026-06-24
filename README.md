@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010988119/24vid-met-elex-lander-sot1-95253.html
+
+**5 Things to Know About Darializa Avila Chevalier**\
+`Ms. Avila Chevalier pulled off the one of the biggest upsets in a New York House primary since Alexandria Ocasio-Cortez defeated Joseph Crowley in 2018.`\
+https://www.nytimes.com/2026/06/23/nyregion/who-is-darializa-avila-chevalier.html
+
 **Darializa Avila Chevalier, a Mamdani Ally, Ousts Espaillat in Primary**\
 `The 32-year-old activist built a robust ground game powered by support from Mayor Zohran Mamdani. She will double the number of democratic socialists in Congress.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny13-darializa-avila-chevalier-espaillat.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/23/business/meta-ai-government-reviews-security.
 **N.S.A. Lost Access to Powerful A.I. Model Amid Anthropic Dispute**\
 `A recent episode underscored the Trump administration’s increasing reliance on advanced A.I. systems for cybersecurity even as it battles a leading U.S. developer.`\
 https://www.nytimes.com/2026/06/23/us/politics/nsa-lost-access-anthropic-tool.html
-
-**Is the Australian Prime Minister’s Pragmatism Enough in Uncertain Times?**\
-`Buffeted by global turmoil and a populist far-right ascendance at home, Anthony Albanese is trying to keep the country feeling hopeful.`\
-https://www.nytimes.com/2026/06/23/world/australia/australia-albanese-prime-minister-popularity.html
-
-**Comedian Guy Branum on ‘What the Old Gays Remember’**\
-`Telling tales from the ancient past of 1997, the comedian Guy Branum is teaching Gen Z what their forefathers knew.`\
-https://www.nytimes.com/2026/06/23/style/guy-branum-what-old-gays-remember.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
