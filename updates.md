@@ -1,3 +1,11 @@
+**‘“The Boy in the Striped Pajamas”: The Cost of Fictionalizing the Holocaust’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Orly Kochinski, age 16.`\
+https://www.nytimes.com/2026/06/24/learning/the-boy-in-the-striped-pajamas-the-cost-of-fictionalizing-the-holocaust.html
+
+**‘Why Students Are Forced to Fight Hunger Themselves’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Mindy Lux, age 16.`\
+https://www.nytimes.com/2026/06/24/learning/why-students-are-forced-to-fight-hunger-themselves.html
+
 **Great New Historical Fiction**\
 `Our columnist looks at the best recent releases.`\
 https://www.nytimes.com/2026/06/24/books/review/new-historical-fiction.html

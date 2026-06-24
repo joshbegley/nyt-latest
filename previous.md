@@ -1,3 +1,11 @@
+**‘“The Boy in the Striped Pajamas”: The Cost of Fictionalizing the Holocaust’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Orly Kochinski, age 16.`\
+https://www.nytimes.com/2026/06/24/learning/the-boy-in-the-striped-pajamas-the-cost-of-fictionalizing-the-holocaust.html
+
+**‘Why Students Are Forced to Fight Hunger Themselves’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Mindy Lux, age 16.`\
+https://www.nytimes.com/2026/06/24/learning/why-students-are-forced-to-fight-hunger-themselves.html
+
 **Your Questions, Answered**\
 `We’re taking on reader queries about the news.`\
 https://www.nytimes.com/2026/06/24/briefing/your-questions-answered.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/style/usha-vance-maga-pregnancy-style.html
 **Podcasts are Changing the Doctor-Patient Dynamic. Is That a Good Thing?**\
 `The dynamic in the exam room is changing as more people show up ready to talk about what they’ve heard on podcasts.`\
 https://www.nytimes.com/2026/06/24/well/podcasts-patients-doctors-health.html
-
-**Iran’s Loyalists Promote a Wider Nationalism, Unveiled Women Included**\
-`Government supporters are showing off new ties with alleged former dissidents in a bid to show that they can withstand enemies at home as well as abroad.`\
-https://www.nytimes.com/2026/06/24/world/europe/iran-war-regime-nationalism.html
-
-**Mamdani Allies Sweep New York Primaries**\
-`Mayor Zohran Mamdani’s progressive coalition had a big night on Tuesday. Brad Lander, Darializa Avila Chevalier and Claire Valdez won their Democratic House primaries.`\
-https://www.nytimes.com/video/us/elections/100000010988238/mamdani-allies-sweep-new-york-primaries.html
 
