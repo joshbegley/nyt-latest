@@ -1,3 +1,19 @@
+**See Where Mamdani’s Slate of House Hopefuls Did Best**\
+`Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
+https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
+
+**Mapa: un terremoto de magnitud 7,1 sacude Venezuela**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
+**Map: 7.1-Magnitude Earthquake Shakes Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
+**Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
+`The ruling of a three-judge appeals panel in Michigan was the most significant rebuke yet to the Department of Justice’s effort to find ineligible voters in state voter rolls.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-voter-rolls-data-ruling.html
+
 **Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
 `El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
 https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-california.html
 **El calor extremo en Europa afecta las actividades escolares**\
 `En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
 https://www.nytimes.com/es/2026/06/24/espanol/mundo/europa-ola-calor-escuelas.html
-
-**Eclipse solar en España: lugares para ver el espectáculo**\
-`En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
-https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
-
-**Utah Senate President Loses Republican Primary After Data Center Backlash**\
-`The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
-https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
-
-**With a Proposed $250 Bill, Trump Reimagines America by Putting Himself on Its Money**\
-`Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
-
-**The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
-`For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
-https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
 

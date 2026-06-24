@@ -1,3 +1,19 @@
+**See Where Mamdani’s Slate of House Hopefuls Did Best**\
+`Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
+https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
+
+**Mapa: un terremoto de magnitud 7,1 sacude Venezuela**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
+**Map: 7.1-Magnitude Earthquake Shakes Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
+**Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
+`The ruling of a three-judge appeals panel in Michigan was the most significant rebuke yet to the Department of Justice’s effort to find ineligible voters in state voter rolls.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-voter-rolls-data-ruling.html
+
 **Democrats Are Done With Caution**\
 `Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
 https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
