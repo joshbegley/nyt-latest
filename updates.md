@@ -1,3 +1,11 @@
+**Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
+`The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
+https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
+
+**7 Lessons and Consequences of the Iran War**\
+`Green energy, modern war and American hegemony`\
+https://www.nytimes.com/2026/06/24/opinion/iran-war-lessons.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Naming the moon, Sometimes Island and laughing in real life.`\
 https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthropeum.html
