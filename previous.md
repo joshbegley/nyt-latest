@@ -1,3 +1,11 @@
+**France Records Hottest Day Ever**\
+`France on Tuesday recorded its hottest day ever amid a deadly heat wave that has disrupted the country’s power supply and forced attractions to close early.`\
+https://www.nytimes.com/video/world/europe/100000010988531/france-heat-wave-record-weather.html
+
+**The Must-Know Trends and Stories from Milan Fashion Week**\
+`From would-be cabana boys to a Rugby revival, here are the highlights from this season’s men's shows.`\
+https://www.nytimes.com/2026/06/24/style/milan-fashion-week-menswear-trends.html
+
 **My Sister Is Delusional and an Attention Hog. Can I Ignore Her Texts?**\
 `A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
 https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/books/review/new-historical-fiction.html
 **U.S. World Cup Cities Are on a Counterdrone Spending Spree**\
 `FEMA has given cities and states $250 million to protect the World Cup from airborne threats. That equipment will remain in place after the tournament.`\
 https://www.nytimes.com/2026/06/24/business/us-world-cup-cities-are-on-a-counterdrone-spending-spree.html
-
-**A.I. Riches Fuel Economic Divide in Asia’s Chip Powerhouses**\
-`A.I. demand is driving stock market gains and booming exports in South Korea and Taiwan. But the rest of the economy is being left behind.`\
-https://www.nytimes.com/2026/06/24/business/taiwan-korea-ai-chips.html
-
-**Lions, Tigers and Bomb-Sniffing Dogs: Zoos Face Scores of Swatting Calls**\
-`About 40 zoos and aquariums across the United States have responded to bombing and shooting threats in recent months that turned out to be hoaxes.`\
-https://www.nytimes.com/2026/06/24/us/zoos-aquariums-swatting.html
 

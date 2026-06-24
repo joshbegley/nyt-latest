@@ -1,3 +1,7 @@
+**Calling Democrats ‘Communists,’ Trump Keeps Close Eye on N.Y. Primaries**\
+`The president posted repeatedly into Wednesday morning to label Democrats as extreme and delight in his rivals’ losses. But he made no mention of Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/06/24/us/elections/trump-new-york-democratic-primaries-mamdani.html
+
 **France Records Hottest Day Ever**\
 `France on Tuesday recorded its hottest day ever amid a deadly heat wave that has disrupted the country’s power supply and forced attractions to close early.`\
 https://www.nytimes.com/video/world/europe/100000010988531/france-heat-wave-record-weather.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/business/taiwan-chips-boom.html
 **Great New Historical Fiction**\
 `Our columnist looks at the best recent releases.`\
 https://www.nytimes.com/2026/06/24/books/review/new-historical-fiction.html
-
-**U.S. World Cup Cities Are on a Counterdrone Spending Spree**\
-`FEMA has given cities and states $250 million to protect the World Cup from airborne threats. That equipment will remain in place after the tournament.`\
-https://www.nytimes.com/2026/06/24/business/us-world-cup-cities-are-on-a-counterdrone-spending-spree.html
 

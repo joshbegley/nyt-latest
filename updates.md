@@ -1,3 +1,11 @@
+**France Records Hottest Day Ever**\
+`France on Tuesday recorded its hottest day ever amid a deadly heat wave that has disrupted the country’s power supply and forced attractions to close early.`\
+https://www.nytimes.com/video/world/europe/100000010988531/france-heat-wave-record-weather.html
+
+**The Must-Know Trends and Stories from Milan Fashion Week**\
+`From would-be cabana boys to a Rugby revival, here are the highlights from this season’s men's shows.`\
+https://www.nytimes.com/2026/06/24/style/milan-fashion-week-menswear-trends.html
+
 **N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiry**\
 `The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of department, according to people with knowledge of the matter.`\
 https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
