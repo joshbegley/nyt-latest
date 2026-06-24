@@ -1,3 +1,7 @@
+**Insurgency Over Incumbency: 7 Takeaways From New York’s Primaries**\
+`All three congressional candidates who were backed by Mayor Zohran Mamdani won in Tuesday’s primary, bolstering his political movement.`\
+https://www.nytimes.com/2026/06/24/nyregion/new-york-primary-takeaways.html
+
 **El fiasco de Trump con Irán podría salvar a EE. UU. de la próxima guerra**\
 `El fracaso militar y político del conflicto deja un legado inesperado: una aversión duradera a la guerra que podría abrir paso, por fin, a una diplomacia seria.`\
 https://www.nytimes.com/es/2026/06/24/espanol/opinion/trump-guerra-iran-fracaso.html
