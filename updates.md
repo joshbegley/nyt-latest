@@ -1,3 +1,35 @@
+**Trump dice que unos vándalos dañaron el estanque reflectante. Unos documentos internos cuentan otra historia**\
+`Los trabajadores del Servicio de Parques Nacionales encontraron cortes en secciones de espuma, pero no estaban relacionados con el revestimiento ni con las algas.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/trump-estanque-reflectante-cuchillo-que-paso.html
+
+**El trabajo remoto ha ayudado a toda una generación de padres y madres**\
+`Hay indicios de que un entorno laboral más flexible y orientado a la familia ha beneficiado a las personas con hijos, a las que cuidan de padres mayores y, sobre todo, a las madres.`\
+https://www.nytimes.com/es/2026/06/24/espanol/teletrabajo-crianza-conciliacion-laboral.html
+
+**Shirley Lord, Beauty Editor, Novelist and Society Fixture, Dies at 93**\
+`An early champion of the mind-body connection, she held influential positions at Vogue, wrote steamy novels and regularly appeared in the tabloids.`\
+https://www.nytimes.com/2026/06/24/style/shirley-lord-dead.html
+
+**The Pursuit of Immortality in The Times**\
+`William McDonald, who recently retired as the obituaries editor after nearly two decades, shares how subjects are chosen to be remembered in the newspaper.`\
+https://www.nytimes.com/2026/06/24/insider/obituaries-editor.html
+
+**Pregnant and Running for Re-election, a Democrat Faces U.S. Prosecution**\
+`Representative LaMonica McIver was charged with assault after an altercation with immigration agents that resulted in no injuries. She faces up to 17 years in prison.`\
+https://www.nytimes.com/2026/06/24/nyregion/lamonica-mciver-justice-department-prosecution.html
+
+**Dianna Russini Was an N.F.L. ‘Insider.’ Was She Also Out of Bounds?**\
+`Ms. Russini’s closeness to a coach, Mike Vrabel of the New England Patriots, led to her breakup with The Athletic and its parent, The New York Times Company.`\
+https://www.nytimes.com/2026/06/24/nyregion/dianna-russini-mike-vrabel-athletic-new-york-times.html
+
+**NYT Spelling Bee Answers for June 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/24/crosswords/spelling-bee-forum.html
+
+**Exonerated New Yorkers Say Compensation Process Is Traumatic**\
+`They can receive millions of dollars from cities and the state. But sometimes, they must first go on trial again.`\
+https://www.nytimes.com/2026/06/24/nyregion/exonerations-new-york.html
+
 **Who Is Darializa Avila Chevalier?**\
 `Ms. Avila Chevalier pulled off one of the biggest upsets in a New York House primary since Alexandria Ocasio-Cortez defeated Joseph Crowley in 2018.`\
 https://www.nytimes.com/2026/06/23/nyregion/who-is-darializa-avila-chevalier.html

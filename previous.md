@@ -1,3 +1,35 @@
+**Trump dice que unos vándalos dañaron el estanque reflectante. Unos documentos internos cuentan otra historia**\
+`Los trabajadores del Servicio de Parques Nacionales encontraron cortes en secciones de espuma, pero no estaban relacionados con el revestimiento ni con las algas.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/trump-estanque-reflectante-cuchillo-que-paso.html
+
+**El trabajo remoto ha ayudado a toda una generación de padres y madres**\
+`Hay indicios de que un entorno laboral más flexible y orientado a la familia ha beneficiado a las personas con hijos, a las que cuidan de padres mayores y, sobre todo, a las madres.`\
+https://www.nytimes.com/es/2026/06/24/espanol/teletrabajo-crianza-conciliacion-laboral.html
+
+**Shirley Lord, Beauty Editor, Novelist and Society Fixture, Dies at 93**\
+`An early champion of the mind-body connection, she held influential positions at Vogue, wrote steamy novels and regularly appeared in the tabloids.`\
+https://www.nytimes.com/2026/06/24/style/shirley-lord-dead.html
+
+**The Pursuit of Immortality in The Times**\
+`William McDonald, who recently retired as the obituaries editor after nearly two decades, shares how subjects are chosen to be remembered in the newspaper.`\
+https://www.nytimes.com/2026/06/24/insider/obituaries-editor.html
+
+**Pregnant and Running for Re-election, a Democrat Faces U.S. Prosecution**\
+`Representative LaMonica McIver was charged with assault after an altercation with immigration agents that resulted in no injuries. She faces up to 17 years in prison.`\
+https://www.nytimes.com/2026/06/24/nyregion/lamonica-mciver-justice-department-prosecution.html
+
+**Dianna Russini Was an N.F.L. ‘Insider.’ Was She Also Out of Bounds?**\
+`Ms. Russini’s closeness to a coach, Mike Vrabel of the New England Patriots, led to her breakup with The Athletic and its parent, The New York Times Company.`\
+https://www.nytimes.com/2026/06/24/nyregion/dianna-russini-mike-vrabel-athletic-new-york-times.html
+
+**NYT Spelling Bee Answers for June 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/24/crosswords/spelling-bee-forum.html
+
+**Exonerated New Yorkers Say Compensation Process Is Traumatic**\
+`They can receive millions of dollars from cities and the state. But sometimes, they must first go on trial again.`\
+https://www.nytimes.com/2026/06/24/nyregion/exonerations-new-york.html
+
 **Asia Tech Shares Swing Wildly as A.I. Jitters Persist**\
 `The turbulence in Asia’s chip-dominated stock markets highlighted how heavily global equities have come to depend on enthusiasm for artificial intelligence.`\
 https://www.nytimes.com/2026/06/24/business/stocks-oil-gas-prices.html
@@ -165,32 +197,4 @@ https://www.nytimes.com/2026/06/23/nyregion/new-york-state-legislature-races-to-
 **Clive Davis and Whitney Houston’s Successful and Tragic Story**\
 `The record industry titan guided Houston from a young star to worldwide phenomenon. But their story together was not without controversy.`\
 https://www.nytimes.com/2026/06/23/arts/music/clive-davis-whitney-houston.html
-
-**Federal Judge Bars ICE From Making Arrests in Immigration Courts**\
-`The ruling in a class-action lawsuit filed in California applies to immigration courts nationwide.`\
-https://www.nytimes.com/2026/06/23/us/ice-arrests-immigration-courts-california.html
-
-**Alan Wilson Wins Republican Primary for South Carolina Governor**\
-`The runoff was one of the few races this year featuring both candidates endorsed by President Trump. His picks have had mixed results in governor’s contests.`\
-https://www.nytimes.com/2026/06/23/us/south-carolina-governor-alan-wilson.html
-
-**Congress Clears Housing Bill, Cementing a Rare Bipartisan Feat**\
-`A lopsided House vote cleared the measure for President Trump’s signature after a lengthy back and forth and several nearly fatal blows to the legislation.`\
-https://www.nytimes.com/2026/06/23/us/politics/congress-housing-bill.html
-
-**AIPAC, Crypto Cash and Rich Candidates Dominate Maryland House Races**\
-`In two competitive Democratic primaries, well-funded interest groups as well as wealthy candidates themselves have poured tens of millions of dollars into advertising.`\
-https://www.nytimes.com/2026/06/23/us/politics/aipac-crypto-maryland-house-races.html
-
-**Chicken Salad Slaw With Peanuts and Nori**\
-`This no-cook, main-dish slaw is all about texture and toppings. The cabbage and shredded chicken are only the beginning. It also has a double dose of savory nuttiness from nori and peanuts, a creamy peanut-ginger dressing and refreshing scallions and cucumbers.`\
-https://www.nytimes.com/video/dining/100000010987721/chicken-salad-slaw-with-peanuts-and-nori.html
-
-**Areas to Watch in a Complicated South Carolina Primary Runoff**\
-`President Trump has said he supports both Pamela Evette and Alan Wilson in the Republican primary runoff for governor.`\
-https://www.nytimes.com/2026/06/23/us/elections/south-carolina-governor-areas-to-watch.html
-
-**Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
-`Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
-https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
