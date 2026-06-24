@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Naming the moon, Sometimes Island and laughing in real life.`\
+https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthropeum.html
+
 **Read the Indictment of Brooklyn Power Broker Frank Carone**\
 `Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
 https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
 **Senate Rebukes Trump in Vote to Check His War Powers in Iran**\
 `Four Senate Republicans sided with Democrats in a 50-to-48 vote calling for President Trump to end the war in Iran or seek congressional authorization to continue it. The House passed the same measure a few weeks earlier.`\
 https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
-
-**Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
-`Brooklyn federal prosecutors accuse Mr. Carone and his brother of profiting from the city’s migrant crisis. He was the chief of staff to former Mayor Eric Adams.`\
-https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
 
