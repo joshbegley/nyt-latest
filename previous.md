@@ -1,3 +1,15 @@
+**Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
+`El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
+https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html
+
+**Wildfire Risk in Utah and Across the West Is the Highest It’s Been All Year**\
+`Critical conditions are expected through the weekend across Utah, Arizona, Nevada and elsewhere.`\
+https://www.nytimes.com/2026/06/24/weather/utah-wildfires-colorado-smoke.html
+
+**Firefighters Respond to Iron Fire In Utah**\
+`The Iron fire in Eureka, Utah, has burned tens of thousands of acres since it started on Friday.`\
+https://www.nytimes.com/video/us/100000010989882/iron-wildfire-utah-western-us.html
+
 **A Record Sotheby’s Auction Thrills London After a Brexit Hangover**\
 `British auction sales have declined by nearly half since 2015, but Wednesday’s results hint at a return to form for London as an international auction center.`\
 https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
 **The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
 `For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
 https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
-
-**Tiny Love Stories: ‘She Was Married; I Had a Girlfriend’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-married-i-had-a-girlfriend.html
-
-**See Record-Breaking Extreme Heat Wave Across Europe in Photos**\
-`Temperature records were broken in several European countries on Wednesday.`\
-https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
-
-**Pulte Trims Spy Agency, but Spares Bulk of Staff for Now**\
-`Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
-https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
 

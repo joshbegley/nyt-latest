@@ -1,3 +1,15 @@
+**Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
+`El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
+https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html
+
+**Wildfire Risk in Utah and Across the West Is the Highest It’s Been All Year**\
+`Critical conditions are expected through the weekend across Utah, Arizona, Nevada and elsewhere.`\
+https://www.nytimes.com/2026/06/24/weather/utah-wildfires-colorado-smoke.html
+
+**Firefighters Respond to Iron Fire In Utah**\
+`The Iron fire in Eureka, Utah, has burned tens of thousands of acres since it started on Friday.`\
+https://www.nytimes.com/video/us/100000010989882/iron-wildfire-utah-western-us.html
+
 **A Record Sotheby’s Auction Thrills London After a Brexit Hangover**\
 `British auction sales have declined by nearly half since 2015, but Wednesday’s results hint at a return to form for London as an international auction center.`\
 https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis.html
