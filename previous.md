@@ -1,3 +1,11 @@
+**En busca de pistas en la juventud de Jeffrey Epstein**\
+`“Jeff” creció en un mundo cerrado. Se juntaba con unos cuantos chicos inteligentes y estaba obsesionado con las chicas. ¿Se ocultaba un monstruo a la vista de todos?`\
+https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/infancia-juventud-jeffrey-epstein.html
+
+**The Ukraine War Amputees Embracing Wake Boarding and Jujitsu**\
+`As the number of amputees in Ukraine soars, many are bonding by learning new sports, challenging both their bodies and their ideas of what they can do.`\
+https://www.nytimes.com/2026/06/24/world/europe/ukraine-war-amputees-sports.html
+
 **A Show for All Seasons: Henry Moore’s Art, Reborn in Open Air**\
 `At the Kew Royal Botanic Gardens in London, a massive outdoor exhibition reveals a lifelong dialogue in the sculptor’s work between nature and human creations.`\
 https://www.nytimes.com/2026/06/24/arts/design/henry-moore-kew-gardens-london.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/nyregion/dianna-russini-mike-vrabel-athletic-
 **NYT Spelling Bee Answers for June 24, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/24/crosswords/spelling-bee-forum.html
-
-**Exonerated New Yorkers Say Compensation Process Is Traumatic**\
-`They can receive millions of dollars from cities and the state. But sometimes, they must first go on trial again.`\
-https://www.nytimes.com/2026/06/24/nyregion/exonerations-new-york.html
-
-**Asia Tech Shares Swing Wildly as A.I. Jitters Persist**\
-`The turbulence in Asia’s chip-dominated stock markets highlighted how heavily global equities have come to depend on enthusiasm for artificial intelligence.`\
-https://www.nytimes.com/2026/06/24/business/stocks-oil-gas-prices.html
 
