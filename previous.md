@@ -1,3 +1,11 @@
+**NYT Crossword Answers for June 24, 2026**\
+`Two can play at Kevin Curry and Zhou Zhang’s crossword.`\
+https://www.nytimes.com/2026/06/23/crosswords/daily-puzzle-2026-06-24.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000010988016/24vid-met-elex-gowanus-93227.html
+
 **Cait Conley Wins Primary to Face Mike Lawler in N.Y. Swing District**\
 `Flipping the Hudson Valley seat in November would be an important victory for Democrats as they seek to take back control of the House.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny17-primary-cait-conley.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-1-pr
 **Utah Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Utah primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-4-primary.html
-
-**South Carolina Agriculture Commissioner Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-south-carolina-agriculture-commissioner-runoff.html
-
-**Utah Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Utah primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-3-primary.html
 
 **Election Live Updates: Progressive Victories in New York House Primaries Show Mamdani’s Strength**\
 `Mayor Zohran Mamdani backed Brad Lander, who ousted Representative Dan Goldman, and Claire Valdez, a state lawmaker aiming for the seat being vacated by Representative Nydia Velázquez.`\
