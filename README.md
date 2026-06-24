@@ -1,4 +1,8 @@
-**Frank Carone, a Brooklyn Power Broker, Is Arrested in Bribery Scheme**\
+**Senate Rebukes Trump in Vote to Check His War Powers in Iran**\
+`Four Senate Republicans sided with Democrats in a 50-to-48 vote calling for President Trump to end the war in Iran or seek congressional authorization to continue it. The House passed the same measure a few weeks earlier.`\
+https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
+
+**Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
 `Brooklyn federal prosecutors are charging Mr. Carone, his brother and two others in a corruption indictment. He was the chief of staff to former Mayor Eric Adams.`\
 https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/books/review/lifeguard-a-love-story-janet-fas
 **When the World Cup Came to SoFi Stadium, He Got a Backyard View**\
 `SoFi Stadium, the $5 billion event venue near Los Angeles, is on global display for the soccer tournament. But for some who live close by, it is just another headache.`\
 https://www.nytimes.com/2026/06/24/arts/world-cup-sofi-stadium.html
-
-**What’s Behind Broadway’s New Musical Drought?**\
-`Hollywood actors in starry plays, skittish investors and gate-keeping theater owners have all contributed to an unusually tough climate for song-and-dance shows.`\
-https://www.nytimes.com/2026/06/24/theater/broadway-new-musical-theater.html
 
