@@ -2,8 +2,8 @@
 `A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
 https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
 
-**Federal Agents Search Homes of N.Y.P.D. Officials in Corruption Inquiry**\
-`The searches stemmed from an earlier investigation into Jeffrey Maddrey, the former chief of department, according to two people with knowledge of the matter.`\
+**Investigators Search Homes of N.Y.P.D. Officials in Corruption Inquiry**\
+`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of department, according to people with knowledge of the matter.`\
 https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
 
 **Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
