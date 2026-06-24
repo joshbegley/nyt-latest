@@ -1,3 +1,7 @@
+**Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
+`Catastrophic floods that swept the Texas Hill Country last July killed 25 campers, two counselors and the camp’s executive director.`\
+https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
+
 **Senate Rebukes Trump in Vote to Check His War Powers in Iran**\
 `Four Senate Republicans sided with Democrats in a 50-to-48 vote calling for President Trump to end the war in Iran or seek congressional authorization to continue it. The House passed the same measure a few weeks earlier.`\
 https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/us/politics/gay-marriage-backlash-republicans
 **Book Review: ‘Lifeguard,’ by Janet Fash with Clio Chang**\
 `Janet Fash’s memoir is both a sunny coming-of-age story and an exposé of corruption, understaffing and unnecessary deaths at Rockaway Beach.`\
 https://www.nytimes.com/2026/06/24/books/review/lifeguard-a-love-story-janet-fash.html
-
-**When the World Cup Came to SoFi Stadium, He Got a Backyard View**\
-`SoFi Stadium, the $5 billion event venue near Los Angeles, is on global display for the soccer tournament. But for some who live close by, it is just another headache.`\
-https://www.nytimes.com/2026/06/24/arts/world-cup-sofi-stadium.html
 
