@@ -1,3 +1,7 @@
+**In New York’s Seventh Congressional District, Demographics Are Fueling a Competitive Race**\
+`A Democratic primary featuring Antonio Reynoso, Claire Valdez and Julie Won could be defined by the recent influx of young white voters to the district.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny7-house-race-demographic-fault-lines.html
+
 **Here Are 8 New York State Legislative Races to Watch**\
 `The left and moderate wings of the Democratic Party are fighting it out in several races around New York City.`\
 https://www.nytimes.com/2026/06/23/nyregion/new-york-state-legislature-races-to-watch.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-
 **Maryland Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Maryland primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-6-primary.html
-
-**Trump Says Vandals Sabotaged the Reflecting Pool. Internal Documents Raise Doubts.**\
-`The documents do not indicate that the peeling blue coating and algae blooms were caused intentionally.`\
-https://www.nytimes.com/2026/06/23/us/trump-reflecting-pool-green-peeling.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\

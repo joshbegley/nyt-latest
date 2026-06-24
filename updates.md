@@ -1,3 +1,7 @@
+**In New York’s Seventh Congressional District, Demographics Are Fueling a Competitive Race**\
+`A Democratic primary featuring Antonio Reynoso, Claire Valdez and Julie Won could be defined by the recent influx of young white voters to the district.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny7-house-race-demographic-fault-lines.html
+
 **Here Are 8 New York State Legislative Races to Watch**\
 `The left and moderate wings of the Democratic Party are fighting it out in several races around New York City.`\
 https://www.nytimes.com/2026/06/23/nyregion/new-york-state-legislature-races-to-watch.html
