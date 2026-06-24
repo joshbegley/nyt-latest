@@ -1,3 +1,7 @@
+**Trump to Meet With G.O.P. Senators Amid New Divisions**\
+`The president has been unhappy with pushback from Republican senators and a resistance to abandoning the filibuster to pass voting restrictions. His visit comes after the Senate rebuked him on Iran.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-republicans-meeting.html
+
 **Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
 `Catastrophic floods that swept the Texas Hill Country last July killed 25 campers, two counselors and the camp’s executive director.`\
 https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
