@@ -1,3 +1,7 @@
+**House Democrat in Maryland Fends Off Rich Challenger Who Once Held Her Seat**\
+`Representative April McClain Delaney defeated David Trone, who lent himself $25 million in his unsuccessful bid to oust the woman who had succeeded him in the House.`\
+https://www.nytimes.com/2026/06/23/us/politics/delaney-trone-maryland-democratic-primary.html
+
 **Schlossberg’s Defeat Dampens Dream of a Renewed Camelot**\
 `Jack Schlossberg fell well short of his bid to win a highly contested Democratic primary in Manhattan, his campaign hurt by staff defections and missed meetings.`\
 https://www.nytimes.com/2026/06/23/nyregion/schlossberg-loses-camelot.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/23/parenting/jill-smokler-dead.html
 **A Challenger to Ritchie Torres Struggled to Gain Traction**\
 `Mr. Torres, who represents a House district in the Bronx, vastly out-raised Michael Blake, a former mayoral candidate.`\
 https://www.nytimes.com/2026/06/23/nyregion/ritchie-torres-michael-blake-primary-bronx.html
-
-**U.S. Presses Meta to Agree to A.I. Reviews**\
-`Federal officials are urging the lone major tech company holdout to allow government safety evaluations, weeks after ordering Anthropic to pull its latest model.`\
-https://www.nytimes.com/2026/06/23/business/meta-ai-government-reviews-security.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
