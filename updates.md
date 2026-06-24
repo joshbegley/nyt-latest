@@ -1,3 +1,19 @@
+**Who Is Ahead in Colorado's 1st Congressional District?**\
+`Track the latest polls in Colorado's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-1-polls-2026.html
+
+**Democratic Leaders Want the Party to Moderate. Its Base Has Other Ideas.**\
+`The primary victories of leftist Democratic congressional candidates in New York came as some leaders were urging the party to move to the center to broaden its appeal.`\
+https://www.nytimes.com/2026/06/24/us/politics/democratic-progressive-primary-candidates-mamdani.html
+
+**Terremoto de magnitud terremoto de magnitud 7,2 en Venezuela: se emiten alertas de tsunami tras el sismo**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
+
+**Tsunami Alerts Issued After 7.2-Magnitude Earthquake Hits Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
 **Los Angeles Names a New Schools Superintendent After Scandal**\
 `Andres Chait is a district veteran who has helped keep peace with labor unions. He started in the classroom and now runs a district with hundreds of thousands of students.`\
 https://www.nytimes.com/2026/06/24/us/los-angeles-new-school-superintendent-lausd.html

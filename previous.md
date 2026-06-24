@@ -1,3 +1,11 @@
+**Who Is Ahead in Colorado's 1st Congressional District?**\
+`Track the latest polls in Colorado's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-1-polls-2026.html
+
+**Democratic Leaders Want the Party to Moderate. Its Base Has Other Ideas.**\
+`The primary victories of leftist Democratic congressional candidates in New York came as some leaders were urging the party to move to the center to broaden its appeal.`\
+https://www.nytimes.com/2026/06/24/us/politics/democratic-progressive-primary-candidates-mamdani.html
+
 **Los Angeles Names a New Schools Superintendent After Scandal**\
 `Andres Chait is a district veteran who has helped keep peace with labor unions. He started in the classroom and now runs a district with hundreds of thousands of students.`\
 https://www.nytimes.com/2026/06/24/us/los-angeles-new-school-superintendent-lausd.html
@@ -26,11 +34,11 @@ https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
 `Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
 https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
 
-**Terremoto de magnitud terremoto de magnitud 7,1 en Venezuela: se emiten alertas de tsunami tras el sismo**\
+**Terremoto de magnitud terremoto de magnitud 7,2 en Venezuela: se emiten alertas de tsunami tras el sismo**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
 
-**Tsunami Alerts Issued After 7.1-Magnitude Earthquake Hits Venezuela**\
+**Tsunami Alerts Issued After 7.2-Magnitude Earthquake Hits Venezuela**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communis
 **ICC Judges Sue Trump Administration Over Sanctions**\
 `Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
 https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
-
-**Support Builds on the Right for Prosecuting Women Who Get Abortions**\
-`Sentiment is shifting amid frustration in the antiabortion movement that more abortions are happening now than when Roe v. Wade fell.`\
-https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
-
-**After Bruising Primaries in New York, Democrats Look to November Elections**\
-`The party secured key victories in New York City, but battles across the state suggest a larger fight awaits in the fall.`\
-https://www.nytimes.com/2026/06/24/nyregion/new-york-primaries-congress-democrats.html
 
