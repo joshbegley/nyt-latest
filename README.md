@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/06/24/us/world-cup-hottest-match-1994.html
 `Wearables can offer rough information about a person’s health, experts say, but only some metrics are medically useful.`\
 https://www.nytimes.com/2026/06/24/well/health-wearables-doctors-rfk-apple-watch.html
 
-**Book Review: New Fantasy Novels**\
+**Thrilling Fantasy Novels to Take You on Wild Adventures**\
 `Our columnist reviews “The Tapestry of Fate” and other new fantasy books.`\
 https://www.nytimes.com/2026/06/24/books/review/new-fantasy-books.html
 
