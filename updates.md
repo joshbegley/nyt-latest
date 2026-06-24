@@ -1,3 +1,7 @@
+**Folarin Balogun Transfer Updates, and the Doku Debate**\
+`The USMNT striker is turning heads at the World Cup.`\
+https://www.nytimes.com/2026/06/24/podcasts/folarin-balogun-transfer-updates-jeremy-doku-birth.html
+
 **How the Iran Deal Is Testing the U.S.-Israel Alliance**\
 `The conflict between Israel and Hezbollah in Lebanon poses a threat to U.S.-Iran negotiations to permanently end the war in Iran.`\
 https://www.nytimes.com/2026/06/24/podcasts/the-daily/iran-war-israel-alliance.html
