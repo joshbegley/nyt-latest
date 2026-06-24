@@ -1,3 +1,7 @@
+**Clive Davis and Whitney Houston’s Successful and Tragic Story**\
+`The record industry titan guided Houston from a young star to worldwide phenomenon. But their story together was not without controversy.`\
+https://www.nytimes.com/2026/06/23/arts/music/clive-davis-whitney-houston.html
+
 **Federal Judge Bars ICE From Making Arrests in Immigration Courts**\
 `The ruling in a class-action lawsuit filed in California applies to immigration courts nationwide.`\
 https://www.nytimes.com/2026/06/23/us/ice-arrests-immigration-courts-california.html

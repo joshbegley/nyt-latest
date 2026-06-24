@@ -1,3 +1,7 @@
+**Clive Davis and Whitney Houston’s Successful and Tragic Story**\
+`The record industry titan guided Houston from a young star to worldwide phenomenon. But their story together was not without controversy.`\
+https://www.nytimes.com/2026/06/23/arts/music/clive-davis-whitney-houston.html
+
 **Federal Judge Bars ICE From Making Arrests in Immigration Courts**\
 `The ruling in a class-action lawsuit filed in California applies to immigration courts nationwide.`\
 https://www.nytimes.com/2026/06/23/us/ice-arrests-immigration-courts-california.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-
 **Trump Says Vandals Sabotaged the Reflecting Pool. Internal Documents Raise Doubts.**\
 `The documents do not indicate that the peeling blue coating and algae blooms were caused intentionally.`\
 https://www.nytimes.com/2026/06/23/us/trump-reflecting-pool-green-peeling.html
-
-**U.N. Report Says Israeli Killings of Gaza Children Post-Truce Amount to Genocide**\
-`Israel’s U.N. mission dismissed the report as a “libelous sham,” and called the investigating commission a “fundamentally flawed mechanism.”`\
-https://www.nytimes.com/2026/06/23/world/middleeast/un-report-israel-palestinian-children.html
-
-**Iranian Court Sentences Singer to 74 Lashes for Performing Without Hijab**\
-`The Iranian singer Parastoo Ahmadi was punished for performing without a hijab, according to a person close to her family and state media news reports.`\
-https://www.nytimes.com/video/world/asia/100000010985961/iran-singer-lashing-hijab.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
