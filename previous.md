@@ -1,3 +1,7 @@
+**Word of the Day: dilatory**\
+`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/24/learning/word-of-the-day-dilatory.html
+
 **Three Parties, Two Boroughs, One Message: Mamdani’s Gamble Pays Off**\
 `From Brooklyn to Manhattan, Mayor Zohran Mamdani made stops at primary victory parties for the three congressional candidates on his slate.`\
 https://www.nytimes.com/2026/06/24/nyregion/mamdani-gamble-pays-off.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/23/nyregion/darializa-avila-chevalier-dominican-
 **When to Expect Results in Maryland, New York, South Carolina and Utah**\
 `Voters have been casting ballots in several primaries and runoff elections. Unofficial results will probably be known late Tuesday or early Wednesday.`\
 https://www.nytimes.com/2026/06/23/us/elections/when-to-expect-election-results-maryland-ny-south-carolina-utah.html
-
-**Services Sold to Boost I.V.F. Odds Backed by Little Evidence, Study Finds**\
-`Some patients spend thousands of dollars on these extra ‘add-on’ procedures during fertility treatment.`\
-https://www.nytimes.com/2026/06/23/well/live/ivf-fertility-treatment-study.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\

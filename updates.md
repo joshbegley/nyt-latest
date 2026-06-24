@@ -1,3 +1,7 @@
+**Word of the Day: dilatory**\
+`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/24/learning/word-of-the-day-dilatory.html
+
 **Three Parties, Two Boroughs, One Message: Mamdani’s Gamble Pays Off**\
 `From Brooklyn to Manhattan, Mayor Zohran Mamdani made stops at primary victory parties for the three congressional candidates on his slate.`\
 https://www.nytimes.com/2026/06/24/nyregion/mamdani-gamble-pays-off.html
