@@ -1,3 +1,11 @@
+**5 Things to Know About Claire Valdez**\
+`Ms. Valdez, a relatively new state lawmaker in New York, won her House primary after a boost from Mayor Zohran Mamdani, who had recruited her to run.`\
+https://www.nytimes.com/2026/06/23/nyregion/who-is-claire-valdez.html
+
+**Trump’s Pick for Top I.R.S. Lawyer Works at Firm That Represents Him**\
+`James R. Gadwood, the president’s nominee for chief counsel at the Internal Revenue Service, works at Miller & Chevalier, which has represented Mr. Trump in tax matters.`\
+https://www.nytimes.com/2026/06/23/us/politics/trump-top-irs-lawyer.html
+
 **Ex-Hoyer Aide Buoyed by Super PACs Wins Democratic House Primary in Maryland**\
 `Adrian Boafo, a state delegate, won a primary to succeed the retiring Representative Steny Hoyer with help from more than $11 million in spending from pro-Israel and cryptocurrency interests.`\
 https://www.nytimes.com/2026/06/23/us/politics/maryland-5th-district-democratic-primary.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-utah-us-house-3-pr
 **Sioux Falls, South Dakota, Mayor 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Dakota election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-south-dakota-mayor-sioux-falls.html
-
-**New York Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-9-primary.html
-
-**New York Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-8-primary.html
 
 **Election Live Updates: Two Mamdani Picks Win Closely Watched New York House Primaries**\
 `Brad Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race in which Israel became a top issue. Claire Valdez, a state lawmaker, won the Democratic nomination for a seat being vacated by Representative Nydia Velázquez.`\

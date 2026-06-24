@@ -1,3 +1,11 @@
+**5 Things to Know About Claire Valdez**\
+`Ms. Valdez, a relatively new state lawmaker in New York, won her House primary after a boost from Mayor Zohran Mamdani, who had recruited her to run.`\
+https://www.nytimes.com/2026/06/23/nyregion/who-is-claire-valdez.html
+
+**Trump’s Pick for Top I.R.S. Lawyer Works at Firm That Represents Him**\
+`James R. Gadwood, the president’s nominee for chief counsel at the Internal Revenue Service, works at Miller & Chevalier, which has represented Mr. Trump in tax matters.`\
+https://www.nytimes.com/2026/06/23/us/politics/trump-top-irs-lawyer.html
+
 **Ex-Hoyer Aide Buoyed by Super PACs Wins Democratic House Primary in Maryland**\
 `Adrian Boafo, a state delegate, won a primary to succeed the retiring Representative Steny Hoyer with help from more than $11 million in spending from pro-Israel and cryptocurrency interests.`\
 https://www.nytimes.com/2026/06/23/us/politics/maryland-5th-district-democratic-primary.html
