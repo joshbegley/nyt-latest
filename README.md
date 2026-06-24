@@ -1,3 +1,11 @@
+**A Giraffe Named Gracie Is Missing in Texas**\
+`The giraffe wandered off a private ranch more than a week ago. Her owner is offering a $5,000 reward for information leading to her return.`\
+https://www.nytimes.com/2026/06/23/us/gracie-giraffe-texas-missing.html
+
+**Polling in New York’s 12th District Points to a Competitive Race**\
+`Micah Lasher and Alex Bores have consistently led in recent polls as Jack Schlossberg’s support has dipped.`\
+https://www.nytimes.com/2026/06/23/us/elections/polling-in-new-yorks-12th-district-points-to-a-competitive-race.html
+
 **In New York’s Seventh Congressional District, Demographics Are Fueling a Competitive Race**\
 `A Democratic primary featuring Antonio Reynoso, Claire Valdez and Julie Won could be defined by the recent influx of young white voters to the district.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny7-house-race-demographic-fault-lines.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-
 **Maryland Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Maryland primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-7-primary.html
-
-**Maryland Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-8-primary.html
-
-**Maryland Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-6-primary.html
 
 **Election Live Updates: New York’s High-Stakes Primaries Test Mamdani’s Reach**\
 `New Yorkers are picking nominees in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
