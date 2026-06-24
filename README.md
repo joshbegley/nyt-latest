@@ -2,8 +2,8 @@
 `Democrats expect Nancy Lacore to run a competitive general election despite the district’s Republican leaning.`\
 https://www.nytimes.com/2026/06/23/us/politics/nancy-lacore-nancy-mace-south-carolina-house-democrats.html
 
-**Micah Lasher Wins Democratic Primary to Succeed Nadler in Manhattan**\
-`Mr. Lasher, the chosen successor of Representative Jerrold Nadler, defeated a fellow state assemblyman and a Kennedy heir in an idiosyncratic race for a coveted open seat.`\
+**Micah Lasher Wins Manhattan Primary, Defeating Kennedy Heir and Others**\
+`Mr. Lasher, the chosen successor of Representative Jerrold Nadler, beat a field of Democratic candidates that included a fellow state assemblyman in a race for a coveted open seat.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny12-nadler-primary-micah-lasher.html
 
 **Local Republican Wins Primary for Nancy Mace’s House Seat in South Carolina**\
