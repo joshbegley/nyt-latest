@@ -1,3 +1,7 @@
+**Brad Lander Wins N.Y. House Primary in Which Israel Became a Top Issue**\
+`Mr. Lander, an ally of Mayor Zohran Mamdani, beat Representative Dan Goldman, a two-term incumbent Democrat, in a Lower Manhattan and Brooklyn district.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny10-primary-lander.html
+
 **A Giraffe Named Gracie Is Missing in Texas**\
 `The giraffe wandered off a private ranch more than a week ago. Her owner is offering a $5,000 reward for information leading to her return.`\
 https://www.nytimes.com/2026/06/23/us/gracie-giraffe-texas-missing.html
@@ -178,11 +182,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroll
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-attorney-general-primary.html
 
-**Maryland Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maryland primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-maryland-us-house-7-primary.html
-
-**Election Live Updates: Polls Close in New York, Where High-Stakes Primaries Test Mamdani’s Reach**\
-`New Yorkers cast ballots in a half-dozen House races as Mayor Zohran Mamdani seeks to expand his leftist movement. There are also closely watched races in Utah, Maryland and South Carolina.`\
+**Election Live Updates: Brad Lander Gives Mamdani a Win in New York House Primary**\
+`Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race Mayor Zohran Mamdani targeted. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 

@@ -1,3 +1,11 @@
+**Brad Lander Wins N.Y. House Primary in Which Israel Became a Top Issue**\
+`Mr. Lander, an ally of Mayor Zohran Mamdani, beat Representative Dan Goldman, a two-term incumbent Democrat, in a Lower Manhattan and Brooklyn district.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny10-primary-lander.html
+
+**Election Live Updates: Brad Lander Gives Mamdani a Win in New York House Primary**\
+`Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race Mayor Zohran Mamdani targeted. There are also closely watched races in Utah, Maryland and South Carolina.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **Polling in New York’s 12th District Points to a Competitive Race**\
 `Micah Lasher and Alex Bores have consistently led in recent polls as Jack Schlossberg’s support has dipped.`\
 https://www.nytimes.com/2026/06/23/us/elections/new-york-12th-district-polling.html
