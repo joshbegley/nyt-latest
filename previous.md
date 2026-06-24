@@ -1,3 +1,7 @@
+**The Left Is Ascendant in New York. Swing States Could Be Next.**\
+`Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
+https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
+
 **Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
 `The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
 **New Clues Point to Taylor Swift Wedding Event at M.S.G.**\
 `After weeks of speculation over Taylor Swift and Travis Kelce’s wedding plans, a permit has been filed for an event at Madison Square Garden over the July 4 weekend.`\
 https://www.nytimes.com/2026/06/24/nyregion/taylor-swift-wedding-madison-square-garden.html
-
-**Un juez federal prohíbe las detenciones de ICE en los juzgados de inmigración**\
-`El fallo pone fin a uno de los aspectos más agresivos de la campaña de deportaciones masivas del presidente Trump y es válido en todo el país.`\
-https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/detencion-ice-corte-migracion.html
 

@@ -1,3 +1,7 @@
+**The Left Is Ascendant in New York. Swing States Could Be Next.**\
+`Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
+https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
+
 **Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
 `The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
