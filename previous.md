@@ -1,3 +1,7 @@
+**Extreme Heat Across Europe Creates Divide Over Leaving Schools Open**\
+`Few schools in Britain or France have air-conditioning to keep children cool in soaring temperatures, leaving parents, teachers and officials divided about what to do.`\
+https://www.nytimes.com/2026/06/24/world/europe/heat-wave-schools-open-closed-france-uk.html
+
 **Folarin Balogun Transfer Updates, and the Doku Debate**\
 `The USMNT striker is turning heads at the World Cup.`\
 https://www.nytimes.com/2026/06/24/podcasts/folarin-balogun-transfer-updates-jeremy-doku-birth.html
@@ -191,10 +195,6 @@ https://www.nytimes.com/2026/06/24/world/europe/iran-war-regime-nationalism.html
 https://www.nytimes.com/video/us/elections/100000010988238/mamdani-allies-sweep-new-york-primaries.html
 
 **The Heat Wave in Europe Is Hitting Records. Here’s What to Know.**\
-`France had its hottest June day ever, with forecasters in Britain predicting that the record for the highest temperature for this time of year was also likely to be broken.`\
+`France had its hottest day ever, with forecasters in Britain predicting that the record for the highest temperature for this time of year was also likely to be broken.`\
 https://www.nytimes.com/2026/06/24/weather/europe-extreme-heat-wave-warning.html
-
-**Alibaba Sues Pentagon Over China Military Label**\
-`The Chinese tech giant said it had no ties to China’s military and that the U.S. government had violated the law by making that claim.`\
-https://www.nytimes.com/2026/06/24/business/alibaba-pentagon-lawsuit.html
 
