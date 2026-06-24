@@ -1,3 +1,11 @@
+**Israel Says It Has Trapped Hezbollah Fighters Underground in Southern Lebanon**\
+`The Israeli military says thousands of troops have surrounded a large tunnel network in southern Lebanon. The standoff is at the center of intense clashes in the area recently.`\
+https://www.nytimes.com/2026/06/24/world/middleeast/israel-lebanon-hezbollah-fighters-tunnels.html
+
+**Airbus Is Ordered to Inspect 16 Jets After Cracks Are Found in Wings**\
+`The European Union’s chief aviation regulator ordered five A380 superjumbo jets to be grounded immediately.`\
+https://www.nytimes.com/2026/06/24/business/airbus-a380-wing-cracks-inspection.html
+
 **Calling Democrats ‘Communists,’ Trump Keeps Close Eye on N.Y. Primaries**\
 `The president posted repeatedly into Wednesday morning to label Democrats as extreme and delight in his rivals’ losses. But he made no mention of Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/06/24/us/elections/trump-new-york-democratic-primaries-mamdani.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/books/review/new-fantasy-books.html
 **‘I Love Boosters’ Is the Perfect Film for Our Savage Era**\
 `“I Love Boosters” is a brilliant sendup of the absurd contradictions of our age.`\
 https://www.nytimes.com/2026/06/24/opinion/boots-riley-i-love-boosters.html
-
-**Welcome to the Luxury City Built by Taiwan’s A.I. Boom**\
-`Fortunes, luxury buildings and birthrates are rising in the city at the center of Taiwan’s chip supply chain.`\
-https://www.nytimes.com/2026/06/24/business/taiwan-chips-boom.html
-
-**Great New Historical Fiction**\
-`Our columnist looks at the best recent releases.`\
-https://www.nytimes.com/2026/06/24/books/review/new-historical-fiction.html
 
