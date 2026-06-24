@@ -1,3 +1,11 @@
+**Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
+`The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
+
+**Scotland’s Tartan Army Parties in Miami for World Cup**\
+`Ahead of the World Cup match between Scotland and Brazil, fans of Scotland partied in the streets of Miami, wearing tartan kilts and playing bagpipes.`\
+https://www.nytimes.com/video/sports/soccer/100000010988974/tartan-army-scotland-brazil-world-cup.html
+
 **Irán toma medidas para afianzar su control sobre el estrecho de Ormuz**\
 `Un nuevo seguro obligatorio, por ahora gratuito, sería un paso de Irán hacia el control de la vía navegable.`\
 https://www.nytimes.com/es/2026/06/24/espanol/mundo/iran-estrecho-ormuz-pagos.html

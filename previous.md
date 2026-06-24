@@ -1,3 +1,11 @@
+**Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
+`The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
+
+**Scotland’s Tartan Army Parties in Miami for World Cup**\
+`Ahead of the World Cup match between Scotland and Brazil, fans of Scotland partied in the streets of Miami, wearing tartan kilts and playing bagpipes.`\
+https://www.nytimes.com/video/sports/soccer/100000010988974/tartan-army-scotland-brazil-world-cup.html
+
 **Irán toma medidas para afianzar su control sobre el estrecho de Ormuz**\
 `Un nuevo seguro obligatorio, por ahora gratuito, sería un paso de Irán hacia el control de la vía navegable.`\
 https://www.nytimes.com/es/2026/06/24/espanol/mundo/iran-estrecho-ormuz-pagos.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/24/nyregion/taylor-swift-wedding-madison-square-
 **Un juez federal prohíbe las detenciones de ICE en los juzgados de inmigración**\
 `El fallo pone fin a uno de los aspectos más agresivos de la campaña de deportaciones masivas del presidente Trump y es válido en todo el país.`\
 https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/detencion-ice-corte-migracion.html
-
-**As Blockbusters Loom, Monkey Business at the Supreme Court**\
-`An unlikely trio of justices issued a slashing critique of plea bargains that included several references to orangutans.`\
-https://www.nytimes.com/2026/06/24/us/politics/the-docket-supreme-court-monkey-business.html
-
-**Should My Husband Tell His Best Friend That We Can’t Stand His Wife?**\
-`His friend has accused him of being distant, even hinting that he’s a social climber for not wanting to hang out with them.`\
-https://www.nytimes.com/2026/06/24/magazine/husband-best-friend-wife-ethics.html
 
