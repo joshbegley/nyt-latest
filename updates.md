@@ -1,3 +1,7 @@
+**The Debate Over Remote Work Isn’t Over**\
+`Readers respond to an Opinion guest essay, “We Liked Remote Work Until We Looked at the Data.” Also: The blame game in America today.`\
+https://www.nytimes.com/2026/06/24/opinion/remote-work.html
+
 **Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-northern-california.html
