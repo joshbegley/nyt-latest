@@ -1,3 +1,7 @@
+**The Drop-off in Dropouts**\
+`How high schools closed the graduation gap.`\
+https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
+
 **New Clues Point to Taylor Swift Wedding Event at M.S.G.**\
 `After weeks of speculation over Taylor Swift and Travis Kelce’s wedding plans, a permit has been filed for an event at Madison Square Garden over the July 4 weekend.`\
 https://www.nytimes.com/2026/06/24/nyregion/taylor-swift-wedding-madison-square-garden.html
@@ -147,7 +151,7 @@ https://www.nytimes.com/2026/06/24/crosswords/connections-companion-1110.html
 https://www.nytimes.com/2026/06/24/crosswords/wordle-review-1832.html
 
 **Rubio Seeks to Reassure Persian Gulf Allies on Iran Deal**\
-`Secretary of State Marco Rubio was scheduled to meet with leaders in Abu Dhabi, Kuwait and Bahrain, which were targeted by Iranian attacks during the war.`\
+`Secretary of State Marco Rubio was scheduled to meet with leaders in the United Arab Emirates, Kuwait and Bahrain, which were targeted by Iranian attacks during the war.`\
 https://www.nytimes.com/2026/06/24/world/middleeast/middle-east-iran-us-rubio.html
 
 **En busca de pistas en la juventud de Jeffrey Epstein**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/pageoneplus/no-corrections-june-24-2026.html
 **Your Home Could Help Solve AI’s Growing Power Demand**\
 `Tesla, Sunrun and Renew Home plan to tap solar panels, batteries, thermostats and other devices installed in millions of homes to meet the energy demands of artificial intelligence.`\
 https://www.nytimes.com/2026/06/24/business/energy-environment/ai-data-centers-tesla.html
-
-**Victories by Pro-Palestinian Democrats Show the Party’s Shift on Israel**\
-`Three Democrats who have been outspoken in their criticism of Israel won primaries in New York on Tuesday, signaling their party’s new skepticism of the country and its actions.`\
-https://www.nytimes.com/2026/06/24/us/politics/democrats-israel-new-york-chevalier-lander-valdez.html
 

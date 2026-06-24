@@ -1,3 +1,7 @@
+**Pulte Begins Spy Agency Cuts, Though Fewer Than Feared, for Now**\
+`Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
+https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
+
 **The Drop-off in Dropouts**\
 `How high schools closed the graduation gap.`\
 https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/business/housing-package-congress-midterms.ht
 **Corrections: June 24, 2026**\
 `No corrections appeared in print on Wednesday, June 24, 2026.`\
 https://www.nytimes.com/2026/06/24/pageoneplus/no-corrections-june-24-2026.html
-
-**Your Home Could Help Solve AI’s Growing Power Demand**\
-`Tesla, Sunrun and Renew Home plan to tap solar panels, batteries, thermostats and other devices installed in millions of homes to meet the energy demands of artificial intelligence.`\
-https://www.nytimes.com/2026/06/24/business/energy-environment/ai-data-centers-tesla.html
 

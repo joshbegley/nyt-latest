@@ -1,3 +1,11 @@
+**The Drop-off in Dropouts**\
+`How high schools closed the graduation gap.`\
+https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
+
+**Rubio Seeks to Reassure Persian Gulf Allies on Iran Deal**\
+`Secretary of State Marco Rubio was scheduled to meet with leaders in the United Arab Emirates, Kuwait and Bahrain, which were targeted by Iranian attacks during the war.`\
+https://www.nytimes.com/2026/06/24/world/middleeast/middle-east-iran-us-rubio.html
+
 **New Clues Point to Taylor Swift Wedding Event at M.S.G.**\
 `After weeks of speculation over Taylor Swift and Travis Kelce’s wedding plans, a permit has been filed for an event at Madison Square Garden over the July 4 weekend.`\
 https://www.nytimes.com/2026/06/24/nyregion/taylor-swift-wedding-madison-square-garden.html
