@@ -1,3 +1,7 @@
+**The Heat Wave in Europe Is Hitting Records. Here’s What to Know.**\
+`France had its hottest June day ever, with forecasters in Britain predicting that the record for the highest temperature for this time of year was also likely to be broken.`\
+https://www.nytimes.com/2026/06/24/weather/europe-extreme-heat-wave-warning.html
+
 **Alibaba Sues Pentagon Over China Military Label**\
 `The Chinese tech giant said it had no ties to China’s military and that the U.S. government had violated the law by making that claim.`\
 https://www.nytimes.com/2026/06/24/business/alibaba-pentagon-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/us/elections/new-york-12th-district-polling.h
 **In New York’s Seventh Congressional District, Demographics Are Fueling a Competitive Race**\
 `A Democratic primary featuring Antonio Reynoso, Claire Valdez and Julie Won could be defined by the recent influx of young white voters to the district.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny7-house-race-demographic-fault-lines.html
-
-**Here Are 8 New York State Legislative Races to Watch**\
-`The left and moderate wings of the Democratic Party are fighting it out in several races around New York City.`\
-https://www.nytimes.com/2026/06/23/nyregion/new-york-state-legislature-races-to-watch.html
 
