@@ -1,3 +1,7 @@
+**Postmaster General Confirms Plan to Hold Back Mail Ballots Under Proposed Rule**\
+`The postmaster general, David Steiner, said on Wednesday that under a proposed rule, his agency would not deliver mail ballots in states that decline to hand over voter data.`\
+https://www.nytimes.com/2026/06/24/us/politics/postmaster-mail-ballot-rule-trump-elections.html
+
 **A Climate Chaos Maker**\
 `Global warming is causing extreme heat around the world. Now El Niño, a natural phenomenon that disrupts global weather patterns, is also at work.`\
 https://www.nytimes.com/2026/06/24/world/europe-climate-heat-wave-ebola-world-cup.html
