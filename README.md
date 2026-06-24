@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
 `Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
 https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
 
-**Mapa: un terremoto de magnitud 7,1 sacude Venezuela**\
+**Terremoto de magnitud terremoto de magnitud 7,1 en Venezuela: se emiten alertas de tsunami tras el sismo**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
 
