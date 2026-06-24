@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/06/23/nyregion/schlossberg-loses-camelot.html
 https://www.nytimes.com/video/embedded/nyregion/100000010988119/24vid-met-elex-lander-sot1-95253.html
 
 **Who Is Darializa Avila Chevalier?**\
-`Ms. Avila Chevalier pulled off the one of the biggest upsets in a New York House primary since Alexandria Ocasio-Cortez defeated Joseph Crowley in 2018.`\
+`Ms. Avila Chevalier pulled off one of the biggest upsets in a New York House primary since Alexandria Ocasio-Cortez defeated Joseph Crowley in 2018.`\
 https://www.nytimes.com/2026/06/23/nyregion/who-is-darializa-avila-chevalier.html
 
 **Darializa Avila Chevalier, a Mamdani Ally, Ousts Espaillat in Primary**\
