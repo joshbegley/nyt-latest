@@ -1,3 +1,15 @@
+**Fired Navy Admiral Wins Democratic Runoff in South Carolina’s 1st District**\
+`Democrats expect Nancy Lacore to run a competitive general election despite the district’s Republican leaning.`\
+https://www.nytimes.com/2026/06/23/us/politics/nancy-lacore-nancy-mace-south-carolina-house-democrats.html
+
+**Micah Lasher Wins Manhattan Primary, Defeating Kennedy Heir and Others**\
+`Mr. Lasher, the chosen successor of Representative Jerrold Nadler, beat a field of Democratic candidates that included a fellow state assemblyman in a race for a coveted open seat.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny12-nadler-primary-micah-lasher.html
+
+**Local Republican Wins Primary for Nancy Mace’s House Seat in South Carolina**\
+`Jenny Costa Honeycutt, a Charleston County councilwoman and lawyer, topped a Republican rival in a runoff primary election for a seat that leans to the right but could be competitive in November.`\
+https://www.nytimes.com/2026/06/23/us/nancy-mace-jenny-honeycutt-south-carolina.html
+
 **NYT Crossword Answers for June 24, 2026**\
 `Two can play at Kevin Curry and Zhou Zhang’s crossword.`\
 https://www.nytimes.com/2026/06/23/crosswords/daily-puzzle-2026-06-24.html
