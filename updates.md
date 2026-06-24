@@ -1,3 +1,11 @@
+**A Giraffe Named Gracie Is Missing in Texas**\
+`The giraffe wandered off a private ranch more than a week ago. Her owner is offering a $5,000 reward for information leading to her return.`\
+https://www.nytimes.com/2026/06/23/us/gracie-giraffe-texas-missing.html
+
+**Polling in New York’s 12th District Points to a Competitive Race**\
+`Micah Lasher and Alex Bores have consistently led in recent polls as Jack Schlossberg’s support has dipped.`\
+https://www.nytimes.com/2026/06/23/us/elections/polling-in-new-yorks-12th-district-points-to-a-competitive-race.html
+
 **In New York’s Seventh Congressional District, Demographics Are Fueling a Competitive Race**\
 `A Democratic primary featuring Antonio Reynoso, Claire Valdez and Julie Won could be defined by the recent influx of young white voters to the district.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny7-house-race-demographic-fault-lines.html
