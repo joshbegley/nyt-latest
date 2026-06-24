@@ -2,7 +2,7 @@
 `The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
 https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
 
-**Trump Reimagines America by Putting Himself on Its Money**\
+**With a Proposed $250 Bill, Trump Reimagines America by Putting Himself on Its Money**\
 `Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
 
@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/24/style/tiny-modern-love-stories-she-was-marrie
 `Temperature records were broken in several European countries on Wednesday.`\
 https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
 
-**Pulte Begins Spy Agency Cuts, Though Fewer Than Feared, for Now**\
+**Pulte Trims Spy Agency, but Spares Bulk of Staff for Now**\
 `Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
 https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
 
