@@ -1,8 +1,12 @@
+**Irán toma medidas para afianzar su control sobre el estrecho de Ormuz**\
+`Un nuevo seguro obligatorio, por ahora gratuito, sería un paso de Irán hacia el control de la vía navegable.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/iran-estrecho-ormuz-pagos.html
+
 **Istanbul Ascends as a Tango Capital**\
 `Istanbul’s tango schools, clubs and skilled dancers have gained the city recognition as a global tango destination.`\
 https://www.nytimes.com/video/arts/dance/100000010988914/tango-instanbul-turkey.html
 
-**Trump Asks Congress for $88 Billion for War With Iran and Other Programs**\
+**Trump Asks Congress for $88 Billion, Mostly for War With Iran**\
 `The proposal was all but dead on arrival in the Senate, where it would need bipartisan support, and comes amid growing G.O.P. skepticism about the conflict.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-congress-iran-war-pentagon.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/us/politics/the-docket-supreme-court-monkey-b
 **Should My Husband Tell His Best Friend That We Can’t Stand His Wife?**\
 `His friend has accused him of being distant, even hinting that he’s a social climber for not wanting to hang out with them.`\
 https://www.nytimes.com/2026/06/24/magazine/husband-best-friend-wife-ethics.html
-
-**Norma Yaeger, Barrier-Breaking Stockbroker, Dies at 96**\
-`Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
-https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
 

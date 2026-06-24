@@ -1,3 +1,11 @@
+**Irán toma medidas para afianzar su control sobre el estrecho de Ormuz**\
+`Un nuevo seguro obligatorio, por ahora gratuito, sería un paso de Irán hacia el control de la vía navegable.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/iran-estrecho-ormuz-pagos.html
+
+**Trump Asks Congress for $88 Billion, Mostly for War With Iran**\
+`The proposal was all but dead on arrival in the Senate, where it would need bipartisan support, and comes amid growing G.O.P. skepticism about the conflict.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-congress-iran-war-pentagon.html
+
 **Istanbul Ascends as a Tango Capital**\
 `Istanbul’s tango schools, clubs and skilled dancers have gained the city recognition as a global tango destination.`\
 https://www.nytimes.com/video/arts/dance/100000010988914/tango-instanbul-turkey.html
