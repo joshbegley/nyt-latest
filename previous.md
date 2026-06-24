@@ -1,3 +1,7 @@
+**Eclipse solar en España: lugares para ver el espectáculo**\
+`En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
+
 **Utah Senate President Loses Republican Primary After Data Center Backlash**\
 `The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
 https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/arts/design/henry-moore-kew-gardens-london.ht
 **¿La inteligencia artificial puede encontrar al próximo Pelé?**\
 `Nuevas aplicaciones prometen ampliar la búsqueda de jóvenes futbolistas y hacer más equitativa la detección de talento en el país del fútbol.`\
 https://www.nytimes.com/es/2026/06/24/espanol/ciencia-y-tecnologia/brasil-futbol-ia-santos.html
-
-**Este Mundial tiene pausas de hidratación. Muchos aficionados prefieren saltárselas**\
-`Además de la molestia por los anuncios adicionales, a muchos seguidores del deporte les disgusta que se interrumpa el ritmo del partido.`\
-https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-pausa-hidratacion-criticas.html
 

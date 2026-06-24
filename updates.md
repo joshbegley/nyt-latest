@@ -1,3 +1,7 @@
+**Eclipse solar en España: lugares para ver el espectáculo**\
+`En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
+
 **Utah Senate President Loses Republican Primary After Data Center Backlash**\
 `The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
 https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
