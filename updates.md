@@ -1,3 +1,7 @@
+**Iran’s Loyalists Promote a Wider Nationalism, Unveiled Women Included**\
+`Government supporters are showing off new ties with alleged former dissidents in a bid to show that they can withstand enemies at home as well as abroad.`\
+https://www.nytimes.com/2026/06/24/world/europe/iran-war-regime-nationalism.html
+
 **Mamdani Allies Sweep New York Primaries**\
 `Mayor Zohran Mamdani’s progressive coalition had a big night on Tuesday. Brad Lander, Darializa Avila Chevalier and Claire Valdez won their Democratic House primaries.`\
 https://www.nytimes.com/video/us/elections/100000010988238/mamdani-allies-sweep-new-york-primaries.html
