@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 5,6 sacude el norte de California**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/06/24/espanol/terremoto-northern-california.html
+
+**El calor extremo en Europa afecta las actividades escolares**\
+`En Francia y el Reino Unido pocas escuelas están climatizadas y padres, profesores y autoridades escolares no llegan a un acuerdo sobre qué medidas tomar en caso de calor extremo.`\
+https://www.nytimes.com/es/2026/06/24/espanol/mundo/europa-ola-calor-escuelas.html
+
 **Eclipse solar en España: lugares para ver el espectáculo**\
 `En agosto, un espectáculo celestial atraerá a millones de personas a una zona poco poblada del país. Los visitantes descubrirán que la zona también está llena de maravillas terrenales.`\
 https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-donde-ver.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/infancia-juventud-j
 **The Ukraine War Amputees Embracing Wake Boarding and Jujitsu**\
 `As the number of amputees in Ukraine soars, many are bonding by learning new sports, challenging both their bodies and their ideas of what they can do.`\
 https://www.nytimes.com/2026/06/24/world/europe/ukraine-war-amputees-sports.html
-
-**A Show for All Seasons: Henry Moore’s Art, Reborn in Open Air**\
-`At the Kew Royal Botanic Gardens in London, a massive outdoor exhibition reveals a lifelong dialogue in the sculptor’s work between nature and human creations.`\
-https://www.nytimes.com/2026/06/24/arts/design/henry-moore-kew-gardens-london.html
-
-**¿La inteligencia artificial puede encontrar al próximo Pelé?**\
-`Nuevas aplicaciones prometen ampliar la búsqueda de jóvenes futbolistas y hacer más equitativa la detección de talento en el país del fútbol.`\
-https://www.nytimes.com/es/2026/06/24/espanol/ciencia-y-tecnologia/brasil-futbol-ia-santos.html
 
