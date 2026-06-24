@@ -1,3 +1,11 @@
+**El fiasco de Trump con Irán podría salvar a EE. UU. de la próxima guerra**\
+`El fracaso militar y político del conflicto deja un legado inesperado: una aversión duradera a la guerra que podría abrir paso, por fin, a una diplomacia seria.`\
+https://www.nytimes.com/es/2026/06/24/espanol/opinion/trump-guerra-iran-fracaso.html
+
+**U.S. Support Is Israel’s True Weakness**\
+`Israel’s dependence on the United States has allowed it to ignore the need for diplomacy.`\
+https://www.nytimes.com/2026/06/24/opinion/israel-iran-palestinians-us.html
+
 **Mamdani Emerges as Kingmaker, Pushing His Slate to a Primary Sweep**\
 `Mayor Zohran Mamdani shook the Democratic establishment by helping drive three progressive candidates to victory.`\
 https://www.nytimes.com/2026/06/24/nyregion/mamdani-politics-influence.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/23/us/iran-world-cup-travel-restrictions.html
 **Major League Baseball Clears Top Doctor in Doping Case**\
 `The commissioner’s office said it had no concerns about Dr. Neal ElAttrache after investigating his role in supporting the use of performance-enhancing drugs by a U.F.C. star.`\
 https://www.nytimes.com/2026/06/23/sports/baseball/mlb-elattrache-mcgregor-doping.html
-
-**How to Add LED Light Therapy to Your Beauty Routine**\
-`An expert-backed guide on the benefits of incorporating red, blue and near-infrared light therapy into your beauty routine.`\
-https://www.nytimes.com/2026/06/23/t-magazine/led-light-therapy-guide.html
-
-**New Yorkers Vote in High-Stakes Primaries**\
-`Also, the Strait of Hormuz sees a notable uptick in traffic. Here's the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/06/23/briefing/new-york-primary-elections.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
