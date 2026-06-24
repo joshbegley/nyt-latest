@@ -1,3 +1,15 @@
+**Trump Refuses to Sign Housing Bill Until Unpopular ‘SAVE’ Voting Act Passes Congress**\
+`The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
+
+**The Ebola Outbreak’s Central Mystery: Where Did This Virus Come From?**\
+`Scientists believe that the Bundibugyo virus persists in an animal species, occasionally spilling over into humans. But they have yet to identify the species.`\
+https://www.nytimes.com/2026/06/24/science/ebola-bundibugyo-animal-reservoir.html
+
+**N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiries**\
+`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of the department, according to people with knowledge of the matter.`\
+https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
+
 **A Billionaire’s Basquiat Collection Goes Up at Pérez Art Museum Miami**\
 `Ken Griffin, the hedge fund manager, looks for artworks with a “wow” factor, never mind the number of zeros on the price tag. Ten of his Basquiats are on loan to the Pérez Art Museum Miami.`\
 https://www.nytimes.com/2026/06/24/arts/design/basquiat-ken-griffin-perez-art-museum.html
