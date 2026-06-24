@@ -1,3 +1,7 @@
+**China Detained 2 Japanese on Suspicion of Smuggling**\
+`The Japanese nationals were detained in May in the northeastern Chinese city of Dalian, Japan’s government said, amid tensions between the two countries.`\
+https://www.nytimes.com/2026/06/24/world/asia/japan-china-detained-smuggling-rare-earths.html
+
 **Word of the Day: dilatory**\
 `This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/24/learning/word-of-the-day-dilatory.html
