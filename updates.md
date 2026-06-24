@@ -1,3 +1,19 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Naming the moon, Sometimes Island and laughing in real life.`\
+https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthropeum.html
+
+**Read the Indictment of Brooklyn Power Broker Frank Carone**\
+`Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
+https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
+
+**Even in Defeat, a Democrat Showed the Upside of Angering the A.I. Industry**\
+`Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
+
+**Judge Orders U.S. to Stop Seeking Medical Records of Transgender Youth**\
+`The Justice Department had sought information about care provided at New York City hospitals, which were the subject of the ruling.`\
+https://www.nytimes.com/2026/06/24/nyregion/transgender-youth-medical-records-doj-judge.html
+
 **OpenAI and Broadcom Unveil Custom A.I. Chip Design**\
 `The maker of ChatGPT plans to use enough chips to consume 10 gigawatts of electricity, an amount that could power millions of households.`\
 https://www.nytimes.com/2026/06/24/technology/openai-broadcom-chip-jalapeno.html

@@ -1,3 +1,11 @@
+**Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
+`The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
+https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
+
+**7 Lessons and Consequences of the Iran War**\
+`Green energy, modern war and American hegemony`\
+https://www.nytimes.com/2026/06/24/opinion/iran-war-lessons.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Naming the moon, Sometimes Island and laughing in real life.`\
 https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthropeum.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
 **N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiries**\
 `The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of the department, according to people with knowledge of the matter.`\
 https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
-
-**Camp Mystic, Where 28 Died in Texas Floods, Files for Bankruptcy**\
-`Catastrophic floods that swept the Texas Hill Country last July killed 25 campers, two counselors and the camp’s executive director.`\
-https://www.nytimes.com/2026/06/24/us/camp-mystic-texas-flood-bankruptcy.html
-
-**Senate Rebukes Trump in Vote to Check His War Powers in Iran**\
-`Four Senate Republicans sided with Democrats in a 50-to-48 vote calling for President Trump to end the war in Iran or seek congressional authorization to continue it. The House passed the same measure a few weeks earlier.`\
-https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
 
