@@ -1,3 +1,15 @@
+**Un juez federal prohíbe las detenciones de ICE en los juzgados de inmigración**\
+`El fallo pone fin a uno de los aspectos más agresivos de la campaña de deportaciones masivas del presidente Trump y es válido en todo el país.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/detencion-ice-corte-migracion.html
+
+**As Blockbusters Loom, Monkey Business at the Supreme Court**\
+`An unlikely trio of justices issued a slashing critique of plea bargains that included several references to orangutans.`\
+https://www.nytimes.com/2026/06/24/us/politics/the-docket-supreme-court-monkey-business.html
+
+**Should My Husband Tell His Best Friend That We Can’t Stand His Wife?**\
+`His friend has accused him of being distant, even hinting that he’s a social climber for not wanting to hang out with them.`\
+https://www.nytimes.com/2026/06/24/magazine/husband-best-friend-wife-ethics.html
+
 **Norma Yaeger, Barrier-Breaking Stockbroker, Dies at 96**\
 `Over her husband’s objections, she became a Wall Street broker in the 1960s. She later started two securities firms in the overwhelmingly male financial world.`\
 https://www.nytimes.com/2026/06/24/business/norma-yaeger-dead.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/24/us/politics/democrats-israel-new-york-chevali
 **How Drag Performers Use Double Entendre to Turn Heads**\
 `In forms both political and unserious, drag performers use double meanings to get their messages across.`\
 https://www.nytimes.com/2026/06/24/crosswords/drag-performance-wordplay-camp.html
-
-**‘The Moment,’ ‘Daddio’ and More Streaming Gems**\
-`A pair of unconventional takes to the life of a musician bookend this month’s under-the-radar recommendations for your subscription streaming services.`\
-https://www.nytimes.com/2026/06/24/movies/the-moment-daddio-streaming-recommendations.html
-
-**Another Spirit of ’76: George Washington’s Whiskey**\
-`A lesser-known legacy of the first president is his Mount Vernon distillery, whose return has helped revive an interest in American whiskey.`\
-https://www.nytimes.com/2026/06/24/dining/drinks/george-washington-rye-whiskey.html
-
-**Thomas L. Friedman on the Clash at the Core of the Iran Deal**\
-`How the world views of Jared Kushner and the founder of the Islamic Republic of Iran can help explain the issue at the heart of the negotiations.`\
-https://www.nytimes.com/2026/06/24/opinion/thomas-friedman-iran-deal.html
 
