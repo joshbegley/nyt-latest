@@ -1,3 +1,7 @@
+**Who Is Darializa Avila Chevalier?**\
+`Ms. Avila Chevalier pulled off one of the biggest upsets in a New York House primary since Alexandria Ocasio-Cortez defeated Joseph Crowley in 2018.`\
+https://www.nytimes.com/2026/06/23/nyregion/who-is-darializa-avila-chevalier.html
+
 **Asia Tech Shares Swing Wildly as A.I. Jitters Persist**\
 `The turbulence in Asia’s chip-dominated stock markets highlighted how heavily global equities have come to depend on enthusiasm for artificial intelligence.`\
 https://www.nytimes.com/2026/06/24/business/stocks-oil-gas-prices.html
