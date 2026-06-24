@@ -1,3 +1,7 @@
+**Thomas DiNapoli Beats 2 Challengers in N.Y. Comptroller Primary**\
+`Mr. DiNapoli, who was challenged from the left by Raj Goyle and Drew Warshaw, is on track to become the longest serving comptroller in New York history.`\
+https://www.nytimes.com/2026/06/23/nyregion/new-york-comptroller-dinapoli.html
+
 **Trump puede usar la expulsión acelerada en todo EE. UU., confirma un tribunal de apelaciones**\
 `Un fallo dividido permite al gobierno estadounidense aplicar el proceso de deportación sin audiencia migratoria a inmigrantes detenidos, sin importar cuánto tiempo lleven viviendo en el territorio.`\
 https://www.nytimes.com/es/2026/06/23/espanol/estados-unidos/trump-deportacion-rapida-expulsion-acelerada.html
@@ -178,11 +182,7 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-york-us-house-
 `Get live results and maps from the 2026 New York primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-new-york-governor-primary.html
 
-**New York Comptroller Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 New York primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-york-comptroller-primary.html
-
 **Election Live Updates: Brad Lander Gives Mamdani a Win in New York House Primary**\
-`Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race Mayor Zohran Mamdani targeted. There are also closely watched races in Utah, Maryland and South Carolina.`\
+`Mr. Lander, the former New York City comptroller, ousted an incumbent, Dan Goldman, in a race in which Israel became a top issue. There are also closely watched races in Utah, Maryland and South Carolina.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 
