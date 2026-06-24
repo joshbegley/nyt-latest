@@ -1,3 +1,15 @@
+**Darializa Avila Chevalier, a Mamdani Ally, Ousts Espaillat in Primary**\
+`The 32-year-old activist built a robust ground game powered by support from Mayor Zohran Mamdani. She will double the number of new democratic socialists in Congress.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny13-darializa-avila-chevalier-espaillat.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/elections/100000010988086/24vid-Chevalier-embed-50161.html
+
+**Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
+`Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
+https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
+
 **Trump-Backed Sticker C.E.O. Wins House Primary in New York**\
 `Anthony Constantino defeated Assemblyman Robert Smullen, the state Republican Party’s chosen candidate, in a right-leaning upstate district.`\
 https://www.nytimes.com/2026/06/23/nyregion/stefanik-ny21-primary-constantino.html

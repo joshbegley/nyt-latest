@@ -1,3 +1,11 @@
+**Darializa Avila Chevalier, a Mamdani Ally, Ousts Espaillat in Primary**\
+`The 32-year-old activist built a robust ground game powered by support from Mayor Zohran Mamdani. She will double the number of new democratic socialists in Congress.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny13-darializa-avila-chevalier-espaillat.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/elections/100000010988086/24vid-Chevalier-embed-50161.html
+
 **Trump-Backed Sticker C.E.O. Wins House Primary in New York**\
 `Anthony Constantino defeated Assemblyman Robert Smullen, the state Republican Party’s chosen candidate, in a right-leaning upstate district.`\
 https://www.nytimes.com/2026/06/23/nyregion/stefanik-ny21-primary-constantino.html
@@ -174,15 +182,7 @@ https://www.nytimes.com/2026/06/23/world/australia/australia-albanese-prime-mini
 `Telling tales from the ancient past of 1997, the comedian Guy Branum is teaching Gen Z what their forefathers knew.`\
 https://www.nytimes.com/2026/06/23/style/guy-branum-what-old-gays-remember.html
 
-**Why Neither Candidate for Governor of New York Faces a Primary Challenge**\
-`Six months ago, Gov. Kathy Hochul expected to have to run in a primary, and it looked like two leading state Republicans would be fighting for their party’s nod. Then things changed.`\
-https://www.nytimes.com/2026/06/23/nyregion/blakeman-hochul-governor-new-york.html
-
-**With Starmer’s Resignation, ‘Hot Podium Guy’ Has Outlasted Five U.K. Prime Ministers**\
-`A sound engineer has emerged as an unexpected heartthrob amid Britain’s political tumult.`\
-https://www.nytimes.com/2026/06/23/style/hot-podium-guy-uk-starmer-prime-minister.html
-
-**Election Live Updates: Progressive Victories in New York House Primaries Show Mamdani’s Strength**\
-`Mayor Zohran Mamdani backed Brad Lander, who ousted Representative Dan Goldman, and Claire Valdez, a state lawmaker aiming for the seat being vacated by Representative Nydia Velázquez.`\
+**Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
+`Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
 https://www.nytimes.com/live/2026/06/23/nyregion/primary-elections-ny-maryland-utah
 

@@ -1,5 +1,5 @@
 **Darializa Avila Chevalier, a Mamdani Ally, Ousts Espaillat in Primary**\
-`The 32-year-old activist built a robust ground game powered by support from Mayor Zohran Mamdani. She will double the number of new democratic socialists in Congress.`\
+`The 32-year-old activist built a robust ground game powered by support from Mayor Zohran Mamdani. She will double the number of democratic socialists in Congress.`\
 https://www.nytimes.com/2026/06/23/nyregion/ny13-darializa-avila-chevalier-espaillat.html
 
 ****\
