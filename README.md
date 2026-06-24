@@ -1,3 +1,27 @@
+**A Billionaire’s Basquiat Collection Goes Up at Pérez Art Museum Miami**\
+`Ken Griffin, the hedge fund manager, looks for artworks with a “wow” factor, never mind the number of zeros on the price tag. Ten of his Basquiats are on loan to the Pérez Art Museum Miami.`\
+https://www.nytimes.com/2026/06/24/arts/design/basquiat-ken-griffin-perez-art-museum.html
+
+**Bahrain Restricts Shiite Holy Day Amid Iran War Crackdown**\
+`The restrictions are the latest in a string of measures Bahrain has taken against Shiite citizens in the Gulf country, with many accused of having loyalties to Iran.`\
+https://www.nytimes.com/2026/06/24/world/middleeast/bahrain-ashura-restrictions-shiite.html
+
+**The Slow Cooker Is Your Sous-Chef in This Shreddy Hoisin Garlic Chicken**\
+`This recipe requires almost no handiwork, except for chopping garlic and clicking a button.`\
+https://www.nytimes.com/2026/06/24/dining/the-slow-cooker-is-your-sous-chef-in-this-shreddy-hoisin-garlic-chicken.html
+
+**‘Henry VI,’ ‘Camping’ and 6 More Shows to See Now**\
+`New York in June is a bonanza of Off and Off Off Broadway productions. Here’s our guide to shows we recommend, many in the city’s coziest spaces (and closing soon).`\
+https://www.nytimes.com/2026/06/24/theater/off-broadway-shows-to-see-now.html
+
+**President Narcissus and the Fetid Reflecting Pool**\
+`Why the president’s latest renovation project is so irresistible and resonant.`\
+https://www.nytimes.com/2026/06/24/opinion/trump-reflecting-pool-washington.html
+
+**The Wife of Spain’s Leader Is Accused of Graft. It May Actually Help Him.**\
+`People close to Prime Minister Pedro Sánchez keep being investigated for corruption. Analysts say weaknesses in the latest case could help him discredit the others.`\
+https://www.nytimes.com/2026/06/24/world/europe/spain-sanchez-corruption.html
+
 **Israel Says It Has Trapped Hezbollah Fighters Underground in Southern Lebanon**\
 `The Israeli military says thousands of troops have surrounded a large tunnel network in southern Lebanon. The standoff is at the center of intense clashes in the area recently.`\
 https://www.nytimes.com/2026/06/24/world/middleeast/israel-lebanon-hezbollah-fighters-tunnels.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/06/24/arts/design/sonia-boyce-queens-museum-art.htm
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are in the East Village, East Harlem and Crown Heights.`\
 https://www.nytimes.com/2026/06/24/realestate/housing-market-nyc.html
-
-**Could Brazil’s Next Big Soccer Star Be Scouted By AI?**\
-`Recruitment apps powered by artificial intelligence are gaining ground in Brazil, promising to even the playing field and find more soccer talent.`\
-https://www.nytimes.com/2026/06/24/world/americas/brazil-soccer-ai-scout-fc-santos.html
-
-**‘In the Hand of Dante’ Review: A Not So Divine Folly**\
-`Not even a double dose of Oscar Isaac can rescue this fanciful, oversauced tale of stolen art and spiritual questioning.`\
-https://www.nytimes.com/2026/06/24/movies/in-the-hand-of-dante-review.html
-
-**Soccer in 110 Degrees? Memories of a Match When Heat ‘Sucked the Soul.’**\
-`One of the hottest games in World Cup history took place in Orlando, Fla., in June 1994, when Mexico took on Ireland. The players look back on it in disbelief.`\
-https://www.nytimes.com/2026/06/24/us/world-cup-hottest-match-1994.html
-
-**The Wearable Data Your Doctor Actually Wants**\
-`Wearables can offer rough information about a person’s health, experts say, but only some metrics are medically useful.`\
-https://www.nytimes.com/2026/06/24/well/health-wearables-doctors-rfk-apple-watch.html
-
-**Wild, Haunting New Fantasy Novels**\
-`Our columnist reviews “The Tapestry of Fate” and other books.`\
-https://www.nytimes.com/2026/06/24/books/review/new-fantasy-books.html
-
-**‘I Love Boosters’ Is the Perfect Film for Our Savage Era**\
-`“I Love Boosters” is a brilliant sendup of the absurd contradictions of our age.`\
-https://www.nytimes.com/2026/06/24/opinion/boots-riley-i-love-boosters.html
 
