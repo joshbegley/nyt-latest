@@ -1,3 +1,11 @@
+**House Democrat in Maryland Fends Off Rich Challenger Who Once Held Her Seat**\
+`Representative April McClain Delaney defeated David Trone, who lent himself $25 million in his unsuccessful bid to oust the woman who had succeeded him in the House.`\
+https://www.nytimes.com/2026/06/23/us/politics/delaney-trone-maryland-democratic-primary.html
+
+**Trump-Backed Sticker Magnate Wins House Primary in New York**\
+`Anthony Constantino defeated Assemblyman Robert Smullen, the state Republican Party’s chosen candidate, in a right-leaning upstate district.`\
+https://www.nytimes.com/2026/06/23/nyregion/stefanik-ny21-primary-constantino.html
+
 **Schlossberg’s Defeat Dampens Dream of a Renewed Camelot**\
 `Jack Schlossberg fell well short of his bid to win a highly contested Democratic primary in Manhattan, his campaign hurt by staff defections and missed meetings.`\
 https://www.nytimes.com/2026/06/23/nyregion/schlossberg-loses-camelot.html
