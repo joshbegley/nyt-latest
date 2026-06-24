@@ -1,3 +1,7 @@
+**Mamdani Allies Sweep New York Primaries**\
+`Mayor Zohran Mamdani’s progressive coalition had a big night on Tuesday. Brad Lander, Darializa Avila Chevalier and Claire Valdez won their Democratic House primaries.`\
+https://www.nytimes.com/video/us/elections/100000010988238/mamdani-allies-sweep-new-york-primaries.html
+
 **The Heat Wave in Europe Is Hitting Records. Here’s What to Know.**\
 `France had its hottest June day ever, with forecasters in Britain predicting that the record for the highest temperature for this time of year was also likely to be broken.`\
 https://www.nytimes.com/2026/06/24/weather/europe-extreme-heat-wave-warning.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/23/us/gracie-giraffe-texas-missing.html
 **Polling in New York’s 12th District Points to a Competitive Race**\
 `Micah Lasher and Alex Bores have consistently led in recent polls as Jack Schlossberg’s support has dipped.`\
 https://www.nytimes.com/2026/06/23/us/elections/new-york-12th-district-polling.html
-
-**In New York’s Seventh Congressional District, Demographics Are Fueling a Competitive Race**\
-`A Democratic primary featuring Antonio Reynoso, Claire Valdez and Julie Won could be defined by the recent influx of young white voters to the district.`\
-https://www.nytimes.com/2026/06/23/nyregion/ny7-house-race-demographic-fault-lines.html
 

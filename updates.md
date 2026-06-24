@@ -1,3 +1,7 @@
+**Mamdani Allies Sweep New York Primaries**\
+`Mayor Zohran Mamdani’s progressive coalition had a big night on Tuesday. Brad Lander, Darializa Avila Chevalier and Claire Valdez won their Democratic House primaries.`\
+https://www.nytimes.com/video/us/elections/100000010988238/mamdani-allies-sweep-new-york-primaries.html
+
 **The Heat Wave in Europe Is Hitting Records. Here’s What to Know.**\
 `France had its hottest June day ever, with forecasters in Britain predicting that the record for the highest temperature for this time of year was also likely to be broken.`\
 https://www.nytimes.com/2026/06/24/weather/europe-extreme-heat-wave-warning.html
