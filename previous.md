@@ -1,4 +1,4 @@
-**House Democrat in Maryland Fends Off Rich Challenger Who Once Held Her Seat**\
+**McClain Delaney Wins Democratic House Primary in Maryland Against Trone**\
 `Representative April McClain Delaney defeated David Trone, who lent himself $25 million in his unsuccessful bid to oust the woman who had succeeded him in the House.`\
 https://www.nytimes.com/2026/06/23/us/politics/delaney-trone-maryland-democratic-primary.html
 
