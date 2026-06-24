@@ -1,3 +1,19 @@
+**France Confirms First Ebola Case**\
+`The first case of Ebola was confirmed in France after a doctor, who returned from the Democratic Republic of Congo, tested positive.`\
+https://www.nytimes.com/video/world/europe/100000010988931/france-confirms-first-ebola-case.html
+
+**Ukrainian War Amputees Find Community in Sports**\
+`Groups of Ukrainian veterans who lost limbs in Russia’s invasion have found joy and formed new bonds after returning home through learning new sports.`\
+https://www.nytimes.com/video/world/europe/100000010988919/ukraine-war-amputees-sports.html
+
+**Cuba Announces Sweeping Overhaul of Struggling Communist Economy, But Obstacles Remain**\
+`The Cuban government announced a major economic restructuring, but experts say most changes would depend on buy-in from the Trump administration.`\
+https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communism-trump.html
+
+**ICC Judges Hit Back Against Trump Sanctions**\
+`Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
+https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
+
 **Support Builds on the Right for Prosecuting Women Who Get Abortions**\
 `Sentiment is shifting amid frustration in the antiabortion movement that more abortions are happening now than when Roe v. Wade fell.`\
 https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/24/learning/why-students-are-forced-to-fight-hun
 **Your Questions, Answered**\
 `We’re taking on reader queries about the news.`\
 https://www.nytimes.com/2026/06/24/briefing/your-questions-answered.html
-
-**Extreme Heat Across Europe Creates Divide Over Leaving Schools Open**\
-`Few schools in Britain or France have air-conditioning to keep children cool in soaring temperatures, leaving parents, teachers and officials divided about what to do.`\
-https://www.nytimes.com/2026/06/24/world/europe/heat-wave-schools-open-closed-france-uk.html
-
-**Folarin Balogun Transfer Updates, and the Doku Debate**\
-`The USMNT striker is turning heads at the World Cup.`\
-https://www.nytimes.com/2026/06/24/podcasts/folarin-balogun-transfer-updates-jeremy-doku-birth.html
-
-**How the Iran Deal Is Testing the U.S.-Israel Alliance**\
-`The conflict between Israel and Hezbollah in Lebanon poses a threat to U.S.-Iran negotiations to permanently end the war in Iran.`\
-https://www.nytimes.com/2026/06/24/podcasts/the-daily/iran-war-israel-alliance.html
-
-**Deadly Heat Wave Grips Europe, and Congress Passes a Landmark Housing Bill**\
-`Plus, why some tech companies are telling workers to cut back on A.I.`\
-https://www.nytimes.com/2026/06/24/podcasts/the-headlines/heatwave-europe-congress-housing-bill.html
 

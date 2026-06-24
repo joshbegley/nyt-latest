@@ -1,3 +1,11 @@
+**NY Jewish Leaders Wrestle With Israel Critics’ Sweep in Primary Elections**\
+`Pro-Israel leaders in New York expressed alarm at the primary victories of three Democratic candidates backed by Mayor Zohran Mamdani. Progressive Jewish groups celebrated.`\
+https://www.nytimes.com/2026/06/24/nyregion/jewish-leaders-primary-reaction.html
+
+**Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
+`Brooklyn federal prosecutors accuse Mr. Carone and his brother of profiting from the city’s migrant crisis. He was the chief of staff to former Mayor Eric Adams.`\
+https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
+
 **Support Builds on the Right for Prosecuting Women Who Get Abortions**\
 `Sentiment is shifting amid frustration in the antiabortion movement that more abortions are happening now than when Roe v. Wade fell.`\
 https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
