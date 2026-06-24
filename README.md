@@ -1,3 +1,7 @@
+**Darializa Avila Chevalier, a Mamdani Ally, Ousts Espaillat in Primary**\
+`The 32-year-old activist built a robust ground game powered by support from Mayor Zohran Mamdani. She will double the number of new democratic socialists in Congress.`\
+https://www.nytimes.com/2026/06/23/nyregion/ny13-darializa-avila-chevalier-espaillat.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/elections/100000010988086/24vid-Chevalier-embed-50161.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/23/world/australia/australia-albanese-prime-mini
 **Comedian Guy Branum on ‘What the Old Gays Remember’**\
 `Telling tales from the ancient past of 1997, the comedian Guy Branum is teaching Gen Z what their forefathers knew.`\
 https://www.nytimes.com/2026/06/23/style/guy-branum-what-old-gays-remember.html
-
-**Why Neither Candidate for Governor of New York Faces a Primary Challenge**\
-`Six months ago, Gov. Kathy Hochul expected to have to run in a primary, and it looked like two leading state Republicans would be fighting for their party’s nod. Then things changed.`\
-https://www.nytimes.com/2026/06/23/nyregion/blakeman-hochul-governor-new-york.html
 
 **Election Live Updates: Mamdani Allies Sweep House Primaries in Big Night for Left-Wing Democrats**\
 `Mayor Zohran Mamdani backed Darializa Avila Chevalier, who beat Representative Adriano Espaillat, and Brad Lander, who ousted Representative Dan Goldman.`\
