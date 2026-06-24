@@ -1,3 +1,7 @@
+**Democrats Are Done With Caution**\
+`Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
+https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
+
 **Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
 `El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
 https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html

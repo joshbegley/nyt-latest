@@ -1,3 +1,11 @@
+**Map: 7.1-Magnitude Earthquake Shakes Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
+
+**Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
+`The ruling of a three-judge appeals panel in Michigan was the most significant rebuke yet to the Department of Justice’s effort to find ineligible voters in state voter rolls.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-voter-rolls-data-ruling.html
+
 **Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
 `El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
 https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/06/24/espanol/estilos-de-vida/eclipse-espana-don
 **Utah Senate President Loses Republican Primary After Data Center Backlash**\
 `The upset of J. Stuart Adams represented one of the strongest examples of how the data center issue has affected elections.`\
 https://www.nytimes.com/2026/06/24/us/j-stuart-adams-utah-senate-data-center.html
-
-**With a Proposed $250 Bill, Trump Reimagines America by Putting Himself on Its Money**\
-`Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
-
-**The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
-`For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
-https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
 
