@@ -1,3 +1,11 @@
+**Senate Rebukes Trump in Vote to Check His War Powers in Iran**\
+`Four Senate Republicans sided with Democrats in a 50-to-48 vote calling for President Trump to end the war in Iran or seek congressional authorization to continue it. The House passed the same measure a few weeks earlier.`\
+https://www.nytimes.com/video/us/politics/100000010988414/senate-trump-war-powers-iran-vote.html
+
+**Frank Carone, Longtime Eric Adams Associate, Is Arrested in Bribery Scheme**\
+`Brooklyn federal prosecutors are charging Mr. Carone, his brother and two others in a corruption indictment. He was the chief of staff to former Mayor Eric Adams.`\
+https://www.nytimes.com/2026/06/24/nyregion/frank-carone-arrested.html
+
 **France Identifies First Case of Ebola**\
 `The patient is a doctor who had traveled to the Democratic Republic of Congo, the health ministry said. Workers are racing to trace those who may have had contact.`\
 https://www.nytimes.com/2026/06/24/world/europe/ebola-france.html
