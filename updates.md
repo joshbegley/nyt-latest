@@ -1,3 +1,11 @@
+**A Climate Chaos Maker**\
+`Global warming is causing extreme heat around the world. Now El Niño, a natural phenomenon that disrupts global weather patterns, is also at work.`\
+https://www.nytimes.com/2026/06/24/world/europe-climate-heat-wave-ebola-world-cup.html
+
+**Fruit Fly Sperm Are Giant. How Do They Stay Untangled?**\
+`A fruit fly’s sperm are exceptionally long, and thousands are crammed in together. The physics of this presents a packing nightmare.`\
+https://www.nytimes.com/2026/06/24/science/giant-fruit-fly-sperm-untangled.html
+
 **Restaurant Reviews: Baohaus, Cove and More**\
 `New stars drop for a New American restaurant from a culinary wunderkind, an idiosyncratic fine-dining spot on the Lower East Side and a Singaporean storefront in Hell’s Kitchen.`\
 https://www.nytimes.com/2026/06/24/dining/restaurant-reviews-cove-baohaus-and-more.html
