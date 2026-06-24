@@ -1,3 +1,19 @@
+**From ‘Terrible People’ to ‘Smart People’: The Trump-Led Right Rethinks Iran**\
+`The president has sought to recast the Iranian government as he pursues a peace deal. But there are signs that a softening on Iran in the Republican Party goes well beyond him.`\
+https://www.nytimes.com/2026/06/24/us/politics/republicans-iran.html
+
+**Jordyn Woods’s Lucky Knicks Bag is on Display in the Guggenheim**\
+`The orange clutch carried by Woods, who is engaged to the Knicks center Karl-Anthony Towns, became a talisman for the team’s N.B.A. Championship victory through memes and social media chatter.`\
+https://www.nytimes.com/2026/06/24/style/jordyn-woods-guggenheim-lucky-bag.html
+
+**What Alex Bores’s New York Defeat Reveals About the Fight Over A.I. Money in Politics**\
+`Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
+
+**Trump Refuses to Sign Housing Bill Until Divisive ‘SAVE’ Voting Act Passes Congress**\
+`The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
+
 **Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
 `The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
 https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html

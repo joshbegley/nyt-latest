@@ -1,3 +1,11 @@
+**From ‘Terrible People’ to ‘Smart People’: The Trump-Led Right Rethinks Iran**\
+`The president has sought to recast the Iranian government as he pursues a peace deal. But there are signs that a softening on Iran in the Republican Party goes well beyond him.`\
+https://www.nytimes.com/2026/06/24/us/politics/republicans-iran.html
+
+**Jordyn Woods’s Lucky Knicks Bag is on Display in the Guggenheim**\
+`The orange clutch carried by Woods, who is engaged to the Knicks center Karl-Anthony Towns, became a talisman for the team’s N.B.A. Championship victory through memes and social media chatter.`\
+https://www.nytimes.com/2026/06/24/style/jordyn-woods-guggenheim-lucky-bag.html
+
 **Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
 `The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
 https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthrope
 `Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
 https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
 
-**Even in Defeat, a Democrat Showed the Upside of Angering the A.I. Industry**\
+**What Alex Bores’s New York Defeat Reveals About the Fight Over A.I. Money in Politics**\
 `Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
 https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
 
@@ -138,7 +146,7 @@ https://www.nytimes.com/interactive/2026/06/24/us/quake-tracker-northern-califor
 `Unexpected celebrities. An old gay. Picnics.`\
 https://www.nytimes.com/2026/06/24/briefing/today-in-short.html
 
-**Trump Refuses to Sign Housing Bill Until Unpopular ‘SAVE’ Voting Act Passes Congress**\
+**Trump Refuses to Sign Housing Bill Until Divisive ‘SAVE’ Voting Act Passes Congress**\
 `The president’s announcement declared the bill to be “of minor importance” at the same time that House Republican leaders were heralding it as a major accomplishment.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-housing-bill-voting-restrictions.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/europe/100000010988531/france-heat-wave-reco
 **The Must-Know Trends and Stories from Milan Fashion Week**\
 `From would-be cabana boys to a Rugby revival, here are the highlights from this season’s men's shows.`\
 https://www.nytimes.com/2026/06/24/style/milan-fashion-week-menswear-trends.html
-
-**My Sister Is Delusional and an Attention Hog. Can I Ignore Her Texts?**\
-`A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
-https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
-
-**N.Y.P.D., F.B.I. Search Homes of Police Officials in Corruption Inquiries**\
-`The searches, by police internal affairs investigators and federal authorities, stemmed from earlier scrutiny of Jeffrey Maddrey, the former chief of the department, according to people with knowledge of the matter.`\
-https://www.nytimes.com/2026/06/24/nyregion/nypd-corruption.html
 
