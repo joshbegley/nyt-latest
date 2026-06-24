@@ -1,3 +1,7 @@
+**Your Questions, Answered**\
+`We’re taking on reader queries about the news.`\
+https://www.nytimes.com/2026/06/24/briefing/your-questions-answered.html
+
 **Extreme Heat Across Europe Creates Divide Over Leaving Schools Open**\
 `Few schools in Britain or France have air-conditioning to keep children cool in soaring temperatures, leaving parents, teachers and officials divided about what to do.`\
 https://www.nytimes.com/2026/06/24/world/europe/heat-wave-schools-open-closed-france-uk.html
