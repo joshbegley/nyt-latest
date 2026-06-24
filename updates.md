@@ -1,3 +1,71 @@
+**A General Many Hoped Would Lead the Army Is Forced to Step Aside**\
+`Gen. Christopher T. Donahue was seen as a rising star in the Army. But Defense Secretary Pete Hegseth viewed him with skepticism.`\
+https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegseth.html
+
+**Visitors Look at the Reflecting Pool and Disagree on What They See**\
+`People have long gathered in solidarity by the Reflecting Pool, but amid the turmoil of President Trump’s attempted repairs there is little unity to be found.`\
+https://www.nytimes.com/2026/06/24/us/reflecting-pool-visitors.html
+
+**From ‘Terrible People’ to ‘Smart People’: The Trump-Led Right Rethinks Iran**\
+`The president has sought to recast the Iranian government as he pursues a peace deal. But there are signs that a softening on Iran in the Republican Party goes well beyond him.`\
+https://www.nytimes.com/2026/06/24/us/politics/republicans-iran.html
+
+**Jordyn Woods’s Lucky Knicks Bag is on Display in the Guggenheim**\
+`The orange clutch carried by Woods, who is engaged to the Knicks center Karl-Anthony Towns, became a talisman for the team’s N.B.A. Championship victory through memes and social media chatter.`\
+https://www.nytimes.com/2026/06/24/style/jordyn-woods-guggenheim-lucky-bag.html
+
+**Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
+`The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
+https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
+
+**7 Lessons and Consequences of the Iran War**\
+`Green energy, modern war and American hegemony`\
+https://www.nytimes.com/2026/06/24/opinion/iran-war-lessons.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Naming the moon, Sometimes Island and laughing in real life.`\
+https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthropeum.html
+
+**Read the Indictment of Brooklyn Power Broker Frank Carone**\
+`Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
+https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
+
+**What Alex Bores’s New York Defeat Reveals About the Fight Over A.I. Money in Politics**\
+`Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
+
+**Judge Orders U.S. to Stop Seeking Medical Records of Transgender Youth**\
+`The Justice Department had sought information about care provided at New York City hospitals, which were the subject of the ruling.`\
+https://www.nytimes.com/2026/06/24/nyregion/transgender-youth-medical-records-doj-judge.html
+
+**OpenAI and Broadcom Unveil Custom A.I. Chip Design**\
+`The maker of ChatGPT plans to use enough chips to consume 10 gigawatts of electricity, an amount that could power millions of households.`\
+https://www.nytimes.com/2026/06/24/technology/openai-broadcom-chip-jalapeno.html
+
+**Mayor’s Race in South Dakota’s Largest City Rests on 2 Votes**\
+`With nearly all votes counted, a former Republican legislator was leading a Democratic state senator to be mayor of Sioux Falls, S.D.`\
+https://www.nytimes.com/2026/06/24/us/mayor-sioux-falls-south-dakota.html
+
+**France Confirms First Ebola Case**\
+`The first case of Ebola was confirmed in France after a doctor, who returned from the Democratic Republic of Congo, tested positive.`\
+https://www.nytimes.com/video/world/europe/100000010988931/france-confirms-first-ebola-case.html
+
+**Ukrainian War Amputees Find Community in Sports**\
+`Groups of Ukrainian veterans who lost limbs in Russia’s invasion have found joy and formed new bonds after returning home through learning new sports.`\
+https://www.nytimes.com/video/world/europe/100000010988919/ukraine-war-amputees-sports.html
+
+**Cuba Announces Sweeping Overhaul of Struggling Communist Economy, But Obstacles Remain**\
+`The Cuban government announced a major economic restructuring, but experts say most changes would depend on buy-in from the Trump administration.`\
+https://www.nytimes.com/2026/06/24/world/americas/cuba-economy-overhaul-communism-trump.html
+
+**ICC Judges Sue Trump Administration Over Sanctions**\
+`Kimberly Prost, a Canadian judge at the International Criminal Court, and two colleagues are suing the administration, saying the sanctions were a form of retaliation.`\
+https://www.nytimes.com/2026/06/24/world/europe/trump-sanctions-judges-lawsuit.html
+
+**Support Builds on the Right for Prosecuting Women Who Get Abortions**\
+`Sentiment is shifting amid frustration in the antiabortion movement that more abortions are happening now than when Roe v. Wade fell.`\
+https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html
+
 **My Sister Is Delusional and an Attention Hog. Can I Ignore Her Texts?**\
 `A reader is consistently flustered by messages from her sister that recall their mother in a flattering light, or that she sees as bragging. Must she reply?`\
 https://www.nytimes.com/2026/06/24/style/text-messages-siblings.html
