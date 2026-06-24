@@ -1,3 +1,7 @@
+**Trump Cancels Plans to Sign a Bipartisan Housing Bill**\
+`Also, Western Europe is sweltering. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipartisan-housing-bill.html
+
 **The Left Is Ascendant in New York. Swing States Could Be Next.**\
 `Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
 https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-
 **The Drop-off in Dropouts**\
 `How high schools closed the graduation gap.`\
 https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
-
-**New Clues Point to Taylor Swift Wedding Event at M.S.G.**\
-`After weeks of speculation over Taylor Swift and Travis Kelce’s wedding plans, a permit has been filed for an event at Madison Square Garden over the July 4 weekend.`\
-https://www.nytimes.com/2026/06/24/nyregion/taylor-swift-wedding-madison-square-garden.html
 
