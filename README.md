@@ -1,3 +1,7 @@
+**Shortage of Chemotherapy Drugs Brings Rationing Fears for Cancer Patients**\
+`Doctors are contending with low supplies and unfilled orders of generic chemotherapy infusions that are central to the treatment of a long list of cancers.`\
+https://www.nytimes.com/2026/06/24/health/chemotherapy-drug-shortage.html
+
 **Cuba anuncia una transformación económica importante**\
 `Los economistas señalan que el plan representa un cambio radical: es la primera vez desde la revolución de 1959, que instauró el régimen comunista, que el gobierno ofrece renunciar al control total del comercio.`\
 https://www.nytimes.com/es/2026/06/24/espanol/america-latina/cuba-medidas-economicas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/science/ebola-bundibugyo-animal-reservoir.htm
 **A Billionaire’s Basquiat Collection Goes Up at Pérez Art Museum Miami**\
 `Ken Griffin, the hedge fund manager, looks for artworks with a “wow” factor, never mind the number of zeros on the price tag. Ten of his Basquiats are on loan to the Pérez Art Museum Miami.`\
 https://www.nytimes.com/2026/06/24/arts/design/basquiat-ken-griffin-perez-art-museum.html
-
-**Bahrain Restricts Shiite Holy Day Amid Iran War Crackdown**\
-`The restrictions are the latest in a string of measures Bahrain has taken against Shiite citizens in the Gulf country, with many accused of having loyalties to Iran.`\
-https://www.nytimes.com/2026/06/24/world/middleeast/bahrain-ashura-restrictions-shiite.html
 
