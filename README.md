@@ -87,7 +87,7 @@ https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-pausa-hidratacion
 https://www.nytimes.com/2026/06/24/podcasts/friends-for-16-years-lovers-for-one-night-encore.html
 
 **Trump to Meet With G.O.P. Senators Amid New Divisions**\
-`The president has been unhappy with pushback from Republican senators and a resistance to abandoning the filibuster to pass new voting restrictions.`\
+`The president has been unhappy with pushback from Republican senators and a resistance to abandoning the filibuster to pass voting restrictions. His visit comes after the Senate rebuked him on Iran.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-republicans-meeting.html
 
 **Kevin Warsh Is Missing Alan Greenspan’s Point**\
