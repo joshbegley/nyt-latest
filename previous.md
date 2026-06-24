@@ -1,3 +1,7 @@
+**Trump Reimagines America by Putting Himself on Its Money**\
+`Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
+
 **The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
 `For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
 https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-pausa-hidratacion
 **Friends for 16 Years. Lovers for One Night. (Encore)**\
 `They always wondered what it would be like to sleep together. By the time they were ready to find out, it was almost too late.`\
 https://www.nytimes.com/2026/06/24/podcasts/friends-for-16-years-lovers-for-one-night-encore.html
-
-**Trump Meeting With G.O.P. Senators Puts Rifts on Display as He Upends Housing Bill**\
-`Hours before visiting the Capitol, the president scrapped plans to sign a bipartisan housing bill, railing against “bad Republicans” for resisting his demands to ram through new voting restrictions.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-senate-republicans-meeting.html
 

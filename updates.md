@@ -1,3 +1,7 @@
+**Trump Reimagines America by Putting Himself on Its Money**\
+`Cash might be a relic, but — like royalty and emperors — President Trump still wants his face on American currency.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-american-money.html
+
 **The Knicks, Memes, Family Secrets and Clavicular: The Winners of Week One of Our Summer Reading Contest**\
 `For our kickoff week we’re honoring two videos and two short essays from 634 teen submissions.`\
 https://www.nytimes.com/2026/06/24/learning/the-knicks-memes-family-secrets-and-clavicular-the-winners-of-week-one-of-our-summer-reading-contest.html
