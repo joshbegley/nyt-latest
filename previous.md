@@ -1,3 +1,7 @@
+**A Record Sotheby’s Auction Thrills London After a Brexit Hangover**\
+`British auction sales have declined by nearly half since 2015, but Wednesday’s results hint at a return to form for London as an international auction center.`\
+https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis.html
+
 **Trump Cancels Plans to Sign a Bipartisan Housing Bill**\
 `Also, Western Europe is sweltering. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipartisan-housing-bill.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/world/europe/europe-heat-wave-photos.html
 **Pulte Trims Spy Agency, but Spares Bulk of Staff for Now**\
 `Six intelligence officials were fired and nearly four dozen others were sent back to their home agencies elsewhere, former officials said.`\
 https://www.nytimes.com/2026/06/24/us/politics/pulte-cuts-national-intelligence-trump.html
-
-**The Drop-off in Dropouts**\
-`How high schools closed the graduation gap.`\
-https://www.nytimes.com/2026/06/24/headway/high-school-graduation-rates.html
 
