@@ -1,3 +1,7 @@
+**NATO’s Leader Makes His Case to Trump for Preserving the Alliance**\
+`Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
+https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
+
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
 `Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
 https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html

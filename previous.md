@@ -1,3 +1,7 @@
+**NATO’s Leader Makes His Case to Trump for Preserving the Alliance**\
+`Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
+https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
+
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
 `Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
 https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthrope
 **Read the Indictment of Brooklyn Power Broker Frank Carone**\
 `Once the chief of staff to former Mayor Eric Adams of New York, Mr. Carone was accused of accepting bribes in exchange for steering an emergency migrant shelter contract to a Queens developer.`\
 https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.html
-
-**What Alex Bores’s New York Defeat Reveals About the Fight Over A.I. Money in Politics**\
-`Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
-https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
 
