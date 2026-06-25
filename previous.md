@@ -1,3 +1,11 @@
+**Who Is Ahead in Minnesota's 2nd Congressional District?**\
+`Track the latest polls in Minnesota's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/minnesota-us-house-2-polls-2026.html
+
+**Who Is Ahead in Minnesota's 1st Congressional District?**\
+`Track the latest polls in Minnesota's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/minnesota-us-house-1-polls-2026.html
+
 **Who Is Ahead in Massachusetts's 8th Congressional District?**\
 `Track the latest polls in Massachusetts's 8th Congressional District.`\
 https://www.nytimes.com/interactive/polls/massachusetts-us-house-8-polls-2026.html
@@ -94,7 +102,7 @@ https://www.nytimes.com/2026/06/25/weather/london-climate-action-extreme-heat-wa
 `Industry leaders had worried that innovations in chip miniaturization were no longer possible.`\
 https://www.nytimes.com/2026/06/25/technology/ibm-technology-tinier-chips.html
 
-**A Major Victory for Progressive Democrats**\
+**Mayor Mamdani Flexes His Power in the Midterms**\
 `Candidates backed by Mayor Zohran Mamdani of New York swept the city’s Democratic primaries.`\
 https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primaries-new-york.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/25/business/federal-reserve-inflation-pce.html
 **Traveling to Europe in a Heat Wave? Here’s What to Know.**\
 `Residents and summer travelers alike are searching for ways to stay safe and cool as the continent swelters amid a heat wave. Here are some tips.`\
 https://www.nytimes.com/2026/06/25/travel/europe-heat-wave-what-to-know.html
-
-**‘The Bear’: What to Remember Before the Final Season**\
-`The stressed-out staff at the Bear is back for one final dinner service and an uncertain fate. Here’s where Season 4 left off.`\
-https://www.nytimes.com/2026/06/25/arts/television/the-bear-season-4-recap.html
-
-**Turkey or Türkiye? Who Is the U.S. Playing?**\
-`The push to rebrand the country, which started in the last decade, was inspired by politicians and coincided with an international public relations campaign.`\
-https://www.nytimes.com/2026/06/25/world/europe/turkiye-turkey-name-change-world-cup-usa.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\

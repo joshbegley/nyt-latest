@@ -1,3 +1,15 @@
+**Who Is Ahead in Minnesota's 2nd Congressional District?**\
+`Track the latest polls in Minnesota's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/minnesota-us-house-2-polls-2026.html
+
+**Who Is Ahead in Minnesota's 1st Congressional District?**\
+`Track the latest polls in Minnesota's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/minnesota-us-house-1-polls-2026.html
+
+**Mayor Mamdani Flexes His Power in the Midterms**\
+`Candidates backed by Mayor Zohran Mamdani of New York swept the city’s Democratic primaries.`\
+https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primaries-new-york.html
+
 **Who Is Ahead in Massachusetts's 8th Congressional District?**\
 `Track the latest polls in Massachusetts's 8th Congressional District.`\
 https://www.nytimes.com/interactive/polls/massachusetts-us-house-8-polls-2026.html
