@@ -1,3 +1,11 @@
+**Who Is Ahead in New Mexico's 2nd Congressional District?**\
+`Track the latest polls in New Mexico's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-house-2-polls-2026.html
+
+**Who Is Ahead in Nebraska's 1st Congressional District?**\
+`Track the latest polls in Nebraska's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/nebraska-us-house-1-polls-2026.html
+
 **Why the Venezuelan Earthquakes Happened, and What to Expect Next**\
 `Twin earthquakes like those that ripped through the region are unusual but not unheard of. Scientists are already gathering data needed for a more detailed picture.`\
 https://www.nytimes.com/2026/06/25/science/venezeula-earthquakes-faults-geology.html
