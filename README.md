@@ -1,3 +1,11 @@
+**La Guaira: una ciudad venezolana marcada por la tragedia**\
+`Los mortales deslaves de 1999 asestaron golpes duraderos a la empobrecida La Guaira. La respuesta de la presidenta en funciones, Delcy Rodríguez, podría ser un indicador de su futuro político.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/la-guaira-tragedia.html
+
+**Blakeman Suggests Lander, a Jewish Politician, Would Have Aided Nazis**\
+`Brad Lander, a Democrat who won his House primary in New York, told voters to reject the “bigotry” of Bruce Blakeman, a Republican candidate for governor who is also Jewish.`\
+https://www.nytimes.com/2026/06/25/nyregion/blakeman-lander-jewish-nazis.html
+
 **How Trump Wants to Upend Voting in America**\
 `President Trump is demanding that Congress pass the SAVE America Act to change American elections. Our national politics reporter Nick Corasaniti looks at what’s in it.`\
 https://www.nytimes.com/video/us/politics/100000010989159/how-trump-wants-to-upend-voting-in-america.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/25/style/gen-z-jobs.html
 **Terremotos en Venezuela: cómo ayudar a los damnificados**\
 `Los equipos de rescate siguen buscando sobrevivientes; los ciudadanos se esfuerzan por rescatar a amigos y vecinos y otros países han prometido ayuda y recursos al país. Esto puedes hacer para colaborar.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/como-ayudar.html
-
-**Devastating Earthquakes Will Test Venezuela’s Newfound Alliance With U.S.**\
-`President Trump has boasted of the success of an armed intervention in Venezuela. A natural disaster raises pressure to match rhetoric with action.`\
-https://www.nytimes.com/2026/06/25/world/americas/devastating-earthquakes-will-test-venezuelas-newfound-alliance-with-us.html
-
-**Trump Keeps Undercutting Republicans’ Message, Squandering His Own Trifecta**\
-`Divisions between the president and his party on Capitol Hill have muddled Republicans’ midterm pitch to voters, and have crippled the G.O.P. at what should be the peak of its power.`\
-https://www.nytimes.com/2026/06/25/us/politics/trump-senate-republicans-undercutting-message.html
 
 **Venezuela Live Updates: Search for Survivors Grows More Urgent 24 Hours After Quakes**\
 `Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
