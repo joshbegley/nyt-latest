@@ -1,3 +1,7 @@
+**Tracking Heat Across Europe**\
+`summary`\
+https://www.nytimes.com/interactive/2026/06/25/weather/european-heat-tracker.html
+
 **Ejercicio y cortisol: ¿es cierto lo que dicen en internet?**\
 `Le pedimos a varios expertos que nos expliquen la relación entre la hormona del estrés y la actividad física.`\
 https://www.nytimes.com/es/2026/06/25/espanol/ejercicio-intenso-cortisol.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 **Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
-
-**Meta pone la mira en los mercados de predicción**\
-`Una aplicación experimental, llamada internamente Arena, iría tras los clientes de Polymarket y Kalshi.`\
-https://www.nytimes.com/es/2026/06/24/espanol/negocios/meta-zuckerberg-prediccion-polymarket.html
 
