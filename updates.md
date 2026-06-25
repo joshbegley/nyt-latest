@@ -1,3 +1,7 @@
+**Utah and Arizona Face ‘Extremely Critical’ Fire Weather on Friday**\
+`Forecasters this week issued one of their rarest warnings as a potent mix of storms, wind and dry vegetation threatens to spark more wildfires.`\
+https://www.nytimes.com/2026/06/25/weather/critical-fire-weather-utah-arizona.html
+
 **New York’s Indian Dining Scene Has Never Been More Exciting**\
 `Mounds of mandi, endless thalis and lamb chops with pageantry are on full display as hyper-regional restaurants take over.`\
 https://www.nytimes.com/2026/06/25/dining/new-yorks-indian-dining-scene-has-never-been-more-exciting.html
