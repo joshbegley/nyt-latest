@@ -1,3 +1,19 @@
+**Supreme Court Overturns Hawaii Gun Law**\
+`The case involved a Second Amendment challenge to a Hawaii law that barred carrying concealed weapons without permission onto private property open to the public.`\
+https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
+
+**Supreme Court Lets Trump End Protection From Deportation for Haitians and Syrians**\
+`President Trump has pushed to rescind Temporary Protected Status for hundreds of thousands of people from countries convulsed by humanitarian crises.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
+
+**Where Are the Most Data Centers Planned?**\
+`The rural South expects the most of the noisy, power-hungry facilities.`\
+https://www.nytimes.com/2026/06/25/realestate/where-are-the-most-data-centers-planned.html
+
+**Who Is Ahead in New Jersey's 2nd Congressional District?**\
+`Track the latest polls in New Jersey's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-jersey-us-house-2-polls-2026.html
+
 **Who Is Ahead in Missouri's 2nd Congressional District?**\
 `Track the latest polls in Missouri's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/missouri-us-house-2-polls-2026.html
