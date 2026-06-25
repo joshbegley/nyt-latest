@@ -1,3 +1,15 @@
+**Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
+`The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
+
+**Venezuela Live Updates: 2 Major Earthquakes Hit Country’s Center**\
+`The earthquakes were a magnitude 7.2 and 7.5, according to the U.S.G.S. People in the stricken area said that buildings shook and electricity was knocked out, including in the capital, Caracas. Images showed collapsed buildings and people congregating in the streets.`\
+https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
+
+**Un temblor de magnitud 7,2 se registra en Venezuela**\
+`Los residentes de Caracas, la capital, dijeron que el terremoto sacudió los edificios y provocó un apagón. Las imágenes mostraban edificios dañados y personas reunidas en las calles.`\
+https://www.nytimes.com/es/2026/06/24/espanol/america-latina/temblor-venezuela-caracas-epicentro.html
+
 **Meta pone la mira en los mercados de predicción**\
 `Una aplicación experimental, llamada internamente Arena, iría tras los clientes de Polymarket y Kalshi.`\
 https://www.nytimes.com/es/2026/06/24/espanol/negocios/meta-zuckerberg-prediccion-polymarket.html
