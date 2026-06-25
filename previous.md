@@ -194,7 +194,3 @@ https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
 `View the location of the quake epicenters and shake areas.`\
 https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
 
-**Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
-`The ruling of a three-judge appeals panel in Michigan was the most significant rebuke yet to the Department of Justice’s effort to find ineligible voters in state voter rolls.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-voter-rolls-data-ruling.html
-
