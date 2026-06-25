@@ -1,3 +1,11 @@
+**Ex-Youth Pastor Charged With Wife’s Murder, 20 Years After Her Fatal Fall**\
+`Bernadette Vander Meer’s death in Zion National Park in Utah had been considered an accident. Prosecutors reopened the case in 2022 and now say her husband was having an affair with an underage girl.`\
+https://www.nytimes.com/2026/06/24/us/zion-national-park-angels-landing-murder.html
+
+**Queens State Assembly Candidate Charged With Forgery for A.I. Use**\
+`The arraignment on Wednesday is said to be the first time a politician in New York is facing criminal charges relating to A.I. interference in an election.`\
+https://www.nytimes.com/2026/06/24/nyregion/queens-politician-ai-charge.html
+
 **Judge Throws Out Federal Suit Against 4 N.J. ‘Sanctuary’ Cities**\
 `Judge Evelyn Padin ruled the Justice Department’s lawsuit ​was flawed because it did not also challenge a state directive limiting local cooperation with federal immigration agents.`\
 https://www.nytimes.com/2026/06/24/us/politics/new-jersey-sanctuary-cities-lawsuit.html
@@ -14,6 +22,10 @@ https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.h
 `Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
 
+**Dos fuertes sismos sacuden el centro del país**\
+`Los sismos tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
+https://www.nytimes.com/live/2026/06/24/espanol/venezuela-temblor
+
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
 `Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
 https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
@@ -25,10 +37,6 @@ https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-californ
 **Venezuela Live Updates: 2 Major Earthquakes Hit Country’s Center**\
 `The earthquakes were a magnitude 7.2 and 7.5, according to a U.S. monitoring agency. People in the stricken area said that buildings collapsed and electricity was knocked out, including in the capital, Caracas.`\
 https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
-
-**Esto es lo que hay que saber**\
-`Los residentes de Caracas, la capital, dijeron que el terremoto sacudió los edificios y provocó un apagón. Las imágenes mostraban edificios dañados y personas reunidas en las calles.`\
-https://www.nytimes.com/es/2026/06/24/espanol/america-latina/temblor-venezuela-caracas-epicentro.html
 
 **Meta pone la mira en los mercados de predicción**\
 `Una aplicación experimental, llamada internamente Arena, iría tras los clientes de Polymarket y Kalshi.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/24/us/reflecting-pool-visitors.html
 **From ‘Terrible People’ to ‘Smart People’: The Trump-Led Right Rethinks Iran**\
 `The president has sought to recast the Iranian government as he pursues a peace deal. But there are signs that a softening on Iran in the Republican Party goes well beyond him.`\
 https://www.nytimes.com/2026/06/24/us/politics/republicans-iran.html
-
-**Jordyn Woods’s Lucky Knicks Bag is on Display in the Guggenheim**\
-`The orange clutch carried by Woods, who is engaged to the Knicks center Karl-Anthony Towns, became a talisman for the team’s N.B.A. Championship victory through memes and social media chatter.`\
-https://www.nytimes.com/2026/06/24/style/jordyn-woods-guggenheim-lucky-bag.html
-
-**Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
-`The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
-https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
 

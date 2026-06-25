@@ -1,3 +1,15 @@
+**Ex-Youth Pastor Charged With Wife’s Murder, 20 Years After Her Fatal Fall**\
+`Bernadette Vander Meer’s death in Zion National Park in Utah had been considered an accident. Prosecutors reopened the case in 2022 and now say her husband was having an affair with an underage girl.`\
+https://www.nytimes.com/2026/06/24/us/zion-national-park-angels-landing-murder.html
+
+**Queens State Assembly Candidate Charged With Forgery for A.I. Use**\
+`The arraignment on Wednesday is said to be the first time a politician in New York is facing criminal charges relating to A.I. interference in an election.`\
+https://www.nytimes.com/2026/06/24/nyregion/queens-politician-ai-charge.html
+
+**Dos fuertes sismos sacuden el centro del país**\
+`Los sismos tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
+https://www.nytimes.com/live/2026/06/24/espanol/venezuela-temblor
+
 **Judge Throws Out Federal Suit Against 4 N.J. ‘Sanctuary’ Cities**\
 `Judge Evelyn Padin ruled the Justice Department’s lawsuit ​was flawed because it did not also challenge a state directive limiting local cooperation with federal immigration agents.`\
 https://www.nytimes.com/2026/06/24/us/politics/new-jersey-sanctuary-cities-lawsuit.html
