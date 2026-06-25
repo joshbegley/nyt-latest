@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/06/25/podcasts/world-cup-fandom-worst-messi-intervi
 `The Trump administration has demanded that Iraqi leaders distance themselves from Iran and rein in Iran-linked militias that are outside of government control.`\
 https://www.nytimes.com/2026/06/25/world/middleeast/iraq-militias-state-control.html
 
-**Esta es la lujosa ciudad en Taiwán impulsada por el auge de la IA**\
-`Hsinchu pasó de ser una zona dedicada al cultivo a alojar una de las explosiones más vertiginosas de riqueza y desarrollo en toda Asia.`\
-https://www.nytimes.com/es/2026/06/25/espanol/negocios/taiwan-chips-ia.html
-
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
 https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
