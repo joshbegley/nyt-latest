@@ -1,3 +1,7 @@
+**Venezuela Residents Describe Terror as Deadly Earthquake Struck**\
+`Buildings collapsed, windows rattled and residents poured into the streets in Venezuela’s capital and nearby cities after two major earthquakes hit.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-caracas.html
+
 **North Korea Deploys Its First Destroyer, Vowing to Project Nuclear Power by Sea**\
 `The 5,000-ton Choe Hyon is the largest warship North Korea has ever built and is said to be armed with nuclear-capable missiles.`\
 https://www.nytimes.com/2026/06/25/world/asia/north-korea-destroyer-nuclear.html
