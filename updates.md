@@ -1,3 +1,15 @@
+**Nueva York en alerta por un misterioso evento en el Madison Square Garden**\
+`El Times ha confirmado que Taylor Swift ha alquilado la arena deportiva para el fin de semana del 4 de julio, lo que sugiere que tiene previsto organizar una celebración de varios días.`\
+https://www.nytimes.com/es/2026/06/25/espanol/cultura/taylor-swift-boda-madison-square-garden.html
+
+**Word of the Day: apotheosis**\
+`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/25/learning/word-of-the-day-apotheosis.html
+
+**There’s One Clear Reason Why Americans Are Gloomy About A.I.**\
+`The key is understanding how our labor market and our social net differs from the rest of the world.`\
+https://www.nytimes.com/2026/06/25/opinion/ai-americans-pessimism.html
+
 **Oil Prices Fall Toward Prewar Levels as Gulf Shipping Resumes**\
 `Oil prices fell, moving closer to levels not seen since the war in Iran began in February.`\
 https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
