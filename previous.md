@@ -1,3 +1,7 @@
+**Sismo en Venezuela: el terremoto de 7,5 es el más fuerte en un siglo**\
+`El Servicio Geológico de EE. UU. calcula que podría ser mucho más mortífero que el terremoto de magnitud 7,7 que sacudió el país en 1900.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezuela-magnitud.html
+
 **Suspect in Kansas City Shootings Found Dead in Basement, Police Say**\
 `Officers found the body of a man believed to be Oscar Sanchez-Munoz, the suspect in a series of roadway shootings last week, inside a home they had already searched.`\
 https://www.nytimes.com/2026/06/25/us/suspect-in-kansas-city-shootings-found-dead-in-basement-police-say.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis
 **Trump Cancels Plans to Sign a Bipartisan Housing Bill**\
 `Also, Western Europe is sweltering. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipartisan-housing-bill.html
-
-**Democrats Are Done With Caution**\
-`Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
-https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
 
