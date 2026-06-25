@@ -1,3 +1,15 @@
+**What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
+`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was longer with the company.`\
+https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
+
+**Los venezolanos del sur de Florida llaman a sus familiares y organizan la ayuda**\
+`La numerosa comunidad venezolana de la zona de Miami está “desesperada” por ponerse en contacto con sus familiares.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/venezolanos-florida-doral-ayuda-terremoto.html
+
+**NYT Crossword Answers for June 25, 2026**\
+`There’s some shady business happening in Tarun Krishnamurthy’s puzzle.`\
+https://www.nytimes.com/2026/06/24/crosswords/daily-puzzle-2026-06-25.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010990822/25vid-venezuela-quake-luis-musano-3775.html

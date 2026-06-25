@@ -1,3 +1,15 @@
+**What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
+`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was longer with the company.`\
+https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
+
+**Los venezolanos del sur de Florida llaman a sus familiares y organizan la ayuda**\
+`La numerosa comunidad venezolana de la zona de Miami está “desesperada” por ponerse en contacto con sus familiares.`\
+https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/venezolanos-florida-doral-ayuda-terremoto.html
+
+**NYT Crossword Answers for June 25, 2026**\
+`There’s some shady business happening in Tarun Krishnamurthy’s puzzle.`\
+https://www.nytimes.com/2026/06/24/crosswords/daily-puzzle-2026-06-25.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010990822/25vid-venezuela-quake-luis-musano-3775.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/24/health/chemotherapy-drug-shortage.html
 **Cuba anuncia una transformación económica importante**\
 `Los economistas señalan que el plan representa un cambio radical: es la primera vez desde la revolución de 1959, que instauró el régimen comunista, que el gobierno ofrece renunciar al control total del comercio.`\
 https://www.nytimes.com/es/2026/06/24/espanol/america-latina/cuba-medidas-economicas.html
-
-**Postmaster General Confirms Plan to Hold Back Mail Ballots Under Proposed Rule**\
-`The postmaster general, David Steiner, said on Wednesday that under a proposed rule, his agency would not deliver mail ballots in states that decline to hand over voter data.`\
-https://www.nytimes.com/2026/06/24/us/politics/postmaster-mail-ballot-rule-trump-elections.html
-
-**A Climate Chaos Maker**\
-`Global warming is causing extreme heat around the world. Now El Niño, a natural phenomenon that disrupts global weather patterns, is also at work.`\
-https://www.nytimes.com/2026/06/24/world/europe-climate-heat-wave-ebola-world-cup.html
-
-**Fruit Fly Sperm Are Giant. How Do They Stay Untangled?**\
-`A fruit fly’s sperm are exceptionally long, and thousands are crammed in together. The physics of this presents a packing nightmare.`\
-https://www.nytimes.com/2026/06/24/science/giant-fruit-fly-sperm-untangled.html
 
