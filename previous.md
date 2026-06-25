@@ -1,3 +1,7 @@
+**A New Dance Festival Moves Beyond the Same Old, Same Old**\
+`The Milly Rock, haunting flamenco and falling bodies: The Lincoln Center Contemporary Dance Festival delivers quality with nary a pointe shoe in sight.`\
+https://www.nytimes.com/2026/06/25/arts/dance/lincoln-center-contemporary-dance-festival-jeremy-nedd-yinka-esi-graves-her-project.html
+
 **Stream These 5 Movies and TV Shows Before They Leave Netflix in July**\
 `Two acclaimed series and two films by the director George Roy Hill are among the notable titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/06/25/arts/television/netflix-expiring.html

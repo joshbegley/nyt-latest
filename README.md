@@ -1,3 +1,7 @@
+**The ‘Rising Tide’ of America’s Middle Class**\
+`Readers respond to an Opinion guest essay, “What Liberals Get Wrong About the Middle Class.” Also: Israel’s isolated artists; the true America.`\
+https://www.nytimes.com/2026/06/25/opinion/us-middle-class.html
+
 **A New Dance Festival Moves Beyond the Same Old, Same Old**\
 `The Milly Rock, haunting flamenco and falling bodies: The Lincoln Center Contemporary Dance Festival delivers quality with nary a pointe shoe in sight.`\
 https://www.nytimes.com/2026/06/25/arts/dance/lincoln-center-contemporary-dance-festival-jeremy-nedd-yinka-esi-graves-her-project.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/polls/wisconsin-us-house-6-polls-2026.html
 **Who Is Ahead in Wisconsin's 1st Congressional District?**\
 `Track the latest polls in Wisconsin's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/wisconsin-us-house-1-polls-2026.html
-
-**Who Is Ahead in Wisconsin's 7th Congressional District?**\
-`Track the latest polls in Wisconsin's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/wisconsin-us-house-7-polls-2026.html
 
