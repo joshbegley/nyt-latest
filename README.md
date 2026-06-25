@@ -1,3 +1,11 @@
+**Tighter Canadian Borders Limit U.S. Deportees Seeking Refuge**\
+`New Canadian policies and a longstanding border agreement with the United States will make heading north a tough route for Syrians and Haitians.`\
+https://www.nytimes.com/2026/06/25/world/canada/canada-border-immigration-deportation.html
+
+**A Glimpse at the Conditions Deportees May Face in Haiti and Syria**\
+`The Supreme Court ruled that the Trump administration could end humanitarian protections for many Haitians and Syrians in the United States, clearing the way for their potential deportation.`\
+https://www.nytimes.com/2026/06/25/world/americas/haitians-syrians-deportations-us.html
+
 **Utah and Arizona Face ‘Extremely Critical’ Fire Weather on Friday**\
 `Forecasters this week issued one of their rarest warnings as a potent mix of storms, wind and dry vegetation threatens to spark more wildfires.`\
 https://www.nytimes.com/2026/06/25/weather/critical-fire-weather-utah-arizona.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/25/science/venezeula-earthquakes-faults-geology.
 **Who Is Ahead in North Carolina's 14th Congressional District?**\
 `Track the latest polls in North Carolina's 14th Congressional District.`\
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-14-polls-2026.html
-
-**Who Is Ahead in North Carolina's 10th Congressional District?**\
-`Track the latest polls in North Carolina's 10th Congressional District.`\
-https://www.nytimes.com/interactive/polls/north-carolina-us-house-10-polls-2026.html
-
-**Los terremotos, el reto más reciente para Delcy Rodríguez**\
-`La presidenta de Venezuela, que lleva solo unos meses en el cargo, ha estado intentando encontrar el equilibrio entre las exigencias del presidente Trump y sus propias necesidades políticas internas.`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremotos-delcy-rodriguez.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
