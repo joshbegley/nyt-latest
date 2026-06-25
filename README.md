@@ -1,3 +1,11 @@
+**Supreme Court Overturns Hawaii Gun Law**\
+`The case involved a Second Amendment challenge to a Hawaii law that barred carrying concealed weapons without permission onto private property open to the public.`\
+https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
+
+**Supreme Court Lets Trump End Protection From Deportation for Haitians and Syrians**\
+`President Trump has pushed to rescind Temporary Protected Status for hundreds of thousands of people from countries convulsed by humanitarian crises.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
+
 **Where Are the Most Data Centers Planned?**\
 `The rural South expects the most of the noisy, power-hungry facilities.`\
 https://www.nytimes.com/2026/06/25/realestate/where-are-the-most-data-centers-planned.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/25/podcasts/why-do-people-spend-so-long-on-death
 **Don the Builder**\
 `We look at Trump’s construction projects in Washington, D.C.`\
 https://www.nytimes.com/2026/06/25/briefing/trumps-washington-renovations.html
-
-**La Guaira, Venezuelan Port Town, Is Hit Hard by Earthquakes**\
-`Deadly mudslides in 1999 dealt lasting blows to impoverished La Guaira. The response of the acting president, Delcy Rodríguez, may be a bellwether of her political longevity.`\
-https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-la-guaira.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000010991382/25vid-heat-cows-3147.html
 
 **Live Updates: Britain Breaks Record June Temperature as Deadly Heat Crushes Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
