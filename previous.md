@@ -186,8 +186,8 @@ https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-
 `The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
 
-**Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
-`Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
+**Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
+`Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\

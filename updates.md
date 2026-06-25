@@ -1,3 +1,7 @@
+**Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
+`Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
+
 **La Corte Suprema otorga más poder a Trump en materia de inmigración**\
 `Una mayoría de magistrados concedieron al presidente la facultad de revocar protecciones contra la deportación y negar el acceso a los migrantes en la frontera sur de EE. UU.`\
 https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/suprema-corte-tps-trump-migracion.html
