@@ -1,8 +1,12 @@
+**Venezuelans Search for People Trapped by Twin Earthquakes**\
+`After two earthquakes on Wednesday, some Venezuelans trapped in collapsed buildings awaited rescue and others searched for loved ones in the rubble. Others spoke about the fear they felt when the earthquakes struck.`\
+https://www.nytimes.com/video/world/americas/100000010991490/venezuela-earthquake-survivors-trapped.html
+
 **Tighter Canadian Borders Limit U.S. Deportees Seeking Refuge**\
 `New Canadian policies and a longstanding border agreement with the United States will make heading north a tough route for Syrians and Haitians.`\
 https://www.nytimes.com/2026/06/25/world/canada/canada-border-immigration-deportation.html
 
-**A Glimpse at the Conditions Deportees May Face in Haiti and Syria**\
+**After Supreme Court TPS Ruling, What Conditions May Haitian and Syrian Deportees Face?**\
 `The Supreme Court ruled that the Trump administration could end humanitarian protections for many Haitians and Syrians in the United States, clearing the way for their potential deportation.`\
 https://www.nytimes.com/2026/06/25/world/americas/haitians-syrians-deportations-us.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/polls/nebraska-us-house-1-polls-2026.html
 **Why the Venezuelan Earthquakes Happened, and What to Expect Next**\
 `Twin earthquakes like those that ripped through the region are unusual but not unheard of. Scientists are already gathering data needed for a more detailed picture.`\
 https://www.nytimes.com/2026/06/25/science/venezeula-earthquakes-faults-geology.html
-
-**Who Is Ahead in North Carolina's 14th Congressional District?**\
-`Track the latest polls in North Carolina's 14th Congressional District.`\
-https://www.nytimes.com/interactive/polls/north-carolina-us-house-14-polls-2026.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

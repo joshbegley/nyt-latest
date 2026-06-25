@@ -1,3 +1,11 @@
+**Tighter Canadian Borders Limit U.S. Deportees Seeking Refuge**\
+`New Canadian policies and a longstanding border agreement with the United States will make heading north a tough route for Syrians and Haitians.`\
+https://www.nytimes.com/2026/06/25/world/canada/canada-border-immigration-deportation.html
+
+**A Glimpse at the Conditions Deportees May Face in Haiti and Syria**\
+`The Supreme Court ruled that the Trump administration could end humanitarian protections for many Haitians and Syrians in the United States, clearing the way for their potential deportation.`\
+https://www.nytimes.com/2026/06/25/world/americas/haitians-syrians-deportations-us.html
+
 **Utah and Arizona Face ‘Extremely Critical’ Fire Weather on Friday**\
 `Forecasters this week issued one of their rarest warnings as a potent mix of storms, wind and dry vegetation threatens to spark more wildfires.`\
 https://www.nytimes.com/2026/06/25/weather/critical-fire-weather-utah-arizona.html
