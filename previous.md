@@ -1,3 +1,19 @@
+**How Trump Wants to Upend Voting in America**\
+`President Trump is demanding that Congress pass the SAVE America Act to change American elections. Our national politics reporter Nick Corasaniti looks at what’s in it.`\
+https://www.nytimes.com/video/us/politics/100000010989159/how-trump-wants-to-upend-voting-in-america.html
+
+**Trump Plans to Name Adam Candeub as Antitrust Chief in Justice Dept.**\
+`President Trump plans to nominate a tech critic and telecommunications lawyer, Adam Candeub, to lead the division.`\
+https://www.nytimes.com/2026/06/25/technology/trump-antitrust-doj-adam-candeub.html
+
+**Obama Says He Occupies a ‘Suite’ in Trump’s Head**\
+`Former President Barack Obama says President Trump has an obsession with him and that Mr. Trump “knows better” than to say “crazy stuff” to his face.`\
+https://www.nytimes.com/2026/06/25/us/politics/obama-trump-podcast-interview.html
+
+**‘Little Brother’ Review: Just the Two of Us**\
+`John Cena and Eric André star in this crude, but funny, movie about a real estate agent who encounters a blast from the past.`\
+https://www.nytimes.com/2026/06/25/movies/little-brother-review.html
+
 **Congo Ebola Crisis: Contact Tracing Is Dangerously Behind, Officials Warn**\
 `Most of the people testing positive for Ebola in the Democratic Republic of Congo are not on health workers’ radar, suggesting that contact tracing is lagging dangerously behind.`\
 https://www.nytimes.com/2026/06/25/world/africa/africa-cdc-congo-ebola.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/06/25/world/americas/devastating-earthquakes-will-t
 **Trump Keeps Undercutting Republicans’ Message, Squandering His Own Trifecta**\
 `Divisions between the president and his party on Capitol Hill have muddled Republicans’ midterm pitch to voters, and have crippled the G.O.P. at what should be the peak of its power.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-senate-republicans-undercutting-message.html
-
-**Jerry Moriarty, Painter Whose Brushstrokes Elevated Comics, Is Dead at 88**\
-`A self-described “paintoonist,” Mr. Moriarty created cartoons with spare dialogue that reminded his admirers of poetry or Samuel Beckett’s plays.`\
-https://www.nytimes.com/2026/06/25/arts/jerry-moriarty-dead.html
-
-**Officials Shut Down Kenya’s Capital to Block Protest**\
-`The protest, an annual event, has become a showcase of the growing political power of Kenya’s youth.`\
-https://www.nytimes.com/2026/06/25/world/africa/kenya-protest-nairobi-shutdown.html
-
-**‘Superman’ and ‘Heated Rivalry’ Alums to Broadway in ‘Three Days of Rain’**\
-`A winter revival of the Richard Greenberg drama will star David Corenswet, Yvonne Strahovski and François Arnaud.`\
-https://www.nytimes.com/2026/06/25/theater/three-days-of-rain-broadway-david-corenswet-francois-arnaud.html
-
-**Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
-`Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
-https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
 **Venezuela Live Updates: Search for Survivors Grows More Urgent 24 Hours After Quakes**\
 `Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\

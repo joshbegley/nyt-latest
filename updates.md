@@ -1,3 +1,19 @@
+**How Trump Wants to Upend Voting in America**\
+`President Trump is demanding that Congress pass the SAVE America Act to change American elections. Our national politics reporter Nick Corasaniti looks at what’s in it.`\
+https://www.nytimes.com/video/us/politics/100000010989159/how-trump-wants-to-upend-voting-in-america.html
+
+**Trump Plans to Name Adam Candeub as Antitrust Chief in Justice Dept.**\
+`President Trump plans to nominate a tech critic and telecommunications lawyer, Adam Candeub, to lead the division.`\
+https://www.nytimes.com/2026/06/25/technology/trump-antitrust-doj-adam-candeub.html
+
+**Obama Says He Occupies a ‘Suite’ in Trump’s Head**\
+`Former President Barack Obama says President Trump has an obsession with him and that Mr. Trump “knows better” than to say “crazy stuff” to his face.`\
+https://www.nytimes.com/2026/06/25/us/politics/obama-trump-podcast-interview.html
+
+**‘Little Brother’ Review: Just the Two of Us**\
+`John Cena and Eric André star in this crude, but funny, movie about a real estate agent who encounters a blast from the past.`\
+https://www.nytimes.com/2026/06/25/movies/little-brother-review.html
+
 **Congo Ebola Crisis: Contact Tracing Is Dangerously Behind, Officials Warn**\
 `Most of the people testing positive for Ebola in the Democratic Republic of Congo are not on health workers’ radar, suggesting that contact tracing is lagging dangerously behind.`\
 https://www.nytimes.com/2026/06/25/world/africa/africa-cdc-congo-ebola.html
