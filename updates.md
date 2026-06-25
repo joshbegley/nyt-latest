@@ -1,3 +1,11 @@
+**The Supreme Court’s TPS Decision Is a Slap in the Face to Lawful Immigrants**\
+`The Supreme Court just gave the Trump Administration free rein to end Temporary Protected Status.`\
+https://www.nytimes.com/2026/06/25/opinion/supreme-court-tps-haiti-syria.html
+
+**After Venezuela Earthquakes, La Guaira Residents Search for Loved Ones in the Rubble**\
+`A missing child. A boyfriend in the rubble. Venezuelans in this hard-hit city said they needed more help to rescue the missing.`\
+https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquakes-rescue-survivors.html
+
 **U.S. Military’s Weapons Shortage Shows Few Signs of Easing Soon**\
 `President Trump and Pentagon officials tried to reassure manufacturers as they sought additional funding from Congress.`\
 https://www.nytimes.com/2026/06/25/us/politics/us-military-weapons-shortage.html

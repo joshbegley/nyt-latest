@@ -1,3 +1,7 @@
+**The Supreme Court’s TPS Decision Is a Slap in the Face to Lawful Immigrants**\
+`The Supreme Court just gave the Trump Administration free rein to end Temporary Protected Status.`\
+https://www.nytimes.com/2026/06/25/opinion/supreme-court-tps-haiti-syria.html
+
 **U.S. Military’s Weapons Shortage Shows Few Signs of Easing Soon**\
 `President Trump and Pentagon officials tried to reassure manufacturers as they sought additional funding from Congress.`\
 https://www.nytimes.com/2026/06/25/us/politics/us-military-weapons-shortage.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/06/25/us/politics/trump-housing-bill-scenarios.html
 `Un doblete sísmico como el que ha sacudido la región es poco habitual, pero no inaudito. Los científicos ya están recabando los datos necesarios para disponer de una visión más detallada.`\
 https://www.nytimes.com/es/2026/06/25/espanol/doblete-sismico-que-es.html
 
-**‘My sister lived here!’ A lonely search for loved ones in La Guaira.**\
+**After Venezuela Earthquakes, La Guaira Residents Search for Loved Ones in the Rubble**\
 `A missing child. A boyfriend in the rubble. Venezuelans in this hard-hit city said they needed more help to rescue the missing.`\
 https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquakes-rescue-survivors.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/america-latina/mexico-conductor-at
 **Robert Townsend on ‘The Bear’ and Directing for Television**\
 `The filmmaker has lately turned to television, acting in FX’s “The Bear,” directing episodes of “The Chi” and mentoring Black actors and showrunners reared on his work.`\
 https://www.nytimes.com/2026/06/25/arts/television/robert-townsend-the-bear-director.html
-
-**Got Zucchini? Make This Pasta.**\
-`Melissa Clark’s filling and versatile zucchini pasta with tuna and chile paste is my favorite fast zucchini dinner.`\
-https://www.nytimes.com/2026/06/25/dining/got-zucchini-make-this-pasta.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
