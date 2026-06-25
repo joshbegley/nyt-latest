@@ -1,3 +1,23 @@
+**No Corrections: June 25, 2026**\
+`No corrections appeared in print on Thursday, June 25, 2026.`\
+https://www.nytimes.com/2026/06/25/pageoneplus/no-corrections-june-25-2026.html
+
+**Big Companies Aim to Ease A.I. Transition for American Workers**\
+`OpenAI, Anthropic, Amazon and Microsoft have signed on to an effort led by Gina Raimondo, a former commerce secretary.`\
+https://www.nytimes.com/2026/06/25/business/economy/ai-work-force-training-job-losses.html
+
+**Lesson Learned From Iran War: Reduce Reliance on Strait of Hormuz**\
+`Increased stockpiles, more pipelines and other tactics could loosen the waterway’s stranglehold on the global economy.`\
+https://www.nytimes.com/2026/06/25/business/strait-of-hormuz-iran-war.html
+
+**U.S. Inflation Problems Are Far From Over**\
+`The Federal Reserve’s new chairman has vowed to deliver price stability, but officials are at odds over whether that will require higher borrowing costs.`\
+https://www.nytimes.com/2026/06/25/business/federal-reserve-inflation-pce.html
+
+**Traveling to Europe in a Heat Wave? Here’s What to Know.**\
+`Residents and summer travelers alike are searching for ways to stay safe and cool as the continent swelters amid a heat wave. Here are some tips.`\
+https://www.nytimes.com/2026/06/25/travel/europe-heat-wave-what-to-know.html
+
 **Who Is Ahead in New Hampshire's 2nd Congressional District?**\
 `Track the latest polls in New Hampshire's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-hampshire-us-house-2-polls-2026.html
