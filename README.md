@@ -1,3 +1,7 @@
+**Europe Heat Wave Live Updates: Scorching Weather Persists After Record-Breaking Day**\
+`Temperatures on Thursday are forecast to remain sharply above normal, ranging from high 30s to low 40s degrees Celsius, or around 100 Fahrenheit.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
+
 **Venezuela Residents Describe Terror as Deadly Earthquake Struck**\
 `Buildings collapsed, windows rattled and residents poured into the streets in Venezuela’s capital and nearby cities after two major earthquakes hit.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-caracas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/24/espanol/negocios/meta-zuckerberg-prediccio
 **In New York Election Results, More Evidence of Eroding Support for Israel**\
 `If the shift in public opinion continues, it could reshape one of the United States’ closest alliances.`\
 https://www.nytimes.com/2026/06/24/us/politics/new-york-elections-israel-support.html
-
-**California’s Plastic Law Goes to Court: Is It Too Strict or Too Lax?**\
-`The sweeping legislation, fully enacted last month, has been challenged by Republican-led states. Environmental groups have their own complaints.`\
-https://www.nytimes.com/2026/06/24/us/california-single-use-plastics-lawsuits.html
 
