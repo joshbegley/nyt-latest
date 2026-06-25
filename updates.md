@@ -1,3 +1,15 @@
+**Devastating Earthquakes Will Test Venezuela’s Newfound Alliance With U.S.**\
+`President Trump has boasted of the success of an armed intervention in Venezuela. A natural disaster raises pressure to match rhetoric with action.`\
+https://www.nytimes.com/2026/06/25/world/americas/devastating-earthquakes-will-test-venezuelas-newfound-alliance-with-us.html
+
+**David Clayton-Thomas, Canadian Singer of Blood, Sweat & Tears, Dies at 84**\
+`He was also the key lyricist of the Grammy-winning, genre-blending band, whose hits included “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
+https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
+
+**Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
+`Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
 **Jerry Moriarty, Painter Whose Brushstrokes Elevated Comics, Is Dead at 88**\
 `A self-described “paintoonist,” Mr. Moriarty created cartoons with spare dialogue that reminded his admirers of poetry or Samuel Beckett’s plays.`\
 https://www.nytimes.com/2026/06/25/arts/jerry-moriarty-dead.html
