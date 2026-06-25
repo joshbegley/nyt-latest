@@ -1,3 +1,7 @@
+**Representative Tom Kean, Missing for Months, Is Back Home in New Jersey**\
+`The congressman, who has been absent from Washington since March, answered the door of his home on Wednesday evening. He was wearing a suit and tie.`\
+https://www.nytimes.com/2026/06/24/nyregion/tom-kean-missing-found.html
+
 **Dos fuertes sismos sacuden el centro del país**\
 `Los temblores tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
 https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas

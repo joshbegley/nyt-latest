@@ -1,3 +1,7 @@
+**Representative Tom Kean, Missing for Months, Is Back Home in New Jersey**\
+`The congressman, who has been absent from Washington since March, answered the door of his home on Wednesday evening. He was wearing a suit and tie.`\
+https://www.nytimes.com/2026/06/24/nyregion/tom-kean-missing-found.html
+
 **What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
 `After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was longer with the company.`\
 https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/24/espanol/mundo/espana-pedro-sanchez-esposa-
 **Shortage of Chemotherapy Drugs Brings Rationing Fears for Cancer Patients**\
 `Doctors are contending with low supplies and unfilled orders of generic chemotherapy infusions that are central to the treatment of a long list of cancers.`\
 https://www.nytimes.com/2026/06/24/health/chemotherapy-drug-shortage.html
-
-**Cuba anuncia una transformación económica importante**\
-`Los economistas señalan que el plan representa un cambio radical: es la primera vez desde la revolución de 1959, que instauró el régimen comunista, que el gobierno ofrece renunciar al control total del comercio.`\
-https://www.nytimes.com/es/2026/06/24/espanol/america-latina/cuba-medidas-economicas.html
 
