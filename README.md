@@ -1,3 +1,11 @@
+**La Corte Suprema otorga más poder a Trump en materia de inmigración**\
+`Una mayoría de magistrados concedieron al presidente la facultad de revocar protecciones contra la deportación y negar el acceso a los migrantes en la frontera sur de EE. UU.`\
+https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/suprema-corte-tps-trump-migracion.html
+
+**What Italy Vacation Destination is Right For You?**\
+`Answer four questions, and we'll help you plan a trip.`\
+https://www.nytimes.com/interactive/2026/06/25/travel/italy-vacation-quiz.html
+
 **Nigel Cabourn, Men’s Wear Designer Revered for Vintage Aesthetic, Dies at 76**\
 `The antithesis of fast fashion, his clothes were modeled on heritage garments and mostly made in his native Britain.`\
 https://www.nytimes.com/2026/06/25/style/nigel-cabourn-dead.html
@@ -177,10 +185,6 @@ https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-
 **‘Nowhere To Go’: T.P.S. Ruling Plunges Many Migrants Into Limbo**\
 `The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
-
-**Olivia Wilde and Seth Rogen Reflect on Their Relationship Wins at ‘The Invite’ Premiere**\
-`Hollywood couples, including Penélope Cruz and Javier Bardem, celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
-https://www.nytimes.com/2026/06/25/style/the-invite-premiere-olivia-wilde-seth-rogen.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
