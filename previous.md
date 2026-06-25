@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000010990740/25vid-nighttime-chacao-embed.html
+
 **Venezuelans in South Florida Call Relatives and Organize Aid**\
 `The large Venezuelan community in the Miami area is “desperate” to reach family members.`\
 https://www.nytimes.com/2026/06/24/us/venezuela-south-florida-earthquake.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/dining/restaurant-reviews-cove-baohaus-and-mo
 **The World Cup’s Best Party Is Raging in Miami**\
 `It’s Brazil versus Scotland in the South Florida sun.`\
 https://www.nytimes.com/2026/06/24/us/world-cup-party-scotland-brazil-miami.html
-
-**Pete Hegseth Forces Christopher T. Donahue, a Top Prospect for Army Chief, to Resign**\
-`Gen. Christopher T. Donahue was seen as a rising star in the Army. But Defense Secretary Pete Hegseth viewed him with skepticism.`\
-https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegseth.html
 

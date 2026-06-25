@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/admin/100000010990740/25vid-nighttime-chacao-embed.html
+
 **Venezuelans in South Florida Call Relatives and Organize Aid**\
 `The large Venezuelan community in the Miami area is “desperate” to reach family members.`\
 https://www.nytimes.com/2026/06/24/us/venezuela-south-florida-earthquake.html
