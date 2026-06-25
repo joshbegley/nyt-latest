@@ -1,3 +1,23 @@
+**Esta es la lujosa ciudad en Taiwán impulsada por el auge de la IA**\
+`Hsinchu pasó de ser una zona dedicada al cultivo a alojar una de las explosiones más vertiginosas de riqueza y desarrollo en toda Asia.`\
+https://www.nytimes.com/es/2026/06/25/espanol/negocios/taiwan-chips-ia.html
+
+**Two-Party System, One-Party Rule**\
+`Why does our seemingly competitive political system produce so much stagnation and corruption?`\
+https://www.nytimes.com/2026/06/25/opinion/one-party-rule-two-party-system.html
+
+**A Country Store Hidden Away on a 15,000-Acre Scottish Estate**\
+`Plus: summer-ready lip liners, a ryokan in the Japanese Alps and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/06/25/t-magazine/gladstones-scotland-luxury-country-store.html
+
+**Senate Democrats Will Train Staff as Election Observers**\
+`Senator Chuck Schumer, the minority leader, said the program was aimed at counteracting potential efforts by the Trump administration to manipulate elections.`\
+https://www.nytimes.com/2026/06/25/us/politics/senate-democrats-will-train-staff-as-election-observers.html
+
+**La derecha triunfó en Colombia, con un poco de ayuda de Trump**\
+`El presidente de EE. UU. apoyó al ganador, Abelardo de la Espriella. Pero su influencia fue más allá.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/colombia-eleccion-de-la-espriella-trump.html
+
 **Is It Time for a New Sexual Revolution?**\
 `One that actually brings men and women together.`\
 https://www.nytimes.com/2026/06/25/opinion/gender-sexual-revolution-men-women.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/25/arts/national-geographic-museum-dc-photograph
 **Paul Rudnick on His Favorite Books and His New ‘Tuxedo Society’**\
 `“I can always wait for the streaming version and hope for nudity,” says the writer, whose new novel, “The Tuxedo Society,” is about a cadre of gay spies.`\
 https://www.nytimes.com/2026/06/25/books/review/paul-rudnick-the-tuxedo-society.html
-
-**Powerful Back-to-Back Earthquakes Hit Venezuela**\
-`A 7.2-magnitude earthquake hit central Venezuela on Wednesday and was followed by one with a magnitude of 7.5, killing dozens of people. The stronger quake was the worst the country had seen since 1900.`\
-https://www.nytimes.com/video/world/americas/100000010990980/venezuela-earthquake.html
-
-**Saharan Dust Could Add an Apocalyptic Hue to Europe’s Unrelenting Heat**\
-`Powerful winds are carrying dust from Africa as far as southern England, as a heat dome keeps temperatures rising.`\
-https://www.nytimes.com/2026/06/25/weather/blood-rain-dust-heat-wave-europe.html
-
-**Tracking Heat Across Europe**\
-`summary`\
-https://www.nytimes.com/interactive/2026/weather/europe-heat-tracker.html
-
-**Ejercicio y cortisol: ¿es cierto lo que dicen en internet?**\
-`Le pedimos a varios expertos que nos expliquen la relación entre la hormona del estrés y la actividad física.`\
-https://www.nytimes.com/es/2026/06/25/espanol/ejercicio-intenso-cortisol.html
-
-**Europe Heat Wave Live Updates: Scorching Weather Persists After Record-Breaking Day**\
-`Temperatures on Thursday are forecast to remain sharply above normal, ranging from high 30s to low 40s degrees Celsius, or around 100 Fahrenheit.`\
-https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
 
