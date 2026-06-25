@@ -1,3 +1,7 @@
+**Less Islamism, More Nationalism**\
+`In Iran and across the Middle East, the bond between religion and politics is getting weaker.`\
+https://www.nytimes.com/2026/06/25/world/islam-middle-east-politics-venezuela-europe-heat.html
+
 **En la calle y en internet, los venezolanos buscan desesperadamente a sus familiares**\
 `Mientras esperaban una respuesta del gobierno, amigos y familiares de personas que estaban en la zona del terremoto recurrieron a las redes sociales y fueron a los barrios afectados.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezela-desaparecidos-busqueda.html
@@ -178,12 +182,8 @@ https://www.nytimes.com/2026/06/25/business/spacex-shares-ipo.html
 `The ruling rejected the Trump administration’s attempt to change federal election procedures through an executive order.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-mail-in-voting-ruling.html
 
-**Who Is Ahead in Tennessee's 5th Congressional District?**\
-`Track the latest polls in Tennessee's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/tennessee-us-house-5-polls-2026.html
-
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
-`Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
+`Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
