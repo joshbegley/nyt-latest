@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.h
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
 
 **Incertidumbre tras dos fuertes sismos**\
-`Los sismos de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
+`Los temblores de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
 https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas
 
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
