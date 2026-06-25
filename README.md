@@ -1,3 +1,19 @@
+**For America’s 250th, 16 Opinion Writers on the Country at Its Best**\
+`Two hundred and fifty years in, Opinion writers offer 16 reasons why the national experiment endures.`\
+https://www.nytimes.com/interactive/2026/06/25/opinion/america-250-birthday.html
+
+**To Escape the Heat, Parisians Jump into an Old Industrial Canal**\
+`Crowds are filling the Canal Saint-Martin in Paris, as temperatures soar above 100 degrees Fahrenheit. Forty people drowned while swimming in other waterways.`\
+https://www.nytimes.com/2026/06/25/world/europe/paris-canal-swimming-heatwave-france.html
+
+**La derecha de Estados Unidos se replantea su postura sobre Irán**\
+`El presidente Trump ha intentado proyectar una nueva imagen del gobierno iraní mientras busca un acuerdo de paz. Pero hay indicios de que el cambio de actitud del Partido Republicano hacia Irán va mucho más allá.`\
+https://www.nytimes.com/es/2026/06/25/espanol/mundo/maga-republicanos-iran.html
+
+**Quote of the Day: Trump Describes Venezuela as ‘Happy’. Its People Disagree.**\
+`Quotation of the Day for Thursday, June 25, 2026.`\
+https://www.nytimes.com/2026/06/25/pageoneplus/quote-of-the-day-trump-describes-venezuela-as-happy-its-people-disagree.html
+
 **A Puppy-Abuse Case in China, Caught on Video, Prompts Rare Public Protest**\
 `After a man was filmed torturing dogs, hundreds gathered in a rare demonstration that the police tried to break up. For many, the sit-in was their first civic action.`\
 https://www.nytimes.com/2026/06/25/world/asia/dog-animal-abuse-china-protest.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-
 **Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
 `The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
-
-**Scotland’s Tartan Army Parties in Miami for World Cup**\
-`Ahead of the World Cup match between Scotland and Brazil, fans of Scotland partied in the streets of Miami, wearing tartan kilts and playing bagpipes.`\
-https://www.nytimes.com/video/sports/soccer/100000010988974/tartan-army-scotland-brazil-world-cup.html
-
-**Irán toma medidas para afianzar su control sobre el estrecho de Ormuz**\
-`Un nuevo seguro obligatorio, por ahora gratuito, sería un paso de Irán hacia el control de la vía navegable.`\
-https://www.nytimes.com/es/2026/06/24/espanol/mundo/iran-estrecho-ormuz-pagos.html
-
-**Istanbul Ascends as a Tango Capital**\
-`Istanbul’s tango schools, clubs and skilled dancers have gained the city recognition as a global tango destination.`\
-https://www.nytimes.com/video/arts/dance/100000010988914/tango-instanbul-turkey.html
-
-**Trump Asks Congress for $88 Billion, Mostly for War With Iran**\
-`The proposal was all but dead on arrival in the Senate, where it would need bipartisan support, and comes amid growing G.O.P. skepticism about the conflict.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-congress-iran-war-pentagon.html
 

@@ -1,3 +1,7 @@
+**A Puppy-Abuse Case in China, Caught on Video, Prompts Rare Public Protest**\
+`After a man was filmed torturing dogs, hundreds gathered in a rare demonstration that the police tried to break up. For many, the sit-in was their first civic action.`\
+https://www.nytimes.com/2026/06/25/world/asia/dog-animal-abuse-china-protest.html
+
 **7.5-Magnitude Quake Is Largest to Hit Venezuela in More Than a Century**\
 `The U.S. Geological Survey estimated that it could be far deadlier than a 7.7-magnitude earthquake that struck the country in 1900.`\
 https://www.nytimes.com/2026/06/24/world/americas/venezuela-strongest-earthquakes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/arts/dance/100000010988914/tango-instanbul-turkey.
 **Trump Asks Congress for $88 Billion, Mostly for War With Iran**\
 `The proposal was all but dead on arrival in the Senate, where it would need bipartisan support, and comes amid growing G.O.P. skepticism about the conflict.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-congress-iran-war-pentagon.html
-
-**Millions of Bees Are Unleashed, and Recaptured, After Truck Flips in Texas**\
-`Local beekeepers rushed to the rescue after a truck carrying roughly 20 million bees overturned on a wet country road in rural Texas.`\
-https://www.nytimes.com/2026/06/24/us/bees-texas-crash.html
 
