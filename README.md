@@ -1,3 +1,7 @@
+**Solidarity With Ranch-Obsessed Tourists**\
+`If you tried to sneak ranch through T.S.A., I see you, and I raise you something even better: homemade ranch.`\
+https://www.nytimes.com/2026/06/25/dining/solidarity-with-ranch-obsessed-tourists.html
+
 **The ‘Rising Tide’ of America’s Middle Class**\
 `Readers respond to an Opinion guest essay, “What Liberals Get Wrong About the Middle Class.” Also: Israel’s isolated artists; the true America.`\
 https://www.nytimes.com/2026/06/25/opinion/us-middle-class.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/polls/wyoming-us-house-at-large-polls-2026.h
 **Who Is Ahead in Wisconsin's 6th Congressional District?**\
 `Track the latest polls in Wisconsin's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/wisconsin-us-house-6-polls-2026.html
-
-**Who Is Ahead in Wisconsin's 1st Congressional District?**\
-`Track the latest polls in Wisconsin's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/wisconsin-us-house-1-polls-2026.html
 

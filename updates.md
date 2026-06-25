@@ -1,3 +1,11 @@
+**In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
+`Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhood.`\
+https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
+
+**With TPS and Southern Border Decisions, Supreme Court Expands Trump’s Power Over Immigration**\
+`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
+
 **The ‘Rising Tide’ of America’s Middle Class**\
 `Readers respond to an Opinion guest essay, “What Liberals Get Wrong About the Middle Class.” Also: Israel’s isolated artists; the true America.`\
 https://www.nytimes.com/2026/06/25/opinion/us-middle-class.html
