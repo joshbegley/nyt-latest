@@ -154,7 +154,7 @@ https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquake
 `On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-look-at-my-life.html
 
-**Supreme Court T.P.S. Ruling on Haiti Plunges Many Migrants Into Limbo**\
+**‘Nowhere To Go’: T.P.S. Ruling Plunges Many Migrants Into Limbo**\
 `The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
 
