@@ -1,3 +1,7 @@
+**Olivia Wilde and Seth Rogen Reflect on Their Relationship Wins at ‘The Invite’ Premiere**\
+`Hollywood couples celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
+https://www.nytimes.com/2026/06/25/style/the-invite-premiere-olivia-wilde-seth-rogen.html
+
 **Solidarity With Ranch-Obsessed Tourists**\
 `If you tried to sneak ranch through T.S.A., I see you, and I raise you something even better: homemade ranch.`\
 https://www.nytimes.com/2026/06/25/dining/solidarity-with-ranch-obsessed-tourists.html
@@ -190,7 +194,7 @@ https://www.nytimes.com/2026/06/25/climate/colossal-biosciences-gene-bank.html
 `Track the latest polls in Wyoming's At-Large Congressional District.`\
 https://www.nytimes.com/interactive/polls/wyoming-us-house-at-large-polls-2026.html
 
-**Who Is Ahead in Wisconsin's 6th Congressional District?**\
-`Track the latest polls in Wisconsin's 6th Congressional District.`\
-https://www.nytimes.com/interactive/polls/wisconsin-us-house-6-polls-2026.html
+**Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
+`Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
