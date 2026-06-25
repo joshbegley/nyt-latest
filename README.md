@@ -1,3 +1,15 @@
+**Jewelry Designer Shahla Karimi Creates Rings for Engagements, Throuples and Even Divorce**\
+`Shahla Karimi is reimagining what commitment rings look like, and designing them for very modern relationships.`\
+https://www.nytimes.com/2026/06/25/style/rings-engagements-throuples-divorce.html
+
+**Larry Sanger, a Wikipedia Founder, Is Barred From Editing on the Site**\
+`A vote to bar Larry Sanger indefinitely from the volunteer community of Wikipedia came days after he submitted a proposal on “intellectual diversity.”`\
+https://www.nytimes.com/2026/06/25/business/media/wikipedia-larry-sanger-barred.html
+
+**Is the Rap-Pop Collab Era Over?**\
+`There was a time when Top 40 radio was dominated by pop songs with a guest rap verse. Is that era officially over? Joe Coscarelli and Jon Caramanica answer this question and more on this week’s “Popcast” episode.`\
+https://www.nytimes.com/video/podcasts/100000010978388/is-the-rap-pop-collab-era-over.html
+
 **Venezuela Earthquakes Hammer Infrastructure, Making Aid Efforts Harder**\
 `The power grid, water supply and health system were already under strain from years of neglect and underinvestment.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-infrastructure.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/06/25/arts/design/upstate-art-weekend-new-york.html
 **How Honda’s Pledge to Go All-Electric Unraveled**\
 `A derailed gamble led Honda to its first-ever annual loss and has intensified scrutiny over the future of its chief executive.`\
 https://www.nytimes.com/2026/06/25/business/honda-ev-electric-pledge.html
-
-**‘Supergirl’ Review: This Glass Ceiling Is Made of Kryptonite**\
-`Milly Alcock is naturally appealing in this derivative, if altogether watchable, superhero movie.`\
-https://www.nytimes.com/2026/06/25/movies/supergirl-review.html
-
-**‘Romería’ Review: What Actually Happened to Her Parents?**\
-`In this semi-autobiographical drama, a young woman in Spain whose birth parents died of AIDS-related illnesses faces a complicated reunion with her extended family.`\
-https://www.nytimes.com/2026/06/25/movies/romeria-review.html
-
-**‘Lucky Strike’ Review: Fighting a Battle Behind Enemy Lines**\
-`This World War II movie is a nuts-and-bolts survival thriller that recalls a bygone era of Greatest Generation patriotism.`\
-https://www.nytimes.com/2026/06/25/movies/lucky-strike-review.html
 
 **Live Updates: Spain Warns of High Death Toll in Heat Wave**\
 `The health ministry said about 200 people may have died since Sunday. The forecast across Europe was set to remain sharply above normal on Thursday.`\
