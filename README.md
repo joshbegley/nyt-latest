@@ -63,7 +63,7 @@ https://www.nytimes.com/interactive/polls/north-carolina-us-house-10-polls-2026.
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremotos-delcy-rodriguez.html
 
 **In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
-`Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhoods.`\
+`Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhood.`\
 https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
 
 **‘The Loved Ones’ Review: So Much for That Peaceful Irish Retreat**\
@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-yo
 `The case involved a Second Amendment challenge to a Hawaii law that barred carrying concealed weapons without permission onto private property open to the public.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
 
-**Supreme Court Expands Trump’s Power Over Immigration**\
+**With TPS and Southern Border Decisions, Supreme Court Expands Trump’s Power Over Immigration**\
 `The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
 
