@@ -1,3 +1,7 @@
+**Jimmy Fallon Teases Trump’s Great American State Fair**\
+`“There’s even a dunk tank with JD Vance and a drunk tank with Kash Patel,” Fallon said.`\
+https://www.nytimes.com/2026/06/25/arts/television/jimmy-fallon-trump-state-fair.html
+
 **Mamdani’s Victories May Be a Headache for the Governor Who Has Backed Him**\
 `Gov. Kathy Hochul has worked with Mayor Zohran Mamdani on child care and second-home taxes. But the triumphs of democratic socialists on Primary Day could complicate her vision.`\
 https://www.nytimes.com/2026/06/25/nyregion/mamdani-hochul-new-york-elections.html
