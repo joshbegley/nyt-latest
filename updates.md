@@ -1,3 +1,11 @@
+**Desafío del verano: Crea arte ambiental para mejorar tu salud mental**\
+`Combinar la creatividad con el tiempo al aire libre es bueno para tu salud mental. Te explicamos cómo.`\
+https://www.nytimes.com/es/interactive/2026/06/25/espanol/reduce-estres-crea-arte-reto.html
+
+**El estanque de Washington refleja distinto según quien lo mire**\
+`Por décadas, la gente se ha reunido en torno al espejo de agua para reflexionar sobre la unidad. Pero tras el intento de Trump por arreglarlo, solo se aprecian las divisiones.`\
+https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/estanque-reflectante-washington-polemica.html
+
 **Less Islamism, More Nationalism**\
 `In Iran and across the Middle East, the bond between religion and politics is getting weaker.`\
 https://www.nytimes.com/2026/06/25/world/islam-middle-east-politics-venezuela-europe-heat.html

@@ -1,3 +1,11 @@
+**Desafío del verano: Crea arte ambiental para mejorar tu salud mental**\
+`Combinar la creatividad con el tiempo al aire libre es bueno para tu salud mental. Te explicamos cómo.`\
+https://www.nytimes.com/es/interactive/2026/06/25/espanol/reduce-estres-crea-arte-reto.html
+
+**El estanque de Washington refleja distinto según quien lo mire**\
+`Por décadas, la gente se ha reunido en torno al espejo de agua para reflexionar sobre la unidad. Pero tras el intento de Trump por arreglarlo, solo se aprecian las divisiones.`\
+https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/estanque-reflectante-washington-polemica.html
+
 **Less Islamism, More Nationalism**\
 `In Iran and across the Middle East, the bond between religion and politics is getting weaker.`\
 https://www.nytimes.com/2026/06/25/world/islam-middle-east-politics-venezuela-europe-heat.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/polls/north-carolina-state-supreme-court-ele
 **Deadly Heat Wave in Europe Continues to Smash Temperature Records**\
 `The continent’s second heat wave since May continued to disrupt daily life for millions. Officials in Spain said it might have contributed to a spike in deaths.`\
 https://www.nytimes.com/2026/06/25/world/europe/heat-wave.html
-
-**SpaceX IPO Shows How Investors in Public Companies Are Losing Power**\
-`SpaceX has joined a growing cohort of companies that use dual class share structures to ensure many shareholders have little say in how they are run.`\
-https://www.nytimes.com/2026/06/25/business/spacex-shares-ipo.html
-
-**Federal Judge Strikes Key Parts of Trump Order Restricting Mail Voting**\
-`The ruling rejected the Trump administration’s attempt to change federal election procedures through an executive order.`\
-https://www.nytimes.com/2026/06/25/us/politics/trump-mail-in-voting-ruling.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
