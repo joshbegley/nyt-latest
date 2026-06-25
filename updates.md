@@ -1,3 +1,7 @@
+**Who Is Ahead in Wisconsin's 6th Congressional District?**\
+`Track the latest polls in Wisconsin's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-6-polls-2026.html
+
 **Who Is Ahead in Wisconsin's 1st Congressional District?**\
 `Track the latest polls in Wisconsin's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/wisconsin-us-house-1-polls-2026.html

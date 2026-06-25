@@ -1,3 +1,11 @@
+**Trump Administration Forms Partnership to Bank DNA From Imperiled Species**\
+`The government is teaming up with Colossal Biosciences, a private company that claims to have revived extinct dire wolves, to store samples from at-risk animals and plants.`\
+https://www.nytimes.com/2026/06/25/climate/colossal-biosciences-gene-bank.html
+
+**Who Is Ahead in Wyoming's At-Large Congressional District?**\
+`Track the latest polls in Wyoming's At-Large Congressional District.`\
+https://www.nytimes.com/interactive/polls/wyoming-us-house-at-large-polls-2026.html
+
 **Who Is Ahead in Wisconsin's 6th Congressional District?**\
 `Track the latest polls in Wisconsin's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/wisconsin-us-house-6-polls-2026.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/25/weather/europe-heat-record-temperatures.html
 **Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Quake Survivors**\
 `The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said. The full scale of the damage was still becoming clear.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
-
-**What the World Cup Can Teach the American Fan**\
-`Daniel Alarcón and John Green on the power of fandom.`\
-https://www.nytimes.com/2026/06/25/podcasts/world-cup-fandom-worst-messi-interview.html
-
-**Iraq’s New Leader Faces Resistance Trying to Bring Militias Under State Control**\
-`The Trump administration has demanded that Iraqi leaders distance themselves from Iran and rein in Iran-linked militias that are outside of government control.`\
-https://www.nytimes.com/2026/06/25/world/middleeast/iraq-militias-state-control.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\

@@ -1,3 +1,7 @@
+**Who Is Ahead in Wisconsin's 6th Congressional District?**\
+`Track the latest polls in Wisconsin's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-6-polls-2026.html
+
 **Who Is Ahead in Wisconsin's 1st Congressional District?**\
 `Track the latest polls in Wisconsin's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/wisconsin-us-house-1-polls-2026.html
@@ -177,14 +181,6 @@ https://www.nytimes.com/2026/06/25/podcasts/world-cup-fandom-worst-messi-intervi
 **Iraq’s New Leader Faces Resistance Trying to Bring Militias Under State Control**\
 `The Trump administration has demanded that Iraqi leaders distance themselves from Iran and rein in Iran-linked militias that are outside of government control.`\
 https://www.nytimes.com/2026/06/25/world/middleeast/iraq-militias-state-control.html
-
-**Esta es la lujosa ciudad en Taiwán impulsada por el auge de la IA**\
-`Hsinchu pasó de ser una zona dedicada al cultivo a alojar una de las explosiones más vertiginosas de riqueza y desarrollo en toda Asia.`\
-https://www.nytimes.com/es/2026/06/25/espanol/negocios/taiwan-chips-ia.html
-
-**Two-Party System, One-Party Rule**\
-`Why does our seemingly competitive political system produce so much stagnation and corruption?`\
-https://www.nytimes.com/2026/06/25/opinion/one-party-rule-two-party-system.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
