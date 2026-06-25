@@ -1,3 +1,11 @@
+**Record-Breaking Heat Is Crushing Europe**\
+`Extreme temperatures, which have baked western parts of the continent over the past week, are forecast to shift eastward in the coming days.`\
+https://www.nytimes.com/2026/06/25/weather/europe-heat-wave-temperature-records.html
+
+**Who Is Ahead in Iowa's 2nd Congressional District?**\
+`Track the latest polls in Iowa's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/iowa-us-house-2-polls-2026.html
+
 **Who Is Ahead in Iowa's 1st Congressional District?**\
 `Track the latest polls in Iowa's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/iowa-us-house-1-polls-2026.html
@@ -174,15 +182,7 @@ https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primarie
 `Plus, will A.I. find the next soccer superstar?`\
 https://www.nytimes.com/2026/06/25/podcasts/the-headlines/venezuela-earthquakes-chemo-drugs-shortage.html
 
-**NYT Strands Hints for June 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
-https://www.nytimes.com/2026/06/25/crosswords/strands-sidekick-845.html
-
-**Today’s Wordle Hints for June 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
-https://www.nytimes.com/2026/06/25/crosswords/wordle-review-1833.html
-
-**Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
-`A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
+**Live Updates: Britain Breaks Record June Temperature as Deadly Heat Crushes Europe**\
+`A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
 https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
 
