@@ -1,3 +1,7 @@
+**Inside the C.D.C.’s Mad Scramble to Meet Kennedy’s Demands**\
+`A cache of internal emails offers a look at the pressure the nation’s public health officials faced from the new health secretary in the early months of the Trump administration.`\
+https://www.nytimes.com/2026/06/25/us/politics/kennedy-cdc-emails.html
+
 **Are You a Gen Z Job Seeker?**\
 `It’s rough out there. We want to hear about it.`\
 https://www.nytimes.com/2026/06/25/style/gen-z-jobs.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/06/25/science/evolution-laughter-apes.html
 **Apple Raises Prices on Macs and iPads Amid the A.I. Boom**\
 `The tech giant cited the soaring costs of memory and storage chips as it increased prices more than $200 on some devices.`\
 https://www.nytimes.com/2026/06/25/technology/apple-prices-macbooks-ipads.html
-
-**David Clayton-Thomas, Canadian Singer of Blood, Sweat & Tears, Dies at 84**\
-`He was also the key lyricist of the Grammy-winning, genre-blending band, whose hits included “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
-https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

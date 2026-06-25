@@ -1,3 +1,7 @@
+**Are You a Gen Z Job Seeker?**\
+`It’s rough out there. We want to hear about it.`\
+https://www.nytimes.com/2026/06/25/style/gen-z-jobs.html
+
 **Devastating Earthquakes Will Test Venezuela’s Newfound Alliance With U.S.**\
 `President Trump has boasted of the success of an armed intervention in Venezuela. A natural disaster raises pressure to match rhetoric with action.`\
 https://www.nytimes.com/2026/06/25/world/americas/devastating-earthquakes-will-test-venezuelas-newfound-alliance-with-us.html
