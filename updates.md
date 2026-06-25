@@ -1,3 +1,15 @@
+**‘Superman’ and ‘Heated Rivalry’ Alums to Broadway in ‘Three Days of Rain’**\
+`A winter revival of the Richard Greenberg drama will star David Corenswet, Yvonne Strahovski and François Arnaud.`\
+https://www.nytimes.com/2026/06/25/theater/three-days-of-rain-broadway-david-corenswet-francois-arnaud.html
+
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/25/books/review/new-recommended-books.html
+
+**Terremotos en Venezuela: esto es lo que hay que saber**\
+`El miércoles por la noche se produjeron dos fuertes sismos consecutivos en las zonas más pobladas del norte del país. El segundo fue el más intenso en más de un siglo en Venezuela.`\
+https://www.nytimes.com/es/2026/06/25/espanol/venezuela-terremoto-que-pasa.html
+
 **On the ground and online, Venezuelans desperately search for missing relatives.**\
 `Friends and family of those in the earthquake zone were turning to social media and heading to affected neighborhoods as they awaited an official rescue response.`\
 https://www.nytimes.com/2026/06/25/world/americas/survivor-search-venezuela-earthquake.html

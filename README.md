@@ -1,3 +1,7 @@
+**Trump Keeps Undercutting Republicans’ Message, Squandering His Own Trifecta**\
+`Divisions between the president and his party on Capitol Hill have muddled Republicans’ midterm pitch to voters, and have crippled the G.O.P. at what should be the peak of its power.`\
+https://www.nytimes.com/2026/06/25/us/politics/trump-senate-republicans-undercutting-message.html
+
 **‘Superman’ and ‘Heated Rivalry’ Alums to Broadway in ‘Three Days of Rain’**\
 `A winter revival of the Richard Greenberg drama will star David Corenswet, Yvonne Strahovski and François Arnaud.`\
 https://www.nytimes.com/2026/06/25/theater/three-days-of-rain-broadway-david-corenswet-francois-arnaud.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/25/realestate/where-are-the-most-data-centers-pl
 **Who Is Ahead in New Jersey's 2nd Congressional District?**\
 `Track the latest polls in New Jersey's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-jersey-us-house-2-polls-2026.html
-
-**Who Is Ahead in Missouri's 2nd Congressional District?**\
-`Track the latest polls in Missouri's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/missouri-us-house-2-polls-2026.html
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
 `Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
