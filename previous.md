@@ -1,3 +1,7 @@
+**Judge Throws Out Federal Suit Against 4 N.J. ‘Sanctuary’ Cities**\
+`Judge Evelyn Padin ruled the Justice Department’s lawsuit ​was flawed because it did not also challenge a state directive limiting local cooperation with federal immigration agents.`\
+https://www.nytimes.com/2026/06/24/us/politics/new-jersey-sanctuary-cities-lawsuit.html
+
 **Avila Chevalier Won Despite Far-Left Views. Will They Hurt Democrats?**\
 `Darializa Avila Chevalier’s questionable social media history and outlier politics are already being highlighted by Republican leaders as they look to November.`\
 https://www.nytimes.com/2026/06/24/nyregion/avila-chevalier-espaillat.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
 
 **Venezuela Live Updates: 2 Major Earthquakes Hit Country’s Center**\
-`The earthquakes were a magnitude 7.2 and 7.5, according to the U.S.G.S. People in the stricken area said that buildings shook and electricity was knocked out, including in the capital, Caracas.`\
+`The earthquakes were a magnitude 7.2 and 7.5, according to a U.S. monitoring agency. People in the stricken area said that buildings collapsed and electricity was knocked out, including in the capital, Caracas.`\
 https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
 
 **Esto es lo que hay que saber**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/style/jordyn-woods-guggenheim-lucky-bag.html
 **Sergeant Who Shot 5 at Fort Stewart Sentenced to Life in Military Prison**\
 `The sergeant was convicted of attempted murder in the shootings in August at the Georgia base. The attacks stemmed from a domestic dispute, the Army said.`\
 https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
-
-**7 Lessons and Consequences of the Iran War**\
-`Green energy, modern war and American hegemony`\
-https://www.nytimes.com/2026/06/24/opinion/iran-war-lessons.html
 
