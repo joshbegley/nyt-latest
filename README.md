@@ -1,3 +1,11 @@
+**In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
+`Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhoods.`\
+https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
+
+**‘The Loved Ones’ Review: So Much for That Peaceful Irish Retreat**\
+`Sharp performances from Maryann Plunkett and the other cast members lend weight and texture to Erica Murray’s play, even when the script becomes predictable.`\
+https://www.nytimes.com/2026/06/25/theater/the-loved-ones-review-maryann-plunkett.html
+
 **Chinese A.I. Models Gain Ground on Anthropic and OpenAI**\
 `Silicon Valley engineers recently flocked to new technology from a Chinese company, Z.ai, that is almost as good as its American competitors but much cheaper.`\
 https://www.nytimes.com/2026/06/25/technology/zai-china-artificial-intelligence-models.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/25/arts/europe-museums-heat.html
 **Iran Threatens Ships in Strait of Hormuz as Marco Rubio Meets Gulf Leaders**\
 `The new warning complicated efforts to revive use of the critical waterway as Washington sought regional support for its framework peace agreement with Iran.`\
 https://www.nytimes.com/2026/06/25/world/middleeast/iran-strait-of-hormuz-threat-rubio-bahrain.html
-
-**Mara Brock Akil Finds a New ‘Muse’ in ‘The Revelation of Dionne Daphne’**\
-`She’s been creating layered Black women for TV since “Girlfriends” in the early 2000s. In her debut novel, she raises the stakes for yet another one.`\
-https://www.nytimes.com/2026/06/25/style/mara-brock-akil-revelation-of-dionne-daphne.html
-
-**Earthquakes Are Latest Challenge for Venezuelan Leader**\
-`President Delcy Rodríguez, in power only for a few months, has been trying to balance the demands of President Trump and her own domestic political needs.`\
-https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-delcy-rodriguez.html
 
 **Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\

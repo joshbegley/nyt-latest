@@ -1,3 +1,7 @@
+**Chinese A.I. Models Gain Ground on Anthropic and OpenAI**\
+`Silicon Valley engineers recently flocked to new technology from a Chinese company, Z.ai, that is almost as good as its American competitors but much cheaper.`\
+https://www.nytimes.com/2026/06/25/technology/zai-china-artificial-intelligence-models.html
+
 **Frank Guarini, Seven-Term New Jersey Representative, Dies at 101**\
 `A reform-minded Democrat, he served on the tax-writing House Ways and Means Committee and offered a pragmatic mix of progressive legislation and conservative fiscal philosophy.`\
 https://www.nytimes.com/2026/06/25/us/politics/frank-guarini-dead.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/25/style/mara-brock-akil-revelation-of-dionne-da
 **Earthquakes Are Latest Challenge for Venezuelan Leader**\
 `President Delcy Rodríguez, in power only for a few months, has been trying to balance the demands of President Trump and her own domestic political needs.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-delcy-rodriguez.html
-
-**Spain Warns of a Possible Spike in Heat-Related Deaths**\
-`An estimated 212 deaths have been linked to extreme heat between Sunday and Wednesday, according to a monitoring system affiliated with the country’s health ministry.`\
-https://www.nytimes.com/2026/06/25/weather/spain-heat-wave-deaths-warning.html
 
 **Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\

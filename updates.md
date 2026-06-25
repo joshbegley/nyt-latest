@@ -1,3 +1,7 @@
+**Chinese A.I. Models Gain Ground on Anthropic and OpenAI**\
+`Silicon Valley engineers recently flocked to new technology from a Chinese company, Z.ai, that is almost as good as its American competitors but much cheaper.`\
+https://www.nytimes.com/2026/06/25/technology/zai-china-artificial-intelligence-models.html
+
 **Frank Guarini, Seven-Term New Jersey Representative, Dies at 101**\
 `A reform-minded Democrat, he served on the tax-writing House Ways and Means Committee and offered a pragmatic mix of progressive legislation and conservative fiscal philosophy.`\
 https://www.nytimes.com/2026/06/25/us/politics/frank-guarini-dead.html
