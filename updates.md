@@ -1,3 +1,11 @@
+**Venezuela Earthquakes Hammer Infrastructure, Making Aid Efforts Harder**\
+`The power grid, water supply and health system were already under strain from years of neglect and underinvestment.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-infrastructure.html
+
+**King Charles III to Release Tax Details, a First for Any British Monarch**\
+`The king is expected to release tax information on Thursday as part of a push for greater transparency after the scandal involving the former Prince Andrew.`\
+https://www.nytimes.com/2026/06/25/world/europe/king-charles-taxes-uk.html
+
 **Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Quake Survivors**\
 `The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said. The full scale of the damage was still becoming clear.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
