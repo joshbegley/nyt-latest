@@ -1,3 +1,15 @@
+**Marianne Lake, a Potential Dimon Successor, Leaves JPMorgan**\
+`Another potential successor, Marianne Lake, is leaving JPMorgan, as the longstanding chief executive enters his third decade atop the bank.`\
+https://www.nytimes.com/2026/06/25/business/jamie-dimon-jpmorgan-succession-petno-rohrbaugh.html
+
+**Venezuela en vivo: aumentan las víctimas mortales del sismo mientras avanzan los esfuerzos de rescate**\
+`Las autoridades dijeron que los terremotos de magnitud 7,2 y 7,5 dejaron al menos 164 muertos y cientos de desaparecidos. Aún no se conoce el alcance total de los daños.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
+
+**Here’s What It Means to Be a Democratic Socialist**\
+`Universal health care, taxing the wealthy and opposition to military aid to Israel are among the movement’s key tenets.`\
+https://www.nytimes.com/2026/06/25/us/politics/heres-what-it-means-to-be-a-democratic-socialist.html
+
 **Trump Administration Forms Partnership to Bank DNA From Imperiled Species**\
 `The government is teaming up with Colossal Biosciences, a private company that claims to have revived extinct dire wolves, to store samples from at-risk animals and plants.`\
 https://www.nytimes.com/2026/06/25/climate/colossal-biosciences-gene-bank.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/06/25/crosswords/wordle-review-1833.html
 **NYT Connections Answers for June 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
 https://www.nytimes.com/2026/06/25/crosswords/connections-companion-1111.html
-
-**Several Strong Quakes Hit Across the World in 24 Hours**\
-`Experts said the powerful earthquakes that struck California and Japan are likely not connected to the devastating tremors in Venezuela.`\
-https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-japan-california.html
-
-**Europe Braces for More Sweltering Heat. Here’s What to Know.**\
-`Temperatures in many parts of the continent were expected to stay in the high 30s to low 40s Celsius, or around 100 Fahrenheit, posing health risks and disrupting daily life.`\
-https://www.nytimes.com/2026/06/25/weather/europe-heat-record-temperatures.html
-
-**Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Quake Survivors**\
-`The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said. The full scale of the damage was still becoming clear.`\
-https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
