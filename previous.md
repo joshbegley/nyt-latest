@@ -1,7 +1,3 @@
-**Un temblor de magnitud 7,1 se registra en Venezuela**\
-`Los residentes de Caracas, la capital, dijeron que el terremoto sacudió los edificios y provocó un apagón. Las imágenes mostraban edificios dañados y personas reunidas en las calles.`\
-https://www.nytimes.com/es/2026/06/24/espanol/america-latina/temblor-venezuela-caracas-epicentro.html
-
 **Meta pone la mira en los mercados de predicción**\
 `Una aplicación experimental, llamada internamente Arena, iría tras los clientes de Polymarket y Kalshi.`\
 https://www.nytimes.com/es/2026/06/24/espanol/negocios/meta-zuckerberg-prediccion-polymarket.html
@@ -31,7 +27,7 @@ https://www.nytimes.com/2026/06/24/us/politics/democratic-progressive-primary-ca
 https://www.nytimes.com/2026/06/24/us/los-angeles-new-school-superintendent-lausd.html
 
 **Venezuela Hit by 7.1-Magnitude Earthquake**\
-`The`\
+`Residents in Caracas, the capital, said the quake shook buildings and knocked out electricity. Images showed damaged buildings and people congregating in the streets.`\
 https://www.nytimes.com/2026/06/24/world/americas/earthquake-venezuela.html
 
 **Map: 6.9-Magnitude Earthquake Shakes Japan**\
@@ -193,4 +189,8 @@ https://www.nytimes.com/2026/06/24/nyregion/transgender-youth-medical-records-do
 **OpenAI and Broadcom Unveil Custom A.I. Chip Design**\
 `The maker of ChatGPT plans to use enough chips to consume 10 gigawatts of electricity, an amount that could power millions of households.`\
 https://www.nytimes.com/2026/06/24/technology/openai-broadcom-chip-jalapeno.html
+
+**Mayor’s Race in South Dakota’s Largest City Rests on 2 Votes**\
+`With nearly all votes counted, a former Republican legislator was leading a Democratic state senator to be mayor of Sioux Falls, S.D.`\
+https://www.nytimes.com/2026/06/24/us/mayor-sioux-falls-south-dakota.html
 
