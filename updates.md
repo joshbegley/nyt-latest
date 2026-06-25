@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: cómo ayudar a los damnificados**\
+`Los equipos de rescate siguen buscando sobrevivientes; los ciudadanos se esfuerzan por rescatar a amigos y vecinos y otros países han prometido ayuda y recursos al país. Esto puedes hacer para colaborar.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/como-ayudar.html
+
 **En la calle y en internet, los venezolanos buscan desesperadamente a sus familiares**\
 `Mientras esperaban una respuesta del gobierno, amigos y familiares de personas que estaban en la zona del terremoto recurrieron a las redes sociales y fueron a los barrios afectados.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezela-desaparecidos-busqueda.html
