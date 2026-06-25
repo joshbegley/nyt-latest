@@ -1,3 +1,7 @@
+**Europe Heat Wave Live Updates: Scorching Weather Persists After Record-Breaking Day**\
+`Temperatures on Thursday are forecast to remain sharply above normal, ranging from high 30s to low 40s degrees Celsius, or around 100 Fahrenheit.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
+
 **Venezuela Residents Describe Terror as Deadly Earthquake Struck**\
 `Buildings collapsed, windows rattled and residents poured into the streets in Venezuela’s capital and nearby cities after two major earthquakes hit.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-caracas.html
