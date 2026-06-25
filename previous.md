@@ -1,3 +1,7 @@
+**After Trump’s Outburst, Senate G.O.P. Stages a Reversal on Iran**\
+`In a late-night vote aimed at mollifying the president, Senate Republicans rejected a resolution directing him to end the war against Iran, a day after a bipartisan rebuke.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
+
 **Representative Tom Kean, Missing for Months, Is Back Home in New Jersey**\
 `The congressman, who has been absent from Washington since March, answered the door of his home on Wednesday evening. He was wearing a suit and tie.`\
 https://www.nytimes.com/2026/06/24/nyregion/tom-kean-missing-found.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010988029/bees-truck-crash-texas.html
 **La esposa de Pedro Sánchez está acusada de corrupción. Eso podría beneficiarlo**\
 `A primera vista, el juicio a Begoña Gómez parece un posible tiro de gracia para el presidente español, pero los analistas dicen que se está convirtiendo en una ventaja para su sobrevivencia política.`\
 https://www.nytimes.com/es/2026/06/24/espanol/mundo/espana-pedro-sanchez-esposa-corrupcion.html
-
-**Shortage of Chemotherapy Drugs Brings Rationing Fears for Cancer Patients**\
-`Doctors are contending with low supplies and unfilled orders of generic chemotherapy infusions that are central to the treatment of a long list of cancers.`\
-https://www.nytimes.com/2026/06/24/health/chemotherapy-drug-shortage.html
 

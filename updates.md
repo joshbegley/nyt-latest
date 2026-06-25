@@ -1,3 +1,7 @@
+**After Trump’s Outburst, Senate G.O.P. Stages a Reversal on Iran**\
+`In a late-night vote aimed at mollifying the president, Senate Republicans rejected a resolution directing him to end the war against Iran, a day after a bipartisan rebuke.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
+
 **Representative Tom Kean, Missing for Months, Is Back Home in New Jersey**\
 `The congressman, who has been absent from Washington since March, answered the door of his home on Wednesday evening. He was wearing a suit and tie.`\
 https://www.nytimes.com/2026/06/24/nyregion/tom-kean-missing-found.html
