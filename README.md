@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/06/25/us/politics/trump-mail-in-voting-ruling.html
 `Track the latest polls in Tennessee's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/tennessee-us-house-5-polls-2026.html
 
-**Who Is Ahead in Ohio's 7th Congressional District?**\
-`Track the latest polls in Ohio's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/ohio-us-house-7-polls-2026.html
-
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
