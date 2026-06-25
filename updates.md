@@ -1,3 +1,23 @@
+**‘The Anti-Social Media’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Vihaan Miriyala, age 15.`\
+https://www.nytimes.com/2026/06/25/learning/the-anti-social-media.html
+
+**‘A Bench Is Not a Barrier’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Violet S. Tran, age 15.`\
+https://www.nytimes.com/2026/06/25/learning/a-bench-is-not-a-barrier.html
+
+**People in Brussels Find Creative Ways to Escape the Heat Wave**\
+`As Belgium swelters in the high temperatures baking Europe, residents in the capital are seeking relief in some creative ways.`\
+https://www.nytimes.com/2026/06/25/weather/belgium-heat-wave-brussels.html
+
+**Don the Builder**\
+`We look at Trump’s construction projects in Washington, D.C.`\
+https://www.nytimes.com/2026/06/25/briefing/trumps-washington-renovations.html
+
+**Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
+`A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
+
 **The Taylor Swift Wedding and a Hot New York Summer**\
 `Should Taylor Swift and Travis Kelce tie the knot in New York City, their nuptials would be another economic event for the Big Apple.`\
 https://www.nytimes.com/2026/06/25/business/dealbook/taylor-travis-wedding-new-york.html
