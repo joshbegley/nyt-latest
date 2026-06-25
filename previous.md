@@ -1,3 +1,39 @@
+**Who Is Ahead in Wisconsin's 1st Congressional District?**\
+`Track the latest polls in Wisconsin's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-1-polls-2026.html
+
+**Who Is Ahead in Wisconsin's 7th Congressional District?**\
+`Track the latest polls in Wisconsin's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-7-polls-2026.html
+
+**Who Is Ahead in Wisconsin's 3rd Congressional District?**\
+`Track the latest polls in Wisconsin's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-3-polls-2026.html
+
+**Inflation Accelerated in May as Iran War Pushed Up Prices**\
+`A closely watched measure of inflation ticked up as the conflict in the Middle East inflated energy prices.`\
+https://www.nytimes.com/2026/06/25/business/inflation-iran-war-prices.html
+
+**Is Canada About to Enter the Eurovision Song Contest?**\
+`As Canada’s government looks more toward Europe and less to the United States, its national broadcaster has become a full member of the group that organizes the glitzy singing event.`\
+https://www.nytimes.com/2026/06/25/arts/television/canada-eurovision.html
+
+**Who Is Ahead in New Hampshire's 2nd Congressional District?**\
+`Track the latest polls in New Hampshire's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-hampshire-us-house-2-polls-2026.html
+
+**Who Is Ahead in New Hampshire's 1st Congressional District?**\
+`Track the latest polls in New Hampshire's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.html
+
+**Driver Plows Into Crowd of World Cup Fans in Mexico, Authorities Say**\
+`Videos show a car repeatedly accelerating into a crowd in Cabo San Lucas after Mexico won a World Cup game. The authorities said at least 17 people were injured and the driver was arrested.`\
+https://www.nytimes.com/2026/06/25/world/americas/car-ramming-mexico-world-cup-cabo-san-lucas.html
+
+**‘Jackass: Best and Last’ Review: Johnny Knoxville and Friends Reunite**\
+`In what purports to be the final installment of the MTV franchise, Johnny Knoxville and friends reunite to reminisce.`\
+https://www.nytimes.com/2026/06/25/movies/jackass-best-and-last-review.html
+
 **Who Is Ahead in Minnesota's 2nd Congressional District?**\
 `Track the latest polls in Minnesota's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/minnesota-us-house-2-polls-2026.html
@@ -149,50 +185,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/negocios/taiwan-chips-ia.html
 **Two-Party System, One-Party Rule**\
 `Why does our seemingly competitive political system produce so much stagnation and corruption?`\
 https://www.nytimes.com/2026/06/25/opinion/one-party-rule-two-party-system.html
-
-**A Country Store Hidden Away on a 15,000-Acre Scottish Estate**\
-`Plus: summer-ready lip liners, a ryokan in the Japanese Alps and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/06/25/t-magazine/gladstones-scotland-luxury-country-store.html
-
-**Senate Democrats Will Train Staff as Election Observers**\
-`Senator Chuck Schumer, the minority leader, said the program was aimed at counteracting potential efforts by the Trump administration to manipulate elections.`\
-https://www.nytimes.com/2026/06/25/us/politics/senate-democrats-will-train-staff-as-election-observers.html
-
-**La derecha triunfó en Colombia, con un poco de ayuda de Trump**\
-`El presidente de EE. UU. apoyó al ganador, Abelardo de la Espriella. Pero su influencia fue más allá.`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/colombia-eleccion-de-la-espriella-trump.html
-
-**Is It Time for a New Sexual Revolution?**\
-`One that actually brings men and women together.`\
-https://www.nytimes.com/2026/06/25/opinion/gender-sexual-revolution-men-women.html
-
-**Triumph of the Tasteless**\
-`This is an era of illusion, and Musk and Trump are the self-adoring, self-promoting emblems and emperors of it.`\
-https://www.nytimes.com/2026/06/25/opinion/musk-trump-spacex-ipo.html
-
-**Three Women Wanted to Start a Family in the Bay Area. Could They Find a House to Do It In?**\
-`An engaged couple and their companion searched Oakland and Berkeley for a forever home, with room for one more.`\
-https://www.nytimes.com/interactive/2026/06/25/realestate/bay-area-oakland-berkeley-real-estate-homes-prices.html
-
-**No Corrections: June 25, 2026**\
-`No corrections appeared in print on Thursday, June 25, 2026.`\
-https://www.nytimes.com/2026/06/25/pageoneplus/no-corrections-june-25-2026.html
-
-**Big Companies Aim to Ease A.I. Transition for American Workers**\
-`OpenAI, Anthropic, Amazon and Microsoft have signed on to an effort led by Gina Raimondo, a former commerce secretary.`\
-https://www.nytimes.com/2026/06/25/business/economy/ai-work-force-training-job-losses.html
-
-**Lesson Learned From Iran War: Reduce Reliance on Strait of Hormuz**\
-`Increased stockpiles, more pipelines and other tactics could loosen the waterway’s stranglehold on the global economy.`\
-https://www.nytimes.com/2026/06/25/business/strait-of-hormuz-iran-war.html
-
-**U.S. Inflation Problems Are Far From Over**\
-`The Federal Reserve’s new chairman has vowed to deliver price stability, but officials are at odds over whether that will require higher borrowing costs.`\
-https://www.nytimes.com/2026/06/25/business/federal-reserve-inflation-pce.html
-
-**Traveling to Europe in a Heat Wave? Here’s What to Know.**\
-`Residents and summer travelers alike are searching for ways to stay safe and cool as the continent swelters amid a heat wave. Here are some tips.`\
-https://www.nytimes.com/2026/06/25/travel/europe-heat-wave-what-to-know.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\

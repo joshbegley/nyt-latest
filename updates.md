@@ -1,3 +1,39 @@
+**Who Is Ahead in Wisconsin's 1st Congressional District?**\
+`Track the latest polls in Wisconsin's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-1-polls-2026.html
+
+**Who Is Ahead in Wisconsin's 7th Congressional District?**\
+`Track the latest polls in Wisconsin's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-7-polls-2026.html
+
+**Who Is Ahead in Wisconsin's 3rd Congressional District?**\
+`Track the latest polls in Wisconsin's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/wisconsin-us-house-3-polls-2026.html
+
+**Inflation Accelerated in May as Iran War Pushed Up Prices**\
+`A closely watched measure of inflation ticked up as the conflict in the Middle East inflated energy prices.`\
+https://www.nytimes.com/2026/06/25/business/inflation-iran-war-prices.html
+
+**Is Canada About to Enter the Eurovision Song Contest?**\
+`As Canada’s government looks more toward Europe and less to the United States, its national broadcaster has become a full member of the group that organizes the glitzy singing event.`\
+https://www.nytimes.com/2026/06/25/arts/television/canada-eurovision.html
+
+**Who Is Ahead in New Hampshire's 2nd Congressional District?**\
+`Track the latest polls in New Hampshire's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-hampshire-us-house-2-polls-2026.html
+
+**Who Is Ahead in New Hampshire's 1st Congressional District?**\
+`Track the latest polls in New Hampshire's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.html
+
+**Driver Plows Into Crowd of World Cup Fans in Mexico, Authorities Say**\
+`Videos show a car repeatedly accelerating into a crowd in Cabo San Lucas after Mexico won a World Cup game. The authorities said at least 17 people were injured and the driver was arrested.`\
+https://www.nytimes.com/2026/06/25/world/americas/car-ramming-mexico-world-cup-cabo-san-lucas.html
+
+**‘Jackass: Best and Last’ Review: Johnny Knoxville and Friends Reunite**\
+`In what purports to be the final installment of the MTV franchise, Johnny Knoxville and friends reunite to reminisce.`\
+https://www.nytimes.com/2026/06/25/movies/jackass-best-and-last-review.html
+
 **No Corrections: June 25, 2026**\
 `No corrections appeared in print on Thursday, June 25, 2026.`\
 https://www.nytimes.com/2026/06/25/pageoneplus/no-corrections-june-25-2026.html
