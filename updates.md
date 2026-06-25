@@ -1,3 +1,7 @@
+**Medical Journal Retracts Study Claiming Cancer Therapy Is More Effective When Given in the Morning**\
+`In a notice flagging a series of problems with a clinical trial, the journal Nature Medicine said its editors “no longer have confidence in the integrity of the results.”`\
+https://www.nytimes.com/2026/06/25/business/china-cancer-treatment-research-retraction.html
+
 **Summer Challenge: Make Land Art to Boost Mental Health**\
 `Mixing creativity and time outdoors is good for your mental health. Here’s how.`\
 https://www.nytimes.com/interactive/2026/06/25/well/summer-challenge-land-earth-art.html
