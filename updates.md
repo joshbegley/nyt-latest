@@ -1,3 +1,11 @@
+**Mamdani’s Rent Freeze Is Approved by New York City Board**\
+`Mayor Zohran Mamdani’s pledge to freeze rents for rent-stabilized apartments became a centerpiece of his campaign. Six months into his first year, a city panel delivered.`\
+https://www.nytimes.com/2026/06/25/nyregion/nyc-rent-freeze-vote-mamdani.html
+
+**Johnson Says He Will Send Housing Bill to Trump**\
+`After meeting with the president, the speaker said he would send him a housing bill that Mr. Trump declined to sign this week. There was no word on whether he would sign it.`\
+https://www.nytimes.com/2026/06/25/us/politics/mike-johnson-trump-housing-bill.html
+
 **La Guaira: una ciudad venezolana marcada por la tragedia**\
 `Los mortales deslaves de 1999 asestaron golpes duraderos a la empobrecida La Guaira. La respuesta de la presidenta en funciones, Delcy Rodríguez, podría ser un indicador de su futuro político.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/la-guaira-tragedia.html
