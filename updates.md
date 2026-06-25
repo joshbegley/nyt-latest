@@ -1,3 +1,11 @@
+**La Corte Suprema otorga más poder a Trump en materia de inmigración**\
+`Una mayoría de magistrados concedieron al presidente la facultad de revocar protecciones contra la deportación y negar el acceso a los migrantes en la frontera sur de EE. UU.`\
+https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/suprema-corte-tps-trump-migracion.html
+
+**What Italy Vacation Destination is Right For You?**\
+`Answer four questions, and we'll help you plan a trip.`\
+https://www.nytimes.com/interactive/2026/06/25/travel/italy-vacation-quiz.html
+
 **Nigel Cabourn, Men’s Wear Designer Revered for Vintage Aesthetic, Dies at 76**\
 `The antithesis of fast fashion, his clothes were modeled on heritage garments and mostly made in his native Britain.`\
 https://www.nytimes.com/2026/06/25/style/nigel-cabourn-dead.html
