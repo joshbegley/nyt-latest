@@ -1,5 +1,9 @@
+**Supreme Court T.P.S. Ruling on Haiti Plunges Many Migrants Into Limbo**\
+`The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
+https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
+
 **Olivia Wilde and Seth Rogen Reflect on Their Relationship Wins at ‘The Invite’ Premiere**\
-`Hollywood couples celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
+`Hollywood couples, including Penélope Cruz and Javier Bardem, celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
 https://www.nytimes.com/2026/06/25/style/the-invite-premiere-olivia-wilde-seth-rogen.html
 
 **Solidarity With Ranch-Obsessed Tourists**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/25/us/politics/heres-what-it-means-to-be-a-democ
 **Trump Administration Forms Partnership to Bank DNA From Imperiled Species**\
 `The government is teaming up with Colossal Biosciences, a private company that claims to have revived extinct dire wolves, to store samples from at-risk animals and plants.`\
 https://www.nytimes.com/2026/06/25/climate/colossal-biosciences-gene-bank.html
-
-**Who Is Ahead in Wyoming's At-Large Congressional District?**\
-`Track the latest polls in Wyoming's At-Large Congressional District.`\
-https://www.nytimes.com/interactive/polls/wyoming-us-house-at-large-polls-2026.html
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
 `Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\

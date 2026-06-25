@@ -1,3 +1,15 @@
+**Olivia Wilde and Seth Rogen Reflect on Their Relationship Wins at ‘The Invite’ Premiere**\
+`Hollywood couples celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
+https://www.nytimes.com/2026/06/25/style/the-invite-premiere-olivia-wilde-seth-rogen.html
+
+**Solidarity With Ranch-Obsessed Tourists**\
+`If you tried to sneak ranch through T.S.A., I see you, and I raise you something even better: homemade ranch.`\
+https://www.nytimes.com/2026/06/25/dining/solidarity-with-ranch-obsessed-tourists.html
+
+**Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
+`Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
 **In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
 `Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhood.`\
 https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
