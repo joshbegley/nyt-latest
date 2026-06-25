@@ -1,3 +1,11 @@
+**Venezuela Earthquakes Hammer Infrastructure, Making Aid Efforts Harder**\
+`The power grid, water supply and health system were already under strain from years of neglect and underinvestment.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-infrastructure.html
+
+**King Charles III to Release Tax Details, a First for Any British Monarch**\
+`The king is expected to release tax information on Thursday as part of a push for greater transparency after the scandal involving the former Prince Andrew.`\
+https://www.nytimes.com/2026/06/25/world/europe/king-charles-taxes-uk.html
+
 **Two Earthquakes Hit Venezuela: What to Know About Death Toll, Damage and Rescue Response**\
 `Two major quakes struck back to back on Wednesday night in the country’s populated northern areas. The second was the strongest to hit Venezuela in over a century.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-death-toll-aid-response.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/25/movies/romeria-review.html
 **‘Lucky Strike’ Review: Fighting a Battle Behind Enemy Lines**\
 `This World War II movie is a nuts-and-bolts survival thriller that recalls a bygone era of Greatest Generation patriotism.`\
 https://www.nytimes.com/2026/06/25/movies/lucky-strike-review.html
-
-**‘The Invite’ Review: Who’s Afraid of a Last-Minute Dinner Party**\
-`In this witty comedy, Seth Rogen and Olivia Wilde star as a millennial couple whose tense marriage gets a wild jolt from their neighbors.`\
-https://www.nytimes.com/2026/06/25/movies/the-invite-movie-review-seth-rogen-olivia-wilde.html
-
-**‘Drunken Noodles’ Review: Saucy Encounters**\
-`Over two blurred summers, an intern at an art gallery experiences solitude and pleasure with the men he encounters.`\
-https://www.nytimes.com/2026/06/25/movies/drunken-noodles-review.html
 
 **Live Updates: Spain Warns of High Death Toll in Heat Wave**\
 `The health ministry said about 200 people may have died since Sunday. The forecast across Europe was set to remain sharply above normal on Thursday.`\

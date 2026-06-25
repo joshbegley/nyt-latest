@@ -1,3 +1,11 @@
+**Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Quake Survivors**\
+`The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said. The full scale of the damage was still becoming clear.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
+**Live Updates: Spain Warns of High Death Toll in Heat Wave**\
+`The health ministry said about 200 people may have died since Sunday. The forecast across Europe was set to remain sharply above normal on Thursday.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
+
 **Two Earthquakes Hit Venezuela: What to Know About Death Toll, Damage and Rescue Response**\
 `Two major quakes struck back to back on Wednesday night in the country’s populated northern areas. The second was the strongest to hit Venezuela in over a century.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-death-toll-aid-response.html
