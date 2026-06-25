@@ -1,3 +1,7 @@
+**Venezuela’s Neighbors Offer Aid in Earthquake Response**\
+`Officials from the United States, El Salvador and the Dominican Republic said they would send rescue teams and humanitarian assistance to Caracas.`\
+https://www.nytimes.com/2026/06/24/world/americas/venezuela-earthquake-international-response.html
+
 **Nueva York en alerta por un misterioso evento en el Madison Square Garden**\
 `El Times ha confirmado que Taylor Swift ha alquilado la arena deportiva para el fin de semana del 4 de julio, lo que sugiere que tiene previsto organizar una celebración de varios días.`\
 https://www.nytimes.com/es/2026/06/25/espanol/cultura/taylor-swift-boda-madison-square-garden.html
