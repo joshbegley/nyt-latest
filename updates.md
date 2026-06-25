@@ -1,3 +1,7 @@
+**Incertidumbre tras dos fuertes sismos**\
+`Los sismos de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
+https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas
+
 **Sismo en Venezuela: el terremoto de 7,5 es el más fuerte en un siglo**\
 `El Servicio Geológico de EE. UU. calcula que podría ser mucho más mortífero que el terremoto de magnitud 7,7 que sacudió el país en 1900.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezuela-magnitud.html
