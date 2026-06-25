@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
 `El calor extremo está trastocando la vida cotidiana en todo el continente europeo.`\
 https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-calor.html
 
-**Why Americans Are So Freaked Out by A.I.**\
+**There’s One Clear Reason Why Americans Are Gloomy About A.I.**\
 `The key is understanding how our labor market and our social net differs from the rest of the world.`\
 https://www.nytimes.com/2026/06/25/opinion/ai-americans-pessimism.html
 
