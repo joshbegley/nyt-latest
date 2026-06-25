@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/06/25/podcasts/pochettino-usmnt-selection-dilemma-n
 
 **In London, Extreme Heat Forces Cancellation of Event About Extreme Heat**\
 `Scorching temperatures have disrupted daily life in Britain this week, including events that centered on battling high temperatures.`\
-https://www.nytimes.com/2026/06/25/weather/in-london-extreme-heat-cancels-an-event-about-extreme-heat.html
+https://www.nytimes.com/2026/06/25/weather/london-climate-action-extreme-heat-wave-uk.html
 
 **IBM Unveils New Method to Make Smaller Computer Chip Parts**\
 `Industry leaders had worried that innovations in chip miniaturization were no longer possible.`\

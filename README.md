@@ -38,8 +38,8 @@ https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-japan-cal
 `Temperatures in many parts of the continent were expected to stay in the high 30s to low 40s Celsius, or around 100 Fahrenheit, posing health risks and disrupting daily life.`\
 https://www.nytimes.com/2026/06/25/weather/europe-heat-record-temperatures.html
 
-**Venezuela Live Updates: Rescuers Mount Frantic Search for Survivors of Twin Earthquakes**\
-`The 7.2- and 7.5-magnitude earthquakes left dozens dead and hundreds missing, the authorities said, but the full scale of the damage was not immediately clear. The disaster added to the turmoil in the country.`\
+**Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Survivors of Twin Earthquakes**\
+`The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said, but the full scale of the damage was not immediately clear.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
 **What the World Cup Can Teach the American Fan**\

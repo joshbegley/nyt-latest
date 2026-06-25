@@ -1,3 +1,7 @@
+**In London, Extreme Heat Forces Cancellation of Event About Extreme Heat**\
+`Scorching temperatures have disrupted daily life in Britain this week, including events that centered on battling high temperatures.`\
+https://www.nytimes.com/2026/06/25/weather/london-climate-action-extreme-heat-wave-uk.html
+
 **Pochettino’s Selection Dilemma, and Norway’s Fan Row**\
 `With the U.S.M.N.T. already qualified, will the coach stick with a winning team or is it better to rest his star players for the final group game?`\
 https://www.nytimes.com/2026/06/25/podcasts/pochettino-usmnt-selection-dilemma-norway-fan-row.html
