@@ -1,3 +1,11 @@
+**Oil Prices Hover Around Prewar Levels as Gulf Shipping Resumes**\
+`Oil prices fell, moving closer to levels not seen since the war in Iran began in February.`\
+https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
+
+**Photos: Earthquakes Strike Venezuela**\
+`Two powerful quakes shook the South American country, causing death and destruction.`\
+https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.html
+
 **Powerful Back-to-Back Earthquakes Hit Venezuela**\
 `A 7.2-magnitude earthquake hit central Venezuela on Wednesday and was followed by one with a magnitude of 7.5, killing dozens of people. The stronger quake was the worst the country had seen since 1900.`\
 https://www.nytimes.com/video/world/americas/100000010990980/venezuela-earthquake.html

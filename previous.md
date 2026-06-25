@@ -78,7 +78,7 @@ https://www.nytimes.com/es/2026/06/25/espanol/cultura/taylor-swift-boda-madison-
 `This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/06/25/learning/word-of-the-day-apotheosis.html
 
-**Oil Prices Fall Toward Prewar Levels as Gulf Shipping Resumes**\
+**Oil Prices Hover Around Prewar Levels as Gulf Shipping Resumes**\
 `Oil prices fell, moving closer to levels not seen since the war in Iran began in February.`\
 https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
 
@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/06/24/us/politics/new-jersey-sanctuary-cities-lawsu
 https://www.nytimes.com/2026/06/24/nyregion/avila-chevalier-espaillat.html
 
 **Photos: Earthquakes Strike Venezuela**\
-`After two powerful quakes shook the South American country, concern is growing that the damage could be devastating.`\
+`Two powerful quakes shook the South American country, causing death and destruction.`\
 https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.html
 
 **NATO’s Leader Makes His Case to Trump for Preserving the Alliance**\
