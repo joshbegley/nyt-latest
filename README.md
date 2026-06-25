@@ -1,3 +1,7 @@
+**Summer Challenge: Make Land Art to Boost Mental Health**\
+`Mixing creativity and time outdoors is good for your mental health. Here’s how.`\
+https://www.nytimes.com/interactive/2026/06/25/well/summer-challenge-land-earth-art.html
+
 **Global Warming Upends London Climate Week**\
 `The extreme heat smothering Europe has upended Climate Week in London.`\
 https://www.nytimes.com/2026/06/25/climate/london-climate-week-heat-cancelations.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/climate/trump-pfas-forever-chemical-settlemen
 **Vast Destruction Along Venezuela’s Coast After Earthquakes, in Maps and Photos**\
 `Photos and videos show a coastal area north of Caracas sustained some of the worst damage from earthquakes in Venezuela on Wednesday.`\
 https://www.nytimes.com/interactive/2026/06/25/world/americas/venezuela-earthquake-map-damage.html
-
-**Today, In Short**\
-`“The Odyssey.” National parks. And sleep rituals.`\
-https://www.nytimes.com/2026/06/25/briefing/today-in-short.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
