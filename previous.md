@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.h
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
 
 **Incertidumbre tras dos fuertes sismos**\
-`Los sismos de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
+`Los temblores de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
 https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas
 
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
@@ -122,8 +122,8 @@ https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
 
-**Venezuela Live Updates: Chaos and Fear After Intense Earthquakes**\
-`The 7.2- and 7.5-magnitude quakes toppled buildings and set off frantic rescue efforts in Caracas and beyond. The United States and several Latin American countries said they were mobilizing aid.`\
+**Venezuela Live Updates: Chaos and Fear After Deadly Earthquakes**\
+`The 7.2- and 7.5-magnitude quakes toppled dozens of buildings, killed at least 32 people and injured at least 700 others, the authorities said. A frantic rescue effort was underway.`\
 https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
 
 **Meta pone la mira en los mercados de predicción**\

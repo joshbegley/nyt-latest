@@ -1,3 +1,11 @@
+**Incertidumbre tras dos fuertes sismos**\
+`Los temblores de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
+https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas
+
+**Venezuela Live Updates: Chaos and Fear After Deadly Earthquakes**\
+`The 7.2- and 7.5-magnitude quakes toppled dozens of buildings, killed at least 32 people and injured at least 700 others, the authorities said. A frantic rescue effort was underway.`\
+https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
+
 **Así se ve una Europa agobiada por el calor**\
 `El calor extremo está trastocando la vida cotidiana en todo el continente europeo.`\
 https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-calor.html
