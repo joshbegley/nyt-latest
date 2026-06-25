@@ -1,3 +1,15 @@
+**N.Y. Prosecutors Decline to Try Weinstein a Fourth Time for Rape Charge**\
+`The disgraced film producer would have been facing a fourth trial in New York for being accused of raping an aspiring actress in 2013.`\
+https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-york.html
+
+**Supreme Court Lets Trump End Deportation Protection for Haitians and Syrians**\
+`President Trump has pushed to rescind Temporary Protected Status for hundreds of thousands of people from countries convulsed by humanitarian crises.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
+
+**Live Updates: Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
+`A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
+
 **Supreme Court Overturns Hawaii Gun Law**\
 `The case involved a Second Amendment challenge to a Hawaii law that barred carrying concealed weapons without permission onto private property open to the public.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
