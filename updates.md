@@ -1,3 +1,15 @@
+**En la calle y en internet, los venezolanos buscan desesperadamente a sus familiares**\
+`Mientras esperaban una respuesta del gobierno, amigos y familiares de personas que estaban en la zona del terremoto recurrieron a las redes sociales y fueron a los barrios afectados.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezela-desaparecidos-busqueda.html
+
+**Here’s What the Supreme Court’s Decision Means for TPS Holders**\
+`The ruling on Temporary Protection Status will have swift repercussions for migrants and employers alike.`\
+https://www.nytimes.com/2026/06/25/us/supreme-court-tps-decision-explainer.html
+
+**OpenAI Leans Toward Holding Up I.P.O. Until Next Year**\
+`The A.I. company’s advisers are pushing its chief executive, Sam Altman, to move slowly after SpaceX’s stock has been volatile and as the start-up grapples with financial challenges.`\
+https://www.nytimes.com/2026/06/25/technology/openai-ipo-artificial-intelligence.html
+
 **Venezuelans Search for People Trapped by Twin Earthquakes**\
 `After two earthquakes on Wednesday, some Venezuelans trapped in collapsed buildings awaited rescue and others searched for loved ones in the rubble. Others spoke about the fear they felt when the earthquakes struck.`\
 https://www.nytimes.com/video/world/americas/100000010991490/venezuela-earthquake-survivors-trapped.html

@@ -1,3 +1,15 @@
+**En la calle y en internet, los venezolanos buscan desesperadamente a sus familiares**\
+`Mientras esperaban una respuesta del gobierno, amigos y familiares de personas que estaban en la zona del terremoto recurrieron a las redes sociales y fueron a los barrios afectados.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezela-desaparecidos-busqueda.html
+
+**Here’s What the Supreme Court’s Decision Means for TPS Holders**\
+`The ruling on Temporary Protection Status will have swift repercussions for migrants and employers alike.`\
+https://www.nytimes.com/2026/06/25/us/supreme-court-tps-decision-explainer.html
+
+**OpenAI Leans Toward Holding Up I.P.O. Until Next Year**\
+`The A.I. company’s advisers are pushing its chief executive, Sam Altman, to move slowly after SpaceX’s stock has been volatile and as the start-up grapples with financial challenges.`\
+https://www.nytimes.com/2026/06/25/technology/openai-ipo-artificial-intelligence.html
+
 **Venezuelans Search for People Trapped by Twin Earthquakes**\
 `After two earthquakes on Wednesday, some Venezuelans trapped in collapsed buildings awaited rescue and others searched for loved ones in the rubble. Others spoke about the fear they felt when the earthquakes struck.`\
 https://www.nytimes.com/video/world/americas/100000010991490/venezuela-earthquake-survivors-trapped.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/interactive/polls/tennessee-us-house-5-polls-2026.html
 **Who Is Ahead in Ohio's 7th Congressional District?**\
 `Track the latest polls in Ohio's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/ohio-us-house-7-polls-2026.html
-
-**Who Is Ahead in New Mexico's 2nd Congressional District?**\
-`Track the latest polls in New Mexico's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-mexico-us-house-2-polls-2026.html
-
-**Who Is Ahead in Nebraska's 1st Congressional District?**\
-`Track the latest polls in Nebraska's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/nebraska-us-house-1-polls-2026.html
-
-**Why the Venezuelan Earthquakes Happened, and What to Expect Next**\
-`Twin earthquakes like those that ripped through the region are unusual but not unheard of. Scientists are already gathering data needed for a more detailed picture.`\
-https://www.nytimes.com/2026/06/25/science/venezeula-earthquakes-faults-geology.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
