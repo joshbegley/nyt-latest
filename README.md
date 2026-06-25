@@ -1,3 +1,7 @@
+**Why Americans Are So Freaked Out by A.I.**\
+`The key is understanding how our labor market and our social net differs from the rest of the world.`\
+https://www.nytimes.com/2026/06/25/opinion/ai-americans-pessimism.html
+
 **Sismo en Venezuela: el terremoto de 7,5 es el más fuerte en un siglo**\
 `El Servicio Geológico de EE. UU. calcula que podría ser mucho más mortífero que el terremoto de magnitud 7,7 que sacudió el país en 1900.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezuela-magnitud.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010989882/iron-wildfire-utah-western-us.h
 **A Record Sotheby’s Auction Thrills London After a Brexit Hangover**\
 `British auction sales have declined by nearly half since 2015, but Wednesday’s results hint at a return to form for London as an international auction center.`\
 https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis.html
-
-**Trump Cancels Plans to Sign a Bipartisan Housing Bill**\
-`Also, Western Europe is sweltering. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipartisan-housing-bill.html
 
