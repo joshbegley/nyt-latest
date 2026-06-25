@@ -1,3 +1,11 @@
+**Suspect in Kansas City Shootings Found Dead in Basement, Police Say**\
+`Officers found the body of a man believed to be Oscar Sanchez-Munoz, the suspect in a series of roadway shootings last week, inside a home they had already searched.`\
+https://www.nytimes.com/2026/06/25/us/suspect-in-kansas-city-shootings-found-dead-in-basement-police-say.html
+
+**Venezuela Live Updates: Chaos and Fear After Intense Earthquakes**\
+`The 7.2- and 7.5-magnitude quakes toppled buildings and set off frantic rescue efforts in Caracas and beyond. The United States and several Latin American countries said they were mobilizing aid.`\
+https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
+
 **For America’s 250th, 16 Opinion Writers on the Country at Its Best**\
 `Two hundred and fifty years in, Opinion writers offer 16 reasons why the national experiment endures.`\
 https://www.nytimes.com/interactive/2026/06/25/opinion/america-250-birthday.html

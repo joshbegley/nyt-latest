@@ -1,3 +1,7 @@
+**Suspect in Kansas City Shootings Found Dead in Basement, Police Say**\
+`Officers found the body of a man believed to be Oscar Sanchez-Munoz, the suspect in a series of roadway shootings last week, inside a home they had already searched.`\
+https://www.nytimes.com/2026/06/25/us/suspect-in-kansas-city-shootings-found-dead-in-basement-police-say.html
+
 **For America’s 250th, 16 Opinion Writers on the Country at Its Best**\
 `Two hundred and fifty years in, Opinion writers offer 16 reasons why the national experiment endures.`\
 https://www.nytimes.com/interactive/2026/06/25/opinion/america-250-birthday.html
@@ -106,8 +110,8 @@ https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
 
-**Venezuela Live Updates: 2 Major Earthquakes Hit Country’s Center**\
-`The earthquakes were a magnitude 7.2 and 7.5, according to a U.S. monitoring agency. People in the stricken area said that buildings collapsed and electricity was knocked out, including in the capital, Caracas.`\
+**Venezuela Live Updates: Chaos and Fear After Intense Earthquakes**\
+`The 7.2- and 7.5-magnitude quakes toppled buildings and set off frantic rescue efforts in Caracas and beyond. The United States and several Latin American countries said they were mobilizing aid.`\
 https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
 
 **Meta pone la mira en los mercados de predicción**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/briefing/trump-cancels-plans-to-sign-a-bipart
 **Democrats Are Done With Caution**\
 `Tuesday’s primary demonstrated the astonishing political power of Mamdani and of the Democratic Socialists of America.`\
 https://www.nytimes.com/2026/06/24/opinion/nyc-election-primary-avila-chevalier-lander-valdez.html
-
-**Trump Clashes With Senate Republicans Over Iran in Heated Closed-Door Meeting**\
-`The president had a lengthy and angry exchange with Senator Bill Cassidy of Louisiana and lit into other Republicans who voted to check his war powers.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-senate-gop-meeting-iran.html
 
