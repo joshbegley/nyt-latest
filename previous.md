@@ -1,3 +1,11 @@
+**U.S. Military’s Weapons Shortage Shows Few Signs of Easing Soon**\
+`President Trump and Pentagon officials tried to reassure manufacturers as they sought additional funding from Congress.`\
+https://www.nytimes.com/2026/06/25/us/politics/us-military-weapons-shortage.html
+
+**See the Music, Hear the Sights**\
+`I thought it was cheesy to project images during a concert, but it can amplify the experience.`\
+https://www.nytimes.com/2026/06/25/opinion/classical-music-movies-concerts.html
+
 **Inside the C.D.C.’s Mad Scramble to Meet Kennedy’s Demands**\
 `A cache of internal emails offers a look at the pressure the nation’s public health officials faced from the new health secretary in the early months of the Trump administration.`\
 https://www.nytimes.com/2026/06/25/us/politics/kennedy-cdc-emails.html
@@ -45,6 +53,10 @@ https://www.nytimes.com/2026/06/25/us/politics/trump-housing-bill-scenarios.html
 **Por qué se produjeron los terremotos en Venezuela y qué podemos esperar ahora**\
 `Un doblete sísmico como el que ha sacudido la región es poco habitual, pero no inaudito. Los científicos ya están recabando los datos necesarios para disponer de una visión más detallada.`\
 https://www.nytimes.com/es/2026/06/25/espanol/doblete-sismico-que-es.html
+
+**‘My sister lived here!’ A lonely search for loved ones in La Guaira.**\
+`A missing child. A boyfriend in the rubble. Venezuelans in this hard-hit city said they needed more help to rescue the missing.`\
+https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquakes-rescue-survivors.html
 
 **Gracie Abrams Talks About Her New Single, ‘Look at My Life’**\
 `On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
@@ -169,14 +181,6 @@ https://www.nytimes.com/2026/06/25/arts/television/robert-townsend-the-bear-dire
 **Got Zucchini? Make This Pasta.**\
 `Melissa Clark’s filling and versatile zucchini pasta with tuna and chile paste is my favorite fast zucchini dinner.`\
 https://www.nytimes.com/2026/06/25/dining/got-zucchini-make-this-pasta.html
-
-**Tickled Apes Reveal the Rhythmic Roots of Laughter**\
-`A study of chimps, gorillas and other great apes, including human children, sheds light on how laughter has evolved.`\
-https://www.nytimes.com/2026/06/25/science/evolution-laughter-apes.html
-
-**Apple Raises Prices on Macs and iPads Amid the A.I. Boom**\
-`The tech giant cited the soaring costs of memory and storage chips as it increased prices more than $200 on some devices.`\
-https://www.nytimes.com/2026/06/25/technology/apple-prices-macbooks-ipads.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

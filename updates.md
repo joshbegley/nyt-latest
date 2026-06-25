@@ -1,3 +1,15 @@
+**U.S. Military’s Weapons Shortage Shows Few Signs of Easing Soon**\
+`President Trump and Pentagon officials tried to reassure manufacturers as they sought additional funding from Congress.`\
+https://www.nytimes.com/2026/06/25/us/politics/us-military-weapons-shortage.html
+
+**See the Music, Hear the Sights**\
+`I thought it was cheesy to project images during a concert, but it can amplify the experience.`\
+https://www.nytimes.com/2026/06/25/opinion/classical-music-movies-concerts.html
+
+**‘My sister lived here!’ A lonely search for loved ones in La Guaira.**\
+`A missing child. A boyfriend in the rubble. Venezuelans in this hard-hit city said they needed more help to rescue the missing.`\
+https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquakes-rescue-survivors.html
+
 **Inside the C.D.C.’s Mad Scramble to Meet Kennedy’s Demands**\
 `A cache of internal emails offers a look at the pressure the nation’s public health officials faced from the new health secretary in the early months of the Trump administration.`\
 https://www.nytimes.com/2026/06/25/us/politics/kennedy-cdc-emails.html
