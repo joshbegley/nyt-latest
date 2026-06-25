@@ -1,3 +1,7 @@
+**Jimmy Fallon Teases Trump’s Great American State Fair**\
+`“There’s even a dunk tank with JD Vance and a drunk tank with Kash Patel,” Fallon said.`\
+https://www.nytimes.com/2026/06/25/arts/television/jimmy-fallon-trump-state-fair.html
+
 **Mamdani’s Victories May Be a Headache for the Governor Who Has Backed Him**\
 `Gov. Kathy Hochul has worked with Mayor Zohran Mamdani on child care and second-home taxes. But the triumphs of democratic socialists on Primary Day could complicate her vision.`\
 https://www.nytimes.com/2026/06/25/nyregion/mamdani-hochul-new-york-elections.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 **Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
-
-**Venezuela Live Updates: Chaos and Fear After Deadly Earthquakes**\
-`The 7.2- and 7.5-magnitude quakes toppled dozens of buildings, killed at least 32 people and injured at least 700 others, the authorities said. A frantic rescue effort was underway.`\
-https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
 
 **Meta pone la mira en los mercados de predicción**\
 `Una aplicación experimental, llamada internamente Arena, iría tras los clientes de Polymarket y Kalshi.`\
