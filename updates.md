@@ -1,3 +1,7 @@
+**Jerry Moriarty, Painter Whose Brushstrokes Elevated Comics, Is Dead at 88**\
+`A self-described “paintoonist,” Mr. Moriarty created cartoons with spare dialogue that reminded his admirers of poetry or Samuel Beckett’s plays.`\
+https://www.nytimes.com/2026/06/25/arts/jerry-moriarty-dead.html
+
 **Officials Shut Down Kenya’s Capital to Block Protest**\
 `The protest, an annual event, has become a showcase of the growing political power of Kenya’s youth.`\
 https://www.nytimes.com/2026/06/25/world/africa/kenya-protest-nairobi-shutdown.html

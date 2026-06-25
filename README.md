@@ -167,7 +167,7 @@ https://www.nytimes.com/2026/06/25/science/evolution-laughter-apes.html
 https://www.nytimes.com/2026/06/25/technology/apple-prices-macbooks-ipads.html
 
 **David Clayton-Thomas, Canadian Singer of Blood, Sweat & Tears, Dies at 84**\
-`He was also the key lyricist of the Grammy-winning, genre-blending band, with hits like “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
+`He was also the key lyricist of the Grammy-winning, genre-blending band, whose hits included “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
 https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
 
 **Supreme Court Rejects Lawsuit Against Bayer Alleging Roundup Weedkiller Caused Cancer**\
