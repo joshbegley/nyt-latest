@@ -1,3 +1,7 @@
+**Robert Townsend on ‘The Bear’ and Directing for Television**\
+`The filmmaker has lately turned to television, acting in FX’s “The Bear,” directing episodes of “The Chi” and mentoring Black actors and showrunners reared on his work.`\
+https://www.nytimes.com/2026/06/25/arts/television/robert-townsend-the-bear-director.html
+
 **Got Zucchini? Make This Pasta.**\
 `Melissa Clark’s filling and versatile zucchini pasta with tuna and chile paste is my favorite fast zucchini dinner.`\
 https://www.nytimes.com/2026/06/25/dining/got-zucchini-make-this-pasta.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/25/style/rings-engagements-throuples-divorce.htm
 **Larry Sanger, a Wikipedia Founder, Is Barred From Editing on the Site**\
 `A vote to bar Larry Sanger indefinitely from the volunteer community of Wikipedia came days after he submitted a proposal on “intellectual diversity.”`\
 https://www.nytimes.com/2026/06/25/business/media/wikipedia-larry-sanger-barred.html
-
-**Is the Rap-Pop Collab Era Over?**\
-`There was a time when Top 40 radio was dominated by pop songs with a guest rap verse. Is that era officially over? Joe Coscarelli and Jon Caramanica answer this question and more on this week’s “Popcast” episode.`\
-https://www.nytimes.com/video/podcasts/100000010978388/is-the-rap-pop-collab-era-over.html
 
 **Live Updates: Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\

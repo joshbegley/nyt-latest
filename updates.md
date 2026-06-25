@@ -1,3 +1,19 @@
+**Got Zucchini? Make This Pasta.**\
+`Melissa Clark’s filling and versatile zucchini pasta with tuna and chile paste is my favorite fast zucchini dinner.`\
+https://www.nytimes.com/2026/06/25/dining/got-zucchini-make-this-pasta.html
+
+**Tickled Apes Reveal the Rhythmic Roots of Laughter**\
+`A study of chimps, gorillas and other great apes, including human children, sheds light on how laughter has evolved.`\
+https://www.nytimes.com/2026/06/25/science/evolution-laughter-apes.html
+
+**Apple Raises Prices on Macs and iPads Amid the A.I. Boom**\
+`The tech giant cited the soaring costs of memory and storage chips as it increased prices more than $200 on some devices.`\
+https://www.nytimes.com/2026/06/25/technology/apple-prices-macbooks-ipads.html
+
+**David Clayton-Thomas, Lead Singer of Blood, Sweat & Tears, Dies at 84**\
+`He was also the key lyricist of the Grammy-winning, genre-blending band, with hits like “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
+https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
+
 **Supreme Court Rejects Lawsuit Alleging Roundup Weedkiller Caused Cancer**\
 `The court’s decision is likely to determine the future of thousands of lawsuits against Bayer, which manufactures the weedkiller, over similar claims.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-bayer.html
