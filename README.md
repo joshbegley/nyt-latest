@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-japan-cal
 `Temperatures in many parts of the continent were expected to stay in the high 30s to low 40s Celsius, or around 100 Fahrenheit, posing health risks and disrupting daily life.`\
 https://www.nytimes.com/2026/06/25/weather/europe-heat-record-temperatures.html
 
-**Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Survivors of Twin Earthquakes**\
-`The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said, but the full scale of the damage was not immediately clear.`\
+**Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Quake Survivors**\
+`The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said. The full scale of the damage was still becoming clear.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
 **What the World Cup Can Teach the American Fan**\
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/25/movies/the-invite-movie-review-seth-rogen-oli
 `Over two blurred summers, an intern at an art gallery experiences solitude and pleasure with the men he encounters.`\
 https://www.nytimes.com/2026/06/25/movies/drunken-noodles-review.html
 
-**‘Couture’ Review: No Common Thread**\
-`Angelina Jolie plays a woman preparing for a Paris runway show in Alice Winocour’s fragmentary look at the rarefied world of high fashion.`\
-https://www.nytimes.com/2026/06/25/movies/couture-review-angelina-jolie.html
+**Live Updates: Spain Warns of High Death Toll in Heat Wave**\
+`The health ministry said about 200 people may have died since Sunday. The forecast across Europe was set to remain sharply above normal on Thursday.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
 
