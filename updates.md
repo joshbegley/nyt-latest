@@ -1,3 +1,19 @@
+**Los terremotos, el reto más reciente para Delcy Rodríguez**\
+`La presidenta de Venezuela, que lleva solo unos meses en el cargo, ha estado intentando encontrar el equilibrio entre las exigencias del presidente Trump y sus propias necesidades políticas internas.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremotos-delcy-rodriguez.html
+
+**In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
+`Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhoods.`\
+https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
+
+**‘The Loved Ones’ Review: So Much for That Peaceful Irish Retreat**\
+`Sharp performances from Maryann Plunkett and the other cast members lend weight and texture to Erica Murray’s play, even when the script becomes predictable.`\
+https://www.nytimes.com/2026/06/25/theater/the-loved-ones-review-maryann-plunkett.html
+
+**David Clayton-Thomas, Canadian Singer of Blood, Sweat & Tears, Dies at 84**\
+`He was also the key lyricist of the Grammy-winning, genre-blending band, with hits like “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
+https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
+
 **Chinese A.I. Models Gain Ground on Anthropic and OpenAI**\
 `Silicon Valley engineers recently flocked to new technology from a Chinese company, Z.ai, that is almost as good as its American competitors but much cheaper.`\
 https://www.nytimes.com/2026/06/25/technology/zai-china-artificial-intelligence-models.html
