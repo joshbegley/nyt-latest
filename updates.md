@@ -1,3 +1,7 @@
+**Who Is Ahead in Iowa's 1st Congressional District?**\
+`Track the latest polls in Iowa's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/iowa-us-house-1-polls-2026.html
+
 **Marianne Lake, a Potential Dimon Successor, Leaves JPMorgan**\
 `Another potential successor, Marianne Lake, is leaving JPMorgan, as the longstanding chief executive enters his third decade atop the bank.`\
 https://www.nytimes.com/2026/06/25/business/jamie-dimon-jpmorgan-succession-petno-rohrbaugh.html

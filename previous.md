@@ -1,3 +1,7 @@
+**Who Is Ahead in Iowa's 1st Congressional District?**\
+`Track the latest polls in Iowa's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/iowa-us-house-1-polls-2026.html
+
 **Marianne Lake, a Potential Dimon Successor, Leaves JPMorgan**\
 `Another potential successor, Marianne Lake, is leaving JPMorgan, as the longstanding chief executive enters his third decade atop the bank.`\
 https://www.nytimes.com/2026/06/25/business/jamie-dimon-jpmorgan-succession-petno-rohrbaugh.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/crosswords/strands-sidekick-845.html
 **Today’s Wordle Hints for June 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
 https://www.nytimes.com/2026/06/25/crosswords/wordle-review-1833.html
-
-**NYT Connections Answers for June 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
-https://www.nytimes.com/2026/06/25/crosswords/connections-companion-1111.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
