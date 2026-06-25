@@ -1,3 +1,7 @@
+**Oil Prices Fall Toward Prewar Levels as Gulf Shipping Resumes**\
+`Oil prices fell, moving closer to levels not seen since the war in Iran began in February.`\
+https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
+
 **Incertidumbre tras dos fuertes sismos**\
 `Los temblores de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
 https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas

@@ -1,3 +1,7 @@
+**Oil Prices Fall Toward Prewar Levels as Gulf Shipping Resumes**\
+`Oil prices fell, moving closer to levels not seen since the war in Iran began in February.`\
+https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
+
 **Así se ve una Europa agobiada por el calor**\
 `El calor extremo está trastocando la vida cotidiana en todo el continente europeo.`\
 https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-calor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.ht
 **Wildfire Risk in Utah and Across the West Is the Highest It’s Been All Year**\
 `Critical conditions are expected through the weekend across Utah, Arizona, Nevada and elsewhere.`\
 https://www.nytimes.com/2026/06/24/weather/utah-wildfires-colorado-smoke.html
-
-**Firefighters Respond to Iron Fire In Utah**\
-`The Iron fire in Eureka, Utah, has burned tens of thousands of acres since it started on Friday.`\
-https://www.nytimes.com/video/us/100000010989882/iron-wildfire-utah-western-us.html
 
