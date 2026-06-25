@@ -1,3 +1,7 @@
+**On the ground and online, Venezuelans desperately search for missing relatives.**\
+`Friends and family of those in the earthquake zone were turning to social media and heading to affected neighborhoods as they awaited an official rescue response.`\
+https://www.nytimes.com/2026/06/25/world/americas/survivor-search-venezuela-earthquake.html
+
 **What Are the Paths Forward for the Housing Bill After Trump Refused to Sign It?**\
 `President Trump abruptly scrapped plans to sign a major housing bill. It could still become law, with or without a presidential signature. But Mr. Trump could also try to kill it.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-housing-bill-scenarios.html

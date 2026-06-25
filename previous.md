@@ -1,3 +1,7 @@
+**On the ground and online, Venezuelans desperately search for missing relatives.**\
+`Friends and family of those in the earthquake zone were turning to social media and heading to affected neighborhoods as they awaited an official rescue response.`\
+https://www.nytimes.com/2026/06/25/world/americas/survivor-search-venezuela-earthquake.html
+
 **What Are the Paths Forward for the Housing Bill After Trump Refused to Sign It?**\
 `President Trump abruptly scrapped plans to sign a major housing bill. It could still become law, with or without a presidential signature. But Mr. Trump could also try to kill it.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-housing-bill-scenarios.html
@@ -181,14 +185,6 @@ https://www.nytimes.com/2026/06/25/us/politics/supreme-court-asylum-border.html
 **Record-Breaking Heat Is Crushing Europe**\
 `Extreme temperatures, which have baked western parts of the continent over the past week, are forecast to shift eastward in the coming days.`\
 https://www.nytimes.com/2026/06/25/weather/europe-heat-wave-temperature-records.html
-
-**Who Is Ahead in Iowa's 2nd Congressional District?**\
-`Track the latest polls in Iowa's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/iowa-us-house-2-polls-2026.html
-
-**Who Is Ahead in Iowa's 1st Congressional District?**\
-`Track the latest polls in Iowa's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/iowa-us-house-1-polls-2026.html
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
 `Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
