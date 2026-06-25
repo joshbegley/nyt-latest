@@ -1,3 +1,7 @@
+**Is Canada About to Enter the Eurovision Song Contest?**\
+`As Canada’s government looks more toward Europe and less to the United States, its national broadcaster has become a full member of the group that organizes the glitzy singing event.`\
+https://www.nytimes.com/2026/06/25/arts/television/canada-eurovision.html
+
 **Who Is Ahead in New Hampshire's 2nd Congressional District?**\
 `Track the latest polls in New Hampshire's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-hampshire-us-house-2-polls-2026.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/25/opinion/gender-sexual-revolution-men-women.ht
 **Triumph of the Tasteless**\
 `This is an era of illusion, and Musk and Trump are the self-adoring, self-promoting emblems and emperors of it.`\
 https://www.nytimes.com/2026/06/25/opinion/musk-trump-spacex-ipo.html
-
-**Three Women Wanted to Start a Family in the Bay Area. Could They Find a House to Do It In?**\
-`An engaged couple and their companion searched Oakland and Berkeley for a forever home, with room for one more.`\
-https://www.nytimes.com/interactive/2026/06/25/realestate/bay-area-oakland-berkeley-real-estate-homes-prices.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\

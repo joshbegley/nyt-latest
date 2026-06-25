@@ -1,3 +1,7 @@
+**Who Is Ahead in New Hampshire's 2nd Congressional District?**\
+`Track the latest polls in New Hampshire's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-hampshire-us-house-2-polls-2026.html
+
 **Who Is Ahead in New Hampshire's 1st Congressional District?**\
 `Track the latest polls in New Hampshire's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.html
