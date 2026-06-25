@@ -1,3 +1,47 @@
+**Pochettino’s Selection Dilemma, and Norway’s Fan Row**\
+`With the U.S.M.N.T. already qualified, will the coach stick with a winning team or is it better to rest his star players for the final group game?`\
+https://www.nytimes.com/2026/06/25/podcasts/pochettino-usmnt-selection-dilemma-norway-fan-row.html
+
+**In London, Extreme Heat Forces Cancellation of Event About Extreme Heat**\
+`Scorching temperatures have disrupted daily life in Britain this week, including events that centered on battling high temperatures.`\
+https://www.nytimes.com/2026/06/25/weather/in-london-extreme-heat-cancels-an-event-about-extreme-heat.html
+
+**IBM Unveils New Method to Make Smaller Computer Chip Parts**\
+`Industry leaders had worried that innovations in chip miniaturization were no longer possible.`\
+https://www.nytimes.com/2026/06/25/technology/ibm-technology-tinier-chips.html
+
+**A Major Victory for Insurgent Democrats**\
+`Candidates backed by Mayor Zohran Mamdani of New York swept the city’s Democratic primaries.`\
+https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primaries-new-york.html
+
+**2 Deadly Earthquakes Hit Venezuela, and Why Chemo Drugs Could Soon Be Rationed**\
+`Plus, will A.I. find the next soccer superstar?`\
+https://www.nytimes.com/2026/06/25/podcasts/the-headlines/venezuela-earthquakes-chemo-drugs-shortage.html
+
+**NYT Strands Hints for June 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/25/crosswords/strands-sidekick-845.html
+
+**Today’s Wordle Hints for June 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/25/crosswords/wordle-review-1833.html
+
+**NYT Connections Answers for June 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/25/crosswords/connections-companion-1111.html
+
+**Several Strong Quakes Hit Across the World in 24 Hours**\
+`Experts said the powerful earthquakes that struck California and Japan are likely not connected to the devastating tremors in Venezuela.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-japan-california.html
+
+**Europe Braces for More Sweltering Heat. Here’s What to Know.**\
+`Temperatures in many parts of the continent were expected to stay in the high 30s to low 40s Celsius, or around 100 Fahrenheit, posing health risks and disrupting daily life.`\
+https://www.nytimes.com/2026/06/25/weather/europe-heat-record-temperatures.html
+
+**Venezuela Live Updates: Rescuers Mount Frantic Search for Survivors of Twin Earthquakes**\
+`The 7.2- and 7.5-magnitude earthquakes left dozens dead and hundreds missing, the authorities said, but the full scale of the damage was not immediately clear. The disaster added to the turmoil in the country.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
 **What the World Cup Can Teach the American Fan**\
 `Daniel Alarcón and John Green on the power of fandom.`\
 https://www.nytimes.com/2026/06/25/podcasts/world-cup-fandom-worst-messi-interview.html

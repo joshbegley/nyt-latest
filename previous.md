@@ -1,3 +1,47 @@
+**Pochettino’s Selection Dilemma, and Norway’s Fan Row**\
+`With the U.S.M.N.T. already qualified, will the coach stick with a winning team or is it better to rest his star players for the final group game?`\
+https://www.nytimes.com/2026/06/25/podcasts/pochettino-usmnt-selection-dilemma-norway-fan-row.html
+
+**In London, Extreme Heat Forces Cancellation of Event About Extreme Heat**\
+`Scorching temperatures have disrupted daily life in Britain this week, including events that centered on battling high temperatures.`\
+https://www.nytimes.com/2026/06/25/weather/in-london-extreme-heat-cancels-an-event-about-extreme-heat.html
+
+**IBM Unveils New Method to Make Smaller Computer Chip Parts**\
+`Industry leaders had worried that innovations in chip miniaturization were no longer possible.`\
+https://www.nytimes.com/2026/06/25/technology/ibm-technology-tinier-chips.html
+
+**A Major Victory for Insurgent Democrats**\
+`Candidates backed by Mayor Zohran Mamdani of New York swept the city’s Democratic primaries.`\
+https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primaries-new-york.html
+
+**2 Deadly Earthquakes Hit Venezuela, and Why Chemo Drugs Could Soon Be Rationed**\
+`Plus, will A.I. find the next soccer superstar?`\
+https://www.nytimes.com/2026/06/25/podcasts/the-headlines/venezuela-earthquakes-chemo-drugs-shortage.html
+
+**NYT Strands Hints for June 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/25/crosswords/strands-sidekick-845.html
+
+**Today’s Wordle Hints for June 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/25/crosswords/wordle-review-1833.html
+
+**NYT Connections Answers for June 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/25/crosswords/connections-companion-1111.html
+
+**Several Strong Quakes Hit Across the World in 24 Hours**\
+`Experts said the powerful earthquakes that struck California and Japan are likely not connected to the devastating tremors in Venezuela.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-japan-california.html
+
+**Europe Braces for More Sweltering Heat. Here’s What to Know.**\
+`Temperatures in many parts of the continent were expected to stay in the high 30s to low 40s Celsius, or around 100 Fahrenheit, posing health risks and disrupting daily life.`\
+https://www.nytimes.com/2026/06/25/weather/europe-heat-record-temperatures.html
+
+**Venezuela Live Updates: Rescuers Mount Frantic Search for Survivors of Twin Earthquakes**\
+`The 7.2- and 7.5-magnitude earthquakes left dozens dead and hundreds missing, the authorities said, but the full scale of the damage was not immediately clear. The disaster added to the turmoil in the country.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
 **What the World Cup Can Teach the American Fan**\
 `Daniel Alarcón and John Green on the power of fandom.`\
 https://www.nytimes.com/2026/06/25/podcasts/world-cup-fandom-worst-messi-interview.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/06/25/us/texas-schools-book-list.html
 **The Little Rituals That Prepare You for Sleep**\
 `Origami, cleaning countertops, talking to plants — here are some ways readers wind down for the evening.`\
 https://www.nytimes.com/2026/06/25/well/sleep-evening-rituals-habits.html
-
-**Fermented Food: Does Eating Kimchi or Sauerkraut Have Health Benefits?**\
-`Researchers are starting to understand how foods like kimchi, yogurt and sauerkraut affect our health.`\
-https://www.nytimes.com/2026/06/25/well/eat/fermented-food-health-benefits.html
-
-**Best Sapphic Romance Books, According to Ashley Herring Blake**\
-`The author Ashley Herring Blake recommends swoony Sapphic novels that celebrate love between women across eras and genres.`\
-https://www.nytimes.com/2026/06/25/books/sapphic-romance-books.html
-
-**A Bold Idea to Make Elite Colleges Affordable**\
-`Wanting to make top schools look less like country clubs and more like the country shouldn’t be a partisan issue.`\
-https://www.nytimes.com/2026/06/25/opinion/college-cost-education-tuition-ivy-league.html
-
-**M.I.T. Didn’t Publish an Antisemitism Report. A Professor Wrote His Own.**\
-`Now, the professor is in a fight with the university over whether he can use M.I.T. money to promote a book critical of the school.`\
-https://www.nytimes.com/2026/06/25/us/mit-antisemitism-book.html
-
-**The Gramercy Arts Theatre: Still Thriving After 111 Years**\
-`Repertorio Español, the resident company, performs works like “La Gringa,” the longest-running Off Broadway Spanish-language play in New York City.`\
-https://www.nytimes.com/2026/06/25/realestate/the-gramercy-arts-theatre-still-thriving-after-111-years.html
-
-**Fox, Bravo and BET Look to Take Microdramas Mainstream**\
-`Major networks like Fox, Bravo and BET are translating shows to the short-form video format that last year made $11 billion in global revenue.`\
-https://www.nytimes.com/2026/06/25/arts/television/microdrama-short-tv-series-bravo-lifetime-bet.html
-
-**This Doctor Can Change the Color of Your Eyes. Should He?**\
-`Francis Ferrari, a French ophthalmologist, invented a controversial procedure that can change eye color. People from around the world are willing to take the risk.`\
-https://www.nytimes.com/2026/06/25/style/eye-color-change-surgery-flaak.html
-
-**Is Space Tourism Finally Ready for Takeoff?**\
-`Delays and rising prices have made the promise of space travel for ordinary people more elusive than ever. Will that ever change?`\
-https://www.nytimes.com/2026/06/25/travel/space-tourism-future.html
-
-**An American Knife Maker in Australia**\
-`Bud Heyser, who grew up in Kentucky, now finds himself forging custom blades in Melbourne.`\
-https://www.nytimes.com/2026/06/25/fashion/craftsmanship-an-american-knife-maker-in-melbourne-australia.html
-
-**A Custom Globe Celebrates Asprey’s 245th Anniversary**\
-`The jeweler commissioned Leonardo Frigo, an Italian artisan who uses traditional methods and materials, to create the limited-edition sphere.`\
-https://www.nytimes.com/2026/06/25/fashion/a-custom-globe-celebrates-aspreys-245th-anniversary.html
-
-**In Venice, a Family’s History in Wood and Glass**\
-`The Trevisanellos, whose shop opened in 1960, sell hundreds of decorative frames a year.`\
-https://www.nytimes.com/2026/06/25/fashion/craftsmanship-frames-venice.html
 
