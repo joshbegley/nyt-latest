@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010991382/25vid-heat-cows-3147.html
+
+**A Major Victory for Progressive Democrats**\
+`Candidates backed by Mayor Zohran Mamdani of New York swept the city’s Democratic primaries.`\
+https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primaries-new-york.html
+
 **Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Survivors of Twin Earthquakes**\
 `The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said, but the full scale of the damage was not immediately clear.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
