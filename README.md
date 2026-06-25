@@ -1,6 +1,10 @@
-**Earthquakes Strike Venezuela**\
+**Avila Chevalier Won Despite Far-Left Views. Will They Hurt Democrats?**\
+`Darializa Avila Chevalier’s questionable social media history and outlier politics are already being highlighted by Republican leaders as they look to November.`\
+https://www.nytimes.com/2026/06/24/nyregion/avila-chevalier-espaillat.html
+
+**Photos: Earthquakes Strike Venezuela**\
 `After two powerful quakes shook the South American country, concern is growing that the damage could be devastating.`\
-https://www.nytimes.com/2026/06/24/world/americas/earthquakes-strike-venezuela.html
+https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.html
 
 **NATO’s Leader Makes His Case to Trump for Preserving the Alliance**\
 `Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/us/fort-stewart-shooting-sentence.html
 **7 Lessons and Consequences of the Iran War**\
 `Green energy, modern war and American hegemony`\
 https://www.nytimes.com/2026/06/24/opinion/iran-war-lessons.html
-
-**The Good List: 6 Things to Add Delight to Your Day**\
-`Naming the moon, Sometimes Island and laughing in real life.`\
-https://www.nytimes.com/2026/06/24/briefing/24-the-good-list-web-invite-anthropeum.html
 
