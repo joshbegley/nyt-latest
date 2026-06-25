@@ -1,3 +1,7 @@
+**Los terremotos, el reto más reciente para Delcy Rodríguez**\
+`La presidenta de Venezuela, que lleva solo unos meses en el cargo, ha estado intentando encontrar el equilibrio entre las exigencias del presidente Trump y sus propias necesidades políticas internas.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremotos-delcy-rodriguez.html
+
 **In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
 `Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhoods.`\
 https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/06/25/science/evolution-laughter-apes.html
 `The tech giant cited the soaring costs of memory and storage chips as it increased prices more than $200 on some devices.`\
 https://www.nytimes.com/2026/06/25/technology/apple-prices-macbooks-ipads.html
 
-**David Clayton-Thomas, Lead Singer of Blood, Sweat & Tears, Dies at 84**\
+**David Clayton-Thomas, Canadian Singer of Blood, Sweat & Tears, Dies at 84**\
 `He was also the key lyricist of the Grammy-winning, genre-blending band, with hits like “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
 https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/polls/massachusetts-us-house-6-polls-2026.ht
 **Some European Museums Are Free Havens to Cool Off. Others Can’t Take the Heat.**\
 `Institutions with air conditioning or stone buildings can market themselves as a respite from extreme temperatures. But some are reducing their hours.`\
 https://www.nytimes.com/2026/06/25/arts/europe-museums-heat.html
-
-**Iran Threatens Ships in Strait of Hormuz as Marco Rubio Meets Gulf Leaders**\
-`The new warning complicated efforts to revive use of the critical waterway as Washington sought regional support for its framework peace agreement with Iran.`\
-https://www.nytimes.com/2026/06/25/world/middleeast/iran-strait-of-hormuz-threat-rubio-bahrain.html
 
 **Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
