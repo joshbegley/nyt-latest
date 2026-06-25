@@ -1,3 +1,23 @@
+**Who Is Ahead in Iowa's 3rd Congressional District?**\
+`Track the latest polls in Iowa's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/iowa-us-house-3-polls-2026.html
+
+**Supreme Court Allows Trump to Block Asylum Seekers at Border**\
+`A policy of turning back asylum seekers at the border was rescinded in 2021, but the Trump administration wants the flexibility to reinstate it as a tool for border control.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-asylum-border.html
+
+**Record-Breaking Heat Is Crushing Europe**\
+`Extreme temperatures, which have baked western parts of the continent over the past week, are forecast to shift eastward in the coming days.`\
+https://www.nytimes.com/2026/06/25/weather/europe-heat-wave-temperature-records.html
+
+**Who Is Ahead in Iowa's 2nd Congressional District?**\
+`Track the latest polls in Iowa's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/iowa-us-house-2-polls-2026.html
+
+**Live Updates: Britain Breaks Record June Temperature as Deadly Heat Crushes Europe**\
+`A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
+
 **Who Is Ahead in Iowa's 1st Congressional District?**\
 `Track the latest polls in Iowa's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/iowa-us-house-1-polls-2026.html
