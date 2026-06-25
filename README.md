@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
 https://www.nytimes.com/2026/06/24/nyregion/tom-kean-missing-found.html
 
 **What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
-`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was longer with the company.`\
+`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was no longer with the company.`\
 https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
 
 **Los venezolanos del sur de Florida llaman a sus familiares y organizan la ayuda**\
