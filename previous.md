@@ -1,3 +1,7 @@
+**Supreme Court Rejects Lawsuit Alleging Roundup Weedkiller Caused Cancer**\
+`The court’s decision is likely to determine the future of thousands of lawsuits against Bayer, which manufactures the weedkiller, over similar claims.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-bayer.html
+
 **N.Y. Prosecutors Decline to Try Weinstein a Fourth Time for Rape Charge**\
 `The disgraced film producer would have been facing a fourth trial in New York for being accused of raping an aspiring actress in 2013.`\
 https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-york.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/world/europe/king-charles-taxes-uk.html
 **Two Earthquakes Hit Venezuela: What to Know About Death Toll, Damage and Rescue Response**\
 `Two major quakes struck back to back on Wednesday night in the country’s populated northern areas. The second was the strongest to hit Venezuela in over a century.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-death-toll-aid-response.html
-
-**Why Do People Spend So Long on Death Row?**\
-`The host of “The Last 12 Weeks” shares surprising data on executions.`\
-https://www.nytimes.com/2026/06/25/podcasts/why-do-people-spend-so-long-on-death-row.html
 
 **Live Updates: Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\

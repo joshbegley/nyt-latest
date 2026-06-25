@@ -1,3 +1,7 @@
+**David Clayton-Thomas, Lead Singer of Blood, Sweat & Tears, Dies at 84**\
+`He was also the key lyricist of the Grammy-winning, genre-blending band, with hits like “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
+https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
+
 **Supreme Court Rejects Lawsuit Alleging Roundup Weedkiller Caused Cancer**\
 `The court’s decision is likely to determine the future of thousands of lawsuits against Bayer, which manufactures the weedkiller, over similar claims.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-bayer.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-infrastr
 **King Charles III to Release Tax Details, a First for Any British Monarch**\
 `The king is expected to release tax information on Thursday as part of a push for greater transparency after the scandal involving the former Prince Andrew.`\
 https://www.nytimes.com/2026/06/25/world/europe/king-charles-taxes-uk.html
-
-**Two Earthquakes Hit Venezuela: What to Know About Death Toll, Damage and Rescue Response**\
-`Two major quakes struck back to back on Wednesday night in the country’s populated northern areas. The second was the strongest to hit Venezuela in over a century.`\
-https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-death-toll-aid-response.html
 
 **Live Updates: Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
