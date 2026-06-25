@@ -1,3 +1,11 @@
+**Nigel Cabourn, Men’s Wear Designer Revered for Vintage Aesthetic, Dies at 76**\
+`The antithesis of fast fashion, his clothes were modeled on heritage garments and mostly made in his native Britain.`\
+https://www.nytimes.com/2026/06/25/style/nigel-cabourn-dead.html
+
+**Justices Clash on Whether Race Played a Role in Trump’s Bid to Deport Haitians**\
+`The split mirrored one that has long divided Americans: how seriously to take the president’s loose, provocative and sometimes ugly remarks.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-trump-haiti-race.html
+
 **Supreme Court Expands Trump’s Immigration Power**\
 `Also, Iran strikes a ship in the Strait of Hormuz. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/06/25/briefing/supreme-court-trump-immigration.html
