@@ -1,9 +1,13 @@
+**Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
+`Fans have been worried about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
+https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
+
 **Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
 
 **Venezuela Live Updates: 2 Major Earthquakes Hit Country’s Center**\
-`The earthquakes were a magnitude 7.2 and 7.5, according to the U.S.G.S. People in the stricken area said that buildings shook and electricity was knocked out, including in the capital, Caracas. Images showed collapsed buildings and people congregating in the streets.`\
+`The earthquakes were a magnitude 7.2 and 7.5, according to the U.S.G.S. People in the stricken area said that buildings shook and electricity was knocked out, including in the capital, Caracas.`\
 https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
 
 **Un temblor de magnitud 7,2 se registra en Venezuela**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/06/24/nyregion/met-carone-indictment.ht
 **What Alex Bores’s New York Defeat Reveals About the Fight Over A.I. Money in Politics**\
 `Alex Bores’s close loss in New York could pave the way for other Democrats to take political advantage of being attacked by the increasingly unpopular A.I. industry.`\
 https://www.nytimes.com/2026/06/24/us/politics/new-york-primary-bores-lasher-ai.html
-
-**Judge Orders U.S. to Stop Seeking Medical Records of Transgender Youth**\
-`The Justice Department had sought information about care provided at New York City hospitals, which were the subject of the ruling.`\
-https://www.nytimes.com/2026/06/24/nyregion/transgender-youth-medical-records-doj-judge.html
 

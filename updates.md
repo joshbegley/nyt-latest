@@ -1,3 +1,11 @@
+**Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
+`Fans have been worried about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
+https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
+
+**Venezuela Live Updates: 2 Major Earthquakes Hit Country’s Center**\
+`The earthquakes were a magnitude 7.2 and 7.5, according to the U.S.G.S. People in the stricken area said that buildings shook and electricity was knocked out, including in the capital, Caracas.`\
+https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
+
 **Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
