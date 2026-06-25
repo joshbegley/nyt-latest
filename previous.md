@@ -1,3 +1,7 @@
+**Movement Through Strait of Hormuz Is Halted After Attack on Cargo Ship**\
+`The strike on a vessel near the coast of Oman prompted a U.N. agency to pause an evacuation of ships from the Persian Gulf.`\
+https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html
+
 **Medical Journal Retracts Study Claiming Cancer Therapy Is More Effective When Given in the Morning**\
 `In a notice flagging a series of problems with a clinical trial, the journal Nature Medicine said its editors “no longer have confidence in the integrity of the results.”`\
 https://www.nytimes.com/2026/06/25/business/china-cancer-treatment-research-retraction.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/technology/zai-china-artificial-intelligence-
 **Frank Guarini, Seven-Term New Jersey Representative, Dies at 101**\
 `A reform-minded Democrat, he served on the tax-writing House Ways and Means Committee and offered a pragmatic mix of progressive legislation and conservative fiscal philosophy.`\
 https://www.nytimes.com/2026/06/25/us/politics/frank-guarini-dead.html
-
-**Chemours to Pay $450M in First Federal PFAS Settlement**\
-`The settlement addresses the dumping of PFAS “forever chemicals,” which have been linked to cancer and other risks, by Chemours in several states.`\
-https://www.nytimes.com/2026/06/25/climate/trump-pfas-forever-chemical-settlement-chemours.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

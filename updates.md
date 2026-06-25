@@ -1,3 +1,7 @@
+**Movement Through Strait of Hormuz Is Halted After Attack on Cargo Ship**\
+`The strike on a vessel near the coast of Oman prompted a U.N. agency to pause an evacuation of ships from the Persian Gulf.`\
+https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html
+
 **Medical Journal Retracts Study Claiming Cancer Therapy Is More Effective When Given in the Morning**\
 `In a notice flagging a series of problems with a clinical trial, the journal Nature Medicine said its editors “no longer have confidence in the integrity of the results.”`\
 https://www.nytimes.com/2026/06/25/business/china-cancer-treatment-research-retraction.html
