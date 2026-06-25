@@ -1,3 +1,15 @@
+**North Korea Deploys Its First Destroyer, Vowing to Project Nuclear Power by Sea**\
+`The 5,000-ton Choe Hyon is the largest warship North Korea has ever built and is said to be armed with nuclear-capable missiles.`\
+https://www.nytimes.com/2026/06/25/world/asia/north-korea-destroyer-nuclear.html
+
+**Donde los multimillonarios veranean, trabajadores migrantes enfrentan fríos mortales**\
+`La vida dura de un paisajista guatemalteco y su solitaria muerte revelan el costo humano que entraña el cuidado paisaje de los Hamptons.`\
+https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/muerte-guatemala-camay-hamptons.html
+
+**El México-Irlanda fue el partido más caluroso de la historia del Mundial: ‘Una locura’**\
+`Jugadores exhaustos, aficionados desmayados y bolsitas de agua lanzadas desde la banda. Así fue aquel encuentro de 1994 en Orlando, considerado uno de los más calurosos en la historia de los Mundiales.`\
+https://www.nytimes.com/es/2026/06/25/espanol/deportes/mundial-mexico-irlanda-calor-historia.html
+
 **Jimmy Fallon Teases Trump’s Great American State Fair**\
 `“There’s even a dunk tank with JD Vance and a drunk tank with Kash Patel,” Fallon said.`\
 https://www.nytimes.com/2026/06/25/arts/television/jimmy-fallon-trump-state-fair.html
