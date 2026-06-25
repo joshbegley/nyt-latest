@@ -1,3 +1,11 @@
+**What the World Cup Can Teach the American Fan**\
+`Daniel Alarcón and John Green on the power of fandom.`\
+https://www.nytimes.com/2026/06/25/podcasts/world-cup-fandom-worst-messi-interview.html
+
+**Iraq’s New Leader Faces Resistance Trying to Bring Militias Under State Control**\
+`The Trump administration has demanded that Iraqi leaders distance themselves from Iran and rein in Iran-linked militias that are outside of government control.`\
+https://www.nytimes.com/2026/06/25/world/middleeast/iraq-militias-state-control.html
+
 **Esta es la lujosa ciudad en Taiwán impulsada por el auge de la IA**\
 `Hsinchu pasó de ser una zona dedicada al cultivo a alojar una de las explosiones más vertiginosas de riqueza y desarrollo en toda Asia.`\
 https://www.nytimes.com/es/2026/06/25/espanol/negocios/taiwan-chips-ia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/25/fashion/a-custom-globe-celebrates-aspreys-245
 **In Venice, a Family’s History in Wood and Glass**\
 `The Trevisanellos, whose shop opened in 1960, sell hundreds of decorative frames a year.`\
 https://www.nytimes.com/2026/06/25/fashion/craftsmanship-frames-venice.html
-
-**5 Photographs That Shine in National Geographic’s New Museum**\
-`Visual storytelling is at the core of the National Geographic Museum of Exploration, which opens on Friday in downtown Washington, D.C.`\
-https://www.nytimes.com/2026/06/25/arts/national-geographic-museum-dc-photography.html
-
-**Paul Rudnick on His Favorite Books and His New ‘Tuxedo Society’**\
-`“I can always wait for the streaming version and hope for nudity,” says the writer, whose new novel, “The Tuxedo Society,” is about a cadre of gay spies.`\
-https://www.nytimes.com/2026/06/25/books/review/paul-rudnick-the-tuxedo-society.html
 

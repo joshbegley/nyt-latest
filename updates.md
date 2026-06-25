@@ -1,3 +1,11 @@
+**What the World Cup Can Teach the American Fan**\
+`Daniel Alarcón and John Green on the power of fandom.`\
+https://www.nytimes.com/2026/06/25/podcasts/world-cup-fandom-worst-messi-interview.html
+
+**Iraq’s New Leader Faces Resistance Trying to Bring Militias Under State Control**\
+`The Trump administration has demanded that Iraqi leaders distance themselves from Iran and rein in Iran-linked militias that are outside of government control.`\
+https://www.nytimes.com/2026/06/25/world/middleeast/iraq-militias-state-control.html
+
 **Esta es la lujosa ciudad en Taiwán impulsada por el auge de la IA**\
 `Hsinchu pasó de ser una zona dedicada al cultivo a alojar una de las explosiones más vertiginosas de riqueza y desarrollo en toda Asia.`\
 https://www.nytimes.com/es/2026/06/25/espanol/negocios/taiwan-chips-ia.html
