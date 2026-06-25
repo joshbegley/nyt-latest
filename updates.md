@@ -1,3 +1,11 @@
+**Colorado Brothers Hid Decaying Bodies in Their Funeral Home, Authorities Say**\
+`The owners of Davis Mortuary in Pueblo, Colo., face multiple charges after state inspectors said they found two dozen decomposing bodies behind a concealed door. One of the owners is a former coroner.`\
+https://www.nytimes.com/2026/06/25/us/colorado-funeral-home-decaying-bodies-found.html
+
+**John Stockwell, Who Wrote a Tell-All Book About the C.I.A., Dies at 88**\
+`A former covert operative, he published his resignation letter in The Washington Post and went on to write “In Search of Enemies,” a book the agency sought to suppress.`\
+https://www.nytimes.com/2026/06/25/us/john-stockwell-dead.html
+
 **Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
 `Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto

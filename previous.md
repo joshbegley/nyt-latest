@@ -1,3 +1,11 @@
+**Colorado Brothers Hid Decaying Bodies in Their Funeral Home, Authorities Say**\
+`The owners of Davis Mortuary in Pueblo, Colo., face multiple charges after state inspectors said they found two dozen decomposing bodies behind a concealed door. One of the owners is a former coroner.`\
+https://www.nytimes.com/2026/06/25/us/colorado-funeral-home-decaying-bodies-found.html
+
+**John Stockwell, Who Wrote a Tell-All Book About the C.I.A., Dies at 88**\
+`A former covert operative, he published his resignation letter in The Washington Post and went on to write “In Search of Enemies,” a book the agency sought to suppress.`\
+https://www.nytimes.com/2026/06/25/us/john-stockwell-dead.html
+
 **La Corte Suprema otorga más poder a Trump en materia de inmigración**\
 `Una mayoría de magistrados concedieron al presidente la facultad de revocar protecciones contra la deportación y negar el acceso a los migrantes en la frontera sur de EE. UU.`\
 https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/suprema-corte-tps-trump-migracion.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/doblete-sismico-que-es.html
 **After Venezuela Earthquakes, La Guaira Residents Search for Loved Ones in the Rubble**\
 `A missing child. A boyfriend in the rubble. Venezuelans in this hard-hit city said they needed more help to rescue the missing.`\
 https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquakes-rescue-survivors.html
-
-**Gracie Abrams Talks About Her New Single, ‘Look at My Life’**\
-`On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
-https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-look-at-my-life.html
-
-**‘Nowhere To Go’: T.P.S. Ruling Plunges Many Migrants Into Limbo**\
-`The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
-https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
 
 **Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
 `Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
