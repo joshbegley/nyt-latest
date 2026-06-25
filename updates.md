@@ -1,3 +1,11 @@
+**Venezuelans Search for People Trapped by Twin Earthquakes**\
+`After two earthquakes on Wednesday, some Venezuelans trapped in collapsed buildings awaited rescue and others searched for loved ones in the rubble. Others spoke about the fear they felt when the earthquakes struck.`\
+https://www.nytimes.com/video/world/americas/100000010991490/venezuela-earthquake-survivors-trapped.html
+
+**After Supreme Court TPS Ruling, What Conditions May Haitian and Syrian Deportees Face?**\
+`The Supreme Court ruled that the Trump administration could end humanitarian protections for many Haitians and Syrians in the United States, clearing the way for their potential deportation.`\
+https://www.nytimes.com/2026/06/25/world/americas/haitians-syrians-deportations-us.html
+
 **Tighter Canadian Borders Limit U.S. Deportees Seeking Refuge**\
 `New Canadian policies and a longstanding border agreement with the United States will make heading north a tough route for Syrians and Haitians.`\
 https://www.nytimes.com/2026/06/25/world/canada/canada-border-immigration-deportation.html
