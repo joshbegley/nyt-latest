@@ -1,3 +1,7 @@
+**Devastating Earthquakes Will Test Venezuela’s Newfound Alliance With U.S.**\
+`President Trump has boasted of the success of an armed intervention in Venezuela. A natural disaster raises pressure to match rhetoric with action.`\
+https://www.nytimes.com/2026/06/25/world/americas/devastating-earthquakes-will-test-venezuelas-newfound-alliance-with-us.html
+
 **Trump Keeps Undercutting Republicans’ Message, Squandering His Own Trifecta**\
 `Divisions between the president and his party on Capitol Hill have muddled Republicans’ midterm pitch to voters, and have crippled the G.O.P. at what should be the peak of its power.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-senate-republicans-undercutting-message.html
@@ -178,15 +182,11 @@ https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-
 `The disgraced film producer would have been facing a fourth trial in New York for being accused of raping an aspiring actress in 2013.`\
 https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-york.html
 
-**Supreme Court Overturns Hawaii Gun Law**\
-`The case involved a Second Amendment challenge to a Hawaii law that barred carrying concealed weapons without permission onto private property open to the public.`\
-https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
-
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
-`Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
+`Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
