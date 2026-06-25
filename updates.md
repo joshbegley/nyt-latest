@@ -1,3 +1,15 @@
+**New York’s Indian Dining Scene Has Never Been More Exciting**\
+`Mounds of mandi, endless thalis and lamb chops with pageantry are on full display as hyper-regional restaurants take over.`\
+https://www.nytimes.com/2026/06/25/dining/new-yorks-indian-dining-scene-has-never-been-more-exciting.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/opinion/editorials/100000010983169/26opdocs-cuba-hpcg.html
+
+**Grilled Asparagus With Burrata and Furikake**\
+`There’s something truly special in this recipe from Cooking contributor Ali Slagle, linked below, about this combination of charred asparagus and scallions, milky burrata and crunchy furikake, a Japanese condiment of seaweed, sesame seeds and fish flakes.`\
+https://www.nytimes.com/video/dining/100000010992629/grilled-asparagus-with-burrata-and-furikake.html
+
 **Movement Through Strait of Hormuz Is Halted After Attack on Cargo Ship**\
 `The strike on a vessel near the coast of Oman prompted a U.N. agency to pause an evacuation of ships from the Persian Gulf.`\
 https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html

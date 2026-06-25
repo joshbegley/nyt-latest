@@ -1,3 +1,15 @@
+**New York’s Indian Dining Scene Has Never Been More Exciting**\
+`Mounds of mandi, endless thalis and lamb chops with pageantry are on full display as hyper-regional restaurants take over.`\
+https://www.nytimes.com/2026/06/25/dining/new-yorks-indian-dining-scene-has-never-been-more-exciting.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/opinion/editorials/100000010983169/26opdocs-cuba-hpcg.html
+
+**Grilled Asparagus With Burrata and Furikake**\
+`There’s something truly special in this recipe from Cooking contributor Ali Slagle, linked below, about this combination of charred asparagus and scallions, milky burrata and crunchy furikake, a Japanese condiment of seaweed, sesame seeds and fish flakes.`\
+https://www.nytimes.com/video/dining/100000010992629/grilled-asparagus-with-burrata-and-furikake.html
+
 **Movement Through Strait of Hormuz Is Halted After Attack on Cargo Ship**\
 `The strike on a vessel near the coast of Oman prompted a U.N. agency to pause an evacuation of ships from the Persian Gulf.`\
 https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremoto
 **In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
 `Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhood.`\
 https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
-
-**‘The Loved Ones’ Review: So Much for That Peaceful Irish Retreat**\
-`Sharp performances from Maryann Plunkett and the other cast members lend weight and texture to Erica Murray’s play, even when the script becomes predictable.`\
-https://www.nytimes.com/2026/06/25/theater/the-loved-ones-review-maryann-plunkett.html
-
-**Chinese A.I. Models Gain Ground on Anthropic and OpenAI**\
-`Silicon Valley engineers recently flocked to new technology from a Chinese company, Z.ai, that is almost as good as its American competitors but much cheaper.`\
-https://www.nytimes.com/2026/06/25/technology/zai-china-artificial-intelligence-models.html
-
-**Frank Guarini, Seven-Term New Jersey Representative, Dies at 101**\
-`A reform-minded Democrat, he served on the tax-writing House Ways and Means Committee and offered a pragmatic mix of progressive legislation and conservative fiscal philosophy.`\
-https://www.nytimes.com/2026/06/25/us/politics/frank-guarini-dead.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

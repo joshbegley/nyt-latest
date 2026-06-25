@@ -1,3 +1,7 @@
+**Utah and Arizona Face ‘Extremely Critical’ Fire Weather on Friday**\
+`Forecasters this week issued one of their rarest warnings as a potent mix of storms, wind and dry vegetation threatens to spark more wildfires.`\
+https://www.nytimes.com/2026/06/25/weather/critical-fire-weather-utah-arizona.html
+
 **New York’s Indian Dining Scene Has Never Been More Exciting**\
 `Mounds of mandi, endless thalis and lamb chops with pageantry are on full display as hyper-regional restaurants take over.`\
 https://www.nytimes.com/2026/06/25/dining/new-yorks-indian-dining-scene-has-never-been-more-exciting.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/polls/north-carolina-us-house-10-polls-2026.
 **Los terremotos, el reto más reciente para Delcy Rodríguez**\
 `La presidenta de Venezuela, que lleva solo unos meses en el cargo, ha estado intentando encontrar el equilibrio entre las exigencias del presidente Trump y sus propias necesidades políticas internas.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremotos-delcy-rodriguez.html
-
-**In Notting Hill, Fashionable Sisters Host a Cambodian Feast**\
-`Val Margulies and Vanda Heng Vong, the co-owners of a beloved London boutique, gave their friends and collaborators a taste of their childhood.`\
-https://www.nytimes.com/2026/06/25/t-magazine/notting-hill-sisters-cambodian-feast.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
