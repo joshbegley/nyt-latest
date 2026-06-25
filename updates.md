@@ -1,4 +1,12 @@
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
+`Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
+https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
+
+**Esto es lo que hay que saber**\
+`Los residentes de Caracas, la capital, dijeron que el terremoto sacudió los edificios y provocó un apagón. Las imágenes mostraban edificios dañados y personas reunidas en las calles.`\
+https://www.nytimes.com/es/2026/06/24/espanol/america-latina/temblor-venezuela-caracas-epicentro.html
+
+**Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
 `Fans have been worried about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
 https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 

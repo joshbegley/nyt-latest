@@ -1,5 +1,5 @@
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
-`Fans have been worried about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
+`Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
 https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 
 **Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-californ
 `The earthquakes were a magnitude 7.2 and 7.5, according to the U.S.G.S. People in the stricken area said that buildings shook and electricity was knocked out, including in the capital, Caracas.`\
 https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
 
-**Un temblor de magnitud 7,2 se registra en Venezuela**\
+**Esto es lo que hay que saber**\
 `Los residentes de Caracas, la capital, dijeron que el terremoto sacudió los edificios y provocó un apagón. Las imágenes mostraban edificios dañados y personas reunidas en las calles.`\
 https://www.nytimes.com/es/2026/06/24/espanol/america-latina/temblor-venezuela-caracas-epicentro.html
 
