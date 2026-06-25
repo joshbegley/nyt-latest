@@ -1,3 +1,19 @@
+**The Taylor Swift Wedding and a Hot New York Summer**\
+`Should Taylor Swift and Travis Kelce tie the knot in New York City, their nuptials would be another economic event for the Big Apple.`\
+https://www.nytimes.com/2026/06/25/business/dealbook/taylor-travis-wedding-new-york.html
+
+**Jewelry Designer Shahla Karimi Creates Rings for Engagements, Throuples and Even Divorce**\
+`Shahla Karimi is reimagining what commitment rings look like, and designing them for very modern relationships.`\
+https://www.nytimes.com/2026/06/25/style/rings-engagements-throuples-divorce.html
+
+**Larry Sanger, a Wikipedia Founder, Is Barred From Editing on the Site**\
+`A vote to bar Larry Sanger indefinitely from the volunteer community of Wikipedia came days after he submitted a proposal on “intellectual diversity.”`\
+https://www.nytimes.com/2026/06/25/business/media/wikipedia-larry-sanger-barred.html
+
+**Is the Rap-Pop Collab Era Over?**\
+`There was a time when Top 40 radio was dominated by pop songs with a guest rap verse. Is that era officially over? Joe Coscarelli and Jon Caramanica answer this question and more on this week’s “Popcast” episode.`\
+https://www.nytimes.com/video/podcasts/100000010978388/is-the-rap-pop-collab-era-over.html
+
 **Venezuela Earthquakes Hammer Infrastructure, Making Aid Efforts Harder**\
 `The power grid, water supply and health system were already under strain from years of neglect and underinvestment.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-infrastructure.html

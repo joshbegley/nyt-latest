@@ -1,3 +1,15 @@
+**‘The Anti-Social Media’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Vihaan Miriyala, age 15.`\
+https://www.nytimes.com/2026/06/25/learning/the-anti-social-media.html
+
+**‘A Bench Is Not a Barrier’: A Winning Student Open Letter**\
+`We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Violet S. Tran, age 15.`\
+https://www.nytimes.com/2026/06/25/learning/a-bench-is-not-a-barrier.html
+
+**People in Brussels Find Creative Ways to Escape the Heat Wave**\
+`As Belgium swelters in the high temperatures baking Europe, residents in the capital are seeking relief in some creative ways.`\
+https://www.nytimes.com/2026/06/25/weather/belgium-heat-wave-brussels.html
+
 **The Taylor Swift Wedding and a Hot New York Summer**\
 `Should Taylor Swift and Travis Kelce tie the knot in New York City, their nuptials would be another economic event for the Big Apple.`\
 https://www.nytimes.com/2026/06/25/business/dealbook/taylor-travis-wedding-new-york.html
@@ -31,7 +43,7 @@ https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-death-to
 https://www.nytimes.com/2026/06/25/podcasts/why-do-people-spend-so-long-on-death-row.html
 
 **Don the Builder**\
-`Intro TK: minus “good morning”`\
+`We look at Trump’s construction projects in Washington, D.C.`\
 https://www.nytimes.com/2026/06/25/briefing/trumps-washington-renovations.html
 
 **La Guaira, Venezuelan Port Town, Is Hit Hard by Earthquakes**\
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/06/25/books/kwame-alexander-sourcebooks.html
 `One that actually brings men and women together.`\
 https://www.nytimes.com/video/opinion/100000010983086/is-it-time-for-a-new-sexual-revolution.html
 
-**A Generational Shift in New York City Politics**\
-`Younger voters want to remake the system, not fix it, a former party official said. Their candidates won on Tuesday.`\
-https://www.nytimes.com/2026/06/25/nyregion/a-generational-shift-in-new-york-city-politics.html
-
-**For Gloomy Vancouver Fans, the World Cup Is Glorious**\
-`The city has the N.H.L.’s worst team and an M.L.S. franchise that is threatening to leave. But it was able to celebrate after hosting Canada’s first victory at a men’s World Cup.`\
-https://www.nytimes.com/2026/06/25/arts/for-gloomy-vancouver-fans-the-world-cup-is-glorious.html
-
-**How to Meet 1,500 Artists in 5 Days at Upstate Art Weekend**\
-`Upstate Art Weekend , starting Thursday, brings together New York artists and audiences, and offers everything from icebergs to Arte Povera to keep you cool.`\
-https://www.nytimes.com/2026/06/25/arts/design/upstate-art-weekend-new-york.html
-
-**Live Updates: Spain Warns of High Death Toll in Heat Wave**\
-`The health ministry said about 200 people may have died since Sunday. The forecast across Europe was set to remain sharply above normal on Thursday.`\
+**Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
+`A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
 https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
 
