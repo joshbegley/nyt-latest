@@ -1,3 +1,11 @@
+**Earthquakes Are Latest Challenge for Venezuelan Leader**\
+`President Delcy Rodríguez, in power only for a few months, has been trying to balance the demands of President Trump and her own domestic political needs.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-delcy-rodriguez.html
+
+**Spain Warns of a Possible Spike in Heat-Related Deaths**\
+`An estimated 212 deaths have been linked to extreme heat between Sunday and Wednesday, according to a monitoring system affiliated with the country’s health ministry.`\
+https://www.nytimes.com/2026/06/25/weather/spain-warns-of-a-possible-spike-in-heat-related-deaths.html
+
 **‘The Anti-Social Media’: A Winning Student Open Letter**\
 `We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Vihaan Miriyala, age 15.`\
 https://www.nytimes.com/2026/06/25/learning/the-anti-social-media.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/06/25/travel/things-to-do-vilnius.html
 **Christopher Nolan on the Anxiety of Filming ‘The Odyssey’ in IMAX**\
 `Filming entirely in IMAX meant new engineering and actor ingenuity. It was only halfway through the six-country shoot that he felt he could pull it off.`\
 https://www.nytimes.com/2026/06/25/movies/odyssey-christopher-nolan.html
-
-**Newbery Medalist Kwame Alexander Starts an Imprint at Sourcebooks**\
-`Kwame Alexander is starting up an imprint at Sourcebooks, an innovative publisher that has found success in giving authors larger roles in the publishing process.`\
-https://www.nytimes.com/2026/06/25/books/kwame-alexander-sourcebooks.html
-
-**Is it Time for a New Sexual Revolution?**\
-`One that actually brings men and women together.`\
-https://www.nytimes.com/video/opinion/100000010983086/is-it-time-for-a-new-sexual-revolution.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
