@@ -1,3 +1,7 @@
+**Venezuela Rocked by Two Strong Earthquakes**\
+`A 7.2-magnitude earthquake that was followed by a 7.5-magnitude earthquake hit central Venezuela on Wednesday, damaging buildings and knocking out electricity.`\
+https://www.nytimes.com/video/world/americas/100000010990603/venezuela-two-strong-earthquakes.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/admin/100000010990740/25vid-nighttime-chacao-embed.html
