@@ -1,3 +1,7 @@
+**Trump Keeps Undercutting Republicans’ Message, Squandering His Own Trifecta**\
+`Divisions between the president and his party on Capitol Hill have muddled Republicans’ midterm pitch to voters, and have crippled the G.O.P. at what should be the peak of its power.`\
+https://www.nytimes.com/2026/06/25/us/politics/trump-senate-republicans-undercutting-message.html
+
 **‘Superman’ and ‘Heated Rivalry’ Alums to Broadway in ‘Three Days of Rain’**\
 `A winter revival of the Richard Greenberg drama will star David Corenswet, Yvonne Strahovski and François Arnaud.`\
 https://www.nytimes.com/2026/06/25/theater/three-days-of-rain-broadway-david-corenswet-francois-arnaud.html
