@@ -1,3 +1,7 @@
+**The Taylor Swift Wedding and a Hot New York Summer**\
+`Should Taylor Swift and Travis Kelce tie the knot in New York City, their nuptials would be another economic event for the Big Apple.`\
+https://www.nytimes.com/2026/06/25/business/dealbook/taylor-travis-wedding-new-york.html
+
 **Jewelry Designer Shahla Karimi Creates Rings for Engagements, Throuples and Even Divorce**\
 `Shahla Karimi is reimagining what commitment rings look like, and designing them for very modern relationships.`\
 https://www.nytimes.com/2026/06/25/style/rings-engagements-throuples-divorce.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/25/arts/for-gloomy-vancouver-fans-the-world-cup-
 **How to Meet 1,500 Artists in 5 Days at Upstate Art Weekend**\
 `Upstate Art Weekend , starting Thursday, brings together New York artists and audiences, and offers everything from icebergs to Arte Povera to keep you cool.`\
 https://www.nytimes.com/2026/06/25/arts/design/upstate-art-weekend-new-york.html
-
-**How Honda’s Pledge to Go All-Electric Unraveled**\
-`A derailed gamble led Honda to its first-ever annual loss and has intensified scrutiny over the future of its chief executive.`\
-https://www.nytimes.com/2026/06/25/business/honda-ev-electric-pledge.html
 
 **Live Updates: Spain Warns of High Death Toll in Heat Wave**\
 `The health ministry said about 200 people may have died since Sunday. The forecast across Europe was set to remain sharply above normal on Thursday.`\
