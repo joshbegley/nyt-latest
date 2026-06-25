@@ -1,3 +1,15 @@
+**Gracie Abrams Talks About Her New Single, ‘Look at My Life’**\
+`On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
+https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-look-at-my-life.html
+
+**Supreme Court T.P.S. Ruling on Haiti Plunges Many Migrants Into Limbo**\
+`The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
+https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
+
+**Olivia Wilde and Seth Rogen Reflect on Their Relationship Wins at ‘The Invite’ Premiere**\
+`Hollywood couples, including Penélope Cruz and Javier Bardem, celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
+https://www.nytimes.com/2026/06/25/style/the-invite-premiere-olivia-wilde-seth-rogen.html
+
 **Olivia Wilde and Seth Rogen Reflect on Their Relationship Wins at ‘The Invite’ Premiere**\
 `Hollywood couples celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
 https://www.nytimes.com/2026/06/25/style/the-invite-premiere-olivia-wilde-seth-rogen.html

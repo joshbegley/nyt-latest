@@ -1,3 +1,11 @@
+**What Are the Paths Forward for the Housing Bill After Trump Refused to Sign It?**\
+`President Trump abruptly scrapped plans to sign a major housing bill. It could still become law, with or without a presidential signature. But Mr. Trump could also try to kill it.`\
+https://www.nytimes.com/2026/06/25/us/politics/trump-housing-bill-scenarios.html
+
+**Por qué se produjeron los terremotos en Venezuela y qué podemos esperar ahora**\
+`Un doblete sísmico como el que ha sacudido la región es poco habitual, pero no inaudito. Los científicos ya están recabando los datos necesarios para disponer de una visión más detallada.`\
+https://www.nytimes.com/es/2026/06/25/espanol/doblete-sismico-que-es.html
+
 **Gracie Abrams Talks About Her New Single, ‘Look at My Life’**\
 `On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-look-at-my-life.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/06/25/world/europe/france-children-heat-cars-deaths
 `Track the latest polls in the North Carolina State Supreme Court election.`\
 https://www.nytimes.com/interactive/polls/north-carolina-state-supreme-court-election-polls-2026.html
 
-**More Temperature Records Fall as Deadly Heat Stifles Europe**\
+**Deadly Heat Wave in Europe Continues to Smash Temperature Records**\
 `The continent’s second heat wave since May continued to disrupt daily life for millions. Officials in Spain said it might have contributed to a spike in deaths.`\
 https://www.nytimes.com/2026/06/25/world/europe/heat-wave.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/interactive/polls/iowa-us-house-2-polls-2026.html
 **Who Is Ahead in Iowa's 1st Congressional District?**\
 `Track the latest polls in Iowa's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/iowa-us-house-1-polls-2026.html
-
-**Marianne Lake, a Potential Dimon Successor, Leaves JPMorgan**\
-`Another potential successor, Marianne Lake, is leaving JPMorgan, as the longstanding chief executive enters his third decade atop the bank.`\
-https://www.nytimes.com/2026/06/25/business/jamie-dimon-jpmorgan-succession-petno-rohrbaugh.html
-
-**Venezuela en vivo: aumentan las víctimas mortales del sismo mientras avanzan los esfuerzos de rescate**\
-`Las autoridades dijeron que los terremotos de magnitud 7,2 y 7,5 dejaron al menos 164 muertos y cientos de desaparecidos. Aún no se conoce el alcance total de los daños.`\
-https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
 `Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
