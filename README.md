@@ -1,3 +1,7 @@
+**Why the Venezuelan Earthquakes Happened, and What to Expect Next**\
+`Twin earthquakes like those that ripped through the region are unusual but not unheard of. Scientists are already gathering data needed for a more detailed picture.`\
+https://www.nytimes.com/2026/06/25/science/venezeula-earthquakes-faults-geology.html
+
 **Who Is Ahead in North Carolina's 14th Congressional District?**\
 `Track the latest polls in North Carolina's 14th Congressional District.`\
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-14-polls-2026.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/polls/minnesota-us-house-2-polls-2026.html
 **Who Is Ahead in Minnesota's 1st Congressional District?**\
 `Track the latest polls in Minnesota's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/minnesota-us-house-1-polls-2026.html
-
-**Who Is Ahead in Massachusetts's 8th Congressional District?**\
-`Track the latest polls in Massachusetts's 8th Congressional District.`\
-https://www.nytimes.com/interactive/polls/massachusetts-us-house-8-polls-2026.html
 
 **Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\

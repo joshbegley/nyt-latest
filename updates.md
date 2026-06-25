@@ -1,3 +1,11 @@
+**Who Is Ahead in North Carolina's 14th Congressional District?**\
+`Track the latest polls in North Carolina's 14th Congressional District.`\
+https://www.nytimes.com/interactive/polls/north-carolina-us-house-14-polls-2026.html
+
+**Who Is Ahead in North Carolina's 10th Congressional District?**\
+`Track the latest polls in North Carolina's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/north-carolina-us-house-10-polls-2026.html
+
 **Los terremotos, el reto más reciente para Delcy Rodríguez**\
 `La presidenta de Venezuela, que lleva solo unos meses en el cargo, ha estado intentando encontrar el equilibrio entre las exigencias del presidente Trump y sus propias necesidades políticas internas.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremotos-delcy-rodriguez.html

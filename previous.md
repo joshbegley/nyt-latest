@@ -1,3 +1,11 @@
+**Who Is Ahead in North Carolina's 14th Congressional District?**\
+`Track the latest polls in North Carolina's 14th Congressional District.`\
+https://www.nytimes.com/interactive/polls/north-carolina-us-house-14-polls-2026.html
+
+**Who Is Ahead in North Carolina's 10th Congressional District?**\
+`Track the latest polls in North Carolina's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/north-carolina-us-house-10-polls-2026.html
+
 **Los terremotos, el reto más reciente para Delcy Rodríguez**\
 `La presidenta de Venezuela, que lleva solo unos meses en el cargo, ha estado intentando encontrar el equilibrio entre las exigencias del presidente Trump y sus propias necesidades políticas internas.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremotos-delcy-rodriguez.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/polls/minnesota-us-house-1-polls-2026.html
 **Who Is Ahead in Massachusetts's 8th Congressional District?**\
 `Track the latest polls in Massachusetts's 8th Congressional District.`\
 https://www.nytimes.com/interactive/polls/massachusetts-us-house-8-polls-2026.html
-
-**Who Is Ahead in Massachusetts's 6th Congressional District?**\
-`Track the latest polls in Massachusetts's 6th Congressional District.`\
-https://www.nytimes.com/interactive/polls/massachusetts-us-house-6-polls-2026.html
-
-**Some European Museums Are Free Havens to Cool Off. Others Can’t Take the Heat.**\
-`Institutions with air conditioning or stone buildings can market themselves as a respite from extreme temperatures. But some are reducing their hours.`\
-https://www.nytimes.com/2026/06/25/arts/europe-museums-heat.html
 
 **Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
