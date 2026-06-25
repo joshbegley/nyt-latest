@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: esto es lo que hay que saber**\
+`El miércoles por la noche se produjeron dos fuertes sismos consecutivos en las zonas más pobladas del norte del país. El segundo fue el más intenso en más de un siglo en Venezuela.`\
+https://www.nytimes.com/es/2026/06/25/espanol/venezuela-terremoto-que-pasa.html
+
 **On the ground and online, Venezuelans desperately search for missing relatives.**\
 `Friends and family of those in the earthquake zone were turning to social media and heading to affected neighborhoods as they awaited an official rescue response.`\
 https://www.nytimes.com/2026/06/25/world/americas/survivor-search-venezuela-earthquake.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/polls/iowa-us-house-3-polls-2026.html
 **Supreme Court Allows Trump to Block Asylum Seekers at Border**\
 `A policy of turning back asylum seekers at the border was rescinded in 2021, but the Trump administration wants the flexibility to reinstate it as a tool for border control.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-asylum-border.html
-
-**Record-Breaking Heat Is Crushing Europe**\
-`Extreme temperatures, which have baked western parts of the continent over the past week, are forecast to shift eastward in the coming days.`\
-https://www.nytimes.com/2026/06/25/weather/europe-heat-wave-temperature-records.html
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
 `Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
