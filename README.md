@@ -1,3 +1,7 @@
+**Cynthia Nixon: New York City Is About Energy and Grit**\
+`A few weeks ago, “Cannonball with Wesley Morris” hosted its first live show at the 2026 Tribeca Festival, with guest Cynthia Nixon. Together, Wesley and Cynthia discussed what it means to be a New Yorker.`\
+https://www.nytimes.com/video/podcasts/100000010985955/cynthia-nixon-new-york-city-is-about-energy-and-grit.html
+
 **The New York Times Amends Lawsuit Against OpenAI and Microsoft**\
 `In a new court filing, The Times accused Microsoft of encouraging OpenAI to train its A.I. systems using copyrighted articles.`\
 https://www.nytimes.com/2026/06/25/technology/times-lawsuit-openai-microsoft.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/arts/dance/lincoln-center-contemporary-dance-
 **Stream These 5 Movies and TV Shows Before They Leave Netflix in July**\
 `Two acclaimed series and two films by the director George Roy Hill are among the notable titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/06/25/arts/television/netflix-expiring.html
-
-**Latest Victims of France’s Heat Wave: Children Locked in Family Cars**\
-`As temperatures pass record levels in France, the heat wave-related death toll continues to rise.`\
-https://www.nytimes.com/2026/06/25/world/europe/france-children-heat-cars-deaths.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

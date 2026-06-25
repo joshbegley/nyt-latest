@@ -1,3 +1,15 @@
+**The New York Times Amends Lawsuit Against OpenAI and Microsoft**\
+`In a new court filing, The Times accused Microsoft of encouraging OpenAI to train its A.I. systems using copyrighted articles.`\
+https://www.nytimes.com/2026/06/25/technology/times-lawsuit-openai-microsoft.html
+
+**Hoping for Miracles as Venezuela Digs Out From Massive Quakes**\
+`It is known as a “doublet,” two earthquakes in quick succession, and it has brought the Latin American country to its knees.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake.html
+
+**‘Nowhere To Go’: T.P.S. Ruling Plunges Many Migrants Into Limbo**\
+`The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
+https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
+
 **Desafío del verano: Crea arte ambiental para mejorar tu salud mental**\
 `Combinar la creatividad con el tiempo al aire libre es bueno para tu salud mental. Te explicamos cómo.`\
 https://www.nytimes.com/es/interactive/2026/06/25/espanol/reduce-estres-crea-arte-reto.html

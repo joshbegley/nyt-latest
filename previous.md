@@ -1,3 +1,11 @@
+**The New York Times Amends Lawsuit Against OpenAI and Microsoft**\
+`In a new court filing, The Times accused Microsoft of encouraging OpenAI to train its A.I. systems using copyrighted articles.`\
+https://www.nytimes.com/2026/06/25/technology/times-lawsuit-openai-microsoft.html
+
+**Hoping for Miracles as Venezuela Digs Out From Massive Quakes**\
+`It is known as a “doublet,” two earthquakes in quick succession, and it has brought the Latin American country to its knees.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake.html
+
 **Desafío del verano: Crea arte ambiental para mejorar tu salud mental**\
 `Combinar la creatividad con el tiempo al aire libre es bueno para tu salud mental. Te explicamos cómo.`\
 https://www.nytimes.com/es/interactive/2026/06/25/espanol/reduce-estres-crea-arte-reto.html
@@ -146,7 +154,7 @@ https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquake
 `On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-look-at-my-life.html
 
-**Supreme Court T.P.S. Ruling on Haiti Plunges Many Migrants Into Limbo**\
+**‘Nowhere To Go’: T.P.S. Ruling Plunges Many Migrants Into Limbo**\
 `The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
 
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/25/arts/television/netflix-expiring.html
 **Latest Victims of France’s Heat Wave: Children Locked in Family Cars**\
 `As temperatures pass record levels in France, the heat wave-related death toll continues to rise.`\
 https://www.nytimes.com/2026/06/25/world/europe/france-children-heat-cars-deaths.html
-
-**Who Is Ahead in the State Supreme Court Race in North Carolina? Latest 2026 Polls**\
-`Track the latest polls in the North Carolina State Supreme Court election.`\
-https://www.nytimes.com/interactive/polls/north-carolina-state-supreme-court-election-polls-2026.html
-
-**Deadly Heat Wave in Europe Continues to Smash Temperature Records**\
-`The continent’s second heat wave since May continued to disrupt daily life for millions. Officials in Spain said it might have contributed to a spike in deaths.`\
-https://www.nytimes.com/2026/06/25/world/europe/heat-wave.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
