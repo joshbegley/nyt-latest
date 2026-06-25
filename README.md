@@ -1,3 +1,7 @@
+**Venezuelans in South Florida Call Relatives and Organize Aid**\
+`The large Venezuelan community in the Miami area is “desperate” to reach family members.`\
+https://www.nytimes.com/2026/06/24/us/venezuela-south-florida-earthquake.html
+
 **Dos terremotos sacuden a Venezuela**\
 `Después de que dos fuertes sismos se registraran en el país sudamericano, crece la preocupación de que los daños puedan ser devastadores.`\
 https://www.nytimes.com/es/2026/06/24/espanol/america-latina/terremotos-venezuela-fotos.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/us/world-cup-party-scotland-brazil-miami.html
 **Pete Hegseth Forces Christopher T. Donahue, a Top Prospect for Army Chief, to Resign**\
 `Gen. Christopher T. Donahue was seen as a rising star in the Army. But Defense Secretary Pete Hegseth viewed him with skepticism.`\
 https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegseth.html
-
-**Visitors Look at the Reflecting Pool and Disagree on What They See**\
-`People have long gathered in solidarity by the Reflecting Pool, but amid the turmoil of President Trump’s attempted repairs there is little unity to be found.`\
-https://www.nytimes.com/2026/06/24/us/reflecting-pool-visitors.html
 

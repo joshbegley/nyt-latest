@@ -1,3 +1,7 @@
+**Dos fuertes sismos sacuden el centro del país**\
+`Los temblores tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
+https://www.nytimes.com/live/2026/06/24/espanol/venezuela-temblor
+
 **Dos terremotos sacuden a Venezuela**\
 `Después de que dos fuertes sismos se registraran en el país sudamericano, crece la preocupación de que los daños puedan ser devastadores.`\
 https://www.nytimes.com/es/2026/06/24/espanol/america-latina/terremotos-venezuela-fotos.html
