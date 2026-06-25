@@ -1,3 +1,7 @@
+**Who Is Ahead in New Hampshire's 1st Congressional District?**\
+`Track the latest polls in New Hampshire's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.html
+
 **Driver Plows Into Crowd of World Cup Fans in Mexico, Authorities Say**\
 `Videos show a car repeatedly accelerating into a crowd in Cabo San Lucas after Mexico won a World Cup game. The authorities said at least 17 people were injured and the driver was arrested.`\
 https://www.nytimes.com/2026/06/25/world/americas/car-ramming-mexico-world-cup-cabo-san-lucas.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/06/25/realestate/bay-area-oakland-berke
 **No Corrections: June 25, 2026**\
 `No corrections appeared in print on Thursday, June 25, 2026.`\
 https://www.nytimes.com/2026/06/25/pageoneplus/no-corrections-june-25-2026.html
-
-**Big Companies Aim to Ease A.I. Transition for American Workers**\
-`OpenAI, Anthropic, Amazon and Microsoft have signed on to an effort led by Gina Raimondo, a former commerce secretary.`\
-https://www.nytimes.com/2026/06/25/business/economy/ai-work-force-training-job-losses.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
