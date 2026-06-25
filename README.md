@@ -1,3 +1,7 @@
+**Global Warming Upends London Climate Week**\
+`The extreme heat smothering Europe has upended Climate Week in London.`\
+https://www.nytimes.com/2026/06/25/climate/london-climate-week-heat-cancelations.html
+
 **Gracie Abrams on Internet Cruelty, Writing With Paul Mescal, Audrey Hobert and ‘Daughter From Hell’**\
 `Watch the full interview with Gracie Abrams.`\
 https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/06/25/world/americas/venezuela-earthqua
 **Today, In Short**\
 `“The Odyssey.” National parks. And sleep rituals.`\
 https://www.nytimes.com/2026/06/25/briefing/today-in-short.html
-
-**Record-Breaking Heat Wave Continues to Grip Europe**\
-`High-level heat warnings were in place for more than a dozen European countries on Thursday as a deadly heat wave persisted over large parts of the continent.`\
-https://www.nytimes.com/video/world/europe/100000010991330/europe-heat-wave-france-uk-spain.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

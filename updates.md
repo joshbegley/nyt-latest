@@ -1,3 +1,11 @@
+**Gracie Abrams on Internet Cruelty, Writing With Paul Mescal, Audrey Hobert and ‘Daughter From Hell’**\
+`Watch the full interview with Gracie Abrams.`\
+https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
+
+**Europa se está calentando más rápido que los otros continentes. ¿Por qué?**\
+`No es solo que se estén rompiendo récords de temperatura; lo que asombra a los científicos son los márgenes por los que se están superando los récords anteriores.`\
+https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-ola-de-calor-record.html
+
 **The Supreme Court’s TPS Decision Is a Slap in the Face to Lawful Immigrants**\
 `The Supreme Court just gave the Trump Administration free rein to end Temporary Protected Status.`\
 https://www.nytimes.com/2026/06/25/opinion/supreme-court-tps-haiti-syria.html

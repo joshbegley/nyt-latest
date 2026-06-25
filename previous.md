@@ -1,3 +1,11 @@
+**Gracie Abrams on Internet Cruelty, Writing With Paul Mescal, Audrey Hobert and ‘Daughter From Hell’**\
+`Watch the full interview with Gracie Abrams.`\
+https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
+
+**Europa se está calentando más rápido que los otros continentes. ¿Por qué?**\
+`No es solo que se estén rompiendo récords de temperatura; lo que asombra a los científicos son los márgenes por los que se están superando los récords anteriores.`\
+https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-ola-de-calor-record.html
+
 **The Supreme Court’s TPS Decision Is a Slap in the Face to Lawful Immigrants**\
 `The Supreme Court just gave the Trump Administration free rein to end Temporary Protected Status.`\
 https://www.nytimes.com/2026/06/25/opinion/supreme-court-tps-haiti-syria.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/25/briefing/today-in-short.html
 **Record-Breaking Heat Wave Continues to Grip Europe**\
 `High-level heat warnings were in place for more than a dozen European countries on Thursday as a deadly heat wave persisted over large parts of the continent.`\
 https://www.nytimes.com/video/world/europe/100000010991330/europe-heat-wave-france-uk-spain.html
-
-**Un conductor arrolla a un grupo de aficionados al Mundial en México, según las autoridades**\
-`Los videos muestran a un coche que acelera contra una multitud en Cabo San Lucas tras la victoria de México en un partido. Las autoridades dijeron que hay al menos 17 heridos y que el conductor fue detenido.`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/mexico-conductor-atropella-aficionados.html
-
-**Robert Townsend on ‘The Bear’ and Directing for Television**\
-`The filmmaker has lately turned to television, acting in FX’s “The Bear,” directing episodes of “The Chi” and mentoring Black actors and showrunners reared on his work.`\
-https://www.nytimes.com/2026/06/25/arts/television/robert-townsend-the-bear-director.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
