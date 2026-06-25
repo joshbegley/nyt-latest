@@ -1,3 +1,11 @@
+**Who Is Ahead in Massachusetts's 8th Congressional District?**\
+`Track the latest polls in Massachusetts's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/massachusetts-us-house-8-polls-2026.html
+
+**Who Is Ahead in Massachusetts's 6th Congressional District?**\
+`Track the latest polls in Massachusetts's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/massachusetts-us-house-6-polls-2026.html
+
 **Some European Museums Are Free Havens to Cool Off. Others Can’t Take the Heat.**\
 `Institutions with air conditioning or stone buildings can market themselves as a respite from extreme temperatures. But some are reducing their hours.`\
 https://www.nytimes.com/2026/06/25/arts/europe-museums-heat.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/25/arts/television/the-bear-season-4-recap.html
 **Turkey or Türkiye? Who Is the U.S. Playing?**\
 `The push to rebrand the country, which started in the last decade, was inspired by politicians and coincided with an international public relations campaign.`\
 https://www.nytimes.com/2026/06/25/world/europe/turkiye-turkey-name-change-world-cup-usa.html
-
-**Cannonball with Wesley Morris | Tribeca Live Show with Cynthia Nixon**\
-`Our Tribeca Live Show with Cynthia Nixon.`\
-https://www.nytimes.com/2026/06/25/podcasts/cannonball-tribeca-nixon.html
-
-**The Grit and Glamour of New York Movies**\
-`The actress and activist Cynthia Nixon joins Wesley Morris on the 2026 Tribeca Festival stage to talk about classic New York City movies.`\
-https://www.nytimes.com/video/podcasts/100000010985923/the-grit-and-glamour-of-new-york-movies.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
