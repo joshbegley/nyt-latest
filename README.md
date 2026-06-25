@@ -82,6 +82,10 @@ https://www.nytimes.com/2026/06/25/us/politics/kennedy-cdc-emails.html
 `It’s rough out there. We want to hear about it.`\
 https://www.nytimes.com/2026/06/25/style/gen-z-jobs.html
 
+**Terremotos en Venezuela: cómo ayudar a los damnificados**\
+`Los equipos de rescate siguen buscando sobrevivientes; los ciudadanos se esfuerzan por rescatar a amigos y vecinos y otros países han prometido ayuda y recursos al país. Esto puedes hacer para colaborar.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/como-ayudar.html
+
 **Devastating Earthquakes Will Test Venezuela’s Newfound Alliance With U.S.**\
 `President Trump has boasted of the success of an armed intervention in Venezuela. A natural disaster raises pressure to match rhetoric with action.`\
 https://www.nytimes.com/2026/06/25/world/americas/devastating-earthquakes-will-test-venezuelas-newfound-alliance-with-us.html
