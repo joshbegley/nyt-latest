@@ -1,3 +1,11 @@
+**Today, In Short**\
+`“The Odyssey.” National parks. And sleep rituals.`\
+https://www.nytimes.com/2026/06/25/briefing/today-in-short.html
+
+**Record-Breaking Heat Wave Continues to Grip Europe**\
+`High-level heat warnings were in place for more than a dozen European countries on Thursday as a deadly heat wave persisted over large parts of the continent.`\
+https://www.nytimes.com/video/world/europe/100000010991330/europe-heat-wave-france-uk-spain.html
+
 **Un conductor arrolla a un grupo de aficionados al Mundial en México, según las autoridades**\
 `Los videos muestran a un coche que acelera contra una multitud en Cabo San Lucas tras la victoria de México en un partido. Las autoridades dijeron que hay al menos 17 heridos y que el conductor fue detenido.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/mexico-conductor-atropella-aficionados.html
@@ -178,15 +186,7 @@ https://www.nytimes.com/2026/06/25/learning/a-bench-is-not-a-barrier.html
 `As Belgium swelters in the high temperatures baking Europe, residents in the capital are seeking relief in some creative ways.`\
 https://www.nytimes.com/2026/06/25/weather/belgium-heat-wave-brussels.html
 
-**The Taylor Swift Wedding and a Hot New York Summer**\
-`Should Taylor Swift and Travis Kelce tie the knot in New York City, their nuptials would be another economic event for the Big Apple.`\
-https://www.nytimes.com/2026/06/25/business/dealbook/taylor-travis-wedding-new-york.html
-
-**Jewelry Designer Shahla Karimi Creates Rings for Engagements, Throuples and Even Divorce**\
-`Shahla Karimi is reimagining what commitment rings look like, and designing them for very modern relationships.`\
-https://www.nytimes.com/2026/06/25/style/rings-engagements-throuples-divorce.html
-
-**Live Updates: Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
+**Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
 https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
 

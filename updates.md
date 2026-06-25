@@ -1,3 +1,15 @@
+**Today, In Short**\
+`“The Odyssey.” National parks. And sleep rituals.`\
+https://www.nytimes.com/2026/06/25/briefing/today-in-short.html
+
+**Record-Breaking Heat Wave Continues to Grip Europe**\
+`High-level heat warnings were in place for more than a dozen European countries on Thursday as a deadly heat wave persisted over large parts of the continent.`\
+https://www.nytimes.com/video/world/europe/100000010991330/europe-heat-wave-france-uk-spain.html
+
+**Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
+`A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
+https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
+
 **Un conductor arrolla a un grupo de aficionados al Mundial en México, según las autoridades**\
 `Los videos muestran a un coche que acelera contra una multitud en Cabo San Lucas tras la victoria de México en un partido. Las autoridades dijeron que hay al menos 17 heridos y que el conductor fue detenido.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/mexico-conductor-atropella-aficionados.html
