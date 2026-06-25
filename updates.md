@@ -1,3 +1,15 @@
+**Who Is Ahead in New Hampshire's 1st Congressional District?**\
+`Track the latest polls in New Hampshire's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.html
+
+**Driver Plows Into Crowd of World Cup Fans in Mexico, Authorities Say**\
+`Videos show a car repeatedly accelerating into a crowd in Cabo San Lucas after Mexico won a World Cup game. The authorities said at least 17 people were injured and the driver was arrested.`\
+https://www.nytimes.com/2026/06/25/world/americas/car-ramming-mexico-world-cup-cabo-san-lucas.html
+
+**‘Jackass: Best and Last’ Review: Johnny Knoxville and Friends Reunite**\
+`In what purports to be the final installment of the MTV franchise, Johnny Knoxville and friends reunite to reminisce.`\
+https://www.nytimes.com/2026/06/25/movies/jackass-best-and-last-review.html
+
 **Who Is Ahead in Minnesota's 2nd Congressional District?**\
 `Track the latest polls in Minnesota's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/minnesota-us-house-2-polls-2026.html
