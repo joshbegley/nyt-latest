@@ -1,3 +1,7 @@
+**Medical Journal Retracts Study Claiming Cancer Therapy Is More Effective When Given in the Morning**\
+`In a notice flagging a series of problems with a clinical trial, the journal Nature Medicine said its editors “no longer have confidence in the integrity of the results.”`\
+https://www.nytimes.com/2026/06/25/business/china-cancer-treatment-research-retraction.html
+
 **Summer Challenge: Make Land Art to Boost Mental Health**\
 `Mixing creativity and time outdoors is good for your mental health. Here’s how.`\
 https://www.nytimes.com/interactive/2026/06/25/well/summer-challenge-land-earth-art.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/us/politics/frank-guarini-dead.html
 **Chemours to Pay $450M in First Federal PFAS Settlement**\
 `The settlement addresses the dumping of PFAS “forever chemicals,” which have been linked to cancer and other risks, by Chemours in several states.`\
 https://www.nytimes.com/2026/06/25/climate/trump-pfas-forever-chemical-settlement-chemours.html
-
-**Vast Destruction Along Venezuela’s Coast After Earthquakes, in Maps and Photos**\
-`Photos and videos show a coastal area north of Caracas sustained some of the worst damage from earthquakes in Venezuela on Wednesday.`\
-https://www.nytimes.com/interactive/2026/06/25/world/americas/venezuela-earthquake-map-damage.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

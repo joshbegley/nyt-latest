@@ -1,3 +1,11 @@
+**Summer Challenge: Make Land Art to Boost Mental Health**\
+`Mixing creativity and time outdoors is good for your mental health. Here’s how.`\
+https://www.nytimes.com/interactive/2026/06/25/well/summer-challenge-land-earth-art.html
+
+**Global Warming Upends London Climate Week**\
+`The extreme heat smothering Europe has upended Climate Week in London.`\
+https://www.nytimes.com/2026/06/25/climate/london-climate-week-heat-cancelations.html
+
 **Gracie Abrams on Internet Cruelty, Writing With Paul Mescal, Audrey Hobert and ‘Daughter From Hell’**\
 `Watch the full interview with Gracie Abrams.`\
 https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
