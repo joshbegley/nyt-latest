@@ -1,3 +1,7 @@
+**Who Is Ahead in Missouri's 2nd Congressional District?**\
+`Track the latest polls in Missouri's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/missouri-us-house-2-polls-2026.html
+
 **Who Is Ahead in Iowa's 3rd Congressional District?**\
 `Track the latest polls in Iowa's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/iowa-us-house-3-polls-2026.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/06/25/podcasts/pochettino-usmnt-selection-dilemma-n
 **In London, Extreme Heat Forces Cancellation of Event About Extreme Heat**\
 `Scorching temperatures have disrupted daily life in Britain this week, including events that centered on battling high temperatures.`\
 https://www.nytimes.com/2026/06/25/weather/london-climate-action-extreme-heat-wave-uk.html
-
-**IBM Unveils New Method to Make Smaller Computer Chip Parts**\
-`Industry leaders had worried that innovations in chip miniaturization were no longer possible.`\
-https://www.nytimes.com/2026/06/25/technology/ibm-technology-tinier-chips.html
 
 **Live Updates: Britain Breaks Record June Temperature as Deadly Heat Crushes Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\

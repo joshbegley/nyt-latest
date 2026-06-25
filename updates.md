@@ -1,3 +1,7 @@
+**Who Is Ahead in Missouri's 2nd Congressional District?**\
+`Track the latest polls in Missouri's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/missouri-us-house-2-polls-2026.html
+
 **Who Is Ahead in Iowa's 3rd Congressional District?**\
 `Track the latest polls in Iowa's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/iowa-us-house-3-polls-2026.html
