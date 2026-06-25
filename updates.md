@@ -1,3 +1,27 @@
+**Stream These 5 Movies and TV Shows Before They Leave Netflix in July**\
+`Two acclaimed series and two films by the director George Roy Hill are among the notable titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/06/25/arts/television/netflix-expiring.html
+
+**Latest Victims of France’s Heat Wave: Children Locked in Family Cars**\
+`As temperatures pass record levels in France, the heat wave-related death toll continues to rise.`\
+https://www.nytimes.com/2026/06/25/world/europe/france-children-heat-cars-deaths.html
+
+**Who Is Ahead in the State Supreme Court Race in North Carolina? Latest 2026 Polls**\
+`Track the latest polls in the North Carolina State Supreme Court election.`\
+https://www.nytimes.com/interactive/polls/north-carolina-state-supreme-court-election-polls-2026.html
+
+**More Temperature Records Fall as Deadly Heat Stifles Europe**\
+`The continent’s second heat wave since May continued to disrupt daily life for millions. Officials in Spain said it might have contributed to a spike in deaths.`\
+https://www.nytimes.com/2026/06/25/world/europe/heat-wave.html
+
+**SpaceX IPO Shows How Investors in Public Companies Are Losing Power**\
+`SpaceX has joined a growing cohort of companies that use dual class share structures to ensure many shareholders have little say in how they are run.`\
+https://www.nytimes.com/2026/06/25/business/spacex-shares-ipo.html
+
+**Supreme Court Expands Trump’s Power Over Immigration**\
+`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
+
 **Federal Judge Strikes Key Parts of Trump Order Restricting Mail Voting**\
 `The ruling rejected the Trump administration’s attempt to change federal election procedures through an executive order.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-mail-in-voting-ruling.html

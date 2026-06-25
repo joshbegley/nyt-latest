@@ -1,3 +1,23 @@
+**Stream These 5 Movies and TV Shows Before They Leave Netflix in July**\
+`Two acclaimed series and two films by the director George Roy Hill are among the notable titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/06/25/arts/television/netflix-expiring.html
+
+**Latest Victims of France’s Heat Wave: Children Locked in Family Cars**\
+`As temperatures pass record levels in France, the heat wave-related death toll continues to rise.`\
+https://www.nytimes.com/2026/06/25/world/europe/france-children-heat-cars-deaths.html
+
+**Who Is Ahead in the State Supreme Court Race in North Carolina? Latest 2026 Polls**\
+`Track the latest polls in the North Carolina State Supreme Court election.`\
+https://www.nytimes.com/interactive/polls/north-carolina-state-supreme-court-election-polls-2026.html
+
+**More Temperature Records Fall as Deadly Heat Stifles Europe**\
+`The continent’s second heat wave since May continued to disrupt daily life for millions. Officials in Spain said it might have contributed to a spike in deaths.`\
+https://www.nytimes.com/2026/06/25/world/europe/heat-wave.html
+
+**SpaceX IPO Shows How Investors in Public Companies Are Losing Power**\
+`SpaceX has joined a growing cohort of companies that use dual class share structures to ensure many shareholders have little say in how they are run.`\
+https://www.nytimes.com/2026/06/25/business/spacex-shares-ipo.html
+
 **Federal Judge Strikes Key Parts of Trump Order Restricting Mail Voting**\
 `The ruling rejected the Trump administration’s attempt to change federal election procedures through an executive order.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-mail-in-voting-ruling.html
@@ -103,7 +123,7 @@ https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-yo
 https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
 
 **Supreme Court Expands Trump’s Power Over Immigration**\
-`President Trump has pushed to rescind Temporary Protected Status for hundreds of thousands of people from countries convulsed by humanitarian crises.`\
+`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
 
 **Where Are the Most Data Centers Planned?**\
@@ -169,24 +189,4 @@ https://www.nytimes.com/interactive/polls/wisconsin-us-house-1-polls-2026.html
 **Who Is Ahead in Wisconsin's 7th Congressional District?**\
 `Track the latest polls in Wisconsin's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/wisconsin-us-house-7-polls-2026.html
-
-**Who Is Ahead in Wisconsin's 3rd Congressional District?**\
-`Track the latest polls in Wisconsin's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/wisconsin-us-house-3-polls-2026.html
-
-**Inflation Accelerated in May as Iran War Pushed Up Prices**\
-`A closely watched measure of inflation ticked up as the conflict in the Middle East inflated energy prices.`\
-https://www.nytimes.com/2026/06/25/business/inflation-iran-war-prices.html
-
-**Is Canada About to Enter the Eurovision Song Contest?**\
-`As Canada’s government looks more toward Europe and less to the United States, its national broadcaster has become a full member of the group that organizes the glitzy singing event.`\
-https://www.nytimes.com/2026/06/25/arts/television/canada-eurovision.html
-
-**Who Is Ahead in New Hampshire's 2nd Congressional District?**\
-`Track the latest polls in New Hampshire's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-hampshire-us-house-2-polls-2026.html
-
-**Who Is Ahead in New Hampshire's 1st Congressional District?**\
-`Track the latest polls in New Hampshire's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.html
 
