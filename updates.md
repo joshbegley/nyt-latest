@@ -1,3 +1,15 @@
+**Who Is Ahead in Massachusetts's 8th Congressional District?**\
+`Track the latest polls in Massachusetts's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/massachusetts-us-house-8-polls-2026.html
+
+**Who Is Ahead in Massachusetts's 6th Congressional District?**\
+`Track the latest polls in Massachusetts's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/massachusetts-us-house-6-polls-2026.html
+
+**Some European Museums Are Free Havens to Cool Off. Others Can’t Take the Heat.**\
+`Institutions with air conditioning or stone buildings can market themselves as a respite from extreme temperatures. But some are reducing their hours.`\
+https://www.nytimes.com/2026/06/25/arts/europe-museums-heat.html
+
 **Iran Threatens Ships in Strait of Hormuz as Marco Rubio Meets Gulf Leaders**\
 `The new warning complicated efforts to revive use of the critical waterway as Washington sought regional support for its framework peace agreement with Iran.`\
 https://www.nytimes.com/2026/06/25/world/middleeast/iran-strait-of-hormuz-threat-rubio-bahrain.html
