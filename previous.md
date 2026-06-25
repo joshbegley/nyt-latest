@@ -190,9 +190,9 @@ https://www.nytimes.com/2026/06/25/us/politics/us-military-weapons-shortage.html
 `I thought it was cheesy to project images during a concert, but it can amplify the experience.`\
 https://www.nytimes.com/2026/06/25/opinion/classical-music-movies-concerts.html
 
-**Inside the C.D.C.’s Mad Scramble to Meet Kennedy’s Demands**\
-`A cache of internal emails offers a look at the pressure the nation’s public health officials faced from the new health secretary in the early months of the Trump administration.`\
-https://www.nytimes.com/2026/06/25/us/politics/kennedy-cdc-emails.html
+**Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
+`Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
 **Venezuela Live Updates: Search for Survivors Grows More Urgent 24 Hours After Quakes**\
 `Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
