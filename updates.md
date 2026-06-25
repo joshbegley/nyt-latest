@@ -1,3 +1,7 @@
+**Why Americans Are So Freaked Out by A.I.**\
+`The key is understanding how our labor market and our social net differs from the rest of the world.`\
+https://www.nytimes.com/2026/06/25/opinion/ai-americans-pessimism.html
+
 **Incertidumbre tras dos fuertes sismos**\
 `Los sismos de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
 https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas

@@ -1,3 +1,7 @@
+**Así se ve una Europa agobiada por el calor**\
+`El calor extremo está trastocando la vida cotidiana en todo el continente europeo.`\
+https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-calor.html
+
 **Why Americans Are So Freaked Out by A.I.**\
 `The key is understanding how our labor market and our social net differs from the rest of the world.`\
 https://www.nytimes.com/2026/06/25/opinion/ai-americans-pessimism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/weather/utah-wildfires-colorado-smoke.html
 **Firefighters Respond to Iron Fire In Utah**\
 `The Iron fire in Eureka, Utah, has burned tens of thousands of acres since it started on Friday.`\
 https://www.nytimes.com/video/us/100000010989882/iron-wildfire-utah-western-us.html
-
-**A Record Sotheby’s Auction Thrills London After a Brexit Hangover**\
-`British auction sales have declined by nearly half since 2015, but Wednesday’s results hint at a return to form for London as an international auction center.`\
-https://www.nytimes.com/2026/06/24/arts/design/sothebys-auction-london-joe-lewis.html
 
