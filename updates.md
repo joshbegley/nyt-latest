@@ -1,3 +1,11 @@
+**Officials Shut Down Kenya’s Capital to Block Protest**\
+`The protest, an annual event, has become a showcase of the growing political power of Kenya’s youth.`\
+https://www.nytimes.com/2026/06/25/world/africa/kenya-protest-nairobi-shutdown.html
+
+**Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
+`Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
+
 **Trump Keeps Undercutting Republicans’ Message, Squandering His Own Trifecta**\
 `Divisions between the president and his party on Capitol Hill have muddled Republicans’ midterm pitch to voters, and have crippled the G.O.P. at what should be the peak of its power.`\
 https://www.nytimes.com/2026/06/25/us/politics/trump-senate-republicans-undercutting-message.html
