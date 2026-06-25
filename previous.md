@@ -1,3 +1,7 @@
+**Dos terremotos sacuden a Venezuela**\
+`Después de que dos fuertes sismos se registraran en el país sudamericano, crece la preocupación de que los daños puedan ser devastadores.`\
+https://www.nytimes.com/es/2026/06/24/espanol/america-latina/terremotos-venezuela-fotos.html
+
 **Ex-Youth Pastor Charged With Wife’s Murder, 20 Years After Her Fatal Fall**\
 `Bernadette Vander Meer’s death in Zion National Park in Utah had been considered an accident. Prosecutors reopened the case in 2022 and now say her husband was having an affair with an underage girl.`\
 https://www.nytimes.com/2026/06/24/us/zion-national-park-angels-landing-murder.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.h
 `Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
 
-**Dos fuertes sismos sacuden el centro del país**\
+**Dos fuertes terremotos sacuden el centro del país**\
 `Los sismos tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
 https://www.nytimes.com/live/2026/06/24/espanol/venezuela-temblor
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/24/us/politics/general-christopher-donahue-hegse
 **Visitors Look at the Reflecting Pool and Disagree on What They See**\
 `People have long gathered in solidarity by the Reflecting Pool, but amid the turmoil of President Trump’s attempted repairs there is little unity to be found.`\
 https://www.nytimes.com/2026/06/24/us/reflecting-pool-visitors.html
-
-**From ‘Terrible People’ to ‘Smart People’: The Trump-Led Right Rethinks Iran**\
-`The president has sought to recast the Iranian government as he pursues a peace deal. But there are signs that a softening on Iran in the Republican Party goes well beyond him.`\
-https://www.nytimes.com/2026/06/24/us/politics/republicans-iran.html
 

@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.h
 `Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
 
-**Dos fuertes terremotos sacuden el centro del país**\
-`Los sismos tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
+**Dos fuertes sismos sacuden el centro del país**\
+`Los temblores tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
 https://www.nytimes.com/live/2026/06/24/espanol/venezuela-temblor
 
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
