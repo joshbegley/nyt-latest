@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Search for Survivors Grows More Urgent 24 Hours After Quakes**\
+`Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
 **He Was Deported Back to Venezuela and Started Anew. Then the Quakes Hit.**\
 `Venezuelans in South Florida were frantically trying to track down friends and relatives after two earthquakes in Venezuela. Jorge Erazo was among the missing.`\
 https://www.nytimes.com/2026/06/25/us/florida-venezuela-earthquake-missing-relatives.html

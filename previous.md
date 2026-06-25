@@ -194,7 +194,7 @@ https://www.nytimes.com/es/2026/06/25/espanol/venezuela-terremoto-que-pasa.html
 `Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
-**Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
-`Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble.`\
+**Venezuela Live Updates: Search for Survivors Grows More Urgent 24 Hours After Quakes**\
+`Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
