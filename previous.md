@@ -1,6 +1,14 @@
+**Powerful Back-to-Back Earthquakes Hit Venezuela**\
+`A 7.2-magnitude earthquake hit central Venezuela on Wednesday and was followed by one with a magnitude of 7.5, killing dozens of people. The stronger quake was the worst the country had seen since 1900.`\
+https://www.nytimes.com/video/world/americas/100000010990980/venezuela-earthquake.html
+
+**Saharan Dust Could Add an Apocalyptic Hue to Europe’s Unrelenting Heat**\
+`Powerful winds are carrying dust from Africa as far as southern England, as a heat dome keeps temperatures rising.`\
+https://www.nytimes.com/2026/06/25/weather/blood-rain-dust-heat-wave-europe.html
+
 **Tracking Heat Across Europe**\
 `summary`\
-https://www.nytimes.com/interactive/2026/06/25/weather/european-heat-tracker.html
+https://www.nytimes.com/interactive/2026/weather/europe-heat-tracker.html
 
 **Ejercicio y cortisol: ¿es cierto lo que dicen en internet?**\
 `Le pedimos a varios expertos que nos expliquen la relación entre la hormona del estrés y la actividad física.`\
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.h
 `Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
 
-**Incertidumbre tras dos fuertes sismos**\
-`Los temblores de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
-https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas
-
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
 `Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
 https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
-
-**Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
-`The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
 

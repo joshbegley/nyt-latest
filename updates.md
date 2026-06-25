@@ -1,3 +1,15 @@
+**Powerful Back-to-Back Earthquakes Hit Venezuela**\
+`A 7.2-magnitude earthquake hit central Venezuela on Wednesday and was followed by one with a magnitude of 7.5, killing dozens of people. The stronger quake was the worst the country had seen since 1900.`\
+https://www.nytimes.com/video/world/americas/100000010990980/venezuela-earthquake.html
+
+**Saharan Dust Could Add an Apocalyptic Hue to Europe’s Unrelenting Heat**\
+`Powerful winds are carrying dust from Africa as far as southern England, as a heat dome keeps temperatures rising.`\
+https://www.nytimes.com/2026/06/25/weather/blood-rain-dust-heat-wave-europe.html
+
+**Tracking Heat Across Europe**\
+`summary`\
+https://www.nytimes.com/interactive/2026/weather/europe-heat-tracker.html
+
 **Tracking Heat Across Europe**\
 `summary`\
 https://www.nytimes.com/interactive/2026/06/25/weather/european-heat-tracker.html
