@@ -1,3 +1,31 @@
+**Mamdani’s Victories May Be a Headache for the Governor Who Has Backed Him**\
+`Gov. Kathy Hochul has worked with Mayor Zohran Mamdani on child care and second-home taxes. But the triumphs of democratic socialists on Primary Day could complicate her vision.`\
+https://www.nytimes.com/2026/06/25/nyregion/mamdani-hochul-new-york-elections.html
+
+**After Banner Night, D.S.A. Sharpens Its Policy and Political Ambitions**\
+`After democratic socialists captured two House primaries and several state legislative contests in New York, the group’s leaders mulled how to use their expanding influence.`\
+https://www.nytimes.com/2026/06/25/nyregion/dsa-mamdani-new-york.html
+
+**Trump Administration and the M.T.A. Clash Over Penn Station Redesign**\
+`President Trump has made revitalizing the cramped train hall a priority, but he will need the cooperation of a transit agency his administration has long criticized.`\
+https://www.nytimes.com/2026/06/25/nyregion/penn-station-redesign-trump-amtrak-mta.html
+
+**Why These Affordable Homes Face a 31% Rent Increase**\
+`Mayor Zohran Mamdani has promised relief for rent-stabilized tenants. But thousands of apartments under a separate city program are subject to increases, creating an awkward contrast.`\
+https://www.nytimes.com/2026/06/25/nyregion/rent-increase-tracey-towers-mitchell-lama.html
+
+**Mamdani’s Rent Freeze Could Become Reality Today. Here’s What to Know.**\
+`A freeze for rent-stabilized homes is expected when a city panel votes on Mayor Zohran Mamdani’s plan on Thursday, but the move is likely to face legal challenges.`\
+https://www.nytimes.com/2026/06/25/nyregion/nyc-rent-freeze-what-to-know.html
+
+**Mamdani Ends Day Care Contract With Eric Adams’s Former Romantic Partner**\
+`The city had accused Jasmine Ray of fiscal mismanagement. She said that she had been unfairly targeted because of her ties to the former mayor.`\
+https://www.nytimes.com/2026/06/25/nyregion/mamdani-adams-day-care.html
+
+**NYT Spelling Bee Answers for June 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/25/crosswords/spelling-bee-forum.html
+
 **Venezuela’s Neighbors Offer Aid in Earthquake Response**\
 `Officials from the United States, El Salvador and the Dominican Republic said they would send rescue teams and humanitarian assistance to Caracas.`\
 https://www.nytimes.com/2026/06/24/world/americas/venezuela-earthquake-international-response.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/06/24/us/politics/democratic-progressive-primary-ca
 **Los Angeles Names a New Schools Superintendent After Scandal**\
 `Andres Chait is a district veteran who has helped keep peace with labor unions. He started in the classroom and now runs a district with hundreds of thousands of students.`\
 https://www.nytimes.com/2026/06/24/us/los-angeles-new-school-superintendent-lausd.html
-
-**Map: 6.9-Magnitude Earthquake Shakes Japan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/24/world/quake-tracker-japan.html
-
-**‘You Nailed It’: One Pastor’s Feedback for Danny McBride**\
-`Danny McBride has helped create and has starred in three TV series, including “The Righteous Gemstones,” a comedy-drama about a family of televangelists. On “The Interview,” he talked about his visits to megachurches to prepare for his work on the show.`\
-https://www.nytimes.com/video/podcasts/100000010989661/you-nailed-it-one-pastors-feedback-for-danny-mcbride.html
-
-**Peach Upside-Down Cake**\
-`Peaches shine in this 1988 recipe. Ripe slices are coated with caramelized sugar, then a batter enhanced with just a bit of nutmeg. It’s ready in 30 minutes, perfect for those warm days when turning on the oven feels impossible.`\
-https://www.nytimes.com/video/dining/100000010990500/peach-upside-down-cake.html
-
-**Why New York’s Democratic Establishment Fell to Team Mamdani**\
-`Democratic leaders found that their traditional tools, from rallies to phone banks to big-name campaign events, were no match for the left’s ground game and messaging.`\
-https://www.nytimes.com/2026/06/24/nyregion/democrats-unions-primaries-nyc.html
-
-**Maps: See Where Mamdani-Backed Candidates Did Best in New York House Primaries**\
-`Maps of precinct returns in New York City illustrate the dynamics in several competitive races and show the mayor’s impact on three key victories.`\
-https://www.nytimes.com/interactive/2026/06/24/us/elections/nyc-house-primary-results-precinct-map.html
-
-**Temblor en Venezuela: alertas de tsunami tras sismo de magnitud 7,2**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/06/24/espanol/terremoto-caracas.html
-
-**Two Major Earthquakes Hit Venezuela, U.S.G.S. Says**\
-`View the location of the quake epicenters and shake areas.`\
-https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
 

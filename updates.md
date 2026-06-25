@@ -1,3 +1,31 @@
+**Mamdani’s Victories May Be a Headache for the Governor Who Has Backed Him**\
+`Gov. Kathy Hochul has worked with Mayor Zohran Mamdani on child care and second-home taxes. But the triumphs of democratic socialists on Primary Day could complicate her vision.`\
+https://www.nytimes.com/2026/06/25/nyregion/mamdani-hochul-new-york-elections.html
+
+**After Banner Night, D.S.A. Sharpens Its Policy and Political Ambitions**\
+`After democratic socialists captured two House primaries and several state legislative contests in New York, the group’s leaders mulled how to use their expanding influence.`\
+https://www.nytimes.com/2026/06/25/nyregion/dsa-mamdani-new-york.html
+
+**Trump Administration and the M.T.A. Clash Over Penn Station Redesign**\
+`President Trump has made revitalizing the cramped train hall a priority, but he will need the cooperation of a transit agency his administration has long criticized.`\
+https://www.nytimes.com/2026/06/25/nyregion/penn-station-redesign-trump-amtrak-mta.html
+
+**Why These Affordable Homes Face a 31% Rent Increase**\
+`Mayor Zohran Mamdani has promised relief for rent-stabilized tenants. But thousands of apartments under a separate city program are subject to increases, creating an awkward contrast.`\
+https://www.nytimes.com/2026/06/25/nyregion/rent-increase-tracey-towers-mitchell-lama.html
+
+**Mamdani’s Rent Freeze Could Become Reality Today. Here’s What to Know.**\
+`A freeze for rent-stabilized homes is expected when a city panel votes on Mayor Zohran Mamdani’s plan on Thursday, but the move is likely to face legal challenges.`\
+https://www.nytimes.com/2026/06/25/nyregion/nyc-rent-freeze-what-to-know.html
+
+**Mamdani Ends Day Care Contract With Eric Adams’s Former Romantic Partner**\
+`The city had accused Jasmine Ray of fiscal mismanagement. She said that she had been unfairly targeted because of her ties to the former mayor.`\
+https://www.nytimes.com/2026/06/25/nyregion/mamdani-adams-day-care.html
+
+**NYT Spelling Bee Answers for June 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/25/crosswords/spelling-bee-forum.html
+
 **Venezuela’s Neighbors Offer Aid in Earthquake Response**\
 `Officials from the United States, El Salvador and the Dominican Republic said they would send rescue teams and humanitarian assistance to Caracas.`\
 https://www.nytimes.com/2026/06/24/world/americas/venezuela-earthquake-international-response.html
