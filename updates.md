@@ -1,3 +1,11 @@
+**Trump’s D.C. Construction Spree Could Cost More Than $1 Billion**\
+`There has been no complete public accounting of the president’s construction spree, so The Times pieced one together for projects with known estimates.`\
+https://www.nytimes.com/interactive/2026/06/24/us/trump-dc-costs-ballroom-arch-pool.html
+
+**What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
+`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was no longer with the company.`\
+https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
+
 **After Trump’s Outburst, Senate G.O.P. Stages a Reversal on Iran**\
 `In a late-night vote aimed at mollifying the president, Senate Republicans rejected a resolution directing him to end the war against Iran, a day after a bipartisan rebuke.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html

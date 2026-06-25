@@ -1,3 +1,7 @@
+**Trump’s D.C. Construction Spree Could Cost More Than $1 Billion**\
+`There has been no complete public accounting of the president’s construction spree, so The Times pieced one together for projects with known estimates.`\
+https://www.nytimes.com/interactive/2026/06/24/us/trump-dc-costs-ballroom-arch-pool.html
+
 **After Trump’s Outburst, Senate G.O.P. Stages a Reversal on Iran**\
 `In a late-night vote aimed at mollifying the president, Senate Republicans rejected a resolution directing him to end the war against Iran, a day after a bipartisan rebuke.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
 https://www.nytimes.com/2026/06/24/nyregion/tom-kean-missing-found.html
 
 **What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
-`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was longer with the company.`\
+`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was no longer with the company.`\
 https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
 
 **Los venezolanos del sur de Florida llaman a sus familiares y organizan la ayuda**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/us/bees-texas-crash.html
 **Truck Full of Bees Crashes, Releasing a Swarm of Millions**\
 `An eighteen-wheeler carrying about 20 million bees tipped over in Orange County, Texas, on Sunday. About a dozen local beekeepers came to the rescue.`\
 https://www.nytimes.com/video/us/100000010988029/bees-truck-crash-texas.html
-
-**La esposa de Pedro Sánchez está acusada de corrupción. Eso podría beneficiarlo**\
-`A primera vista, el juicio a Begoña Gómez parece un posible tiro de gracia para el presidente español, pero los analistas dicen que se está convirtiendo en una ventaja para su sobrevivencia política.`\
-https://www.nytimes.com/es/2026/06/24/espanol/mundo/espana-pedro-sanchez-esposa-corrupcion.html
 
