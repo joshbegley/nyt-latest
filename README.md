@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000010991382/25vid-heat-cows-3147.html
+
 **Pochettino’s Selection Dilemma, and Norway’s Fan Row**\
 `With the U.S.M.N.T. already qualified, will the coach stick with a winning team or is it better to rest his star players for the final group game?`\
 https://www.nytimes.com/2026/06/25/podcasts/pochettino-usmnt-selection-dilemma-norway-fan-row.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/06/25/weather/london-climate-action-extreme-heat-wa
 `Industry leaders had worried that innovations in chip miniaturization were no longer possible.`\
 https://www.nytimes.com/2026/06/25/technology/ibm-technology-tinier-chips.html
 
-**A Major Victory for Insurgent Democrats**\
+**A Major Victory for Progressive Democrats**\
 `Candidates backed by Mayor Zohran Mamdani of New York swept the city’s Democratic primaries.`\
 https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primaries-new-york.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/25/world/africa/south-sudan-usaid-education.html
 **Bible Passages May Soon Be Required Reading in Texas Public Schools**\
 `Texas is set to pass what may be the first state-mandated book list for public school students. It focuses on classic literature and includes Bible excerpts.`\
 https://www.nytimes.com/2026/06/25/us/texas-schools-book-list.html
-
-**The Little Rituals That Prepare You for Sleep**\
-`Origami, cleaning countertops, talking to plants — here are some ways readers wind down for the evening.`\
-https://www.nytimes.com/2026/06/25/well/sleep-evening-rituals-habits.html
 

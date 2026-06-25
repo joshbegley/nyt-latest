@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Death Toll Rises as Rescuers Mount Frantic Search for Survivors of Twin Earthquakes**\
+`The 7.2- and 7.5-magnitude earthquakes left at least 164 dead and hundreds missing, the authorities said, but the full scale of the damage was not immediately clear.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
 **In London, Extreme Heat Forces Cancellation of Event About Extreme Heat**\
 `Scorching temperatures have disrupted daily life in Britain this week, including events that centered on battling high temperatures.`\
 https://www.nytimes.com/2026/06/25/weather/london-climate-action-extreme-heat-wave-uk.html
