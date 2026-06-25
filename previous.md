@@ -1,3 +1,11 @@
+**Un conductor arrolla a un grupo de aficionados al Mundial en México, según las autoridades**\
+`Los videos muestran a un coche que acelera contra una multitud en Cabo San Lucas tras la victoria de México en un partido. Las autoridades dijeron que hay al menos 17 heridos y que el conductor fue detenido.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/mexico-conductor-atropella-aficionados.html
+
+**Robert Townsend on ‘The Bear’ and Directing for Television**\
+`The filmmaker has lately turned to television, acting in FX’s “The Bear,” directing episodes of “The Chi” and mentoring Black actors and showrunners reared on his work.`\
+https://www.nytimes.com/2026/06/25/arts/television/robert-townsend-the-bear-director.html
+
 **Got Zucchini? Make This Pasta.**\
 `Melissa Clark’s filling and versatile zucchini pasta with tuna and chile paste is my favorite fast zucchini dinner.`\
 https://www.nytimes.com/2026/06/25/dining/got-zucchini-make-this-pasta.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/06/25/technology/apple-prices-macbooks-ipads.html
 `He was also the key lyricist of the Grammy-winning, genre-blending band, with hits like “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
 https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
 
-**Supreme Court Rejects Lawsuit Alleging Roundup Weedkiller Caused Cancer**\
+**Supreme Court Rejects Lawsuit Against Bayer Alleging Roundup Weedkiller Caused Cancer**\
 `The court’s decision is likely to determine the future of thousands of lawsuits against Bayer, which manufactures the weedkiller, over similar claims.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-bayer.html
 
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/25/business/dealbook/taylor-travis-wedding-new-y
 **Jewelry Designer Shahla Karimi Creates Rings for Engagements, Throuples and Even Divorce**\
 `Shahla Karimi is reimagining what commitment rings look like, and designing them for very modern relationships.`\
 https://www.nytimes.com/2026/06/25/style/rings-engagements-throuples-divorce.html
-
-**Larry Sanger, a Wikipedia Founder, Is Barred From Editing on the Site**\
-`A vote to bar Larry Sanger indefinitely from the volunteer community of Wikipedia came days after he submitted a proposal on “intellectual diversity.”`\
-https://www.nytimes.com/2026/06/25/business/media/wikipedia-larry-sanger-barred.html
-
-**Is the Rap-Pop Collab Era Over?**\
-`There was a time when Top 40 radio was dominated by pop songs with a guest rap verse. Is that era officially over? Joe Coscarelli and Jon Caramanica answer this question and more on this week’s “Popcast” episode.`\
-https://www.nytimes.com/video/podcasts/100000010978388/is-the-rap-pop-collab-era-over.html
 
 **Live Updates: Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
 `A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\

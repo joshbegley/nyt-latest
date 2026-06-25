@@ -1,3 +1,15 @@
+**Un conductor arrolla a un grupo de aficionados al Mundial en México, según las autoridades**\
+`Los videos muestran a un coche que acelera contra una multitud en Cabo San Lucas tras la victoria de México en un partido. Las autoridades dijeron que hay al menos 17 heridos y que el conductor fue detenido.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/mexico-conductor-atropella-aficionados.html
+
+**Robert Townsend on ‘The Bear’ and Directing for Television**\
+`The filmmaker has lately turned to television, acting in FX’s “The Bear,” directing episodes of “The Chi” and mentoring Black actors and showrunners reared on his work.`\
+https://www.nytimes.com/2026/06/25/arts/television/robert-townsend-the-bear-director.html
+
+**Supreme Court Rejects Lawsuit Against Bayer Alleging Roundup Weedkiller Caused Cancer**\
+`The court’s decision is likely to determine the future of thousands of lawsuits against Bayer, which manufactures the weedkiller, over similar claims.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-bayer.html
+
 **Got Zucchini? Make This Pasta.**\
 `Melissa Clark’s filling and versatile zucchini pasta with tuna and chile paste is my favorite fast zucchini dinner.`\
 https://www.nytimes.com/2026/06/25/dining/got-zucchini-make-this-pasta.html
