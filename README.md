@@ -1,3 +1,7 @@
+**Saharan Dust Could Add an Apocalyptic Hue to Europe’s Unrelenting Heat**\
+`Powerful winds are carrying dust from Africa as far as southern England, as a heat dome keeps temperatures rising.`\
+https://www.nytimes.com/2026/06/25/weather/blood-rain-dust-heat-wave-europe.html
+
 **Tracking Heat Across Europe**\
 `summary`\
 https://www.nytimes.com/interactive/2026/06/25/weather/european-heat-tracker.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.h
 **NATO’s Leader Makes His Case to Trump for Preserving the Alliance**\
 `Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
-
-**Incertidumbre tras dos fuertes sismos**\
-`Los temblores de magnitud 7,2 y 7,5 derrumbaron edificios y desencadenaron operaciones de rescate en Caracas y otras localidades. EE. UU. y varios países latinoamericanos anunciaron que estaban movilizando ayuda.`\
-https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas
 
 **Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
 `Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\

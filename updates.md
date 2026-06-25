@@ -1,3 +1,11 @@
+**Tracking Heat Across Europe**\
+`summary`\
+https://www.nytimes.com/interactive/2026/06/25/weather/european-heat-tracker.html
+
+**Ejercicio y cortisol: ¿es cierto lo que dicen en internet?**\
+`Le pedimos a varios expertos que nos expliquen la relación entre la hormona del estrés y la actividad física.`\
+https://www.nytimes.com/es/2026/06/25/espanol/ejercicio-intenso-cortisol.html
+
 **Europe Heat Wave Live Updates: Scorching Weather Persists After Record-Breaking Day**\
 `Temperatures on Thursday are forecast to remain sharply above normal, ranging from high 30s to low 40s degrees Celsius, or around 100 Fahrenheit.`\
 https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france

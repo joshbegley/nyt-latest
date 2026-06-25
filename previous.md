@@ -1,3 +1,11 @@
+**Tracking Heat Across Europe**\
+`summary`\
+https://www.nytimes.com/interactive/2026/06/25/weather/european-heat-tracker.html
+
+**Ejercicio y cortisol: ¿es cierto lo que dicen en internet?**\
+`Le pedimos a varios expertos que nos expliquen la relación entre la hormona del estrés y la actividad física.`\
+https://www.nytimes.com/es/2026/06/25/espanol/ejercicio-intenso-cortisol.html
+
 **Europe Heat Wave Live Updates: Scorching Weather Persists After Record-Breaking Day**\
 `Temperatures on Thursday are forecast to remain sharply above normal, ranging from high 30s to low 40s degrees Celsius, or around 100 Fahrenheit.`\
 https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 **Trump Claims He Asked Prosecutor to ‘Do Me a Favor’ and Look Into the California Election**\
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
-
-**Meta pone la mira en los mercados de predicción**\
-`Una aplicación experimental, llamada internamente Arena, iría tras los clientes de Polymarket y Kalshi.`\
-https://www.nytimes.com/es/2026/06/24/espanol/negocios/meta-zuckerberg-prediccion-polymarket.html
-
-**In New York Election Results, More Evidence of Eroding Support for Israel**\
-`If the shift in public opinion continues, it could reshape one of the United States’ closest alliances.`\
-https://www.nytimes.com/2026/06/24/us/politics/new-york-elections-israel-support.html
 
