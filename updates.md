@@ -1,3 +1,7 @@
+**Venezuelans in South Florida Call Relatives and Organize Aid**\
+`The large Venezuelan community in the Miami area is “desperate” to reach family members.`\
+https://www.nytimes.com/2026/06/24/us/venezuela-south-florida-earthquake.html
+
 **Dos fuertes sismos sacuden el centro del país**\
 `Los temblores tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
 https://www.nytimes.com/live/2026/06/24/espanol/venezuela-temblor
