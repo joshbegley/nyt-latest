@@ -1,3 +1,15 @@
+**Two Earthquakes Hit Venezuela: What to Know About Death Toll, Damage and Rescue Response**\
+`Two major quakes struck back to back on Wednesday night in the country’s populated northern areas. The second was the strongest to hit Venezuela in over a century.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-death-toll-aid-response.html
+
+**Why Do People Spend So Long on Death Row?**\
+`The host of “The Last 12 Weeks” shares surprising data on executions.`\
+https://www.nytimes.com/2026/06/25/podcasts/why-do-people-spend-so-long-on-death-row.html
+
+**Don the Builder**\
+`Intro TK: minus “good morning”`\
+https://www.nytimes.com/2026/06/25/briefing/trumps-washington-renovations.html
+
 **La Guaira, Venezuelan Port Town, Is Hit Hard by Earthquakes**\
 `Deadly mudslides in 1999 dealt lasting blows to impoverished La Guaira. The response of the acting president, Delcy Rodríguez, may be a bellwether of her political longevity.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-la-guaira.html
