@@ -1,3 +1,7 @@
+**Dos fuertes sismos sacuden el centro del país**\
+`Los temblores tuvieron magnitudes de 7,2 y 7,5, según el USGS. Personas en las zonas afectadas dijeron que los edificios temblaron y que se había ido la luz, incluso en Caracas.`\
+https://www.nytimes.com/live/2026/06/24/espanol/terremoto-venezuela-caracas
+
 **What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
 `After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was longer with the company.`\
 https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
