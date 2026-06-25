@@ -1,3 +1,19 @@
+**Military Leaders Sought Flu Vaccination Program Weeks Before Outbreak Hit Base**\
+`Officials anticipated a problem soon after Defense Secretary Pete Hegseth lifted the vaccine requirement in April.`\
+https://www.nytimes.com/2026/06/25/us/politics/military-flu-vaccine-policy.html
+
+**Who Is Ahead in Florida's 7th Congressional District?**\
+`Track the latest polls in Florida's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-7-polls-2026.html
+
+**Footage From Before and After Venezuelan Quakes Shows Scope of Damage**\
+`As of Thursday evening, at least 188 people were dead and more than 1,500 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
+https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquakes-damage-before-after.html
+
+**Who Is Ahead in Arizona's 2nd Congressional District?**\
+`Track the latest polls in Arizona's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-2-polls-2026.html
+
 **Colorado Brothers Hid Decaying Bodies in Their Funeral Home, Authorities Say**\
 `The owners of Davis Mortuary in Pueblo, Colo., face multiple charges after state inspectors said they found two dozen decomposing bodies behind a concealed door. One of the owners is a former coroner.`\
 https://www.nytimes.com/2026/06/25/us/colorado-funeral-home-decaying-bodies-found.html
@@ -173,18 +189,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/venezuela-terremoto-que-pasa.html
 **On the ground and online, Venezuelans desperately search for missing relatives.**\
 `Friends and family of those in the earthquake zone were turning to social media and heading to affected neighborhoods as they awaited an official rescue response.`\
 https://www.nytimes.com/2026/06/25/world/americas/survivor-search-venezuela-earthquake.html
-
-**What Are the Paths Forward for the Housing Bill After Trump Refused to Sign It?**\
-`President Trump abruptly scrapped plans to sign a major housing bill. It could still become law, with or without a presidential signature. But Mr. Trump could also try to kill it.`\
-https://www.nytimes.com/2026/06/25/us/politics/trump-housing-bill-scenarios.html
-
-**Por qué se produjeron los terremotos en Venezuela y qué podemos esperar ahora**\
-`Un doblete sísmico como el que ha sacudido la región es poco habitual, pero no inaudito. Los científicos ya están recabando los datos necesarios para disponer de una visión más detallada.`\
-https://www.nytimes.com/es/2026/06/25/espanol/doblete-sismico-que-es.html
-
-**After Venezuela Earthquakes, La Guaira Residents Search for Loved Ones in the Rubble**\
-`A missing child. A boyfriend in the rubble. Venezuelans in this hard-hit city said they needed more help to rescue the missing.`\
-https://www.nytimes.com/2026/06/25/world/americas/la-guaira-venezuela-earthquakes-rescue-survivors.html
 
 **Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
 `Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
