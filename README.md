@@ -178,10 +178,6 @@ https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
 `The court’s decision is likely to determine the future of thousands of lawsuits against Bayer, which manufactures the weedkiller, over similar claims.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-bayer.html
 
-**N.Y. Prosecutors Decline to Try Weinstein a Fourth Time for Rape Charge**\
-`The disgraced film producer would have been facing a fourth trial in New York for being accused of raping an aspiring actress in 2013.`\
-https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-york.html
-
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
