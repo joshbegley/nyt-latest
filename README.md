@@ -1,3 +1,11 @@
+**Nueva York en alerta por un misterioso evento en el Madison Square Garden**\
+`El Times ha confirmado que Taylor Swift ha alquilado la arena deportiva para el fin de semana del 4 de julio, lo que sugiere que tiene previsto organizar una celebración de varios días.`\
+https://www.nytimes.com/es/2026/06/25/espanol/cultura/taylor-swift-boda-madison-square-garden.html
+
+**Word of the Day: apotheosis**\
+`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/25/learning/word-of-the-day-apotheosis.html
+
 **Oil Prices Fall Toward Prewar Levels as Gulf Shipping Resumes**\
 `Oil prices fell, moving closer to levels not seen since the war in Iran began in February.`\
 https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/06/24/world/venezuela-earthquake.html
 **Federal Appeals Panel Rejects Trump’s Effort to Gather Voting Data From States**\
 `The ruling of a three-judge appeals panel in Michigan was the most significant rebuke yet to the Department of Justice’s effort to find ineligible voters in state voter rolls.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-voter-rolls-data-ruling.html
-
-**Brasil y Escocia se han apoderado de Miami. ¿Es la mejor fiesta del Mundial?**\
-`El encuentro entre la selección sudamericana y la escuadra europea ha generado un ambiente festivo en el corazón de Florida.`\
-https://www.nytimes.com/es/2026/06/24/espanol/deportes/mundial-brasil-escocia.html
-
-**Wildfire Risk in Utah and Across the West Is the Highest It’s Been All Year**\
-`Critical conditions are expected through the weekend across Utah, Arizona, Nevada and elsewhere.`\
-https://www.nytimes.com/2026/06/24/weather/utah-wildfires-colorado-smoke.html
 
