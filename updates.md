@@ -1,3 +1,15 @@
+**Iran Threatens Ships in Strait of Hormuz as Marco Rubio Meets Gulf Leaders**\
+`The new warning complicated efforts to revive use of the critical waterway as Washington sought regional support for its framework peace agreement with Iran.`\
+https://www.nytimes.com/2026/06/25/world/middleeast/iran-strait-of-hormuz-threat-rubio-bahrain.html
+
+**Mara Brock Akil Finds a New ‘Muse’ in ‘The Revelation of Dionne Daphne’**\
+`She’s been creating layered Black women for TV since “Girlfriends” in the early 2000s. In her debut novel, she raises the stakes for yet another one.`\
+https://www.nytimes.com/2026/06/25/style/mara-brock-akil-revelation-of-dionne-daphne.html
+
+**Spain Warns of a Possible Spike in Heat-Related Deaths**\
+`An estimated 212 deaths have been linked to extreme heat between Sunday and Wednesday, according to a monitoring system affiliated with the country’s health ministry.`\
+https://www.nytimes.com/2026/06/25/weather/spain-heat-wave-deaths-warning.html
+
 **Earthquakes Are Latest Challenge for Venezuelan Leader**\
 `President Delcy Rodríguez, in power only for a few months, has been trying to balance the demands of President Trump and her own domestic political needs.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-delcy-rodriguez.html

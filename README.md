@@ -1,3 +1,7 @@
+**Some European Museums Are Free Havens to Cool Off. Others Can’t Take the Heat.**\
+`Institutions with air conditioning or stone buildings can market themselves as a respite from extreme temperatures. But some are reducing their hours.`\
+https://www.nytimes.com/2026/06/25/arts/europe-museums-heat.html
+
 **Iran Threatens Ships in Strait of Hormuz as Marco Rubio Meets Gulf Leaders**\
 `The new warning complicated efforts to revive use of the critical waterway as Washington sought regional support for its framework peace agreement with Iran.`\
 https://www.nytimes.com/2026/06/25/world/middleeast/iran-strait-of-hormuz-threat-rubio-bahrain.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/25/podcasts/cannonball-tribeca-nixon.html
 **The Grit and Glamour of New York Movies**\
 `The actress and activist Cynthia Nixon joins Wesley Morris on the 2026 Tribeca Festival stage to talk about classic New York City movies.`\
 https://www.nytimes.com/video/podcasts/100000010985923/the-grit-and-glamour-of-new-york-movies.html
-
-**A Right-Wing Election Victory in Colombia, With a Little Help from Trump**\
-`The U.S. president endorsed the right-wing winner. But his influence went further.`\
-https://www.nytimes.com/2026/06/25/world/americas/colombia-election-de-la-espriella-trump.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
