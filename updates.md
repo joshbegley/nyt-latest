@@ -1,3 +1,7 @@
+**La Guaira, Venezuelan Port Town, Is Hit Hard by Earthquakes**\
+`Deadly mudslides in 1999 dealt lasting blows to impoverished La Guaira. The response of the acting president, Delcy Rodríguez, may be a bellwether of her political longevity.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-la-guaira.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010991382/25vid-heat-cows-3147.html

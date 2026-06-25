@@ -1,3 +1,7 @@
+**La Guaira, Venezuelan Port Town, Is Hit Hard by Earthquakes**\
+`Deadly mudslides in 1999 dealt lasting blows to impoverished La Guaira. The response of the acting president, Delcy Rodríguez, may be a bellwether of her political longevity.`\
+https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-la-guaira.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000010991382/25vid-heat-cows-3147.html
@@ -178,13 +182,13 @@ https://www.nytimes.com/2026/06/25/movies/the-invite-movie-review-seth-rogen-oli
 `Over two blurred summers, an intern at an art gallery experiences solitude and pleasure with the men he encounters.`\
 https://www.nytimes.com/2026/06/25/movies/drunken-noodles-review.html
 
-**‘Bouchra’ Review: All Too Human**\
-`In this 3-D animation, a New Yorker who’s also a coyote tries to come to terms with her mother while working on an autobiographical movie.`\
-https://www.nytimes.com/2026/06/25/movies/bouchra-review.html
-
 **‘Couture’ Review: No Common Thread**\
 `Angelina Jolie plays a woman preparing for a Paris runway show in Alice Winocour’s fragmentary look at the rarefied world of high fashion.`\
 https://www.nytimes.com/2026/06/25/movies/couture-review-angelina-jolie.html
+
+**‘Bouchra’ Review: All Too Human**\
+`In this 3-D animation, a New Yorker who’s also a coyote tries to come to terms with her mother while working on an autobiographical movie.`\
+https://www.nytimes.com/2026/06/25/movies/bouchra-review.html
 
 **These Birds’ Backflips Are Fueled by Sugar**\
 `An ancient dietary change made the manakin’s flashy courtship display possible, a new study suggests.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/25/science/genetics-birds-manakins.html
 **Can a Youth Boom Survive South Sudan’s Education Crisis?**\
 `South Sudan is the world’s newest nation and its education system is on the verge of collapse, putting an entire generation at risk.`\
 https://www.nytimes.com/2026/06/25/world/africa/south-sudan-usaid-education.html
-
-**Bible Passages May Soon Be Required Reading in Texas Public Schools**\
-`Texas is set to pass what may be the first state-mandated book list for public school students. It focuses on classic literature and includes Bible excerpts.`\
-https://www.nytimes.com/2026/06/25/us/texas-schools-book-list.html
 
