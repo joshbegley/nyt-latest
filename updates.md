@@ -1,3 +1,7 @@
+**How Long Can a Person Survive Under Rubble?**\
+`It depends on water, air and how quickly rescuers are able to find people.`\
+https://www.nytimes.com/2026/06/25/world/americas/earthquake-rubble-survival-venezuela-rescue.html
+
 **Venezuela Live Updates: Search for Survivors Grows More Urgent 24 Hours After Quakes**\
 `Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
