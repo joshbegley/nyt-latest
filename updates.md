@@ -1,3 +1,11 @@
+**Federal Judge Strikes Key Parts of Trump Order Restricting Mail Voting**\
+`The ruling rejected the Trump administration’s attempt to change federal election procedures through an executive order.`\
+https://www.nytimes.com/2026/06/25/us/politics/trump-mail-in-voting-ruling.html
+
+**Supreme Court Expands Trump’s Power Over Immigration**\
+`President Trump has pushed to rescind Temporary Protected Status for hundreds of thousands of people from countries convulsed by humanitarian crises.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
+
 **Who Is Ahead in Tennessee's 5th Congressional District?**\
 `Track the latest polls in Tennessee's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/tennessee-us-house-5-polls-2026.html

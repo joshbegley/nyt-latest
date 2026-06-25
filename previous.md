@@ -1,3 +1,7 @@
+**Federal Judge Strikes Key Parts of Trump Order Restricting Mail Voting**\
+`The ruling rejected the Trump administration’s attempt to change federal election procedures through an executive order.`\
+https://www.nytimes.com/2026/06/25/us/politics/trump-mail-in-voting-ruling.html
+
 **Who Is Ahead in Tennessee's 5th Congressional District?**\
 `Track the latest polls in Tennessee's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/tennessee-us-house-5-polls-2026.html
@@ -98,7 +102,7 @@ https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-yo
 `The case involved a Second Amendment challenge to a Hawaii law that barred carrying concealed weapons without permission onto private property open to the public.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
 
-**Supreme Court Lets Trump End Deportation Protection for Haitians and Syrians**\
+**Supreme Court Expands Trump’s Power Over Immigration**\
 `President Trump has pushed to rescind Temporary Protected Status for hundreds of thousands of people from countries convulsed by humanitarian crises.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/polls/new-hampshire-us-house-2-polls-2026.ht
 **Who Is Ahead in New Hampshire's 1st Congressional District?**\
 `Track the latest polls in New Hampshire's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.html
-
-**Driver Plows Into Crowd of World Cup Fans in Mexico, Authorities Say**\
-`Videos show a car repeatedly accelerating into a crowd in Cabo San Lucas after Mexico won a World Cup game. The authorities said at least 17 people were injured and the driver was arrested.`\
-https://www.nytimes.com/2026/06/25/world/americas/car-ramming-mexico-world-cup-cabo-san-lucas.html
 

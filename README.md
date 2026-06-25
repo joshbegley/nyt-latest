@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/06/25/nyregion/harvey-weinstein-fourth-trial-new-yo
 https://www.nytimes.com/2026/06/25/us/supreme-court-hawaii-gun-law.html
 
 **Supreme Court Expands Trump’s Power Over Immigration**\
-`President Trump has pushed to rescind Temporary Protected Status for hundreds of thousands of people from countries convulsed by humanitarian crises.`\
+`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
 https://www.nytimes.com/2026/06/25/us/politics/supreme-court-temporary-protected-status.html
 
 **Where Are the Most Data Centers Planned?**\
