@@ -1,3 +1,11 @@
+**Iran Threatens Ships in Strait of Hormuz as Marco Rubio Meets Gulf Leaders**\
+`The new warning complicated efforts to revive use of the critical waterway as Washington sought regional support for its framework peace agreement with Iran.`\
+https://www.nytimes.com/2026/06/25/world/middleeast/iran-strait-of-hormuz-threat-rubio-bahrain.html
+
+**Mara Brock Akil Finds a New ‘Muse’ in ‘The Revelation of Dionne Daphne’**\
+`She’s been creating layered Black women for TV since “Girlfriends” in the early 2000s. In her debut novel, she raises the stakes for yet another one.`\
+https://www.nytimes.com/2026/06/25/style/mara-brock-akil-revelation-of-dionne-daphne.html
+
 **Earthquakes Are Latest Challenge for Venezuelan Leader**\
 `President Delcy Rodríguez, in power only for a few months, has been trying to balance the demands of President Trump and her own domestic political needs.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-delcy-rodriguez.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/podcasts/100000010985923/the-grit-and-glamour-of-n
 **A Right-Wing Election Victory in Colombia, With a Little Help from Trump**\
 `The U.S. president endorsed the right-wing winner. But his influence went further.`\
 https://www.nytimes.com/2026/06/25/world/americas/colombia-election-de-la-espriella-trump.html
-
-**36 Hours in Vilnius, Lithuania: Things to Do and See**\
-`An increasingly popular filming location for movies and television shows, including Netflix’s “Stranger Things,” Lithuania’s leafy, art-loving capital is finally ready for its close-up.`\
-https://www.nytimes.com/interactive/2026/06/25/travel/things-to-do-vilnius.html
-
-**Christopher Nolan on the Anxiety of Filming ‘The Odyssey’ in IMAX**\
-`Filming entirely in IMAX meant new engineering and actor ingenuity. It was only halfway through the six-country shoot that he felt he could pull it off.`\
-https://www.nytimes.com/2026/06/25/movies/odyssey-christopher-nolan.html
 
 **Live Updates: As Europe Bakes, Spain Warns of a Possible High Death Toll**\
 `A Spanish monitoring agency linked the extreme heat to an estimated rise in deaths since Sunday. Days of scorching temperatures are testing Europe’s ability to adapt to extreme weather.`\
