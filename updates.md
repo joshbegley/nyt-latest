@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010990822/25vid-venezuela-quake-luis-musano-3775.html
+
+**The World Cup of Jerseys**\
+`48 countries competing. 96 jerseys on display. Vote for your favorite designs and see how they rank with Times readers.`\
+https://www.nytimes.com/interactive/2026/06/24/style/world-cup-jersey-game.html
+
 **Venezuela Rocked by Two Strong Earthquakes**\
 `A 7.2-magnitude earthquake that was followed by a 7.5-magnitude earthquake hit central Venezuela on Wednesday, damaging buildings and knocking out electricity.`\
 https://www.nytimes.com/video/world/americas/100000010990603/venezuela-two-strong-earthquakes.html

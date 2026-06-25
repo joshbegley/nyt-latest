@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010990822/25vid-venezuela-quake-luis-musano-3775.html
+
+**The World Cup of Jerseys**\
+`48 countries competing. 96 jerseys on display. Vote for your favorite designs and see how they rank with Times readers.`\
+https://www.nytimes.com/interactive/2026/06/24/style/world-cup-jersey-game.html
+
 **Venezuela Rocked by Two Strong Earthquakes**\
 `A 7.2-magnitude earthquake that was followed by a 7.5-magnitude earthquake hit central Venezuela on Wednesday, damaging buildings and knocking out electricity.`\
 https://www.nytimes.com/video/world/americas/100000010990603/venezuela-two-strong-earthquakes.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/24/world/europe-climate-heat-wave-ebola-world-cu
 **Fruit Fly Sperm Are Giant. How Do They Stay Untangled?**\
 `A fruit fly’s sperm are exceptionally long, and thousands are crammed in together. The physics of this presents a packing nightmare.`\
 https://www.nytimes.com/2026/06/24/science/giant-fruit-fly-sperm-untangled.html
-
-**Restaurant Reviews: Baohaus, Cove and More**\
-`New stars drop for a New American restaurant from a culinary wunderkind, an idiosyncratic fine-dining spot on the Lower East Side and a Singaporean storefront in Hell’s Kitchen.`\
-https://www.nytimes.com/2026/06/24/dining/restaurant-reviews-cove-baohaus-and-more.html
-
-**The World Cup’s Best Party Is Raging in Miami**\
-`It’s Brazil versus Scotland in the South Florida sun.`\
-https://www.nytimes.com/2026/06/24/us/world-cup-party-scotland-brazil-miami.html
 
