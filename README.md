@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquakes-delcy-ro
 
 **Spain Warns of a Possible Spike in Heat-Related Deaths**\
 `An estimated 212 deaths have been linked to extreme heat between Sunday and Wednesday, according to a monitoring system affiliated with the country’s health ministry.`\
-https://www.nytimes.com/2026/06/25/weather/spain-warns-of-a-possible-spike-in-heat-related-deaths.html
+https://www.nytimes.com/2026/06/25/weather/spain-heat-wave-deaths-warning.html
 
 **‘The Anti-Social Media’: A Winning Student Open Letter**\
 `We are honoring the winners of our Student Open Letter Contest by publishing their entries. This one is by Vihaan Miriyala, age 15.`\
