@@ -1,3 +1,7 @@
+**Why the Venezuelan Earthquakes Happened, and What to Expect Next**\
+`Twin earthquakes like those that ripped through the region are unusual but not unheard of. Scientists are already gathering data needed for a more detailed picture.`\
+https://www.nytimes.com/2026/06/25/science/venezeula-earthquakes-faults-geology.html
+
 **Who Is Ahead in North Carolina's 14th Congressional District?**\
 `Track the latest polls in North Carolina's 14th Congressional District.`\
 https://www.nytimes.com/interactive/polls/north-carolina-us-house-14-polls-2026.html
