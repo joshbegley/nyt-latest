@@ -1,3 +1,11 @@
+**Supreme Court Expands Trump’s Immigration Power**\
+`Also, Iran strikes a ship in the Strait of Hormuz. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/25/briefing/supreme-court-trump-immigration.html
+
+**Complaint Seeks Disclosure of Pentagon’s Agreement With Scouting America**\
+`The Pentagon and the organization have given contradictory accounts of an agreement reached in February.`\
+https://www.nytimes.com/2026/06/25/us/politics/pentagon-scouting-america-lawsuit.html
+
 **Cynthia Nixon: New York City Is About Energy and Grit**\
 `A few weeks ago, “Cannonball with Wesley Morris” hosted its first live show at the 2026 Tribeca Festival, with guest Cynthia Nixon. Together, Wesley and Cynthia discussed what it means to be a New Yorker.`\
 https://www.nytimes.com/video/podcasts/100000010985955/cynthia-nixon-new-york-city-is-about-energy-and-grit.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/25/dining/solidarity-with-ranch-obsessed-tourist
 **The ‘Rising Tide’ of America’s Middle Class**\
 `Readers respond to an Opinion guest essay, “What Liberals Get Wrong About the Middle Class.” Also: Israel’s isolated artists; the true America.`\
 https://www.nytimes.com/2026/06/25/opinion/us-middle-class.html
-
-**A New Dance Festival Moves Beyond the Same Old, Same Old**\
-`The Milly Rock, haunting flamenco and falling bodies: The Lincoln Center Contemporary Dance Festival delivers quality with nary a pointe shoe in sight.`\
-https://www.nytimes.com/2026/06/25/arts/dance/lincoln-center-contemporary-dance-festival-jeremy-nedd-yinka-esi-graves-her-project.html
-
-**Stream These 5 Movies and TV Shows Before They Leave Netflix in July**\
-`Two acclaimed series and two films by the director George Roy Hill are among the notable titles leaving for U.S. subscribers next month.`\
-https://www.nytimes.com/2026/06/25/arts/television/netflix-expiring.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

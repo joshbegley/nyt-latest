@@ -1,3 +1,11 @@
+**Nigel Cabourn, Men’s Wear Designer Revered for Vintage Aesthetic, Dies at 76**\
+`The antithesis of fast fashion, his clothes were modeled on heritage garments and mostly made in his native Britain.`\
+https://www.nytimes.com/2026/06/25/style/nigel-cabourn-dead.html
+
+**Justices Clash on Whether Race Played a Role in Trump’s Bid to Deport Haitians**\
+`The split mirrored one that has long divided Americans: how seriously to take the president’s loose, provocative and sometimes ugly remarks.`\
+https://www.nytimes.com/2026/06/25/us/politics/supreme-court-trump-haiti-race.html
+
 **Supreme Court Expands Trump’s Immigration Power**\
 `Also, Iran strikes a ship in the Strait of Hormuz. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/06/25/briefing/supreme-court-trump-immigration.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction
 **Olivia Wilde and Seth Rogen Reflect on Their Relationship Wins at ‘The Invite’ Premiere**\
 `Hollywood couples, including Penélope Cruz and Javier Bardem, celebrated the snappy new comedy about marriage at the Chateau Marmont in West Hollywood.`\
 https://www.nytimes.com/2026/06/25/style/the-invite-premiere-olivia-wilde-seth-rogen.html
-
-**Solidarity With Ranch-Obsessed Tourists**\
-`If you tried to sneak ranch through T.S.A., I see you, and I raise you something even better: homemade ranch.`\
-https://www.nytimes.com/2026/06/25/dining/solidarity-with-ranch-obsessed-tourists.html
-
-**The ‘Rising Tide’ of America’s Middle Class**\
-`Readers respond to an Opinion guest essay, “What Liberals Get Wrong About the Middle Class.” Also: Israel’s isolated artists; the true America.`\
-https://www.nytimes.com/2026/06/25/opinion/us-middle-class.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 188 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\

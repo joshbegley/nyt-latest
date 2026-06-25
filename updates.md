@@ -1,3 +1,11 @@
+**Supreme Court Expands Trump’s Immigration Power**\
+`Also, Iran strikes a ship in the Strait of Hormuz. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/06/25/briefing/supreme-court-trump-immigration.html
+
+**Complaint Seeks Disclosure of Pentagon’s Agreement With Scouting America**\
+`The Pentagon and the organization have given contradictory accounts of an agreement reached in February.`\
+https://www.nytimes.com/2026/06/25/us/politics/pentagon-scouting-america-lawsuit.html
+
 **Cynthia Nixon: New York City Is About Energy and Grit**\
 `A few weeks ago, “Cannonball with Wesley Morris” hosted its first live show at the 2026 Tribeca Festival, with guest Cynthia Nixon. Together, Wesley and Cynthia discussed what it means to be a New Yorker.`\
 https://www.nytimes.com/video/podcasts/100000010985955/cynthia-nixon-new-york-city-is-about-energy-and-grit.html
