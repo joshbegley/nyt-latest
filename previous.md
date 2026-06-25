@@ -1,8 +1,12 @@
+**7.5-Magnitude Quake Is Largest to Hit Venezuela in More Than a Century**\
+`The U.S. Geological Survey estimated that it could be far deadlier than a 7.7-magnitude earthquake that struck the country in 1900.`\
+https://www.nytimes.com/2026/06/24/world/americas/venezuela-strongest-earthquakes.html
+
 **Trump’s D.C. Construction Spree Could Cost More Than $1 Billion**\
 `There has been no complete public accounting of the president’s construction spree, so The Times pieced one together for projects with known estimates.`\
 https://www.nytimes.com/interactive/2026/06/24/us/trump-dc-costs-ballroom-arch-pool.html
 
-**After Trump’s Outburst, Senate G.O.P. Stages a Reversal on Iran**\
+**After Trump’s Outburst, Senate G.O.P. Reverses Course on Iran**\
 `In a late-night vote aimed at mollifying the president, Senate Republicans rejected a resolution directing him to end the war against Iran, a day after a bipartisan rebuke.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/24/us/politics/trump-congress-iran-war-pentagon.
 **Millions of Bees Are Unleashed, and Recaptured, After Truck Flips in Texas**\
 `Local beekeepers rushed to the rescue after a truck carrying roughly 20 million bees overturned on a wet country road in rural Texas.`\
 https://www.nytimes.com/2026/06/24/us/bees-texas-crash.html
-
-**Truck Full of Bees Crashes, Releasing a Swarm of Millions**\
-`An eighteen-wheeler carrying about 20 million bees tipped over in Orange County, Texas, on Sunday. About a dozen local beekeepers came to the rescue.`\
-https://www.nytimes.com/video/us/100000010988029/bees-truck-crash-texas.html
 

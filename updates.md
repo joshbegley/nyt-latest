@@ -1,3 +1,11 @@
+**7.5-Magnitude Quake Is Largest to Hit Venezuela in More Than a Century**\
+`The U.S. Geological Survey estimated that it could be far deadlier than a 7.7-magnitude earthquake that struck the country in 1900.`\
+https://www.nytimes.com/2026/06/24/world/americas/venezuela-strongest-earthquakes.html
+
+**After Trump’s Outburst, Senate G.O.P. Reverses Course on Iran**\
+`In a late-night vote aimed at mollifying the president, Senate Republicans rejected a resolution directing him to end the war against Iran, a day after a bipartisan rebuke.`\
+https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
+
 **Trump’s D.C. Construction Spree Could Cost More Than $1 Billion**\
 `There has been no complete public accounting of the president’s construction spree, so The Times pieced one together for projects with known estimates.`\
 https://www.nytimes.com/interactive/2026/06/24/us/trump-dc-costs-ballroom-arch-pool.html
