@@ -122,8 +122,8 @@ https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 `The president took credit for the advance of the former Fox News host, Steve Hilton, to the runoff for governor.`\
 https://www.nytimes.com/2026/06/24/us/politics/trump-us-attorney-hilton-california-governor.html
 
-**Venezuela Live Updates: Chaos and Fear After Intense Earthquakes**\
-`The 7.2- and 7.5-magnitude quakes toppled buildings and set off frantic rescue efforts in Caracas and beyond. The United States and several Latin American countries said they were mobilizing aid.`\
+**Venezuela Live Updates: Chaos and Fear After Deadly Earthquakes**\
+`The 7.2- and 7.5-magnitude quakes toppled dozens of buildings, killed at least 32 people and injured at least 700 others, the authorities said. A frantic rescue effort was underway.`\
 https://www.nytimes.com/live/2026/06/24/world/venezuela-earthquake
 
 **Meta pone la mira en los mercados de predicción**\
