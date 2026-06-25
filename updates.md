@@ -1,3 +1,15 @@
+**What Are the Paths Forward for the Housing Bill After Trump Refused to Sign It?**\
+`President Trump abruptly scrapped plans to sign a major housing bill. It could still become law, with or without a presidential signature. But Mr. Trump could also try to kill it.`\
+https://www.nytimes.com/2026/06/25/us/politics/trump-housing-bill-scenarios.html
+
+**Por qué se produjeron los terremotos en Venezuela y qué podemos esperar ahora**\
+`Un doblete sísmico como el que ha sacudido la región es poco habitual, pero no inaudito. Los científicos ya están recabando los datos necesarios para disponer de una visión más detallada.`\
+https://www.nytimes.com/es/2026/06/25/espanol/doblete-sismico-que-es.html
+
+**Deadly Heat Wave in Europe Continues to Smash Temperature Records**\
+`The continent’s second heat wave since May continued to disrupt daily life for millions. Officials in Spain said it might have contributed to a spike in deaths.`\
+https://www.nytimes.com/2026/06/25/world/europe/heat-wave.html
+
 **Gracie Abrams Talks About Her New Single, ‘Look at My Life’**\
 `On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-look-at-my-life.html
