@@ -1,3 +1,23 @@
+**He Was Deported Back to Venezuela and Started Anew. Then the Quakes Hit.**\
+`Venezuelans in South Florida were frantically trying to track down friends and relatives after two earthquakes in Venezuela. Jorge Erazo was among the missing.`\
+https://www.nytimes.com/2026/06/25/us/florida-venezuela-earthquake-missing-relatives.html
+
+**Military Leaders Sought Flu Vaccination Program Weeks Before Outbreak Hit Base**\
+`Officials anticipated a problem soon after Defense Secretary Pete Hegseth lifted the vaccine requirement in April.`\
+https://www.nytimes.com/2026/06/25/us/politics/military-flu-vaccine-policy.html
+
+**Who Is Ahead in Florida's 7th Congressional District?**\
+`Track the latest polls in Florida's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-7-polls-2026.html
+
+**Footage From Before and After Venezuelan Quakes Shows Scope of Damage**\
+`As of Thursday evening, at least 188 people were dead and more than 1,500 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
+https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquakes-damage-before-after.html
+
+**Who Is Ahead in Arizona's 2nd Congressional District?**\
+`Track the latest polls in Arizona's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-2-polls-2026.html
+
 **Colorado Brothers Hid Decaying Bodies in Their Funeral Home, Authorities Say**\
 `The owners of Davis Mortuary in Pueblo, Colo., face multiple charges after state inspectors said they found two dozen decomposing bodies behind a concealed door. One of the owners is a former coroner.`\
 https://www.nytimes.com/2026/06/25/us/colorado-funeral-home-decaying-bodies-found.html
