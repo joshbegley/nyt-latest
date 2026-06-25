@@ -1,3 +1,11 @@
+**La Guaira: una ciudad venezolana marcada por la tragedia**\
+`Los mortales deslaves de 1999 asestaron golpes duraderos a la empobrecida La Guaira. La respuesta de la presidenta en funciones, Delcy Rodríguez, podría ser un indicador de su futuro político.`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/la-guaira-tragedia.html
+
+**Blakeman Suggests Lander, a Jewish Politician, Would Have Aided Nazis**\
+`Brad Lander, a Democrat who won his House primary in New York, told voters to reject the “bigotry” of Bruce Blakeman, a Republican candidate for governor who is also Jewish.`\
+https://www.nytimes.com/2026/06/25/nyregion/blakeman-lander-jewish-nazis.html
+
 **How Trump Wants to Upend Voting in America**\
 `President Trump is demanding that Congress pass the SAVE America Act to change American elections. Our national politics reporter Nick Corasaniti looks at what’s in it.`\
 https://www.nytimes.com/video/us/politics/100000010989159/how-trump-wants-to-upend-voting-in-america.html
