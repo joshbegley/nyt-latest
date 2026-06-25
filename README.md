@@ -1,3 +1,11 @@
+**‘Superman’ and ‘Heated Rivalry’ Alums to Broadway in ‘Three Days of Rain’**\
+`A winter revival of the Richard Greenberg drama will star David Corenswet, Yvonne Strahovski and François Arnaud.`\
+https://www.nytimes.com/2026/06/25/theater/three-days-of-rain-broadway-david-corenswet-francois-arnaud.html
+
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/06/25/books/review/new-recommended-books.html
+
 **Terremotos en Venezuela: esto es lo que hay que saber**\
 `El miércoles por la noche se produjeron dos fuertes sismos consecutivos en las zonas más pobladas del norte del país. El segundo fue el más intenso en más de un siglo en Venezuela.`\
 https://www.nytimes.com/es/2026/06/25/espanol/venezuela-terremoto-que-pasa.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/polls/new-jersey-us-house-2-polls-2026.html
 **Who Is Ahead in Missouri's 2nd Congressional District?**\
 `Track the latest polls in Missouri's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/missouri-us-house-2-polls-2026.html
-
-**Who Is Ahead in Iowa's 3rd Congressional District?**\
-`Track the latest polls in Iowa's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/iowa-us-house-3-polls-2026.html
-
-**Supreme Court Allows Trump to Block Asylum Seekers at Border**\
-`A policy of turning back asylum seekers at the border was rescinded in 2021, but the Trump administration wants the flexibility to reinstate it as a tool for border control.`\
-https://www.nytimes.com/2026/06/25/us/politics/supreme-court-asylum-border.html
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
 `Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
