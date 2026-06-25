@@ -1,3 +1,111 @@
+**Is It Time for a New Sexual Revolution?**\
+`One that actually brings men and women together.`\
+https://www.nytimes.com/2026/06/25/opinion/gender-sexual-revolution-men-women.html
+
+**Triumph of the Tasteless**\
+`This is an era of illusion, and Musk and Trump are the self-adoring, self-promoting emblems and emperors of it.`\
+https://www.nytimes.com/2026/06/25/opinion/musk-trump-spacex-ipo.html
+
+**Three Women Wanted to Start a Family in the Bay Area. Could They Find a House to Do It In?**\
+`An engaged couple and their companion searched Oakland and Berkeley for a forever home, with room for one more.`\
+https://www.nytimes.com/interactive/2026/06/25/realestate/bay-area-oakland-berkeley-real-estate-homes-prices.html
+
+**No Corrections: June 25, 2026**\
+`No corrections appeared in print on Thursday, June 25, 2026.`\
+https://www.nytimes.com/2026/06/25/pageoneplus/no-corrections-june-25-2026.html
+
+**Big Companies Aim to Ease A.I. Transition for American Workers**\
+`OpenAI, Anthropic, Amazon and Microsoft have signed on to an effort led by Gina Raimondo, a former commerce secretary.`\
+https://www.nytimes.com/2026/06/25/business/economy/ai-work-force-training-job-losses.html
+
+**Lesson Learned From Iran War: Reduce Reliance on Strait of Hormuz**\
+`Increased stockpiles, more pipelines and other tactics could loosen the waterway’s stranglehold on the global economy.`\
+https://www.nytimes.com/2026/06/25/business/strait-of-hormuz-iran-war.html
+
+**U.S. Inflation Problems Are Far From Over**\
+`The Federal Reserve’s new chairman has vowed to deliver price stability, but officials are at odds over whether that will require higher borrowing costs.`\
+https://www.nytimes.com/2026/06/25/business/federal-reserve-inflation-pce.html
+
+**Traveling to Europe in a Heat Wave? Here’s What to Know.**\
+`Residents and summer travelers alike are searching for ways to stay safe and cool as the continent swelters amid a heat wave. Here are some tips.`\
+https://www.nytimes.com/2026/06/25/travel/europe-heat-wave-what-to-know.html
+
+**‘The Bear’: What to Remember Before the Final Season**\
+`The stressed-out staff at the Bear is back for one final dinner service and an uncertain fate. Here’s where Season 4 left off.`\
+https://www.nytimes.com/2026/06/25/arts/television/the-bear-season-4-recap.html
+
+**Turkey or Türkiye? Who Is the U.S. Playing?**\
+`The push to rebrand the country, which started in the last decade, was inspired by politicians and coincided with an international public relations campaign.`\
+https://www.nytimes.com/2026/06/25/world/europe/turkiye-turkey-name-change-world-cup-usa.html
+
+**Cannonball with Wesley Morris | Tribeca Live Show with Cynthia Nixon**\
+`Our Tribeca Live Show with Cynthia Nixon.`\
+https://www.nytimes.com/2026/06/25/podcasts/cannonball-tribeca-nixon.html
+
+**The Grit and Glamour of New York Movies**\
+`The actress and activist Cynthia Nixon joins Wesley Morris on the 2026 Tribeca Festival stage to talk about classic New York City movies.`\
+https://www.nytimes.com/video/podcasts/100000010985923/the-grit-and-glamour-of-new-york-movies.html
+
+**A Right-Wing Election Victory in Colombia, With a Little Help from Trump**\
+`The U.S. president endorsed the right-wing winner. But his influence went further.`\
+https://www.nytimes.com/2026/06/25/world/americas/colombia-election-de-la-espriella-trump.html
+
+**36 Hours in Vilnius, Lithuania: Things to Do and See**\
+`An increasingly popular filming location for movies and television shows, including Netflix’s “Stranger Things,” Lithuania’s leafy, art-loving capital is finally ready for its close-up.`\
+https://www.nytimes.com/interactive/2026/06/25/travel/things-to-do-vilnius.html
+
+**Christopher Nolan on the Anxiety of Filming ‘The Odyssey’ in IMAX**\
+`Filming entirely in IMAX meant new engineering and actor ingenuity. It was only halfway through the six-country shoot that he felt he could pull it off.`\
+https://www.nytimes.com/2026/06/25/movies/odyssey-christopher-nolan.html
+
+**Newbery Medalist Kwame Alexander Starts an Imprint at Sourcebooks**\
+`Kwame Alexander is starting up an imprint at Sourcebooks, an innovative publisher that has found success in giving authors larger roles in the publishing process.`\
+https://www.nytimes.com/2026/06/25/books/kwame-alexander-sourcebooks.html
+
+**Is it Time for a New Sexual Revolution?**\
+`One that actually brings men and women together.`\
+https://www.nytimes.com/video/opinion/100000010983086/is-it-time-for-a-new-sexual-revolution.html
+
+**A Generational Shift in New York City Politics**\
+`Younger voters want to remake the system, not fix it, a former party official said. Their candidates won on Tuesday.`\
+https://www.nytimes.com/2026/06/25/nyregion/a-generational-shift-in-new-york-city-politics.html
+
+**For Gloomy Vancouver Fans, the World Cup Is Glorious**\
+`The city has the N.H.L.’s worst team and an M.L.S. franchise that is threatening to leave. But it was able to celebrate after hosting Canada’s first victory at a men’s World Cup.`\
+https://www.nytimes.com/2026/06/25/arts/for-gloomy-vancouver-fans-the-world-cup-is-glorious.html
+
+**How to Meet 1,500 Artists in 5 Days at Upstate Art Weekend**\
+`Upstate Art Weekend , starting Thursday, brings together New York artists and audiences, and offers everything from icebergs to Arte Povera to keep you cool.`\
+https://www.nytimes.com/2026/06/25/arts/design/upstate-art-weekend-new-york.html
+
+**How Honda’s Pledge to Go All-Electric Unraveled**\
+`A derailed gamble led Honda to its first-ever annual loss and has intensified scrutiny over the future of its chief executive.`\
+https://www.nytimes.com/2026/06/25/business/honda-ev-electric-pledge.html
+
+**‘Supergirl’ Review: This Glass Ceiling Is Made of Kryptonite**\
+`Milly Alcock is naturally appealing in this derivative, if altogether watchable, superhero movie.`\
+https://www.nytimes.com/2026/06/25/movies/supergirl-review.html
+
+**‘Romería’ Review: What Actually Happened to Her Parents?**\
+`In this semi-autobiographical drama, a young woman in Spain whose birth parents died of AIDS-related illnesses faces a complicated reunion with her extended family.`\
+https://www.nytimes.com/2026/06/25/movies/romeria-review.html
+
+**‘Lucky Strike’ Review: Fighting a Battle Behind Enemy Lines**\
+`This World War II movie is a nuts-and-bolts survival thriller that recalls a bygone era of Greatest Generation patriotism.`\
+https://www.nytimes.com/2026/06/25/movies/lucky-strike-review.html
+
+**‘The Invite’ Review: Who’s Afraid of a Last-Minute Dinner Party**\
+`In this witty comedy, Seth Rogen and Olivia Wilde star as a millennial couple whose tense marriage gets a wild jolt from their neighbors.`\
+https://www.nytimes.com/2026/06/25/movies/the-invite-movie-review-seth-rogen-olivia-wilde.html
+
+**‘Drunken Noodles’ Review: Saucy Encounters**\
+`Over two blurred summers, an intern at an art gallery experiences solitude and pleasure with the men he encounters.`\
+https://www.nytimes.com/2026/06/25/movies/drunken-noodles-review.html
+
+**‘Bouchra’ Review: All Too Human**\
+`In this 3-D animation, a New Yorker who’s also a coyote tries to come to terms with her mother while working on an autobiographical movie.`\
+https://www.nytimes.com/2026/06/25/movies/bouchra-review.html
+
 **‘Couture’ Review: No Common Thread**\
 `Angelina Jolie plays a woman preparing for a Paris runway show in Alice Winocour’s fragmentary look at the rarefied world of high fashion.`\
 https://www.nytimes.com/2026/06/25/movies/couture-review-angelina-jolie.html
@@ -89,112 +197,4 @@ https://www.nytimes.com/es/2026/06/25/espanol/ejercicio-intenso-cortisol.html
 **Europe Heat Wave Live Updates: Scorching Weather Persists After Record-Breaking Day**\
 `Temperatures on Thursday are forecast to remain sharply above normal, ranging from high 30s to low 40s degrees Celsius, or around 100 Fahrenheit.`\
 https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
-
-**Venezuela Residents Describe Terror as Deadly Earthquake Struck**\
-`Buildings collapsed, windows rattled and residents poured into the streets in Venezuela’s capital and nearby cities after two major earthquakes hit.`\
-https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake-caracas.html
-
-**North Korea Deploys Its First Destroyer, Vowing to Project Nuclear Power by Sea**\
-`The 5,000-ton Choe Hyon is the largest warship North Korea has ever built and is said to be armed with nuclear-capable missiles.`\
-https://www.nytimes.com/2026/06/25/world/asia/north-korea-destroyer-nuclear.html
-
-**Donde los multimillonarios veranean, trabajadores migrantes enfrentan fríos mortales**\
-`La vida dura de un paisajista guatemalteco y su solitaria muerte revelan el costo humano que entraña el cuidado paisaje de los Hamptons.`\
-https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/muerte-guatemala-camay-hamptons.html
-
-**El México-Irlanda fue el partido más caluroso de la historia del Mundial: ‘Una locura’**\
-`Jugadores exhaustos, aficionados desmayados y bolsitas de agua lanzadas desde la banda. Así fue aquel encuentro de 1994 en Orlando, considerado uno de los más calurosos en la historia de los Mundiales.`\
-https://www.nytimes.com/es/2026/06/25/espanol/deportes/mundial-mexico-irlanda-calor-historia.html
-
-**Jimmy Fallon Teases Trump’s Great American State Fair**\
-`“There’s even a dunk tank with JD Vance and a drunk tank with Kash Patel,” Fallon said.`\
-https://www.nytimes.com/2026/06/25/arts/television/jimmy-fallon-trump-state-fair.html
-
-**Mamdani’s Victories May Be a Headache for the Governor Who Has Backed Him**\
-`Gov. Kathy Hochul has worked with Mayor Zohran Mamdani on child care and second-home taxes. But the triumphs of democratic socialists on Primary Day could complicate her vision.`\
-https://www.nytimes.com/2026/06/25/nyregion/mamdani-hochul-new-york-elections.html
-
-**After Banner Night, D.S.A. Sharpens Its Policy and Political Ambitions**\
-`After democratic socialists captured two House primaries and several state legislative contests in New York, the group’s leaders mulled how to use their expanding influence.`\
-https://www.nytimes.com/2026/06/25/nyregion/dsa-mamdani-new-york.html
-
-**Trump Administration and the M.T.A. Clash Over Penn Station Redesign**\
-`President Trump has made revitalizing the cramped train hall a priority, but he will need the cooperation of a transit agency his administration has long criticized.`\
-https://www.nytimes.com/2026/06/25/nyregion/penn-station-redesign-trump-amtrak-mta.html
-
-**Why These Affordable Homes Face a 31% Rent Increase**\
-`Mayor Zohran Mamdani has promised relief for rent-stabilized tenants. But thousands of apartments under a separate city program are subject to increases, creating an awkward contrast.`\
-https://www.nytimes.com/2026/06/25/nyregion/rent-increase-tracey-towers-mitchell-lama.html
-
-**Mamdani’s Rent Freeze Could Become Reality Today. Here’s What to Know.**\
-`A freeze for rent-stabilized homes is expected when a city panel votes on Mayor Zohran Mamdani’s plan on Thursday, but the move is likely to face legal challenges.`\
-https://www.nytimes.com/2026/06/25/nyregion/nyc-rent-freeze-what-to-know.html
-
-**Mamdani Ends Day Care Contract With Eric Adams’s Former Romantic Partner**\
-`The city had accused Jasmine Ray of fiscal mismanagement. She said that she had been unfairly targeted because of her ties to the former mayor.`\
-https://www.nytimes.com/2026/06/25/nyregion/mamdani-adams-day-care.html
-
-**NYT Spelling Bee Answers for June 25, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/25/crosswords/spelling-bee-forum.html
-
-**Venezuela’s Neighbors Offer Aid in Earthquake Response**\
-`Officials from the United States, El Salvador and the Dominican Republic said they would send rescue teams and humanitarian assistance to Caracas.`\
-https://www.nytimes.com/2026/06/24/world/americas/venezuela-earthquake-international-response.html
-
-**Nueva York en alerta por un misterioso evento en el Madison Square Garden**\
-`El Times ha confirmado que Taylor Swift ha alquilado la arena deportiva para el fin de semana del 4 de julio, lo que sugiere que tiene previsto organizar una celebración de varios días.`\
-https://www.nytimes.com/es/2026/06/25/espanol/cultura/taylor-swift-boda-madison-square-garden.html
-
-**Word of the Day: apotheosis**\
-`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/25/learning/word-of-the-day-apotheosis.html
-
-**Oil Prices Hover Around Prewar Levels as Gulf Shipping Resumes**\
-`Oil prices fell, moving closer to levels not seen since the war in Iran began in February.`\
-https://www.nytimes.com/2026/06/25/business/oil-prices-gas-iran.html
-
-**Así se ve una Europa agobiada por el calor**\
-`El calor extremo está trastocando la vida cotidiana en todo el continente europeo.`\
-https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-calor.html
-
-**There’s One Clear Reason Why Americans Are Gloomy About A.I.**\
-`The key is understanding how our labor market and our social net differs from the rest of the world.`\
-https://www.nytimes.com/2026/06/25/opinion/ai-americans-pessimism.html
-
-**Sismo en Venezuela: el terremoto de 7,5 es el más fuerte en un siglo**\
-`El Servicio Geológico de EE. UU. calcula que podría ser mucho más mortífero que el terremoto de magnitud 7,7 que sacudió el país en 1900.`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezuela-magnitud.html
-
-**Suspect in Kansas City Shootings Found Dead in Basement, Police Say**\
-`Officers found the body of a man believed to be Oscar Sanchez-Munoz, the suspect in a series of roadway shootings last week, inside a home they had already searched.`\
-https://www.nytimes.com/2026/06/25/us/suspect-in-kansas-city-shootings-found-dead-in-basement-police-say.html
-
-**For America’s 250th, 16 Opinion Writers on the Country at Its Best**\
-`Two hundred and fifty years in, Opinion writers offer 16 reasons why the national experiment endures.`\
-https://www.nytimes.com/interactive/2026/06/25/opinion/america-250-birthday.html
-
-**To Escape the Heat, Parisians Jump into an Old Industrial Canal**\
-`Crowds are filling the Canal Saint-Martin in Paris, as temperatures soar above 100 degrees Fahrenheit. Forty people drowned while swimming in other waterways.`\
-https://www.nytimes.com/2026/06/25/world/europe/paris-canal-swimming-heatwave-france.html
-
-**La derecha de Estados Unidos se replantea su postura sobre Irán**\
-`El presidente Trump ha intentado proyectar una nueva imagen del gobierno iraní mientras busca un acuerdo de paz. Pero hay indicios de que el cambio de actitud del Partido Republicano hacia Irán va mucho más allá.`\
-https://www.nytimes.com/es/2026/06/25/espanol/mundo/maga-republicanos-iran.html
-
-**Quote of the Day: Trump Describes Venezuela as ‘Happy’. Its People Disagree.**\
-`Quotation of the Day for Thursday, June 25, 2026.`\
-https://www.nytimes.com/2026/06/25/pageoneplus/quote-of-the-day-trump-describes-venezuela-as-happy-its-people-disagree.html
-
-**A Puppy-Abuse Case in China, Caught on Video, Prompts Rare Public Protest**\
-`After a man was filmed torturing dogs, hundreds gathered in a rare demonstration that the police tried to break up. For many, the sit-in was their first civic action.`\
-https://www.nytimes.com/2026/06/25/world/asia/dog-animal-abuse-china-protest.html
-
-**7.5-Magnitude Quake Is Largest to Hit Venezuela in More Than a Century**\
-`The U.S. Geological Survey estimated that it could be far deadlier than a 7.7-magnitude earthquake that struck the country in 1900.`\
-https://www.nytimes.com/2026/06/24/world/americas/venezuela-strongest-earthquakes.html
-
-**Trump’s D.C. Construction Spree Could Cost More Than $1 Billion**\
-`There has been no complete public accounting of the president’s construction spree, so The Times pieced one together for projects with known estimates.`\
-https://www.nytimes.com/interactive/2026/06/24/us/trump-dc-costs-ballroom-arch-pool.html
 

@@ -1,3 +1,75 @@
+**‘Couture’ Review: No Common Thread**\
+`Angelina Jolie plays a woman preparing for a Paris runway show in Alice Winocour’s fragmentary look at the rarefied world of high fashion.`\
+https://www.nytimes.com/2026/06/25/movies/couture-review-angelina-jolie.html
+
+**These Birds’ Backflips Are Fueled by Sugar**\
+`An ancient dietary change made the manakin’s flashy courtship display possible, a new study suggests.`\
+https://www.nytimes.com/2026/06/25/science/genetics-birds-manakins.html
+
+**Can a Youth Boom Survive South Sudan’s Education Crisis?**\
+`South Sudan is the world’s newest nation and its education system is on the verge of collapse, putting an entire generation at risk.`\
+https://www.nytimes.com/2026/06/25/world/africa/south-sudan-usaid-education.html
+
+**Bible Passages May Soon Be Required Reading in Texas Public Schools**\
+`Texas is set to pass what may be the first state-mandated book list for public school students. It focuses on classic literature and includes Bible excerpts.`\
+https://www.nytimes.com/2026/06/25/us/texas-schools-book-list.html
+
+**The Little Rituals That Prepare You for Sleep**\
+`Origami, cleaning countertops, talking to plants — here are some ways readers wind down for the evening.`\
+https://www.nytimes.com/2026/06/25/well/sleep-evening-rituals-habits.html
+
+**Fermented Food: Does Eating Kimchi or Sauerkraut Have Health Benefits?**\
+`Researchers are starting to understand how foods like kimchi, yogurt and sauerkraut affect our health.`\
+https://www.nytimes.com/2026/06/25/well/eat/fermented-food-health-benefits.html
+
+**Best Sapphic Romance Books, According to Ashley Herring Blake**\
+`The author Ashley Herring Blake recommends swoony Sapphic novels that celebrate love between women across eras and genres.`\
+https://www.nytimes.com/2026/06/25/books/sapphic-romance-books.html
+
+**A Bold Idea to Make Elite Colleges Affordable**\
+`Wanting to make top schools look less like country clubs and more like the country shouldn’t be a partisan issue.`\
+https://www.nytimes.com/2026/06/25/opinion/college-cost-education-tuition-ivy-league.html
+
+**M.I.T. Didn’t Publish an Antisemitism Report. A Professor Wrote His Own.**\
+`Now, the professor is in a fight with the university over whether he can use M.I.T. money to promote a book critical of the school.`\
+https://www.nytimes.com/2026/06/25/us/mit-antisemitism-book.html
+
+**The Gramercy Arts Theatre: Still Thriving After 111 Years**\
+`Repertorio Español, the resident company, performs works like “La Gringa,” the longest-running Off Broadway Spanish-language play in New York City.`\
+https://www.nytimes.com/2026/06/25/realestate/the-gramercy-arts-theatre-still-thriving-after-111-years.html
+
+**Fox, Bravo and BET Look to Take Microdramas Mainstream**\
+`Major networks like Fox, Bravo and BET are translating shows to the short-form video format that last year made $11 billion in global revenue.`\
+https://www.nytimes.com/2026/06/25/arts/television/microdrama-short-tv-series-bravo-lifetime-bet.html
+
+**This Doctor Can Change the Color of Your Eyes. Should He?**\
+`Francis Ferrari, a French ophthalmologist, invented a controversial procedure that can change eye color. People from around the world are willing to take the risk.`\
+https://www.nytimes.com/2026/06/25/style/eye-color-change-surgery-flaak.html
+
+**Is Space Tourism Finally Ready for Takeoff?**\
+`Delays and rising prices have made the promise of space travel for ordinary people more elusive than ever. Will that ever change?`\
+https://www.nytimes.com/2026/06/25/travel/space-tourism-future.html
+
+**An American Knife Maker in Australia**\
+`Bud Heyser, who grew up in Kentucky, now finds himself forging custom blades in Melbourne.`\
+https://www.nytimes.com/2026/06/25/fashion/craftsmanship-an-american-knife-maker-in-melbourne-australia.html
+
+**A Custom Globe Celebrates Asprey’s 245th Anniversary**\
+`The jeweler commissioned Leonardo Frigo, an Italian artisan who uses traditional methods and materials, to create the limited-edition sphere.`\
+https://www.nytimes.com/2026/06/25/fashion/a-custom-globe-celebrates-aspreys-245th-anniversary.html
+
+**In Venice, a Family’s History in Wood and Glass**\
+`The Trevisanellos, whose shop opened in 1960, sell hundreds of decorative frames a year.`\
+https://www.nytimes.com/2026/06/25/fashion/craftsmanship-frames-venice.html
+
+**5 Photographs That Shine in National Geographic’s New Museum**\
+`Visual storytelling is at the core of the National Geographic Museum of Exploration, which opens on Friday in downtown Washington, D.C.`\
+https://www.nytimes.com/2026/06/25/arts/national-geographic-museum-dc-photography.html
+
+**Paul Rudnick on His Favorite Books and His New ‘Tuxedo Society’**\
+`“I can always wait for the streaming version and hope for nudity,” says the writer, whose new novel, “The Tuxedo Society,” is about a cadre of gay spies.`\
+https://www.nytimes.com/2026/06/25/books/review/paul-rudnick-the-tuxedo-society.html
+
 **Powerful Back-to-Back Earthquakes Hit Venezuela**\
 `A 7.2-magnitude earthquake hit central Venezuela on Wednesday and was followed by one with a magnitude of 7.5, killing dozens of people. The stronger quake was the worst the country had seen since 1900.`\
 https://www.nytimes.com/video/world/americas/100000010990980/venezuela-earthquake.html
@@ -125,76 +197,4 @@ https://www.nytimes.com/2026/06/24/world/americas/venezuela-strongest-earthquake
 **Trump’s D.C. Construction Spree Could Cost More Than $1 Billion**\
 `There has been no complete public accounting of the president’s construction spree, so The Times pieced one together for projects with known estimates.`\
 https://www.nytimes.com/interactive/2026/06/24/us/trump-dc-costs-ballroom-arch-pool.html
-
-**After Trump’s Outburst, Senate G.O.P. Reverses Course on Iran**\
-`In a late-night vote aimed at mollifying the president, Senate Republicans rejected a resolution directing him to end the war against Iran, a day after a bipartisan rebuke.`\
-https://www.nytimes.com/2026/06/24/us/politics/trump-senate-iran.html
-
-**Representative Tom Kean, Missing for Months, Is Back Home in New Jersey**\
-`The congressman, who has been absent from Washington since March, answered the door of his home on Wednesday evening. He was wearing a suit and tie.`\
-https://www.nytimes.com/2026/06/24/nyregion/tom-kean-missing-found.html
-
-**What Does a Knicks Trash Can Cost? $168, or for One Woman, Her Job.**\
-`After a video of Angie Baez taking a Knicks-themed trash can went viral, a JPMorgan Chase spokeswoman said she was no longer with the company.`\
-https://www.nytimes.com/2026/06/24/nyregion/knicks-trash-can-jpmorgan-chase.html
-
-**Los venezolanos del sur de Florida llaman a sus familiares y organizan la ayuda**\
-`La numerosa comunidad venezolana de la zona de Miami está “desesperada” por ponerse en contacto con sus familiares.`\
-https://www.nytimes.com/es/2026/06/24/espanol/estados-unidos/venezolanos-florida-doral-ayuda-terremoto.html
-
-**NYT Crossword Answers for June 25, 2026**\
-`There’s some shady business happening in Tarun Krishnamurthy’s puzzle.`\
-https://www.nytimes.com/2026/06/24/crosswords/daily-puzzle-2026-06-25.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/americas/100000010990822/25vid-venezuela-quake-luis-musano-3775.html
-
-**The World Cup of Jerseys**\
-`48 countries competing. 96 jerseys on display. Vote for your favorite designs and see how they rank with Times readers.`\
-https://www.nytimes.com/interactive/2026/06/24/style/world-cup-jersey-game.html
-
-**Venezuela Rocked by Two Strong Earthquakes**\
-`A 7.2-magnitude earthquake that was followed by a 7.5-magnitude earthquake hit central Venezuela on Wednesday, damaging buildings and knocking out electricity.`\
-https://www.nytimes.com/video/world/americas/100000010990603/venezuela-two-strong-earthquakes.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/admin/100000010990740/25vid-nighttime-chacao-embed.html
-
-**Venezuelans in South Florida Call Relatives and Organize Aid**\
-`The large Venezuelan community in the Miami area is “desperate” to reach family members.`\
-https://www.nytimes.com/2026/06/24/us/venezuela-south-florida-earthquake.html
-
-**Dos terremotos sacuden a Venezuela**\
-`Después de que dos fuertes sismos se registraran en el país sudamericano, crece la preocupación de que los daños puedan ser devastadores.`\
-https://www.nytimes.com/es/2026/06/24/espanol/america-latina/terremotos-venezuela-fotos.html
-
-**Ex-Youth Pastor Charged With Wife’s Murder, 20 Years After Her Fatal Fall**\
-`Bernadette Vander Meer’s death in Zion National Park in Utah had been considered an accident. Prosecutors reopened the case in 2022 and now say her husband was having an affair with an underage girl.`\
-https://www.nytimes.com/2026/06/24/us/zion-national-park-angels-landing-murder.html
-
-**Queens State Assembly Candidate Charged With Forgery for A.I. Use**\
-`The arraignment on Wednesday is said to be the first time a politician in New York is facing criminal charges relating to A.I. interference in an election.`\
-https://www.nytimes.com/2026/06/24/nyregion/queens-politician-ai-charge.html
-
-**Judge Throws Out Federal Suit Against 4 N.J. ‘Sanctuary’ Cities**\
-`Judge Evelyn Padin ruled the Justice Department’s lawsuit ​was flawed because it did not also challenge a state directive limiting local cooperation with federal immigration agents.`\
-https://www.nytimes.com/2026/06/24/us/politics/new-jersey-sanctuary-cities-lawsuit.html
-
-**Avila Chevalier Won Despite Far-Left Views. Will They Hurt Democrats?**\
-`Darializa Avila Chevalier’s questionable social media history and outlier politics are already being highlighted by Republican leaders as they look to November.`\
-https://www.nytimes.com/2026/06/24/nyregion/avila-chevalier-espaillat.html
-
-**Photos: Earthquakes Strike Venezuela**\
-`Two powerful quakes shook the South American country, causing death and destruction.`\
-https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.html
-
-**NATO’s Leader Makes His Case to Trump for Preserving the Alliance**\
-`Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
-https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
-
-**Dolly Parton’s Fans Were Worried. She Came to a Truck Stop to See Them.**\
-`Fans have been concerned about the singer’s health since she postponed shows last year. So some were thrilled to catch a glimpse of her on Wednesday.`\
-https://www.nytimes.com/2026/06/24/us/dolly-parton-truck-stop.html
 
