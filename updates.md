@@ -1,3 +1,15 @@
+**Frank Guarini, Seven-Term New Jersey Representative, Dies at 101**\
+`A reform-minded Democrat, he served on the tax-writing House Ways and Means Committee and offered a pragmatic mix of progressive legislation and conservative fiscal philosophy.`\
+https://www.nytimes.com/2026/06/25/us/politics/frank-guarini-dead.html
+
+**Chemours to Pay $450M in First Federal PFAS Settlement**\
+`The settlement addresses the dumping of PFAS “forever chemicals,” which have been linked to cancer and other risks, by Chemours in several states.`\
+https://www.nytimes.com/2026/06/25/climate/trump-pfas-forever-chemical-settlement-chemours.html
+
+**Vast Destruction Along Venezuela’s Coast After Earthquakes, in Maps and Photos**\
+`Photos and videos show a coastal area north of Caracas sustained some of the worst damage from earthquakes in Venezuela on Wednesday.`\
+https://www.nytimes.com/interactive/2026/06/25/world/americas/venezuela-earthquake-map-damage.html
+
 **Today, In Short**\
 `“The Odyssey.” National parks. And sleep rituals.`\
 https://www.nytimes.com/2026/06/25/briefing/today-in-short.html
