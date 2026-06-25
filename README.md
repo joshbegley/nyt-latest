@@ -1,3 +1,7 @@
+**Are You a Gen Z Job Seeker?**\
+`It’s rough out there. We want to hear about it.`\
+https://www.nytimes.com/2026/06/25/style/gen-z-jobs.html
+
 **Devastating Earthquakes Will Test Venezuela’s Newfound Alliance With U.S.**\
 `President Trump has boasted of the success of an armed intervention in Venezuela. A natural disaster raises pressure to match rhetoric with action.`\
 https://www.nytimes.com/2026/06/25/world/americas/devastating-earthquakes-will-test-venezuelas-newfound-alliance-with-us.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/06/25/technology/apple-prices-macbooks-ipads.html
 **David Clayton-Thomas, Canadian Singer of Blood, Sweat & Tears, Dies at 84**\
 `He was also the key lyricist of the Grammy-winning, genre-blending band, whose hits included “Spinning Wheel,” “And When I Die” and “You’ve Made Me So Very Happy.”`\
 https://www.nytimes.com/2026/06/25/arts/music/david-clayton-thomas-dead.html
-
-**Supreme Court Rejects Lawsuit Against Bayer Alleging Roundup Weedkiller Caused Cancer**\
-`The court’s decision is likely to determine the future of thousands of lawsuits against Bayer, which manufactures the weedkiller, over similar claims.`\
-https://www.nytimes.com/2026/06/25/us/politics/supreme-court-weedkiller-roundup-bayer.html
 
 **Venezuela en vivo: las labores de rescate avanzan tras los mayores terremotos en décadas**\
 `Un doblete sísmico dejó al menos 164 muertos, según las autoridades. En La Guaira se cree que cientos de personas quedaron atrapadas en los escombros de los edificios derrumbados.`\
