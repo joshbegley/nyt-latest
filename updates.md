@@ -1,3 +1,7 @@
+**Inside the C.D.C.’s Mad Scramble to Meet Kennedy’s Demands**\
+`A cache of internal emails offers a look at the pressure the nation’s public health officials faced from the new health secretary in the early months of the Trump administration.`\
+https://www.nytimes.com/2026/06/25/us/politics/kennedy-cdc-emails.html
+
 **Are You a Gen Z Job Seeker?**\
 `It’s rough out there. We want to hear about it.`\
 https://www.nytimes.com/2026/06/25/style/gen-z-jobs.html
