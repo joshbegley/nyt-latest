@@ -1,3 +1,7 @@
+**Congo Ebola Crisis: Contact Tracing Is Dangerously Behind, Officials Warn**\
+`Most of the people testing positive for Ebola in the Democratic Republic of Congo are not on health workers’ radar, suggesting that contact tracing is lagging dangerously behind.`\
+https://www.nytimes.com/2026/06/25/world/africa/africa-cdc-congo-ebola.html
+
 **How Long Can a Person Survive Under Rubble?**\
 `It depends on water, air and how quickly rescuers are able to find people.`\
 https://www.nytimes.com/2026/06/25/world/americas/earthquake-rubble-survival-venezuela-rescue.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/25/world/africa/kenya-protest-nairobi-shutdown.h
 **‘Superman’ and ‘Heated Rivalry’ Alums to Broadway in ‘Three Days of Rain’**\
 `A winter revival of the Richard Greenberg drama will star David Corenswet, Yvonne Strahovski and François Arnaud.`\
 https://www.nytimes.com/2026/06/25/theater/three-days-of-rain-broadway-david-corenswet-francois-arnaud.html
-
-**Books Our Editors Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/06/25/books/review/new-recommended-books.html
 
 **Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
 `Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\

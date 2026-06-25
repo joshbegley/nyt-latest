@@ -1,3 +1,7 @@
+**Congo Ebola Crisis: Contact Tracing Is Dangerously Behind, Officials Warn**\
+`Most of the people testing positive for Ebola in the Democratic Republic of Congo are not on health workers’ radar, suggesting that contact tracing is lagging dangerously behind.`\
+https://www.nytimes.com/2026/06/25/world/africa/africa-cdc-congo-ebola.html
+
 **How Long Can a Person Survive Under Rubble?**\
 `It depends on water, air and how quickly rescuers are able to find people.`\
 https://www.nytimes.com/2026/06/25/world/americas/earthquake-rubble-survival-venezuela-rescue.html
