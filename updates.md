@@ -1,3 +1,11 @@
+**Avila Chevalier Won Despite Far-Left Views. Will They Hurt Democrats?**\
+`Darializa Avila Chevalier’s questionable social media history and outlier politics are already being highlighted by Republican leaders as they look to November.`\
+https://www.nytimes.com/2026/06/24/nyregion/avila-chevalier-espaillat.html
+
+**Photos: Earthquakes Strike Venezuela**\
+`After two powerful quakes shook the South American country, concern is growing that the damage could be devastating.`\
+https://www.nytimes.com/2026/06/24/world/americas/earthquakes-venezuela-photos.html
+
 **NATO’s Leader Makes His Case to Trump for Preserving the Alliance**\
 `Using charts, Secretary General Mark Rutte appeared to defuse the president’s anger by showing that European countries were “equalizing” defense spending with the U.S.`\
 https://www.nytimes.com/2026/06/24/us/politics/nato-secretary-general-trump-meeting.html
