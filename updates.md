@@ -1,3 +1,23 @@
+**Marianne Lake, a Potential Dimon Successor, Leaves JPMorgan**\
+`Another potential successor, Marianne Lake, is leaving JPMorgan, as the longstanding chief executive enters his third decade atop the bank.`\
+https://www.nytimes.com/2026/06/25/business/jamie-dimon-jpmorgan-succession-petno-rohrbaugh.html
+
+**Venezuela en vivo: aumentan las víctimas mortales del sismo mientras avanzan los esfuerzos de rescate**\
+`Las autoridades dijeron que los terremotos de magnitud 7,2 y 7,5 dejaron al menos 164 muertos y cientos de desaparecidos. Aún no se conoce el alcance total de los daños.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
+
+**Here’s What It Means to Be a Democratic Socialist**\
+`Universal health care, taxing the wealthy and opposition to military aid to Israel are among the movement’s key tenets.`\
+https://www.nytimes.com/2026/06/25/us/politics/heres-what-it-means-to-be-a-democratic-socialist.html
+
+**Trump Administration Forms Partnership to Bank DNA From Imperiled Species**\
+`The government is teaming up with Colossal Biosciences, a private company that claims to have revived extinct dire wolves, to store samples from at-risk animals and plants.`\
+https://www.nytimes.com/2026/06/25/climate/colossal-biosciences-gene-bank.html
+
+**Who Is Ahead in Wyoming's At-Large Congressional District?**\
+`Track the latest polls in Wyoming's At-Large Congressional District.`\
+https://www.nytimes.com/interactive/polls/wyoming-us-house-at-large-polls-2026.html
+
 **Who Is Ahead in Wisconsin's 6th Congressional District?**\
 `Track the latest polls in Wisconsin's 6th Congressional District.`\
 https://www.nytimes.com/interactive/polls/wisconsin-us-house-6-polls-2026.html
