@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/06/25/weather/london-climate-action-extreme-heat-wa
 `Industry leaders had worried that innovations in chip miniaturization were no longer possible.`\
 https://www.nytimes.com/2026/06/25/technology/ibm-technology-tinier-chips.html
 
-**A Major Victory for Progressive Democrats**\
+**Mayor Mamdani Flexes His Power in the Midterms**\
 `Candidates backed by Mayor Zohran Mamdani of New York swept the city’s Democratic primaries.`\
 https://www.nytimes.com/2026/06/25/podcasts/the-daily/mamdani-democrats-primaries-new-york.html
 
