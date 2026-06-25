@@ -1,3 +1,11 @@
+**Who Is Ahead in Tennessee's 5th Congressional District?**\
+`Track the latest polls in Tennessee's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/tennessee-us-house-5-polls-2026.html
+
+**Who Is Ahead in Ohio's 7th Congressional District?**\
+`Track the latest polls in Ohio's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-7-polls-2026.html
+
 **Who Is Ahead in New Mexico's 2nd Congressional District?**\
 `Track the latest polls in New Mexico's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-mexico-us-house-2-polls-2026.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/interactive/polls/new-hampshire-us-house-1-polls-2026.ht
 **Driver Plows Into Crowd of World Cup Fans in Mexico, Authorities Say**\
 `Videos show a car repeatedly accelerating into a crowd in Cabo San Lucas after Mexico won a World Cup game. The authorities said at least 17 people were injured and the driver was arrested.`\
 https://www.nytimes.com/2026/06/25/world/americas/car-ramming-mexico-world-cup-cabo-san-lucas.html
-
-**‘Jackass: Best and Last’ Review: Johnny Knoxville and Friends Reunite**\
-`In what purports to be the final installment of the MTV franchise, Johnny Knoxville and friends reunite to reminisce.`\
-https://www.nytimes.com/2026/06/25/movies/jackass-best-and-last-review.html
-
-**Britain Breaks June Temperature Record as Deadly Heat Stifles Europe**\
-`A Spanish monitoring agency said an estimated 212 deaths could be attributed to the heat wave since Sunday. Five people in Italy have died from heat exposure this week, the country’s main news agency said.`\
-https://www.nytimes.com/live/2026/06/25/weather/europe-heat-wave-uk-france
 

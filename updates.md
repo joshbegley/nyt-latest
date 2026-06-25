@@ -1,3 +1,11 @@
+**Who Is Ahead in Tennessee's 5th Congressional District?**\
+`Track the latest polls in Tennessee's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/tennessee-us-house-5-polls-2026.html
+
+**Who Is Ahead in Ohio's 7th Congressional District?**\
+`Track the latest polls in Ohio's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-7-polls-2026.html
+
 **Who Is Ahead in New Mexico's 2nd Congressional District?**\
 `Track the latest polls in New Mexico's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-mexico-us-house-2-polls-2026.html
