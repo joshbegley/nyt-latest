@@ -1,3 +1,7 @@
+**Gracie Abrams Talks About Her New Single, ‘Look at My Life’**\
+`On “Popcast,” Gracie Abrams discusses “Look at My Life,” her newest single, ahead of her upcoming album, “Daughter From Hell.”`\
+https://www.nytimes.com/video/podcasts/100000010992070/gracie-abrams-new-single-look-at-my-life.html
+
 **Supreme Court T.P.S. Ruling on Haiti Plunges Many Migrants Into Limbo**\
 `The decision renders 1.3 million people from more than a dozen countries, many who have lived in the United States for decades, vulnerable to deportation.`\
 https://www.nytimes.com/2026/06/25/us/supreme-court-tps-ruling-haitians-reaction.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/2026/06/25/business/jamie-dimon-jpmorgan-succession-petn
 **Venezuela en vivo: aumentan las víctimas mortales del sismo mientras avanzan los esfuerzos de rescate**\
 `Las autoridades dijeron que los terremotos de magnitud 7,2 y 7,5 dejaron al menos 164 muertos y cientos de desaparecidos. Aún no se conoce el alcance total de los daños.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
-
-**Here’s What It Means to Be a Democratic Socialist**\
-`Universal health care, taxing the wealthy and opposition to military aid to Israel are among the movement’s key tenets.`\
-https://www.nytimes.com/2026/06/25/us/politics/heres-what-it-means-to-be-a-democratic-socialist.html
-
-**Trump Administration Forms Partnership to Bank DNA From Imperiled Species**\
-`The government is teaming up with Colossal Biosciences, a private company that claims to have revived extinct dire wolves, to store samples from at-risk animals and plants.`\
-https://www.nytimes.com/2026/06/25/climate/colossal-biosciences-gene-bank.html
 
 **Venezuela Live Updates: Rescuers Search for Survivors After Worst Quakes in Decades**\
 `Back-to-back earthquakes left at least 164 dead, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in the rubble of collapsed buildings.`\
