@@ -1,3 +1,87 @@
+**Book Club: Read ‘John of John,’ by Douglas Stuart, With the Book Review**\
+`In July, the Book Review Book Club will be discussing Stuart’s latest novel, about a profoundly isolated father and son, each grappling with long-held secrets.`\
+https://www.nytimes.com/2026/06/26/books/review/john-of-john-douglas-stuart-book-club.html
+
+**With ‘Supergirl,’ Milly Alcock is Learning to Accept the Fear**\
+`After “House of the Dragon,” a starring role in another big franchise, “Supergirl,” gave Milly Alcock pause. It’s “this new gift of learning to accept the fear.”`\
+https://www.nytimes.com/2026/06/26/movies/milly-alcock-supergirl-house-of-dragon.html
+
+**The Rent Board Delivers a Freeze to Mamdani**\
+`The 7-to-1 vote by the Rent Guidelines Board fulfilled one of the mayor’s key campaign promises and came two days after he had a triumphant primary night.`\
+https://www.nytimes.com/2026/06/26/nyregion/the-rent-board-delivers-a-freeze-to-mamdani.html
+
+**How Three Months of War Changed the Gulf Forever**\
+`Facing an emerging U.S.-Iran deal that leaves them vulnerable, Gulf Arab countries are reshaping their defense strategies, economies and trade routes.`\
+https://www.nytimes.com/2026/06/26/world/middleeast/gulf-changed-forever-iran-war.html
+
+**Pick Your Favorite Pied-à-Terre in Paris**\
+`A sunny studio in Saint-Germain-des-Prés, a triplex with outdoor space in the Third Arrondissement, and a furnished one-bedroom in Porte de Saint-Cloud.`\
+https://www.nytimes.com/2026/06/26/realestate/pick-your-favorite-pied-a-terre-in-paris.html
+
+**‘Jackass: Best and Last’: A Moving Look at Male Friendship and Aging (Really)**\
+`While it may seem as if these pranksters have cheated death, the latest movie in the series starring Johnny Knoxville reminds us they’re mere mortals.`\
+https://www.nytimes.com/2026/06/26/movies/jackass-best-and-last-review-johnny-knoxville.html
+
+**11 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/06/26/movies/new-movies-this-week-critics.html
+
+**In ‘The Vampire Lestat,’ He’s Partying Like a Bloodsucking Rock Star**\
+`Sam Reid has gone glam in the latest season of this horror series, originally titled “Anne Rice’s Interview With the Vampire.”`\
+https://www.nytimes.com/2026/06/26/arts/television/the-vampire-lestat-sam-reid.html
+
+**39 Fun Things to Do With Your Kids in N.Y.C. This Summer**\
+`Harvest the fruits of the local ice cream scene, celebrate the World Cup and the nation’s birthday, and enjoy a variety of diversions outdoors.`\
+https://www.nytimes.com/2026/06/26/arts/nyc-summer-things-to-do-events-kids-family.html
+
+**How a Bird’s Habitat Can Change Its Song**\
+`For the Bachman’s sparrow, whether a song is passed to the next generation could depend, in part, on the wind and trees.`\
+https://www.nytimes.com/2026/06/26/science/birds-acoustics-birdsong.html
+
+**How a Jet Fuel Refinery Is Scrambling After the Iran War Oil Shock**\
+`For a mega-refinery in Ulsan, South Korea, a top exporter of jet fuel to the West Coast of the United States and other places, weaning off Middle Eastern oil is no small feat.`\
+https://www.nytimes.com/2026/06/26/world/asia/iran-war-korea-jet-fuel.html
+
+**The Supreme Court Is Unshackling the Presidency**\
+`Where is Chief Justice John Roberts? And why isn’t he putting limits on this administration?`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-ruling-tps-immigration-trump.html
+
+**Gracie Abrams on ‘Nepo’ Label, Writing With Paul Mescal and Her New Album**\
+`On her new album, “Daughter From Hell,” the 26-year-old star confronts growing up in a famous family and lessons from songwriting.`\
+https://www.nytimes.com/2026/06/26/arts/music/gracie-abrams-interview-popcast.html
+
+**Mewgenics Is a Mischievous Game About Breeding Cats**\
+`The year’s most interesting games also include a bodycam shooter in a Hong Kong underworld and a cryptographic puzzle drama.`\
+https://www.nytimes.com/2026/06/26/arts/mewgenics-review-tr-49-better-than-dead.html
+
+**Pro-MAGA Groups Spur Trump Push For Cultural Change In Schools**\
+`One nonprofit, Defending Education, initiated nearly a dozen civil rights investigations targeting diversity programs and transgender policies.`\
+https://www.nytimes.com/2026/06/26/us/politics/defending-education-smith-transgender.html
+
+**Word of the Day: numinous**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/26/learning/word-of-the-day-numinous.html
+
+**Freedom Con: Thousands of Men Gather for Christianity and Feats of Strength**\
+`Thousands of men and boys gathered in central Washington for masculinity, Christianity and right-wing politics.`\
+https://www.nytimes.com/2026/06/26/us/politics/freedom-con-christian-men.html
+
+**Tiffany & Company Marks America’s 250th**\
+`The jeweler’s New York flagship is to display a renovated 1893 clock with 13 dials, including one that tracks the number of years since independence.`\
+https://www.nytimes.com/2026/06/26/fashion/clock-tiffany-usa-250th-birthday.html
+
+**How Trump’s Education Department Is Targeting Trans Students**\
+`Our Washington correspondent Michael Bender explains how the Trump administration is trying to use a civil rights law that prohibits sex-based discrimination to roll back protections for transgender students.`\
+https://www.nytimes.com/video/us/100000010927494/how-trump-mcmahon-use-title-ix-to-target-transgender-students.html
+
+**I Was Kicked Out of China**\
+`Our Times correspondent, Vivian Wang, was expelled from China as part of Beijing’s crackdown on foreign journalists. She explains how a pressure campaign by the authorities made it challenging to do her job.`\
+https://www.nytimes.com/video/world/asia/100000010924036/china-journalist-expulsion.html
+
+**Venezuela Live Updates: More Rescuers Join Urgent Search for Quake Survivors**\
+`The United States and Mexico were among the latest to send support as the death toll from two powerful earthquakes climbed to 235. Thousands were injured, and hundreds remained missing or trapped under rubble.`\
+https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
+
 **Zelensky Steps Up Threats Against Belarus for Aiding Drone Attacks**\
 `Ukrainian officials say their northern neighbor is allowing its radio relay stations to be used to guide Russian attack drones more precisely.`\
 https://www.nytimes.com/2026/06/26/world/europe/zelensky-belarus-drones-relay.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010992544/the-aftermath-of-ve
 **NYT Crossword Answers for June 26, 2026**\
 `Spencer Leach returns to open our solving weekend.`\
 https://www.nytimes.com/2026/06/25/crosswords/daily-puzzle-2026-06-26.html
-
-**California Will Vote on a Billionaire Tax. Billionaires Aren’t Happy.**\
-`The wealthy are fighting back with two ballot issues that could nullify the measure in November. The battle reflects a broader tension as American politics contends with deep inequality.`\
-https://www.nytimes.com/2026/06/25/us/california-billionaires-tax-ballot-measure.html
-
-**‘Love Island USA’ Kicks Out Another Contestant for Racial Slur**\
-`After Alannah Keyser made her debut on Sunday, viewers quickly found a social media video in which she uses a slur while singing.`\
-https://www.nytimes.com/2026/06/25/arts/television/love-island-alannah-keyser-racial-slur.html
-
-**Venezuela busca sobrevivientes, y un milagro, tras un devastador doblete sísmico**\
-`Dos terremotos en rápida sucesión han llevado al país latinoamericano al límite de su resistencia.`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremoto-busqueda-sobrevivientes.html
-
-**Trump Issues Order to Reduce Pesticides in Food as Kennedy Allies Fume**\
-`The order, which calls for studying the health risks of pesticides in the food supply, does not involve new federal funding, and does not call for regulations or legislation.`\
-https://www.nytimes.com/2026/06/25/us/politics/trump-order-pesticides-rfk.html
-
-**Authorities in Kenya Shut Down Nairobi to Block Annual Protest**\
-`Highways were blocked off, and the security forces were deployed to the streets of Kenya’s capital on Thursday ahead of a protest commemorating the more than 60 people killed during the protests on June 25, 2024.`\
-https://www.nytimes.com/video/world/africa/100000010992633/kenya-protest-nairobi.html
-
-**¿Cuánto tiempo puede sobrevivir una persona bajo los escombros?**\
-`Depende del agua, del aire y de lo rápido que los equipos de rescate puedan encontrar a la gente`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-sobrevivir-escobros-cuanto-tiempo.html
-
-**Mamdani’s Rent Freeze Is Approved by New York City Board**\
-`Mayor Zohran Mamdani’s pledge to freeze rents for rent-stabilized apartments became a centerpiece of his campaign. Six months into his first year, a city panel delivered.`\
-https://www.nytimes.com/2026/06/25/nyregion/nyc-rent-freeze-vote-mamdani.html
-
-**Johnson Says He Will Send Housing Bill to Trump**\
-`After meeting with the president, the speaker said he would send him a housing bill that Mr. Trump declined to sign this week. There was no word on whether he would sign it.`\
-https://www.nytimes.com/2026/06/25/us/politics/mike-johnson-trump-housing-bill.html
-
-**La Guaira: una ciudad venezolana marcada por la tragedia**\
-`Los mortales deslaves de 1999 asestaron golpes duraderos a la empobrecida La Guaira. La respuesta de la presidenta en funciones, Delcy Rodríguez, podría ser un indicador de su futuro político.`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/la-guaira-tragedia.html
-
-**Blakeman Suggests Lander, a Jewish Politician, Would Have Aided Nazis**\
-`Brad Lander, a Democrat who won his House primary in New York, told voters to reject the “bigotry” of Bruce Blakeman, a Republican candidate for governor who is also Jewish.`\
-https://www.nytimes.com/2026/06/25/nyregion/blakeman-lander-jewish-nazis.html
-
-**How Trump Wants to Upend Voting in America**\
-`President Trump is demanding that Congress pass the SAVE America Act to change American elections. Our national politics reporter Nick Corasaniti looks at what’s in it.`\
-https://www.nytimes.com/video/us/politics/100000010989159/how-trump-wants-to-upend-voting-in-america.html
-
-**Trump Plans to Name Adam Candeub as Antitrust Chief in Justice Dept.**\
-`President Trump plans to nominate a tech critic and telecommunications lawyer, Adam Candeub, to lead the division.`\
-https://www.nytimes.com/2026/06/25/technology/trump-antitrust-doj-adam-candeub.html
-
-**Obama Says He Occupies a ‘Suite’ in Trump’s Head**\
-`Former President Barack Obama says President Trump has an obsession with him and that Mr. Trump “knows better” than to say “crazy stuff” to his face.`\
-https://www.nytimes.com/2026/06/25/us/politics/obama-trump-podcast-interview.html
-
-**‘Little Brother’ Review: Just the Two of Us**\
-`John Cena and Eric André star in this crude, but funny, movie about a real estate agent who encounters a blast from the past.`\
-https://www.nytimes.com/2026/06/25/movies/little-brother-review.html
-
-**Congo Ebola Crisis: Contact Tracing Is Dangerously Behind, Officials Warn**\
-`Most of the people testing positive for Ebola in the Democratic Republic of Congo are not on health workers’ radar, suggesting that contact tracing is lagging dangerously behind.`\
-https://www.nytimes.com/2026/06/25/world/africa/africa-cdc-congo-ebola.html
-
-**How Long Can a Person Survive Under Rubble?**\
-`It depends on water, air and how quickly rescuers are able to find people.`\
-https://www.nytimes.com/2026/06/25/world/americas/earthquake-rubble-survival-venezuela-rescue.html
-
-**He Was Deported Back to Venezuela and Started Anew. Then the Quakes Hit.**\
-`Venezuelans in South Florida were frantically trying to track down friends and relatives after two earthquakes in Venezuela. Jorge Erazo was among the missing.`\
-https://www.nytimes.com/2026/06/25/us/florida-venezuela-earthquake-missing-relatives.html
-
-**Military Leaders Sought Flu Vaccination Program Weeks Before Outbreak Hit Base**\
-`Officials anticipated a problem soon after Defense Secretary Pete Hegseth lifted the vaccine requirement in April.`\
-https://www.nytimes.com/2026/06/25/us/politics/military-flu-vaccine-policy.html
-
-**Who Is Ahead in Florida's 7th Congressional District?**\
-`Track the latest polls in Florida's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-7-polls-2026.html
-
-**Footage From Before and After Venezuelan Quakes Shows Scope of Damage**\
-`At least 235 people were dead and more than 4,300 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
-https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquakes-damage-before-after.html
-
-**Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
-`Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
-https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
