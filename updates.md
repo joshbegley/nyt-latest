@@ -1,3 +1,11 @@
+**N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
+`New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
+https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
+
+**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
+`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
 **Prosecutors in Kirk Case Found in Contempt for Media Statement**\
 `The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
 https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
