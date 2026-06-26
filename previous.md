@@ -1,3 +1,15 @@
+**Intel’s Chip Business Shows Signs of Life After Years of Struggle**\
+`It is the centerpiece of President Trump’s drive to make more chips in the United States, but the company still has a long way to go before it can be called a complete turnaround.`\
+https://www.nytimes.com/2026/06/26/technology/intel-turnaround.html
+
+**How a Niche Technology Became a Choke Point for A.I.**\
+`Advanced chip packaging, which boosts computing power for artificial intelligence, has made the United States more reliant on Taiwan than ever.`\
+https://www.nytimes.com/2026/06/26/technology/ai-advanced-chip-packaging-tsmc.html
+
+**The High School Pipeline to South Korea’s Chip-Making Fortunes**\
+`Huge memory-chip profits from the global A.I. boom have increased interest in semiconductor factory work. But behind the hype are uncertain job prospects.`\
+https://www.nytimes.com/2026/06/26/business/korea-chip-high-school.html
+
 **Cuando tengas un día caótico, deja que esta canción te de armonía**\
 `La obra maestra de Stephen Sondheim, ‘Sunday in the Park With George’, tiene una canción capaz de poner orden en medio del caos. Escúchala para descubrir cómo lo consiguió.`\
 https://www.nytimes.com/es/2026/06/26/espanol/cultura/stephen-sondheim-cancion.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/interactive/polls/arizona-us-house-2-polls-2026.html
 **Colorado Brothers Hid Decaying Bodies in Their Funeral Home, Authorities Say**\
 `The owners of Davis Mortuary in Pueblo, Colo., face multiple charges after state inspectors said they found two dozen decomposing bodies behind a concealed door. One of the owners is a former coroner.`\
 https://www.nytimes.com/2026/06/25/us/colorado-funeral-home-decaying-bodies-found.html
-
-**John Stockwell, Who Wrote a Tell-All Book About the C.I.A., Dies at 88**\
-`A former covert operative, he published his resignation letter in The Washington Post and went on to write “In Search of Enemies,” a book the agency sought to suppress.`\
-https://www.nytimes.com/2026/06/25/us/john-stockwell-dead.html
-
-**La Corte Suprema otorga más poder a Trump en materia de inmigración**\
-`Una mayoría de magistrados concedieron al presidente la facultad de revocar protecciones contra la deportación y negar el acceso a los migrantes en la frontera sur de EE. UU.`\
-https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/suprema-corte-tps-trump-migracion.html
-
-**What Italy Vacation Destination is Right For You?**\
-`Answer four questions, and we'll help you plan a trip.`\
-https://www.nytimes.com/interactive/2026/06/25/travel/italy-vacation-quiz.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
