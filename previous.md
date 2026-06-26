@@ -1,3 +1,7 @@
+**D.C. Reaches Settlement in Lawsuit Brought by ‘Star Wars’ National Guard Protester**\
+`Sam O’Hara was playing “Imperial March,” the theme of the film series villains, while protesting the presence of National Guard troops in the capital when he was handcuffed by city police officers.`\
+https://www.nytimes.com/2026/06/26/us/politics/dc-star-wars-national-guard-protest.html
+
 **Uber Enacts Stricter Background Checks for Drivers**\
 `The changes come after The New York Times revealed that the ride-hailing giant approved drivers with many types of criminal convictions, including violent felonies.`\
 https://www.nytimes.com/2026/06/26/business/uber-background-checks.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/06/26/business/uber-background-checks.html
 https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
 
 **A Look Along Venezuela's Devastated Coast After Two Earthquakes**\
-`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Thursday’s twin quakes, an analysis shows.`\
+`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Wednesday’s twin quakes, an analysis shows.`\
 https://www.nytimes.com/interactive/2026/06/26/world/americas/venezuela-earthquake-damage-coast.html
 
 **Search Teams From California, Virginia and Florida Head to Venezuela**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.htm
 **Mapa: un terremoto de magnitud 5,2 sacude Nicaragua**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/interactive/2026/06/26/espanol/terremoto-nicaragua-managua.html
-
-**Oil Industry Lawyers Fight a $50 Billion Climate Case in Oregon**\
-`The lawsuit aims to hold fossil fuel companies responsible for a heat wave in Portland five years ago. The industry says the case should be thrown out.`\
-https://www.nytimes.com/2026/06/26/climate/portland-heat-wave-lawsuit-oil-industry.html
 
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\

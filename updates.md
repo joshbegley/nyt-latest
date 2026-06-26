@@ -1,3 +1,11 @@
+**D.C. Reaches Settlement in Lawsuit Brought by ‘Star Wars’ National Guard Protester**\
+`Sam O’Hara was playing “Imperial March,” the theme of the film series villains, while protesting the presence of National Guard troops in the capital when he was handcuffed by city police officers.`\
+https://www.nytimes.com/2026/06/26/us/politics/dc-star-wars-national-guard-protest.html
+
+**A Look Along Venezuela's Devastated Coast After Two Earthquakes**\
+`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Wednesday’s twin quakes, an analysis shows.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/venezuela-earthquake-damage-coast.html
+
 **Uber Enacts Stricter Background Checks for Drivers**\
 `The changes come after The New York Times revealed that the ride-hailing giant approved drivers with many types of criminal convictions, including violent felonies.`\
 https://www.nytimes.com/2026/06/26/business/uber-background-checks.html
