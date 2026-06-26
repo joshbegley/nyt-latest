@@ -1,3 +1,23 @@
+**In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
+`Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
+https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
+
+**In Ecuador, a Blend of Two Languages Was Music to a Reporter’s Ears**\
+`José María León Cabrera grew up on the coast. When he moved to the highlands, he heard a blend of Spanish and Kichwa that was worth writing about.`\
+https://www.nytimes.com/2026/06/26/insider/ecuador-spanish-language-kichwa.html
+
+**Canada’s 24 Sussex Drive Is a Dump. Mark Carney Is Going to Fix It Up.**\
+`The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
+https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
+
+**John Bolton, Former Trump Adviser, Pleads Guilty in Classified Information Case**\
+`Mr. Bolton admitted to mishandling classified information and could face time in prison, in an inquiry that spanned the Trump and Biden administrations.`\
+https://www.nytimes.com/2026/06/26/us/politics/john-bolton-trump-classified-guilty-plea.html
+
+**Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
+`President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
+https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
+
 **Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/26/world/26wea-quake-tracker-japan-nyt6p00m.html

@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 5,2 sacude Nicaragua**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/06/26/espanol/terremoto-nicaragua-managua.html
+
+**Oil Industry Lawyers Fight a $50 Billion Climate Case in Oregon**\
+`The lawsuit aims to hold fossil fuel companies responsible for a heat wave in Portland five years ago. The industry says the case should be thrown out.`\
+https://www.nytimes.com/2026/06/26/climate/portland-heat-wave-lawsuit-oil-industry.html
+
 **In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
 `Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
 https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/26/books/review/john-of-john-douglas-stuart-book
 **With ‘Supergirl,’ Milly Alcock is Learning to Accept the Fear**\
 `After “House of the Dragon,” a starring role in another big franchise, “Supergirl,” gave Milly Alcock pause. It’s “this new gift of learning to accept the fear.”`\
 https://www.nytimes.com/2026/06/26/movies/milly-alcock-supergirl-house-of-dragon.html
-
-**The Rent Board Delivers a Freeze to Mamdani**\
-`The 7-to-1 vote by the Rent Guidelines Board fulfilled one of the mayor’s key campaign promises and came two days after he had a triumphant primary night.`\
-https://www.nytimes.com/2026/06/26/nyregion/the-rent-board-delivers-a-freeze-to-mamdani.html
-
-**How Three Months of War Changed the Gulf Forever**\
-`Facing an emerging U.S.-Iran deal that leaves them vulnerable, Gulf Arab countries are reshaping their defense strategies, economies and trade routes.`\
-https://www.nytimes.com/2026/06/26/world/middleeast/gulf-changed-forever-iran-war.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
