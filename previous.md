@@ -1,3 +1,11 @@
+**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
+`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
+https://www.nytimes.com/2026/06/26/world/europe/euthanasia-netherlands-child.html
+
+**Latinos Rally to Support Venezuela After Earthquakes**\
+`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
+
 **Mistrial for Man Accused of Starting One of California’s Worst Fires**\
 `Jonathan Rinderknecht was accused of setting a brush fire that later became the deadly Palisades fire. The jury could not reach a verdict on the three arson-related charges.`\
 https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
 **Iran Asserts Authority Over Strait of Hormuz After Attacking Cargo Ship**\
 `The president did not say how or whether he would respond, a day after Iran fired on a container ship that was transiting the Strait of Hormuz, an act Mr. Trump called “foolish.”`\
 https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
-
-**‘The Headlines’ News Quiz: Jun. 26, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/06/26/podcasts/the-headlines/the-headlines-news-quiz-jun-26-2026.html
-
-**‘The Daily’ and ‘The Opinions’: How A.I. Is Changing Loneliness and Taste**\
-`The story of a woman who let a robot into her home. Plus, a discussion about why Silicon Valley has taken such an interest in taste.`\
-https://www.nytimes.com/2026/06/26/podcasts/the-daily-and-the-opinions-how-ai-is-changing-loneliness-and-taste.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
