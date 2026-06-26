@@ -1,3 +1,15 @@
+**At the Great American State Fair, MAHA Meets Sno-Cones and Corn Dogs**\
+`Visitors can chow down on standard fair food while also attending health and wellness events.`\
+https://www.nytimes.com/2026/06/26/well/great-american-state-fair-food.html
+
+**Centrist Democrats Rebuke Party’s Left Wing: ‘We Are Capitalist, Not Socialist’**\
+`Following high-profile primary victories by democratic socialists, some moderate Democrats are advocating a different course, highlighting tensions in the party.`\
+https://www.nytimes.com/2026/06/26/us/politics/moderate-democrats-capitalist-socialism.html
+
+**Mark Zuckerberg Urges Meta to Explore Working With Polymarket and Kalshi**\
+`Mr. Zuckerberg’s plans for Arena, a prediction markets app that Meta is building, also include appealing to 18- to 34-year-old users.`\
+https://www.nytimes.com/2026/06/26/technology/zuckerberg-meta-polymarket-kalshi.html
+
 **Debris Falls From the Sky After Plane Crash in Beijing**\
 `A lightweight aircraft registered to the airline Shuangyue General Aviation crashed into the Citic Tower in Beijing on Friday. The cause of the crash is unknown.`\
 https://www.nytimes.com/video/world/asia/100000010994420/plane-crash-beijing-china.html
