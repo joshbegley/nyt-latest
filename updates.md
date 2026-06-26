@@ -1,3 +1,19 @@
+**Richard Scolyer, Cancer Expert Who ‘Became His Own Subject,’ Dies at 59**\
+`His lifesaving melanoma research in Australia illuminated the treatment he underwent for his own brain tumor, an ordeal he courageously shared with the public.`\
+https://www.nytimes.com/2026/06/26/science/richard-scolyer-dead.html
+
+**Yves Lacoste, Who Exposed U.S. Bombing of Vietnam’s Waterways, Dies at 96**\
+`He used a geographer’s tools to demonstrate that North Vietnamese civilian infrastructure had been deliberately attacked, threatening millions of lives.`\
+https://www.nytimes.com/2026/06/26/world/europe/yves-lacoste-dead.html
+
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
+`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
+https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands.html
+
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
 https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
