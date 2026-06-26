@@ -1,3 +1,11 @@
+**Have We Forgotten Wine’s Place at the Table?**\
+`Wine has long been considered an essential part of eating well, but its place no longer seems to be with a meal.`\
+https://www.nytimes.com/2026/06/26/dining/drinks/food-wine-connection.html
+
+**California Wealth Tax Initiative 2026: Latest Polls**\
+`Track the latest polls on California's wealth tax ballot initiative.`\
+https://www.nytimes.com/interactive/polls/california-wealth-tax-polls-2026.html
+
 **Book Club: Let’s Talk About ‘Yesteryear’**\
 `Caro Claire Burke’s best-selling novel, about a tradwife influencer with some surprises in store, is one of the buzziest books of 2026.`\
 https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.html

@@ -1,3 +1,7 @@
+**Georgia Delays Change to Its Vote-Counting System**\
+`A law banning QR codes on ballots had been set to go into effect on July 1. Lawmakers voted to push back its implementation until 2028.`\
+https://www.nytimes.com/2026/06/26/us/georgia-vote-counting-system-delays.html
+
 **Have We Forgotten Wine’s Place at the Table?**\
 `Wine has long been considered an essential part of eating well, but its place no longer seems to be with a meal.`\
 https://www.nytimes.com/2026/06/26/dining/drinks/food-wine-connection.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/world/middleeast/world-cup-iran-mexico.html
 **Larry David’s Comedy on HBO and America’s Unhappy 250th Birthday**\
 `On the one hand, the 250th anniversary has given us presidential blood sport. On the other comes a show about star-spangled nothing.`\
 https://www.nytimes.com/2026/06/26/arts/television/larry-david-hbo-life-larry-pursuit-of-unhappiness-review.html
-
-**ICE Is Killing Jobs for Americans, Not Creating Them**\
-`ICE surges are costing Americans jobs.`\
-https://www.nytimes.com/2026/06/26/opinion/ice-jobs-economy-immigration.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
