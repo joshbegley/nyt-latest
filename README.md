@@ -1,3 +1,7 @@
+**‘Love Island USA’ Kicks Out Another Contestant for Racial Slur**\
+`After Alannah Keyser made her debut on Sunday, viewers quickly found a social media video in which she uses a slur while singing.`\
+https://www.nytimes.com/2026/06/25/arts/television/love-island-alannah-keyser-racial-slur.html
+
 **Venezuela busca sobrevivientes, y un milagro, tras un devastador doblete sísmico**\
 `Dos terremotos en rápida sucesión han llevado al país latinoamericano al límite de su resistencia.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremoto-busqueda-sobrevivientes.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/06/25/well/summer-challenge-land-earth-
 **Global Warming Upends London Climate Week**\
 `The extreme heat smothering Europe has upended Climate Week in London.`\
 https://www.nytimes.com/2026/06/25/climate/london-climate-week-heat-cancelations.html
-
-**Is Gracie Abrams Really the ‘Daughter From Hell’?**\
-`Watch the full conversation with Gracie Abrams. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
 
 **Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
 `Los sismos consecutivos han dejado al menos 188 muertos y más de 1500 heridos. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
