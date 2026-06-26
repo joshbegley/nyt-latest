@@ -1,3 +1,11 @@
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Terremotos en Venezuela: se informa de hospitales desbordados**\
+`Los sobrevivientes trasladaron a los heridos a hospitales en coches y camionetas, mientras el número de muertos ascendía a 920 personas. Se cree que hay cientos más desaparecidos o atrapados bajo los escombros.`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
 `Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
 https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
