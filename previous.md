@@ -1,5 +1,9 @@
+**Oil Prices Return to Prewar Levels After Four Months**\
+`The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
+https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html
+
 **Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
-`The Saudi-born doctor drove into a crowd of shoppers in December 2024, wounding hundreds and rattling Germans’ sense of security.`\
+`The man drove into a crowd of shoppers in December 2024, wounding hundreds of people.`\
 https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
 
 **Small Plane Crashes Into Tallest Building in Beijing**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/opinion/supreme-court-ruling-tps-immigration-
 **Gracie Abrams on ‘Nepo’ Label, Writing With Paul Mescal and Her New Album**\
 `On her new album, “Daughter From Hell,” the 26-year-old star confronts growing up in a famous family and lessons from songwriting.`\
 https://www.nytimes.com/2026/06/26/arts/music/gracie-abrams-interview-popcast.html
-
-**Mewgenics Is a Mischievous Game About Breeding Cats**\
-`The year’s most interesting games also include a bodycam shooter in a Hong Kong underworld and a cryptographic puzzle drama.`\
-https://www.nytimes.com/2026/06/26/arts/mewgenics-review-tr-49-better-than-dead.html
 

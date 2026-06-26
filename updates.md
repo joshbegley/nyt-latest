@@ -1,3 +1,11 @@
+**Oil Prices Return to Prewar Levels After Four Months**\
+`The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
+https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html
+
+**Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
+`The man drove into a crowd of shoppers in December 2024, wounding hundreds of people.`\
+https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
+
 **Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
 `The Saudi-born doctor drove into a crowd of shoppers in December 2024, wounding hundreds and rattling Germans’ sense of security.`\
 https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
