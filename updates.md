@@ -1,3 +1,7 @@
+**Footage From Before and After Venezuelan Quakes Shows Scope of Damage**\
+`At least 235 people were dead and more than 4,300 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
+https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquakes-damage-before-after.html
+
 **The Aftermath of Venezuela’s Earthquakes**\
 `Adriana Loureiro Fernandez, a photographer for The New York Times, describes the scene on the ground after the Venezuelan earthquakes.`\
 https://www.nytimes.com/video/world/americas/100000010992544/the-aftermath-of-venezuelas-earthquakes.html
