@@ -1,3 +1,11 @@
+**Man Pleads Guilty to Fraud in Sale of Art to Springsteen’s Manager**\
+`Thomas Doyle was accused of unlawfully pocketing most of the proceeds from the sale of a painting by Gustave Courbet to Bruce Springsteen’s manager.`\
+https://www.nytimes.com/2026/06/26/arts/design/thomas-doyle-fraud-courbet-jon-landau.html
+
+**Migrant Camps Swell in South Africa Amid Growing Anti-Immigrant Threats**\
+`A threat to all undocumented foreigners to leave the country by Tuesday has led many to set up street camps as they try to get out.`\
+https://www.nytimes.com/2026/06/26/world/africa/south-africa-migrant-camps-deadline.html
+
 **How the Supreme Court Removed Key Protections for Immigrants**\
 `Our Supreme Court reporter Ann E. Marimow describes how a 6-3 majority of the justices removed protections for immigrants and asylum seekers amid the Trump administration’s crackdown.`\
 https://www.nytimes.com/video/us/politics/100000010989308/how-the-supreme-court-removed-key-protections-for-immigrants.html
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
 **American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
 `American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
 https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
-
-**Gregg Phillips Leaving FEMA**\
-`Gregg Phillips was in charge of the emergency response agency’s largest division and had come under scrutiny for a series of bizarre claims.`\
-https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
