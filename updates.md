@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Search for Survivors Grows More Urgent More Than a Day After Quakes**\
+`Back-to-back earthquakes left at least 235 dead and injured more than 4,300 people, according to Venezuela’s government. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
+https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
+
 **California Will Vote on a Billionaire Tax. Billionaires Aren’t Happy.**\
 `The wealthy are fighting back with two ballot issues that could nullify the measure in November. The battle reflects a broader tension as American politics contends with deep inequality.`\
 https://www.nytimes.com/2026/06/25/us/california-billionaires-tax-ballot-measure.html

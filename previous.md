@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/25/business/china-cancer-treatment-research-retr
 `Los sismos consecutivos han dejado al menos 188 muertos y más de 1500 heridos. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
-**Venezuela Live Updates: Search for Survivors Grows More Urgent 24 Hours After Quakes**\
-`Back-to-back earthquakes left at least 188 dead and injured more than 1,500 people, the authorities said. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
+**Venezuela Live Updates: Search for Survivors Grows More Urgent More Than a Day After Quakes**\
+`Back-to-back earthquakes left at least 235 dead and injured more than 4,300 people, according to Venezuela’s government. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
