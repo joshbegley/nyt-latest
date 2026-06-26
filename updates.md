@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
+`Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **Los terremotos en Venezuela azotan a un sistema de salud que ya estaba en crisis**\
 `Los bomberos están usando la luz de sus teléfonos porque hay escasez de linternas, y un hospital desbordado en la zona del desastre está funcionando sin agua corriente, dijo un médico.`\
 https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezuela-terremotos-hospitales-sistema-salud.html

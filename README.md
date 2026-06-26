@@ -1,3 +1,11 @@
+**Richard Scolyer, Cancer Expert Who ‘Became His Own Subject,’ Dies at 59**\
+`His lifesaving melanoma research in Australia illuminated the treatment he underwent for his own brain tumor, an ordeal he courageously shared with the public.`\
+https://www.nytimes.com/2026/06/26/science/richard-scolyer-dead.html
+
+**Yves Lacoste, Who Exposed U.S. Bombing of Vietnam’s Waterways, Dies at 96**\
+`He used a geographer’s tools to demonstrate that North Vietnamese civilian infrastructure had been deliberately attacked, threatening millions of lives.`\
+https://www.nytimes.com/2026/06/26/world/europe/yves-lacoste-dead.html
+
 **Los terremotos en Venezuela azotan a un sistema de salud que ya estaba en crisis**\
 `Los bomberos están usando la luz de sus teléfonos porque hay escasez de linternas, y un hospital desbordado en la zona del desastre está funcionando sin agua corriente, dijo un médico.`\
 https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezuela-terremotos-hospitales-sistema-salud.html
@@ -84,7 +92,7 @@ https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-co
 
 **The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
 `Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
-https://www.nytimes.com/2026/06/26/world/europe/euthanasia-netherlands-child.html
+https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands.html
 
 **Latinos Rally to Support Venezuela After Earthquakes**\
 `Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/26/us/georgia-vote-counting-system-delays.html
 **Have We Forgotten Wine’s Place at the Table?**\
 `Wine has long been considered an essential part of eating well, but its place no longer seems to be with a meal.`\
 https://www.nytimes.com/2026/06/26/dining/drinks/food-wine-connection.html
-
-**California Wealth Tax Initiative 2026: Latest Polls**\
-`Track the latest polls on California's wealth tax ballot initiative.`\
-https://www.nytimes.com/interactive/polls/california-wealth-tax-polls-2026.html
-
-**Book Club: Let’s Talk About ‘Yesteryear’**\
-`Caro Claire Burke’s best-selling novel, about a tradwife influencer with some surprises in store, is one of the buzziest books of 2026.`\
-https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\

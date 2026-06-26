@@ -190,7 +190,7 @@ https://www.nytimes.com/interactive/polls/california-wealth-tax-polls-2026.html
 `Caro Claire Burke’s best-selling novel, about a tradwife influencer with some surprises in store, is one of the buzziest books of 2026.`\
 https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.html
 
-**Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
-`La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
+**Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
+`Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
 https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
 
