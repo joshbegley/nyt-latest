@@ -1,3 +1,11 @@
+**Have We Forgotten Wine’s Place at the Table?**\
+`Wine has long been considered an essential part of eating well, but its place no longer seems to be with a meal.`\
+https://www.nytimes.com/2026/06/26/dining/drinks/food-wine-connection.html
+
+**California Wealth Tax Initiative 2026: Latest Polls**\
+`Track the latest polls on California's wealth tax ballot initiative.`\
+https://www.nytimes.com/interactive/polls/california-wealth-tax-polls-2026.html
+
 **Book Club: Let’s Talk About ‘Yesteryear’**\
 `Caro Claire Burke’s best-selling novel, about a tradwife influencer with some surprises in store, is one of the buzziest books of 2026.`\
 https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/26/arts/television/larry-david-hbo-life-larry-pu
 **ICE Is Killing Jobs for Americans, Not Creating Them**\
 `ICE surges are costing Americans jobs.`\
 https://www.nytimes.com/2026/06/26/opinion/ice-jobs-economy-immigration.html
-
-**For the U.S.’s 250th Birthday, a German Declaration of Independence Goes on Show**\
-`The presentation of an original German-language translation in Berlin is an opportunity to consider the shared history of the United States and Germany.`\
-https://www.nytimes.com/2026/06/26/arts/design/german-declaration-of-independence.html
-
-**Book Club: Read ‘John of John,’ by Douglas Stuart, With the Book Review**\
-`In July, the Book Review Book Club will be discussing Stuart’s latest novel, about a profoundly isolated father and son, each grappling with long-held secrets.`\
-https://www.nytimes.com/2026/06/26/books/review/john-of-john-douglas-stuart-book-club.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
