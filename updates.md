@@ -1,3 +1,107 @@
+**Uber Enacts Stricter Background Checks for Drivers**\
+`The changes come after The New York Times revealed that the ride-hailing giant approved drivers with many types of criminal convictions, including violent felonies.`\
+https://www.nytimes.com/2026/06/26/business/uber-background-checks.html
+
+**Yale Seeks Trump Administration Deal in Inquiry Over Race and Admissions**\
+`The university hired a high-powered law firm to try to reach an agreement with the Justice Department over claims its admissions practices hurt white and Asian applicants.`\
+https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
+
+**A Look Along Venezuela's Devastated Coast After Two Earthquakes**\
+`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Thursday’s twin quakes, an analysis shows.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/venezuela-earthquake-damage-coast.html
+
+**Search Teams From California, Virginia and Florida Head to Venezuela**\
+`The groups that include firefighters, doctors and structural engineering specialists began arriving on Friday to join the race to find survivors.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-rescuers.html
+
+**Virginia Man Sentenced to 40 Years for Setting City Councilman on Fire**\
+`Shotsie Buck-Hayes severely burned J. Lee Vogler, a councilman in Danville, Va., last year in an attack that the police said stemmed from a “personal matter.”`\
+https://www.nytimes.com/2026/06/26/us/virginia-man-sentenced-city-council-member-attacked.html
+
+**Prosecutors in Washington Say Citations Have Been Issued at Reflecting Pool**\
+`A spokesman provided no further details, saying those who received the citations were ordered to appear in court at a later date. No records are available.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-arrests.html
+
+**Ann Blyth, Oscar-Nominated ‘Mildred Pierce’ Actress, Dies at 98**\
+`She was just 17 when she played Joan Crawford’s ungrateful daughter in the classic 1945 melodrama. It was the high point of a robust but short film career.`\
+https://www.nytimes.com/2026/06/26/movies/ann-blyth-dead.html
+
+**Trump Threatens to Impose 100% Tariff on European Countries Over Tech Taxes**\
+`The president claimed the tariffs would override a trade deal with the European Union, which European officials finalized just days ago.`\
+https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
+
+**Flashback: Your Weekly History Quiz, June 27, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
+
+**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
+`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
+https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
+
+**Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
+`Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
+https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
+**Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Los pequeños rituales que te preparan para dormir**\
+`Origami, encimeras limpias y plantas bien atendidas: los lectores revelan los pequeños hábitos que transforman el final del día en una puerta hacia el descanso.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dormir.html
+
+**‘Why I Love the Beautiful Game’: Gordon Ramsay**\
+`The chef and TV star on how close he came to playing professionally.`\
+https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.html
+
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
+**Anger Over Supreme Court Rulings on Immigration**\
+`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
+
+**N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
+`New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
+https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
+
+**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
+`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
+
+**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
+`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
+https://www.nytimes.com/2026/06/26/world/europe/euthanasia-netherlands-child.html
+
+**Latinos Rally to Support Venezuela After Earthquakes**\
+`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
+
+**Mistrial for Man Accused of Starting One of California’s Worst Fires**\
+`Jonathan Rinderknecht was accused of setting a brush fire that later became the deadly Palisades fire. The jury could not reach a verdict on the three arson-related charges.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
+**Trump Administration to Investigate California’s Powerful Coastal Agency**\
+`Howard Lutnick, the commerce secretary, has accused the state of “environmental extremism” amid a federal push for oil production.`\
+https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
+
+**The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
+`Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
+https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
+
+**Woman Survives After Being Trapped by Rubble in Earthquake**\
+`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
+https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
+
+**How Trump’s Political Agenda Is Shaped by His Own Obsessions**\
+`President Trump’s priorities seem increasingly detached from the concerns of voters and his party.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
+
 **In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
 `Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
 https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html

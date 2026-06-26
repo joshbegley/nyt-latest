@@ -1,3 +1,107 @@
+**Uber Enacts Stricter Background Checks for Drivers**\
+`The changes come after The New York Times revealed that the ride-hailing giant approved drivers with many types of criminal convictions, including violent felonies.`\
+https://www.nytimes.com/2026/06/26/business/uber-background-checks.html
+
+**Yale Seeks Trump Administration Deal in Inquiry Over Race and Admissions**\
+`The university hired a high-powered law firm to try to reach an agreement with the Justice Department over claims its admissions practices hurt white and Asian applicants.`\
+https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
+
+**A Look Along Venezuela's Devastated Coast After Two Earthquakes**\
+`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Thursday’s twin quakes, an analysis shows.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/venezuela-earthquake-damage-coast.html
+
+**Search Teams From California, Virginia and Florida Head to Venezuela**\
+`The groups that include firefighters, doctors and structural engineering specialists began arriving on Friday to join the race to find survivors.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-rescuers.html
+
+**Virginia Man Sentenced to 40 Years for Setting City Councilman on Fire**\
+`Shotsie Buck-Hayes severely burned J. Lee Vogler, a councilman in Danville, Va., last year in an attack that the police said stemmed from a “personal matter.”`\
+https://www.nytimes.com/2026/06/26/us/virginia-man-sentenced-city-council-member-attacked.html
+
+**Prosecutors in Washington Say Citations Have Been Issued at Reflecting Pool**\
+`A spokesman provided no further details, saying those who received the citations were ordered to appear in court at a later date. No records are available.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-arrests.html
+
+**Ann Blyth, Oscar-Nominated ‘Mildred Pierce’ Actress, Dies at 98**\
+`She was just 17 when she played Joan Crawford’s ungrateful daughter in the classic 1945 melodrama. It was the high point of a robust but short film career.`\
+https://www.nytimes.com/2026/06/26/movies/ann-blyth-dead.html
+
+**Trump Threatens to Impose 100% Tariff on European Countries Over Tech Taxes**\
+`The president claimed the tariffs would override a trade deal with the European Union, which European officials finalized just days ago.`\
+https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
+
+**Flashback: Your Weekly History Quiz, June 27, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
+
+**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
+`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
+https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
+
+**Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
+`Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
+https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
+**Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Los pequeños rituales que te preparan para dormir**\
+`Origami, encimeras limpias y plantas bien atendidas: los lectores revelan los pequeños hábitos que transforman el final del día en una puerta hacia el descanso.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dormir.html
+
+**‘Why I Love the Beautiful Game’: Gordon Ramsay**\
+`The chef and TV star on how close he came to playing professionally.`\
+https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.html
+
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
+**Anger Over Supreme Court Rulings on Immigration**\
+`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
+
+**N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
+`New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
+https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
+
+**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
+`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
+
+**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
+`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
+https://www.nytimes.com/2026/06/26/world/europe/euthanasia-netherlands-child.html
+
+**Latinos Rally to Support Venezuela After Earthquakes**\
+`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
+
+**Mistrial for Man Accused of Starting One of California’s Worst Fires**\
+`Jonathan Rinderknecht was accused of setting a brush fire that later became the deadly Palisades fire. The jury could not reach a verdict on the three arson-related charges.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
+**Trump Administration to Investigate California’s Powerful Coastal Agency**\
+`Howard Lutnick, the commerce secretary, has accused the state of “environmental extremism” amid a federal push for oil production.`\
+https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
+
+**The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
+`Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
+https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
+
+**Woman Survives After Being Trapped by Rubble in Earthquake**\
+`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
+https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
+
+**How Trump’s Political Agenda Is Shaped by His Own Obsessions**\
+`President Trump’s priorities seem increasingly detached from the concerns of voters and his party.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
+
 **American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
 `American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
 https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
@@ -86,107 +190,7 @@ https://www.nytimes.com/interactive/2026/06/26/espanol/terremoto-nicaragua-manag
 `The lawsuit aims to hold fossil fuel companies responsible for a heat wave in Portland five years ago. The industry says the case should be thrown out.`\
 https://www.nytimes.com/2026/06/26/climate/portland-heat-wave-lawsuit-oil-industry.html
 
-**In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
-`Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
-https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
-
-**In Ecuador, a Blend of Two Languages Was Music to a Reporter’s Ears**\
-`José María León Cabrera grew up on the coast. When he moved to the highlands, he heard a blend of Spanish and Kichwa that was worth writing about.`\
-https://www.nytimes.com/2026/06/26/insider/ecuador-spanish-language-kichwa.html
-
-**Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/26/world/quake-tracker-japan.html
-
-**Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
-`Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
-https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
-
-**Canada’s 24 Sussex Drive Is a Dump. Mark Carney Is Going to Fix It Up.**\
-`The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
-https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
-
-**Map: 5.2-Magnitude Earthquake Shakes Nicaragua**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/26/world/americas/quake-tracker-nicaragua.html
-
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
 https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
-
-**Oil Prices Return to Prewar Levels After Four Months**\
-`The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
-https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html
-
-**Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
-`The man drove into a crowd of shoppers in December 2024, wounding hundreds of people.`\
-https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
-
-**Small Plane Crashes Into Tallest Building in Beijing**\
-`Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
-https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
-
-**Still Sending Checks in the Mail? Stop, Experts Say**\
-`If you must, keep an eye on your account statements, experts say. Thieves steal checks from mailboxes, then alter the checks with fraudulent names.`\
-https://www.nytimes.com/2026/06/26/your-money/paper-checks-mail-fraud.html
-
-**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 3 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
-https://www.nytimes.com/2026/06/26/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
-
-****\
-`tktktktktk`\
-https://www.nytimes.com/video/embedded/business/100000010994176/Tungsten-Video.html
-
-**Ukrainian Attacks Spur State of Emergency Declaration in Crimea**\
-`Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
-https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
-
-**Apple, Micron, OpenAI and A.I.’s Rough Summer**\
-`Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
-https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
-
-**Kalshi to Become a World Cup Partner as It Pursues More Growth**\
-`The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
-https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
-
-**Europe’s Scorching Heat Is Gradually Moving East**\
-`Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
-https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
-
-**I**\
-`The president did not say how or whether he would respond, a day after Iran fired on a container ship that was transiting the Strait of Hormuz, an act Mr. Trump called “foolish.”`\
-https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
-
-**‘The Headlines’ News Quiz: Jun. 26, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/06/26/podcasts/the-headlines/the-headlines-news-quiz-jun-26-2026.html
-
-**‘The Daily’ and ‘The Opinions’: How A.I. Is Changing Loneliness and Taste**\
-`The story of a woman who let a robot into her home. Plus, a discussion about why Silicon Valley has taken such an interest in taste.`\
-https://www.nytimes.com/2026/06/26/podcasts/the-daily-and-the-opinions-how-ai-is-changing-loneliness-and-taste.html
-
-**Protected No More**\
-`We look at the impact of the Supreme Court’s immigration rulings.`\
-https://www.nytimes.com/2026/06/26/briefing/supreme-court-immigration-rulings.html
-
-**USMNT vs Turkey Recap, and Looking Ahead to Mbappé vs Haaland**\
-`Who will the co-hosts face in the Round of 32, and how prepared are they for the knockout phase?`\
-https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-norway.html
-
-**Ryanair Stops Charging for Parents to Sit With Their Children**\
-`The airline said it had “reluctantly” changed course after a British regulator began investigating whether its fees were illegal.`\
-https://www.nytimes.com/2026/06/26/world/europe/ryanair-fee-children-seats.html
-
-**As Europe Sweats, Some Politicians Talk of Air-Conditioning, Not Climate Action**\
-`Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
-https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
-
-**Supreme Court Delivers Big Wins for Trump’s Immigration Agenda**\
-`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
-https://www.nytimes.com/2026/06/26/podcasts/the-daily/supreme-court-delivers-big-wins-for-trumps-immigration-agenda.html
-
-**Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
-`A Venezuelan official said that two powerful earthquakes on Wednesday had killed 920 people and left more than 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
-https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
 
