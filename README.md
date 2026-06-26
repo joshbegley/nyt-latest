@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/06/26/business/uber-background-checks.html
 https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
 
 **A Look Along Venezuela's Devastated Coast After Two Earthquakes**\
-`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Wednesday's twin quakes, an analysis shows.`\
+`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Wednesday’s twin quakes, an analysis shows.`\
 https://www.nytimes.com/interactive/2026/06/26/world/americas/venezuela-earthquake-damage-coast.html
 
 **Search Teams From California, Virginia and Florida Head to Venezuela**\
