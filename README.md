@@ -1,3 +1,7 @@
+**Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
+`Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
+https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
+
 **In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
 `Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
 https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
 **Flashback: Your Weekly History Quiz, June 27, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
-
-**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
-`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
-https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
 
