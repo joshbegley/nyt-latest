@@ -1,3 +1,7 @@
+**Ann Blyth, Oscar-Nominated ‘Mildred Pierce’ Actress, Dies at 98**\
+`She was just 17 when she played Joan Crawford’s ungrateful daughter in a classic melodrama. It was the high point of a robust but short film career.`\
+https://www.nytimes.com/2026/06/26/movies/ann-blyth-dead.html
+
 **Trump Threatens 100% Tariffs on Europe Over Tech Taxes**\
 `The president claimed the tariffs would override a trade deal with the European Union, which European officials finalized just days ago.`\
 https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
