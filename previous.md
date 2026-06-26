@@ -1,3 +1,11 @@
+**Bill Pulte Picks G.O.P. Election Operative for Spy Agency Job**\
+`Christina Norton is the new chief of staff at the Office of the Director of National Intelligence, former officials said.`\
+https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton.html
+
+**In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
+`Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
+https://www.nytimes.com/2026/06/26/world/americas/rescue-teams-and-residents-alike-race-to-save-survivors-of-venezuelas-earthquakes.html
+
 **Man Pleads Guilty to Fraud in Sale of Art to Springsteen’s Manager**\
 `Thomas Doyle was accused of unlawfully pocketing most of the proceeds from the sale of a painting by Gustave Courbet to Bruce Springsteen’s manager.`\
 https://www.nytimes.com/2026/06/26/arts/design/thomas-doyle-fraud-courbet-jon-landau.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-m
 **Woman Survives After Being Trapped by Rubble in Earthquake**\
 `Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
 https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
-
-**How Trump’s Political Agenda Is Shaped by His Own Obsessions**\
-`President Trump’s priorities seem increasingly detached from the concerns of voters and his party.`\
-https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
-
-**American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
-`American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
-https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\

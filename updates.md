@@ -1,3 +1,11 @@
+**Bill Pulte Picks G.O.P. Election Operative for Spy Agency Job**\
+`Christina Norton is the new chief of staff at the Office of the Director of National Intelligence, former officials said.`\
+https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton.html
+
+**In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
+`Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
+https://www.nytimes.com/2026/06/26/world/americas/rescue-teams-and-residents-alike-race-to-save-survivors-of-venezuelas-earthquakes.html
+
 **Man Pleads Guilty to Fraud in Sale of Art to Springsteen’s Manager**\
 `Thomas Doyle was accused of unlawfully pocketing most of the proceeds from the sale of a painting by Gustave Courbet to Bruce Springsteen’s manager.`\
 https://www.nytimes.com/2026/06/26/arts/design/thomas-doyle-fraud-courbet-jon-landau.html

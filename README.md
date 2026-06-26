@@ -1,3 +1,7 @@
+**Venezuelans in New York Confront Earthquake Back Home**\
+`The earthquake that leveled buildings and killed hundreds compounds years of grief for Venezuelans whose country has experienced political and economic collapse.`\
+https://www.nytimes.com/2026/06/26/nyregion/earthquakes-immigrants-grief-venezuela.html
+
 **Bill Pulte Picks G.O.P. Election Operative for Spy Agency Job**\
 `Christina Norton is the new chief of staff at the Office of the Director of National Intelligence, former officials said.`\
 https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
 **The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
 `Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
 https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
-
-**Woman Survives After Being Trapped by Rubble in Earthquake**\
-`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
-https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
