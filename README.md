@@ -1,3 +1,7 @@
+**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
+`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
 **Prosecutors in Kirk Case Found in Contempt for Media Statement**\
 `The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
 https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
 **Kalshi to Become a World Cup Partner as It Pursues More Growth**\
 `The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
 https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
-
-**Europe’s Scorching Heat Is Gradually Moving East**\
-`Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
-https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\

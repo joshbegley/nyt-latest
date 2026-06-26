@@ -1,3 +1,7 @@
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
+
 **The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
 `Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
 https://www.nytimes.com/2026/06/26/world/europe/euthanasia-netherlands-child.html
