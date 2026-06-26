@@ -1,3 +1,11 @@
+**In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
+`Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
+https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
+
+**In Ecuador, a Blend of Two Languages Was Music to a Reporter’s Ears**\
+`José María León Cabrera grew up on the coast. When he moved to the highlands, he heard a blend of Spanish and Kichwa that was worth writing about.`\
+https://www.nytimes.com/2026/06/26/insider/ecuador-spanish-language-kichwa.html
+
 **Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/26/world/26wea-quake-tracker-japan-nyt6p00m.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/26/world/middleeast/gulf-changed-forever-iran-wa
 **Pick Your Favorite Pied-à-Terre in Paris**\
 `A sunny studio in Saint-Germain-des-Prés, a triplex with outdoor space in the Third Arrondissement, and a furnished one-bedroom in Porte de Saint-Cloud.`\
 https://www.nytimes.com/2026/06/26/realestate/pick-your-favorite-pied-a-terre-in-paris.html
-
-**11 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/06/26/movies/new-movies-this-week-critics.html
-
-**‘Jackass: Best and Last’: A Moving Look at Male Friendship and Aging (Really)**\
-`While it may seem as if these pranksters have cheated death, the latest movie in the series starring Johnny Knoxville reminds us they’re mere mortals.`\
-https://www.nytimes.com/2026/06/26/movies/jackass-best-and-last-review-johnny-knoxville.html
 

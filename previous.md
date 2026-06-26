@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/26/world/26wea-quake-tracker-japan-nyt6p00m.html
+
 **Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
 `Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/26/movies/new-movies-this-week-critics.html
 **‘Jackass: Best and Last’: A Moving Look at Male Friendship and Aging (Really)**\
 `While it may seem as if these pranksters have cheated death, the latest movie in the series starring Johnny Knoxville reminds us they’re mere mortals.`\
 https://www.nytimes.com/2026/06/26/movies/jackass-best-and-last-review-johnny-knoxville.html
-
-**In ‘The Vampire Lestat,’ He’s Partying Like a Bloodsucking Rock Star**\
-`Sam Reid has gone glam in the latest season of this horror series, originally titled “Anne Rice’s Interview With the Vampire.”`\
-https://www.nytimes.com/2026/06/26/arts/television/the-vampire-lestat-sam-reid.html
 

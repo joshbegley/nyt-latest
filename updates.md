@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/26/world/26wea-quake-tracker-japan-nyt6p00m.html
+
 **After Attacking Cargo Ship, Iran Presses Its Claim to Authority Over Strait**\
 `Iran issued a statement asserting its right to control traffic in the Strait of Hormuz, a day after firing on a container ship that took a route near Oman’s shore.`\
 https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
