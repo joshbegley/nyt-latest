@@ -1,3 +1,11 @@
+**Yale Seeks Trump Administration Deal in Inquiry Over Race and Admissions**\
+`The university hired a high-powered law firm to try to reach an agreement with the Justice Department over claims its admissions practices hurt white and Asian applicants.`\
+https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
+
+**A Look Along Venezuela's Devastated Coast After Two Earthquakes**\
+`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Thursday’s twin quakes, an analysis shows.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/venezuela-earthquake-damage-coast.html
+
 **Search Teams From California, Virginia and Florida Head to Venezuela**\
 `The groups that include firefighters, doctors and structural engineering specialists began arriving on Friday to join the race to find survivors.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-rescuers.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/2026/06/26/espanol/terremoto-nicaragua-manag
 **Oil Industry Lawyers Fight a $50 Billion Climate Case in Oregon**\
 `The lawsuit aims to hold fossil fuel companies responsible for a heat wave in Portland five years ago. The industry says the case should be thrown out.`\
 https://www.nytimes.com/2026/06/26/climate/portland-heat-wave-lawsuit-oil-industry.html
-
-**In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
-`Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
-https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
-
-**In Ecuador, a Blend of Two Languages Was Music to a Reporter’s Ears**\
-`José María León Cabrera grew up on the coast. When he moved to the highlands, he heard a blend of Spanish and Kichwa that was worth writing about.`\
-https://www.nytimes.com/2026/06/26/insider/ecuador-spanish-language-kichwa.html
 
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
