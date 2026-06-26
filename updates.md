@@ -1,3 +1,19 @@
+**Los venezolanos desplazados por los terremotos duermen a la intemperie**\
+`Dos terremotos consecutivos han dejado a miles de personas sin hogar. Muchos otros, que tienen demasiado miedo para dormir en sus casas, permanecen en la calle.`\
+https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezolanos-desplazados-terremotos.html
+
+**Vance Downplays Watergate and Compares Himself to Nixon**\
+`The vice president said that the scandal that ended Richard Nixon’s presidency would be “like a 12-hour news story” if it happened today and that the “deep state” had taken down Nixon.`\
+https://www.nytimes.com/2026/06/26/us/politics/vance-nixon-watergate-deep-state.html
+
+**La Retaguardia (The Ones Who Stay)**\
+`Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
+https://www.nytimes.com/video/opinion/100000010887247/la-retaguardia-the-ones-who-stay.html
+
+**Georgia Delays Change to Its Vote-Counting System**\
+`A law banning QR codes on ballots had been set to go into effect on July 1. Lawmakers voted to push back its implementation until 2028.`\
+https://www.nytimes.com/2026/06/26/us/georgia-vote-counting-system-delays.html
+
 **Have We Forgotten Wine’s Place at the Table?**\
 `Wine has long been considered an essential part of eating well, but its place no longer seems to be with a meal.`\
 https://www.nytimes.com/2026/06/26/dining/drinks/food-wine-connection.html

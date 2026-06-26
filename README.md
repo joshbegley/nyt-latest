@@ -1,3 +1,11 @@
+**In Cuba, Where So Many Have Left, These Artists Have Stayed**\
+`Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
+https://www.nytimes.com/2026/06/26/opinion/cuba-migration-havana-artists.html
+
+**A Chicken Salad That’s Creamy Without Mayo**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/06/26/dining/a-chicken-salad-thats-creamy-without-mayo.html
+
 **Los venezolanos desplazados por los terremotos duermen a la intemperie**\
 `Dos terremotos consecutivos han dejado a miles de personas sin hogar. Muchos otros, que tienen demasiado miedo para dormir en sus casas, permanecen en la calle.`\
 https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezolanos-desplazados-terremotos.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/26/us/politics/supreme-court-trump-tps.html
 **Should You Let Your Dog Fertilize Your Lawn?**\
 `A ruling on a dispute over proper mowing technique.`\
 https://www.nytimes.com/interactive/2026/06/26/magazine/dog-poop-lawn-mowing-hodgman-quiz.html
-
-**Corrections: June 26, 2026**\
-`Corrections that appeared in print on Friday, June 26, 2026.`\
-https://www.nytimes.com/2026/06/26/pageoneplus/corrections-june-26-2026.html
-
-**Is There a Founding Story That Can Unify Left and Right?**\
-`There has never been agreement over the meaning of America’s creation 250 years ago. Maybe there shouldn’t be.`\
-https://www.nytimes.com/2026/06/26/magazine/a-founding-story-to-unify-left-and-right.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\

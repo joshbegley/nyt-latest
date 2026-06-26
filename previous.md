@@ -1,3 +1,19 @@
+**Los venezolanos desplazados por los terremotos duermen a la intemperie**\
+`Dos terremotos consecutivos han dejado a miles de personas sin hogar. Muchos otros, que tienen demasiado miedo para dormir en sus casas, permanecen en la calle.`\
+https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezolanos-desplazados-terremotos.html
+
+**Vance Downplays Watergate and Compares Himself to Nixon**\
+`The vice president said that the scandal that ended Richard Nixon’s presidency would be “like a 12-hour news story” if it happened today and that the “deep state” had taken down Nixon.`\
+https://www.nytimes.com/2026/06/26/us/politics/vance-nixon-watergate-deep-state.html
+
+**La Retaguardia (The Ones Who Stay)**\
+`Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
+https://www.nytimes.com/video/opinion/100000010887247/la-retaguardia-the-ones-who-stay.html
+
+**Georgia Delays Change to Its Vote-Counting System**\
+`A law banning QR codes on ballots had been set to go into effect on July 1. Lawmakers voted to push back its implementation until 2028.`\
+https://www.nytimes.com/2026/06/26/us/georgia-vote-counting-system-delays.html
+
 **Have We Forgotten Wine’s Place at the Table?**\
 `Wine has long been considered an essential part of eating well, but its place no longer seems to be with a meal.`\
 https://www.nytimes.com/2026/06/26/dining/drinks/food-wine-connection.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/06/26/pageoneplus/corrections-june-26-2026.html
 **Is There a Founding Story That Can Unify Left and Right?**\
 `There has never been agreement over the meaning of America’s creation 250 years ago. Maybe there shouldn’t be.`\
 https://www.nytimes.com/2026/06/26/magazine/a-founding-story-to-unify-left-and-right.html
-
-**Supporting Iran in the World Cup? It’s Complicated.**\
-`Is the team against the regime or an embodiment of it?`\
-https://www.nytimes.com/2026/06/26/opinion/world-cup-iran-soccer.html
-
-**Iran’s Long World Cup Journey Defined by War and Political Tension**\
-`A win or draw against Egypt on Friday, and the team’s unusual journey will continue.`\
-https://www.nytimes.com/2026/06/26/world/middleeast/world-cup-iran-mexico.html
-
-**Larry David’s Comedy on HBO and America’s Unhappy 250th Birthday**\
-`On the one hand, the 250th anniversary has given us presidential blood sport. On the other comes a show about star-spangled nothing.`\
-https://www.nytimes.com/2026/06/26/arts/television/larry-david-hbo-life-larry-pursuit-of-unhappiness-review.html
-
-**ICE Is Killing Jobs for Americans, Not Creating Them**\
-`ICE surges are costing Americans jobs.`\
-https://www.nytimes.com/2026/06/26/opinion/ice-jobs-economy-immigration.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
