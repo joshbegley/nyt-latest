@@ -1,3 +1,7 @@
+****\
+`tktktktktk`\
+https://www.nytimes.com/video/embedded/business/100000010994176/Tungsten-Video.html
+
 **Crimea’s Moscow-Installed Leaders Declare State of Emergency After Ukrainian Attacks**\
 `Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
 https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
@@ -102,13 +106,13 @@ https://www.nytimes.com/2026/06/26/pageoneplus/corrections-june-26-2026.html
 `There has never been agreement over the meaning of America’s creation 250 years ago. Maybe there shouldn’t be.`\
 https://www.nytimes.com/2026/06/26/magazine/a-founding-story-to-unify-left-and-right.html
 
-**Iran’s Long World Cup Journey Defined by War and Political Tension**\
-`A win or draw against Egypt on Friday, and the team’s unusual journey will continue.`\
-https://www.nytimes.com/2026/06/26/world/middleeast/world-cup-iran-mexico.html
-
 **Supporting Iran in the World Cup? It’s Complicated.**\
 `Is the team against the regime or an embodiment of it?`\
 https://www.nytimes.com/2026/06/26/opinion/world-cup-iran-soccer.html
+
+**Iran’s Long World Cup Journey Defined by War and Political Tension**\
+`A win or draw against Egypt on Friday, and the team’s unusual journey will continue.`\
+https://www.nytimes.com/2026/06/26/world/middleeast/world-cup-iran-mexico.html
 
 **Larry David’s Comedy on HBO and America’s Unhappy 250th Birthday**\
 `On the one hand, the 250th anniversary has given us presidential blood sport. On the other comes a show about star-spangled nothing.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/us/politics/freedom-con-christian-men.html
 **Tiffany & Company Marks America’s 250th**\
 `The jeweler’s New York flagship is to display a renovated 1893 clock with 13 dials, including one that tracks the number of years since independence.`\
 https://www.nytimes.com/2026/06/26/fashion/clock-tiffany-usa-250th-birthday.html
-
-**How Trump’s Education Department Is Targeting Trans Students**\
-`Our Washington correspondent Michael Bender explains how the Trump administration is trying to use a civil rights law that prohibits sex-based discrimination to roll back protections for transgender students.`\
-https://www.nytimes.com/video/us/100000010927494/how-trump-mcmahon-use-title-ix-to-target-transgender-students.html
 
