@@ -1,7 +1,3 @@
-**El momento en que sacaron a una sobreviviente venezolana de un edificio derrumbado**\
-`Graciela Mora estaba con una amiga cuando los terremotos sacudieron el norte de Venezuela. Un video captó el momento en que la rescataron.`\
-https://www.nytimes.com/es/2026/06/26/espanol/america-latina/video-sobreviviente-venezolana-rescate.html
-
 **Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
