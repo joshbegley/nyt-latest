@@ -1,3 +1,7 @@
+**The Missing Ambassador of the World Cup**\
+`Remembering the life, legacy and mysterious death of an American soccer evangelist.`\
+https://www.nytimes.com/2026/06/26/podcasts/missing-ambassador-world-cup-grant-wahl.html
+
 **Trump sigue dificultando la posición política de los republicanos de cara a las elecciones**\
 `Las divisiones entre el presidente y su partido han limitado el discurso de los republicanos de cara a las elecciones de medio mandato y han dejado al Partido Republicano en una situación delicada.`\
 https://www.nytimes.com/es/2026/06/26/espanol/estados-unidos/trump-elecciones-republicanos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/arts/television/late-night-great-american-sta
 **It’s Time to Put This Catholic Teaching to Rest**\
 `Pope Leo’s first encyclical takes on a major flaw of Catholic just war theory: its use as a fig leaf for attacking an enemy.`\
 https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-ai-iran.html
-
-**In London, You Can Celebrate America’s 250th Birthday From the British Side**\
-`Britain may have lost the Revolutionary War, but London still holds the blueprints of the American Revolution. Follow in the founders’ footsteps at these notable places.`\
-https://www.nytimes.com/2026/06/26/travel/america-250-birthday-london-uk.html
 
