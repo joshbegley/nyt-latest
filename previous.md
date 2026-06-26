@@ -1,3 +1,7 @@
+**Search Teams From California, Virginia and Florida Head to Venezuela**\
+`The groups that include firefighters, doctors and structural engineering specialists began arriving on Friday to join the race to find survivors.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-rescuers.html
+
 **Virginia Man Sentenced to 40 Years for Setting City Councilman on Fire**\
 `Shotsie Buck-Hayes severely burned J. Lee Vogler, a councilman in Danville, Va., last year in an attack that the police said stemmed from a “personal matter.”`\
 https://www.nytimes.com/2026/06/26/us/virginia-man-sentenced-city-council-member-attacked.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
 **In Ecuador, a Blend of Two Languages Was Music to a Reporter’s Ears**\
 `José María León Cabrera grew up on the coast. When he moved to the highlands, he heard a blend of Spanish and Kichwa that was worth writing about.`\
 https://www.nytimes.com/2026/06/26/insider/ecuador-spanish-language-kichwa.html
-
-**Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/26/world/quake-tracker-japan.html
 
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\

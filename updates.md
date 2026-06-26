@@ -1,3 +1,7 @@
+**Search Teams From California, Virginia and Florida Head to Venezuela**\
+`The groups that include firefighters, doctors and structural engineering specialists began arriving on Friday to join the race to find survivors.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-rescuers.html
+
 **Virginia Man Sentenced to 40 Years for Setting City Councilman on Fire**\
 `Shotsie Buck-Hayes severely burned J. Lee Vogler, a councilman in Danville, Va., last year in an attack that the police said stemmed from a “personal matter.”`\
 https://www.nytimes.com/2026/06/26/us/virginia-man-sentenced-city-council-member-attacked.html
