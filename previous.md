@@ -1,3 +1,7 @@
+**Leon Black Decries ‘Vicious Narratives’ About His Relationship With Epstein**\
+`In prepared testimony before a House committee, Mr. Black said he had never sexually abused women and defended the hefty fees he had paid Jeffrey Epstein for tax and estate advice.`\
+https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
+
 **Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\
 `What’s most surprising is that Tesla and SpaceX have entered that elite group. A vast majority of companies weren’t worth owning, a long-running study shows.`\
 https://www.nytimes.com/2026/06/26/business/apple-nvidia-tesla-spacex-stock-market-winners.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/crosswords/strands-sidekick-846.html
 **Today’s Wordle Hints for June 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
 https://www.nytimes.com/2026/06/26/crosswords/wordle-review-1834.html
-
-**NYT Connections Answers for June 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
-https://www.nytimes.com/2026/06/26/crosswords/connections-companion-1112.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\

@@ -1,3 +1,7 @@
+**Leon Black Decries ‘Vicious Narratives’ About His Relationship With Epstein**\
+`In prepared testimony before a House committee, Mr. Black said he had never sexually abused women and defended the hefty fees he had paid Jeffrey Epstein for tax and estate advice.`\
+https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
+
 **Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\
 `What’s most surprising is that Tesla and SpaceX have entered that elite group. A vast majority of companies weren’t worth owning, a long-running study shows.`\
 https://www.nytimes.com/2026/06/26/business/apple-nvidia-tesla-spacex-stock-market-winners.html
