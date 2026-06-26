@@ -1,3 +1,7 @@
+**N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
+`New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
+https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
+
 **The Venezuela Earthquakes Hit a Health System Already in Crisis**\
 `Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.h
 **Apple, Micron, OpenAI and A.I.’s Rough Summer**\
 `Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
 https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
-
-**Kalshi to Become a World Cup Partner as It Pursues More Growth**\
-`The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
-https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
