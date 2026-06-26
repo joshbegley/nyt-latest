@@ -1,3 +1,7 @@
+**After Attacking Cargo Ship, Iran Presses Its Claim to Authority Over Strait**\
+`Iran issued a statement asserting its right to control traffic in the Strait of Hormuz, a day after firing on a container ship that took a route near Oman’s shore.`\
+https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
+
 **Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
 `Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
