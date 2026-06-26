@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
 `Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
 https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
 
-**Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
-`Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
+**Terremotos en Venezuela: se informa de hospitales desbordados**\
+`Los sobrevivientes trasladaron a los heridos a hospitales en coches y camionetas, mientras el número de muertos ascendía a 920 personas. Se cree que hay cientos más desaparecidos o atrapados bajo los escombros.`\
 https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
 
