@@ -1,3 +1,55 @@
+**Trump sigue dificultando la posición política de los republicanos de cara a las elecciones**\
+`Las divisiones entre el presidente y su partido han limitado el discurso de los republicanos de cara a las elecciones de medio mandato y han dejado al Partido Republicano en una situación delicada.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estados-unidos/trump-elecciones-republicanos.html
+
+**The Founder We Need Is the One We Don’t Remember**\
+`From 1776 to Jan. 6, one question remains. Which mob should rule?`\
+https://www.nytimes.com/2026/06/26/opinion/declaration-independence-constitution-james-wilson.html
+
+**The New York Times News Quiz, June 26, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/06/26/briefing/quiz-earthquake-heat-starmer-trump.html
+
+**John Bolton, Former Trump Adviser, Is Expected to Plead Guilty in Classified Information Case**\
+`Mr. Bolton is expected to admit to mishandling classified information and could face time in prison, in an inquiry that spanned the Trump and Biden administrations.`\
+https://www.nytimes.com/2026/06/26/us/politics/john-bolton-trump-classified-guilty-plea.html
+
+**Immigration Hard-Liners Repeatedly Lost in Court Before Justices Ruled in Their Favor**\
+`“This is a victory 10 years in the making,” a White House official said after the Supreme Court ruled that the Trump administration could end deportation protections for some migrants.`\
+https://www.nytimes.com/2026/06/26/us/politics/supreme-court-trump-tps.html
+
+**Should You Let Your Dog Fertilize Your Lawn?**\
+`A ruling on a dispute over proper mowing technique.`\
+https://www.nytimes.com/interactive/2026/06/26/magazine/dog-poop-lawn-mowing-hodgman-quiz.html
+
+**Corrections: June 26, 2026**\
+`Corrections that appeared in print on Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/26/pageoneplus/corrections-june-26-2026.html
+
+**Is There a Founding Story That Can Unify Left and Right?**\
+`There has never been agreement over the meaning of America’s creation 250 years ago. Maybe there shouldn’t be.`\
+https://www.nytimes.com/2026/06/26/magazine/a-founding-story-to-unify-left-and-right.html
+
+**Iran’s Long World Cup Journey Defined by War and Political Tension**\
+`A win or draw against Egypt on Friday, and the team’s unusual journey will continue.`\
+https://www.nytimes.com/2026/06/26/world/middleeast/world-cup-iran-mexico.html
+
+**Supporting Iran in the World Cup? It’s Complicated.**\
+`Is the team against the regime or an embodiment of it?`\
+https://www.nytimes.com/2026/06/26/opinion/world-cup-iran-soccer.html
+
+**Larry David’s Comedy on HBO and America’s Unhappy 250th Birthday**\
+`On the one hand, the 250th anniversary has given us presidential blood sport. On the other comes a show about star-spangled nothing.`\
+https://www.nytimes.com/2026/06/26/arts/television/larry-david-hbo-life-larry-pursuit-of-unhappiness-review.html
+
+**ICE Is Killing Jobs for Americans, Not Creating Them**\
+`ICE surges are costing Americans jobs.`\
+https://www.nytimes.com/2026/06/26/opinion/ice-jobs-economy-immigration.html
+
+**For the U.S.’s 250th Birthday, a German Declaration of Independence Goes on Show**\
+`The presentation of an original German-language translation in Berlin is an opportunity to consider the shared history of the United States and Germany.`\
+https://www.nytimes.com/2026/06/26/arts/design/german-declaration-of-independence.html
+
 **Book Club: Read ‘John of John,’ by Douglas Stuart, With the Book Review**\
 `In July, the Book Review Book Club will be discussing Stuart’s latest novel, about a profoundly isolated father and son, each grappling with long-held secrets.`\
 https://www.nytimes.com/2026/06/26/books/review/john-of-john-douglas-stuart-book-club.html
@@ -18,13 +70,13 @@ https://www.nytimes.com/2026/06/26/world/middleeast/gulf-changed-forever-iran-wa
 `A sunny studio in Saint-Germain-des-Prés, a triplex with outdoor space in the Third Arrondissement, and a furnished one-bedroom in Porte de Saint-Cloud.`\
 https://www.nytimes.com/2026/06/26/realestate/pick-your-favorite-pied-a-terre-in-paris.html
 
-**‘Jackass: Best and Last’: A Moving Look at Male Friendship and Aging (Really)**\
-`While it may seem as if these pranksters have cheated death, the latest movie in the series starring Johnny Knoxville reminds us they’re mere mortals.`\
-https://www.nytimes.com/2026/06/26/movies/jackass-best-and-last-review-johnny-knoxville.html
-
 **11 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/06/26/movies/new-movies-this-week-critics.html
+
+**‘Jackass: Best and Last’: A Moving Look at Male Friendship and Aging (Really)**\
+`While it may seem as if these pranksters have cheated death, the latest movie in the series starring Johnny Knoxville reminds us they’re mere mortals.`\
+https://www.nytimes.com/2026/06/26/movies/jackass-best-and-last-review-johnny-knoxville.html
 
 **In ‘The Vampire Lestat,’ He’s Partying Like a Bloodsucking Rock Star**\
 `Sam Reid has gone glam in the latest season of this horror series, originally titled “Anne Rice’s Interview With the Vampire.”`\
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-a
 **In London, You Can Celebrate America’s 250th Birthday From the British Side**\
 `Britain may have lost the Revolutionary War, but London still holds the blueprints of the American Revolution. Follow in the founders’ footsteps at these notable places.`\
 https://www.nytimes.com/2026/06/26/travel/america-250-birthday-london-uk.html
-
-**A $2.5 Billion Whodunit: The Hack That Dented the U.K. Economy**\
-`A loose collective of cybercriminals initially took credit for crippling Jaguar Land Rover last year. Investigators now see Russian hands behind the ransomware attack.`\
-https://www.nytimes.com/2026/06/26/world/europe/jaguar-russia-hack.html
-
-**Quote of the Day: It’s Easy to See Why the World’s Tango Lovers Don’t Cry for Turkey**\
-`Quotation of the Day for Friday, June 25, 20206.`\
-https://www.nytimes.com/2026/06/26/pageoneplus/quote-of-the-day-its-easy-to-see-why-the-worlds-tango-lovers-dont-cry-for-turkey.html
-
-**Climate Change Fueling Europe’s Ferocious Heat Wave, Scientists Find**\
-`A scientific analysis concluded that such high temperatures, across so much of the continent, would “not have been possible” without global warming.`\
-https://www.nytimes.com/2026/06/26/climate/europe-heat-wave-climate-change.html
-
-**I Thought Divorce Meant Walking Away from the Past**\
-`My marriage had a lot of good that was hard for me to forget. I’m glad I couldn’t.`\
-https://www.nytimes.com/2026/06/26/style/modern-love-i-thought-divorce-meant-walking-away-from-the-past.html
-
-**Two Introverts Happen to Get Married During the Knicks Parade**\
-`Jonathan Hicks and Caitlin Remington intended to have a low-key wedding at City Hall. Then the Ticker-tape parade was scheduled.`\
-https://www.nytimes.com/2026/06/26/style/caitlin-remington-jonathan-hicks-wedding.html
-
-**World Cups Fans in Myanmar Boycott Junta-Linked Broadcasts**\
-`In Myanmar, games are being broadcast by a company that is co-owned by the military, which usurped power five years ago. Some fans are trying other ways to watch.`\
-https://www.nytimes.com/2026/06/26/world/asia/world-cup-myanmar-junta.html
-
-**Years After High School, Their Love Story Began**\
-`A chance reunion at a sports bar led Cailin Cook and Peri Ipiotis to a first date, a pandemic-era romance and a wedding in Montauk.`\
-https://www.nytimes.com/2026/06/26/style/cailin-cook-peri-ipiotis-wedding.html
-
-**They Wanted a New York Wedding. They Got a Very New York Ending.**\
-`Devin McGinley and Lauren Birkhold celebrated their marriage along with the Knicks’ N.B.A championship.`\
-https://www.nytimes.com/2026/06/26/style/lauren-birkhold-devin-mcginley-wedding.html
-
-**For Two Met Opera Performers, a Few Multicolored Clown Wigs Were a Green Flag**\
-`Carla Jablonski and Arthur Lazalde had their first date on March 10, 2020. Days later, as the coronavirus forced cancellations at the Met, they found themselves spending a lot more time together.`\
-https://www.nytimes.com/2026/06/26/style/carla-jablonski-arthur-lazalde-wedding.html
-
-**Couple No. 16 Marries at Shakespeare in the Park**\
-`Dr. David Witzel and Paolo Valore, one of 33 couples who will have wed or renewed vows during “Romeo and Juliet,” made even the actors emotional.`\
-https://www.nytimes.com/2026/06/26/style/paolo-valore-david-witzel-wedding.html
-
-**The Maine Town That Actually Wants a Data Center**\
-`This year, Maine nearly became the first state to pass a statewide moratorium on new data centers. But before the law could take effect, supporters of an A.I. data center project in the small town of Jay rallied to fight the ban — and won. So why do residents there want one? We traveled to Jay to find out.`\
-https://www.nytimes.com/video/us/100000010933204/data-center-maine-jay.html
-
-**The Aftermath of Venezuela’s Earthquakes**\
-`Adriana Loureiro Fernandez, a photographer for The New York Times, describes the scene on the ground after the Venezuelan earthquakes.`\
-https://www.nytimes.com/video/world/americas/100000010992544/the-aftermath-of-venezuelas-earthquakes.html
-
-**NYT Crossword Answers for June 26, 2026**\
-`Spencer Leach returns to open our solving weekend.`\
-https://www.nytimes.com/2026/06/25/crosswords/daily-puzzle-2026-06-26.html
 

@@ -1,3 +1,55 @@
+**Trump sigue dificultando la posición política de los republicanos de cara a las elecciones**\
+`Las divisiones entre el presidente y su partido han limitado el discurso de los republicanos de cara a las elecciones de medio mandato y han dejado al Partido Republicano en una situación delicada.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estados-unidos/trump-elecciones-republicanos.html
+
+**The Founder We Need Is the One We Don’t Remember**\
+`From 1776 to Jan. 6, one question remains. Which mob should rule?`\
+https://www.nytimes.com/2026/06/26/opinion/declaration-independence-constitution-james-wilson.html
+
+**The New York Times News Quiz, June 26, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/06/26/briefing/quiz-earthquake-heat-starmer-trump.html
+
+**John Bolton, Former Trump Adviser, Is Expected to Plead Guilty in Classified Information Case**\
+`Mr. Bolton is expected to admit to mishandling classified information and could face time in prison, in an inquiry that spanned the Trump and Biden administrations.`\
+https://www.nytimes.com/2026/06/26/us/politics/john-bolton-trump-classified-guilty-plea.html
+
+**Immigration Hard-Liners Repeatedly Lost in Court Before Justices Ruled in Their Favor**\
+`“This is a victory 10 years in the making,” a White House official said after the Supreme Court ruled that the Trump administration could end deportation protections for some migrants.`\
+https://www.nytimes.com/2026/06/26/us/politics/supreme-court-trump-tps.html
+
+**Should You Let Your Dog Fertilize Your Lawn?**\
+`A ruling on a dispute over proper mowing technique.`\
+https://www.nytimes.com/interactive/2026/06/26/magazine/dog-poop-lawn-mowing-hodgman-quiz.html
+
+**Corrections: June 26, 2026**\
+`Corrections that appeared in print on Friday, June 26, 2026.`\
+https://www.nytimes.com/2026/06/26/pageoneplus/corrections-june-26-2026.html
+
+**Is There a Founding Story That Can Unify Left and Right?**\
+`There has never been agreement over the meaning of America’s creation 250 years ago. Maybe there shouldn’t be.`\
+https://www.nytimes.com/2026/06/26/magazine/a-founding-story-to-unify-left-and-right.html
+
+**Iran’s Long World Cup Journey Defined by War and Political Tension**\
+`A win or draw against Egypt on Friday, and the team’s unusual journey will continue.`\
+https://www.nytimes.com/2026/06/26/world/middleeast/world-cup-iran-mexico.html
+
+**Supporting Iran in the World Cup? It’s Complicated.**\
+`Is the team against the regime or an embodiment of it?`\
+https://www.nytimes.com/2026/06/26/opinion/world-cup-iran-soccer.html
+
+**Larry David’s Comedy on HBO and America’s Unhappy 250th Birthday**\
+`On the one hand, the 250th anniversary has given us presidential blood sport. On the other comes a show about star-spangled nothing.`\
+https://www.nytimes.com/2026/06/26/arts/television/larry-david-hbo-life-larry-pursuit-of-unhappiness-review.html
+
+**ICE Is Killing Jobs for Americans, Not Creating Them**\
+`ICE surges are costing Americans jobs.`\
+https://www.nytimes.com/2026/06/26/opinion/ice-jobs-economy-immigration.html
+
+**For the U.S.’s 250th Birthday, a German Declaration of Independence Goes on Show**\
+`The presentation of an original German-language translation in Berlin is an opportunity to consider the shared history of the United States and Germany.`\
+https://www.nytimes.com/2026/06/26/arts/design/german-declaration-of-independence.html
+
 **Book Club: Read ‘John of John,’ by Douglas Stuart, With the Book Review**\
 `In July, the Book Review Book Club will be discussing Stuart’s latest novel, about a profoundly isolated father and son, each grappling with long-held secrets.`\
 https://www.nytimes.com/2026/06/26/books/review/john-of-john-douglas-stuart-book-club.html
