@@ -1,3 +1,7 @@
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
 **Earthquake Tests Growing Ties Between U.S. and Venezuela**\
 `The Trump administration said it would commit aid, at a time when it has been expanding U.S. commercial interests in Venezuela beyond oil.`\
 https://www.nytimes.com/2026/06/26/us/politics/trump-venezuela-earthquake-aid.html
