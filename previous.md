@@ -1,3 +1,7 @@
+**Protected No More**\
+`We look at the impact of the Supreme Court’s immigration rulings.`\
+https://www.nytimes.com/2026/06/26/briefing/supreme-court-immigration-rulings.html
+
 **USMNT vs Turkey Recap, and Looking Ahead to Mbappé vs Haaland**\
 `Who will the co-hosts face in the Round of 32, and how prepared are they for the knockout phase?`\
 https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-norway.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/technology/ai-advanced-chip-packaging-tsmc.ht
 **The High School Pipeline to South Korea’s Chip-Making Fortunes**\
 `Huge memory-chip profits from the global A.I. boom have increased interest in semiconductor factory work. But behind the hype are uncertain job prospects.`\
 https://www.nytimes.com/2026/06/26/business/korea-chip-high-school.html
-
-**Cuando tengas un día caótico, deja que esta canción te de armonía**\
-`La obra maestra de Stephen Sondheim, ‘Sunday in the Park With George’, tiene una canción capaz de poner orden en medio del caos. Escúchala para descubrir cómo lo consiguió.`\
-https://www.nytimes.com/es/2026/06/26/espanol/cultura/stephen-sondheim-cancion.html
 
