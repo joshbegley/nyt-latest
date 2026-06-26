@@ -1,3 +1,7 @@
+**Authorities in Kenya Shut Down Nairobi to Block Annual Protest**\
+`Highways were blocked off, and the security forces were deployed to the streets of Kenya’s capital on Thursday ahead of a protest commemorating the more than 60 people killed during the protests on June 25, 2024.`\
+https://www.nytimes.com/video/world/africa/100000010992633/kenya-protest-nairobi.html
+
 **¿Cuánto tiempo puede sobrevivir una persona bajo los escombros?**\
 `Depende del agua, del aire y de lo rápido que los equipos de rescate puedan encontrar a la gente`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-sobrevivir-escobros-cuanto-tiempo.html
