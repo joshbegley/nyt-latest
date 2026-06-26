@@ -1,3 +1,15 @@
+**Prosecutors in Washington Say Citations Have Been Issued at Reflecting Pool**\
+`A spokesman provided no further details, saying those who received the citations were ordered to appear in court at a later date. No records are available.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-arrests.html
+
+**Ann Blyth, Oscar-Nominated ‘Mildred Pierce’ Actress, Dies at 98**\
+`She was just 17 when she played Joan Crawford’s ungrateful daughter in the classic 1945 melodrama. It was the high point of a robust but short film career.`\
+https://www.nytimes.com/2026/06/26/movies/ann-blyth-dead.html
+
+**Trump Threatens to Impose 100% Tariff on European Countries Over Tech Taxes**\
+`The president claimed the tariffs would override a trade deal with the European Union, which European officials finalized just days ago.`\
+https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
+
 **Trump Threatens 100% Tariffs on Europe Over Tech Taxes**\
 `The president claimed the tariffs would override a trade deal with the European Union, which European officials finalized just days ago.`\
 https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
