@@ -1,3 +1,7 @@
+**Europe’s Scorching Heat Is Gradually Moving East**\
+`Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
+https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
+
 **After Attacking Cargo Ship, Iran Presses Its Claim to Authority Over Strait**\
 `Iran issued a statement on Friday asserting its right to control traffic in the Strait of Hormuz, a day after firing on a container ship that took a route near Oman’s shore.`\
 https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
