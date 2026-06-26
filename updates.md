@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: mapas de la devastación en la costa**\
+`Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
+https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
+
 **During World Cup Tour, Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
