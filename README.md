@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html
 
 **Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
-`The Saudi-born doctor drove into a crowd of shoppers in December 2024, wounding hundreds and rattling Germans’ sense of security.`\
+`The man drove into a crowd of shoppers in December 2024, wounding hundreds of people.`\
 https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
 
 **Small Plane Crashes Into Tallest Building in Beijing**\
