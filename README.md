@@ -1,3 +1,7 @@
+**Cuando tengas un día caótico, deja que esta canción te de armonía**\
+`La obra maestra de Stephen Sondheim, ‘Sunday in the Park With George’, tiene una canción capaz de poner orden en medio del caos. Escúchala para descubrir cómo lo consiguió.`\
+https://www.nytimes.com/es/2026/06/26/espanol/cultura/stephen-sondheim-cancion.html
+
 **Flight of the Conchords y el riesgo de los reencuentros**\
 `A Bret McKenzie y Jemaine Clement se les pregunta habitualmente si volverían a interpretar sus sátiras musicales. Siempre dijeron que no, hasta este año. ¿Qué cambió?`\
 https://www.nytimes.com/es/2026/06/26/espanol/cultura/flight-of-the-conchords.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/suprema-corte-tps-t
 **What Italy Vacation Destination is Right For You?**\
 `Answer four questions, and we'll help you plan a trip.`\
 https://www.nytimes.com/interactive/2026/06/25/travel/italy-vacation-quiz.html
-
-**Nigel Cabourn, Men’s Wear Designer Revered for Vintage Aesthetic, Dies at 76**\
-`The antithesis of fast fashion, his clothes were modeled on heritage garments and mostly made in his native Britain.`\
-https://www.nytimes.com/2026/06/25/style/nigel-cabourn-dead.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
