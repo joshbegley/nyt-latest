@@ -1,3 +1,7 @@
+**Zelensky Steps Up Threats Against Belarus for Aiding Drone Attacks**\
+`Ukrainian officials say their northern neighbor is allowing its radio relay stations to be used to guide Russian attack drones more precisely.`\
+https://www.nytimes.com/2026/06/26/world/europe/zelensky-belarus-drones-relay.html
+
 **New York’s Haitian Community Reacts to Supreme Court’s Immigration Decision**\
 `Uncertainty gripped the Haitian community in New York after the Supreme Court ruled that the Trump administration could end Temporary Protected Status.`\
 https://www.nytimes.com/video/us/politics/100000010993684/haiti-supreme-court-tps-decision.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/polls/florida-us-house-7-polls-2026.html
 **Footage From Before and After Venezuelan Quakes Shows Scope of Damage**\
 `At least 235 people were dead and more than 4,300 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
 https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquakes-damage-before-after.html
-
-**Who Is Ahead in Arizona's 2nd Congressional District?**\
-`Track the latest polls in Arizona's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/arizona-us-house-2-polls-2026.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
