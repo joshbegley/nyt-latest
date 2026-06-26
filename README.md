@@ -1,10 +1,10 @@
-**After Almost 50 Years, Etan Patz’s Father Is Relieved to Have Closure**\
-`In a rare interview, Stanley Patz said he was relieved not to have to return to court and relive the day of his son’s disappearance.`\
-https://www.nytimes.com/2026/06/26/nyregion/after-almost-50-years-etan-patzs-father-is-relieved-to-have-closure.html
-
 **Flight of the Conchords y el riesgo de los reencuentros**\
 `A Bret McKenzie y Jemaine Clement se les pregunta habitualmente si volverían a interpretar sus sátiras musicales. Siempre dijeron que no, hasta este año. ¿Qué cambió?`\
 https://www.nytimes.com/es/2026/06/26/espanol/cultura/flight-of-the-conchords.html
+
+**After Almost 50 Years, Etan Patz’s Father Is Relieved to Have Closure**\
+`In a rare interview, Stanley Patz said he was relieved not to have to return to court and relive the day of his son’s disappearance.`\
+https://www.nytimes.com/2026/06/26/nyregion/after-almost-50-years-etan-patzs-father-is-relieved-to-have-closure.html
 
 **These Unpaid Interns Want $32 an Hour. And Health Insurance.**\
 `A group of government interns is campaigning for a paid wage, reigniting a debate over ethics and opportunity in one of the world’s most expensive cities.`\
