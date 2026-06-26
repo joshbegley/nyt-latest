@@ -1,3 +1,7 @@
+**Emily Blunt habla de su experiencia en “El día de la revelación”**\
+`La actriz creció viendo las películas del director e intentó “mantener la compostura” cuando él la invitó a una reunión sobre una película secreta.`\
+https://www.nytimes.com/es/2026/06/26/espanol/cultura/emily-blunt-spielberg-dia-de-la-revelacion.html
+
 **Ping-Pong’s Endless Summer at Rockaway Beach**\
 `Six artist-designed tables commissioned by Public Art Fund serve up serious fun in “Between Tides” at Beach 67. (Just take the A train.)`\
 https://www.nytimes.com/2026/06/26/arts/design/ping-pong-rockaway-beach.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/us/politics/vance-nixon-watergate-deep-state.
 **La Retaguardia (The Ones Who Stay)**\
 `Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
 https://www.nytimes.com/video/opinion/100000010887247/la-retaguardia-the-ones-who-stay.html
-
-**Georgia Delays Change to Its Vote-Counting System**\
-`A law banning QR codes on ballots had been set to go into effect on July 1. Lawmakers voted to push back its implementation until 2028.`\
-https://www.nytimes.com/2026/06/26/us/georgia-vote-counting-system-delays.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\

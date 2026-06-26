@@ -1,3 +1,7 @@
+**Emily Blunt habla de su experiencia en “El día de la revelación”**\
+`La actriz creció viendo las películas del director e intentó “mantener la compostura” cuando él la invitó a una reunión sobre una película secreta.`\
+https://www.nytimes.com/es/2026/06/26/espanol/cultura/emily-blunt-spielberg-dia-de-la-revelacion.html
+
 **Ping-Pong’s Endless Summer at Rockaway Beach**\
 `Six artist-designed tables commissioned by Public Art Fund serve up serious fun in “Between Tides” at Beach 67. (Just take the A train.)`\
 https://www.nytimes.com/2026/06/26/arts/design/ping-pong-rockaway-beach.html
