@@ -1,3 +1,19 @@
+**After Almost 50 Years, Etan Patz’s Father Is Relieved to Have Closure**\
+`In a rare interview, Stanley Patz said he was relieved not to have to return to court and relive the day of his son’s disappearance.`\
+https://www.nytimes.com/2026/06/26/nyregion/after-almost-50-years-etan-patzs-father-is-relieved-to-have-closure.html
+
+**Flight of the Conchords y el riesgo de los reencuentros**\
+`A Bret McKenzie y Jemaine Clement se les pregunta habitualmente si volverían a interpretar sus sátiras musicales. Siempre dijeron que no, hasta este año. ¿Qué cambió?`\
+https://www.nytimes.com/es/2026/06/26/espanol/cultura/flight-of-the-conchords.html
+
+**These Unpaid Interns Want $32 an Hour. And Health Insurance.**\
+`A group of government interns is campaigning for a paid wage, reigniting a debate over ethics and opportunity in one of the world’s most expensive cities.`\
+https://www.nytimes.com/2026/06/26/nyregion/unpaid-internships-nyc.html
+
+**Why Everyone in This Irish Pub Is Rooting for Cape Verde’s Soccer Team**\
+`Cape Verde, a tiny African nation in its first World Cup, has become the underdog darling of the tournament. The Irish have a personal reason to join the bandwagon.`\
+https://www.nytimes.com/2026/06/26/nyregion/cape-verde-world-cup-irish-pub.html
+
 **NYT Spelling Bee Answers for June 26, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/26/crosswords/spelling-bee-forum.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/interactive/2026/06/25/travel/italy-vacation-quiz.html
 **Nigel Cabourn, Men’s Wear Designer Revered for Vintage Aesthetic, Dies at 76**\
 `The antithesis of fast fashion, his clothes were modeled on heritage garments and mostly made in his native Britain.`\
 https://www.nytimes.com/2026/06/25/style/nigel-cabourn-dead.html
-
-**Justices Clash on Whether Race Played a Role in Trump’s Bid to Deport Haitians**\
-`The split mirrored one that has long divided Americans: how seriously to take the president’s loose, provocative and sometimes ugly remarks.`\
-https://www.nytimes.com/2026/06/25/us/politics/supreme-court-trump-haiti-race.html
-
-**Supreme Court Expands Trump’s Immigration Power**\
-`Also, Iran strikes a ship in the Strait of Hormuz. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/06/25/briefing/supreme-court-trump-immigration.html
-
-**Complaint Seeks Disclosure of Pentagon’s Agreement With Scouting America**\
-`The Pentagon and the organization have given contradictory accounts of an agreement reached in February.`\
-https://www.nytimes.com/2026/06/25/us/politics/pentagon-scouting-america-lawsuit.html
-
-**Cynthia Nixon: New York City Is About Energy and Grit**\
-`A few weeks ago, “Cannonball with Wesley Morris” hosted its first live show at the 2026 Tribeca Festival, with guest Cynthia Nixon. Together, Wesley and Cynthia discussed what it means to be a New Yorker.`\
-https://www.nytimes.com/video/podcasts/100000010985955/cynthia-nixon-new-york-city-is-about-energy-and-grit.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\

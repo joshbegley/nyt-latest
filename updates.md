@@ -1,3 +1,11 @@
+**NYT Spelling Bee Answers for June 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/26/crosswords/spelling-bee-forum.html
+
+**‘Strung’ Review: A Tease of a Thriller**\
+`Chloe Bailey, Lynn Whitfield and Lucien Laviscount have delivered more of a camp classic than a taut psychological film.`\
+https://www.nytimes.com/2026/06/26/movies/strung-review.html
+
 **It’s Time to Put This Catholic Teaching to Rest**\
 `Pope Leo’s first encyclical takes on a major flaw of Catholic just war theory: its use as a fig leaf for attacking an enemy.`\
 https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-ai-iran.html
