@@ -1,3 +1,7 @@
+**At the Great American State Fair, MAHA Meets Sno-Cones and Corn Dogs**\
+`Visitors can chow down on standard fair food while also attending health and wellness events.`\
+https://www.nytimes.com/2026/06/26/well/great-american-state-fair-food.html
+
 **Centrist Democrats Rebuke Party’s Left Wing: ‘We Are Capitalist, Not Socialist’**\
 `Following high-profile primary victories by democratic socialists, some moderate Democrats are advocating a different course, highlighting tensions in the party.`\
 https://www.nytimes.com/2026/06/26/us/politics/moderate-democrats-capitalist-socialism.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.h
 **Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\
 `What’s most surprising is that Tesla and SpaceX have entered that elite group. A vast majority of companies weren’t worth owning, a long-running study shows.`\
 https://www.nytimes.com/2026/06/26/business/apple-nvidia-tesla-spacex-stock-market-winners.html
-
-**The Man Who Cried Goooooooooooal**\
-`The Telemundo announcer Andrés Cantor must train to deliver his famed scoring celebration for the World Cup, where he could call 20 games in about a month.`\
-https://www.nytimes.com/2026/06/26/arts/television/andres-cantor-telemundo-world-cup-goal.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
