@@ -1,3 +1,7 @@
+**Heat Wave Prompts Paris to Suspend Sports Events and Public Alcohol Consumption**\
+`The Paris police chief, Patrice Faure, said the alcohol restrictions were intended to ease pressure on the health services.`\
+https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
+
 **The Missing Ambassador of the World Cup**\
 `Remembering the life, legacy and mysterious death of an American soccer evangelist.`\
 https://www.nytimes.com/2026/06/26/podcasts/missing-ambassador-world-cup-grant-wahl.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
 **Late Night Grades the Attractions at the Great American State Fair**\
 `The fair has everything, Jimmy Fallon said, including “a Trump approval rating roller coaster, which has the biggest drop in history.”`\
 https://www.nytimes.com/2026/06/26/arts/television/late-night-great-american-state-fair-trump.html
-
-**It’s Time to Put This Catholic Teaching to Rest**\
-`Pope Leo’s first encyclical takes on a major flaw of Catholic just war theory: its use as a fig leaf for attacking an enemy.`\
-https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-ai-iran.html
 
