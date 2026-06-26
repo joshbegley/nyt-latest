@@ -1,3 +1,7 @@
+**Kalshi to Become a World Cup Partner as It Pursues More Growth**\
+`The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
+https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
+
 **Europe’s Scorching Heat Is Gradually Moving East**\
 `Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
 https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-n
 `The airline said it had “reluctantly” changed course after a British regulator began investigating whether its fees were illegal.`\
 https://www.nytimes.com/2026/06/26/world/europe/ryanair-fee-children-seats.html
 
-**Europe’s Deadly Heat Wave: A Jolt for Climate Action, or Just for A.C.?**\
+**As Europe Sweats, Some Politicians Talk of Air-Conditioning, Not Climate Action**\
 `Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
 https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000010924036/china-journalist-expuls
 **Venezuela Live Updates: More Rescuers Join Urgent Search for Quake Survivors**\
 `The United States and Mexico were among the latest to send support as the death toll from two powerful earthquakes climbed to 235. Thousands were injured, and hundreds remained missing or trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
-
-**Zelensky Steps Up Threats Against Belarus for Aiding Drone Attacks**\
-`Ukrainian officials say their northern neighbor is allowing its radio relay stations to be used to guide Russian attack drones more precisely.`\
-https://www.nytimes.com/2026/06/26/world/europe/zelensky-belarus-drones-relay.html
 
