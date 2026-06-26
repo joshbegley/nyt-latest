@@ -1,3 +1,15 @@
+**USMNT vs Turkey Recap, and Looking Ahead to Mbappé vs Haaland**\
+`Who will the co-hosts face in the Round of 32, and how prepared are they for the knockout phase?`\
+https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-norway.html
+
+**Ryanair Stops Charging for Parents to Sit With Their Children**\
+`The airline said it had “reluctantly” changed course after a British regulator began investigating whether its fees were illegal.`\
+https://www.nytimes.com/2026/06/26/world/europe/ryanair-fee-children-seats.html
+
+**Europe’s Heat Wave: A Jolt for Climate Action, or Just for A.C.?**\
+`Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
+https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
+
 **Europe’s Deadly Heat Wave: A Jolt for the Climate Agenda, or Just for AC?**\
 `Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
 https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html

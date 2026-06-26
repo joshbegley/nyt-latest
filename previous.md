@@ -1,4 +1,12 @@
-**Europe’s Deadly Heat Wave: A Jolt for the Climate Agenda, or Just for AC?**\
+**USMNT vs Turkey Recap, and Looking Ahead to Mbappé vs Haaland**\
+`Who will the co-hosts face in the Round of 32, and how prepared are they for the knockout phase?`\
+https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-norway.html
+
+**Ryanair Stops Charging for Parents to Sit With Their Children**\
+`The airline said it had “reluctantly” changed course after a British regulator began investigating whether its fees were illegal.`\
+https://www.nytimes.com/2026/06/26/world/europe/ryanair-fee-children-seats.html
+
+**Europe’s Heat Wave: A Jolt for Climate Action, or Just for A.C.?**\
 `Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
 https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/26/business/korea-chip-high-school.html
 **Cuando tengas un día caótico, deja que esta canción te de armonía**\
 `La obra maestra de Stephen Sondheim, ‘Sunday in the Park With George’, tiene una canción capaz de poner orden en medio del caos. Escúchala para descubrir cómo lo consiguió.`\
 https://www.nytimes.com/es/2026/06/26/espanol/cultura/stephen-sondheim-cancion.html
-
-**Flight of the Conchords y el riesgo de los reencuentros**\
-`A Bret McKenzie y Jemaine Clement se les pregunta habitualmente si volverían a interpretar sus sátiras musicales. Siempre dijeron que no, hasta este año. ¿Qué cambió?`\
-https://www.nytimes.com/es/2026/06/26/espanol/cultura/flight-of-the-conchords.html
-
-**After Almost 50 Years, Etan Patz’s Father Is Relieved to Have Closure**\
-`In a rare interview, Stanley Patz said he was relieved not to have to return to court and relive the day of his son’s disappearance.`\
-https://www.nytimes.com/2026/06/26/nyregion/after-almost-50-years-etan-patzs-father-is-relieved-to-have-closure.html
 
