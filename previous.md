@@ -1,3 +1,7 @@
+**The Aftermath of Venezuela’s Earthquakes**\
+`Adriana Loureiro Fernandez, a photographer for The New York Times, describes the scene on the ground after the Venezuelan earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010992544/the-aftermath-of-venezuelas-earthquakes.html
+
 **NYT Crossword Answers for June 26, 2026**\
 `Spencer Leach returns to open our solving weekend.`\
 https://www.nytimes.com/2026/06/25/crosswords/daily-puzzle-2026-06-26.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000010992629/grilled-asparagus-with-burr
 **Movement Through Strait of Hormuz Is Halted After Attack on Cargo Ship**\
 `The strike on a vessel near the coast of Oman prompted a U.N. agency to pause an evacuation of ships from the Persian Gulf.`\
 https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html
-
-**Medical Journal Retracts Study Claiming Cancer Therapy Is More Effective When Given in the Morning**\
-`In a notice flagging a series of problems with a clinical trial, the journal Nature Medicine said its editors “no longer have confidence in the integrity of the results.”`\
-https://www.nytimes.com/2026/06/25/business/china-cancer-treatment-research-retraction.html
 
 **Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
 `Los sismos consecutivos han dejado al menos 188 muertos y más de 1500 heridos. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\

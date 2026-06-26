@@ -1,3 +1,7 @@
+**The Aftermath of Venezuela’s Earthquakes**\
+`Adriana Loureiro Fernandez, a photographer for The New York Times, describes the scene on the ground after the Venezuelan earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010992544/the-aftermath-of-venezuelas-earthquakes.html
+
 **Venezuela Live Updates: Search for Survivors Grows More Urgent More Than a Day After Quakes**\
 `Back-to-back earthquakes left at least 235 dead and injured more than 4,300 people, according to Venezuela’s government. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
 https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake

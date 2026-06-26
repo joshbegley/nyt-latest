@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/06/25/us/politics/military-flu-vaccine-policy.html
 https://www.nytimes.com/interactive/polls/florida-us-house-7-polls-2026.html
 
 **Footage From Before and After Venezuelan Quakes Shows Scope of Damage**\
-`As of Thursday evening, at least 188 people were dead and more than 1,500 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
+`At least 235 people were dead and more than 4,300 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
 https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquakes-damage-before-after.html
 
 **Who Is Ahead in Arizona's 2nd Congressional District?**\
