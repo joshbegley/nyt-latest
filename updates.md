@@ -1,3 +1,7 @@
+**It’s Time to Put This Catholic Teaching to Rest**\
+`Pope Leo’s first encyclical takes on a major flaw of Catholic just war theory: its use as a fig leaf for attacking an enemy.`\
+https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-ai-iran.html
+
 **Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
 `Stock markets across Asia tumbled, as investors continue to wrestle with whether the boom in artificial intelligence spending is overdone or just beginning.`\
 https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
