@@ -1,3 +1,7 @@
+**Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
+`Stock markets across Asia tumbled, as investors continue to wrestle with whether the boom in artificial intelligence spending is overdone or just beginning.`\
+https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
+
 **Late Night Grades the Attractions at the Great American State Fair**\
 `The fair has everything, Jimmy Fallon said, including “a Trump approval rating roller coaster, which has the biggest drop in history.”`\
 https://www.nytimes.com/2026/06/26/arts/television/late-night-great-american-state-fair-trump.html
