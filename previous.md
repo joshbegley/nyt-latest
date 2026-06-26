@@ -1,3 +1,7 @@
+**Reflecting Pool’s Filters Were Removed Before a Trump Event. Then the Algae Grew.**\
+`The bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
+
 **The Big Wimbledon Preview**\
 `All eyes are on Serena Williams as she is set to play Maya Joint in the opening round.`\
 https://www.nytimes.com/2026/06/26/podcasts/tennis-wimbledon-preview-serena-williams.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands
 **During World Cup Tour, Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
-
-**Los pequeños rituales que te preparan para dormir**\
-`Origami, encimeras limpias y plantas bien atendidas: los lectores revelan los pequeños hábitos que transforman el final del día en una puerta hacia el descanso.`\
-https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dormir.html
 
 **Terremotos en Venezuela: se informa de hospitales desbordados**\
 `Los sobrevivientes trasladaron a los heridos a hospitales en coches y camionetas, mientras el número de muertos ascendía a 920 personas. Se cree que hay cientos más desaparecidos o atrapados bajo los escombros.`\

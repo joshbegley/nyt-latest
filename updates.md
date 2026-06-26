@@ -1,3 +1,7 @@
+**Reflecting Pool’s Filters Were Removed Before a Trump Event. Then the Algae Grew.**\
+`The bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
+
 **The Big Wimbledon Preview**\
 `All eyes are on Serena Williams as she is set to play Maya Joint in the opening round.`\
 https://www.nytimes.com/2026/06/26/podcasts/tennis-wimbledon-preview-serena-williams.html

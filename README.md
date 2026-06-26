@@ -1,4 +1,4 @@
-**Reflecting Pool’s Filters Were Removed Before a Trump Event. Then the Algae Grew.**\
+**How the Reflecting Pool Turned Green: Missing ‘Bubblers’ and a Rush Job**\
 `The bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
 https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
 
