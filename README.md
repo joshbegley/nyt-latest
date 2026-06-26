@@ -1,3 +1,7 @@
+**Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
+`The Saudi-born doctor drove into a crowd of shoppers in December 2024, wounding hundreds and rattling Germans’ sense of security.`\
+https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
+
 **Small Plane Crashes Into Tallest Building in Beijing**\
 `Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
 https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/arts/music/gracie-abrams-interview-popcast.ht
 **Mewgenics Is a Mischievous Game About Breeding Cats**\
 `The year’s most interesting games also include a bodycam shooter in a Hong Kong underworld and a cryptographic puzzle drama.`\
 https://www.nytimes.com/2026/06/26/arts/mewgenics-review-tr-49-better-than-dead.html
-
-**Pro-MAGA Groups Spur Trump Push For Cultural Change In Schools**\
-`One nonprofit, Defending Education, initiated nearly a dozen civil rights investigations targeting diversity programs and transgender policies.`\
-https://www.nytimes.com/2026/06/26/us/politics/defending-education-smith-transgender.html
 
