@@ -96,7 +96,7 @@ https://www.nytimes.com/2026/06/26/insider/ecuador-spanish-language-kichwa.html
 
 **Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
 `View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/26/world/26wea-quake-tracker-japan-nyt6p00m.html
+https://www.nytimes.com/interactive/2026/06/26/world/quake-tracker-japan.html
 
 **Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
 `Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\

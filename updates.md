@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/26/world/quake-tracker-japan.html
+
 **American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
 `American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
 https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
