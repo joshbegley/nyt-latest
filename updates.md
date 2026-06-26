@@ -1,3 +1,7 @@
+**Ping-Pong’s Endless Summer at Rockaway Beach**\
+`Six artist-designed tables commissioned by Public Art Fund serve up serious fun in “Between Tides” at Beach 67. (Just take the A train.)`\
+https://www.nytimes.com/2026/06/26/arts/design/ping-pong-rockaway-beach.html
+
 **Richard Scolyer, Cancer Expert Who ‘Became His Own Subject,’ Dies at 59**\
 `His lifesaving melanoma research in Australia illuminated the treatment he underwent for his own brain tumor, an ordeal he courageously shared with the public.`\
 https://www.nytimes.com/2026/06/26/science/richard-scolyer-dead.html

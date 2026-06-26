@@ -1,3 +1,7 @@
+**Ping-Pong’s Endless Summer at Rockaway Beach**\
+`Six artist-designed tables commissioned by Public Art Fund serve up serious fun in “Between Tides” at Beach 67. (Just take the A train.)`\
+https://www.nytimes.com/2026/06/26/arts/design/ping-pong-rockaway-beach.html
+
 **Richard Scolyer, Cancer Expert Who ‘Became His Own Subject,’ Dies at 59**\
 `His lifesaving melanoma research in Australia illuminated the treatment he underwent for his own brain tumor, an ordeal he courageously shared with the public.`\
 https://www.nytimes.com/2026/06/26/science/richard-scolyer-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/opinion/100000010887247/la-retaguardia-the-ones-wh
 **Georgia Delays Change to Its Vote-Counting System**\
 `A law banning QR codes on ballots had been set to go into effect on July 1. Lawmakers voted to push back its implementation until 2028.`\
 https://www.nytimes.com/2026/06/26/us/georgia-vote-counting-system-delays.html
-
-**Have We Forgotten Wine’s Place at the Table?**\
-`Wine has long been considered an essential part of eating well, but its place no longer seems to be with a meal.`\
-https://www.nytimes.com/2026/06/26/dining/drinks/food-wine-connection.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
