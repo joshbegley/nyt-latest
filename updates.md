@@ -1,3 +1,7 @@
+**Virginia Man Sentenced to 40 Years for Setting City Councilman on Fire**\
+`Shotsie Buck-Hayes severely burned J. Lee Vogler, a councilman in Danville, Va., last year in an attack that the police said stemmed from a “personal matter.”`\
+https://www.nytimes.com/2026/06/26/us/virginia-man-sentenced-city-council-member-attacked.html
+
 **Congressional Panel Investigating Epstein Subpoenas Leon Black in Unusual Escalation**\
 `The panel’s Republican chairman said he was moved to act after the private equity mogul repeatedly declined to discuss nondisclosure agreements at a closed-door hearing.`\
 https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
