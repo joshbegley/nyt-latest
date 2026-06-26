@@ -1,3 +1,19 @@
+**The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
+`Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
+https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
+
+**Woman Survives After Being Trapped by Rubble in Earthquake**\
+`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
+https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
+
+**How Trump’s Political Agenda Is Shaped by His Own Obsessions**\
+`President Trump’s priorities seem increasingly detached from the concerns of voters and his party.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
+
+**Iran Asserts Authority Over Strait of Hormuz After Attacking Cargo Ship**\
+`The president did not say how or whether he would respond, a day after Iran fired on a container ship that was transiting the Strait of Hormuz, an act Mr. Trump called “foolish.”`\
+https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
+
 **Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/26/world/quake-tracker-japan.html

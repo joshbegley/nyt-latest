@@ -1,3 +1,15 @@
+**The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
+`Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
+https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
+
+**Woman Survives After Being Trapped by Rubble in Earthquake**\
+`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
+https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
+
+**How Trump’s Political Agenda Is Shaped by His Own Obsessions**\
+`President Trump’s priorities seem increasingly detached from the concerns of voters and his party.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
+
 **American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
 `American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
 https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
@@ -42,13 +54,13 @@ https://www.nytimes.com/2026/06/26/theater/pride-musical-national-theater.html
 `Once a trade hub on the Silk Roads, Bukhara is now known for its medieval Islamic architecture — and increasingly as a place for contemporary art and culture.`\
 https://www.nytimes.com/2026/06/26/t-magazine/flocking-to-bukhara-uzbekistan.html
 
-**In Cuba, Where So Many Have Left, These Artists Have Stayed**\
-`Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
-https://www.nytimes.com/2026/06/26/opinion/cuba-migration-havana-artists.html
-
 **A Chicken Salad That’s Creamy Without Mayo**\
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/06/26/dining/a-chicken-salad-thats-creamy-without-mayo.html
+
+**In Cuba, Where So Many Have Left, These Artists Have Stayed**\
+`Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
+https://www.nytimes.com/2026/06/26/opinion/cuba-migration-havana-artists.html
 
 **Los venezolanos desplazados por los terremotos duermen a la intemperie**\
 `Dos terremotos consecutivos han dejado a miles de personas sin hogar. Muchos otros, que tienen demasiado miedo para dormir en sus casas, permanecen en la calle.`\
@@ -155,7 +167,7 @@ https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partn
 https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
 
 **Iran Asserts Authority Over Strait of Hormuz After Attacking Cargo Ship**\
-`Iran issued a statement asserting its right to control traffic in the Strait of Hormuz, a day after firing on a container ship that took a route near Oman’s shore.`\
+`The president did not say how or whether he would respond, a day after Iran fired on a container ship that was transiting the Strait of Hormuz, an act Mr. Trump called “foolish.”`\
 https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
 
 **‘The Headlines’ News Quiz: Jun. 26, 2026**\
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/06/26/briefing/supreme-court-immigration-rulings.ht
 **USMNT vs Turkey Recap, and Looking Ahead to Mbappé vs Haaland**\
 `Who will the co-hosts face in the Round of 32, and how prepared are they for the knockout phase?`\
 https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-norway.html
-
-**Ryanair Stops Charging for Parents to Sit With Their Children**\
-`The airline said it had “reluctantly” changed course after a British regulator began investigating whether its fees were illegal.`\
-https://www.nytimes.com/2026/06/26/world/europe/ryanair-fee-children-seats.html
-
-**As Europe Sweats, Some Politicians Talk of Air-Conditioning, Not Climate Action**\
-`Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
-https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
-
-**Supreme Court Delivers Big Wins for Trump’s Immigration Agenda**\
-`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
-https://www.nytimes.com/2026/06/26/podcasts/the-daily/supreme-court-delivers-big-wins-for-trumps-immigration-agenda.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
