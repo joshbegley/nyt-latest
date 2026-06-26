@@ -1,3 +1,11 @@
+**Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
+`Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
+
+**Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
+`La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **Canada’s Prime Minister Residence Is a Dump. Mark Carney Is Going to Fix It Up.**\
 `The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
 https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
