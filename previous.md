@@ -191,7 +191,7 @@ https://www.nytimes.com/2026/06/26/crosswords/spelling-bee-forum.html
 https://www.nytimes.com/2026/06/26/movies/strung-review.html
 
 **Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
-`Stock markets across Asia tumbled, as investors continue to wrestle with whether the boom in artificial intelligence spending is overdone or just beginning.`\
+`Crude prices are again approaching prewar levels, as trading remains volatile.`\
 https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
 
 **Late Night Grades the Attractions at the Great American State Fair**\

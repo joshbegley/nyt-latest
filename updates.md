@@ -1,3 +1,7 @@
+**Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
+`Crude prices are again approaching prewar levels, as trading remains volatile.`\
+https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
+
 **Heat Wave Prompts Paris to Suspend Sports Events and Public Alcohol Consumption**\
 `The Paris police chief, Patrice Faure, said the alcohol restrictions were intended to ease pressure on the health services.`\
 https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
