@@ -1,3 +1,11 @@
+**Washington Theater Leader Is Out on Opening Night of TLC Musical**\
+`The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
+https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html
+
+**As Foreign Aid Arrived, Many Venezuelans Asked: ‘Where is Our Military?’**\
+`The nation’s armed forces seemed to arrive late into the emergency response — with an emphasis on controlling traffic, even as bodies remained buried under rubble.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-military-response.html
+
 **‘Pride Match’ Celebration Proves Awkward for Iran-Egypt Game in Seattle**\
 `Although homosexuality is illegal in both countries, their World Cup game has been designated a “Pride Match” by Seattle’s organizing committee to mark the month celebrating the L.G.B.T.Q. community.`\
 https://www.nytimes.com/2026/06/26/us/iran-egypt-pride-match.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages
 **Prosecutors in Kirk Case Found in Contempt for Media Statement**\
 `The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
 https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
-
-**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
-`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
-https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands.html
-
-**Latinos Rally to Support Venezuela After Earthquakes**\
-`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
-https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\

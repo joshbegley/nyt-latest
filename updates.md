@@ -1,3 +1,7 @@
+**‘Pride Match’ Celebration Proves Awkward for Iran-Egypt Game in Seattle**\
+`Although homosexuality is illegal in both countries, their World Cup game has been designated a “Pride Match” by Seattle’s organizing committee to mark the month celebrating the L.G.B.T.Q. community.`\
+https://www.nytimes.com/2026/06/26/us/iran-egypt-pride-match.html
+
 **Tackling the Politics of the World Cup**\
 `The soccer tournament has brought a flood of political story lines.`\
 https://www.nytimes.com/2026/06/26/us/politics/world-cup-politics-trump.html
