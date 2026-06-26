@@ -1,3 +1,47 @@
+**A $2.5 Billion Whodunit: The Hack That Dented the U.K. Economy**\
+`A loose collective of cybercriminals initially took credit for crippling Jaguar Land Rover last year. Investigators now see Russian hands behind the ransomware attack.`\
+https://www.nytimes.com/2026/06/26/world/europe/jaguar-russia-hack.html
+
+**Quote of the Day: It’s Easy to See Why the World’s Tango Lovers Don’t Cry for Turkey**\
+`Quotation of the Day for Friday, June 25, 20206.`\
+https://www.nytimes.com/2026/06/26/pageoneplus/quote-of-the-day-its-easy-to-see-why-the-worlds-tango-lovers-dont-cry-for-turkey.html
+
+**Climate Change Fueling Europe’s Ferocious Heat Wave, Scientists Find**\
+`A scientific analysis concluded that such high temperatures, across so much of the continent, would “not have been possible” without global warming.`\
+https://www.nytimes.com/2026/06/26/climate/europe-heat-wave-climate-change.html
+
+**I Thought Divorce Meant Walking Away from the Past**\
+`My marriage had a lot of good that was hard for me to forget. I’m glad I couldn’t.`\
+https://www.nytimes.com/2026/06/26/style/modern-love-i-thought-divorce-meant-walking-away-from-the-past.html
+
+**Two Introverts Happen to Get Married During the Knicks Parade**\
+`Jonathan Hicks and Caitlin Remington intended to have a low-key wedding at City Hall. Then the Ticker-tape parade was scheduled.`\
+https://www.nytimes.com/2026/06/26/style/caitlin-remington-jonathan-hicks-wedding.html
+
+**World Cups Fans in Myanmar Boycott Junta-Linked Broadcasts**\
+`In Myanmar, games are being broadcast by a company that is co-owned by the military, which usurped power five years ago. Some fans are trying other ways to watch.`\
+https://www.nytimes.com/2026/06/26/world/asia/world-cup-myanmar-junta.html
+
+**Years After High School, Their Love Story Began**\
+`A chance reunion at a sports bar led Cailin Cook and Peri Ipiotis to a first date, a pandemic-era romance and a wedding in Montauk.`\
+https://www.nytimes.com/2026/06/26/style/cailin-cook-peri-ipiotis-wedding.html
+
+**They Wanted a New York Wedding. They Got a Very New York Ending.**\
+`Devin McGinley and Lauren Birkhold celebrated their marriage along with the Knicks’ N.B.A championship.`\
+https://www.nytimes.com/2026/06/26/style/lauren-birkhold-devin-mcginley-wedding.html
+
+**For Two Met Opera Performers, a Few Multicolored Clown Wigs Were a Green Flag**\
+`Carla Jablonski and Arthur Lazalde had their first date on March 10, 2020. Days later, as the coronavirus forced cancellations at the Met, they found themselves spending a lot more time together.`\
+https://www.nytimes.com/2026/06/26/style/carla-jablonski-arthur-lazalde-wedding.html
+
+**Couple No. 16 Marries at Shakespeare in the Park**\
+`Dr. David Witzel and Paolo Valore, one of 33 couples who will have wed or renewed vows during “Romeo and Juliet,” made even the actors emotional.`\
+https://www.nytimes.com/2026/06/26/style/paolo-valore-david-witzel-wedding.html
+
+**The Maine Town That Actually Wants a Data Center**\
+`This year, Maine nearly became the first state to pass a statewide moratorium on new data centers. But before the law could take effect, supporters of an A.I. data center project in the small town of Jay rallied to fight the ban — and won. So why do residents there want one? We traveled to Jay to find out.`\
+https://www.nytimes.com/video/us/100000010933204/data-center-maine-jay.html
+
 **The Aftermath of Venezuela’s Earthquakes**\
 `Adriana Loureiro Fernandez, a photographer for The New York Times, describes the scene on the ground after the Venezuelan earthquakes.`\
 https://www.nytimes.com/video/world/americas/100000010992544/the-aftermath-of-venezuelas-earthquakes.html
@@ -145,50 +189,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/estanque-reflectant
 **Less Islamism, More Nationalism**\
 `In Iran and across the Middle East, the bond between religion and politics is getting weaker.`\
 https://www.nytimes.com/2026/06/25/world/islam-middle-east-politics-venezuela-europe-heat.html
-
-**En la calle y en internet, los venezolanos buscan desesperadamente a sus familiares**\
-`Mientras esperaban una respuesta del gobierno, amigos y familiares de personas que estaban en la zona del terremoto recurrieron a las redes sociales y fueron a los barrios afectados.`\
-https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-venezela-desaparecidos-busqueda.html
-
-**Here’s What the Supreme Court’s Decision Means for TPS Holders**\
-`The ruling on Temporary Protection Status will have swift repercussions for migrants and employers alike.`\
-https://www.nytimes.com/2026/06/25/us/supreme-court-tps-decision-explainer.html
-
-**OpenAI Leans Toward Holding Up I.P.O. Until Next Year**\
-`The A.I. company’s advisers are pushing its chief executive, Sam Altman, to move slowly after SpaceX’s stock has been volatile and as the start-up grapples with financial challenges.`\
-https://www.nytimes.com/2026/06/25/technology/openai-ipo-artificial-intelligence.html
-
-**Venezuelans Search for People Trapped by Twin Earthquakes**\
-`After two earthquakes on Wednesday, some Venezuelans trapped in collapsed buildings awaited rescue and others searched for loved ones in the rubble. Others spoke about the fear they felt when the earthquakes struck.`\
-https://www.nytimes.com/video/world/americas/100000010991490/venezuela-earthquake-survivors-trapped.html
-
-**Tighter Canadian Borders Limit U.S. Deportees Seeking Refuge**\
-`New Canadian policies and a longstanding border agreement with the United States will make heading north a tough route for Syrians and Haitians.`\
-https://www.nytimes.com/2026/06/25/world/canada/canada-border-immigration-deportation.html
-
-**After Supreme Court TPS Ruling, What Conditions May Haitian and Syrian Deportees Face?**\
-`The Supreme Court ruled that the Trump administration could end humanitarian protections for many Haitians and Syrians in the United States, clearing the way for their potential deportation.`\
-https://www.nytimes.com/2026/06/25/world/americas/haitians-syrians-deportations-us.html
-
-**Utah and Arizona Face ‘Extremely Critical’ Fire Weather on Friday**\
-`Forecasters this week issued one of their rarest warnings as a potent mix of storms, wind and dry vegetation threatens to spark more wildfires.`\
-https://www.nytimes.com/2026/06/25/weather/critical-fire-weather-utah-arizona.html
-
-**New York’s Indian Dining Scene Has Never Been More Exciting**\
-`Mounds of mandi, endless thalis and lamb chops with pageantry are on full display as hyper-regional restaurants take over.`\
-https://www.nytimes.com/2026/06/25/dining/new-yorks-indian-dining-scene-has-never-been-more-exciting.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/opinion/editorials/100000010983169/26opdocs-cuba-hpcg.html
-
-**Grilled Asparagus With Burrata and Furikake**\
-`There’s something truly special in this recipe from Cooking contributor Ali Slagle, linked below, about this combination of charred asparagus and scallions, milky burrata and crunchy furikake, a Japanese condiment of seaweed, sesame seeds and fish flakes.`\
-https://www.nytimes.com/video/dining/100000010992629/grilled-asparagus-with-burrata-and-furikake.html
-
-**Movement Through Strait of Hormuz Is Halted After Attack on Cargo Ship**\
-`The strike on a vessel near the coast of Oman prompted a U.N. agency to pause an evacuation of ships from the Persian Gulf.`\
-https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\

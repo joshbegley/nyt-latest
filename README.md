@@ -1,3 +1,7 @@
+**In London, You Can Celebrate America’s 250th Birthday From the British Side**\
+`Britain may have lost the Revolutionary War, but London still holds the blueprints of the American Revolution. Follow in the founders’ footsteps at these notable places.`\
+https://www.nytimes.com/2026/06/26/travel/america-250-birthday-london-uk.html
+
 **A $2.5 Billion Whodunit: The Hack That Dented the U.K. Economy**\
 `A loose collective of cybercriminals initially took credit for crippling Jaguar Land Rover last year. Investigators now see Russian hands behind the ransomware attack.`\
 https://www.nytimes.com/2026/06/26/world/europe/jaguar-russia-hack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/25/world/islam-middle-east-politics-venezuela-eu
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
-
-**Venezuela Live Updates: Search for Survivors Grows More Urgent More Than a Day After Quakes**\
-`Back-to-back earthquakes left at least 235 dead and injured more than 4,300 people, according to Venezuela’s government. Residents of the port city of La Guaira estimated that hundreds of people were trapped in rubble. The toll was expected to rise.`\
-https://www.nytimes.com/live/2026/06/25/world/venezuela-earthquake
 
