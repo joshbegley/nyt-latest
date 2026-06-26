@@ -1,3 +1,7 @@
+**Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\
+`What’s most surprising is that Tesla and SpaceX have entered that elite group. A vast majority of companies weren’t worth owning, a long-running study shows.`\
+https://www.nytimes.com/2026/06/26/business/apple-nvidia-tesla-spacex-stock-market-winners.html
+
 **Five International Movies to Stream Now**\
 `This month’s titles include Pride Month picks from Brazil, Sweden and Croatia; a soccer drama from Ireland; and a comedy from Italy.`\
 https://www.nytimes.com/2026/06/26/movies/international-movies-streaming.html
