@@ -1,3 +1,7 @@
+**American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
+`American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
+https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
+
 **FEMA Official Who Claimed He Once Teleported to a Waffle House Is Leaving**\
 `Gregg Phillips was in charge of the emergency response agency’s largest division and had come under scrutiny for a series of bizarre claims.`\
 https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-polit
 **Supreme Court Delivers Big Wins for Trump’s Immigration Agenda**\
 `The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
 https://www.nytimes.com/2026/06/26/podcasts/the-daily/supreme-court-delivers-big-wins-for-trumps-immigration-agenda.html
-
-**Big Wins for Trump at the Supreme Court, and a $2.5 Billion Cyberattack Whodunit**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/06/26/podcasts/the-headlines/trump-supreme-court-uk-jaguar-cyberattack.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\

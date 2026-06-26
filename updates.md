@@ -1,3 +1,7 @@
+**American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
+`American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
+https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
+
 **FEMA Official Who Claimed He Once Teleported to a Waffle House Is Leaving**\
 `Gregg Phillips was in charge of the emergency response agency’s largest division and had come under scrutiny for a series of bizarre claims.`\
 https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
