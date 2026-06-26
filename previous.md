@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-n
 `The airline said it had “reluctantly” changed course after a British regulator began investigating whether its fees were illegal.`\
 https://www.nytimes.com/2026/06/26/world/europe/ryanair-fee-children-seats.html
 
-**Europe’s Heat Wave: A Jolt for Climate Action, or Just for A.C.?**\
+**Europe’s Deadly Heat Wave: A Jolt for Climate Action, or Just for A.C.?**\
 `Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
 https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
 
@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/06/26/crosswords/wordle-review-1834.html
 `Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
 https://www.nytimes.com/2026/06/26/crosswords/connections-companion-1112.html
 
-**Heat Wave Prompts Paris to Suspend Sports Events and Public Alcohol Consumption**\
-`The Paris police chief, Patrice Faure, said the alcohol restrictions were intended to ease pressure on the health services.`\
+**Heat Wave Prompts Paris to Suspend Sports Events and Public Drinking**\
+`The Paris police chief, Patrice Faure, said that alcohol restrictions were intended to ease pressure on the health services.`\
 https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
 
 **The Missing Ambassador of the World Cup**\
