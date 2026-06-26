@@ -1,3 +1,11 @@
+**Yale Seeks Trump Administration Deal in Inquiry Over Race and Admissions**\
+`The university hired a high-powered law firm to try to reach an agreement with the Justice Department over claims its admissions practices hurt white and Asian applicants.`\
+https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
+
+**A Look Along Venezuela's Devastated Coast After Two Earthquakes**\
+`Buildings collapsed across the coastal region of La Guaira, north of Caracas, after Thursday’s twin quakes, an analysis shows.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/venezuela-earthquake-damage-coast.html
+
 **Search Teams From California, Virginia and Florida Head to Venezuela**\
 `The groups that include firefighters, doctors and structural engineering specialists began arriving on Friday to join the race to find survivors.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-rescuers.html

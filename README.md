@@ -1,3 +1,7 @@
+**Uber Enacts Stricter Background Checks for Drivers**\
+`The changes come after The New York Times revealed that the ride-hailing giant approved drivers with many types of criminal convictions, including violent felonies.`\
+https://www.nytimes.com/2026/06/26/business/uber-background-checks.html
+
 **Yale Seeks Trump Administration Deal in Inquiry Over Race and Admissions**\
 `The university hired a high-powered law firm to try to reach an agreement with the Justice Department over claims its admissions practices hurt white and Asian applicants.`\
 https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/26/climate/portland-heat-wave-lawsuit-oil-indust
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
 https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
-
-**Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
-`A Venezuelan official said that two powerful earthquakes on Wednesday had killed 920 people and left more than 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
-https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
 
