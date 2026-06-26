@@ -1,3 +1,7 @@
+**¿Cuánto tiempo puede sobrevivir una persona bajo los escombros?**\
+`Depende del agua, del aire y de lo rápido que los equipos de rescate puedan encontrar a la gente`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-sobrevivir-escobros-cuanto-tiempo.html
+
 **Mamdani’s Rent Freeze Is Approved by New York City Board**\
 `Mayor Zohran Mamdani’s pledge to freeze rents for rent-stabilized apartments became a centerpiece of his campaign. Six months into his first year, a city panel delivered.`\
 https://www.nytimes.com/2026/06/25/nyregion/nyc-rent-freeze-vote-mamdani.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/25/opinion/supreme-court-tps-haiti-syria.html
 **U.S. Military’s Weapons Shortage Shows Few Signs of Easing Soon**\
 `President Trump and Pentagon officials tried to reassure manufacturers as they sought additional funding from Congress.`\
 https://www.nytimes.com/2026/06/25/us/politics/us-military-weapons-shortage.html
-
-**See the Music, Hear the Sights**\
-`I thought it was cheesy to project images during a concert, but it can amplify the experience.`\
-https://www.nytimes.com/2026/06/25/opinion/classical-music-movies-concerts.html
 
 **Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
 `Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\

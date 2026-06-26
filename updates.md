@@ -1,3 +1,7 @@
+**¿Cuánto tiempo puede sobrevivir una persona bajo los escombros?**\
+`Depende del agua, del aire y de lo rápido que los equipos de rescate puedan encontrar a la gente`\
+https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-sobrevivir-escobros-cuanto-tiempo.html
+
 **Mamdani’s Rent Freeze Is Approved by New York City Board**\
 `Mayor Zohran Mamdani’s pledge to freeze rents for rent-stabilized apartments became a centerpiece of his campaign. Six months into his first year, a city panel delivered.`\
 https://www.nytimes.com/2026/06/25/nyregion/nyc-rent-freeze-vote-mamdani.html
