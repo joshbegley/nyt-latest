@@ -91,7 +91,7 @@ https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixot
 https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
 
 **Congressional Panel Investigating Epstein Subpoenas Leon Black in Unusual Escalation**\
-`The panel’s Republican chairman said that he was moved to issue the subpoenas after the private equity mogul repeatedly declined to discuss nondisclosure agreements at a closed-door hearing on Friday.`\
+`The panel’s Republican chairman said he was moved to act after the private equity mogul repeatedly declined to discuss nondisclosure agreements at a closed-door hearing.`\
 https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
 
 **Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\

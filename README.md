@@ -1,3 +1,7 @@
+**Virginia Man Sentenced to 40 Years for Setting City Councilman on Fire**\
+`Shotsie Buck-Hayes severely burned J. Lee Vogler, a councilman in Danville, Va., last year in an attack that the police said stemmed from a “personal matter.”`\
+https://www.nytimes.com/2026/06/26/us/virginia-man-sentenced-city-council-member-attacked.html
+
 **Prosecutors in Washington Say Citations Have Been Issued at Reflecting Pool**\
 `A spokesman provided no further details, saying those who received the citations were ordered to appear in court at a later date. No records are available.`\
 https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-arrests.html

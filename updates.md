@@ -1,3 +1,7 @@
+**Congressional Panel Investigating Epstein Subpoenas Leon Black in Unusual Escalation**\
+`The panel’s Republican chairman said he was moved to act after the private equity mogul repeatedly declined to discuss nondisclosure agreements at a closed-door hearing.`\
+https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
+
 **Prosecutors in Washington Say Citations Have Been Issued at Reflecting Pool**\
 `A spokesman provided no further details, saying those who received the citations were ordered to appear in court at a later date. No records are available.`\
 https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-arrests.html
