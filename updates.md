@@ -1,3 +1,11 @@
+**The Big Wimbledon Preview**\
+`All eyes are on Serena Williams as she is set to play Maya Joint in the opening round.`\
+https://www.nytimes.com/2026/06/26/podcasts/tennis-wimbledon-preview-serena-williams.html
+
+**Here’s What 250 Years of Fashion in America Looks Like**\
+`One way to understand the promise of this country is to look at what people have worn while chasing it.`\
+https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html
+
 **In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
 `Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquakes-rescues.html
