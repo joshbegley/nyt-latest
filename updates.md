@@ -1,3 +1,15 @@
+**Small Plane Crashes Into Tallest Building in Beijing**\
+`Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
+https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
+
+**Still Sending Checks in the Mail? Stop, Experts Say**\
+`If you must, keep an eye on your account statements, experts say. Thieves steal checks from mailboxes, then alter the checks with fraudulent names.`\
+https://www.nytimes.com/2026/06/26/your-money/paper-checks-mail-fraud.html
+
+**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 3 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
+https://www.nytimes.com/2026/06/26/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
+
 **Ukrainian Attacks Spur State of Emergency Declaration in Crimea**\
 `Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
 https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
