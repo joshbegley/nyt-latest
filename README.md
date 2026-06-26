@@ -1,3 +1,7 @@
+**Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
+`Stock markets across Asia tumbled, as investors continue to wrestle with whether the boom in artificial intelligence spending is overdone or just beginning.`\
+https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
+
 **Late Night Grades the Attractions at the Great American State Fair**\
 `The fair has everything, Jimmy Fallon said, including “a Trump approval rating roller coaster, which has the biggest drop in history.”`\
 https://www.nytimes.com/2026/06/26/arts/television/late-night-great-american-state-fair-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/25/technology/times-lawsuit-openai-microsoft.htm
 **Hoping for Miracles as Venezuela Digs Out From Massive Quakes**\
 `It is known as a “doublet,” two earthquakes in quick succession, and it has brought the Latin American country to its knees.`\
 https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake.html
-
-**Desafío del verano: Crea arte ambiental para mejorar tu salud mental**\
-`Combinar la creatividad con el tiempo al aire libre es bueno para tu salud mental. Te explicamos cómo.`\
-https://www.nytimes.com/es/interactive/2026/06/25/espanol/reduce-estres-crea-arte-reto.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
