@@ -1,3 +1,7 @@
+**Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
+`The Saudi-born doctor drove into a crowd of shoppers in December 2024, wounding hundreds and rattling Germans’ sense of security.`\
+https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
+
 **Small Plane Crashes Into Tallest Building in Beijing**\
 `Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
 https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
