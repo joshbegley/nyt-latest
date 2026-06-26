@@ -1,3 +1,11 @@
+**Washington Theater Leader Is Out on Opening Night of TLC Musical**\
+`The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
+https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html
+
+**As Foreign Aid Arrived, Many Venezuelans Asked: ‘Where is Our Military?’**\
+`The nation’s armed forces seemed to arrive late into the emergency response — with an emphasis on controlling traffic, even as bodies remained buried under rubble.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-military-response.html
+
 **‘Pride Match’ Celebration Proves Awkward for Iran-Egypt Game in Seattle**\
 `Although homosexuality is illegal in both countries, their World Cup game has been designated a “Pride Match” by Seattle’s organizing committee to mark the month celebrating the L.G.B.T.Q. community.`\
 https://www.nytimes.com/2026/06/26/us/iran-egypt-pride-match.html
