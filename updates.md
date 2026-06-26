@@ -1,3 +1,7 @@
+**Late Night Grades the Attractions at the Great American State Fair**\
+`The fair has everything, Jimmy Fallon said, including “a Trump approval rating roller coaster, which has the biggest drop in history.”`\
+https://www.nytimes.com/2026/06/26/arts/television/late-night-great-american-state-fair-trump.html
+
 **Pope Leo Is Waging War on War**\
 `Pope Leo’s first encyclical takes on a major flaw of Catholic just war theory: its use as a fig leaf for attacking an enemy.`\
 https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-ai-iran.html
