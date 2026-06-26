@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
+`A Venezuelan official said that two powerful earthquakes on Wednesday had killed 920 people and left more than 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
+https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
+
 **Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html

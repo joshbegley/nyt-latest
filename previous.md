@@ -183,6 +183,6 @@ https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-pric
 https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
-`President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
+`A Venezuelan official said that two powerful earthquakes on Wednesday had killed 920 people and left more than 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
 
