@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-pric
 `The man drove into a crowd of shoppers in December 2024, wounding hundreds of people.`\
 https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
 
-**Small Plane Crashes Into Tallest Building in Beijing**\
-`Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
-https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
-
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
