@@ -1,3 +1,7 @@
+**‘The Daily’ and ‘The Opinions’: How A.I. Is Changing Loneliness and Taste**\
+`The story of a woman who let a robot into her home. Plus, a discussion about why Silicon Valley has taken such an interest in taste.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-daily-and-the-opinions-how-ai-is-changing-loneliness-and-taste.html
+
 **Protected No More**\
 `We look at the impact of the Supreme Court’s immigration rulings.`\
 https://www.nytimes.com/2026/06/26/briefing/supreme-court-immigration-rulings.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/technology/intel-turnaround.html
 **How a Niche Technology Became a Choke Point for A.I.**\
 `Advanced chip packaging, which boosts computing power for artificial intelligence, has made the United States more reliant on Taiwan than ever.`\
 https://www.nytimes.com/2026/06/26/technology/ai-advanced-chip-packaging-tsmc.html
-
-**The High School Pipeline to South Korea’s Chip-Making Fortunes**\
-`Huge memory-chip profits from the global A.I. boom have increased interest in semiconductor factory work. But behind the hype are uncertain job prospects.`\
-https://www.nytimes.com/2026/06/26/business/korea-chip-high-school.html
 

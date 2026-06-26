@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Jun. 26, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-headlines/the-headlines-news-quiz-jun-26-2026.html
+
 **‘The Daily’ and ‘The Opinions’: How A.I. Is Changing Loneliness and Taste**\
 `The story of a woman who let a robot into her home. Plus, a discussion about why Silicon Valley has taken such an interest in taste.`\
 https://www.nytimes.com/2026/06/26/podcasts/the-daily-and-the-opinions-how-ai-is-changing-loneliness-and-taste.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010993684/haiti-supreme-court-tp
 **Intel’s Chip Business Shows Signs of Life After Years of Struggle**\
 `It is the centerpiece of President Trump’s drive to make more chips in the United States, but the company still has a long way to go before it can be called a complete turnaround.`\
 https://www.nytimes.com/2026/06/26/technology/intel-turnaround.html
-
-**How a Niche Technology Became a Choke Point for A.I.**\
-`Advanced chip packaging, which boosts computing power for artificial intelligence, has made the United States more reliant on Taiwan than ever.`\
-https://www.nytimes.com/2026/06/26/technology/ai-advanced-chip-packaging-tsmc.html
 

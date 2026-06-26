@@ -1,3 +1,7 @@
+**‘The Daily’ and ‘The Opinions’: How A.I. Is Changing Loneliness and Taste**\
+`The story of a woman who let a robot into her home. Plus, a discussion about why Silicon Valley has taken such an interest in taste.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-daily-and-the-opinions-how-ai-is-changing-loneliness-and-taste.html
+
 **Protected No More**\
 `We look at the impact of the Supreme Court’s immigration rulings.`\
 https://www.nytimes.com/2026/06/26/briefing/supreme-court-immigration-rulings.html
