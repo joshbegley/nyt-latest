@@ -1,3 +1,19 @@
+**Man Pleads Guilty to Fraud in Sale of Art to Springsteen’s Manager**\
+`Thomas Doyle was accused of unlawfully pocketing most of the proceeds from the sale of a painting by Gustave Courbet to Bruce Springsteen’s manager.`\
+https://www.nytimes.com/2026/06/26/arts/design/thomas-doyle-fraud-courbet-jon-landau.html
+
+**Migrant Camps Swell in South Africa Amid Growing Anti-Immigrant Threats**\
+`A threat to all undocumented foreigners to leave the country by Tuesday has led many to set up street camps as they try to get out.`\
+https://www.nytimes.com/2026/06/26/world/africa/south-africa-migrant-camps-deadline.html
+
+**How the Supreme Court Removed Key Protections for Immigrants**\
+`Our Supreme Court reporter Ann E. Marimow describes how a 6-3 majority of the justices removed protections for immigrants and asylum seekers amid the Trump administration’s crackdown.`\
+https://www.nytimes.com/video/us/politics/100000010989308/how-the-supreme-court-removed-key-protections-for-immigrants.html
+
+**Saks Emerges From Bankruptcy With a New Plan and Corporate Name**\
+`The retailer, renamed Exemplar Luxury Group, is ditching anything that isn’t focused on high-end department store shopping.`\
+https://www.nytimes.com/2026/06/26/business/saks-bankruptcy-exemplar-luxury-group.html
+
 **At the Great American State Fair, MAHA Meets Sno-Cones and Corn Dogs**\
 `Visitors can chow down on standard fair food while also attending health and wellness events.`\
 https://www.nytimes.com/2026/06/26/well/great-american-state-fair-food.html
@@ -177,18 +193,6 @@ https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
 **American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
 `American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
 https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
-
-**Gregg Phillips Leaving FEMA**\
-`Gregg Phillips was in charge of the emergency response agency’s largest division and had come under scrutiny for a series of bizarre claims.`\
-https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
-
-**Congressional Panel Investigating Epstein Subpoenas Leon Black in Unusual Escalation**\
-`The panel’s Republican chairman said he was moved to act after the private equity mogul repeatedly declined to discuss nondisclosure agreements at a closed-door hearing.`\
-https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
-
-**Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\
-`What’s most surprising is that Tesla and SpaceX have entered that elite group. A vast majority of companies weren’t worth owning, a long-running study shows.`\
-https://www.nytimes.com/2026/06/26/business/apple-nvidia-tesla-spacex-stock-market-winners.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
