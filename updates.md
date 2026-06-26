@@ -1,3 +1,7 @@
+**Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
+`Los sismos consecutivos han dejado al menos 188 muertos y más de 1500 heridos. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
+
 **Venezuela busca sobrevivientes, y un milagro, tras un devastador doblete sísmico**\
 `Dos terremotos en rápida sucesión han llevado al país latinoamericano al límite de su resistencia.`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/venezuela-terremoto-busqueda-sobrevivientes.html
