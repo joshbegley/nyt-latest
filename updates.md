@@ -1,3 +1,7 @@
+**U.S. Forces Attack Iran**\
+`Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
+
 **Washington Theater Leader Is Out on Opening Night of TLC Musical**\
 `The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
 https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html

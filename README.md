@@ -1,3 +1,11 @@
+**What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
+`The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html
+
+**Pete Buttigieg Says He Was Separated From His Children in ‘Swatting’ Attack**\
+`The former transportation secretary recounted being kept away from his 4-year-old twins overnight after an anonymous report falsely accused him of posing a threat to them.`\
+https://www.nytimes.com/2026/06/26/us/politics/buttigieg-swatting-false-report-children.html
+
 **U.S. Forces Attack Iran**\
 `Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
 **Anger Over Supreme Court Rulings on Immigration**\
 `Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
 https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
-
-**N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
-`New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
-https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
-
-**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
-`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
-https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
