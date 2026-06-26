@@ -1,3 +1,11 @@
+**NYT Crossword Answers for June 26, 2026**\
+`Spencer Leach returns to open our solving weekend.`\
+https://www.nytimes.com/2026/06/25/crosswords/daily-puzzle-2026-06-26.html
+
+**California Will Vote on a Billionaire Tax. Billionaires Aren’t Happy.**\
+`The wealthy are fighting back with two ballot issues that could nullify the measure in November. The battle reflects a broader tension as American politics processes deep inequality.`\
+https://www.nytimes.com/2026/06/25/us/california-billionaires-tax-ballot-measure.html
+
 **‘Love Island USA’ Kicks Out Another Contestant for Racial Slur**\
 `After Alannah Keyser made her debut on Sunday, viewers quickly found a social media video in which she uses a slur while singing.`\
 https://www.nytimes.com/2026/06/25/arts/television/love-island-alannah-keyser-racial-slur.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html
 **Medical Journal Retracts Study Claiming Cancer Therapy Is More Effective When Given in the Morning**\
 `In a notice flagging a series of problems with a clinical trial, the journal Nature Medicine said its editors “no longer have confidence in the integrity of the results.”`\
 https://www.nytimes.com/2026/06/25/business/china-cancer-treatment-research-retraction.html
-
-**Summer Challenge: Make Land Art to Boost Mental Health**\
-`Mixing creativity and time outdoors is good for your mental health. Here’s how.`\
-https://www.nytimes.com/interactive/2026/06/25/well/summer-challenge-land-earth-art.html
-
-**Global Warming Upends London Climate Week**\
-`The extreme heat smothering Europe has upended Climate Week in London.`\
-https://www.nytimes.com/2026/06/25/climate/london-climate-week-heat-cancelations.html
 
 **Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
 `Los sismos consecutivos han dejado al menos 188 muertos y más de 1500 heridos. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
