@@ -1,3 +1,11 @@
+**Kalshi to Become a World Cup Partner as It Pursues More Growth**\
+`The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
+https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
+
+**As Europe Sweats, Some Politicians Talk of Air-Conditioning, Not Climate Action**\
+`Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
+https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
+
 **Europe’s Scorching Heat Is Gradually Moving East**\
 `Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
 https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html

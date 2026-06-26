@@ -1,3 +1,7 @@
+**Apple, Micron, OpenAI and A.I.’s Rough Summer**\
+`Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
+https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
+
 **Kalshi to Become a World Cup Partner as It Pursues More Growth**\
 `The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
 https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010927494/how-trump-mcmahon-use-title-ix-
 **I Was Kicked Out of China**\
 `Our Times correspondent, Vivian Wang, was expelled from China as part of Beijing’s crackdown on foreign journalists. She explains how a pressure campaign by the authorities made it challenging to do her job.`\
 https://www.nytimes.com/video/world/asia/100000010924036/china-journalist-expulsion.html
-
-**Venezuela Live Updates: More Rescuers Join Urgent Search for Quake Survivors**\
-`The United States and Mexico were among the latest to send support as the death toll from two powerful earthquakes climbed to 235. Thousands were injured, and hundreds remained missing or trapped under rubble.`\
-https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
 
