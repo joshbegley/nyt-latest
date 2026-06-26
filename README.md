@@ -1,3 +1,7 @@
+**Crimea’s Moscow-Installed Leaders Declare State of Emergency After Ukrainian Attacks**\
+`Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
+https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
+
 **Apple, Micron, OpenAI and A.I.’s Rough Summer**\
 `Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
 https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/06/26/crosswords/wordle-review-1834.html
 https://www.nytimes.com/2026/06/26/crosswords/connections-companion-1112.html
 
 **Heat Wave Prompts Paris to Suspend Sports Events and Public Drinking**\
-`The Paris police chief, Patrice Faure, said that alcohol restrictions were intended to ease pressure on the health services.`\
+`The Paris police chief, Patrice Faure, said that alcohol restrictions were intended to ease pressure on health services.`\
 https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
 
 **The Missing Ambassador of the World Cup**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/fashion/clock-tiffany-usa-250th-birthday.html
 **How Trump’s Education Department Is Targeting Trans Students**\
 `Our Washington correspondent Michael Bender explains how the Trump administration is trying to use a civil rights law that prohibits sex-based discrimination to roll back protections for transgender students.`\
 https://www.nytimes.com/video/us/100000010927494/how-trump-mcmahon-use-title-ix-to-target-transgender-students.html
-
-**I Was Kicked Out of China**\
-`Our Times correspondent, Vivian Wang, was expelled from China as part of Beijing’s crackdown on foreign journalists. She explains how a pressure campaign by the authorities made it challenging to do her job.`\
-https://www.nytimes.com/video/world/asia/100000010924036/china-journalist-expulsion.html
 
