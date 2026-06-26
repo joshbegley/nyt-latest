@@ -1,3 +1,23 @@
+**Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Los pequeños rituales que te preparan para dormir**\
+`Origami, encimeras limpias y plantas bien atendidas: los lectores revelan los pequeños hábitos que transforman el final del día en una puerta hacia el descanso.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dormir.html
+
+**‘Why I Love the Beautiful Game’: Gordon Ramsay**\
+`The chef and TV star on how close he came to playing professionally.`\
+https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.html
+
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
+**Anger Over Supreme Court Rulings on Immigration**\
+`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
+
 **N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
 `New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
 https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
@@ -42,7 +62,7 @@ https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
 `American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
 https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
 
-**FEMA Official Who Claimed He Once Teleported to a Waffle House Is Leaving**\
+**Gregg Phillips Leaving FEMA**\
 `Gregg Phillips was in charge of the emergency response agency’s largest division and had come under scrutiny for a series of bizarre claims.`\
 https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
 
@@ -165,26 +185,6 @@ https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.
 **Small Plane Crashes Into Tallest Building in Beijing**\
 `Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
 https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
-
-**Still Sending Checks in the Mail? Stop, Experts Say**\
-`If you must, keep an eye on your account statements, experts say. Thieves steal checks from mailboxes, then alter the checks with fraudulent names.`\
-https://www.nytimes.com/2026/06/26/your-money/paper-checks-mail-fraud.html
-
-**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 3 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
-https://www.nytimes.com/2026/06/26/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
-
-****\
-`tktktktktk`\
-https://www.nytimes.com/video/embedded/business/100000010994176/Tungsten-Video.html
-
-**Ukrainian Attacks Spur State of Emergency Declaration in Crimea**\
-`Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
-https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
-
-**Apple, Micron, OpenAI and A.I.’s Rough Summer**\
-`Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
-https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\

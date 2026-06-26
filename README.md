@@ -1,3 +1,7 @@
+**El momento en que sacaron a una sobreviviente venezolana de un edificio derrumbado**\
+`Graciela Mora estaba con una amiga cuando los terremotos sacudieron el norte de Venezuela. Un video captó el momento en que la rescataron.`\
+https://www.nytimes.com/es/2026/06/26/espanol/america-latina/video-sobreviviente-venezolana-rescate.html
+
 **Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-pric
 **Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
 `The man drove into a crowd of shoppers in December 2024, wounding hundreds of people.`\
 https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
-
-**Small Plane Crashes Into Tallest Building in Beijing**\
-`Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
-https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
