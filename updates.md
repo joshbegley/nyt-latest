@@ -1,3 +1,7 @@
+**Mistrial Declared in Palisades Fire Arson Case**\
+`A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
 **100 Reasons to Love Mel Brooks on His 100th Birthday**\
 `Here are 100 reasons to love the comedy writer, director and star who’s celebrating a milestone on Sunday and who’s changed our culture in surprising ways.`\
 https://www.nytimes.com/interactive/2026/06/26/movies/mel-brooks-100th-birthday.html

@@ -138,7 +138,7 @@ https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands
 `Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
 https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
 
-**‘Not Enough Evidence’ for Conviction in Palisades Fire Trial, Juror Says**\
+**Mistrial Declared in Palisades Fire Arson Case**\
 `A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
 https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
 
