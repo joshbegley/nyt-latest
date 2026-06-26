@@ -1,3 +1,7 @@
+**‘Love Island USA’ Kicks Out Another Contestant for Racial Slur**\
+`After Alannah Keyser made her debut on Sunday, viewers quickly found a social media video in which she uses a slur while singing.`\
+https://www.nytimes.com/2026/06/25/arts/television/love-island-alannah-keyser-racial-slur.html
+
 **Is Gracie Abrams Really the ‘Daughter From Hell’?**\
 `Watch the full conversation with Gracie Abrams. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
