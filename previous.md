@@ -1,3 +1,11 @@
+**Canada’s Prime Minister Residence Is a Dump. Mark Carney Is Going to Fix It Up.**\
+`The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
+https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
+
+**Map: 5.2-Magnitude Earthquake Shakes Nicaragua**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/quake-tracker-nicaragua.html
+
 **Oil Prices Return to Prewar Levels After Four Months**\
 `The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
 https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/26/science/birds-acoustics-birdsong.html
 **How a Jet Fuel Refinery Is Scrambling After the Iran War Oil Shock**\
 `For a mega-refinery in Ulsan, South Korea, a top exporter of jet fuel to the West Coast of the United States and other places, weaning off Middle Eastern oil is no small feat.`\
 https://www.nytimes.com/2026/06/26/world/asia/iran-war-korea-jet-fuel.html
-
-**The Supreme Court Is Unshackling the Presidency**\
-`Where is Chief Justice John Roberts? And why isn’t he putting limits on this administration?`\
-https://www.nytimes.com/2026/06/26/opinion/supreme-court-ruling-tps-immigration-trump.html
-
-**Gracie Abrams on ‘Nepo’ Label, Writing With Paul Mescal and Her New Album**\
-`On her new album, “Daughter From Hell,” the 26-year-old star confronts growing up in a famous family and lessons from songwriting.`\
-https://www.nytimes.com/2026/06/26/arts/music/gracie-abrams-interview-popcast.html
 

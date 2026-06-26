@@ -1,3 +1,11 @@
+**Canada’s Prime Minister Residence Is a Dump. Mark Carney Is Going to Fix It Up.**\
+`The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
+https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
+
+**Map: 5.2-Magnitude Earthquake Shakes Nicaragua**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/quake-tracker-nicaragua.html
+
 **Oil Prices Return to Prewar Levels After Four Months**\
 `The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
 https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html

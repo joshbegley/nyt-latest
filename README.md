@@ -1,3 +1,7 @@
+**Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
+`Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
+
 **Canada’s Prime Minister Residence Is a Dump. Mark Carney Is Going to Fix It Up.**\
 `The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
 https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
@@ -5,6 +9,10 @@ https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.ht
 **Map: 5.2-Magnitude Earthquake Shakes Nicaragua**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/26/world/americas/quake-tracker-nicaragua.html
+
+**Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
+`La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
 
 **Oil Prices Return to Prewar Levels After Four Months**\
 `The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/26/arts/television/the-vampire-lestat-sam-reid.h
 **39 Fun Things to Do With Your Kids in N.Y.C. This Summer**\
 `Harvest the fruits of the local ice cream scene, celebrate the World Cup and the nation’s birthday, and enjoy a variety of diversions outdoors.`\
 https://www.nytimes.com/2026/06/26/arts/nyc-summer-things-to-do-events-kids-family.html
-
-**How a Bird’s Habitat Can Change Its Song**\
-`For the Bachman’s sparrow, whether a song is passed to the next generation could depend, in part, on the wind and trees.`\
-https://www.nytimes.com/2026/06/26/science/birds-acoustics-birdsong.html
-
-**How a Jet Fuel Refinery Is Scrambling After the Iran War Oil Shock**\
-`For a mega-refinery in Ulsan, South Korea, a top exporter of jet fuel to the West Coast of the United States and other places, weaning off Middle Eastern oil is no small feat.`\
-https://www.nytimes.com/2026/06/26/world/asia/iran-war-korea-jet-fuel.html
 
