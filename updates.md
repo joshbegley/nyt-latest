@@ -1,3 +1,11 @@
+**Terremotos en Venezuela: mapas de la devastación en la costa**\
+`Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
+https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
+
+**How the Reflecting Pool Turned Green: Missing ‘Bubblers’ and a Rush Job**\
+`Bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
+
 **Reflecting Pool’s Filters Were Removed Before a Trump Event. Then the Algae Grew.**\
 `The bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
 https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
