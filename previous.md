@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/26/movies/jackass-best-and-last-review-johnny-kn
 `Sam Reid has gone glam in the latest season of this horror series, originally titled “Anne Rice’s Interview With the Vampire.”`\
 https://www.nytimes.com/2026/06/26/arts/television/the-vampire-lestat-sam-reid.html
 
-**39 Fun Things to Do With Your Kids in N.Y.C. This Summer**\
-`Harvest the fruits of the local ice cream scene, celebrate the World Cup and the nation’s birthday, and enjoy a variety of diversions outdoors.`\
-https://www.nytimes.com/2026/06/26/arts/nyc-summer-things-to-do-events-kids-family.html
-
