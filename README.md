@@ -1,3 +1,7 @@
+**Authorities in Kenya Shut Down Nairobi to Block Annual Protest**\
+`Highways were blocked off, and the security forces were deployed to the streets of Kenya’s capital on Thursday ahead of a protest commemorating the more than 60 people killed during the protests on June 25, 2024.`\
+https://www.nytimes.com/video/world/africa/100000010992633/kenya-protest-nairobi.html
+
 **¿Cuánto tiempo puede sobrevivir una persona bajo los escombros?**\
 `Depende del agua, del aire y de lo rápido que los equipos de rescate puedan encontrar a la gente`\
 https://www.nytimes.com/es/2026/06/25/espanol/america-latina/terremoto-sobrevivir-escobros-cuanto-tiempo.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/06/25/espanol/tiempo-y-clima/europa-ola-de-calor
 **The Supreme Court’s TPS Decision Is a Slap in the Face to Lawful Immigrants**\
 `The Supreme Court just gave the Trump Administration free rein to end Temporary Protected Status.`\
 https://www.nytimes.com/2026/06/25/opinion/supreme-court-tps-haiti-syria.html
-
-**U.S. Military’s Weapons Shortage Shows Few Signs of Easing Soon**\
-`President Trump and Pentagon officials tried to reassure manufacturers as they sought additional funding from Congress.`\
-https://www.nytimes.com/2026/06/25/us/politics/us-military-weapons-shortage.html
 
 **Últimas noticias de Venezuela: los equipos de rescate buscan supervivientes tras los peores terremotos de las últimas décadas**\
 `Las autoridades dijeron que los sismos consecutivos dejaron al menos 188 muertos y más de 1500 heridos. Vecinos de la ciudad portuaria de La Guaira calculaban que había cientos de personas atrapadas bajo los escombros.`\
