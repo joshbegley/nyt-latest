@@ -1,3 +1,7 @@
+**Trump Threatens 100% Tariffs on Europe Over Tech Taxes**\
+`The president claimed the tariffs would override a trade deal with the European Union, which European officials finalized just days ago.`\
+https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
+
 **Flashback: Your Weekly History Quiz, June 27, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/interactive/2026/06/26/world/quake-tracker-japan.html
 **Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
 `Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
-
-**Canada’s 24 Sussex Drive Is a Dump. Mark Carney Is Going to Fix It Up.**\
-`The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
-https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
 
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
