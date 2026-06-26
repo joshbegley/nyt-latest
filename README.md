@@ -190,7 +190,7 @@ https://www.nytimes.com/video/dining/100000010992629/grilled-asparagus-with-burr
 `The strike on a vessel near the coast of Oman prompted a U.N. agency to pause an evacuation of ships from the Persian Gulf.`\
 https://www.nytimes.com/2026/06/25/business/hormuz-ship-attack-iran.html
 
-**Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
+**Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
 
