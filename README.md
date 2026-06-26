@@ -1,3 +1,7 @@
+**Late Night Grades the Attractions at the Great American State Fair**\
+`The fair has everything, Jimmy Fallon said, including “a Trump approval rating roller coaster, which has the biggest drop in history.”`\
+https://www.nytimes.com/2026/06/26/arts/television/late-night-great-american-state-fair-trump.html
+
 **Pope Leo Is Waging War on War**\
 `Pope Leo’s first encyclical takes on a major flaw of Catholic just war theory: its use as a fig leaf for attacking an enemy.`\
 https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-ai-iran.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake.html
 **Desafío del verano: Crea arte ambiental para mejorar tu salud mental**\
 `Combinar la creatividad con el tiempo al aire libre es bueno para tu salud mental. Te explicamos cómo.`\
 https://www.nytimes.com/es/interactive/2026/06/25/espanol/reduce-estres-crea-arte-reto.html
-
-**El estanque de Washington refleja distinto según quien lo mire**\
-`Por décadas, la gente se ha reunido en torno al espejo de agua para reflexionar sobre la unidad. Pero tras el intento de Trump por arreglarlo, solo se aprecian las divisiones.`\
-https://www.nytimes.com/es/2026/06/25/espanol/estados-unidos/estanque-reflectante-washington-polemica.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
