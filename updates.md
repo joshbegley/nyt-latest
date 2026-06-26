@@ -1,3 +1,7 @@
+**Apple, Micron, OpenAI and A.I.’s Rough Summer**\
+`Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
+https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
+
 **Kalshi to Become a World Cup Partner as It Pursues More Growth**\
 `The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
 https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
