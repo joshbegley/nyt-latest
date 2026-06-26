@@ -1,3 +1,23 @@
+**Olive Oil Cake**\
+`This simple, lemon-scented olive oil cake, recipe linked below, is an elegant treat all by itself or topped with whipped cream, fruit or ice cream.`\
+https://www.nytimes.com/video/dining/100000010995465/olive-oil-cake.html
+
+**Seared Zucchini and Halloumi in Red-Wine Vinaigrette**\
+`This spectacular but simple side dish, recipe linked below, pairs golden, crisp-tender rounds of zucchini with salty, molten cheese, a garlicky red-wine vinaigrette and fresh herbs.`\
+https://www.nytimes.com/video/dining/100000010995398/seared-zucchini-and-halloumi-in-red-wine-vinaigrette.html
+
+**Charred Corn and Chickpea Salad With Lime Crema**\
+`In the recipe linked below, charred corn is a bankable foundation for a simple and satiating summer meal. Just a few minutes in a hot pan will turn the kernels from starchy to sweet, while delivering smoky notes.`\
+https://www.nytimes.com/video/dining/100000010995381/charred-corn-and-chickpea-salad-with-lime-crema.html
+
+**Why D.C. Locals Are Skeptical of Trump’s Championship Golf Course Plan**\
+`See the challenges with President Trump’s plans to transform East Potomac Golf Links into a professional tournament destination.`\
+https://www.nytimes.com/interactive/2026/06/26/us/trump-dc-golf-course.html
+
+**Earthquake Tests Growing Ties Between U.S. and Venezuela**\
+`The Trump administration said it would commit aid, as it expands U.S. commercial interests in Venezuela beyond oil.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-venezuela-earthquake-aid.html
+
 **On the Streets of New York’s Little Haiti, Panic After Court Ruling**\
 `Residents in the Caribbean enclave in Brooklyn worried about returning to a crime-ravaged country after President Trump was allowed a path to deport them.`\
 https://www.nytimes.com/2026/06/26/nyregion/nyc-little-haiti-supreme-court-tps.html
