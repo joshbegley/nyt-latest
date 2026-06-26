@@ -1,3 +1,7 @@
+**Cuando tengas un día caótico, deja que esta canción te de armonía**\
+`La obra maestra de Stephen Sondheim, ‘Sunday in the Park With George’, tiene una canción capaz de poner orden en medio del caos. Escúchala para descubrir cómo lo consiguió.`\
+https://www.nytimes.com/es/2026/06/26/espanol/cultura/stephen-sondheim-cancion.html
+
 **After Almost 50 Years, Etan Patz’s Father Is Relieved to Have Closure**\
 `In a rare interview, Stanley Patz said he was relieved not to have to return to court and relive the day of his son’s disappearance.`\
 https://www.nytimes.com/2026/06/26/nyregion/after-almost-50-years-etan-patzs-father-is-relieved-to-have-closure.html
