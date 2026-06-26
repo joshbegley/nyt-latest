@@ -1,3 +1,7 @@
+**In London, You Can Celebrate America’s 250th Birthday From the British Side**\
+`Britain may have lost the Revolutionary War, but London still holds the blueprints of the American Revolution. Follow in the founders’ footsteps at these notable places.`\
+https://www.nytimes.com/2026/06/26/travel/america-250-birthday-london-uk.html
+
 **A $2.5 Billion Whodunit: The Hack That Dented the U.K. Economy**\
 `A loose collective of cybercriminals initially took credit for crippling Jaguar Land Rover last year. Investigators now see Russian hands behind the ransomware attack.`\
 https://www.nytimes.com/2026/06/26/world/europe/jaguar-russia-hack.html
