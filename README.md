@@ -1,4 +1,4 @@
-**Europe’s Deadly Heat Wave: A Jolt for the Climate Agenda, or Just for AC?**\
+**Europe’s Heat Wave: A Jolt for Climate Action, or Just for A.C.?**\
 `Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
 https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
 

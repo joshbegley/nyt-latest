@@ -1,3 +1,27 @@
+**Europe’s Deadly Heat Wave: A Jolt for the Climate Agenda, or Just for AC?**\
+`Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
+https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
+
+**Supreme Court Delivers Big Wins for Trump’s Immigration Agenda**\
+`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-daily/supreme-court-delivers-big-wins-for-trumps-immigration-agenda.html
+
+**Big Wins for Trump at the Supreme Court, and a $2.5 Billion Cyberattack Whodunit**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-headlines/trump-supreme-court-uk-jaguar-cyberattack.html
+
+**NYT Strands Hints for June 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
+https://www.nytimes.com/2026/06/26/crosswords/strands-sidekick-846.html
+
+**Today’s Wordle Hints for June 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
+https://www.nytimes.com/2026/06/26/crosswords/wordle-review-1834.html
+
+**NYT Connections Answers for June 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
+https://www.nytimes.com/2026/06/26/crosswords/connections-companion-1112.html
+
 **Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
 `Crude prices are again approaching prewar levels, as trading remains volatile.`\
 https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html

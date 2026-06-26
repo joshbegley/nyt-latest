@@ -1,3 +1,27 @@
+**Europe’s Deadly Heat Wave: A Jolt for the Climate Agenda, or Just for AC?**\
+`Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
+https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
+
+**Supreme Court Delivers Big Wins for Trump’s Immigration Agenda**\
+`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-daily/supreme-court-delivers-big-wins-for-trumps-immigration-agenda.html
+
+**Big Wins for Trump at the Supreme Court, and a $2.5 Billion Cyberattack Whodunit**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-headlines/trump-supreme-court-uk-jaguar-cyberattack.html
+
+**NYT Strands Hints for June 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
+https://www.nytimes.com/2026/06/26/crosswords/strands-sidekick-846.html
+
+**Today’s Wordle Hints for June 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
+https://www.nytimes.com/2026/06/26/crosswords/wordle-review-1834.html
+
+**NYT Connections Answers for June 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
+https://www.nytimes.com/2026/06/26/crosswords/connections-companion-1112.html
+
 **Heat Wave Prompts Paris to Suspend Sports Events and Public Alcohol Consumption**\
 `The Paris police chief, Patrice Faure, said the alcohol restrictions were intended to ease pressure on the health services.`\
 https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/es/2026/06/26/espanol/cultura/flight-of-the-conchords.ht
 **After Almost 50 Years, Etan Patz’s Father Is Relieved to Have Closure**\
 `In a rare interview, Stanley Patz said he was relieved not to have to return to court and relive the day of his son’s disappearance.`\
 https://www.nytimes.com/2026/06/26/nyregion/after-almost-50-years-etan-patzs-father-is-relieved-to-have-closure.html
-
-**These Unpaid Interns Want $32 an Hour. And Health Insurance.**\
-`A group of government interns is campaigning for a paid wage, reigniting a debate over ethics and opportunity in one of the world’s most expensive cities.`\
-https://www.nytimes.com/2026/06/26/nyregion/unpaid-internships-nyc.html
-
-**Why Everyone in This Irish Pub Is Rooting for Cape Verde’s Soccer Team**\
-`Cape Verde, a tiny African nation in its first World Cup, has become the underdog darling of the tournament. The Irish have a personal reason to join the bandwagon.`\
-https://www.nytimes.com/2026/06/26/nyregion/cape-verde-world-cup-irish-pub.html
-
-**NYT Spelling Bee Answers for June 26, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/26/crosswords/spelling-bee-forum.html
-
-**‘Strung’ Review: A Tease of a Thriller**\
-`Chloe Bailey, Lynn Whitfield and Lucien Laviscount have delivered more of a camp classic than a taut psychological film.`\
-https://www.nytimes.com/2026/06/26/movies/strung-review.html
-
-**Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
-`Crude prices are again approaching prewar levels, as trading remains volatile.`\
-https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
-
-**Late Night Grades the Attractions at the Great American State Fair**\
-`The fair has everything, Jimmy Fallon said, including “a Trump approval rating roller coaster, which has the biggest drop in history.”`\
-https://www.nytimes.com/2026/06/26/arts/television/late-night-great-american-state-fair-trump.html
 
