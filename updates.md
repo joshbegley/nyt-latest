@@ -1,3 +1,11 @@
+**In Cuba, Where So Many Have Left, These Artists Have Stayed**\
+`Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
+https://www.nytimes.com/2026/06/26/opinion/cuba-migration-havana-artists.html
+
+**A Chicken Salad That’s Creamy Without Mayo**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/06/26/dining/a-chicken-salad-thats-creamy-without-mayo.html
+
 **Los venezolanos desplazados por los terremotos duermen a la intemperie**\
 `Dos terremotos consecutivos han dejado a miles de personas sin hogar. Muchos otros, que tienen demasiado miedo para dormir en sus casas, permanecen en la calle.`\
 https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezolanos-desplazados-terremotos.html
