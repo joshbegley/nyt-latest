@@ -1,3 +1,15 @@
+**Small Plane Crashes Into Tallest Building in Beijing**\
+`Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
+https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
+
+**Still Sending Checks in the Mail? Stop, Experts Say**\
+`If you must, keep an eye on your account statements, experts say. Thieves steal checks from mailboxes, then alter the checks with fraudulent names.`\
+https://www.nytimes.com/2026/06/26/your-money/paper-checks-mail-fraud.html
+
+**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 3 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
+https://www.nytimes.com/2026/06/26/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
+
 ****\
 `tktktktktk`\
 https://www.nytimes.com/video/embedded/business/100000010994176/Tungsten-Video.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/26/arts/mewgenics-review-tr-49-better-than-dead.
 **Pro-MAGA Groups Spur Trump Push For Cultural Change In Schools**\
 `One nonprofit, Defending Education, initiated nearly a dozen civil rights investigations targeting diversity programs and transgender policies.`\
 https://www.nytimes.com/2026/06/26/us/politics/defending-education-smith-transgender.html
-
-**Word of the Day: numinous**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/26/learning/word-of-the-day-numinous.html
-
-**Freedom Con: Thousands of Men Gather for Christianity and Feats of Strength**\
-`Thousands of men and boys gathered in central Washington for masculinity, Christianity and right-wing politics.`\
-https://www.nytimes.com/2026/06/26/us/politics/freedom-con-christian-men.html
-
-**Tiffany & Company Marks America’s 250th**\
-`The jeweler’s New York flagship is to display a renovated 1893 clock with 13 dials, including one that tracks the number of years since independence.`\
-https://www.nytimes.com/2026/06/26/fashion/clock-tiffany-usa-250th-birthday.html
 

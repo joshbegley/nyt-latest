@@ -1,3 +1,7 @@
+**Ukrainian Attacks Spur State of Emergency Declaration in Crimea**\
+`Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
+https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
+
 ****\
 `tktktktktk`\
 https://www.nytimes.com/video/embedded/business/100000010994176/Tungsten-Video.html
