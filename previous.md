@@ -1,3 +1,7 @@
+**FEMA Official Who Claimed He Once Teleported to a Waffle House Is Leaving**\
+`Gregg Phillips was in charge of the emergency response agency’s largest division and had come under scrutiny for a series of bizarre claims.`\
+https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
+
 **Leon Black Decries ‘Vicious Narratives’ About His Relationship With Epstein**\
 `In prepared testimony before a House committee, Mr. Black said he had never sexually abused women and defended the hefty fees he had paid Jeffrey Epstein for tax and estate advice.`\
 https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/06/26/podcasts/the-headlines/trump-supreme-court-uk
 `Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
 https://www.nytimes.com/2026/06/26/crosswords/strands-sidekick-846.html
 
-**Today’s Wordle Hints for June 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
-https://www.nytimes.com/2026/06/26/crosswords/wordle-review-1834.html
-
-**Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
-`President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
+**Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
+`President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
 
