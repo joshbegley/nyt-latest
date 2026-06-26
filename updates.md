@@ -1,3 +1,7 @@
+**California Will Vote on a Billionaire Tax. Billionaires Aren’t Happy.**\
+`The wealthy are fighting back with two ballot issues that could nullify the measure in November. The battle reflects a broader tension as American politics contends with deep inequality.`\
+https://www.nytimes.com/2026/06/25/us/california-billionaires-tax-ballot-measure.html
+
 **NYT Crossword Answers for June 26, 2026**\
 `Spencer Leach returns to open our solving weekend.`\
 https://www.nytimes.com/2026/06/25/crosswords/daily-puzzle-2026-06-26.html

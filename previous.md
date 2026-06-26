@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/06/25/crosswords/daily-puzzle-2026-06-26.html
 
 **California Will Vote on a Billionaire Tax. Billionaires Aren’t Happy.**\
-`The wealthy are fighting back with two ballot issues that could nullify the measure in November. The battle reflects a broader tension as American politics processes deep inequality.`\
+`The wealthy are fighting back with two ballot issues that could nullify the measure in November. The battle reflects a broader tension as American politics contends with deep inequality.`\
 https://www.nytimes.com/2026/06/25/us/california-billionaires-tax-ballot-measure.html
 
 **‘Love Island USA’ Kicks Out Another Contestant for Racial Slur**\
