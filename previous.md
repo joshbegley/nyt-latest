@@ -1,3 +1,27 @@
+**Today, In Short**\
+`Heat waves, space and billionaires`\
+https://www.nytimes.com/2026/06/26/briefing/today-in-short.html
+
+**The Man Who Cried Goooooooooooal**\
+`The Telemundo announcer Andrés Cantor must train to deliver his famed scoring celebration for the World Cup, where he could call 20 games in about a month.`\
+https://www.nytimes.com/2026/06/26/arts/television/andres-cantor-telemundo-world-cup-goal.html
+
+**Americans Are Feeling Better About the Economy, Consumer Survey Shows**\
+`Consumer sentiment rose in recent weeks after plummeting early this year as energy costs soared.`\
+https://www.nytimes.com/2026/06/26/business/economy/consumer-sentiment.html
+
+**European Workers Struggle in Extreme Heat**\
+`Businesses in Europe were trying to cope with high temperatures brought by a “heat dome” that has been parked over the continent for several days.`\
+https://www.nytimes.com/video/world/europe/100000010994050/european-workers-extreme-heat.html
+
+**‘Pride’: A Tale Retold, Zhuzhed Up With Extra Camp**\
+`A new musical based on the 2014 movie “Pride” trades restrained sentimentality for all-in emotion and flamboyance.`\
+https://www.nytimes.com/2026/06/26/theater/pride-musical-national-theater.html
+
+**The Ancient Uzbeki City That’s New Again**\
+`Once a trade hub on the Silk Roads, Bukhara is now known for its medieval Islamic architecture — and increasingly as a place for contemporary art and culture.`\
+https://www.nytimes.com/2026/06/26/t-magazine/flocking-to-bukhara-uzbekistan.html
+
 **In Cuba, Where So Many Have Left, These Artists Have Stayed**\
 `Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
 https://www.nytimes.com/2026/06/26/opinion/cuba-migration-havana-artists.html
@@ -165,30 +189,6 @@ https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.ht
 **The Missing Ambassador of the World Cup**\
 `Remembering the life, legacy and mysterious death of an American soccer evangelist.`\
 https://www.nytimes.com/2026/06/26/podcasts/missing-ambassador-world-cup-grant-wahl.html
-
-**Trump sigue dificultando la posición política de los republicanos de cara a las elecciones**\
-`Las divisiones entre el presidente y su partido han limitado el discurso de los republicanos de cara a las elecciones de medio mandato y han dejado al Partido Republicano en una situación delicada.`\
-https://www.nytimes.com/es/2026/06/26/espanol/estados-unidos/trump-elecciones-republicanos.html
-
-**The Founder We Need Is the One We Don’t Remember**\
-`From 1776 to Jan. 6, one question remains. Which mob should rule?`\
-https://www.nytimes.com/2026/06/26/opinion/declaration-independence-constitution-james-wilson.html
-
-**The New York Times News Quiz, June 26, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/06/26/briefing/quiz-earthquake-heat-starmer-trump.html
-
-**John Bolton, Former Trump Adviser, Pleads Guilty in Classified Information Case**\
-`Mr. Bolton admitted to mishandling classified information and could face time in prison, in an inquiry that spanned the Trump and Biden administrations.`\
-https://www.nytimes.com/2026/06/26/us/politics/john-bolton-trump-classified-guilty-plea.html
-
-**Immigration Hard-Liners Repeatedly Lost in Court Before Justices Ruled in Their Favor**\
-`“This is a victory 10 years in the making,” a White House official said after the Supreme Court ruled that the Trump administration could end deportation protections for some migrants.`\
-https://www.nytimes.com/2026/06/26/us/politics/supreme-court-trump-tps.html
-
-**Should You Let Your Dog Fertilize Your Lawn?**\
-`A ruling on a dispute over proper mowing technique.`\
-https://www.nytimes.com/interactive/2026/06/26/magazine/dog-poop-lawn-mowing-hodgman-quiz.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
