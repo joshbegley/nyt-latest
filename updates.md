@@ -1,3 +1,11 @@
+**What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
+`The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html
+
+**Pete Buttigieg Says He Was Separated From His Children in ‘Swatting’ Attack**\
+`The former transportation secretary recounted being kept away from his 4-year-old twins overnight after an anonymous report falsely accused him of posing a threat to them.`\
+https://www.nytimes.com/2026/06/26/us/politics/buttigieg-swatting-false-report-children.html
+
 **U.S. Forces Attack Iran**\
 `Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
