@@ -186,8 +186,8 @@ https://www.nytimes.com/interactive/2026/06/25/well/summer-challenge-land-earth-
 `The extreme heat smothering Europe has upended Climate Week in London.`\
 https://www.nytimes.com/2026/06/25/climate/london-climate-week-heat-cancelations.html
 
-**Gracie Abrams on Internet Cruelty, Writing With Paul Mescal, Audrey Hobert and ‘Daughter From Hell’**\
-`Watch the full interview with Gracie Abrams.`\
+**Is Gracie Abrams Really the ‘Daughter From Hell’?**\
+`Watch the full conversation with Gracie Abrams. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
 
 **Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\

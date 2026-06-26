@@ -1,3 +1,7 @@
+**Is Gracie Abrams Really the ‘Daughter From Hell’?**\
+`Watch the full conversation with Gracie Abrams. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000010987455/gracie-abrams-on-internet-cruelty-writing-with-paul-mescal-audrey-hobert-and-daughter-from-hell.html
+
 **Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
 `Los sismos consecutivos han dejado al menos 188 muertos y más de 1500 heridos. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
