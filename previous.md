@@ -1,3 +1,7 @@
+**Debris Falls From the Sky After Plane Crash in Beijing**\
+`A lightweight aircraft registered to the airline Shuangyue General Aviation crashed into the Citic Tower in Beijing on Friday. The cause of the crash is unknown.`\
+https://www.nytimes.com/video/world/asia/100000010994420/plane-crash-beijing-china.html
+
 **100 Reasons to Love Mel Brooks on His 100th Birthday**\
 `Here are 100 reasons to love the comedy writer, director and star who’s celebrating a milestone on Sunday and who’s changed our culture in surprising ways.`\
 https://www.nytimes.com/interactive/2026/06/26/movies/mel-brooks-100th-birthday.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/movies/international-movies-streaming.html
 **Today, In Short**\
 `Heat waves, space and billionaires`\
 https://www.nytimes.com/2026/06/26/briefing/today-in-short.html
-
-**Americans Are Feeling Better About the Economy, Consumer Survey Shows**\
-`Consumer sentiment rose in recent weeks after plummeting early this year as energy costs soared.`\
-https://www.nytimes.com/2026/06/26/business/economy/consumer-sentiment.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\

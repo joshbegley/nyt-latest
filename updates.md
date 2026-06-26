@@ -1,3 +1,7 @@
+**Debris Falls From the Sky After Plane Crash in Beijing**\
+`A lightweight aircraft registered to the airline Shuangyue General Aviation crashed into the Citic Tower in Beijing on Friday. The cause of the crash is unknown.`\
+https://www.nytimes.com/video/world/asia/100000010994420/plane-crash-beijing-china.html
+
 **Mistrial Declared in Palisades Fire Arson Case**\
 `A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
 https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html

@@ -1,3 +1,11 @@
+**Centrist Democrats Rebuke Party’s Left Wing: ‘We Are Capitalist, Not Socialist’**\
+`Following high-profile primary victories by democratic socialists, some moderate Democrats are advocating a different course, highlighting tensions in the party.`\
+https://www.nytimes.com/2026/06/26/us/politics/moderate-democrats-capitalist-socialism.html
+
+**Mark Zuckerberg Urges Meta to Explore Working With Polymarket and Kalshi**\
+`Mr. Zuckerberg’s plans for Arena, a prediction markets app that Meta is building, also include appealing to 18- to 34-year-old users.`\
+https://www.nytimes.com/2026/06/26/technology/zuckerberg-meta-polymarket-kalshi.html
+
 **Debris Falls From the Sky After Plane Crash in Beijing**\
 `A lightweight aircraft registered to the airline Shuangyue General Aviation crashed into the Citic Tower in Beijing on Friday. The cause of the crash is unknown.`\
 https://www.nytimes.com/video/world/asia/100000010994420/plane-crash-beijing-china.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/26/business/apple-nvidia-tesla-spacex-stock-mark
 **The Man Who Cried Goooooooooooal**\
 `The Telemundo announcer Andrés Cantor must train to deliver his famed scoring celebration for the World Cup, where he could call 20 games in about a month.`\
 https://www.nytimes.com/2026/06/26/arts/television/andres-cantor-telemundo-world-cup-goal.html
-
-**Five International Movies to Stream Now**\
-`This month’s titles include Pride Month picks from Brazil, Sweden and Croatia; a soccer drama from Ireland; and a comedy from Italy.`\
-https://www.nytimes.com/2026/06/26/movies/international-movies-streaming.html
-
-**Today, In Short**\
-`Heat waves, space and billionaires`\
-https://www.nytimes.com/2026/06/26/briefing/today-in-short.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
