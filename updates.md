@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
+`Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
+
 **Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
 https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
