@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Heat waves, space and billionaires`\
+https://www.nytimes.com/2026/06/26/briefing/today-in-short.html
+
+**The Man Who Cried Goooooooooooal**\
+`The Telemundo announcer Andrés Cantor must train to deliver his famed scoring celebration for the World Cup, where he could call 20 games in about a month.`\
+https://www.nytimes.com/2026/06/26/arts/television/andres-cantor-telemundo-world-cup-goal.html
+
 **Americans Are Feeling Better About the Economy, Consumer Survey Shows**\
 `Consumer sentiment rose in recent weeks after plummeting early this year as energy costs soared.`\
 https://www.nytimes.com/2026/06/26/business/economy/consumer-sentiment.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.ht
 **The Missing Ambassador of the World Cup**\
 `Remembering the life, legacy and mysterious death of an American soccer evangelist.`\
 https://www.nytimes.com/2026/06/26/podcasts/missing-ambassador-world-cup-grant-wahl.html
-
-**Trump sigue dificultando la posición política de los republicanos de cara a las elecciones**\
-`Las divisiones entre el presidente y su partido han limitado el discurso de los republicanos de cara a las elecciones de medio mandato y han dejado al Partido Republicano en una situación delicada.`\
-https://www.nytimes.com/es/2026/06/26/espanol/estados-unidos/trump-elecciones-republicanos.html
-
-**The Founder We Need Is the One We Don’t Remember**\
-`From 1776 to Jan. 6, one question remains. Which mob should rule?`\
-https://www.nytimes.com/2026/06/26/opinion/declaration-independence-constitution-james-wilson.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
