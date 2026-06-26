@@ -1,3 +1,7 @@
+**Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
+`Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
+https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `A Venezuelan official said that two powerful earthquakes on Wednesday had killed 920 people and left more than 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
