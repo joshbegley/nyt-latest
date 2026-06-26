@@ -1,3 +1,11 @@
+**NYT Spelling Bee Answers for June 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/26/crosswords/spelling-bee-forum.html
+
+**‘Strung’ Review: A Tease of a Thriller**\
+`Chloe Bailey, Lynn Whitfield and Lucien Laviscount have delivered more of a camp classic than a taut psychological film.`\
+https://www.nytimes.com/2026/06/26/movies/strung-review.html
+
 **Stocks in Asia Tumble as A.I. Uncertainty Jolts Tech Shares**\
 `Stock markets across Asia tumbled, as investors continue to wrestle with whether the boom in artificial intelligence spending is overdone or just beginning.`\
 https://www.nytimes.com/2026/06/26/business/oil-price-gas-iran.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/25/us/politics/pentagon-scouting-america-lawsuit
 **Cynthia Nixon: New York City Is About Energy and Grit**\
 `A few weeks ago, “Cannonball with Wesley Morris” hosted its first live show at the 2026 Tribeca Festival, with guest Cynthia Nixon. Together, Wesley and Cynthia discussed what it means to be a New Yorker.`\
 https://www.nytimes.com/video/podcasts/100000010985955/cynthia-nixon-new-york-city-is-about-energy-and-grit.html
-
-**The New York Times Amends Lawsuit Against OpenAI and Microsoft**\
-`In a new court filing, The Times accused Microsoft of encouraging OpenAI to train its A.I. systems using copyrighted articles.`\
-https://www.nytimes.com/2026/06/25/technology/times-lawsuit-openai-microsoft.html
-
-**Hoping for Miracles as Venezuela Digs Out From Massive Quakes**\
-`It is known as a “doublet,” two earthquakes in quick succession, and it has brought the Latin American country to its knees.`\
-https://www.nytimes.com/2026/06/25/world/americas/venezuela-earthquake.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
