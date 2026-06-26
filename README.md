@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About ‘Yesteryear’**\
+`Caro Claire Burke’s best-selling novel, about a tradwife influencer with some surprises in store, is one of the buzziest books of 2026.`\
+https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.html
+
 **Mapa: un terremoto de magnitud 5,2 sacude Nicaragua**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/interactive/2026/06/26/espanol/terremoto-nicaragua-managua.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partn
 `Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
 https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
 
-**After Attacking Cargo Ship, Iran Presses Its Claim to Authority Over Strait**\
+**Iran Asserts Authority Over Strait of Hormuz After Attacking Cargo Ship**\
 `Iran issued a statement asserting its right to control traffic in the Strait of Hormuz, a day after firing on a container ship that took a route near Oman’s shore.`\
 https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/arts/design/german-declaration-of-independenc
 **Book Club: Read ‘John of John,’ by Douglas Stuart, With the Book Review**\
 `In July, the Book Review Book Club will be discussing Stuart’s latest novel, about a profoundly isolated father and son, each grappling with long-held secrets.`\
 https://www.nytimes.com/2026/06/26/books/review/john-of-john-douglas-stuart-book-club.html
-
-**With ‘Supergirl,’ Milly Alcock is Learning to Accept the Fear**\
-`After “House of the Dragon,” a starring role in another big franchise, “Supergirl,” gave Milly Alcock pause. It’s “this new gift of learning to accept the fear.”`\
-https://www.nytimes.com/2026/06/26/movies/milly-alcock-supergirl-house-of-dragon.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
