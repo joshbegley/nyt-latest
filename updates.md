@@ -1,3 +1,15 @@
+**In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
+`Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquakes-rescues.html
+
+**Live Updates: U.S. Military Strikes Missile and Drone Sites in Iran**\
+`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
+https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
+
+**Terremotos en Venezuela: se informa de hospitales desbordados**\
+`Los sobrevivientes trasladaron a los heridos a hospitales en coches y camionetas, mientras el número de muertos ascendía a 920 personas. Se cree que hay cientos más desaparecidos o atrapados bajo los escombros.`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
 `The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
 https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html

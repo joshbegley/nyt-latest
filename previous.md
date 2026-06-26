@@ -40,7 +40,11 @@ https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton
 
 **In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
 `Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
-https://www.nytimes.com/2026/06/26/world/americas/rescue-teams-and-residents-alike-race-to-save-survivors-of-venezuelas-earthquakes.html
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquakes-rescues.html
+
+**Live Updates: U.S. Military Strikes Missile and Drone Sites in Iran**\
+`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
+https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
 
 **Man Pleads Guilty to Fraud in Sale of Art to Springsteen’s Manager**\
 `Thomas Doyle was accused of unlawfully pocketing most of the proceeds from the sale of a painting by Gustave Courbet to Bruce Springsteen’s manager.`\
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.
 `After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
 https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
 
-**Anger Over Supreme Court Rulings on Immigration**\
-`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
-https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
-
-**Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
-`Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
+**Terremotos en Venezuela: se informa de hospitales desbordados**\
+`Los sobrevivientes trasladaron a los heridos a hospitales en coches y camionetas, mientras el número de muertos ascendía a 920 personas. Se cree que hay cientos más desaparecidos o atrapados bajo los escombros.`\
 https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
 
