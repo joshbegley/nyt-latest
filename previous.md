@@ -1,3 +1,7 @@
+**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
+`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
+https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
+
 **Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
 `Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
@@ -70,8 +74,8 @@ https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixot
 `Gregg Phillips was in charge of the emergency response agency’s largest division and had come under scrutiny for a series of bizarre claims.`\
 https://www.nytimes.com/2026/06/26/climate/gregg-phillips-fema-waffle-house.html
 
-**Leon Black Decries ‘Vicious Narratives’ About His Relationship With Epstein**\
-`In prepared testimony before a House committee, Mr. Black said he had never sexually abused women and defended the hefty fees he had paid Jeffrey Epstein for tax and estate advice.`\
+**Congressional Panel Investigating Epstein Subpoenas Leon Black in Unusual Escalation**\
+`The panel’s Republican chairman said that he was moved to issue the subpoenas after the private equity mogul repeatedly declined to discuss nondisclosure agreements at a closed-door hearing on Friday.`\
 https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
 
 **Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/06/26/world/americas/quake-tracker-nica
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
 https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
-
-**Oil Prices Return to Prewar Levels After Four Months**\
-`The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
-https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `A Venezuelan official said that two powerful earthquakes on Wednesday had killed 920 people and left more than 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\

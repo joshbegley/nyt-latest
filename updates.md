@@ -1,3 +1,11 @@
+**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
+`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
+https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
+
+**Congressional Panel Investigating Epstein Subpoenas Leon Black in Unusual Escalation**\
+`The panel’s Republican chairman said that he was moved to issue the subpoenas after the private equity mogul repeatedly declined to discuss nondisclosure agreements at a closed-door hearing on Friday.`\
+https://www.nytimes.com/2026/06/26/business/leon-black-jeffrey-epstein-hearing.html
+
 **Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
 `Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html

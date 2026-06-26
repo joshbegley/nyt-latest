@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, June 27, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
+
 **Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
 `Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
 https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors
 **Canada’s 24 Sussex Drive Is a Dump. Mark Carney Is Going to Fix It Up.**\
 `The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
 https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
-
-**Map: 5.2-Magnitude Earthquake Shakes Nicaragua**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/26/world/americas/quake-tracker-nicaragua.html
 
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\
