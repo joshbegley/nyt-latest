@@ -1,3 +1,7 @@
+**Five International Movies to Stream Now**\
+`This month’s titles include Pride Month picks from Brazil, Sweden and Croatia; a soccer drama from Ireland; and a comedy from Italy.`\
+https://www.nytimes.com/2026/06/26/movies/international-movies-streaming.html
+
 **Today, In Short**\
 `Heat waves, space and billionaires`\
 https://www.nytimes.com/2026/06/26/briefing/today-in-short.html

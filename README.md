@@ -1,3 +1,7 @@
+**Best Investments Over the Last 100 Years? Almost All Are Tech Companies.**\
+`What’s most surprising is that Tesla and SpaceX have entered that elite group. A vast majority of companies weren’t worth owning, a long-running study shows.`\
+https://www.nytimes.com/2026/06/26/business/apple-nvidia-tesla-spacex-stock-market-winners.html
+
 **The Man Who Cried Goooooooooooal**\
 `The Telemundo announcer Andrés Cantor must train to deliver his famed scoring celebration for the World Cup, where he could call 20 games in about a month.`\
 https://www.nytimes.com/2026/06/26/arts/television/andres-cantor-telemundo-world-cup-goal.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/crosswords/wordle-review-1834.html
 **NYT Connections Answers for June 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
 https://www.nytimes.com/2026/06/26/crosswords/connections-companion-1112.html
-
-**Heat Wave Prompts Paris to Suspend Sports Events and Public Drinking**\
-`The Paris police chief, Patrice Faure, said that alcohol restrictions were intended to ease pressure on health services.`\
-https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\

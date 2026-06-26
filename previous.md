@@ -1,10 +1,14 @@
-**Today, In Short**\
-`Heat waves, space and billionaires`\
-https://www.nytimes.com/2026/06/26/briefing/today-in-short.html
-
 **The Man Who Cried Goooooooooooal**\
 `The Telemundo announcer Andrés Cantor must train to deliver his famed scoring celebration for the World Cup, where he could call 20 games in about a month.`\
 https://www.nytimes.com/2026/06/26/arts/television/andres-cantor-telemundo-world-cup-goal.html
+
+**Five International Movies to Stream Now**\
+`This month’s titles include Pride Month picks from Brazil, Sweden and Croatia; a soccer drama from Ireland; and a comedy from Italy.`\
+https://www.nytimes.com/2026/06/26/movies/international-movies-streaming.html
+
+**Today, In Short**\
+`Heat waves, space and billionaires`\
+https://www.nytimes.com/2026/06/26/briefing/today-in-short.html
 
 **Americans Are Feeling Better About the Economy, Consumer Survey Shows**\
 `Consumer sentiment rose in recent weeks after plummeting early this year as energy costs soared.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/26/crosswords/connections-companion-1112.html
 **Heat Wave Prompts Paris to Suspend Sports Events and Public Drinking**\
 `The Paris police chief, Patrice Faure, said that alcohol restrictions were intended to ease pressure on health services.`\
 https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
-
-**The Missing Ambassador of the World Cup**\
-`Remembering the life, legacy and mysterious death of an American soccer evangelist.`\
-https://www.nytimes.com/2026/06/26/podcasts/missing-ambassador-world-cup-grant-wahl.html
 
 **Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
