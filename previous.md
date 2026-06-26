@@ -1,3 +1,15 @@
+**Tackling the Politics of the World Cup**\
+`The soccer tournament has brought a flood of political story lines.`\
+https://www.nytimes.com/2026/06/26/us/politics/world-cup-politics-trump.html
+
+**A floating convenience store appears in Toronto**\
+`“Global Convenience,” an art installation honoring the city’s role as a World Cup host, is a near-perfect replica of a corner shop. Someone got stranded after swimming out to it last week.`\
+https://www.nytimes.com/2026/06/26/world/canada/world-cup-toronto-convenience-store-rescue.html
+
+**Venezuelans in New York Confront Earthquake Back Home**\
+`The earthquake that leveled buildings and killed hundreds compounds years of grief for Venezuelans whose country has experienced political and economic collapse.`\
+https://www.nytimes.com/2026/06/26/nyregion/earthquakes-immigrants-grief-venezuela.html
+
 **Bill Pulte Picks G.O.P. Election Operative for Spy Agency Job**\
 `Christina Norton is the new chief of staff at the Office of the Director of National Intelligence, former officials said.`\
 https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquak
 **Mistrial Declared in Palisades Fire Arson Case**\
 `A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
 https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
-
-**Trump Administration to Investigate California’s Powerful Coastal Agency**\
-`Howard Lutnick, the commerce secretary, has accused the state of “environmental extremism” amid a federal push for oil production.`\
-https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
-
-**The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
-`Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
-https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
-
-**Woman Survives After Being Trapped by Rubble in Earthquake**\
-`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
-https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\

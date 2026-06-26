@@ -1,3 +1,15 @@
+**Tackling the Politics of the World Cup**\
+`The soccer tournament has brought a flood of political story lines.`\
+https://www.nytimes.com/2026/06/26/us/politics/world-cup-politics-trump.html
+
+**A floating convenience store appears in Toronto**\
+`“Global Convenience,” an art installation honoring the city’s role as a World Cup host, is a near-perfect replica of a corner shop. Someone got stranded after swimming out to it last week.`\
+https://www.nytimes.com/2026/06/26/world/canada/world-cup-toronto-convenience-store-rescue.html
+
+**Venezuelans in New York Confront Earthquake Back Home**\
+`The earthquake that leveled buildings and killed hundreds compounds years of grief for Venezuelans whose country has experienced political and economic collapse.`\
+https://www.nytimes.com/2026/06/26/nyregion/earthquakes-immigrants-grief-venezuela.html
+
 **Bill Pulte Picks G.O.P. Election Operative for Spy Agency Job**\
 `Christina Norton is the new chief of staff at the Office of the Director of National Intelligence, former officials said.`\
 https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton.html

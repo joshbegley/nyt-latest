@@ -1,3 +1,7 @@
+**‘Pride Match’ Celebration Proves Awkward for Iran-Egypt Game in Seattle**\
+`Although homosexuality is illegal in both countries, their World Cup game has been designated a “Pride Match” by Seattle’s organizing committee to mark the month celebrating the L.G.B.T.Q. community.`\
+https://www.nytimes.com/2026/06/26/us/iran-egypt-pride-match.html
+
 **Tackling the Politics of the World Cup**\
 `The soccer tournament has brought a flood of political story lines.`\
 https://www.nytimes.com/2026/06/26/us/politics/world-cup-politics-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands
 **Latinos Rally to Support Venezuela After Earthquakes**\
 `Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
 https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
-
-**Mistrial Declared in Palisades Fire Arson Case**\
-`A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
-https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
