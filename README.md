@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/06/26/podcasts/the-daily/supreme-court-delivers-big
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/06/26/podcasts/the-headlines/trump-supreme-court-uk-jaguar-cyberattack.html
 
-**NYT Strands Hints for June 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, June 27, 2026.`\
-https://www.nytimes.com/2026/06/26/crosswords/strands-sidekick-846.html
-
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
