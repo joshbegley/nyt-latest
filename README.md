@@ -14,7 +14,7 @@ https://www.nytimes.com/interactive/2026/06/26/world/26wea-quake-tracker-japan-n
 `Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
 
-**Canada’s Prime Minister Residence Is a Dump. Mark Carney Is Going to Fix It Up.**\
+**Canada’s 24 Sussex Drive Is a Dump. Mark Carney Is Going to Fix It Up.**\
 `The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
 https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
 
@@ -134,8 +134,8 @@ https://www.nytimes.com/2026/06/26/opinion/declaration-independence-constitution
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/06/26/briefing/quiz-earthquake-heat-starmer-trump.html
 
-**John Bolton, Former Trump Adviser, Is Expected to Plead Guilty in Classified Information Case**\
-`Mr. Bolton is expected to admit to mishandling classified information and could face time in prison, in an inquiry that spanned the Trump and Biden administrations.`\
+**John Bolton, Former Trump Adviser, Pleads Guilty in Classified Information Case**\
+`Mr. Bolton admitted to mishandling classified information and could face time in prison, in an inquiry that spanned the Trump and Biden administrations.`\
 https://www.nytimes.com/2026/06/26/us/politics/john-bolton-trump-classified-guilty-plea.html
 
 **Immigration Hard-Liners Repeatedly Lost in Court Before Justices Ruled in Their Favor**\
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/06/26/nyregion/the-rent-board-delivers-a-freeze-to-
 `Facing an emerging U.S.-Iran deal that leaves them vulnerable, Gulf Arab countries are reshaping their defense strategies, economies and trade routes.`\
 https://www.nytimes.com/2026/06/26/world/middleeast/gulf-changed-forever-iran-war.html
 
-**Pick Your Favorite Pied-à-Terre in Paris**\
-`A sunny studio in Saint-Germain-des-Prés, a triplex with outdoor space in the Third Arrondissement, and a furnished one-bedroom in Porte de Saint-Cloud.`\
-https://www.nytimes.com/2026/06/26/realestate/pick-your-favorite-pied-a-terre-in-paris.html
+**Venezuela Live Updates: Death Toll Rises to 589 as Rescuers Search for Quake Survivors**\
+`President Delcy Rodríguez said that two powerful earthquakes on Wednesday had left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
+https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake
 
