@@ -1,3 +1,11 @@
+**Mistrial for Man Accused of Starting One of California’s Worst Fires**\
+`Jonathan Rinderknecht was accused of setting a brush fire that later became the deadly Palisades fire. The jury could not reach a verdict on the three arson-related charges.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
+**Trump Administration to Investigate California’s Powerful Coastal Agency**\
+`Howard Lutnick, the commerce secretary, has accused the state of “environmental extremism” amid a federal push for oil production.`\
+https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
+
 **The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
 `Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
 https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html

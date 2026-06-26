@@ -1,3 +1,11 @@
+**Mistrial for Man Accused of Starting One of California’s Worst Fires**\
+`Jonathan Rinderknecht was accused of setting a brush fire that later became the deadly Palisades fire. The jury could not reach a verdict on the three arson-related charges.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
+**Trump Administration to Investigate California’s Powerful Coastal Agency**\
+`Howard Lutnick, the commerce secretary, has accused the state of “environmental extremism” amid a federal push for oil production.`\
+https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
+
 **The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
 `Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
 https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/26/podcasts/the-headlines/the-headlines-news-qui
 **‘The Daily’ and ‘The Opinions’: How A.I. Is Changing Loneliness and Taste**\
 `The story of a woman who let a robot into her home. Plus, a discussion about why Silicon Valley has taken such an interest in taste.`\
 https://www.nytimes.com/2026/06/26/podcasts/the-daily-and-the-opinions-how-ai-is-changing-loneliness-and-taste.html
-
-**Protected No More**\
-`We look at the impact of the Supreme Court’s immigration rulings.`\
-https://www.nytimes.com/2026/06/26/briefing/supreme-court-immigration-rulings.html
-
-**USMNT vs Turkey Recap, and Looking Ahead to Mbappé vs Haaland**\
-`Who will the co-hosts face in the Round of 32, and how prepared are they for the knockout phase?`\
-https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-norway.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
