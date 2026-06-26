@@ -1,3 +1,11 @@
+**Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
+`Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
+https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
+
+**In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
+`Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
+https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
+
 **Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
 `Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
 https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
