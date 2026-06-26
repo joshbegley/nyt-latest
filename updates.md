@@ -1,3 +1,11 @@
+**Crimea’s Moscow-Installed Leaders Declare State of Emergency After Ukrainian Attacks**\
+`Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
+https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
+
+**Heat Wave Prompts Paris to Suspend Sports Events and Public Drinking**\
+`The Paris police chief, Patrice Faure, said that alcohol restrictions were intended to ease pressure on health services.`\
+https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
+
 **Apple, Micron, OpenAI and A.I.’s Rough Summer**\
 `Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
 https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
