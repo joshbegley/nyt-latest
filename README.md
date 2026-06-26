@@ -1,3 +1,7 @@
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
+
 **The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
 `Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
 https://www.nytimes.com/2026/06/26/world/europe/euthanasia-netherlands-child.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partn
 **Europe’s Scorching Heat Is Gradually Moving East**\
 `Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
 https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
-
-**Iran Asserts Authority Over Strait of Hormuz After Attacking Cargo Ship**\
-`The president did not say how or whether he would respond, a day after Iran fired on a container ship that was transiting the Strait of Hormuz, an act Mr. Trump called “foolish.”`\
-https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
 
 **Venezuela Live Updates: Rescuers Search for Quake Survivors as Leader Calls to ‘Militarize’ Area**\
 `President Delcy Rodríguez said that two powerful earthquakes on Wednesday had killed 589 people and left nearly 3,000 injured. The United States and Mexico were among the latest to send support, as hundreds remained missing or trapped under rubble.`\
