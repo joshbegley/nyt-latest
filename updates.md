@@ -1,3 +1,7 @@
+**Pope Leo Is Waging War on War**\
+`Pope Leo’s first encyclical takes on a major flaw of Catholic just war theory: its use as a fig leaf for attacking an enemy.`\
+https://www.nytimes.com/2026/06/26/opinion/pope-leo-just-war-theory-encyclical-ai-iran.html
+
 **In London, You Can Celebrate America’s 250th Birthday From the British Side**\
 `Britain may have lost the Revolutionary War, but London still holds the blueprints of the American Revolution. Follow in the founders’ footsteps at these notable places.`\
 https://www.nytimes.com/2026/06/26/travel/america-250-birthday-london-uk.html
