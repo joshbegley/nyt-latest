@@ -1,3 +1,19 @@
+**Book Club: Let’s Talk About ‘Yesteryear’**\
+`Caro Claire Burke’s best-selling novel, about a tradwife influencer with some surprises in store, is one of the buzziest books of 2026.`\
+https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.html
+
+**Mapa: un terremoto de magnitud 5,2 sacude Nicaragua**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/interactive/2026/06/26/espanol/terremoto-nicaragua-managua.html
+
+**Oil Industry Lawyers Fight a $50 Billion Climate Case in Oregon**\
+`The lawsuit aims to hold fossil fuel companies responsible for a heat wave in Portland five years ago. The industry says the case should be thrown out.`\
+https://www.nytimes.com/2026/06/26/climate/portland-heat-wave-lawsuit-oil-industry.html
+
+**Iran Asserts Authority Over Strait of Hormuz After Attacking Cargo Ship**\
+`Iran issued a statement asserting its right to control traffic in the Strait of Hormuz, a day after firing on a container ship that took a route near Oman’s shore.`\
+https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
+
 **In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
 `Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
 https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
