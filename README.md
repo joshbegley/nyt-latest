@@ -1,3 +1,7 @@
+**After Attacking Cargo Ship, Iran Presses Its Claim to Authority Over Strait**\
+`Iran issued a statement on Friday asserting its right to control traffic in the Strait of Hormuz, a day after firing on a container ship that took a route near Oman’s shore.`\
+https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
+
 **‘The Headlines’ News Quiz: Jun. 26, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/06/26/podcasts/the-headlines/the-headlines-news-quiz-jun-26-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/26/world/europe/zelensky-belarus-drones-relay.ht
 **New York’s Haitian Community Reacts to Supreme Court’s Immigration Decision**\
 `Uncertainty gripped the Haitian community in New York after the Supreme Court ruled that the Trump administration could end Temporary Protected Status.`\
 https://www.nytimes.com/video/us/politics/100000010993684/haiti-supreme-court-tps-decision.html
-
-**Intel’s Chip Business Shows Signs of Life After Years of Struggle**\
-`It is the centerpiece of President Trump’s drive to make more chips in the United States, but the company still has a long way to go before it can be called a complete turnaround.`\
-https://www.nytimes.com/2026/06/26/technology/intel-turnaround.html
 
