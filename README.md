@@ -1,3 +1,7 @@
+**New York’s Haitian Community Reacts to Supreme Court’s Immigration Decision**\
+`Uncertainty gripped the Haitian community in New York after the Supreme Court ruled that the Trump administration could end Temporary Protected Status.`\
+https://www.nytimes.com/video/us/politics/100000010993684/haiti-supreme-court-tps-decision.html
+
 **Intel’s Chip Business Shows Signs of Life After Years of Struggle**\
 `It is the centerpiece of President Trump’s drive to make more chips in the United States, but the company still has a long way to go before it can be called a complete turnaround.`\
 https://www.nytimes.com/2026/06/26/technology/intel-turnaround.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquak
 **Who Is Ahead in Arizona's 2nd Congressional District?**\
 `Track the latest polls in Arizona's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/arizona-us-house-2-polls-2026.html
-
-**Colorado Brothers Hid Decaying Bodies in Their Funeral Home, Authorities Say**\
-`The owners of Davis Mortuary in Pueblo, Colo., face multiple charges after state inspectors said they found two dozen decomposing bodies behind a concealed door. One of the owners is a former coroner.`\
-https://www.nytimes.com/2026/06/25/us/colorado-funeral-home-decaying-bodies-found.html
 
 **Terremotos en Venezuela: la búsqueda de sobrevivientes se intensifica**\
 `Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
