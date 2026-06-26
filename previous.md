@@ -1,3 +1,7 @@
+**Los terremotos en Venezuela azotan a un sistema de salud que ya estaba en crisis**\
+`Los bomberos están usando la luz de sus teléfonos porque hay escasez de linternas, y un hospital desbordado en la zona del desastre está funcionando sin agua corriente, dijo un médico.`\
+https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezuela-terremotos-hospitales-sistema-salud.html
+
 **D.C. Reaches Settlement in Lawsuit Brought by ‘Star Wars’ National Guard Protester**\
 `Sam O’Hara was playing “Imperial March,” the theme of the film series villains, while protesting the presence of National Guard troops in the capital when he was handcuffed by city police officers.`\
 https://www.nytimes.com/2026/06/26/us/politics/dc-star-wars-national-guard-protest.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/polls/california-wealth-tax-polls-2026.html
 **Book Club: Let’s Talk About ‘Yesteryear’**\
 `Caro Claire Burke’s best-selling novel, about a tradwife influencer with some surprises in store, is one of the buzziest books of 2026.`\
 https://www.nytimes.com/2026/06/26/books/review/podcast-yesteryear-book-club.html
-
-**Mapa: un terremoto de magnitud 5,2 sacude Nicaragua**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/interactive/2026/06/26/espanol/terremoto-nicaragua-managua.html
 
 **Terremotos en Venezuela: el número de muertos asciende a 589 mientras se buscan supervivientes**\
 `La presidenta Delcy Rodríguez dijo que los dos fuertes sismos del miércoles habían dejado casi 3000 heridos. EE. UU. y México han sido de los más recientes países en enviar ayuda.`\

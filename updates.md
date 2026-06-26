@@ -1,3 +1,7 @@
+**Los terremotos en Venezuela azotan a un sistema de salud que ya estaba en crisis**\
+`Los bomberos están usando la luz de sus teléfonos porque hay escasez de linternas, y un hospital desbordado en la zona del desastre está funcionando sin agua corriente, dijo un médico.`\
+https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezuela-terremotos-hospitales-sistema-salud.html
+
 **D.C. Reaches Settlement in Lawsuit Brought by ‘Star Wars’ National Guard Protester**\
 `Sam O’Hara was playing “Imperial March,” the theme of the film series villains, while protesting the presence of National Guard troops in the capital when he was handcuffed by city police officers.`\
 https://www.nytimes.com/2026/06/26/us/politics/dc-star-wars-national-guard-protest.html
