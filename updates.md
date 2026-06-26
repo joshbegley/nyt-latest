@@ -1,3 +1,7 @@
+**New York’s Haitian Community Reacts to Supreme Court’s Immigration Decision**\
+`Uncertainty gripped the Haitian community in New York after the Supreme Court ruled that the Trump administration could end Temporary Protected Status.`\
+https://www.nytimes.com/video/us/politics/100000010993684/haiti-supreme-court-tps-decision.html
+
 **Intel’s Chip Business Shows Signs of Life After Years of Struggle**\
 `It is the centerpiece of President Trump’s drive to make more chips in the United States, but the company still has a long way to go before it can be called a complete turnaround.`\
 https://www.nytimes.com/2026/06/26/technology/intel-turnaround.html
