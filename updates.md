@@ -1,3 +1,7 @@
+**Venezuela en vivo: la búsqueda de sobrevivientes se intensifica a 24 horas de los terremotos**\
+`Los sismos consecutivos han dejado al menos 235 muertos y más de 4300 heridos, según las autoridades. En La Guaira se calcula que hay cientos de personas atrapadas entre los escombros. Se espera que el número de víctimas aumente.`\
+https://www.nytimes.com/live/2026/06/25/espanol/venezuela-terremoto
+
 **Footage From Before and After Venezuelan Quakes Shows Scope of Damage**\
 `At least 235 people were dead and more than 4,300 people were injured after two back-to-back earthquakes hit Venezuela, according to the country’s government. Before-and-after images show the scope of the damage.`\
 https://www.nytimes.com/video/world/americas/100000010991730/venezuela-earthquakes-damage-before-after.html
