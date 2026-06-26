@@ -1,3 +1,11 @@
+**On the Streets of New York’s Little Haiti, Panic After Court Ruling**\
+`Residents in the Caribbean enclave in Brooklyn worried about returning to a crime-ravaged country after President Trump was allowed a path to deport them.`\
+https://www.nytimes.com/2026/06/26/nyregion/nyc-little-haiti-supreme-court-tps.html
+
+**‘Not Enough Evidence’ for Conviction in Palisades Fire Trial, Juror Says**\
+`A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
 **Emily Blunt habla de su experiencia en “El día de la revelación”**\
 `La actriz creció viendo las películas del director e intentó “mantener la compostura” cuando él la invitó a una reunión sobre una película secreta.`\
 https://www.nytimes.com/es/2026/06/26/espanol/cultura/emily-blunt-spielberg-dia-de-la-revelacion.html

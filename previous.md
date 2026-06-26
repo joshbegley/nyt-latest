@@ -1,3 +1,7 @@
+**On the Streets of New York’s Little Haiti, Panic After Court Ruling**\
+`Residents in the Caribbean enclave in Brooklyn worried about returning to a crime-ravaged country after President Trump was allowed a path to deport them.`\
+https://www.nytimes.com/2026/06/26/nyregion/nyc-little-haiti-supreme-court-tps.html
+
 **Emily Blunt habla de su experiencia en “El día de la revelación”**\
 `La actriz creció viendo las películas del director e intentó “mantener la compostura” cuando él la invitó a una reunión sobre una película secreta.`\
 https://www.nytimes.com/es/2026/06/26/espanol/cultura/emily-blunt-spielberg-dia-de-la-revelacion.html
@@ -106,8 +110,8 @@ https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands
 `Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
 https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
 
-**Mistrial for Man Accused of Starting One of California’s Worst Fires**\
-`Jonathan Rinderknecht was accused of setting a brush fire that later became the deadly Palisades fire. The jury could not reach a verdict on the three arson-related charges.`\
+**‘Not Enough Evidence’ for Conviction in Palisades Fire Trial, Juror Says**\
+`A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
 https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
 
 **Trump Administration to Investigate California’s Powerful Coastal Agency**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/06/26/espanol/america-latina/venezolanos-desplaz
 **Vance Downplays Watergate and Compares Himself to Nixon**\
 `The vice president said that the scandal that ended Richard Nixon’s presidency would be “like a 12-hour news story” if it happened today and that the “deep state” had taken down Nixon.`\
 https://www.nytimes.com/2026/06/26/us/politics/vance-nixon-watergate-deep-state.html
-
-**La Retaguardia (The Ones Who Stay)**\
-`Four young Cubans grapple with what it means to stay on an island facing unprecedented migration.`\
-https://www.nytimes.com/video/opinion/100000010887247/la-retaguardia-the-ones-who-stay.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
