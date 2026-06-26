@@ -1,3 +1,99 @@
+**In Europe, Tesla Sales Are Rising Despite Views on Elon Musk**\
+`Price cuts and low-interest-rate loans are luring buyers, including people offended by the company’s chief executive.`\
+https://www.nytimes.com/2026/06/26/business/tesla-elon-musk-europe.html
+
+**In Ecuador, a Blend of Two Languages Was Music to a Reporter’s Ears**\
+`José María León Cabrera grew up on the coast. When he moved to the highlands, he heard a blend of Spanish and Kichwa that was worth writing about.`\
+https://www.nytimes.com/2026/06/26/insider/ecuador-spanish-language-kichwa.html
+
+**Map: 5.7-Magnitude Earthquake Strikes Near Tokyo**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/26/world/quake-tracker-japan.html
+
+**Venezuelans Displaced by Quakes Sleep in Streets, Plazas and Cars**\
+`Twin earthquakes have left thousands homeless. Many others who are too afraid to sleep in their homes have taken to the streets.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-survivors-displaced.html
+
+**Canada’s 24 Sussex Drive Is a Dump. Mark Carney Is Going to Fix It Up.**\
+`The prime minister’s official residence in Ottawa, in disrepair and vacant for more than a decade, has become the country’s most prominent home renovation project.`\
+https://www.nytimes.com/2026/06/26/world/canada/carney-ottawa-24-sussex-drive.html
+
+**Map: 5.2-Magnitude Earthquake Shakes Nicaragua**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/26/world/americas/quake-tracker-nicaragua.html
+
+**Oil Prices Return to Prewar Levels After Four Months**\
+`The cost of crude has become a real-time barometer of the Iran war’s toll on the global economy.`\
+https://www.nytimes.com/2026/06/26/business/energy-environment/iran-war-oil-prices.html
+
+**Psychiatrist Who Killed Six at German Christmas Market Is Jailed for Life**\
+`The man drove into a crowd of shoppers in December 2024, wounding hundreds of people.`\
+https://www.nytimes.com/2026/06/26/world/europe/germany-christmas-market-doctor.html
+
+**Small Plane Crashes Into Tallest Building in Beijing**\
+`Crowds in the capital’s central business district fled as the crash sent debris falling into the streets below.`\
+https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html
+
+**Still Sending Checks in the Mail? Stop, Experts Say**\
+`If you must, keep an eye on your account statements, experts say. Thieves steal checks from mailboxes, then alter the checks with fraudulent names.`\
+https://www.nytimes.com/2026/06/26/your-money/paper-checks-mail-fraud.html
+
+**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 3 at 9 a.m. Eastern. This week’s winners will be announced by July 15.`\
+https://www.nytimes.com/2026/06/26/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
+
+****\
+`tktktktktk`\
+https://www.nytimes.com/video/embedded/business/100000010994176/Tungsten-Video.html
+
+**Ukrainian Attacks Spur State of Emergency Declaration in Crimea**\
+`Weeks of intense strikes by Ukraine have rattled everyday life in Crimea to an extent unseen since Russia illegally annexed the peninsula in 2014.`\
+https://www.nytimes.com/2026/06/26/world/europe/crimea-ukraine-state-emergency.html
+
+**Apple, Micron, OpenAI and A.I.’s Rough Summer**\
+`Rising memory prices, more expensive iPads and a longer wait for OpenAI to go public: The sector that has driven markets skyward is hitting turbulence.`\
+https://www.nytimes.com/2026/06/26/business/dealbook/ai-openai-ipo-slump.html
+
+**Kalshi to Become a World Cup Partner as It Pursues More Growth**\
+`The prediction market is betting that the association with the soccer tournament will help bolster betting volumes as it works toward an I.P.O.`\
+https://www.nytimes.com/2026/06/26/business/dealbook/kalshi-world-cup-fifa-partner.html
+
+**Europe’s Scorching Heat Is Gradually Moving East**\
+`Parts of Spain, France and other countries are seeing slight relief, but the record-breaking heat wave is far from over.`\
+https://www.nytimes.com/2026/06/26/weather/europe-heat-wave-temperatures.html
+
+**I**\
+`The president did not say how or whether he would respond, a day after Iran fired on a container ship that was transiting the Strait of Hormuz, an act Mr. Trump called “foolish.”`\
+https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html
+
+**‘The Headlines’ News Quiz: Jun. 26, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-headlines/the-headlines-news-quiz-jun-26-2026.html
+
+**‘The Daily’ and ‘The Opinions’: How A.I. Is Changing Loneliness and Taste**\
+`The story of a woman who let a robot into her home. Plus, a discussion about why Silicon Valley has taken such an interest in taste.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-daily-and-the-opinions-how-ai-is-changing-loneliness-and-taste.html
+
+**Protected No More**\
+`We look at the impact of the Supreme Court’s immigration rulings.`\
+https://www.nytimes.com/2026/06/26/briefing/supreme-court-immigration-rulings.html
+
+**USMNT vs Turkey Recap, and Looking Ahead to Mbappé vs Haaland**\
+`Who will the co-hosts face in the Round of 32, and how prepared are they for the knockout phase?`\
+https://www.nytimes.com/2026/06/26/podcasts/usmnt-turkey-mbappe-haaland-france-norway.html
+
+**Ryanair Stops Charging for Parents to Sit With Their Children**\
+`The airline said it had “reluctantly” changed course after a British regulator began investigating whether its fees were illegal.`\
+https://www.nytimes.com/2026/06/26/world/europe/ryanair-fee-children-seats.html
+
+**As Europe Sweats, Some Politicians Talk of Air-Conditioning, Not Climate Action**\
+`Heat-related deaths and disruptions to daily life are forcing politicians to reckon, in different ways, with a rapidly warming planet.`\
+https://www.nytimes.com/2026/06/26/world/europe/europe-heat-climate-change-politics.html
+
+**Supreme Court Delivers Big Wins for Trump’s Immigration Agenda**\
+`The court handed President Trump victories in his push to rescind deportation protections for hundreds of thousands of people and turn away migrants at the southern border.`\
+https://www.nytimes.com/2026/06/26/podcasts/the-daily/supreme-court-delivers-big-wins-for-trumps-immigration-agenda.html
+
 **Yale Seeks Trump Administration Deal in Inquiry Over Race and Admissions**\
 `The university hired a high-powered law firm to try to reach an agreement with the Justice Department over claims its admissions practices hurt white and Asian applicants.`\
 https://www.nytimes.com/2026/06/26/us/politics/yale-trump-administration-admissions-race.html
