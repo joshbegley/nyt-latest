@@ -1,3 +1,11 @@
+**Heat Wave Prompts Paris to Suspend Sports Events and Public Alcohol Consumption**\
+`The Paris police chief, Patrice Faure, said the alcohol restrictions were intended to ease pressure on the health services.`\
+https://www.nytimes.com/2026/06/26/world/europe/france-heat-alcohol-paris-ban.html
+
+**The Missing Ambassador of the World Cup**\
+`Remembering the life, legacy and mysterious death of an American soccer evangelist.`\
+https://www.nytimes.com/2026/06/26/podcasts/missing-ambassador-world-cup-grant-wahl.html
+
 **Trump sigue dificultando la posición política de los republicanos de cara a las elecciones**\
 `Las divisiones entre el presidente y su partido han limitado el discurso de los republicanos de cara a las elecciones de medio mandato y han dejado al Partido Republicano en una situación delicada.`\
 https://www.nytimes.com/es/2026/06/26/espanol/estados-unidos/trump-elecciones-republicanos.html
