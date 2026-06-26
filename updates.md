@@ -1,3 +1,11 @@
+**100 Reasons to Love Mel Brooks on His 100th Birthday**\
+`Here are 100 reasons to love the comedy writer, director and star who’s celebrating a milestone on Sunday and who’s changed our culture in surprising ways.`\
+https://www.nytimes.com/interactive/2026/06/26/movies/mel-brooks-100th-birthday.html
+
+**Why Lebanon Is Celebrating Brazil’s Win**\
+`Our correspondent Abdi Latif Dahir visits a Brazil national team World Cup watch party in Tripoli, Lebanon. Brazil is especially popular here as it’s home to the world’s largest Lebanese diaspora.`\
+https://www.nytimes.com/video/world/middleeast/100000010991975/why-lebanon-is-celebrating-brazils-win.html
+
 **Olive Oil Cake**\
 `This simple, lemon-scented olive oil cake, recipe linked below, is an elegant treat all by itself or topped with whipped cream, fruit or ice cream.`\
 https://www.nytimes.com/video/dining/100000010995465/olive-oil-cake.html

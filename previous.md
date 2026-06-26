@@ -1,3 +1,11 @@
+**100 Reasons to Love Mel Brooks on His 100th Birthday**\
+`Here are 100 reasons to love the comedy writer, director and star who’s celebrating a milestone on Sunday and who’s changed our culture in surprising ways.`\
+https://www.nytimes.com/interactive/2026/06/26/movies/mel-brooks-100th-birthday.html
+
+**Why Lebanon Is Celebrating Brazil’s Win**\
+`Our correspondent Abdi Latif Dahir visits a Brazil national team World Cup watch party in Tripoli, Lebanon. Brazil is especially popular here as it’s home to the world’s largest Lebanese diaspora.`\
+https://www.nytimes.com/video/world/middleeast/100000010991975/why-lebanon-is-celebrating-brazils-win.html
+
 **Olive Oil Cake**\
 `This simple, lemon-scented olive oil cake, recipe linked below, is an elegant treat all by itself or topped with whipped cream, fruit or ice cream.`\
 https://www.nytimes.com/video/dining/100000010995465/olive-oil-cake.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/26/briefing/today-in-short.html
 **Americans Are Feeling Better About the Economy, Consumer Survey Shows**\
 `Consumer sentiment rose in recent weeks after plummeting early this year as energy costs soared.`\
 https://www.nytimes.com/2026/06/26/business/economy/consumer-sentiment.html
-
-**European Workers Struggle in Extreme Heat**\
-`Businesses in Europe were trying to cope with high temperatures brought by a “heat dome” that has been parked over the continent for several days.`\
-https://www.nytimes.com/video/world/europe/100000010994050/european-workers-extreme-heat.html
-
-**‘Pride’: A Tale Retold, Zhuzhed Up With Extra Camp**\
-`A new musical based on the 2014 movie “Pride” trades restrained sentimentality for all-in emotion and flamboyance.`\
-https://www.nytimes.com/2026/06/26/theater/pride-musical-national-theater.html
 
 **Terremotos en Venezuela: los equipos de rescate buscan sobrevivientes mientras la dirigente pide ‘militarizar’ la zona**\
 `Un oficial venezolano dijo que los dos fuertes terremotos del miércoles han dejado 920 muertos y más de 3000 heridos. EE. UU. y México han sido de los más recientes en enviar ayuda, mientras cientos de personas siguen desaparecidas o atrapadas bajo los escombros.`\
