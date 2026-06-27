@@ -1,3 +1,35 @@
+**Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
+`Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
+https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
+
+**In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
+`Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
+https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
+
+**Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
+`Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
+https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
+
+**Terremotos en Venezuela: mapas de la devastación en la costa**\
+`Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
+https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
+
+**How the Reflecting Pool Turned Green: Missing ‘Bubblers’ and a Rush Job**\
+`Bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
+
+**The Big Wimbledon Preview**\
+`All eyes are on Serena Williams as she is set to play Maya Joint in the opening round.`\
+https://www.nytimes.com/2026/06/26/podcasts/tennis-wimbledon-preview-serena-williams.html
+
+**Here’s What 250 Years of Fashion in America Looks Like**\
+`One way to understand the promise of this country is to look at what people have worn while chasing it.`\
+https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html
+
+**U.S. Military Strikes Missile and Drone Sites in Iran**\
+`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
+https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
+
 **Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
 `Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
