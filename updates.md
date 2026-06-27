@@ -1,3 +1,7 @@
+**Once He Wanted to Lead FIFA. This Is Much Better.**\
+`Jordan’s arrival at the World Cup is the culmination of decades of patient effort by one man, but also a moment of solidarity for his nation and its diaspora.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein-world-cup.html
+
 **Australia Says It Will Toughen Its Social Media Ban for Children**\
 `Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
 https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
