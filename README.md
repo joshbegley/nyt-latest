@@ -1,3 +1,7 @@
+**La economía de Venezuela parecía renacer. Entonces golpearon los terremotos**\
+`El gobierno venezolano, falto de liquidez y que ya luchaba por controlar la tasa de inflación más alta del mundo, ahora debe encontrar la manera de organizar una enorme respuesta ante el desastre.`\
+https://www.nytimes.com/es/2026/06/27/espanol/america-latina/venezuela-economia-terremotos.html
+
 **F.A.A. Investigates Drone Encounter at Newark Airport**\
 `The crew of a Boeing 737 arriving from Florida on Friday reported a drone in the airspace as the plane approached Newark Airport. The plane landed safely.`\
 https://www.nytimes.com/2026/06/27/nyregion/united-plane-pilot-drone-newark.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/arts/5-of-my-favorite-onscreen-moments-of-202
 **Mexican Officials Have Become Informants for the Trump Administration**\
 `President Claudia Sheinbaum of Mexico has pushed back against U.S. investigations into Mexican politicians. Now some politicians want to cooperate.`\
 https://www.nytimes.com/2026/06/27/world/americas/mexican-officials-us-informants.html
-
-**To Afford Aging in Place, Older Adults Turn to ‘Golden Girls’ Housing**\
-`A growing network of home-sharing programs is helping people find compatible housemates.`\
-https://www.nytimes.com/2026/06/27/well/older-adults-home-sharing.html
 
