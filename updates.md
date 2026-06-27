@@ -1,3 +1,7 @@
+**Australia Says It Will Toughen Its Social Media Ban for Children**\
+`Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
+https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
+
 **It’s Ugly. It Costs $640,000. Everyone Is Mad About It but Me.**\
 `Ferrari’s new E.V. is being panned by critics, but it ought to be celebrated.`\
 https://www.nytimes.com/2026/06/27/opinion/ferrari-electric-vehicle.html
