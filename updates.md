@@ -1,3 +1,11 @@
+**How Absolut Pitched Itself as the Gay Vodka**\
+`The Swedish liquor brand Absolut began its courtship of gay consumers with a 1981 print ad. “We were the Pied Piper in magazines,” one executive recalled.`\
+https://www.nytimes.com/2026/06/27/style/pride-vodka-absolut.html
+
+**Dazzling New Romance Books for Summer**\
+`Our columnist on new books by Rebekah Weatherspoon, Felicia Grossman and Tessa Bickers.`\
+https://www.nytimes.com/2026/06/27/books/review/new-romance-books.html
+
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday, as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
 https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html

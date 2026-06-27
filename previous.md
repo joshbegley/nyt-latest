@@ -1,11 +1,3 @@
-**Central and Eastern Europe Are Feeling the Heat Now**\
-`Much of Germany and Poland were under extreme heat warnings on Saturday, as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
-https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html
-
-**Once He Wanted to Lead FIFA. This Is Much Better.**\
-`Jordan’s arrival at the World Cup is the culmination of decades of patient effort by one man, but also a moment of solidarity for his nation and its diaspora.`\
-https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein-world-cup.html
-
 **Australia Says It Will Toughen Its Social Media Ban for Children**\
 `Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
 https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
@@ -197,4 +189,12 @@ https://www.nytimes.com/2026/06/27/business/colorado-fire-fema-aid-denied.html
 **Audio Guest Books Bring Something New to Weddings**\
 `Traditional guest books are giving way to a more intimate method for capturing the sentiments of those attending your wedding.`\
 https://www.nytimes.com/2026/06/27/style/audio-guestbooks-recordings-weddings.html
+
+**How Absolut Pitched Itself as the Gay Vodka**\
+`The Swedish liquor brand Absolut began its courtship of gay consumers with a 1981 print ad. “We were the Pied Piper in magazines,” one executive recalled.`\
+https://www.nytimes.com/2026/06/27/style/pride-vodka-absolut.html
+
+**Dazzling New Romance Books for Summer**\
+`Our columnist on new books by Rebekah Weatherspoon, Felicia Grossman and Tessa Bickers.`\
+https://www.nytimes.com/2026/06/27/books/review/new-romance-books.html
 
