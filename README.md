@@ -1,3 +1,7 @@
+**Kentucky Declares State of Emergency as Heavy Rain Causes Flooding**\
+`Gov. Andy Beshear of Kentucky said the authorities were investigating reports of fatalities as emergency crews rescued people from flooded homes and vehicles.`\
+https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
+
 **A Close Call With an Alberta Grizzly Bear, Recorded in Its Entirety**\
 `A woman in Alberta, Canada, recorded the bear as it circled her and her dog near a campsite and lodge.`\
 https://www.nytimes.com/2026/06/27/world/canada/grizzly-bear-alberta-canada-video.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/27/world/middleeast/israel-new-york-iran-war-mam
 **Corrections: June 27, 2026**\
 `Corrections that appeared in print on Saturday, June 27, 2026.`\
 https://www.nytimes.com/2026/06/27/pageoneplus/corrections-june-27-2026.html
-
-**A Sculptor Rushes to Finish a Lionel Messi Statue During the World Cup**\
-`As Lionel Messi chases another World Cup title, an artist is rushing to finish a gigantic statue of the soccer star in the middle of the Patagonian desert.`\
-https://www.nytimes.com/2026/06/27/world/americas/lionel-messi-argentina-statue.html
 
