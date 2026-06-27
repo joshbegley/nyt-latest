@@ -1,3 +1,7 @@
+**F.A.A. Investigates Drone Encounter at Newark Airport**\
+`The crew of a Boeing 737 arriving from Florida on Friday reported a drone in the airspace as the plane approached Newark Airport. The plane landed safely.`\
+https://www.nytimes.com/2026/06/27/nyregion/united-plane-pilot-drone-newark.html
+
 **Now It’s Fireworks and a Fence Keeping Tourists From the Reflecting Pool**\
 `Chain-link fencing now surrounds the pool in preparation for a Fourth of July celebration. It has not stopped people from gawking.`\
 https://www.nytimes.com/2026/06/27/us/reflecting-pool-fence-july-4.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/world/americas/mexican-officials-us-informant
 **To Afford Aging in Place, Older Adults Turn to ‘Golden Girls’ Housing**\
 `A growing network of home-sharing programs is helping people find compatible housemates.`\
 https://www.nytimes.com/2026/06/27/well/older-adults-home-sharing.html
-
-**‘Sinatra, The Musical’: Regrets, We Have a Few**\
-`A West End production has the hits, and Joel Harper-Jackson brings swagger and style to the leading role. But where’s the pizazz?`\
-https://www.nytimes.com/2026/06/27/arts/sinatra-the-musical-aldwych-theatre-london.html
 
