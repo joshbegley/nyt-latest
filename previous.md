@@ -1,3 +1,11 @@
+**Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
+`The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
+https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
+
+**U.S.-Iran Deal’s Vague Language Comes Back to Haunt Peace Efforts**\
+`The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
+
 **Has the MAGA ‘Sugar Rush’ Finally Run Out?**\
 `Three Opinion writers on Trump’s latest face-plant.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/africa/100000010952237/an-attack-on-ebolas-f
 **Aqueduct Racetrack Is Closing After 132 Years**\
 `An era comes to an end, as New York City’s last remaining racetrack takes a final lap.`\
 https://www.nytimes.com/2026/06/27/nyregion/aqueduct-racetrack-closing.html
-
-**Book Review: ‘The Yahoo Boys,’ by Carlos Barragán**\
-`A new book examines the desperate lives of Nigeria’s romance scam artists — and their victims.`\
-https://www.nytimes.com/2026/06/27/books/review/the-yahoo-boys-carlos-barragan.html
-
-**The Most Successful Documentary Series in History**\
-`The New York Times film critic Alissa Wilkinson explores how “Jackass” is a long-running examination of male-friendship and aging.`\
-https://www.nytimes.com/video/movies/100000010926523/the-most-successful-documentary-series-in-history.html
 

@@ -1,3 +1,11 @@
+**Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
+`The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
+https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
+
+**U.S.-Iran Deal’s Vague Language Comes Back to Haunt Peace Efforts**\
+`The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
+
 **Has the MAGA ‘Sugar Rush’ Finally Run Out?**\
 `Three Opinion writers on Trump’s latest face-plant.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
