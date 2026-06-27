@@ -1,3 +1,7 @@
+**Now It’s Fireworks and a Fence Keeping Tourists From the Reflecting Pool**\
+`Chain-link fencing now surrounds the pool in preparation for a Fourth of July celebration. It has not stopped people from gawking.`\
+https://www.nytimes.com/2026/06/27/us/reflecting-pool-fence-july-4.html
+
 **Venezuela Live Updates: Window Narrowing to Find Survivors as Quake Death Toll Surpasses 1,400**\
 `International teams were joining search efforts on Saturday after twin earthquakes devastated northern Venezuela, leaving many people trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
