@@ -1,15 +1,3 @@
-**Terremotos en Venezuela: mapas de la devastación en la costa**\
-`Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
-https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
-
-**How the Reflecting Pool Turned Green: Missing ‘Bubblers’ and a Rush Job**\
-`Bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
-https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
-
-**The Big Wimbledon Preview**\
-`All eyes are on Serena Williams as she is set to play Maya Joint in the opening round.`\
-https://www.nytimes.com/2026/06/26/podcasts/tennis-wimbledon-preview-serena-williams.html
-
 **Here’s What 250 Years of Fashion in America Looks Like**\
 `One way to understand the promise of this country is to look at what people have worn while chasing it.`\
 https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html
@@ -193,6 +181,18 @@ https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
 **Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
 `Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Los pequeños rituales que te preparan para dormir**\
+`Origami, encimeras limpias y plantas bien atendidas: los lectores revelan los pequeños hábitos que transforman el final del día en una puerta hacia el descanso.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dormir.html
+
+**‘Why I Love the Beautiful Game’: Gordon Ramsay**\
+`The chef and TV star on how close he came to playing professionally.`\
+https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.html
 
 **Venezuela busca a los sobrevivientes de los terremotos**\
 `El número de fallecidos ascendía a 920 y los hospitales estaban desbordados. Al menos 3300 personas resultaron heridas y cerca de 1400 edificios sufrieron daños, según las autoridades.`\
