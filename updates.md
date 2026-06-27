@@ -1,3 +1,7 @@
+**Texas Has a New Way to Teach History: In Chronological Order**\
+`Most states teach history by subject. Texas will go chronologically, starting with ancient history and reaching World War II by seventh grade.`\
+https://www.nytimes.com/2026/06/27/us/texas-teaching-history.html
+
 **Kentucky Declares State of Emergency as Heavy Rain Causes Flooding**\
 `Gov. Andy Beshear of Kentucky said the authorities were investigating reports of fatalities as emergency crews rescued people from flooded homes and vehicles.`\
 https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
