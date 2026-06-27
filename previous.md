@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.htm
 `At Cannes Lions, marketers grappled with how to influence A.I. chatbots.`\
 https://www.nytimes.com/2026/06/27/business/dealbook/ai-visibility.html
 
-**Venezuela Live Updates: Rescuers Work as Window Narrows to Find Quake Survivors**\
-`International teams were joining search efforts on Saturday after twin earthquakes killed more than 1,400 people in northern Venezuela and left many others trapped.`\
+**Venezuela Live Updates: Window Narrowing to Find Survivors as Quake Death Toll Surpasses 1,400**\
+`International teams were joining search efforts on Saturday after twin earthquakes devastated northern Venezuela, leaving many people trapped under rubble.`\
 https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
 
 **Trending in Paris for Men: Glitter Pants and Inflatable Suits**\
