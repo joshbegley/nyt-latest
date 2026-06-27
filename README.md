@@ -1,3 +1,7 @@
+**White House Releases Images of the Trump ‘Patriot Passport’**\
+`The State Department said it planned to release 40,000 U.S. passports featuring an image of the president to commemorate the United States’ 250th anniversary.`\
+https://www.nytimes.com/2026/06/27/us/politics/trump-passport-design-america-250.html
+
 **In Venezuela’s Ruins, Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
 `Volunteers have rushed to help earthquake victims, loading vehicles with medical supplies, shovels and other tools to assist rescue and recovery efforts.`\
 https://www.nytimes.com/2026/06/27/world/americas/venezuela-civilians-volunteers-earthquakes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/us/politics/louisiana-senate-republican-runof
 **Trump-Backed Great American State Fair Features Extra Tinges of Red**\
 `At the kickoff to the Great American State Fair, exhibits celebrating the nation were on display. So were conservative themes.`\
 https://www.nytimes.com/2026/06/27/us/great-american-fair-mall.html
-
-**5 of My Favorite Onscreen Moments of 2026, So Far**\
-`These are the images that have stuck with me, from the uplifting to the grotesque — and with a surprising amount of dancing.`\
-https://www.nytimes.com/2026/06/27/arts/5-of-my-favorite-onscreen-moments-of-2026-so-far.html
 
