@@ -1,3 +1,11 @@
+**A Grizzly Encounter, Recorded in Its Entirety, Shows a Close Call**\
+`A woman in Alberta, Canada, recorded the bear as it circled her and her dog near a campsite and lodge.`\
+https://www.nytimes.com/2026/06/27/world/canada/grizzly-bear-alberta-canada-video.html
+
+**Grizzly Bear Gets Too Close for Comfort During Dog Walk**\
+`A woman in Alberta, Canada, who could not be reached for comment, had an unexpected run-in during her morning dog walk, with a persistent follower.`\
+https://www.nytimes.com/video/us/100000010996840/grizzly-bear-gets-too-close-for-comfort-during-dog-walk.html
+
 **In the Ruins of Venezuela’s Earthquake, Civilians Volunteers Fill the Gaps**\
 `Volunteers have rushed to help earthquake victims, loading vehicles with medical supplies, shovels and other tools to assist rescue and recovery efforts.`\
 https://www.nytimes.com/2026/06/27/world/americas/venezuela-civilians-volunteers-earthquakes.html

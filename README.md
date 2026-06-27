@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/27/pageoneplus/corrections-june-27-2026.html
 `As Lionel Messi chases another World Cup title, an artist is rushing to finish a gigantic statue of the soccer star in the middle of the Patagonian desert.`\
 https://www.nytimes.com/2026/06/27/world/americas/lionel-messi-argentina-statue.html
 
-**Jeffries Faces Steep Test as Far Left Builds Strength in Congress**\
-`The victories of Darializa Avila Chevalier and other anti-establishment candidates are changing the face of House Democrats, posing a challenge for their leader.`\
-https://www.nytimes.com/2026/06/27/us/politics/jeffries-congress-democratic-socialists.html
-
