@@ -1,3 +1,79 @@
+**Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
+`Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
+https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
+
+**In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
+`Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
+https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
+
+**Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
+`Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
+https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
+
+**Terremotos en Venezuela: mapas de la devastación en la costa**\
+`Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
+https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
+
+**How the Reflecting Pool Turned Green: Missing ‘Bubblers’ and a Rush Job**\
+`Bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
+
+**The Big Wimbledon Preview**\
+`All eyes are on Serena Williams as she is set to play Maya Joint in the opening round.`\
+https://www.nytimes.com/2026/06/26/podcasts/tennis-wimbledon-preview-serena-williams.html
+
+**Here’s What 250 Years of Fashion in America Looks Like**\
+`One way to understand the promise of this country is to look at what people have worn while chasing it.`\
+https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html
+
+**What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
+`The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html
+
+**Pete Buttigieg Says He Was Separated From His Children in ‘Swatting’ Attack**\
+`The former transportation secretary recounted being kept away from his 4-year-old twins overnight after an anonymous report accused him of posing a threat to them. The police said the report was false.`\
+https://www.nytimes.com/2026/06/26/us/politics/buttigieg-swatting-false-report-children.html
+
+**U.S. Forces Attack Iran**\
+`Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
+
+**Washington Theater Leader Is Out on Opening Night of TLC Musical**\
+`The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
+https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html
+
+**As Foreign Aid Arrived, Many Venezuelans Asked: ‘Where is Our Military?’**\
+`The nation’s armed forces seemed to arrive late into the emergency response — with an emphasis on controlling traffic, even as bodies remained buried under rubble.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-military-response.html
+
+**‘Pride Match’ Celebration Proves Awkward for Iran-Egypt Game in Seattle**\
+`Although homosexuality is illegal in both countries, their World Cup game has been designated a “Pride Match” by Seattle’s organizing committee to mark the month celebrating the L.G.B.T.Q. community.`\
+https://www.nytimes.com/2026/06/26/us/iran-egypt-pride-match.html
+
+**Tackling the Politics of the World Cup**\
+`The soccer tournament has brought a flood of political story lines.`\
+https://www.nytimes.com/2026/06/26/us/politics/world-cup-politics-trump.html
+
+**A floating convenience store appears in Toronto**\
+`“Global Convenience,” an art installation honoring the city’s role as a World Cup host, is a near-perfect replica of a corner shop. Someone got stranded after swimming out to it last week.`\
+https://www.nytimes.com/2026/06/26/world/canada/world-cup-toronto-convenience-store-rescue.html
+
+**Venezuelans in New York Confront Earthquake Back Home**\
+`The earthquake that leveled buildings and killed hundreds compounds years of grief for Venezuelans whose country has experienced political and economic collapse.`\
+https://www.nytimes.com/2026/06/26/nyregion/earthquakes-immigrants-grief-venezuela.html
+
+**Bill Pulte Picks G.O.P. Election Operative for Spy Agency Job**\
+`Christina Norton is the new chief of staff at the Office of the Director of National Intelligence, former officials said.`\
+https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton.html
+
+**In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
+`Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquakes-rescues.html
+
+**U.S. Military Strikes Missile and Drone Sites in Iran**\
+`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
+https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
+
 **The Venezuela Earthquakes Hit a Health System Already in Crisis**\
 `Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
