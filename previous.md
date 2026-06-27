@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/06/27/world/canada/cambridge-bay-nunavut-diversity.
 `Scroll down for hints and conversation about the puzzle for Sunday, June 28, 2026.`\
 https://www.nytimes.com/2026/06/27/crosswords/wordle-review-1835.html
 
-**Live Updates: Mideast Hostilities Flare, Testing Fragile U.S.-Iran Truce**\
+**Live Updates: Mideast Hostilities Flare, Testing U.S.-Iran Truce**\
 `Bahrain said it had been targeted by Iranian drones, an apparent retaliation after U.S. strikes on Iranian military sites overnight. A ship came under attack in the Strait of Hormuz for the second time in recent days.`\
 https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz
 

@@ -1,3 +1,7 @@
+**Live Updates: Mideast Hostilities Flare, Testing U.S.-Iran Truce**\
+`Bahrain said it had been targeted by Iranian drones, an apparent retaliation after U.S. strikes on Iranian military sites overnight. A ship came under attack in the Strait of Hormuz for the second time in recent days.`\
+https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz
+
 **Live Updates: Mideast Hostilities Flare, Testing Fragile U.S.-Iran Truce**\
 `Bahrain said it had been targeted by Iranian drones, an apparent retaliation after U.S. strikes on Iranian military sites overnight. A ship came under attack in the Strait of Hormuz for the second time in recent days.`\
 https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz
