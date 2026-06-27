@@ -1,3 +1,11 @@
+**Rescue Workers and Aid Arrive in Venezuela, Official Says**\
+`More than 1,600 rescue workers have arrived and 25 flights filled with aid will land over the next day in Venezuela after earthquakes devastated the country on Wednesday, according to Venezuela’s vice minister of foreign affairs, Oliver Blanco.`\
+https://www.nytimes.com/video/world/americas/100000010996841/venezuela-earthquake-rescue-workers-aid.html
+
+**A Rush of Volunteers in Venezuela Has Slowed Rescue Efforts**\
+`The outpouring of volunteer aid after Venezuela’s earthquakes clogged the only road into the disaster zone, delaying rescue crews.`\
+https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquake-volunteers-traffic.html
+
 **The Artist Uman’s Technicolor Paintings of Rural Life**\
 `Ahead of a survey exhibition, Uman discusses skipping art-world functions, living on a farm and making work on the floor.`\
 https://www.nytimes.com/2026/06/27/t-magazine/uman-hessel-museum-bard.html
@@ -90,13 +98,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**We’re Getting America’s Children Hooked on Gambling**\
-`In part because gambling ads are in everything, everywhere, all at once.`\
-https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
-
 **How Do I Stop Guests From Bringing Their Children to My Parties?**\
 `A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
 https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
+
+**We’re Getting America’s Children Hooked on Gambling**\
+`In part because gambling ads are in everything, everywhere, all at once.`\
+https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/27/world/canada/cambridge-bay-nunavut-diversity.
 **Today’s Wordle Hints for June 28, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 28, 2026.`\
 https://www.nytimes.com/2026/06/27/crosswords/wordle-review-1835.html
-
-**Live Updates: Hostilities Flare Between U.S. and Iran, Testing Truce**\
-`U.S. forces carried out retaliatory airstrikes on Iran for the second straight night, after Bahrain said it had been targeted by Iranian drones and a ship came under attack in the Strait of Hormuz for the second time in recent days.`\
-https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz
-
-**Robby Hoffman Will Always Feel Poor, No Matter How Rich She Gets**\
-`The comedian and actor says class and the way she grew up inform everything about the way she lives now.`\
-https://www.nytimes.com/2026/06/27/magazine/robby-hoffman-interview.html
 

@@ -98,13 +98,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**How Do I Stop Guests From Bringing Their Children to My Parties?**\
-`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
-https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
-
 **We’re Getting America’s Children Hooked on Gambling**\
 `In part because gambling ads are in everything, everywhere, all at once.`\
 https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
+
+**How Do I Stop Guests From Bringing Their Children to My Parties?**\
+`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
+https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
@@ -189,8 +189,4 @@ https://www.nytimes.com/2026/06/27/crosswords/connections-companion-1113.html
 **Affogato and Rendang on the Menu in Canada’s High Arctic**\
 `The menu offerings at Kuugaq Café, owned by immigrants from the Philippines, speaks to the increasing diversity of Cambridge Bay, Nunavut.`\
 https://www.nytimes.com/2026/06/27/world/canada/cambridge-bay-nunavut-diversity.html
-
-**Today’s Wordle Hints for June 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 28, 2026.`\
-https://www.nytimes.com/2026/06/27/crosswords/wordle-review-1835.html
 

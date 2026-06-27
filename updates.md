@@ -1,3 +1,11 @@
+**Rescue Workers and Aid Arrive in Venezuela, Official Says**\
+`More than 1,600 rescue workers have arrived and 25 flights filled with aid will land over the next day in Venezuela after earthquakes devastated the country on Wednesday, according to Venezuela’s vice minister of foreign affairs, Oliver Blanco.`\
+https://www.nytimes.com/video/world/americas/100000010996841/venezuela-earthquake-rescue-workers-aid.html
+
+**A Rush of Volunteers in Venezuela Has Slowed Rescue Efforts**\
+`The outpouring of volunteer aid after Venezuela’s earthquakes clogged the only road into the disaster zone, delaying rescue crews.`\
+https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquake-volunteers-traffic.html
+
 **At Least 4 Dead in Kentucky Flooding, Governor Says**\
 `Gov. Andy Beshear of Kentucky said emergency crews were rescuing people from flooded homes and vehicles on Saturday. Rain was expected to continue into the night.`\
 https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
