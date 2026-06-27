@@ -1,3 +1,7 @@
+**Trending in Paris for Men: Glitter Pants and Inflatable Suits**\
+`Here’s what you need to know about men’s fashion week in Paris so far.`\
+https://www.nytimes.com/2026/06/27/style/mens-fashion-paris-trending.html
+
 **Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
 `The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
 https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
 `The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
 
-**Has the MAGA ‘Sugar Rush’ Finally Run Out?**\
-`Three Opinion writers on Trump’s latest face-plant.`\
+**Three Opinion Writers on Trump’s Latest Face-plant**\
+`Trump planned a big party for America. It’s not going well.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
 
 **Does Keir Starmer Believe in Anything?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/arts/television/jodie-turner-smith-agency.htm
 **An Attack on Ebola’s First Responders**\
 `Our chief Africa correspondent, Declan Walsh, reports from a city where Red Cross workers carrying out burials in the Ebola outbreak have come under attack.`\
 https://www.nytimes.com/video/world/africa/100000010952237/an-attack-on-ebolas-first-responders.html
-
-**Aqueduct Racetrack Is Closing After 132 Years**\
-`An era comes to an end, as New York City’s last remaining racetrack takes a final lap.`\
-https://www.nytimes.com/2026/06/27/nyregion/aqueduct-racetrack-closing.html
 
