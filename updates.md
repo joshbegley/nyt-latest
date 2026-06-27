@@ -1,3 +1,7 @@
+**It’s Ugly. It Costs $640,000. Everyone Is Mad About It but Me.**\
+`Ferrari’s new E.V. is being panned by critics, but it ought to be celebrated.`\
+https://www.nytimes.com/2026/06/27/opinion/ferrari-electric-vehicle.html
+
 **Advertisers Are Good at Getting Human Attention. Can They Stand Out to A.I.?**\
 `At Cannes Lions, marketers grappled with how to influence A.I. chatbots.`\
 https://www.nytimes.com/2026/06/27/business/dealbook/ai-visibility.html
