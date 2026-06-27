@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Rescuers Work as Window Narrows to Find Quake Survivors**\
+`International teams were joining search efforts on Saturday after twin earthquakes killed more than 1,400 people in northern Venezuela and left many others trapped.`\
+https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
+
 **Louisiana U.S. Senate Primary Runoff 2026: Live Election Results, Crockett vs. Davis**\
 `Get live results and maps from the 2026 Louisiana runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-us-senate-runoff.html
