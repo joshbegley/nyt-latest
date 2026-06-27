@@ -1,3 +1,11 @@
+**Here’s What 250 Years of Fashion in America Looks Like**\
+`One way to understand the promise of this country is to look at what people have worn while chasing it.`\
+https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html
+
+**U.S. Military Strikes Missile and Drone Sites in Iran**\
+`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
+https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
+
 **Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
 `Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
 https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
