@@ -1,3 +1,19 @@
+**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
+`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
+https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
+
+**Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
+`Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
+https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Venezuela busca a los sobrevivientes de los terremotos**\
+`El número de fallecidos ascendía a 920 y los hospitales estaban desbordados. Al menos 3300 personas resultaron heridas y cerca de 1400 edificios sufrieron daños, según las autoridades.`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
 `Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
 https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
