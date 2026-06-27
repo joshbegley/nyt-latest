@@ -1,3 +1,11 @@
+**La economía de Venezuela parecía renacer. Entonces golpearon los terremotos**\
+`El gobierno venezolano, falto de liquidez y que ya luchaba por controlar la tasa de inflación más alta del mundo, ahora debe encontrar la manera de organizar una enorme respuesta ante el desastre.`\
+https://www.nytimes.com/es/2026/06/27/espanol/america-latina/venezuela-economia-terremotos.html
+
+**F.A.A. Investigates Drone Encounter at Newark Airport**\
+`The crew of a Boeing 737 arriving from Florida on Friday reported a drone in the airspace as the plane approached Newark Airport. The plane landed safely.`\
+https://www.nytimes.com/2026/06/27/nyregion/united-plane-pilot-drone-newark.html
+
 **Now It’s Fireworks and a Fence Keeping Tourists From the Reflecting Pool**\
 `Chain-link fencing now surrounds the pool in preparation for a Fourth of July celebration. It has not stopped people from gawking.`\
 https://www.nytimes.com/2026/06/27/us/reflecting-pool-fence-july-4.html

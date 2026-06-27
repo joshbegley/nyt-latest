@@ -1,3 +1,7 @@
+**In Venezuela’s Ruins, Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
+`Volunteers have rushed to help earthquake victims, loading vehicles with medical supplies, shovels and other tools to assist rescue and recovery efforts.`\
+https://www.nytimes.com/2026/06/27/world/americas/venezuela-civilians-volunteers-earthquakes.html
+
 **La economía de Venezuela parecía renacer. Entonces golpearon los terremotos**\
 `El gobierno venezolano, falto de liquidez y que ya luchaba por controlar la tasa de inflación más alta del mundo, ahora debe encontrar la manera de organizar una enorme respuesta ante el desastre.`\
 https://www.nytimes.com/es/2026/06/27/espanol/america-latina/venezuela-economia-terremotos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/us/great-american-fair-mall.html
 **5 of My Favorite Onscreen Moments of 2026, So Far**\
 `These are the images that have stuck with me, from the uplifting to the grotesque — and with a surprising amount of dancing.`\
 https://www.nytimes.com/2026/06/27/arts/5-of-my-favorite-onscreen-moments-of-2026-so-far.html
-
-**Mexican Officials Have Become Informants for the Trump Administration**\
-`President Claudia Sheinbaum of Mexico has pushed back against U.S. investigations into Mexican politicians. Now some politicians want to cooperate.`\
-https://www.nytimes.com/2026/06/27/world/americas/mexican-officials-us-informants.html
 
