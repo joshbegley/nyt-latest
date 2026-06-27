@@ -1,3 +1,11 @@
+**Trending in Paris for Men: Glitter Pants and Inflatable Suits**\
+`Here’s what you need to know about men’s fashion week in Paris so far.`\
+https://www.nytimes.com/2026/06/27/style/mens-fashion-paris-trending.html
+
+**Three Opinion Writers on Trump’s Latest Face-plant**\
+`Trump planned a big party for America. It’s not going well.`\
+https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
+
 **Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
 `The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
 https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
