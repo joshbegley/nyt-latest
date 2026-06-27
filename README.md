@@ -1,7 +1,3 @@
-**Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
-`Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
-https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
-
 **Terremotos en Venezuela: mapas de la devastación en la costa**\
 `Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
 https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
 **Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
 `Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
+**Terremotos en Venezuela, en vivo: aumenta el número de fallecidos**\
+`Estados Unidos envió cientos de rescatistas para ayudar al gobierno venezolano, mientras los heridos desbordaban los hospitales y el número de muertos ascendía a 920. El Pentágono envió dos buques, aviones de transporte y helicópteros`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
 
