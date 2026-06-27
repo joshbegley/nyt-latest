@@ -1,3 +1,43 @@
+**N.Y.C. City Council Employee Freed After 5 Months in ICE Detention**\
+`Rafael Andres Rubio Bohorquez is back in New York City and working at City Hall after his release. Immigration officials have appealed his asylum.`\
+https://www.nytimes.com/2026/06/27/nyregion/nyc-council-employee-ice-freed.html
+
+**How the Internet Polarizes Men and Women**\
+`Is the internet polarizing the sexes? On “Interesting Times,” the author Louise Perry argues that our modern connectivity is exposing the previously private worlds of vulgar locker room talk and unkind gossip — and is driving young men and women apart.`\
+https://www.nytimes.com/video/opinion/100000010983107/how-the-internet-polarizes-men-and-women.html
+
+**Newly Discovered Spider Captures Ants in Spring-Loaded Trap**\
+`The ballista spider discovered in Queensland, Australia, was named after an ancient Roman crossbow, and creates a spring-loaded web to catch its prey.`\
+https://www.nytimes.com/video/science/earth/100000010995159/ballista-spider-discovered-australia.html
+
+**The July Monthly Bake: Peaches and Cream Victoria Sandwich**\
+`This simple but showstopping dessert layers light-as-air sponge cake, pillowy whipped cream and jammy peach compote.`\
+https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-cream-victoria-sandwich.html
+
+**Deal With Israel Divides Lebanese, Fueling Protests in Beirut**\
+`Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
+
+**How Do I Stop Guests From Bringing Their Children to My Parties?**\
+`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
+https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
+
+**Gambling Addiction Starts in Middle School**\
+`In part because gambling ads are in everything, everywhere, all at once.`\
+https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
+
+**Central and Eastern Europe Are Feeling the Heat Now**\
+`Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
+https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html
+
+**Once He Wanted to Lead FIFA. This Is Much Better.**\
+`Jordan’s arrival at the World Cup is the culmination of decades of patient effort by one man, but also a moment of solidarity for his nation and its diaspora.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein-world-cup.html
+
+**Australia Says It Will Toughen Its Social Media Ban for Children**\
+`Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
+https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
+
 **Renewed Strikes Threaten to Set Back Shipping Recovery in Persian Gulf**\
 `The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
 https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
