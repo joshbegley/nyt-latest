@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquakes-doctors-
 `Most states teach history by subject. Texas will go chronologically, starting with ancient history and reaching World War II by seventh grade.`\
 https://www.nytimes.com/2026/06/27/us/texas-teaching-history.html
 
-**At Least 1 Dead in Kentucky Flooding, Governor Says**\
-`Gov. Andy Beshear of Kentucky said emergency crews were rescuing people from flooded homes and vehicles on Saturday.`\
+**At Least 4 Dead in Kentucky Flooding, Governor Says**\
+`Gov. Andy Beshear of Kentucky said emergency crews were rescuing people from flooded homes and vehicles on Saturday. Rain was expected to continue into the night.`\
 https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
 
 **A Close Call With an Alberta Grizzly Bear, Recorded in Its Entirety**\
