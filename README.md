@@ -1,3 +1,11 @@
+**Advertisers Are Good at Getting Human Attention. Can They Stand Out to A.I.?**\
+`At Cannes Lions, marketers grappled with how to influence A.I. chatbots.`\
+https://www.nytimes.com/2026/06/27/business/dealbook/ai-visibility.html
+
+**Venezuela Live Updates: Rescuers Work as Window Narrows to Find Quake Survivors**\
+`International teams were joining search efforts on Saturday after twin earthquakes killed more than 900 people in northern Venezuela and left many trapped.`\
+https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
+
 **Trending in Paris for Men: Glitter Pants and Inflatable Suits**\
 `Here’s what you need to know about men’s fashion week in Paris so far.`\
 https://www.nytimes.com/2026/06/27/style/mens-fashion-paris-trending.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/27/books/review/new-romance-books.html
 **Maren Hassinger Likes Her Art With a Twist**\
 `Her lively, gnarly sculpture stars in her biggest exhibition yet, “Living Moving Growing,” at the Berkeley Art Museum and Pacific Film Archive.`\
 https://www.nytimes.com/2026/06/27/arts/design/maren-hassinger-berkeley-museum-of-art.html
-
-**Jodie Turner-Smith Likes Her Passports Tattered and Torn**\
-`“Every stamp reminds me the world is enormous and generous, and that I owe it to my daughter to keep showing her how big it is,” the actress said.`\
-https://www.nytimes.com/2026/06/27/arts/television/jodie-turner-smith-agency.html
-
-**An Attack on Ebola’s First Responders**\
-`Our chief Africa correspondent, Declan Walsh, reports from a city where Red Cross workers carrying out burials in the Ebola outbreak have come under attack.`\
-https://www.nytimes.com/video/world/africa/100000010952237/an-attack-on-ebolas-first-responders.html
 
