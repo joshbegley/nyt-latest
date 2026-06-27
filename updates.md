@@ -1,3 +1,11 @@
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
+**Anger Over Supreme Court Rulings on Immigration**\
+`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
+
 **Here’s What 250 Years of Fashion in America Looks Like**\
 `One way to understand the promise of this country is to look at what people have worn while chasing it.`\
 https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html

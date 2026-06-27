@@ -1,7 +1,3 @@
-**Here’s What 250 Years of Fashion in America Looks Like**\
-`One way to understand the promise of this country is to look at what people have worn while chasing it.`\
-https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html
-
 **What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
 `The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
 https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html
@@ -45,10 +41,6 @@ https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton
 **In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
 `Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquakes-rescues.html
-
-**U.S. Military Strikes Missile and Drone Sites in Iran**\
-`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
-https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
 
 **Man Pleads Guilty to Fraud in Sale of Art to Springsteen’s Manager**\
 `Thomas Doyle was accused of unlawfully pocketing most of the proceeds from the sale of a painting by Gustave Courbet to Bruce Springsteen’s manager.`\
@@ -193,6 +185,14 @@ https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dorm
 **‘Why I Love the Beautiful Game’: Gordon Ramsay**\
 `The chef and TV star on how close he came to playing professionally.`\
 https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.html
+
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
+**Anger Over Supreme Court Rulings on Immigration**\
+`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
 
 **Venezuela busca a los sobrevivientes de los terremotos**\
 `El número de fallecidos ascendía a 920 y los hospitales estaban desbordados. Al menos 3300 personas resultaron heridas y cerca de 1400 edificios sufrieron daños, según las autoridades.`\
