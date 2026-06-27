@@ -1,3 +1,7 @@
+**Australia Says It Will Toughen Its Social Media Ban for Children**\
+`Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
+https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
+
 **Advertisers Are Good at Getting Human Attention. Can They Stand Out to A.I.?**\
 `At Cannes Lions, marketers grappled with how to influence A.I. chatbots.`\
 https://www.nytimes.com/2026/06/27/business/dealbook/ai-visibility.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/style/pride-vodka-absolut.html
 **Dazzling New Romance Books for Summer**\
 `Our columnist on new books by Rebekah Weatherspoon, Felicia Grossman and Tessa Bickers.`\
 https://www.nytimes.com/2026/06/27/books/review/new-romance-books.html
-
-**Maren Hassinger Likes Her Art With a Twist**\
-`Her lively, gnarly sculpture stars in her biggest exhibition yet, “Living Moving Growing,” at the Berkeley Art Museum and Pacific Film Archive.`\
-https://www.nytimes.com/2026/06/27/arts/design/maren-hassinger-berkeley-museum-of-art.html
 
