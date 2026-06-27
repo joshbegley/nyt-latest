@@ -1,3 +1,23 @@
+**What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
+`The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html
+
+**Pete Buttigieg Says He Was Separated From His Children in ‘Swatting’ Attack**\
+`The former transportation secretary recounted being kept away from his 4-year-old twins overnight after an anonymous report accused him of posing a threat to them. The police said the report was false.`\
+https://www.nytimes.com/2026/06/26/us/politics/buttigieg-swatting-false-report-children.html
+
+**U.S. Forces Attack Iran**\
+`Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
+
+**Washington Theater Leader Is Out on Opening Night of TLC Musical**\
+`The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
+https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html
+
+**As Foreign Aid Arrived, Many Venezuelans Asked: ‘Where is Our Military?’**\
+`The nation’s armed forces seemed to arrive late into the emergency response — with an emphasis on controlling traffic, even as bodies remained buried under rubble.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-military-response.html
+
 **During World Cup Tour, Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html

@@ -1,3 +1,23 @@
+**What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
+`The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html
+
+**Pete Buttigieg Says He Was Separated From His Children in ‘Swatting’ Attack**\
+`The former transportation secretary recounted being kept away from his 4-year-old twins overnight after an anonymous report accused him of posing a threat to them. The police said the report was false.`\
+https://www.nytimes.com/2026/06/26/us/politics/buttigieg-swatting-false-report-children.html
+
+**U.S. Forces Attack Iran**\
+`Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
+
+**Washington Theater Leader Is Out on Opening Night of TLC Musical**\
+`The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
+https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html
+
+**As Foreign Aid Arrived, Many Venezuelans Asked: ‘Where is Our Military?’**\
+`The nation’s armed forces seemed to arrive late into the emergency response — with an emphasis on controlling traffic, even as bodies remained buried under rubble.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-military-response.html
+
 **‘Pride Match’ Celebration Proves Awkward for Iran-Egypt Game in Seattle**\
 `Although homosexuality is illegal in both countries, their World Cup game has been designated a “Pride Match” by Seattle’s organizing committee to mark the month celebrating the L.G.B.T.Q. community.`\
 https://www.nytimes.com/2026/06/26/us/iran-egypt-pride-match.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
 **Anger Over Supreme Court Rulings on Immigration**\
 `Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
 https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
-
-**N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
-`New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
-https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
-
-**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
-`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
-https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
-
-**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
-`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
-https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
-
-**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
-`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
-https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands.html
-
-**Latinos Rally to Support Venezuela After Earthquakes**\
-`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
-https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
 
 **Venezuela busca a los sobrevivientes de los terremotos**\
 `El número de fallecidos ascendía a 920 y los hospitales estaban desbordados. Al menos 3300 personas resultaron heridas y cerca de 1400 edificios sufrieron daños, según las autoridades.`\
