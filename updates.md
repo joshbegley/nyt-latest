@@ -1,3 +1,7 @@
+**At Least 4 Dead in Kentucky Flooding, Governor Says**\
+`Gov. Andy Beshear of Kentucky said emergency crews were rescuing people from flooded homes and vehicles on Saturday. Rain was expected to continue into the night.`\
+https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
+
 **The Artist Uman’s Technicolor Paintings of Rural Life**\
 `Ahead of a survey exhibition, Uman discusses skipping art-world functions, living on a farm and making work on the floor.`\
 https://www.nytimes.com/2026/06/27/t-magazine/uman-hessel-museum-bard.html
