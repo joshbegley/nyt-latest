@@ -1,3 +1,19 @@
+**Chinese Dissident Who Fled by Sea to South Korea Lands in Canada**\
+`Dong Guangping reached Toronto after a decade of failed attempts to escape China. He traveled to South Korea last month in an inflatable rubber boat.`\
+https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping-canada.html
+
+**Aqueduct Racetrack Is Closing After 132 Years**\
+`An era comes to an end, as New York City’s last remaining racetrack takes a final lap.`\
+https://www.nytimes.com/2026/06/27/nyregion/aqueduct-racetrack-closing.html
+
+**Book Review: ‘The Yahoo Boys,’ by Carlos Barragán**\
+`A new book examines the desperate lives of Nigeria’s romance scam artists — and their victims.`\
+https://www.nytimes.com/2026/06/27/books/review/the-yahoo-boys-carlos-barragan.html
+
+**The Most Successful Documentary Series in History**\
+`The New York Times film critic Alissa Wilkinson explores how “Jackass” is a long-running examination of male-friendship and aging.`\
+https://www.nytimes.com/video/movies/100000010926523/the-most-successful-documentary-series-in-history.html
+
 **Maren Hassinger Likes Her Art With a Twist**\
 `Her lively, gnarly sculpture stars in her biggest exhibition yet, “Living Moving Growing,” at the Berkeley Art Museum and Pacific Film Archive.`\
 https://www.nytimes.com/2026/06/27/arts/design/maren-hassinger-berkeley-museum-of-art.html

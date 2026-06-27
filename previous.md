@@ -1,15 +1,3 @@
-**Trending in Paris for Men: Glitter Pants and Inflatable Suits**\
-`Here’s what you need to know about men’s fashion week in Paris so far.`\
-https://www.nytimes.com/2026/06/27/style/mens-fashion-paris-trending.html
-
-**Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
-`The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
-https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
-
-**U.S.-Iran Deal’s Vague Language Comes Back to Haunt Peace Efforts**\
-`The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
-https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
-
 **Three Opinion Writers on Trump’s Latest Face-plant**\
 `Trump planned a big party for America. It’s not going well.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
@@ -38,8 +26,8 @@ https://www.nytimes.com/2026/06/27/opinion/culture/crying-old-people.html
 `Three Opinion writers on Trump’s latest face-plant.`\
 https://www.nytimes.com/video/opinion/100000010991743/has-the-maga-sugar-rush-finally-run-out.html
 
-**Chinese Dissident Who Fled to South Korea by Rubber Boat Lands in Canada**\
-`Dong Guangping, a critic of the Chinese government who fled to South Korea by sea last month, has reached Toronto, where his family lives.`\
+**Chinese Dissident Who Fled by Sea to South Korea Lands in Canada**\
+`Dong Guangping reached Toronto after a decade of failed attempts to escape China. He traveled to South Korea last month in an inflatable rubber boat.`\
 https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping-canada.html
 
 **Natural Selection**\
@@ -197,4 +185,16 @@ https://www.nytimes.com/2026/06/27/arts/television/jodie-turner-smith-agency.htm
 **An Attack on Ebola’s First Responders**\
 `Our chief Africa correspondent, Declan Walsh, reports from a city where Red Cross workers carrying out burials in the Ebola outbreak have come under attack.`\
 https://www.nytimes.com/video/world/africa/100000010952237/an-attack-on-ebolas-first-responders.html
+
+**Aqueduct Racetrack Is Closing After 132 Years**\
+`An era comes to an end, as New York City’s last remaining racetrack takes a final lap.`\
+https://www.nytimes.com/2026/06/27/nyregion/aqueduct-racetrack-closing.html
+
+**Book Review: ‘The Yahoo Boys,’ by Carlos Barragán**\
+`A new book examines the desperate lives of Nigeria’s romance scam artists — and their victims.`\
+https://www.nytimes.com/2026/06/27/books/review/the-yahoo-boys-carlos-barragan.html
+
+**The Most Successful Documentary Series in History**\
+`The New York Times film critic Alissa Wilkinson explores how “Jackass” is a long-running examination of male-friendship and aging.`\
+https://www.nytimes.com/video/movies/100000010926523/the-most-successful-documentary-series-in-history.html
 
