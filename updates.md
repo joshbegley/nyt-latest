@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, June 27, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
+
+**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
+`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
+https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
+
 **Scenes of Collapse: The Emergency at Venezuela’s Hospitals**\
 `A snapshot of the toll of the country’s twin quakes.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-hospitals-earthquake-collapse.html
