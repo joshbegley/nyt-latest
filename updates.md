@@ -1,3 +1,7 @@
+**In Venezuela’s Ruins, Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
+`Volunteers have rushed to help earthquake victims, loading vehicles with medical supplies, shovels and other tools to assist rescue and recovery efforts.`\
+https://www.nytimes.com/2026/06/27/world/americas/venezuela-civilians-volunteers-earthquakes.html
+
 **La economía de Venezuela parecía renacer. Entonces golpearon los terremotos**\
 `El gobierno venezolano, falto de liquidez y que ya luchaba por controlar la tasa de inflación más alta del mundo, ahora debe encontrar la manera de organizar una enorme respuesta ante el desastre.`\
 https://www.nytimes.com/es/2026/06/27/espanol/america-latina/venezuela-economia-terremotos.html
