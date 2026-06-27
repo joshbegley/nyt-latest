@@ -1,3 +1,47 @@
+**Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
+`Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
+https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
+
+**In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
+`Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
+https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
+
+**Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
+`Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
+https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
+
+**Terremotos en Venezuela: mapas de la devastación en la costa**\
+`Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
+https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
+
+**How the Reflecting Pool Turned Green: Missing ‘Bubblers’ and a Rush Job**\
+`Bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
+https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
+
+**The Big Wimbledon Preview**\
+`All eyes are on Serena Williams as she is set to play Maya Joint in the opening round.`\
+https://www.nytimes.com/2026/06/26/podcasts/tennis-wimbledon-preview-serena-williams.html
+
+**Here’s What 250 Years of Fashion in America Looks Like**\
+`One way to understand the promise of this country is to look at what people have worn while chasing it.`\
+https://www.nytimes.com/2026/06/26/style/america-250-fashion-history.html
+
+**What to Know About Problems at the Reflecting Pool and Trump’s Claims of Vandalism**\
+`The administration has provided little evidence to back up some of his assertions about the Lincoln Memorial pool. Experts say other factors could have caused the major problems that have plagued it.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-vandalism-claims-reflecting-pool.html
+
+**Pete Buttigieg Says He Was Separated From His Children in ‘Swatting’ Attack**\
+`The former transportation secretary recounted being kept away from his 4-year-old twins overnight after an anonymous report accused him of posing a threat to them. The police said the report was false.`\
+https://www.nytimes.com/2026/06/26/us/politics/buttigieg-swatting-false-report-children.html
+
+**U.S. Forces Attack Iran**\
+`Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
+
+**U.S. Military Strikes Missile and Drone Sites in Iran**\
+`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
+https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
+
 **During World Cup Tour, Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
