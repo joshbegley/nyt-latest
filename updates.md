@@ -1,3 +1,7 @@
+**Live Updates: Mideast Hostilities Flare, Testing Fragile U.S.-Iran Truce**\
+`Bahrain said it had been targeted by Iranian drones, an apparent retaliation after U.S. strikes on Iranian military sites overnight. A ship came under attack in the Strait of Hormuz for the second time in recent days.`\
+https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz
+
 **Trump Picks Lance Schroyer as New ICE Director**\
 `The president said he was nominating Lance Schroyer, who currently serves as an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
 https://www.nytimes.com/2026/06/27/us/politics/trump-oklahoma-ice-director.html
