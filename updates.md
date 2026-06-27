@@ -1,3 +1,15 @@
+**Jodie Turner-Smith Likes Her Passports Tattered and Torn**\
+`“Every stamp reminds me the world is enormous and generous, and that I owe it to my daughter to keep showing her how big it is,” the actress said.`\
+https://www.nytimes.com/2026/06/27/arts/television/jodie-turner-smith-agency.html
+
+**An Attack on Ebola’s First Responders**\
+`Our chief Africa correspondent, Declan Walsh, reports from a city where Red Cross workers carrying out burials in the Ebola outbreak have come under attack.`\
+https://www.nytimes.com/video/world/africa/100000010952237/an-attack-on-ebolas-first-responders.html
+
+**Aqueduct Racetrack Is Closing After 132 Years**\
+`An era comes to an end, as New York City’s last remaining racetrack takes a final lap.`\
+https://www.nytimes.com/2026/06/27/nyregion/aqueduct-racetrack-closing.html
+
 **Advertisers Are Good at Getting Human Attention. Can They Stand Out to A.I.?**\
 `At Cannes Lions, marketers grappled with how to influence A.I. chatbots.`\
 https://www.nytimes.com/2026/06/27/business/dealbook/ai-visibility.html
