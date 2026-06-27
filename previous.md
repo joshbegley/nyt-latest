@@ -1,43 +1,3 @@
-**Pete Buttigieg Says He Was Separated From His Children in ‘Swatting’ Attack**\
-`The former transportation secretary recounted being kept away from his 4-year-old twins overnight after an anonymous report accused him of posing a threat to them. The police said the report was false.`\
-https://www.nytimes.com/2026/06/26/us/politics/buttigieg-swatting-false-report-children.html
-
-**U.S. Forces Attack Iran**\
-`Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
-
-**Washington Theater Leader Is Out on Opening Night of TLC Musical**\
-`The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
-https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html
-
-**As Foreign Aid Arrived, Many Venezuelans Asked: ‘Where is Our Military?’**\
-`The nation’s armed forces seemed to arrive late into the emergency response — with an emphasis on controlling traffic, even as bodies remained buried under rubble.`\
-https://www.nytimes.com/2026/06/26/world/americas/venezuela-military-response.html
-
-**‘Pride Match’ Celebration Proves Awkward for Iran-Egypt Game in Seattle**\
-`Although homosexuality is illegal in both countries, their World Cup game has been designated a “Pride Match” by Seattle’s organizing committee to mark the month celebrating the L.G.B.T.Q. community.`\
-https://www.nytimes.com/2026/06/26/us/iran-egypt-pride-match.html
-
-**Tackling the Politics of the World Cup**\
-`The soccer tournament has brought a flood of political story lines.`\
-https://www.nytimes.com/2026/06/26/us/politics/world-cup-politics-trump.html
-
-**A floating convenience store appears in Toronto**\
-`“Global Convenience,” an art installation honoring the city’s role as a World Cup host, is a near-perfect replica of a corner shop. Someone got stranded after swimming out to it last week.`\
-https://www.nytimes.com/2026/06/26/world/canada/world-cup-toronto-convenience-store-rescue.html
-
-**Venezuelans in New York Confront Earthquake Back Home**\
-`The earthquake that leveled buildings and killed hundreds compounds years of grief for Venezuelans whose country has experienced political and economic collapse.`\
-https://www.nytimes.com/2026/06/26/nyregion/earthquakes-immigrants-grief-venezuela.html
-
-**Bill Pulte Picks G.O.P. Election Operative for Spy Agency Job**\
-`Christina Norton is the new chief of staff at the Office of the Director of National Intelligence, former officials said.`\
-https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton.html
-
-**In Venezuela’s Rubble, Listening for Whispers And Longing for Help**\
-`Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
-https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquakes-rescues.html
-
 **Man Pleads Guilty to Fraud in Sale of Art to Springsteen’s Manager**\
 `Thomas Doyle was accused of unlawfully pocketing most of the proceeds from the sale of a painting by Gustave Courbet to Bruce Springsteen’s manager.`\
 https://www.nytimes.com/2026/06/26/arts/design/thomas-doyle-fraud-courbet-jon-landau.html
@@ -193,6 +153,46 @@ https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
 **N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
 `New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
 https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
+
+**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
+`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
+
+**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
+`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
+https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands.html
+
+**Latinos Rally to Support Venezuela After Earthquakes**\
+`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
+
+**Mistrial Declared in Palisades Fire Arson Case**\
+`A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
+**Trump Administration to Investigate California’s Powerful Coastal Agency**\
+`Howard Lutnick, the commerce secretary, has accused the state of “environmental extremism” amid a federal push for oil production.`\
+https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
+
+**The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
+`Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
+https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
+
+**Woman Survives After Being Trapped by Rubble in Earthquake**\
+`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
+https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
+
+**How Trump’s Political Agenda Is Shaped by His Own Obsessions**\
+`President Trump’s priorities seem increasingly detached from the concerns of voters and his party.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
+
+**American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
+`American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
+https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
 
 **Terremotos en Venezuela, en vivo: aumenta el número de fallecidos**\
 `Estados Unidos envió cientos de rescatistas para ayudar al gobierno venezolano, mientras los heridos desbordaban los hospitales y el número de muertos ascendía a 920. El Pentágono envió dos buques, aviones de transporte y helicópteros`\

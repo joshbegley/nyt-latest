@@ -1,3 +1,43 @@
+**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
+`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
+
+**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
+`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
+https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands.html
+
+**Latinos Rally to Support Venezuela After Earthquakes**\
+`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
+
+**Mistrial Declared in Palisades Fire Arson Case**\
+`A mistrial was declared in the arson case against Jonathan Rinderknecht, who was accused of setting a brush fire that later became the deadly Palisades fire.`\
+https://www.nytimes.com/2026/06/26/us/rinderknecht-mistrial-palisades-fire-los-angeles.html
+
+**Trump Administration to Investigate California’s Powerful Coastal Agency**\
+`Howard Lutnick, the commerce secretary, has accused the state of “environmental extremism” amid a federal push for oil production.`\
+https://www.nytimes.com/2026/06/26/us/trump-california-coastal-commission.html
+
+**The Moment One Venezuelan Survivor Was Pulled From a Flattened Building**\
+`Graciela Mora was with a friend when earthquakes hit northern Venezuela. Video captured the moment she was rescued.`\
+https://www.nytimes.com/2026/06/26/world/americas/earthquake-survivor-graciela-mora.html
+
+**Woman Survives After Being Trapped by Rubble in Earthquake**\
+`Rescuers pulled Graciela Mora, a resident of La Guaira, Venezuela, to safety on Thursday after she was buried beneath the rubble of a collapsed building during back-to-back earthquakes on Wednesday.`\
+https://www.nytimes.com/video/world/americas/100000010994363/venezuela-earthquake-rescue.html
+
+**How Trump’s Political Agenda Is Shaped by His Own Obsessions**\
+`President Trump’s priorities seem increasingly detached from the concerns of voters and his party.`\
+https://www.nytimes.com/2026/06/26/us/politics/trump-agenda-republicans.html
+
+**American Ballet Theater’s ‘Don Quixote’: You May Laugh. And Nobody Dies.**\
+`American Ballet Theater’s artistic director, Susan Jaffe, teams up with the régisseur Susan Jones for a new staging of the comic romp.`\
+https://www.nytimes.com/2026/06/26/arts/dance/american-ballet-theater-don-quixote-susan-jaffe-susan-jones.html
+
 **During World Cup Tour, Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
