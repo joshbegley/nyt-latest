@@ -1,3 +1,7 @@
+**Down in the Valley**\
+`Rebecca Goldstein and Christina Iverson’s puzzle posits a sophisticated thesis on the American vernacular.`\
+https://www.nytimes.com/2026/06/27/crosswords/daily-puzzle-2026-06-28.html
+
 **Trump Picks Lance Schroyer as New ICE Director**\
 `The president said he was nominating Lance Schroyer, who currently serves as an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
 https://www.nytimes.com/2026/06/27/us/politics/trump-oklahoma-ice-director.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/06/27/espanol/america-latina/mexico-politicos-mo
 **Watergate Today as a Blip of a Story? Vance Might Not Be Entirely Wrong.**\
 `Nixon’s offenses were not a deep-state invention. But in the age of Donald Trump, and in a fractured media environment, voters have become more inured to political scandal.`\
 https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-nixon.html
-
-**Venezuela’s Economy Was On the Rise. Then the Earthquakes Struck.**\
-`Expectations are now rising over the role the United States will play in helping Venezuela, which had already been laid low by decades of misrule.`\
-https://www.nytimes.com/2026/06/27/world/americas/venezuelas-economy-earthquake.html
 
