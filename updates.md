@@ -1,3 +1,5 @@
+
+
 **During World Cup Tour, Team Spain Feels at Home in Tennessee**\
 `A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
 https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
