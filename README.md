@@ -1,3 +1,7 @@
+**Texas Has a New Way to Teach History: In Chronological Order**\
+`Most states teach history by subject. Texas will go chronologically, starting with ancient history and reaching World War II by seventh grade.`\
+https://www.nytimes.com/2026/06/27/us/texas-teaching-history.html
+
 **Kentucky Declares State of Emergency as Heavy Rain Causes Flooding**\
 `Gov. Andy Beshear of Kentucky said the authorities were investigating reports of fatalities as emergency crews rescued people from flooded homes and vehicles.`\
 https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/27/us/politics/democrats-colorado-redistricting-
 **After New York Elections, Israelis Fear Further Rupture in U.S.-Israeli Relationship**\
 `Criticism of Israel’s war in Gaza, anger over the Iran war and election results in New York all suggest Israel’s solid support from Washington may be on borrowed time.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/israel-new-york-iran-war-mamdani.html
-
-**Corrections: June 27, 2026**\
-`Corrections that appeared in print on Saturday, June 27, 2026.`\
-https://www.nytimes.com/2026/06/27/pageoneplus/corrections-june-27-2026.html
 
