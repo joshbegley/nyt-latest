@@ -1,3 +1,7 @@
+**Trump Picks Lance Schroyer as New ICE Director**\
+`The president said he was nominating Lance Schroyer, who currently serves as an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
+https://www.nytimes.com/2026/06/27/us/politics/trump-oklahoma-ice-director.html
+
 **¿Quién hizo la estatua gigante de Messi en Argentina?**\
 `Mientras Lionel Messi persigue otro título mundial, un artista se apresura a terminar una gigantesca estatua del astro del fútbol en medio del desierto patagónico.`\
 https://www.nytimes.com/es/2026/06/27/espanol/america-latina/estatua-gigante-messi-argentina.html
@@ -170,7 +174,7 @@ https://www.nytimes.com/2026/06/27/world/canada/cambridge-bay-nunavut-diversity.
 `Scroll down for hints and conversation about the puzzle for Sunday, June 28, 2026.`\
 https://www.nytimes.com/2026/06/27/crosswords/wordle-review-1835.html
 
-**Live Updates: Mideast Hostilities Flare, Testing Fragile U.S.-Iran Truce**\
+**Mideast Hostilities Flare, Testing Fragile U.S.-Iran Truce**\
 `Bahrain said it had been targeted by Iranian drones, an apparent retaliation after U.S. strikes on Iranian military sites overnight. A ship came under attack in the Strait of Hormuz for the second time in recent days.`\
 https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-nixon.html
 **Venezuela’s Economy Was On the Rise. Then the Earthquakes Struck.**\
 `Expectations are now rising over the role the United States will play in helping Venezuela, which had already been laid low by decades of misrule.`\
 https://www.nytimes.com/2026/06/27/world/americas/venezuelas-economy-earthquake.html
-
-**Phoebe Bridgers, Sombr: Songs to Know This Week**\
-`Phoebe Bridgers re-emerges, Sombr gets shy and PJ Harvey heads for the cosmos.`\
-https://www.nytimes.com/2026/06/27/arts/music/phoebe-bridgers-sombr-songs.html
 
