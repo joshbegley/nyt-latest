@@ -1,3 +1,5 @@
+
+
 **Terremotos en Venezuela: mapas de la devastación en la costa**\
 `Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
 https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
