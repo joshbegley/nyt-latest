@@ -1,3 +1,7 @@
+**Vague Language of U.S.-Iran Deal Comes Back to Haunt Peace Efforts**\
+`The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
+
 **Has the MAGA ‘Sugar Rush’ Finally Run Out?**\
 `Three Opinion writers on Trump’s latest face-plant.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/nyregion/aqueduct-racetrack-closing.html
 **Book Review: ‘The Yahoo Boys,’ by Carlos Barragán**\
 `A new book examines the desperate lives of Nigeria’s romance scam artists — and their victims.`\
 https://www.nytimes.com/2026/06/27/books/review/the-yahoo-boys-carlos-barragan.html
-
-**The Most Successful Documentary Series in History**\
-`The New York Times film critic Alissa Wilkinson explores how “Jackass” is a long-running examination of male-friendship and aging.`\
-https://www.nytimes.com/video/movies/100000010926523/the-most-successful-documentary-series-in-history.html
 
