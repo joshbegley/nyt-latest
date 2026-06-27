@@ -1,3 +1,11 @@
+**Renewed Strikes Threaten to Set Back Shipping Recovery in Persian Gulf**\
+`The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
+https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
+
+**Maren Hassinger Likes Her Art With a Twist**\
+`Her lively, gnarly sculpture stars in her biggest exhibition yet, “Living Moving Growing,” at the Berkeley Art Museum and Pacific Film Archive.`\
+https://www.nytimes.com/2026/06/27/arts/design/maren-hassinger-berkeley-museum-of-art.html
+
 **Australia Says It Will Toughen Its Social Media Ban for Children**\
 `Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
 https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
