@@ -1,3 +1,31 @@
+**Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
+`Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
+https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Los pequeños rituales que te preparan para dormir**\
+`Origami, encimeras limpias y plantas bien atendidas: los lectores revelan los pequeños hábitos que transforman el final del día en una puerta hacia el descanso.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dormir.html
+
+**‘Why I Love the Beautiful Game’: Gordon Ramsay**\
+`The chef and TV star on how close he came to playing professionally.`\
+https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.html
+
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
+**Anger Over Supreme Court Rulings on Immigration**\
+`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
+
+**Terremotos en Venezuela, en vivo: aumenta el número de fallecidos**\
+`Estados Unidos envió cientos de rescatistas para ayudar al gobierno venezolano, mientras los heridos desbordaban los hospitales y el número de muertos ascendía a 920. El Pentágono envió dos buques, aviones de transporte y helicópteros`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **Flashback: Your Weekly History Quiz, June 27, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
