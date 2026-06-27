@@ -1,3 +1,7 @@
+**Central and Eastern Europe Are Feeling the Heat Now**\
+`Much of Germany and Poland were under extreme heat warnings on Saturday, as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
+https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html
+
 **Once He Wanted to Lead FIFA. This Is Much Better.**\
 `Jordan’s arrival at the World Cup is the culmination of decades of patient effort by one man, but also a moment of solidarity for his nation and its diaspora.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein-world-cup.html
