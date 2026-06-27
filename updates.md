@@ -1,3 +1,7 @@
+**We’re Getting America’s Children Hooked on Gambling**\
+`In part because gambling ads are in everything, everywhere, all at once.`\
+https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
+
 **N.Y.C. City Council Employee Freed After 5 Months in ICE Detention**\
 `Rafael Andres Rubio Bohorquez is back in New York City and working at City Hall after his release. Immigration officials have appealed his asylum.`\
 https://www.nytimes.com/2026/06/27/nyregion/nyc-council-employee-ice-freed.html

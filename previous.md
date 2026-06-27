@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-division
 `A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
 https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
 
-**Gambling Addiction Starts in Middle School**\
+**We’re Getting America’s Children Hooked on Gambling**\
 `In part because gambling ads are in everything, everywhere, all at once.`\
 https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
 
