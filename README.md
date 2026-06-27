@@ -1,4 +1,8 @@
-**Is There Anyone Alive? 12 Hours With Venezuelan Doctors in the Disaster Zone.**\
+**¿Quién hizo la estatua gigante de Messi en Argentina?**\
+`Mientras Lionel Messi persigue otro título mundial, un artista se apresura a terminar una gigantesca estatua del astro del fútbol en medio del desierto patagónico.`\
+https://www.nytimes.com/es/2026/06/27/espanol/america-latina/estatua-gigante-messi-argentina.html
+
+**12 Hours With Venezuelan Doctors Searching for Earthquake Survivors**\
 `A medical team set out from the capital to rescue people in the hardest-hit part of the disaster zone, La Guaira. They found silence in the ruins instead.`\
 https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquakes-doctors-rescues.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/27/world/americas/venezuelas-economy-earthquake.
 **Phoebe Bridgers, Sombr: Songs to Know This Week**\
 `Phoebe Bridgers re-emerges, Sombr gets shy and PJ Harvey heads for the cosmos.`\
 https://www.nytimes.com/2026/06/27/arts/music/phoebe-bridgers-sombr-songs.html
-
-**Colorado Supreme Court Delay Threatens Democratic Redistricting Effort**\
-`Both parties are awaiting a decision on the validity of ballot proposals to redraw Colorado’s maps ahead of 2028. Democrats say each day without a ruling puts the proposals at risk.`\
-https://www.nytimes.com/2026/06/27/us/politics/democrats-colorado-redistricting-state-court.html
 
