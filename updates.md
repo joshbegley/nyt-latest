@@ -1,3 +1,19 @@
+**Scenes of Collapse: The Emergency at Venezuela’s Hospitals**\
+`A snapshot of the toll of the country’s twin quakes.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-hospitals-earthquake-collapse.html
+
+**Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
+`Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
+https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
+
+**In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
+`Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
+https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
+
+**Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
+`Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
+https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
+
 **Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
 `Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
 https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html

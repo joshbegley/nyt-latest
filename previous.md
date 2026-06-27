@@ -1,3 +1,19 @@
+**Scenes of Collapse: The Emergency at Venezuela’s Hospitals**\
+`A snapshot of the toll of the country’s twin quakes.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-hospitals-earthquake-collapse.html
+
+**Om Malik, Whose Blog Shaped How Silicon Valley Saw Itself, Dies at 59**\
+`Gigaom, which he started in 2001, established him as a leading voice in the tech world and signaled a shift in how the media covered the industry.`\
+https://www.nytimes.com/2026/06/26/technology/om-malik-dead.html
+
+**In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
+`Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
+https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
+
+**Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
+`Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
+https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
+
 **Terremotos en Venezuela: mapas de la devastación en la costa**\
 `Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
 https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/26/movies/ann-blyth-dead.html
 **Trump Threatens to Impose 100% Tariff on European Countries Over Tech Taxes**\
 `The president claimed the tariffs would override a trade deal with the European Union, which European officials finalized just days ago.`\
 https://www.nytimes.com/2026/06/26/business/economy/trump-tariffs-europe.html
-
-**Flashback: Your Weekly History Quiz, June 27, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/06/26/upshot/flashback.html
-
-**Gracie the Giraffe Is Found ‘Fat and Happy’ 2 Weeks After Escaping Texas Ranch**\
-`Gracie caused a stir after she slipped away into the Texas Hill Country, but was spotted during a helicopter search on Friday. Now it’s time to bring her home.`\
-https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
-
-**Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
-`Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
-https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
-
-**Terremotos en Venezuela, en vivo: aumenta el número de fallecidos**\
-`Estados Unidos envió cientos de rescatistas para ayudar al gobierno venezolano, mientras los heridos desbordaban los hospitales y el número de muertos ascendía a 920. El Pentágono envió dos buques, aviones de transporte y helicópteros`\
-https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
 
