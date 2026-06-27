@@ -10,7 +10,7 @@ https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
 `Here’s what you need to know about men’s fashion week in Paris so far.`\
 https://www.nytimes.com/2026/06/27/style/mens-fashion-paris-trending.html
 
-**Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
+**Renewed Strikes Threaten to Set Back Shipping Recovery in Persian Gulf**\
 `The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
 https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
 
