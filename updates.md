@@ -1,3 +1,15 @@
+**Maren Hassinger Likes Her Art With a Twist**\
+`Her lively, gnarly sculpture stars in her biggest exhibition yet, “Living Moving Growing,” at the Berkeley Art Museum and Pacific Film Archive.`\
+https://www.nytimes.com/2026/06/27/arts/design/maren-hassinger-berkeley-museum-of-art.html
+
+**Jodie Turner-Smith Likes Her Passports Tattered and Torn**\
+`“Every stamp reminds me the world is enormous and generous, and that I owe it to my daughter to keep showing her how big it is,” the actress said.`\
+https://www.nytimes.com/2026/06/27/arts/television/jodie-turner-smith-agency.html
+
+**An Attack on Ebola’s First Responders**\
+`Our chief Africa correspondent, Declan Walsh, reports from a city where Red Cross workers carrying out burials in the Ebola outbreak have come under attack.`\
+https://www.nytimes.com/video/world/africa/100000010952237/an-attack-on-ebolas-first-responders.html
+
 **Why Was Keir Starmer So Disastrously Ineffective?**\
 `His great achievement was to restore the Labour Party to government. His lack of conviction made him ineffective once he got there.`\
 https://www.nytimes.com/2026/06/27/opinion/keir-starmer-resignation-uk.html
