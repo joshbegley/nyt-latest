@@ -1,7 +1,3 @@
-**U.S. Forces Attack Iran**\
-`Also, a former Trump adviser pleads guilty. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/06/26/briefing/us-military-strikes-iran.html
-
 **Washington Theater Leader Is Out on Opening Night of TLC Musical**\
 `The departing artistic director, Hana Sharif, made it clear in a resignation email that she was leaving Arena Stage under pressure.`\
 https://www.nytimes.com/2026/06/26/theater/arena-stage-hana-sharif.html
@@ -193,6 +189,10 @@ https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
 **The Venezuela Earthquakes Hit a Health System Already in Crisis**\
 `Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
 
 **Venezuela busca a los sobrevivientes de los terremotos**\
 `El número de fallecidos ascendía a 920 y los hospitales estaban desbordados. Al menos 3300 personas resultaron heridas y cerca de 1400 edificios sufrieron daños, según las autoridades.`\
