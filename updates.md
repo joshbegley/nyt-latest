@@ -1,3 +1,11 @@
+**Deadly Floods Hit Kentucky**\
+`Gov. Andy Beshear of Kentucky said in a video posted to social media that he declared a state of emergency after deadly floods swept through parts of his state.`\
+https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
+
+**Trump Picks Lance Schroyer as New ICE Director**\
+`The president said he was nominating Lance Schroyer, an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
+https://www.nytimes.com/2026/06/27/us/politics/trump-oklahoma-ice-director.html
+
 **Rescue Workers and Aid Arrive in Venezuela, Official Says**\
 `More than 1,600 rescue workers have arrived and 25 flights filled with aid will land over the next day in Venezuela after earthquakes devastated the country on Wednesday, according to Venezuela’s vice minister of foreign affairs, Oliver Blanco.`\
 https://www.nytimes.com/video/world/americas/100000010996841/venezuela-earthquake-rescue-workers-aid.html

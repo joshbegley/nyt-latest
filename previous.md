@@ -1,3 +1,7 @@
+**Deadly Floods Hit Kentucky**\
+`Gov. Andy Beshear of Kentucky said in a video posted to social media that he declared a state of emergency after deadly floods swept through parts of his state.`\
+https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
+
 **Rescue Workers and Aid Arrive in Venezuela, Official Says**\
 `More than 1,600 rescue workers have arrived and 25 flights filled with aid will land over the next day in Venezuela after earthquakes devastated the country on Wednesday, according to Venezuela’s vice minister of foreign affairs, Oliver Blanco.`\
 https://www.nytimes.com/video/world/americas/100000010996841/venezuela-earthquake-rescue-workers-aid.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/06/27/us/michgan-parents-charged-murder-obesity.htm
 https://www.nytimes.com/2026/06/27/crosswords/daily-puzzle-2026-06-28.html
 
 **Trump Picks Lance Schroyer as New ICE Director**\
-`The president said he was nominating Lance Schroyer, who currently serves as an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
+`The president said he was nominating Lance Schroyer, an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
 https://www.nytimes.com/2026/06/27/us/politics/trump-oklahoma-ice-director.html
 
 **¿Quién hizo la estatua gigante de Messi en Argentina?**\
@@ -98,13 +102,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**We’re Getting America’s Children Hooked on Gambling**\
-`In part because gambling ads are in everything, everywhere, all at once.`\
-https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
-
 **How Do I Stop Guests From Bringing Their Children to My Parties?**\
 `A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
 https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
+
+**We’re Getting America’s Children Hooked on Gambling**\
+`In part because gambling ads are in everything, everywhere, all at once.`\
+https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/27/crosswords/strands-sidekick-847.html
 **NYT Connections Answers for June 28, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 28, 2026.`\
 https://www.nytimes.com/2026/06/27/crosswords/connections-companion-1113.html
-
-**Affogato and Rendang on the Menu in Canada’s High Arctic**\
-`The menu offerings at Kuugaq Café, owned by immigrants from the Philippines, speaks to the increasing diversity of Cambridge Bay, Nunavut.`\
-https://www.nytimes.com/2026/06/27/world/canada/cambridge-bay-nunavut-diversity.html
 
