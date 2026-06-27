@@ -1,3 +1,43 @@
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Los pequeños rituales que te preparan para dormir**\
+`Origami, encimeras limpias y plantas bien atendidas: los lectores revelan los pequeños hábitos que transforman el final del día en una puerta hacia el descanso.`\
+https://www.nytimes.com/es/2026/06/26/espanol/estilos-de-vida/rituales-para-dormir.html
+
+**‘Why I Love the Beautiful Game’: Gordon Ramsay**\
+`The chef and TV star on how close he came to playing professionally.`\
+https://www.nytimes.com/2026/06/26/podcasts/soccer-beautiful-game-gordon-ramsay.html
+
+**Pro-Palestinian Activists Sense a Tide Turning After N.Y. Primary Wins**\
+`After years of operating on the fringe of Democratic values, pro-Palestinian activists felt validated after the primary wins by several candidates who oppose Israel’s actions.`\
+https://www.nytimes.com/2026/06/26/nyregion/palestinian-dsa-israel-nyc.html
+
+**Anger Over Supreme Court Rulings on Immigration**\
+`Readers are dismayed by the justices’ decisions. Also: The Huntington’s dilemma; a woman’s age; students, cheating and A.I.`\
+https://www.nytimes.com/2026/06/26/opinion/supreme-court-immigration.html
+
+**N.M. Governor Asks for Criminal Investigation of D.E.A. Agents**\
+`New reports this week indicated that federal agents knowingly let fentanyl flood the streets of New Mexico as they pursued larger drug cases.`\
+https://www.nytimes.com/2026/06/26/us/new-mexico-governor-drug-charges-dea.html
+
+**The Venezuela Earthquakes Hit a Health System Already in Crisis**\
+`Firefighters are using cellphone lights because of a flashlight shortage, and an overwhelmed hospital in the disaster zone is operating without running water, one doctor said.`\
+https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquake-shortages-doctors.html
+
+**Prosecutors in Kirk Case Found in Contempt for Media Statement**\
+`The judge in the Charlie Kirk murder trial declined defense requests to throw out the death penalty as punishment but did order prosecutors to pay some of the defense’s legal fees.`\
+https://www.nytimes.com/2026/06/26/us/charlie-kirk-shooting-prosecution-civil-contempt.html
+
+**The Netherlands Records Its First Assisted Death of a Child Between 1 and 12**\
+`Physician-assisted death for terminally ill children in that age group has been allowed in the country since 2024.`\
+https://www.nytimes.com/2026/06/26/world/europe/assisted-death-child-netherlands.html
+
+**Latinos Rally to Support Venezuela After Earthquakes**\
+`Latino communities in the United States and abroad have begun sending humanitarian aid as well as rescue crews to Venezuela, which faces one of its worst crises in decades after being struck by two deadly earthquakes.`\
+https://www.nytimes.com/video/world/americas/100000010994098/venezuela-earthquake-latinos-aid.html
+
 **Terremotos en Venezuela: mapas de la devastación en la costa**\
 `Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
 https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
