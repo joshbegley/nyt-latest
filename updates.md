@@ -1,3 +1,7 @@
+**In the Ruins of Venezuela’s Earthquake, Civilians Volunteers Fill the Gaps**\
+`Volunteers have rushed to help earthquake victims, loading vehicles with medical supplies, shovels and other tools to assist rescue and recovery efforts.`\
+https://www.nytimes.com/2026/06/27/world/americas/venezuela-civilians-volunteers-earthquakes.html
+
 **White House Releases Images of the Trump ‘Patriot Passport’**\
 `The State Department said it planned to release 40,000 U.S. passports featuring an image of the president to commemorate the United States’ 250th anniversary.`\
 https://www.nytimes.com/2026/06/27/us/politics/trump-passport-design-america-250.html
