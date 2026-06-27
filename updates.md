@@ -1,3 +1,7 @@
+**Kentucky Declares State of Emergency as Heavy Rain Causes Flooding**\
+`Gov. Andy Beshear of Kentucky said the authorities were investigating reports of fatalities as emergency crews rescued people from flooded homes and vehicles.`\
+https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
+
 **A Close Call With an Alberta Grizzly Bear, Recorded in Its Entirety**\
 `A woman in Alberta, Canada, recorded the bear as it circled her and her dog near a campsite and lodge.`\
 https://www.nytimes.com/2026/06/27/world/canada/grizzly-bear-alberta-canada-video.html
