@@ -1,3 +1,7 @@
+**Tony Brown, Host of Public Affairs Show Aimed at Black Audiences, Dies at 93**\
+`On “Tony Brown’s Journal,” he interviewed guests like Jesse Jackson and Lena Horne, and made programming decisions by asking himself, “Will it help Black people?”`\
+https://www.nytimes.com/2026/06/27/arts/television/tony-brown-dead.html
+
 **N.Y.C. City Council Employee Freed After 5 Months in ICE Detention**\
 `Rafael Andres Rubio Bohorquez is back in New York City and working at City Hall after his release. Immigration officials have appealed his asylum.`\
 https://www.nytimes.com/2026/06/27/nyregion/nyc-council-employee-ice-freed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/science/this-trap-wants-ants-to-take-a-bite.h
 **Bruno Bischofberger Dies at 86; Gallerist Championed Warhol and Basquiat**\
 `He was a quintessential art dealer of the go-go 1980s, when the booming market turned painters into celebrities.`\
 https://www.nytimes.com/2026/06/27/arts/bruno-bischofberger-dead.html
-
-**Is It Worth It to Build That A.D.U.?**\
-`An appraiser can clarify the cost-benefit analysis for you, especially if you want to sell your property.`\
-https://www.nytimes.com/2026/06/27/realestate/is-it-worth-it-to-build-that-adu.html
 
