@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
 `His great achievement was to restore the Labour Party to government. His lack of conviction made him ineffective once he got there.`\
 https://www.nytimes.com/2026/06/27/opinion/keir-starmer-resignation-uk.html
 
-**The Haters Are Wrong About the $640,000 Ferrari E.V.**\
+**It’s Ugly. It Costs $640,000. Everyone Is Mad About It but Me.**\
 `Ferrari’s new E.V. is being panned by critics, but it ought to be celebrated.`\
 https://www.nytimes.com/2026/06/27/opinion/ferrari-electric-vehicle.html
 
