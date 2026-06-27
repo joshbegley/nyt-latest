@@ -1,3 +1,15 @@
+**Louisiana U.S. Senate Primary Runoff 2026: Live Election Results, Crockett vs. Davis**\
+`Get live results and maps from the 2026 Louisiana runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-us-senate-runoff.html
+
+**Louisiana Primary Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Louisiana primary runoff elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-runoff.html
+
+**Tony Brown, Host of Public Affairs Show Aimed at Black Audiences, Dies at 93**\
+`On “Tony Brown’s Journal,” he interviewed guests like Jesse Jackson and Lena Horne, and made programming decisions by asking himself, “Will it help Black people?”`\
+https://www.nytimes.com/2026/06/27/arts/television/tony-brown-dead.html
+
 **N.Y.C. City Council Employee Freed After 5 Months in ICE Detention**\
 `Rafael Andres Rubio Bohorquez is back in New York City and working at City Hall after his release. Immigration officials have appealed his asylum.`\
 https://www.nytimes.com/2026/06/27/nyregion/nyc-council-employee-ice-freed.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/27/arts/sinatra-the-musical-aldwych-theatre-lond
 **Colette Shulman, Soviet Analyst With On-the-Ground Insights, Dies at 94**\
 `She arrived in Moscow in 1955, two years after Stalin’s death, and spent several years as a journalist covering major events and ordinary Soviet lives.`\
 https://www.nytimes.com/2026/06/27/business/media/colette-shulman-dead.html
-
-**This Trap Wants Ants to Take a Bite**\
-`Named for an ancient Roman crossbow-like weapon, the newly found “ballista” spider uses a springy snare to catch prey.`\
-https://www.nytimes.com/2026/06/27/science/this-trap-wants-ants-to-take-a-bite.html
-
-**Bruno Bischofberger Dies at 86; Gallerist Championed Warhol and Basquiat**\
-`He was a quintessential art dealer of the go-go 1980s, when the booming market turned painters into celebrities.`\
-https://www.nytimes.com/2026/06/27/arts/bruno-bischofberger-dead.html
-
-**Is It Worth It to Build That A.D.U.?**\
-`An appraiser can clarify the cost-benefit analysis for you, especially if you want to sell your property.`\
-https://www.nytimes.com/2026/06/27/realestate/is-it-worth-it-to-build-that-adu.html
 

@@ -1,3 +1,15 @@
+**Louisiana U.S. Senate Primary Runoff 2026: Live Election Results, Crockett vs. Davis**\
+`Get live results and maps from the 2026 Louisiana runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-us-senate-runoff.html
+
+**Louisiana Primary Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Louisiana primary runoff elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-runoff.html
+
+**Tony Brown, Host of Public Affairs Show Aimed at Black Audiences, Dies at 93**\
+`On “Tony Brown’s Journal,” he interviewed guests like Jesse Jackson and Lena Horne, and made programming decisions by asking himself, “Will it help Black people?”`\
+https://www.nytimes.com/2026/06/27/arts/television/tony-brown-dead.html
+
 **In Strait of Hormuz, Renewed Strikes Threaten to Set Back Shipping Recovery**\
 `The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
 https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
