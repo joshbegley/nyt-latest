@@ -1,3 +1,15 @@
+**Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
+`The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
+https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
+
+**U.S.-Iran Deal’s Vague Language Comes Back to Haunt Peace Efforts**\
+`The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
+
+**Three Opinion Writers on Trump’s Latest Face-Plant**\
+`Trump planned a big party for America. It’s not going well.`\
+https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
+
 **Chinese Dissident Who Fled by Sea to South Korea Lands in Canada**\
 `Dong Guangping reached Toronto after a decade of failed attempts to escape China. He traveled to South Korea last month in an inflatable rubber boat.`\
 https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping-canada.html
