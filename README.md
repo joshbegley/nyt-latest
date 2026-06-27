@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/06/27/opinion/keir-starmer-resignation-uk.html
 `Ferrari’s new E.V. is being panned by critics, but it ought to be celebrated.`\
 https://www.nytimes.com/2026/06/27/opinion/ferrari-electric-vehicle.html
 
-**Families Across the U.S. Are Struggling With High Prices**\
+**We Crunched the Data: There’s a Grocery Price Emergency in America**\
 `We dug into the data, toured the country and ran surveys to find the biggest financial pressures people feel.`\
 https://www.nytimes.com/2026/06/27/opinion/grocery-prices-inflation.html
 
