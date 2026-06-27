@@ -1,3 +1,11 @@
+**A Grizzly Encounter, Recorded in Its Entirety, Shows a Close Call**\
+`A woman in Alberta, Canada, recorded the bear as it circled her and her dog near a campsite and lodge.`\
+https://www.nytimes.com/2026/06/27/world/canada/grizzly-bear-alberta-canada-video.html
+
+**Grizzly Bear Gets Too Close for Comfort During Dog Walk**\
+`A woman in Alberta, Canada, who could not be reached for comment, had an unexpected run-in during her morning dog walk, with a persistent follower.`\
+https://www.nytimes.com/video/us/100000010996840/grizzly-bear-gets-too-close-for-comfort-during-dog-walk.html
+
 **White House Releases Images of the Trump ‘Patriot Passport’**\
 `The State Department said it planned to release 40,000 U.S. passports featuring an image of the president to commemorate the United States’ 250th anniversary.`\
 https://www.nytimes.com/2026/06/27/us/politics/trump-passport-design-america-250.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/27/world/americas/lionel-messi-argentina-statue.
 **Jeffries Faces Steep Test as Far Left Builds Strength in Congress**\
 `The victories of Darializa Avila Chevalier and other anti-establishment candidates are changing the face of House Democrats, posing a challenge for their leader.`\
 https://www.nytimes.com/2026/06/27/us/politics/jeffries-congress-democratic-socialists.html
-
-**What to Watch in Louisiana’s Republican Senate Runoff**\
-`Saturday’s election will be the latest test of President Trump’s influence in G.O.P. contests.`\
-https://www.nytimes.com/2026/06/27/us/politics/louisiana-senate-republican-runoff.html
-
-**Trump-Backed Great American State Fair Features Extra Tinges of Red**\
-`At the kickoff to the Great American State Fair, exhibits celebrating the nation were on display. So were conservative themes.`\
-https://www.nytimes.com/2026/06/27/us/great-american-fair-mall.html
 
