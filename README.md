@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.
 `Trump planned a big party for America. It’s not going well.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
 
-**Does Keir Starmer Believe in Anything?**\
+**Why Was Keir Starmer So Disastrously Ineffective?**\
 `His great achievement was to restore the Labour Party to government. His lack of conviction made him ineffective once he got there.`\
 https://www.nytimes.com/2026/06/27/opinion/keir-starmer-resignation-uk.html
 
