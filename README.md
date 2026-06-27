@@ -1,3 +1,7 @@
+**Is There Anyone Alive? 12 Hours With Venezuelan Doctors in the Disaster Zone.**\
+`A medical team set out from the capital to rescue people in the hardest-hit part of the disaster zone, La Guaira. They found silence in the ruins instead.`\
+https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquakes-doctors-rescues.html
+
 **Texas Has a New Way to Teach History: In Chronological Order**\
 `Most states teach history by subject. Texas will go chronologically, starting with ancient history and reaching World War II by seventh grade.`\
 https://www.nytimes.com/2026/06/27/us/texas-teaching-history.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/27/arts/music/phoebe-bridgers-sombr-songs.html
 **Colorado Supreme Court Delay Threatens Democratic Redistricting Effort**\
 `Both parties are awaiting a decision on the validity of ballot proposals to redraw Colorado’s maps ahead of 2028. Democrats say each day without a ruling puts the proposals at risk.`\
 https://www.nytimes.com/2026/06/27/us/politics/democrats-colorado-redistricting-state-court.html
-
-**After New York Elections, Israelis Fear Further Rupture in U.S.-Israeli Relationship**\
-`Criticism of Israel’s war in Gaza, anger over the Iran war and election results in New York all suggest Israel’s solid support from Washington may be on borrowed time.`\
-https://www.nytimes.com/2026/06/27/world/middleeast/israel-new-york-iran-war-mamdani.html
 
