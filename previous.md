@@ -1,11 +1,3 @@
-**Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
-`Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
-https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
-
-**Terremotos en Venezuela: mapas de la devastación en la costa**\
-`Según un análisis, varios edificios se derrumbaron en toda la región costera de La Guaira, al norte de Caracas, tras los dos terremotos del miércoles.`\
-https://www.nytimes.com/es/interactive/2026/06/26/espanol/america-latina/venezuela-terremotos-danos-imagenes.html
-
 **How the Reflecting Pool Turned Green: Missing ‘Bubblers’ and a Rush Job**\
 `Bulky “nanobubbler” machines were carted off ahead of a promotional event for President Trump’s Ultimate Fighting Championship birthday party.`\
 https://www.nytimes.com/2026/06/26/us/politics/reflecting-pool-trump-algae.html
@@ -62,7 +54,7 @@ https://www.nytimes.com/2026/06/26/us/politics/pulte-spy-agency-christina-norton
 `Facing criticism from residents that it was not doing enough to help, the Venezuelan government said it had dispatched more than 100 heavy machines to clear debris.`\
 https://www.nytimes.com/2026/06/26/world/americas/venezuela-earthquakes-rescues.html
 
-**Live Updates: U.S. Military Strikes Missile and Drone Sites in Iran**\
+**U.S. Military Strikes Missile and Drone Sites in Iran**\
 `U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
 https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
 
@@ -197,4 +189,12 @@ https://www.nytimes.com/2026/06/26/us/giraffe-found-texas.html
 **Gracie Abrams Understands the ‘Nepo Baby’ Criticism**\
 `Gracie Abrams talks with Joe Coscarelli and Jon Caramanica about fame, growing up in Hollywood and making her third album, “Daughter From Hell.”`\
 https://www.nytimes.com/video/podcasts/100000010987441/gracie-abrams-understands-the-nepo-baby-criticism.html
+
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Terremotos en Venezuela, en vivo: aumenta el número de fallecidos**\
+`Estados Unidos envió cientos de rescatistas para ayudar al gobierno venezolano, mientras los heridos desbordaban los hospitales y el número de muertos ascendía a 920. El Pentágono envió dos buques, aviones de transporte y helicópteros`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
 

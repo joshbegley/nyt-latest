@@ -1,3 +1,15 @@
+**U.S. Military Strikes Missile and Drone Sites in Iran**\
+`U.S. Central Command said the attacks were in retaliation for an Iranian drone strike on a commercial vessel in the Strait of Hormuz on Thursday. They concluded after about 90 minutes, according to a U.S. official.`\
+https://www.nytimes.com/live/2026/06/26/world/us-iran-strikes-hormuz
+
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Terremotos en Venezuela, en vivo: aumenta el número de fallecidos**\
+`Estados Unidos envió cientos de rescatistas para ayudar al gobierno venezolano, mientras los heridos desbordaban los hospitales y el número de muertos ascendía a 920. El Pentágono envió dos buques, aviones de transporte y helicópteros`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
 `Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
 https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
