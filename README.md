@@ -1,3 +1,7 @@
+**Now It’s Fireworks and a Fence Keeping Tourists From the Reflecting Pool**\
+`Chain-link fencing now surrounds the pool in preparation for a Fourth of July celebration. It has not stopped people from gawking.`\
+https://www.nytimes.com/2026/06/27/us/reflecting-pool-fence-july-4.html
+
 **Louisiana U.S. Senate Primary Runoff 2026: Live Election Results, Crockett vs. Davis**\
 `Get live results and maps from the 2026 Louisiana runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-us-senate-runoff.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/well/older-adults-home-sharing.html
 **‘Sinatra, The Musical’: Regrets, We Have a Few**\
 `A West End production has the hits, and Joel Harper-Jackson brings swagger and style to the leading role. But where’s the pizazz?`\
 https://www.nytimes.com/2026/06/27/arts/sinatra-the-musical-aldwych-theatre-london.html
-
-**Colette Shulman, Soviet Analyst With On-the-Ground Insights, Dies at 94**\
-`She arrived in Moscow in 1955, two years after Stalin’s death, and spent several years as a journalist covering major events and ordinary Soviet lives.`\
-https://www.nytimes.com/2026/06/27/business/media/colette-shulman-dead.html
 
