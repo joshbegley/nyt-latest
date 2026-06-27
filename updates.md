@@ -1,3 +1,23 @@
+**Advertisers Are Good at Getting Human Attention. Can They Stand Out to A.I.?**\
+`At Cannes Lions, marketers grappled with how to influence A.I. chatbots.`\
+https://www.nytimes.com/2026/06/27/business/dealbook/ai-visibility.html
+
+**Venezuela Live Updates: Rescuers Work as Window Narrows to Find Quake Survivors**\
+`International teams were joining search efforts on Saturday after twin earthquakes killed more than 900 people in northern Venezuela and left many others trapped.`\
+https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
+
+**Trending in Paris for Men: Glitter Pants and Inflatable Suits**\
+`Here’s what you need to know about men’s fashion week in Paris so far.`\
+https://www.nytimes.com/2026/06/27/style/mens-fashion-paris-trending.html
+
+**Renewed Strikes Threaten Setback to Shipping Recovery in Persian Gulf**\
+`The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
+https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
+
+**U.S.-Iran Deal’s Vague Language Comes Back to Haunt Peace Efforts**\
+`The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
+https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
+
 **Jodie Turner-Smith Likes Her Passports Tattered and Torn**\
 `“Every stamp reminds me the world is enormous and generous, and that I owe it to my daughter to keep showing her how big it is,” the actress said.`\
 https://www.nytimes.com/2026/06/27/arts/television/jodie-turner-smith-agency.html
