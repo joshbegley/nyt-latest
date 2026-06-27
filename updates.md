@@ -1,3 +1,11 @@
+**Is There Anyone Alive? 12 Hours With Venezuelan Doctors in the Disaster Zone.**\
+`A medical team set out from the capital to rescue people in the hardest-hit part of the disaster zone, La Guaira. They found silence in the ruins instead.`\
+https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquakes-doctors-rescues.html
+
+**At Least 1 Dead in Kentucky Flooding, Governor Says**\
+`Gov. Andy Beshear of Kentucky said emergency crews were rescuing people from flooded homes and vehicles on Saturday.`\
+https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
+
 **Texas Has a New Way to Teach History: In Chronological Order**\
 `Most states teach history by subject. Texas will go chronologically, starting with ancient history and reaching World War II by seventh grade.`\
 https://www.nytimes.com/2026/06/27/us/texas-teaching-history.html
