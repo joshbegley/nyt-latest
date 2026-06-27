@@ -1,3 +1,11 @@
+**During World Cup Tour, Team Spain Feels at Home in Tennessee**\
+`A local printing business churned out hundreds of Spanish-language banners for a World Cup favorite now training in Chattanooga.`\
+https://www.nytimes.com/2026/06/26/style/team-spain-tennessee-world-cup-signs.html
+
+**Venezuela busca a los sobrevivientes de los terremotos**\
+`El número de fallecidos ascendía a 920 y los hospitales estaban desbordados. Al menos 3300 personas resultaron heridas y cerca de 1400 edificios sufrieron daños, según las autoridades.`\
+https://www.nytimes.com/live/2026/06/26/espanol/venezuela-terremotos
+
 **Judge Scrutinizes Decision to Abandon Charges Against Indian Billionaire**\
 `Judge Nicholas G. Garaufis ordered prosecutors to explain why they moved to drop a bribery case against Gautam Adani, after they said they did not want to “devote further resources.”`\
 https://www.nytimes.com/2026/06/26/nyregion/dropped-charges-gautam-adani-bribery.html
