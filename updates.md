@@ -1,3 +1,5 @@
+
+
 **In Small Step, Israel Agrees to Withdrawal From Two Areas in Lebanon**\
 `Secretary of State Marco Rubio acknowledged that the agreement marked only “the beginning of the beginning” of negotiations between Israel and Lebanon.`\
 https://www.nytimes.com/2026/06/26/us/politics/israel-lebanon-agreement.html
