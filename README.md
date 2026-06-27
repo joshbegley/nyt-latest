@@ -1,5 +1,5 @@
 **Central and Eastern Europe Are Feeling the Heat Now**\
-`Much of Germany and Poland were under extreme heat warnings on Saturday, as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
+`Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
 https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html
 
 **Once He Wanted to Lead FIFA. This Is Much Better.**\
@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.
 `Trump planned a big party for America. It’s not going well.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
 
-**Does Keir Starmer Believe in Anything?**\
+**Why Was Keir Starmer So Disastrously Ineffective?**\
 `His great achievement was to restore the Labour Party to government. His lack of conviction made him ineffective once he got there.`\
 https://www.nytimes.com/2026/06/27/opinion/keir-starmer-resignation-uk.html
 
