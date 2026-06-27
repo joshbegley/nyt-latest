@@ -1,35 +1,3 @@
-**N.Y.C. City Council Employee Freed After 5 Months in ICE Detention**\
-`Rafael Andres Rubio Bohorquez is back in New York City and working at City Hall after his release. Immigration officials have appealed his asylum.`\
-https://www.nytimes.com/2026/06/27/nyregion/nyc-council-employee-ice-freed.html
-
-**How the Internet Polarizes Men and Women**\
-`Is the internet polarizing the sexes? On “Interesting Times,” the author Louise Perry argues that our modern connectivity is exposing the previously private worlds of vulgar locker room talk and unkind gossip — and is driving young men and women apart.`\
-https://www.nytimes.com/video/opinion/100000010983107/how-the-internet-polarizes-men-and-women.html
-
-**Newly Discovered Spider Captures Ants in Spring-Loaded Trap**\
-`The ballista spider discovered in Queensland, Australia, was named after an ancient Roman crossbow, and creates a spring-loaded web to catch its prey.`\
-https://www.nytimes.com/video/science/earth/100000010995159/ballista-spider-discovered-australia.html
-
-**The July Monthly Bake: Peaches and Cream Victoria Sandwich**\
-`This simple but showstopping dessert layers light-as-air sponge cake, pillowy whipped cream and jammy peach compote.`\
-https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-cream-victoria-sandwich.html
-
-**Deal With Israel Divides Lebanese, Fueling Protests in Beirut**\
-`Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
-https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
-
-**How Do I Stop Guests From Bringing Their Children to My Parties?**\
-`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
-https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
-
-**Gambling Addiction Starts in Middle School**\
-`In part because gambling ads are in everything, everywhere, all at once.`\
-https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
-
-**Central and Eastern Europe Are Feeling the Heat Now**\
-`Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
-https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html
-
 **Once He Wanted to Lead FIFA. This Is Much Better.**\
 `Jordan’s arrival at the World Cup is the culmination of decades of patient effort by one man, but also a moment of solidarity for his nation and its diaspora.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein-world-cup.html
@@ -162,7 +130,7 @@ https://www.nytimes.com/2026/06/27/us/politics/jeffries-congress-democratic-soci
 `Saturday’s election will be the latest test of President Trump’s influence in G.O.P. contests.`\
 https://www.nytimes.com/2026/06/27/us/politics/louisiana-senate-republican-runoff.html
 
-**Trump-Backed Tribute to States on the Mall Features Extra Tinges of Red**\
+**Trump-Backed Great American State Fair Features Extra Tinges of Red**\
 `At the kickoff to the Great American State Fair, exhibits celebrating the nation were on display. So were conservative themes.`\
 https://www.nytimes.com/2026/06/27/us/great-american-fair-mall.html
 
@@ -197,4 +165,36 @@ https://www.nytimes.com/2026/06/27/arts/bruno-bischofberger-dead.html
 **Is It Worth It to Build That A.D.U.?**\
 `An appraiser can clarify the cost-benefit analysis for you, especially if you want to sell your property.`\
 https://www.nytimes.com/2026/06/27/realestate/is-it-worth-it-to-build-that-adu.html
+
+**6 Travel Podcasts to Inspire Your Next Trip**\
+`These shows offer a mix of evocative travelogues, practical tips, and expert recommendations for destinations across the globe.`\
+https://www.nytimes.com/2026/06/27/arts/travel-podcasts-rick-steves.html
+
+**Volunteers Are Risking Their Lives to Stop Ebola. They Aren’t Always Welcome.**\
+`Frontline Congolese workers who conduct safe burials are key to containing what experts fear could become the worst ever Ebola outbreak. They risk not just infection, but the anger of terrified communities.`\
+https://www.nytimes.com/2026/06/27/world/africa/ebola-outbreak-congo-volunteers-burials-backlash.html
+
+**Chaos Came to CBS News. What’s in Store for CNN?**\
+`The tech scion David Ellison is close to completing a merger that would put the legacy broadcaster and the 24-hour cable news network under the same roof.`\
+https://www.nytimes.com/2026/06/27/business/media/cnn-bari-weiss-david-ellison.html
+
+**Riding Into 2028: On the Midterms Trail, Andy Beshear Eyes a Bigger Prize**\
+`The two-term Democratic governor of deep-red Kentucky, in demand as a surrogate in key 2026 races, talks horses, faith and family politics as he considers a run for the White House.`\
+https://www.nytimes.com/2026/06/27/us/politics/andy-beshear-kentucky-midterms-2028.html
+
+**How Much Have Airfares Risen With High Jet Fuel Costs?**\
+`While prices are up overall, there’s a surprising pattern depending on your destination.`\
+https://www.nytimes.com/2026/06/27/upshot/airfares-jet-fuel-prices.html
+
+**In Colorado, the Long Aftermath of a Fire Feels Political**\
+`When the Trump administration rejected a request for federal assistance to a fire-ravaged part of western Colorado, residents debated which political party was to blame.`\
+https://www.nytimes.com/2026/06/27/business/colorado-fire-fema-aid-denied.html
+
+**Audio Guest Books Bring Something New to Weddings**\
+`Traditional guest books are giving way to a more intimate method for capturing the sentiments of those attending your wedding.`\
+https://www.nytimes.com/2026/06/27/style/audio-guestbooks-recordings-weddings.html
+
+**How Absolut Pitched Itself as the Gay Vodka**\
+`The Swedish liquor brand Absolut began its courtship of gay consumers with a 1981 print ad. “We were the Pied Piper in magazines,” one executive recalled.`\
+https://www.nytimes.com/2026/06/27/style/pride-vodka-absolut.html
 

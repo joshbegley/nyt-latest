@@ -1,3 +1,39 @@
+**Trump-Backed Great American State Fair Features Extra Tinges of Red**\
+`At the kickoff to the Great American State Fair, exhibits celebrating the nation were on display. So were conservative themes.`\
+https://www.nytimes.com/2026/06/27/us/great-american-fair-mall.html
+
+**6 Travel Podcasts to Inspire Your Next Trip**\
+`These shows offer a mix of evocative travelogues, practical tips, and expert recommendations for destinations across the globe.`\
+https://www.nytimes.com/2026/06/27/arts/travel-podcasts-rick-steves.html
+
+**Volunteers Are Risking Their Lives to Stop Ebola. They Aren’t Always Welcome.**\
+`Frontline Congolese workers who conduct safe burials are key to containing what experts fear could become the worst ever Ebola outbreak. They risk not just infection, but the anger of terrified communities.`\
+https://www.nytimes.com/2026/06/27/world/africa/ebola-outbreak-congo-volunteers-burials-backlash.html
+
+**Chaos Came to CBS News. What’s in Store for CNN?**\
+`The tech scion David Ellison is close to completing a merger that would put the legacy broadcaster and the 24-hour cable news network under the same roof.`\
+https://www.nytimes.com/2026/06/27/business/media/cnn-bari-weiss-david-ellison.html
+
+**Riding Into 2028: On the Midterms Trail, Andy Beshear Eyes a Bigger Prize**\
+`The two-term Democratic governor of deep-red Kentucky, in demand as a surrogate in key 2026 races, talks horses, faith and family politics as he considers a run for the White House.`\
+https://www.nytimes.com/2026/06/27/us/politics/andy-beshear-kentucky-midterms-2028.html
+
+**How Much Have Airfares Risen With High Jet Fuel Costs?**\
+`While prices are up overall, there’s a surprising pattern depending on your destination.`\
+https://www.nytimes.com/2026/06/27/upshot/airfares-jet-fuel-prices.html
+
+**In Colorado, the Long Aftermath of a Fire Feels Political**\
+`When the Trump administration rejected a request for federal assistance to a fire-ravaged part of western Colorado, residents debated which political party was to blame.`\
+https://www.nytimes.com/2026/06/27/business/colorado-fire-fema-aid-denied.html
+
+**Audio Guest Books Bring Something New to Weddings**\
+`Traditional guest books are giving way to a more intimate method for capturing the sentiments of those attending your wedding.`\
+https://www.nytimes.com/2026/06/27/style/audio-guestbooks-recordings-weddings.html
+
+**How Absolut Pitched Itself as the Gay Vodka**\
+`The Swedish liquor brand Absolut began its courtship of gay consumers with a 1981 print ad. “We were the Pied Piper in magazines,” one executive recalled.`\
+https://www.nytimes.com/2026/06/27/style/pride-vodka-absolut.html
+
 **N.Y.C. City Council Employee Freed After 5 Months in ICE Detention**\
 `Rafael Andres Rubio Bohorquez is back in New York City and working at City Hall after his release. Immigration officials have appealed his asylum.`\
 https://www.nytimes.com/2026/06/27/nyregion/nyc-council-employee-ice-freed.html
