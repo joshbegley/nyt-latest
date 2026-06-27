@@ -1,3 +1,7 @@
+**We Crunched the Data: There’s a Grocery Price Emergency in America**\
+`We dug into the data, toured the country and ran surveys to find the biggest financial pressures people feel.`\
+https://www.nytimes.com/2026/06/27/opinion/grocery-prices-inflation.html
+
 **¿Quién hizo la estatua gigante de Messi en Argentina?**\
 `Mientras Lionel Messi persigue otro título mundial, un artista se apresura a terminar una gigantesca estatua del astro del fútbol en medio del desierto patagónico.`\
 https://www.nytimes.com/es/2026/06/27/espanol/america-latina/estatua-gigante-messi-argentina.html
