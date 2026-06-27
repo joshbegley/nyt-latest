@@ -1,3 +1,15 @@
+**The Artist Uman’s Technicolor Paintings of Rural Life**\
+`Ahead of a survey exhibition, Uman discusses skipping art-world functions, living on a farm and making work on the floor.`\
+https://www.nytimes.com/2026/06/27/t-magazine/uman-hessel-museum-bard.html
+
+**Michigan Couple Are Charged With Murder After Death of Morbidly Obese Son**\
+`Seven-year-old Casper O’Brien weighed 255 pounds when he died last year. Prosecutors said he was bedridden and subsisted on little more than snack foods.`\
+https://www.nytimes.com/2026/06/27/us/michgan-parents-charged-murder-obesity.html
+
+**Down in the Valley**\
+`Rebecca Goldstein and Christina Iverson’s puzzle posits a sophisticated thesis on the American vernacular.`\
+https://www.nytimes.com/2026/06/27/crosswords/daily-puzzle-2026-06-28.html
+
 **Live Updates: Hostilities Flare Between U.S. and Iran, Testing Truce**\
 `U.S. forces carried out retaliatory airstrikes on Iran for the second straight night, after Bahrain said it had been targeted by Iranian drones and a ship came under attack in the Strait of Hormuz for the second time in recent days.`\
 https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz

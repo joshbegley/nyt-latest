@@ -1,3 +1,15 @@
+**The Artist Uman’s Technicolor Paintings of Rural Life**\
+`Ahead of a survey exhibition, Uman discusses skipping art-world functions, living on a farm and making work on the floor.`\
+https://www.nytimes.com/2026/06/27/t-magazine/uman-hessel-museum-bard.html
+
+**Michigan Couple Are Charged With Murder After Death of Morbidly Obese Son**\
+`Seven-year-old Casper O’Brien weighed 255 pounds when he died last year. Prosecutors said he was bedridden and subsisted on little more than snack foods.`\
+https://www.nytimes.com/2026/06/27/us/michgan-parents-charged-murder-obesity.html
+
+**Down in the Valley**\
+`Rebecca Goldstein and Christina Iverson’s puzzle posits a sophisticated thesis on the American vernacular.`\
+https://www.nytimes.com/2026/06/27/crosswords/daily-puzzle-2026-06-28.html
+
 **Trump Picks Lance Schroyer as New ICE Director**\
 `The president said he was nominating Lance Schroyer, who currently serves as an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
 https://www.nytimes.com/2026/06/27/us/politics/trump-oklahoma-ice-director.html
@@ -78,13 +90,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**How Do I Stop Guests From Bringing Their Children to My Parties?**\
-`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
-https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
-
 **We’re Getting America’s Children Hooked on Gambling**\
 `In part because gambling ads are in everything, everywhere, all at once.`\
 https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
+
+**How Do I Stop Guests From Bringing Their Children to My Parties?**\
+`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
+https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz
 **Robby Hoffman Will Always Feel Poor, No Matter How Rich She Gets**\
 `The comedian and actor says class and the way she grew up inform everything about the way she lives now.`\
 https://www.nytimes.com/2026/06/27/magazine/robby-hoffman-interview.html
-
-**Funcionarios mexicanos se han convertido en informantes del gobierno de Trump**\
-`La presidenta de México, Claudia Sheinbaum, ha cuestionado las investigaciones estadounidenses sobre políticos mexicanos. Ahora, algunos quieren colaborar.`\
-https://www.nytimes.com/es/2026/06/27/espanol/america-latina/mexico-politicos-morena-informantes-dea-narco.html
-
-**Watergate Today as a Blip of a Story? Vance Might Not Be Entirely Wrong.**\
-`Nixon’s offenses were not a deep-state invention. But in the age of Donald Trump, and in a fractured media environment, voters have become more inured to political scandal.`\
-https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-nixon.html
-
-**Venezuela’s Economy Was On the Rise. Then the Earthquakes Struck.**\
-`Expectations are now rising over the role the United States will play in helping Venezuela, which had already been laid low by decades of misrule.`\
-https://www.nytimes.com/2026/06/27/world/americas/venezuelas-economy-earthquake.html
 
