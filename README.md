@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/06/28/opinion/lewis-clark-scientific-research-fundi
 `The people who want to visit can’t function without the people who have to live there.`\
 https://www.nytimes.com/2026/06/28/opinion/the-hamptons-human-labor.html
 
-**Mideast Live Updates: U.S. and Iran Trade Attacks With Few Signs of De-escalation**\
-`President Trump and Iran’s Revolutionary Guards exchanged threats and U.S. allies in the Gulf said they had intercepted Iranian drones, as hostilities entered a fourth day.`\
+**Mideast Live Updates: Dispute Over Strait Deepens as U.S. and Iran Trade Attacks**\
+`In a fourth day of hostilities, Iran said that it had targeted a U.S. naval base in Bahrain and a Kuwaiti air base with drones and missiles. No major damage or casualties were reported.`\
 https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
 
 **Trump Cut a Billion-Dollar Mining Deal. His Sons Stand to Profit.**\

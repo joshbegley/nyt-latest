@@ -1,3 +1,11 @@
+**Los Países Bajos registran su primer caso de muerte asistida de un niño de entre 1 y 12 años**\
+`La muerte asistida por un médico para niños con enfermedades terminales de ese grupo de edad está permitida en el país desde 2024.`\
+https://www.nytimes.com/es/2026/06/28/espanol/mundo/muerte-asistida-nino-paises-bajos.html
+
+**A ‘Bald Meet-Up’ in NYC Fosters a Sense of Empowerment**\
+`The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
+https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
+
 **Por qué lloran las personas mayores**\
 `Últimamente tengo tanto pasado a mis espaldas y dentro de mí que parece que se me sale por todas partes.`\
 https://www.nytimes.com/es/2026/06/28/espanol/opinion/vejez-llorar.html

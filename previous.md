@@ -1,3 +1,7 @@
+**Los Países Bajos registran su primer caso de muerte asistida de un niño de entre 1 y 12 años**\
+`La muerte asistida por un médico para niños con enfermedades terminales de ese grupo de edad está permitida en el país desde 2024.`\
+https://www.nytimes.com/es/2026/06/28/espanol/mundo/muerte-asistida-nino-paises-bajos.html
+
 **Por qué lloran las personas mayores**\
 `Últimamente tengo tanto pasado a mis espaldas y dentro de mí que parece que se me sale por todas partes.`\
 https://www.nytimes.com/es/2026/06/28/espanol/opinion/vejez-llorar.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-volunta
 `María Corina Machado, la líder exiliada de la oposición venezolana, desea volver a casa. Funcionarios de EE. UU. consideran que su deseo es inoportuno.`\
 https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-maria-corina-machado.html
 
-**‘Hair Is Just Hair’: A ‘Bald Meet-Up’ Fosters a Sense of Empowerment**\
+**A ‘Bald Meet-Up’ in NYC Fosters a Sense of Empowerment**\
 `The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
 https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/28/espanol/estilos-de-vida/ojos-operacion-cir
 **El hombre que gritó ‘gooooooooool’**\
 `Andrés Cantor, comentarista de Telemundo, es una celebridad del fútbol que actualmente participa en su décima Copa Mundial masculina. Pero su gran habilidad física no es la finta precisa de Messi ni la velocidad de Mbappé. Es su voz.`\
 https://www.nytimes.com/es/2026/06/28/espanol/cultura/andres-cantor-narrador-futbol.html
-
-**Iran’s World Cup Elimination Ends a Politically Charged Odyssey**\
-`The Iranian team’s departure from the tournament ends one of the most politically charged odysseys in recent sports history. Its soccer federation criticized the United States and praised Mexico.`\
-https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
 
