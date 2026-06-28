@@ -1,3 +1,7 @@
+**Trump Cut a Billion-Dollar Mining Deal. His Sons Stand to Profit.**\
+`An agreement between the U.S. and Kazakhstan has given a group of American investors with ties to the president and the commerce secretary access to one of the world’s largest untapped reserves of tungsten.`\
+https://www.nytimes.com/2026/06/28/world/europe/trump-lutnick-sons-kazakhstan.html
+
 **If These Celebrities Are Democracy’s Last Hope, We’re in Trouble**\
 `When speaking up actually means risking something, for once, it is more necessary than ever.`\
 https://www.nytimes.com/2026/06/28/opinion/celebrity-activism-donald-trump.html
