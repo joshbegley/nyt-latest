@@ -1,3 +1,7 @@
+**Oil Markets Edge Higher After Days of Attacks in Persian Gulf**\
+`Oil prices inched up on Sunday evening, while the S&P 500 futures market was little changed.`\
+https://www.nytimes.com/2026/06/28/business/oil-markets-edge-higher-after-days-of-attacks-in-persian-gulf.html
+
 **NYT Crossword Answers for June 29, 2026**\
 `Ginny Too and Rajeswari Rajamani make their New York Times Crossword collaboration debut.`\
 https://www.nytimes.com/2026/06/28/crosswords/daily-puzzle-2026-06-29.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/world/middleeast/beirut-dahiya-israel-lebanon
 **Warrior, Hero, Villain or Fool? 150 Years of Reassessing Custer**\
 `Few American military commanders have had as complicated a legacy as George Armstrong Custer, who died at the Battle of the Little Bighorn in June 1876.`\
 https://www.nytimes.com/interactive/2026/06/28/arts/battle-little-bighorn-custer.html
-
-**Bill Maher Set to Receive Mark Twain Prize at the Kennedy Center**\
-`A frequent critic of President Trump, Mr. Maher will take the stage on Sunday at a time of upheaval at the arts institution that once bore the president’s name.`\
-https://www.nytimes.com/2026/06/28/arts/kennedy-center-bill-maher-mark-twain.html
 

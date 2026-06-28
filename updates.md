@@ -1,3 +1,7 @@
+**Oil Markets Edge Higher After Days of Attacks in Persian Gulf**\
+`Oil prices inched up on Sunday evening, while the S&P 500 futures market was little changed.`\
+https://www.nytimes.com/2026/06/28/business/oil-markets-edge-higher-after-days-of-attacks-in-persian-gulf.html
+
 **NYT Crossword Answers for June 29, 2026**\
 `Ginny Too and Rajeswari Rajamani make their New York Times Crossword collaboration debut.`\
 https://www.nytimes.com/2026/06/28/crosswords/daily-puzzle-2026-06-29.html
