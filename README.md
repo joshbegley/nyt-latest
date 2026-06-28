@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/06/28/nyregion/whats-the-hottest-spot-in-new-york-f
 https://www.nytimes.com/2026/06/28/nyregion/central-park-horse-drawn-carriage-rides-resume-as-push-for-ban-intensifies.html
 
 **‘After About 10 Minutes, a Car Pulled Up to the Traffic Light’**\
-`Our special series of columns marking Metropolitan Diary’s 50th anniversary continues with more notable contributors sharing their New York City stories.`\
+`Friends of Metropolitan Diary, including the writer Candace Bushnell and the actor Ken Leung of “Industry,” share their stories to mark the column’s 50th anniversary.`\
 https://www.nytimes.com/2026/06/28/nyregion/metropolitan-diary.html
 
 **NYT Spelling Bee Answers for June 28, 2026**\
