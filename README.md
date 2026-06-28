@@ -1,3 +1,7 @@
+**Mignon Dunn, Mezzo Soprano Known for ‘Carmen,’ Dies at 98**\
+`Growing up in Arkansas, she dreamed of singing at the Metropolitan Opera. She did so more than 650 times over 35 years.`\
+https://www.nytimes.com/2026/06/28/obituaries/mignon-dunn-dead.html
+
 **At a Caracas Morgue, Families and Officials Try to Identify More Than 100 Victims**\
 `Identifying victims has proved to be difficult because many bodies were badly crushed beneath collapsed buildings.`\
 https://www.nytimes.com/2026/06/28/world/americas/venezuela-earthquake-caracas-morgue.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/us/elections/colorado-governor-democratic-pri
 **Trump Wants to Own the Nation’s 250th Birthday. States Have Their Own Plans.**\
 `As partisan tensions swirl around festivities in Washington, red and blue states alike are leaning into complex history — and their own stories.`\
 https://www.nytimes.com/2026/06/28/arts/250-american-history-states-trump.html
-
-**Terrific New Mystery Books**\
-`Sarah Weinman on “Heather,” by Caitlin Mullen, and three more new books.`\
-https://www.nytimes.com/2026/06/28/books/review/new-mystery-books.html
 
