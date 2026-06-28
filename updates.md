@@ -1,3 +1,11 @@
+**Por qué lloran las personas mayores**\
+`Últimamente tengo tanto pasado a mis espaldas y dentro de mí que parece que se me sale por todas partes.`\
+https://www.nytimes.com/es/2026/06/28/espanol/opinion/vejez-llorar.html
+
+**Iran Risks Peace Talks With U.S. to Maintain Leverage Over Strait**\
+`Iran sees its control over the Strait of Hormuz as critical leverage in peace talks with the United States. It seems willing to risk the cease-fire to maintain that power.`\
+https://www.nytimes.com/2026/06/28/world/europe/iran-us-strait-of-hormuz-peace-talks.html
+
 **Venezuela Live Updates: Window to Find Survivors Is Closing as Rescuers Battle Through Aftershocks**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
