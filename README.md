@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/06/28/opinion/the-hamptons-human-labor.html
 `President Trump and Iran’s Revolutionary Guards exchanged threats and U.S. allies in the Gulf said they had intercepted Iranian drones, as hostilities entered a fourth day.`\
 https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
 
-**As Trump Cut a Billion-Dollar Mining Deal, His Sons Stand to Profit**\
+**Trump Cut a Billion-Dollar Mining Deal. His Sons Stand to Profit.**\
 `An agreement between the U.S. and Kazakhstan has given a group of American investors with ties to the president and the commerce secretary access to one of the world’s largest untapped reserves of tungsten.`\
 https://www.nytimes.com/2026/06/28/world/europe/trump-lutnick-sons-kazakhstan.html
 
