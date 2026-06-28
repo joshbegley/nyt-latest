@@ -1,3 +1,7 @@
+**Machado pide volver a Venezuela, lo que habría irritado a funcionarios de EE. UU.**\
+`María Corina Machado, la líder exiliada de la oposición venezolana, desea volver a casa. Funcionarios de EE. UU. consideran que su deseo es inoportuno.`\
+https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-maria-corina-machado.html
+
 **‘Hair Is Just Hair’: A ‘Bald Meet-Up’ Fosters a Sense of Empowerment**\
 `The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
 https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
@@ -9,6 +13,10 @@ https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-volunta
 **‘Supergirl’ Falters at the Box Office, Testing DC Studios’ Reboot**\
 `Overall, ticket sales for the weekend were up 21 percent from last year. But the expensive “Supergirl” debuted as a disappointing second, with an estimated $38 million.`\
 https://www.nytimes.com/2026/06/28/business/media/supergirl-box-office.html
+
+**Deep Under the Rubble, Rescuers Find an 11-Year-Old Boy Alive**\
+`A Colombian rescue team worked for six hours to recover the child, Moises, from under nearly 10 feet of rubble in La Guaira. His rescue was captured on video.`\
+https://www.nytimes.com/2026/06/28/world/americas/deep-under-the-rubble-rescuers-find-an-11-year-old-boy-alive.html
 
 **L.G.B.T.Q. Figures Who Shaped History From the Margins**\
 `Their names may not be familiar, but they helped define queer art, activism and storytelling as we know it today.`\
@@ -189,8 +197,4 @@ https://www.nytimes.com/es/2026/06/28/espanol/cultura/biblioteca-franklin-libros
 **Pride March Caps Joyous New York June, but Anxiety Tempers Hope**\
 `The annual celebration began Sunday in a city where many in the L.G.B.T.Q. community are optimistic about their local leaders but face continued challenges from the Trump administration.`\
 https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
-
-**What’s the Hottest Spot in New York for Campaigning? The Club.**\
-`Zohran Mamdani did it last year. So did Claire Valdez in her recent run for Congress. Some candidates are campaigning after dark to court young voters.`\
-https://www.nytimes.com/2026/06/28/nyregion/whats-the-hottest-spot-in-new-york-for-campaigning-the-club.html
 
