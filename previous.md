@@ -1,3 +1,7 @@
+**La avalancha de voluntarios en Venezuela ralentiza las labores de rescate**\
+`El gran número de voluntarios que acudieron con ayuda después de los terremotos de Venezuela colapsó la única carretera que llevaba a la zona afectada, lo que retrasó la llegada de los equipos de rescate.`\
+https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-voluntarios-trafico.html
+
 **Machado pide volver a Venezuela, lo que habría irritado a funcionarios de EE. UU.**\
 `María Corina Machado, la líder exiliada de la oposición venezolana, desea volver a casa. Funcionarios de EE. UU. consideran que su deseo es inoportuno.`\
 https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-maria-corina-machado.html
@@ -5,10 +9,6 @@ https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremoto
 **‘Hair Is Just Hair’: A ‘Bald Meet-Up’ Fosters a Sense of Empowerment**\
 `The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
 https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
-
-**La avalancha de voluntarios en Venezuela ralentiza las labores de rescate**\
-`El gran número de voluntarios que acudieron con ayuda después de los terremotos de Venezuela colapsó la única carretera que llevaba a la zona afectada, lo que retrasó la llegada de los equipos de rescate.`\
-https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-voluntarios-trafico.html
 
 **‘Supergirl’ Falters at the Box Office, Testing DC Studios’ Reboot**\
 `Overall, ticket sales for the weekend were up 21 percent from last year. But the expensive “Supergirl” debuted as a disappointing second, with an estimated $38 million.`\
@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
 
-**Venezuela Live Updates: Rescuers Battle Through Aftershocks in Search for Survivors**\
+**Venezuela Live Updates: Window to Find Survivors Is Closing as Rescuers Battle Through Aftershocks**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
 

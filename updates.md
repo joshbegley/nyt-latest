@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Window to Find Survivors Is Closing as Rescuers Battle Through Aftershocks**\
+`More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
+https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
+
 **Machado pide volver a Venezuela, lo que habría irritado a funcionarios de EE. UU.**\
 `María Corina Machado, la líder exiliada de la oposición venezolana, desea volver a casa. Funcionarios de EE. UU. consideran que su deseo es inoportuno.`\
 https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-maria-corina-machado.html
