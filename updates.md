@@ -1,3 +1,7 @@
+**Dozens of Dogs Join Search for Venezuela Quake Survivors**\
+`Specially trained canines can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
+https://www.nytimes.com/2026/06/28/world/americas/rescue-dogs-canine-units-earthquake-venezuela.html
+
 **‘After About 10 Minutes, a Car Pulled Up to the Traffic Light’**\
 `Friends of Metropolitan Diary, including the writer Candace Bushnell and the actor Ken Leung of “Industry,” share their stories to mark the column’s 50th anniversary.`\
 https://www.nytimes.com/2026/06/28/nyregion/metropolitan-diary.html
