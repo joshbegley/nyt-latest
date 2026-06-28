@@ -1,3 +1,7 @@
+**Deadly Floods Hit Kentucky**\
+`Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
+https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
+
 **China Confirms Death of Pilot Who Flew Small Plane Into Beijing’s Tallest Tower**\
 `The statement came a day after online images showed falling debris and plane parts. Another 13 were injured in the incident five miles from Communist Party headquarters.`\
 https://www.nytimes.com/2026/06/28/world/asia/china-pilot-died-plane-crash-beijing.html
