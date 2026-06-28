@@ -1,3 +1,7 @@
+**Mideast Live Updates: Dispute Over Strait Deepens as U.S. and Iran Trade Attacks**\
+`In a fourth day of hostilities, Iran said that it had targeted a U.S. naval base in Bahrain and a Kuwaiti air base with drones and missiles. No major damage or casualties were reported.`\
+https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
+
 **Los Países Bajos registran su primer caso de muerte asistida de un niño de entre 1 y 12 años**\
 `La muerte asistida por un médico para niños con enfermedades terminales de ese grupo de edad está permitida en el país desde 2024.`\
 https://www.nytimes.com/es/2026/06/28/espanol/mundo/muerte-asistida-nino-paises-bajos.html
