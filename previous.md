@@ -1,3 +1,7 @@
+**Short on Time and Tools, a Community Comes Together to Search for Survivors**\
+`Volunteers in a middle-class neighborhood in Caracas used drills, picks and hammers to break through concrete, trying to find anyone in need of rescue.`\
+https://www.nytimes.com/2026/06/28/world/americas/caracas-venezuela-earthquake-rescue.html
+
 **Delcy Rodríguez es acusada de politizar la ayuda tras los terremotos**\
 `Los críticos dicen que la presidenta interina del país, Delcy Rodríguez, está intentando sacar partido de la tragedia para su beneficio político. Sus seguidores acusan a la oposición de hacer lo mismo.`\
 https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-delcy-rodriguez-ayuda.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/books/review/becoming-george-fiona-sampson-ge
 **White House Secretly Swayed Board Meant to Protect Federal Workers From Unfair Firings**\
 `Behind the scenes, the Trump White House went to extensive lengths to advance its theory of executive power, potentially giving the president remarkable leeway to install loyalists at nearly every echelon of government.`\
 https://www.nytimes.com/2026/06/28/us/politics/trump-firings-workers-merit-systems-protection-board.html
-
-**How Polymarket Traders Revolted Over One Silly Syllable**\
-`How one silly syllable ignited a bitter dispute over the nature of reality on Polymarket.`\
-https://www.nytimes.com/2026/06/28/business/donk-polymarket-prediction-markets.html
 
