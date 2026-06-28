@@ -1,3 +1,15 @@
+**A Mayor Is Taking Maternity Leave in Japan. Some Men Are Furious.**\
+`Shoko Kawata is the first mayor to take maternity leave in Japan’s history. Her decision has prompted debate about gender discrimination in the work force.`\
+https://www.nytimes.com/2026/06/28/world/asia/japan-mayor-maternity-leave.html
+
+**No Corrections: June 28, 2026**\
+`No corrections appeared in print on Sunday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/28/pageoneplus/no-corrections-june-28-2026.html
+
+**Drones Used to Fight Mosquitoes as Dengue Fever Surges in Sri Lanka**\
+`The military has joined the battle against the insects, as an outbreak strains hospitals in a country already reeling from energy shortages caused by the Iran War.`\
+https://www.nytimes.com/2026/06/28/world/asia/sri-lanka-dengue-mosquito-drones-military.html
+
 **Quote of the Day: New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
 `Quotation of the Day for Sunday, June 28, 2026.`\
 https://www.nytimes.com/2026/06/27/pageoneplus/quote-of-the-day-new-yorks-dive-bars-have-a-rich-past-do-they-have-a-future.html

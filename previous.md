@@ -1,3 +1,15 @@
+**A Mayor Is Taking Maternity Leave in Japan. Some Men Are Furious.**\
+`Shoko Kawata is the first mayor to take maternity leave in Japan’s history. Her decision has prompted debate about gender discrimination in the work force.`\
+https://www.nytimes.com/2026/06/28/world/asia/japan-mayor-maternity-leave.html
+
+**No Corrections: June 28, 2026**\
+`No corrections appeared in print on Sunday, June 18, 2026.`\
+https://www.nytimes.com/2026/06/28/pageoneplus/no-corrections-june-28-2026.html
+
+**Drones Used to Fight Mosquitoes as Dengue Fever Surges in Sri Lanka**\
+`The military has joined the battle against the insects, as an outbreak strains hospitals in a country already reeling from energy shortages caused by the Iran War.`\
+https://www.nytimes.com/2026/06/28/world/asia/sri-lanka-dengue-mosquito-drones-military.html
+
 **Quote of the Day: New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
 `Quotation of the Day for Sunday, June 28, 2026.`\
 https://www.nytimes.com/2026/06/27/pageoneplus/quote-of-the-day-new-yorks-dive-bars-have-a-rich-past-do-they-have-a-future.html
@@ -130,13 +142,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**How Do I Stop Guests From Bringing Their Children to My Parties?**\
-`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
-https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
-
 **We’re Getting America’s Children Hooked on Gambling**\
 `In part because gambling ads are in everything, everywhere, all at once.`\
 https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
+
+**How Do I Stop Guests From Bringing Their Children to My Parties?**\
+`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
+https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/27/opinion/keir-starmer-resignation-uk.html
 **It’s Ugly. It Costs $640,000. Everyone Is Mad About It but Me.**\
 `Ferrari’s new E.V. is being panned by critics, but it ought to be celebrated.`\
 https://www.nytimes.com/2026/06/27/opinion/ferrari-electric-vehicle.html
-
-**We Crunched the Data: There’s a Grocery Price Emergency in America**\
-`We dug into the data, toured the country and ran surveys to find the biggest financial pressures people feel.`\
-https://www.nytimes.com/2026/06/27/opinion/grocery-prices-inflation.html
-
-**Trump Is Turning Journalists Into Criminals**\
-`The product of journalism enjoys substantial protection under the First Amendment. But what about the process?`\
-https://www.nytimes.com/2026/06/27/opinion/trump-first-amendment-journalists.html
-
-**Why Old People Cry**\
-`These days, I have so much past behind and within me, it’s as if it bubbles over.`\
-https://www.nytimes.com/2026/06/27/opinion/culture/crying-old-people.html
 
