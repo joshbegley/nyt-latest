@@ -1,3 +1,11 @@
+**NYT Crossword Answers for June 29, 2026**\
+`Ginny Too and Rajeswari Rajamani make their New York Times Crossword collaboration debut.`\
+https://www.nytimes.com/2026/06/28/crosswords/daily-puzzle-2026-06-29.html
+
+**Philippe Stern, Heir to the Patek Philippe Watch Brand, Dies at 88**\
+`In an era of electronic timepieces, he marketed $40,000 handmade watches as status symbols, breathing new life into a struggling industry.`\
+https://www.nytimes.com/2026/06/28/obituaries/phillipe-stern-dead.html
+
 **Mignon Dunn, Mezzo Soprano Known for ‘Carmen,’ Dies at 98**\
 `Growing up in Arkansas, she dreamed of singing at the Metropolitan Opera. She did so more than 650 times over 35 years.`\
 https://www.nytimes.com/2026/06/28/obituaries/mignon-dunn-dead.html
