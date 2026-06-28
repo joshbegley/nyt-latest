@@ -1,3 +1,59 @@
+**Venezuela Government Accused of Politicizing Quake Relief**\
+`Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
+https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html
+
+**The Elite Conservatives Trying to Revive ‘Western Civilization’**\
+`Most Americans have heard of Christian nationalism, according to Pew. Soon, they may be hearing about Christian civilizationism.`\
+https://www.nytimes.com/2026/06/28/briefing/the-elite-conservatives-trying-to-revive-western-civilization.html
+
+**‘The Bear’ Season 5 Recap: What Worked? What Questions Linger?**\
+`The final season was in many ways a recapitulation of the whole series in eight episodes. Here’s a look at where Carmy, Syd and the gang wound up.`\
+https://www.nytimes.com/2026/06/28/arts/the-bear-season-5-recap.html
+
+**What Life Is Like in Dahiya Amid a Hezbollah-Israel Truce in Lebanon**\
+`Dahiya, a sprawling area and Hezbollah stronghold, is stirring back to life amid a tense truce with Israel. “This war has brought so much loss,” one resident said.`\
+https://www.nytimes.com/2026/06/28/world/middleeast/beirut-dahiya-israel-lebanon-cease-fire.html
+
+**Warrior, Hero, Villain or Fool? 150 Years of Reassessing Custer**\
+`Few American military commanders have had as complicated a legacy as George Armstrong Custer, who died at the Battle of the Little Bighorn in June 1876.`\
+https://www.nytimes.com/interactive/2026/06/28/arts/battle-little-bighorn-custer.html
+
+**Bill Maher Set to Receive Mark Twain Prize at the Kennedy Center**\
+`A frequent critic of President Trump, Mr. Maher will take the stage on Sunday at a time of upheaval at the arts institution that once bore the president’s name.`\
+https://www.nytimes.com/2026/06/28/arts/kennedy-center-bill-maher-mark-twain.html
+
+**Colorado’s Primary for Governor Pivots to Trump and Who Will Fight Him**\
+`The Democratic primary on Tuesday is likely to decide the next governor, and Senator Michael Bennet, once seen as a shoo-in, is in a dogfight with Attorney General Phil Weiser.`\
+https://www.nytimes.com/2026/06/28/us/elections/colorado-governor-democratic-primary.html
+
+**Trump Wants to Own the Nation’s 250th Birthday. States Have Their Own Plans.**\
+`As partisan tensions swirl around festivities in Washington, red and blue states alike are leaning into complex history — and their own stories.`\
+https://www.nytimes.com/2026/06/28/arts/250-american-history-states-trump.html
+
+**Terrific New Mystery Books**\
+`Sarah Weinman on “Heather,” by Caitlin Mullen, and three more new books.`\
+https://www.nytimes.com/2026/06/28/books/review/new-mystery-books.html
+
+**Rats, Leaks and Broken Elevators: Repair Backlog Plagues Federal Buildings**\
+`After decades, deferred maintenance totals an estimated $50 billion. But getting repair funds from Congress is a laborious process.`\
+https://www.nytimes.com/2026/06/28/us/politics/federal-buildings-repair-backlog.html
+
+**Book Review: ‘Becoming George,’ by Fiona Sampson**\
+`In her biography of the novelist George Sand, Fiona Sampson urges us to see Sand chiefly as a writer, an inventor of stories and also of the self.`\
+https://www.nytimes.com/2026/06/28/books/review/becoming-george-fiona-sampson-george-sand.html
+
+**White House Secretly Swayed Board Meant to Protect Federal Workers From Unfair Firings**\
+`Behind the scenes, the Trump White House went to extensive lengths to advance its theory of executive power, potentially giving the president remarkable leeway to install loyalists at nearly every echelon of government.`\
+https://www.nytimes.com/2026/06/28/us/politics/trump-firings-workers-merit-systems-protection-board.html
+
+**How Polymarket Traders Revolted Over One Silly Syllable**\
+`How one silly syllable ignited a bitter dispute over the nature of reality on Polymarket.`\
+https://www.nytimes.com/2026/06/28/business/donk-polymarket-prediction-markets.html
+
+**When Did Bare Nails Become a Status Symbol?**\
+`From a “Love Story” plotline to runways and street wear, minimal or nude nails are everywhere.`\
+https://www.nytimes.com/2026/06/28/style/natural-nails-bare-manicure-trend.html
+
 **El controvertido médico que promete cambiar el color de tus ojos**\
 `Francis Ferrari, un oftalmólogo francés, desarrolló un polémico procedimiento para cambiar el color de los ojos. Personas de todo el mundo están dispuestas a asumir el riesgo.`\
 https://www.nytimes.com/es/2026/06/28/espanol/estilos-de-vida/ojos-operacion-cirugia-cambio-color.html
@@ -137,62 +193,6 @@ https://www.nytimes.com/2026/06/27/world/canada/grizzly-bear-alberta-canada-vide
 **Grizzly Bear Gets Too Close for Comfort During Dog Walk**\
 `A woman in Alberta, Canada, who could not be reached for comment, had an unexpected run-in during her morning dog walk, with a persistent follower.`\
 https://www.nytimes.com/video/us/100000010996840/grizzly-bear-gets-too-close-for-comfort-during-dog-walk.html
-
-**White House Releases Images of the Trump ‘Patriot Passport’**\
-`The State Department said it planned to release 40,000 U.S. passports featuring an image of the president to commemorate the United States’ 250th anniversary.`\
-https://www.nytimes.com/2026/06/27/us/politics/trump-passport-design-america-250.html
-
-**In the Ruins of Venezuela’s Earthquake, Civilians Volunteers Fill the Gaps**\
-`Volunteers have rushed to help earthquake victims, loading vehicles with medical supplies, shovels and other tools to assist rescue and recovery efforts.`\
-https://www.nytimes.com/2026/06/27/world/americas/venezuela-civilians-volunteers-earthquakes.html
-
-**La economía de Venezuela parecía renacer. Entonces golpearon los terremotos**\
-`El gobierno venezolano, falto de liquidez y que ya luchaba por controlar la tasa de inflación más alta del mundo, ahora debe encontrar la manera de organizar una enorme respuesta ante el desastre.`\
-https://www.nytimes.com/es/2026/06/27/espanol/america-latina/venezuela-economia-terremotos.html
-
-**F.A.A. Investigates Drone Encounter at Newark Airport**\
-`The crew of a Boeing 737 arriving from Florida on Friday reported a drone in the airspace as the plane approached Newark Airport. The plane landed safely.`\
-https://www.nytimes.com/2026/06/27/nyregion/united-plane-pilot-drone-newark.html
-
-**Now It’s Fireworks and a Fence Keeping Tourists From the Reflecting Pool**\
-`Chain-link fencing now surrounds the pool in preparation for a Fourth of July celebration. It has not stopped people from gawking.`\
-https://www.nytimes.com/2026/06/27/us/reflecting-pool-fence-july-4.html
-
-**Louisiana U.S. Senate Primary Runoff 2026: Live Election Results, Crockett vs. Davis**\
-`Get live results and maps from the 2026 Louisiana runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-us-senate-runoff.html
-
-**Louisiana Primary Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Louisiana primary runoff elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-louisiana-runoff.html
-
-**Tony Brown, Host of Public Affairs Show Aimed at Black Audiences, Dies at 93**\
-`On “Tony Brown’s Journal,” he interviewed guests like Jesse Jackson and Lena Horne, and made programming decisions by asking himself, “Will it help Black people?”`\
-https://www.nytimes.com/2026/06/27/arts/television/tony-brown-dead.html
-
-**N.Y.C. City Council Employee Freed After 5 Months in ICE Detention**\
-`Rafael Andres Rubio Bohorquez is back in New York City and working at City Hall after his release. Immigration officials have appealed his asylum.`\
-https://www.nytimes.com/2026/06/27/nyregion/nyc-council-employee-ice-freed.html
-
-**How the Internet Polarizes Men and Women**\
-`Is the internet polarizing the sexes? On “Interesting Times,” the author Louise Perry argues that our modern connectivity is exposing the previously private worlds of vulgar locker room talk and unkind gossip — and is driving young men and women apart.`\
-https://www.nytimes.com/video/opinion/100000010983107/how-the-internet-polarizes-men-and-women.html
-
-**Newly Discovered Spider Captures Ants in Spring-Loaded Trap**\
-`The ballista spider discovered in Queensland, Australia, was named after an ancient Roman crossbow, and creates a spring-loaded web to catch its prey.`\
-https://www.nytimes.com/video/science/earth/100000010995159/ballista-spider-discovered-australia.html
-
-**The July Monthly Bake: Peaches and Cream Victoria Sandwich**\
-`This simple but showstopping dessert layers light-as-air sponge cake, pillowy whipped cream and jammy peach compote.`\
-https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-cream-victoria-sandwich.html
-
-**Deal With Israel Divides Lebanese, Fueling Protests in Beirut**\
-`Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
-https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
-
-**How Do I Stop Guests From Bringing Their Children to My Parties?**\
-`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
-https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
 
 **Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\

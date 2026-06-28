@@ -1,3 +1,59 @@
+**Venezuela Government Accused of Politicizing Quake Relief**\
+`Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
+https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html
+
+**The Elite Conservatives Trying to Revive ‘Western Civilization’**\
+`Most Americans have heard of Christian nationalism, according to Pew. Soon, they may be hearing about Christian civilizationism.`\
+https://www.nytimes.com/2026/06/28/briefing/the-elite-conservatives-trying-to-revive-western-civilization.html
+
+**‘The Bear’ Season 5 Recap: What Worked? What Questions Linger?**\
+`The final season was in many ways a recapitulation of the whole series in eight episodes. Here’s a look at where Carmy, Syd and the gang wound up.`\
+https://www.nytimes.com/2026/06/28/arts/the-bear-season-5-recap.html
+
+**What Life Is Like in Dahiya Amid a Hezbollah-Israel Truce in Lebanon**\
+`Dahiya, a sprawling area and Hezbollah stronghold, is stirring back to life amid a tense truce with Israel. “This war has brought so much loss,” one resident said.`\
+https://www.nytimes.com/2026/06/28/world/middleeast/beirut-dahiya-israel-lebanon-cease-fire.html
+
+**Warrior, Hero, Villain or Fool? 150 Years of Reassessing Custer**\
+`Few American military commanders have had as complicated a legacy as George Armstrong Custer, who died at the Battle of the Little Bighorn in June 1876.`\
+https://www.nytimes.com/interactive/2026/06/28/arts/battle-little-bighorn-custer.html
+
+**Bill Maher Set to Receive Mark Twain Prize at the Kennedy Center**\
+`A frequent critic of President Trump, Mr. Maher will take the stage on Sunday at a time of upheaval at the arts institution that once bore the president’s name.`\
+https://www.nytimes.com/2026/06/28/arts/kennedy-center-bill-maher-mark-twain.html
+
+**Colorado’s Primary for Governor Pivots to Trump and Who Will Fight Him**\
+`The Democratic primary on Tuesday is likely to decide the next governor, and Senator Michael Bennet, once seen as a shoo-in, is in a dogfight with Attorney General Phil Weiser.`\
+https://www.nytimes.com/2026/06/28/us/elections/colorado-governor-democratic-primary.html
+
+**Trump Wants to Own the Nation’s 250th Birthday. States Have Their Own Plans.**\
+`As partisan tensions swirl around festivities in Washington, red and blue states alike are leaning into complex history — and their own stories.`\
+https://www.nytimes.com/2026/06/28/arts/250-american-history-states-trump.html
+
+**Terrific New Mystery Books**\
+`Sarah Weinman on “Heather,” by Caitlin Mullen, and three more new books.`\
+https://www.nytimes.com/2026/06/28/books/review/new-mystery-books.html
+
+**Rats, Leaks and Broken Elevators: Repair Backlog Plagues Federal Buildings**\
+`After decades, deferred maintenance totals an estimated $50 billion. But getting repair funds from Congress is a laborious process.`\
+https://www.nytimes.com/2026/06/28/us/politics/federal-buildings-repair-backlog.html
+
+**Book Review: ‘Becoming George,’ by Fiona Sampson**\
+`In her biography of the novelist George Sand, Fiona Sampson urges us to see Sand chiefly as a writer, an inventor of stories and also of the self.`\
+https://www.nytimes.com/2026/06/28/books/review/becoming-george-fiona-sampson-george-sand.html
+
+**White House Secretly Swayed Board Meant to Protect Federal Workers From Unfair Firings**\
+`Behind the scenes, the Trump White House went to extensive lengths to advance its theory of executive power, potentially giving the president remarkable leeway to install loyalists at nearly every echelon of government.`\
+https://www.nytimes.com/2026/06/28/us/politics/trump-firings-workers-merit-systems-protection-board.html
+
+**How Polymarket Traders Revolted Over One Silly Syllable**\
+`How one silly syllable ignited a bitter dispute over the nature of reality on Polymarket.`\
+https://www.nytimes.com/2026/06/28/business/donk-polymarket-prediction-markets.html
+
+**When Did Bare Nails Become a Status Symbol?**\
+`From a “Love Story” plotline to runways and street wear, minimal or nude nails are everywhere.`\
+https://www.nytimes.com/2026/06/28/style/natural-nails-bare-manicure-trend.html
+
 **El controvertido médico que promete cambiar el color de tus ojos**\
 `Francis Ferrari, un oftalmólogo francés, desarrolló un polémico procedimiento para cambiar el color de los ojos. Personas de todo el mundo están dispuestas a asumir el riesgo.`\
 https://www.nytimes.com/es/2026/06/28/espanol/estilos-de-vida/ojos-operacion-cirugia-cambio-color.html
