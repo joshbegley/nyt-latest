@@ -1,3 +1,7 @@
+**Europe’s Heat Politics**\
+`As the continent swelters, some right-wing populists are talking up their support for air-conditioning.`\
+https://www.nytimes.com/2026/06/28/world/heat-wave-europe-iran-venezuela.html
+
 **Short on Time and Tools, a Community Comes Together to Search for Survivors**\
 `Volunteers in a middle-class neighborhood in Caracas used drills, picks and hammers to break through concrete, trying to find anyone in need of rescue.`\
 https://www.nytimes.com/2026/06/28/world/americas/caracas-venezuela-earthquake-rescue.html

@@ -1,3 +1,7 @@
+**Europe’s Heat Politics**\
+`As the continent swelters, some right-wing populists are talking up their support for air-conditioning.`\
+https://www.nytimes.com/2026/06/28/world/heat-wave-europe-iran-venezuela.html
+
 **Short on Time and Tools, a Community Comes Together to Search for Survivors**\
 `Volunteers in a middle-class neighborhood in Caracas used drills, picks and hammers to break through concrete, trying to find anyone in need of rescue.`\
 https://www.nytimes.com/2026/06/28/world/americas/caracas-venezuela-earthquake-rescue.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/us/politics/federal-buildings-repair-backlog.
 **Book Review: ‘Becoming George,’ by Fiona Sampson**\
 `In her biography of the novelist George Sand, Fiona Sampson urges us to see Sand chiefly as a writer, an inventor of stories and also of the self.`\
 https://www.nytimes.com/2026/06/28/books/review/becoming-george-fiona-sampson-george-sand.html
-
-**White House Secretly Swayed Board Meant to Protect Federal Workers From Unfair Firings**\
-`Behind the scenes, the Trump White House went to extensive lengths to advance its theory of executive power, potentially giving the president remarkable leeway to install loyalists at nearly every echelon of government.`\
-https://www.nytimes.com/2026/06/28/us/politics/trump-firings-workers-merit-systems-protection-board.html
 
