@@ -14,6 +14,10 @@ https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquak
 `Gov. Andy Beshear of Kentucky said in a video posted to social media that he declared a state of emergency after deadly floods swept through parts of his state.`\
 https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
 
+**U.S. Officials Said to Be Frustrated With Machado’s Call or Help**\
+`María Corina Machado, the exiled leader of the Venezuelan opposition, hopes to go home. U.S. officials say her wishes to do so come at an inopportune time.`\
+https://www.nytimes.com/2026/06/27/world/americas/us-officials-frustrated-with-exiled-venezuelan-leaders-call-for-help.html
+
 **Rescue Workers and Aid Arrive in Venezuela, Official Says**\
 `More than 1,600 rescue workers have arrived and 25 flights filled with aid will land over the next day in Venezuela after earthquakes devastated the country on Wednesday, according to Venezuela’s vice minister of foreign affairs, Oliver Blanco.`\
 https://www.nytimes.com/video/world/americas/100000010996841/venezuela-earthquake-rescue-workers-aid.html
@@ -114,13 +118,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**How Do I Stop Guests From Bringing Their Children to My Parties?**\
-`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
-https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
-
 **We’re Getting America’s Children Hooked on Gambling**\
 `In part because gambling ads are in everything, everywhere, all at once.`\
 https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
+
+**How Do I Stop Guests From Bringing Their Children to My Parties?**\
+`A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
+https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
