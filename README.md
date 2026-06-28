@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Rescuers Battle Through Aftershocks in Search for Survivors**\
+`More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
+https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
+
 **See How Colombia’s Goal Was Ruled Offside by a Toe**\
 `View in 3-D how close Colombia came to scoring a go-ahead goal in second-half stoppage time against Portugal.`\
 https://www.nytimes.com/interactive/2026/06/28/sports/soccer/colombia-portugal-world-cup-offside-goal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquak
 **Deadly Floods Hit Kentucky**\
 `Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
 https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
-
-**U.S. Officials Said to Be Frustrated With Machado’s Call for Help**\
-`María Corina Machado, the exiled leader of the Venezuelan opposition, hopes to go home. U.S. officials say her wishes to do so come at an inopportune time.`\
-https://www.nytimes.com/2026/06/27/world/americas/us-officials-frustrated-with-exiled-venezuelan-leaders-call-for-help.html
 
