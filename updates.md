@@ -1,3 +1,11 @@
+**L.G.B.T.Q. Figures Who Shaped History From the Margins**\
+`Their names may not be familiar, but they helped define queer art, activism and storytelling as we know it today.`\
+https://www.nytimes.com/2026/06/28/us/lgbtq-pride-history-trailblazers.html
+
+**Midwest and East Face Prolonged Spell of Extreme Heat**\
+`Forecasters warned that temperatures could soar into the triple digits and break records in some areas. The heat is expected to last into the Fourth of July holiday weekend.`\
+https://www.nytimes.com/2026/06/28/weather/heat-wave-usa-nyc-dc-philadelpha.html
+
 **Deadly Floods Hit Kentucky**\
 `Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
 https://www.nytimes.com/video/weather/100000010997597/deadly-floods-hit-kentucky.html
