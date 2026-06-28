@@ -1,3 +1,35 @@
+**If These Celebrities Are Democracy’s Last Hope, We’re in Trouble**\
+`When speaking up actually means risking something, for once, it is more necessary than ever.`\
+https://www.nytimes.com/2026/06/28/opinion/celebrity-activism-donald-trump.html
+
+**We’re in a Golden Age of Queer Literature**\
+`After decades in which Queer literature was the underdog, it is now publishing’s golden goose.`\
+https://www.nytimes.com/2026/06/28/opinion/gay-lits-gone-mainstream.html
+
+**Beware the Purging of General Donahue**\
+`The dangers of Pete Hegseth are mounting.`\
+https://www.nytimes.com/2026/06/28/opinion/hegseth-donahue-military-purge.html
+
+**Today’s Wordle Hints for June 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/28/crosswords/wordle-review-1836.html
+
+**NYT Strands Hints for June 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/28/crosswords/strands-sidekick-848.html
+
+**NYT Connections Answers for June 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/28/crosswords/connections-companion-1114.html
+
+**Trump’s Science Cuts Betray America’s Past Since Lewis and Clark**\
+`America has funded scientific research since 1804 — and remembers that first project as a national glory. Cutting similar funding today is a betrayal.`\
+https://www.nytimes.com/2026/06/28/opinion/lewis-clark-scientific-research-funding.html
+
+**The Hamptons’ Essential Luxury Good: Human Labor**\
+`The people who want to visit can’t function without the people who have to live there.`\
+https://www.nytimes.com/2026/06/28/opinion/the-hamptons-human-labor.html
+
 **Mideast Live Updates: U.S. and Iran Trade Attacks With Few Signs of De-escalation**\
 `President Trump and Iran’s Revolutionary Guards exchanged threats and U.S. allies in the Gulf said they had intercepted Iranian drones, as hostilities entered a fourth day.`\
 https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
