@@ -1,3 +1,11 @@
+**NYT Crossword Answers for June 29, 2026**\
+`Ginny Too and Rajeswari Rajamani make their New York Times Crossword collaboration debut.`\
+https://www.nytimes.com/2026/06/28/crosswords/daily-puzzle-2026-06-29.html
+
+**Philippe Stern, Heir to the Patek Philippe Watch Brand, Dies at 88**\
+`In an era of electronic timepieces, he marketed $40,000 handmade watches as status symbols, breathing new life into a struggling industry.`\
+https://www.nytimes.com/2026/06/28/obituaries/phillipe-stern-dead.html
+
 **Mignon Dunn, Mezzo Soprano Known for ‘Carmen,’ Dies at 98**\
 `Growing up in Arkansas, she dreamed of singing at the Metropolitan Opera. She did so more than 650 times over 35 years.`\
 https://www.nytimes.com/2026/06/28/obituaries/mignon-dunn-dead.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/06/28/arts/battle-little-bighorn-custer
 **Bill Maher Set to Receive Mark Twain Prize at the Kennedy Center**\
 `A frequent critic of President Trump, Mr. Maher will take the stage on Sunday at a time of upheaval at the arts institution that once bore the president’s name.`\
 https://www.nytimes.com/2026/06/28/arts/kennedy-center-bill-maher-mark-twain.html
-
-**Colorado’s Primary for Governor Pivots to Trump and Who Will Fight Him**\
-`The Democratic primary on Tuesday is likely to decide the next governor, and Senator Michael Bennet, once seen as a shoo-in, is in a dogfight with Attorney General Phil Weiser.`\
-https://www.nytimes.com/2026/06/28/us/elections/colorado-governor-democratic-primary.html
-
-**Trump Wants to Own the Nation’s 250th Birthday. States Have Their Own Plans.**\
-`As partisan tensions swirl around festivities in Washington, red and blue states alike are leaning into complex history — and their own stories.`\
-https://www.nytimes.com/2026/06/28/arts/250-american-history-states-trump.html
 
