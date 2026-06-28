@@ -1,3 +1,7 @@
+**‘Supergirl’ Falters at the Box Office, Testing DC Studios’ Reboot**\
+`Overall, ticket sales for the weekend were up 21 percent from last year. But the expensive “Supergirl” debuted as a disappointing second, with an estimated $38 million.`\
+https://www.nytimes.com/2026/06/28/business/media/supergirl-box-office.html
+
 **Heat Wave Starts to Break in Western Europe, as Central Europe Begins to Broil**\
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
