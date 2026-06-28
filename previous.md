@@ -1,8 +1,12 @@
+**Drone Footage Shows Devastation From Venezuela Earthquakes**\
+`Twin earthquakes that devastated Venezuela on Wednesday killed more than 1,400 people and left thousands more injured.`\
+https://www.nytimes.com/video/world/americas/100000010997920/venezuela-earthquakes-damage-drone-video.html
+
 **Europe’s Heat Politics**\
 `As the continent swelters, some right-wing populists are talking up their support for air-conditioning.`\
 https://www.nytimes.com/2026/06/28/world/heat-wave-europe-iran-venezuela.html
 
-**Short on Time and Tools, a Community Comes Together to Search for Survivors**\
+**In Venezuela, a Community Comes Together to Search for Earthquake Survivors**\
 `Volunteers in a middle-class neighborhood in Caracas used drills, picks and hammers to break through concrete, trying to find anyone in need of rescue.`\
 https://www.nytimes.com/2026/06/28/world/americas/caracas-venezuela-earthquake-rescue.html
 
@@ -94,7 +98,7 @@ https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
 
-**Venezuela Live Updates: Window to Find Survivors Is Closing as Rescuers Battle Through Aftershocks**\
+**Venezuela Live Updates: Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/books/review/new-mystery-books.html
 **Rats, Leaks and Broken Elevators: Repair Backlog Plagues Federal Buildings**\
 `After decades, deferred maintenance totals an estimated $50 billion. But getting repair funds from Congress is a laborious process.`\
 https://www.nytimes.com/2026/06/28/us/politics/federal-buildings-repair-backlog.html
-
-**Book Review: ‘Becoming George,’ by Fiona Sampson**\
-`In her biography of the novelist George Sand, Fiona Sampson urges us to see Sand chiefly as a writer, an inventor of stories and also of the self.`\
-https://www.nytimes.com/2026/06/28/books/review/becoming-george-fiona-sampson-george-sand.html
 

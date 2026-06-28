@@ -1,3 +1,15 @@
+**Drone Footage Shows Devastation From Venezuela Earthquakes**\
+`Twin earthquakes that devastated Venezuela on Wednesday killed more than 1,400 people and left thousands more injured.`\
+https://www.nytimes.com/video/world/americas/100000010997920/venezuela-earthquakes-damage-drone-video.html
+
+**In Venezuela, a Community Comes Together to Search for Earthquake Survivors**\
+`Volunteers in a middle-class neighborhood in Caracas used drills, picks and hammers to break through concrete, trying to find anyone in need of rescue.`\
+https://www.nytimes.com/2026/06/28/world/americas/caracas-venezuela-earthquake-rescue.html
+
+**Venezuela Live Updates: Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
+`More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
+https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
+
 **Europe’s Heat Politics**\
 `As the continent swelters, some right-wing populists are talking up their support for air-conditioning.`\
 https://www.nytimes.com/2026/06/28/world/heat-wave-europe-iran-venezuela.html

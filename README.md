@@ -1,3 +1,7 @@
+**At a Caracas Morgue, Families and Officials Try to Identify More Than 100 Victims**\
+`Identifying victims has proved to be difficult because many bodies were badly crushed beneath collapsed buildings.`\
+https://www.nytimes.com/2026/06/28/world/americas/venezuela-earthquake-caracas-morgue.html
+
 **Drone Footage Shows Devastation From Venezuela Earthquakes**\
 `Twin earthquakes that devastated Venezuela on Wednesday killed more than 1,400 people and left thousands more injured.`\
 https://www.nytimes.com/video/world/americas/100000010997920/venezuela-earthquakes-damage-drone-video.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/arts/250-american-history-states-trump.html
 **Terrific New Mystery Books**\
 `Sarah Weinman on “Heather,” by Caitlin Mullen, and three more new books.`\
 https://www.nytimes.com/2026/06/28/books/review/new-mystery-books.html
-
-**Rats, Leaks and Broken Elevators: Repair Backlog Plagues Federal Buildings**\
-`After decades, deferred maintenance totals an estimated $50 billion. But getting repair funds from Congress is a laborious process.`\
-https://www.nytimes.com/2026/06/28/us/politics/federal-buildings-repair-backlog.html
 
