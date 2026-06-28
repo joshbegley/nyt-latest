@@ -1,3 +1,7 @@
+**Quote of the Day: New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
+`Quotation of the Day for Sunday, June 28, 2026.`\
+https://www.nytimes.com/2026/06/27/pageoneplus/quote-of-the-day-new-yorks-dive-bars-have-a-rich-past-do-they-have-a-future.html
+
 **The City Where Colombia, and Much of Latin America, Plays as the Home Team**\
 `Miami has hosted some of the biggest events in South American and Caribbean sports, including Colombia’s match on Saturday. Brazil and Uruguay have also played World Cup games there.`\
 https://www.nytimes.com/2026/06/27/us/miami-latin-america-world-cup.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/27/opinion/trump-first-amendment-journalists.htm
 **Why Old People Cry**\
 `These days, I have so much past behind and within me, it’s as if it bubbles over.`\
 https://www.nytimes.com/2026/06/27/opinion/culture/crying-old-people.html
-
-**Has the MAGA ‘Sugar Rush’ Finally Run Out?**\
-`Three Opinion writers on Trump’s latest face-plant.`\
-https://www.nytimes.com/video/opinion/100000010991743/has-the-maga-sugar-rush-finally-run-out.html
 

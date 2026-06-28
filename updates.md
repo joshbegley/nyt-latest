@@ -1,3 +1,7 @@
+**Quote of the Day: New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
+`Quotation of the Day for Sunday, June 28, 2026.`\
+https://www.nytimes.com/2026/06/27/pageoneplus/quote-of-the-day-new-yorks-dive-bars-have-a-rich-past-do-they-have-a-future.html
+
 **Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
 `If she reaches the Senate, Ms. Letlow would replace Senator Bill Cassidy and become the first G.O.P. woman to represent Louisiana in the chamber.`\
 https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
