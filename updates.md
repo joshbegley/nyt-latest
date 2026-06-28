@@ -1,5 +1,17 @@
 **Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
 `The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/28/world/middleeast/deadly-helicopter-crash-saudi-arabia.html
+
+**Dozens of Dogs Join Search for Venezuela Earthquake Survivors**\
+`Specially trained canines can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
+https://www.nytimes.com/2026/06/28/world/americas/rescue-dogs-canine-units-earthquake-venezuela.html
+
+**Delcy Rodriguez, Venezuela’s President, Is Accused of Politicizing Earthquake Relief**\
+`Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
+https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html
+
+**Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
+`The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/28/world/middleeast/helicopter-crash-near-major-saudi-oil-refinery-kills-14-people.html
 
 **Five Bright and Summery Recipes for Lazy Vacation Days**\

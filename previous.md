@@ -1,6 +1,6 @@
 **Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
 `The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/28/world/middleeast/helicopter-crash-near-major-saudi-oil-refinery-kills-14-people.html
+https://www.nytimes.com/2026/06/28/world/middleeast/deadly-helicopter-crash-saudi-arabia.html
 
 **Five Bright and Summery Recipes for Lazy Vacation Days**\
 `Because vacation is even better when you get to cook.`\
@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nan
 `The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
 https://www.nytimes.com/2026/06/28/us/three-firefighters-die-as-wildfires-ravage-utah-and-colorado.html
 
-**Dozens of Dogs Join Search for Venezuela Quake Survivors**\
+**Dozens of Dogs Join Search for Venezuela Earthquake Survivors**\
 `Specially trained canines can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
 https://www.nytimes.com/2026/06/28/world/americas/rescue-dogs-canine-units-earthquake-venezuela.html
 
@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/06/28/world/asia/kazakhstan-trump.html
 `A letter from Commerce Secretary Howard Lutnick to President Kassym-Jomart Tokayev of Kazakhstan.`\
 https://www.nytimes.com/interactive/2026/06/28/us/2025lutnick-and-dfc-letters.html
 
-**Venezuela Government Accused of Politicizing Quake Relief**\
+**Delcy Rodriguez, Venezuela’s President, Is Accused of Politicizing Earthquake Relief**\
 `Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
 https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html
 
