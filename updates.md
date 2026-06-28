@@ -1,3 +1,11 @@
+**Machado pide volver a Venezuela, lo que habría irritado a funcionarios de EE. UU.**\
+`María Corina Machado, la líder exiliada de la oposición venezolana, desea volver a casa. Funcionarios de EE. UU. consideran que su deseo es inoportuno.`\
+https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-maria-corina-machado.html
+
+**Deep Under the Rubble, Rescuers Find an 11-Year-Old Boy Alive**\
+`A Colombian rescue team worked for six hours to recover the child, Moises, from under nearly 10 feet of rubble in La Guaira. His rescue was captured on video.`\
+https://www.nytimes.com/2026/06/28/world/americas/deep-under-the-rubble-rescuers-find-an-11-year-old-boy-alive.html
+
 **‘Hair Is Just Hair’: A ‘Bald Meet-Up’ Fosters a Sense of Empowerment**\
 `The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
 https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
