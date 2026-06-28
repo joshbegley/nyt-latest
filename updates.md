@@ -1,3 +1,11 @@
+**Los nuevos ataques de Irán y EE. UU. entorpecen la recuperación del tráfico marítimo en el Golfo**\
+`Los ataques se produjeron después de que el tráfico por el estrecho de Ormuz alcanzara los niveles más altos desde el inicio de la guerra de Estados Unidos en Irán.`\
+https://www.nytimes.com/es/2026/06/28/espanol/negocios/ataques-iran-ee-uu-golfo-persico.html
+
+**The Real A.I. Race Isn’t America vs. China**\
+`Washington is starting to follow a similar playbook to Beijing when it comes to artificial intelligence policy.`\
+https://www.nytimes.com/2026/06/28/opinion/ai-race-china-us.html
+
 **A Mayor Is Taking Maternity Leave in Japan. Some Men Are Furious.**\
 `Shoko Kawata is the first mayor to take maternity leave in Japan’s history. Her decision has prompted debate about gender discrimination in the work force.`\
 https://www.nytimes.com/2026/06/28/world/asia/japan-mayor-maternity-leave.html
