@@ -1,3 +1,11 @@
+**Delcy Rodríguez es acusada de politizar la ayuda tras los terremotos**\
+`Los críticos dicen que la presidenta interina del país, Delcy Rodríguez, está intentando sacar partido de la tragedia para su beneficio político. Sus seguidores acusan a la oposición de hacer lo mismo.`\
+https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-delcy-rodriguez-ayuda.html
+
+**Three Firefighters Dead, as Wildfires Ravage Utah and Colorado**\
+`Three firefighters died and two were injured on Saturday in a blaze on the Utah-Colorado border, the U.S. Wildland Fire Service said in a statement.`\
+https://www.nytimes.com/video/us/100000010997587/utah-colorado-wildfires-firefighters.html
+
 **Mideast Live Updates: Dispute Over Strait Deepens as U.S. and Iran Trade Attacks**\
 `In a fourth day of hostilities, Iran said that it had targeted a U.S. naval base in Bahrain and a Kuwaiti air base with drones and missiles. No major damage or casualties were reported.`\
 https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz

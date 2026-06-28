@@ -1,3 +1,11 @@
+**Delcy Rodríguez es acusada de politizar la ayuda tras los terremotos**\
+`Los críticos dicen que la presidenta interina del país, Delcy Rodríguez, está intentando sacar partido de la tragedia para su beneficio político. Sus seguidores acusan a la oposición de hacer lo mismo.`\
+https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-delcy-rodriguez-ayuda.html
+
+**Three Firefighters Dead, as Wildfires Ravage Utah and Colorado**\
+`Three firefighters died and two were injured on Saturday in a blaze on the Utah-Colorado border, the U.S. Wildland Fire Service said in a statement.`\
+https://www.nytimes.com/video/us/100000010997587/utah-colorado-wildfires-firefighters.html
+
 **Los Países Bajos registran su primer caso de muerte asistida de un niño de entre 1 y 12 años**\
 `La muerte asistida por un médico para niños con enfermedades terminales de ese grupo de edad está permitida en el país desde 2024.`\
 https://www.nytimes.com/es/2026/06/28/espanol/mundo/muerte-asistida-nino-paises-bajos.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/28/us/politics/trump-firings-workers-merit-syste
 **How Polymarket Traders Revolted Over One Silly Syllable**\
 `How one silly syllable ignited a bitter dispute over the nature of reality on Polymarket.`\
 https://www.nytimes.com/2026/06/28/business/donk-polymarket-prediction-markets.html
-
-**When Did Bare Nails Become a Status Symbol?**\
-`From a “Love Story” plotline to runways and street wear, minimal or nude nails are everywhere.`\
-https://www.nytimes.com/2026/06/28/style/natural-nails-bare-manicure-trend.html
-
-**El controvertido médico que promete cambiar el color de tus ojos**\
-`Francis Ferrari, un oftalmólogo francés, desarrolló un polémico procedimiento para cambiar el color de los ojos. Personas de todo el mundo están dispuestas a asumir el riesgo.`\
-https://www.nytimes.com/es/2026/06/28/espanol/estilos-de-vida/ojos-operacion-cirugia-cambio-color.html
 
