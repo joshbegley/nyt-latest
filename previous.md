@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/06/28/style/natural-nails-bare-manicure-trend.html
 `Francis Ferrari, un oftalmólogo francés, desarrolló un polémico procedimiento para cambiar el color de los ojos. Personas de todo el mundo están dispuestas a asumir el riesgo.`\
 https://www.nytimes.com/es/2026/06/28/espanol/estilos-de-vida/ojos-operacion-cirugia-cambio-color.html
 
-**El hombre que gritó ‘gooooooooool’**\
-`Andrés Cantor, comentarista de Telemundo, es una celebridad del fútbol que actualmente participa en su décima Copa Mundial masculina. Pero su gran habilidad física no es la finta precisa de Messi ni la velocidad de Mbappé. Es su voz.`\
-https://www.nytimes.com/es/2026/06/28/espanol/cultura/andres-cantor-narrador-futbol.html
-
