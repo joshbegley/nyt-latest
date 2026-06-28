@@ -1,3 +1,7 @@
+**Read the document**\
+`A letter from Commerce Secretary Howard Lutnick to President Kassym-Jomart Tokayev of Kazakhstan.`\
+https://www.nytimes.com/interactive/2026/06/28/us/2025lutnick-and-dfc-letters.html
+
 **Venezuela Government Accused of Politicizing Quake Relief**\
 `Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
 https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html

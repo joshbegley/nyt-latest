@@ -1,3 +1,7 @@
+**Read the document**\
+`A letter from Commerce Secretary Howard Lutnick to President Kassym-Jomart Tokayev of Kazakhstan.`\
+https://www.nytimes.com/interactive/2026/06/28/us/2025lutnick-and-dfc-letters.html
+
 **Venezuela Government Accused of Politicizing Quake Relief**\
 `Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
 https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
 **A Close Call With an Alberta Grizzly Bear, Recorded in Its Entirety**\
 `A woman in Alberta, Canada, recorded the bear as it circled her and her dog near a campsite and lodge.`\
 https://www.nytimes.com/2026/06/27/world/canada/grizzly-bear-alberta-canada-video.html
-
-**Grizzly Bear Gets Too Close for Comfort During Dog Walk**\
-`A woman in Alberta, Canada, who could not be reached for comment, had an unexpected run-in during her morning dog walk, with a persistent follower.`\
-https://www.nytimes.com/video/us/100000010996840/grizzly-bear-gets-too-close-for-comfort-during-dog-walk.html
 
 **Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
