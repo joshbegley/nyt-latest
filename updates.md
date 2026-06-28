@@ -1,3 +1,7 @@
+**See How Colombia’s Goal Was Ruled Offside by a Toe**\
+`View in 3-D how close Colombia came to scoring a go-ahead goal in second-half stoppage time against Portugal.`\
+https://www.nytimes.com/interactive/2026/06/28/sports/soccer/colombia-portugal-world-cup-offside-goal.html
+
 **Trump Cut a Billion-Dollar Mining Deal. His Sons Stand to Profit.**\
 `An agreement between the U.S. and Kazakhstan has given a group of American investors with ties to the president and the commerce secretary access to one of the world’s largest untapped reserves of tungsten.`\
 https://www.nytimes.com/2026/06/28/world/europe/trump-lutnick-sons-kazakhstan.html

@@ -1,3 +1,7 @@
+**See How Colombia’s Goal Was Ruled Offside by a Toe**\
+`View in 3-D how close Colombia came to scoring a go-ahead goal in second-half stoppage time against Portugal.`\
+https://www.nytimes.com/interactive/2026/06/28/sports/soccer/colombia-portugal-world-cup-offside-goal.html
+
 **If These Celebrities Are Democracy’s Last Hope, We’re in Trouble**\
 `When speaking up actually means risking something, for once, it is more necessary than ever.`\
 https://www.nytimes.com/2026/06/28/opinion/celebrity-activism-donald-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emer
 **U.S. Officials Said to Be Frustrated With Machado’s Call for Help**\
 `María Corina Machado, the exiled leader of the Venezuelan opposition, hopes to go home. U.S. officials say her wishes to do so come at an inopportune time.`\
 https://www.nytimes.com/2026/06/27/world/americas/us-officials-frustrated-with-exiled-venezuelan-leaders-call-for-help.html
-
-**Rescue Workers and Aid Arrive in Venezuela, Official Says**\
-`More than 1,600 rescue workers have arrived and 25 flights filled with aid will land over the next day in Venezuela after earthquakes devastated the country on Wednesday, according to Venezuela’s vice minister of foreign affairs, Oliver Blanco.`\
-https://www.nytimes.com/video/world/americas/100000010996841/venezuela-earthquake-rescue-workers-aid.html
 
