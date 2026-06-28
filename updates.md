@@ -1,3 +1,7 @@
+**Pride March Caps Joyous New York June, but Anxiety Tempers Hope**\
+`The annual celebration began Sunday in a city where many in the L.G.B.T.Q. community are optimistic about their local leaders but face continued challenges from the Trump administration.`\
+https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
+
 **‘Supergirl’ Falters at the Box Office, Testing DC Studios’ Reboot**\
 `Overall, ticket sales for the weekend were up 21 percent from last year. But the expensive “Supergirl” debuted as a disappointing second, with an estimated $38 million.`\
 https://www.nytimes.com/2026/06/28/business/media/supergirl-box-office.html

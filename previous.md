@@ -178,8 +178,8 @@ https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
 `La Library Company of Philadelphia, creada en 1731 por Benjamin Franklin, ha recibido una donación de 1500 volúmenes sobre sexualidad que se remontan al siglo XVII.`\
 https://www.nytimes.com/es/2026/06/28/espanol/cultura/biblioteca-franklin-libros-sexualidad.html
 
-**Pride March Caps Joyous New York June While Threats Mount**\
-`The annual celebration of the L.G.B.T.Q. community began Sunday in a city that has been targeted by the Trump administration but also buoyed by optimism in recent weeks.`\
+**Pride March Caps Joyous New York June, but Anxiety Tempers Hope**\
+`The annual celebration began Sunday in a city where many in the L.G.B.T.Q. community are optimistic about their local leaders but face continued challenges from the Trump administration.`\
 https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
 
 **What’s the Hottest Spot in New York for Campaigning? The Club.**\
