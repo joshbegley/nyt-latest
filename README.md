@@ -70,9 +70,9 @@ https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodrigu
 `Most Americans have heard of Christian nationalism, according to Pew. Soon, they may be hearing about Christian civilizationism.`\
 https://www.nytimes.com/2026/06/28/briefing/the-elite-conservatives-trying-to-revive-western-civilization.html
 
-**‘The Bear’ Season 5 Recap: What Worked? What Questions Linger?**\
-`The final season was in many ways a recapitulation of the whole series in eight episodes. Here’s a look at where Carmy, Syd and the gang wound up.`\
-https://www.nytimes.com/2026/06/28/arts/the-bear-season-5-recap.html
+**‘The Bear’ Season 5 Recap: What Worked? What Lingers?**\
+`The final season was in many ways a recapitulation of the whole series. Here’s a look at where Carmy, Syd and the rest of the gang wound up.`\
+https://www.nytimes.com/2026/06/28/arts/television/the-bear-season-5-recap.html
 
 **What Life Is Like in Dahiya Amid a Hezbollah-Israel Truce in Lebanon**\
 `Dahiya, a sprawling area and Hezbollah stronghold, is stirring back to life amid a tense truce with Israel. “This war has brought so much loss,” one resident said.`\
