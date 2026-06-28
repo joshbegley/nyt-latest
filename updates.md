@@ -1,5 +1,9 @@
 **Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
 `The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
+https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado-firefighters-deaths.html
+
+**Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
+`The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
 https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado.html
 
 **Pride March Caps Joyous New York June While Threats Mount**\
