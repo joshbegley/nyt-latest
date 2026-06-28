@@ -1,3 +1,15 @@
+**Mideast Live Updates: U.S. and Iran Trade Attacks With Few Signs of De-escalation**\
+`President Trump and Iran’s Revolutionary Guards exchanged threats and U.S. allies in the Gulf said they had intercepted Iranian drones, as hostilities entered a fourth day.`\
+https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
+
+**As Trump Cut a Billion-Dollar Mining Deal, His Sons Stand to Profit**\
+`An agreement between the U.S. and Kazakhstan has given a group of American investors with ties to the president and the commerce secretary access to one of the world’s largest untapped reserves of tungsten.`\
+https://www.nytimes.com/2026/06/28/world/europe/trump-lutnick-sons-kazakhstan.html
+
+**Kazakhstan’s Leader Deepens U.S. Ties, Saying Trump Was ‘Sent by Heaven’**\
+`The Central Asian nation is aggressively courting President Trump’s Washington to counterbalance its powerful neighbors, Russia and China.`\
+https://www.nytimes.com/2026/06/28/world/asia/kazakhstan-trump.html
+
 **Read the document**\
 `A letter from Commerce Secretary Howard Lutnick to President Kassym-Jomart Tokayev of Kazakhstan.`\
 https://www.nytimes.com/interactive/2026/06/28/us/2025lutnick-and-dfc-letters.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquakes-doctors-
 **Texas Has a New Way to Teach History: In Chronological Order**\
 `Most states teach history by subject. Texas will go chronologically, starting with ancient history and reaching World War II by seventh grade.`\
 https://www.nytimes.com/2026/06/27/us/texas-teaching-history.html
-
-**At Least 4 Dead in Kentucky Flooding, Governor Says**\
-`Gov. Andy Beshear of Kentucky said emergency crews were rescuing people from flooded homes and vehicles on Saturday. Rain was expected to continue into the night.`\
-https://www.nytimes.com/2026/06/27/us/kentucky-flood-rain-emergency.html
-
-**A Close Call With an Alberta Grizzly Bear, Recorded in Its Entirety**\
-`A woman in Alberta, Canada, recorded the bear as it circled her and her dog near a campsite and lodge.`\
-https://www.nytimes.com/2026/06/27/world/canada/grizzly-bear-alberta-canada-video.html
-
-**Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
-`A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
-https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
 
