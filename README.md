@@ -1,3 +1,7 @@
+**Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
+`If she reaches the Senate, Ms. Letlow would become the first G.O.P. woman to represent Louisiana in the chamber.`\
+https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
+
 **Pro-Transgender Candidate Is Chased From a Trans Rights Event Over Gaza**\
 `Scott Wiener, who is running to replace Nancy Pelosi, was surrounded by a small group of protesters shouting invective before a transgender march in San Francisco.`\
 https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping
 **Natural Selection**\
 `Sometimes, our preference for certitude, our need to define things with conviction, closes us off from possibility.`\
 https://www.nytimes.com/2026/06/27/briefing/natural-selection.html
-
-**My Awful Mother Is Getting Alzheimer’s. What Do I Owe Her?**\
-`The thought of having her live with me makes me physically sick.`\
-https://www.nytimes.com/2026/06/27/magazine/awful-mother-alzheimers-ethics.html
 
