@@ -1,3 +1,7 @@
+**Dear Diary**\
+`We celebrate 50 years of Metropolitan Diary.`\
+https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
+
 **Heat Starts to Break in Western Europe, as Central Europe Begins to Broil**\
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results
 **Pro-Transgender Candidate Is Chased From a Trans Rights Event Over Gaza**\
 `Scott Wiener, who is running to replace Nancy Pelosi, was surrounded by a small group of protesters shouting invective before a transgender march in San Francisco.`\
 https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
-
-**How Ordinary Venezuelans Are Leading the Search for Survivors**\
-`Days after two deadly earthquakes struck Venezuela, people are digging through the rubble to find their loved ones. The New York Times spoke with friends and relatives of two university students who were missing.`\
-https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquake-rescue-missing.html
 
