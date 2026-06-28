@@ -1,3 +1,7 @@
+**Skydiving Plane Crashes in France, Killing All 11 People Aboard**\
+`Five instructors, five students and a pilot died when the plane crashed on Sunday morning in a field near the northeastern city of Nancy.`\
+https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nancy.html
+
 **Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
 `The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
 https://www.nytimes.com/2026/06/28/us/three-firefighters-die-as-wildfires-ravage-utah-and-colorado.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/28/pageoneplus/no-corrections-june-28-2026.html
 **Drones Used to Fight Mosquitoes as Dengue Fever Surges in Sri Lanka**\
 `The military has joined the battle against the insects, as an outbreak strains hospitals in a country already reeling from energy shortages caused by the Iran War.`\
 https://www.nytimes.com/2026/06/28/world/asia/sri-lanka-dengue-mosquito-drones-military.html
-
-**Quote of the Day: New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
-`Quotation of the Day for Sunday, June 28, 2026.`\
-https://www.nytimes.com/2026/06/27/pageoneplus/quote-of-the-day-new-yorks-dive-bars-have-a-rich-past-do-they-have-a-future.html
 

@@ -1,3 +1,7 @@
+**Skydiving Plane Crashes in France, Killing All 11 People Aboard**\
+`Five instructors, five students and a pilot died when the plane crashed on Sunday morning in a field near the northeastern city of Nancy.`\
+https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nancy.html
+
 **Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
 `The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
 https://www.nytimes.com/2026/06/28/us/three-firefighters-die-as-wildfires-ravage-utah-and-colorado.html
