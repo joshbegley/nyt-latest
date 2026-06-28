@@ -1,3 +1,11 @@
+**‘Hair Is Just Hair’: A ‘Bald Meet-Up’ Fosters a Sense of Empowerment**\
+`The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
+https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
+
+**La avalancha de voluntarios en Venezuela ralentiza las labores de rescate**\
+`El gran número de voluntarios que acudieron con ayuda después de los terremotos de Venezuela colapsó la única carretera que llevaba a la zona afectada, lo que retrasó la llegada de los equipos de rescate.`\
+https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-voluntarios-trafico.html
+
 **Pride March Caps Joyous New York June, but Anxiety Tempers Hope**\
 `The annual celebration began Sunday in a city where many in the L.G.B.T.Q. community are optimistic about their local leaders but face continued challenges from the Trump administration.`\
 https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html

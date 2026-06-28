@@ -1,3 +1,11 @@
+**‘Hair Is Just Hair’: A ‘Bald Meet-Up’ Fosters a Sense of Empowerment**\
+`The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
+https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
+
+**La avalancha de voluntarios en Venezuela ralentiza las labores de rescate**\
+`El gran número de voluntarios que acudieron con ayuda después de los terremotos de Venezuela colapsó la única carretera que llevaba a la zona afectada, lo que retrasó la llegada de los equipos de rescate.`\
+https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-voluntarios-trafico.html
+
 **‘Supergirl’ Falters at the Box Office, Testing DC Studios’ Reboot**\
 `Overall, ticket sales for the weekend were up 21 percent from last year. But the expensive “Supergirl” debuted as a disappointing second, with an estimated $38 million.`\
 https://www.nytimes.com/2026/06/28/business/media/supergirl-box-office.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
 **What’s the Hottest Spot in New York for Campaigning? The Club.**\
 `Zohran Mamdani did it last year. So did Claire Valdez in her recent run for Congress. Some candidates are campaigning after dark to court young voters.`\
 https://www.nytimes.com/2026/06/28/nyregion/whats-the-hottest-spot-in-new-york-for-campaigning-the-club.html
-
-**Central Park Horse-Drawn Carriage Rides Resume, as Push for Ban Intensifies**\
-`The rides were temporarily shut down after Romanch Mahajan, 18, fell off a carriage and died. A City Council hearing next month will weigh a ban.`\
-https://www.nytimes.com/2026/06/28/nyregion/central-park-horse-drawn-carriage-rides-resume-as-push-for-ban-intensifies.html
-
-**‘After About 10 Minutes, a Car Pulled Up to the Traffic Light’**\
-`Friends of Metropolitan Diary, including the writer Candace Bushnell and the actor Ken Leung of “Industry,” share their stories to mark the column’s 50th anniversary.`\
-https://www.nytimes.com/2026/06/28/nyregion/metropolitan-diary.html
 
