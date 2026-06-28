@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Chaotic Rush to Help Victims Delays Some Rescues**\
+`A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
+https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
+
 **Pro-Transgender Candidate Is Chased From a Trans Rights Event Over Gaza**\
 `Scott Wiener, who is running to replace Nancy Pelosi, was surrounded by a small group of protesters shouting invective before a transgender march in San Francisco.`\
 https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
