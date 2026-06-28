@@ -1,3 +1,23 @@
+**Pride March Caps Joyous New York June While Threats Mount**\
+`The annual celebration of the L.G.B.T.Q. community comes as the Trump administration has targeted several New York City hospitals that have provided care for transgender young people.`\
+https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
+
+**What’s the Hottest Spot in New York for Campaigning? The Club.**\
+`Zohran Mamdani did it last year. So did Claire Valdez in her recent run for Congress. Some candidates are campaigning after dark to court young voters.`\
+https://www.nytimes.com/2026/06/28/nyregion/whats-the-hottest-spot-in-new-york-for-campaigning-the-club.html
+
+**Central Park Horse-Drawn Carriage Rides Resume, as Push for Ban Intensifies**\
+`The rides were temporarily shut down after Romanch Mahajan, 18, fell off a carriage and died. A City Council hearing next month will weigh a ban.`\
+https://www.nytimes.com/2026/06/28/nyregion/central-park-horse-drawn-carriage-rides-resume-as-push-for-ban-intensifies.html
+
+**‘After About 10 Minutes, a Car Pulled Up to the Traffic Light’**\
+`Our special series of columns marking Metropolitan Diary’s 50th anniversary continues with more notable contributors sharing their New York City stories.`\
+https://www.nytimes.com/2026/06/28/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for June 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/28/crosswords/spelling-bee-forum.html
+
 **China Confirms Death of Pilot Who Flew Small Plane Into Beijing’s Tallest Tower**\
 `The statement came a day after online images showed falling debris and plane parts. Another 13 were injured in the incident five miles from Communist Party headquarters.`\
 https://www.nytimes.com/2026/06/28/world/asia/china-pilot-died-plane-crash-beijing.html
@@ -174,23 +194,7 @@ https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein
 `Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
 https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
 
-**Advertisers Are Good at Getting Human Attention. Can They Stand Out to A.I.?**\
-`At Cannes Lions, marketers grappled with how to influence A.I. chatbots.`\
-https://www.nytimes.com/2026/06/27/business/dealbook/ai-visibility.html
-
 **Venezuela Live Updates: Chaotic Rush to Help Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
 https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
-
-**Trending in Paris for Men: Glitter Pants and Inflatable Suits**\
-`Here’s what you need to know about men’s fashion week in Paris so far.`\
-https://www.nytimes.com/2026/06/27/style/mens-fashion-paris-trending.html
-
-**In Strait of Hormuz, Renewed Strikes Threaten to Set Back Shipping Recovery**\
-`The attacks came after traffic through the Strait of Hormuz had reached the highest levels since the start of the U.S. war in Iran.`\
-https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
-
-**U.S.-Iran Deal’s Vague Language Comes Back to Haunt Peace Efforts**\
-`The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
-https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
 

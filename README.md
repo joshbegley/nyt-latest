@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein
 `Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
 https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
 
-**Venezuela Live Updates: Chaotic Rush to Help Victims Delays Some Rescues**\
+**Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
 https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
 
