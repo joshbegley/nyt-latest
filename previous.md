@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nan
 
 **Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
 `The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
-https://www.nytimes.com/2026/06/28/us/three-firefighters-die-as-wildfires-ravage-utah-and-colorado.html
+https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado.html
 
 **Dozens of Dogs Join Search for Venezuela Earthquake Survivors**\
 `Specially trained canines can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
@@ -175,7 +175,7 @@ https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
 https://www.nytimes.com/es/2026/06/28/espanol/cultura/biblioteca-franklin-libros-sexualidad.html
 
 **Pride March Caps Joyous New York June While Threats Mount**\
-`The annual celebration of the L.G.B.T.Q. community comes as the Trump administration has targeted several New York City hospitals that have provided care for transgender young people.`\
+`The annual celebration of the L.G.B.T.Q. community began Sunday in a city that has been targeted by the Trump administration but also buoyed by optimism in recent weeks.`\
 https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
 
 **What’s the Hottest Spot in New York for Campaigning? The Club.**\

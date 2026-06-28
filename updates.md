@@ -1,3 +1,11 @@
+**Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
+`The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
+https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado.html
+
+**Pride March Caps Joyous New York June While Threats Mount**\
+`The annual celebration of the L.G.B.T.Q. community began Sunday in a city that has been targeted by the Trump administration but also buoyed by optimism in recent weeks.`\
+https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
+
 **A ‘Heat Dome’ Could Bring Triple- Digit Temperatures to the Midwest and Eastern U.S.**\
 `Forecasters warned that temperatures could break records in some areas. The heat is expected to last into the Fourth of July holiday weekend.`\
 https://www.nytimes.com/2026/06/28/weather/heat-wave-usa-nyc-dc-philadelpha.html
