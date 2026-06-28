@@ -1,3 +1,11 @@
+**Pro-Transgender Candidate Is Chased From a Trans Rights Event Over Gaza**\
+`Scott Wiener, who is running to replace Nancy Pelosi, was surrounded by a small group of protesters shouting invective before a transgender march in San Francisco.`\
+https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
+
+**How Ordinary Venezuelans Are Leading the Search for Survivors**\
+`Days after two deadly earthquakes struck Venezuela, people are digging through the rubble to find their loved ones. The New York Times spoke with friends and relatives of two university students who were missing.`\
+https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquake-rescue-missing.html
+
 **Deadly Floods Hit Kentucky**\
 `Gov. Andy Beshear of Kentucky said in a video posted to social media that he declared a state of emergency after deadly floods swept through parts of his state.`\
 https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/27/briefing/natural-selection.html
 **My Awful Mother Is Getting Alzheimer’s. What Do I Owe Her?**\
 `The thought of having her live with me makes me physically sick.`\
 https://www.nytimes.com/2026/06/27/magazine/awful-mother-alzheimers-ethics.html
-
-**NYT Strands Hints for June 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 28, 2026.`\
-https://www.nytimes.com/2026/06/27/crosswords/strands-sidekick-847.html
-
-**NYT Connections Answers for June 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 28, 2026.`\
-https://www.nytimes.com/2026/06/27/crosswords/connections-companion-1113.html
 
