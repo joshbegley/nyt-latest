@@ -1,3 +1,7 @@
+**Heat Starts to Break in Western Europe, as Central Europe Begins to Broil**\
+`After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
+https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
+
 **Venezuela Live Updates: Rescuers Battle Through Aftershocks in Search for Survivors**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
 **How Ordinary Venezuelans Are Leading the Search for Survivors**\
 `Days after two deadly earthquakes struck Venezuela, people are digging through the rubble to find their loved ones. The New York Times spoke with friends and relatives of two university students who were missing.`\
 https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquake-rescue-missing.html
-
-**Deadly Floods Hit Kentucky**\
-`Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
-https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
 

@@ -1,3 +1,7 @@
+**Heat Starts to Break in Western Europe, as Central Europe Begins to Broil**\
+`After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
+https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
+
 **Venezuela Live Updates: Rescuers Battle Through Aftershocks in Search for Survivors**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
