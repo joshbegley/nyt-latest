@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
 https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquake-rescue-missing.html
 
 **Deadly Floods Hit Kentucky**\
-`Gov. Andy Beshear of Kentucky said in a video posted to social media that he declared a state of emergency after deadly floods swept through parts of his state.`\
+`Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
 https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
 
 **U.S. Officials Said to Be Frustrated With Machado’s Call for Help**\
