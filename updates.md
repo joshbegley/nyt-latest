@@ -1,3 +1,7 @@
+**‘After About 10 Minutes, a Car Pulled Up to the Traffic Light’**\
+`Friends of Metropolitan Diary, including the writer Candace Bushnell and the actor Ken Leung of “Industry,” share their stories to mark the column’s 50th anniversary.`\
+https://www.nytimes.com/2026/06/28/nyregion/metropolitan-diary.html
+
 **These Are the Cold Noodles of the Summer**\
 `Melissa Clark’s nutty, gingery take is powerfully delicious.`\
 https://www.nytimes.com/2026/06/28/dining/these-are-the-cold-noodles-of-the-summer.html
