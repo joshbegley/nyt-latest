@@ -1,3 +1,7 @@
+**China Confirms Death of Pilot Who Flew Small Plane Into Beijing’s Tallest Tower**\
+`The statement came a day after online images showed falling debris and plane parts. Another 13 were injured in the incident five miles from Communist Party headquarters.`\
+https://www.nytimes.com/2026/06/28/world/asia/china-pilot-died-plane-crash-beijing.html
+
 **Los nuevos ataques de Irán y EE. UU. entorpecen la recuperación del tráfico marítimo en el Golfo**\
 `Los ataques se produjeron después de que el tráfico por el estrecho de Ormuz alcanzara los niveles más altos desde el inicio de la guerra de Estados Unidos en Irán.`\
 https://www.nytimes.com/es/2026/06/28/espanol/negocios/ataques-iran-ee-uu-golfo-persico.html

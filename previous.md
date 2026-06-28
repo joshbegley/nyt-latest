@@ -1,3 +1,7 @@
+**China Confirms Death of Pilot Who Flew Small Plane Into Beijing’s Tallest Tower**\
+`The statement came a day after online images showed falling debris and plane parts. Another 13 were injured in the incident five miles from Communist Party headquarters.`\
+https://www.nytimes.com/2026/06/28/world/asia/china-pilot-died-plane-crash-beijing.html
+
 **Los nuevos ataques de Irán y EE. UU. entorpecen la recuperación del tráfico marítimo en el Golfo**\
 `Los ataques se produjeron después de que el tráfico por el estrecho de Ormuz alcanzara los niveles más altos desde el inicio de la guerra de Estados Unidos en Irán.`\
 https://www.nytimes.com/es/2026/06/28/espanol/negocios/ataques-iran-ee-uu-golfo-persico.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/27/business/strait-of-hormuz-shipping-iran.html
 **U.S.-Iran Deal’s Vague Language Comes Back to Haunt Peace Efforts**\
 `The deal called for Iran to “make arrangements” for the passage of ships through the Strait of Hormuz. Iran has interpreted that to mean it can designate which routes ships take.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.html
-
-**Three Opinion Writers on Trump’s Latest Face-Plant**\
-`Trump planned a big party for America. It’s not going well.`\
-https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
 
