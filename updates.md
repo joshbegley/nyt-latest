@@ -1,3 +1,7 @@
+**Deadly Floods Hit Kentucky**\
+`Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
+https://www.nytimes.com/video/weather/100000010997597/deadly-floods-hit-kentucky.html
+
 **Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
 `The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/28/world/middleeast/deadly-helicopter-crash-saudi-arabia.html

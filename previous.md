@@ -1,3 +1,7 @@
+**Deadly Floods Hit Kentucky**\
+`Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
+https://www.nytimes.com/video/weather/100000010997597/deadly-floods-hit-kentucky.html
+
 **Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
 `The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/28/world/middleeast/deadly-helicopter-crash-saudi-arabia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/28/espanol/negocios/ataques-iran-ee-uu-golfo-
 **The Real A.I. Race Isn’t America vs. China**\
 `Washington is starting to follow a similar playbook to Beijing when it comes to artificial intelligence policy.`\
 https://www.nytimes.com/2026/06/28/opinion/ai-race-china-us.html
-
-**A Mayor Is Taking Maternity Leave in Japan. Some Men Are Furious.**\
-`Shoko Kawata is the first mayor to take maternity leave in Japan’s history. Her decision has prompted debate about gender discrimination in the work force.`\
-https://www.nytimes.com/2026/06/28/world/asia/japan-mayor-maternity-leave.html
 
