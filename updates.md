@@ -1,3 +1,11 @@
+**Mignon Dunn, Mezzo Soprano Known for ‘Carmen,’ Dies at 98**\
+`Growing up in Arkansas, she dreamed of singing at the Metropolitan Opera. She did so more than 650 times over 35 years.`\
+https://www.nytimes.com/2026/06/28/obituaries/mignon-dunn-dead.html
+
+**At a Caracas Morgue, Families and Officials Try to Identify More Than 100 Victims**\
+`Identifying victims has proved to be difficult because many bodies were badly crushed beneath collapsed buildings.`\
+https://www.nytimes.com/2026/06/28/world/americas/venezuela-earthquake-caracas-morgue.html
+
 **Drone Footage Shows Devastation From Venezuela Earthquakes**\
 `Twin earthquakes that devastated Venezuela on Wednesday killed more than 1,400 people and left thousands more injured.`\
 https://www.nytimes.com/video/world/americas/100000010997920/venezuela-earthquakes-damage-drone-video.html
