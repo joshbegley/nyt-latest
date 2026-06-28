@@ -1,3 +1,7 @@
+**Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
+`A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
+https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
+
 **Pride March Caps Joyous New York June While Threats Mount**\
 `The annual celebration of the L.G.B.T.Q. community comes as the Trump administration has targeted several New York City hospitals that have provided care for transgender young people.`\
 https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
