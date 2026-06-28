@@ -14,7 +14,7 @@ https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquak
 `Gov. Andy Beshear of Kentucky said in a video posted to social media that he declared a state of emergency after deadly floods swept through parts of his state.`\
 https://www.nytimes.com/video/weather/100000010997120/kentucky-floods-death-emergency.html
 
-**U.S. Officials Said to Be Frustrated With Machado’s Call or Help**\
+**U.S. Officials Said to Be Frustrated With Machado’s Call for Help**\
 `María Corina Machado, the exiled leader of the Venezuelan opposition, hopes to go home. U.S. officials say her wishes to do so come at an inopportune time.`\
 https://www.nytimes.com/2026/06/27/world/americas/us-officials-frustrated-with-exiled-venezuelan-leaders-call-for-help.html
 
