@@ -1,3 +1,7 @@
+**Metropolitan Diary Challenge Day 1: What Is Your N.Y. Story?**\
+`Over the next two days, we’ll help you craft your own Metropolitan Diary entry. Today, you’ll start by finding the moment you want to write about.`\
+https://www.nytimes.com/interactive/2026/06/27/nyregion/metropolitan-diary-challenge-day-1.html
+
 **U.S. Officials Said to Be Frustrated With Machado’s Call for Help**\
 `María Corina Machado, the exiled leader of the Venezuelan opposition, hopes to go home. U.S. officials say her wishes to do so come at an inopportune time.`\
 https://www.nytimes.com/2026/06/27/world/americas/us-officials-frustrated-with-exiled-venezuelan-leaders-call-for-help.html
