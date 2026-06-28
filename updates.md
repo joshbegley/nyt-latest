@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Rescuers Battle Through Aftershocks in Search for Survivors**\
+`More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
+https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
+
 **See How Colombia’s Goal Was Ruled Offside by a Toe**\
 `View in 3-D how close Colombia came to scoring a go-ahead goal in second-half stoppage time against Portugal.`\
 https://www.nytimes.com/interactive/2026/06/28/sports/soccer/colombia-portugal-world-cup-offside-goal.html
