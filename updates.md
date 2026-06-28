@@ -1,3 +1,11 @@
+**El controvertido médico que promete cambiar el color de tus ojos**\
+`Francis Ferrari, un oftalmólogo francés, desarrolló un polémico procedimiento para cambiar el color de los ojos. Personas de todo el mundo están dispuestas a asumir el riesgo.`\
+https://www.nytimes.com/es/2026/06/28/espanol/estilos-de-vida/ojos-operacion-cirugia-cambio-color.html
+
+**El hombre que gritó ‘gooooooooool’**\
+`Andrés Cantor, comentarista de Telemundo, es una celebridad del fútbol que actualmente participa en su décima Copa Mundial masculina. Pero su gran habilidad física no es la finta precisa de Messi ni la velocidad de Mbappé. Es su voz.`\
+https://www.nytimes.com/es/2026/06/28/espanol/cultura/andres-cantor-narrador-futbol.html
+
 **Iran’s World Cup Elimination Ends a Politically Charged Odyssey**\
 `The Iranian team’s departure from the tournament ends one of the most politically charged odysseys in recent sports history. Its soccer federation criticized the United States and praised Mexico.`\
 https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html

@@ -1,3 +1,11 @@
+**El controvertido médico que promete cambiar el color de tus ojos**\
+`Francis Ferrari, un oftalmólogo francés, desarrolló un polémico procedimiento para cambiar el color de los ojos. Personas de todo el mundo están dispuestas a asumir el riesgo.`\
+https://www.nytimes.com/es/2026/06/28/espanol/estilos-de-vida/ojos-operacion-cirugia-cambio-color.html
+
+**El hombre que gritó ‘gooooooooool’**\
+`Andrés Cantor, comentarista de Telemundo, es una celebridad del fútbol que actualmente participa en su décima Copa Mundial masculina. Pero su gran habilidad física no es la finta precisa de Messi ni la velocidad de Mbappé. Es su voz.`\
+https://www.nytimes.com/es/2026/06/28/espanol/cultura/andres-cantor-narrador-futbol.html
+
 **Iran’s World Cup Elimination Ends a Politically Charged Odyssey**\
 `The Iranian team’s departure from the tournament ends one of the most politically charged odysseys in recent sports history. Its soccer federation criticized the United States and praised Mexico.`\
 https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-division
 **How Do I Stop Guests From Bringing Their Children to My Parties?**\
 `A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
 https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
-
-**We’re Getting America’s Children Hooked on Gambling**\
-`In part because gambling ads are in everything, everywhere, all at once.`\
-https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
-
-**Central and Eastern Europe Are Feeling the Heat Now**\
-`Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
-https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html
 
 **Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
