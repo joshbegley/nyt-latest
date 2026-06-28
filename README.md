@@ -179,7 +179,7 @@ https://www.nytimes.com/2026/06/27/opinion/culture/crying-old-people.html
 https://www.nytimes.com/video/opinion/100000010991743/has-the-maga-sugar-rush-finally-run-out.html
 
 **Chinese Dissident Who Fled by Sea to South Korea Lands in Canada**\
-`Dong Guangping reached Toronto after a decade of failed attempts to escape China. He traveled to South Korea last month in an inflatable rubber boat.`\
+`Dong Guangping, who reached Toronto on Friday after a decade of failed attempts to escape China, recounted how he traveled by sea to South Korea last month.`\
 https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping-canada.html
 
 **Natural Selection**\
