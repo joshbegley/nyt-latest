@@ -1,3 +1,7 @@
+**Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
+`If she reaches the Senate, Ms. Letlow would become the first G.O.P. woman to represent Louisiana in the chamber.`\
+https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
+
 **Chinese Dissident Who Fled by Sea to South Korea Lands in Canada**\
 `Dong Guangping, who reached Toronto on Friday after a decade of failed attempts to escape China, recounted how he traveled by sea to South Korea last month.`\
 https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping-canada.html
