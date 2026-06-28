@@ -1,3 +1,11 @@
+**Por qué lloran las personas mayores**\
+`Últimamente tengo tanto pasado a mis espaldas y dentro de mí que parece que se me sale por todas partes.`\
+https://www.nytimes.com/es/2026/06/28/espanol/opinion/vejez-llorar.html
+
+**Iran Risks Peace Talks With U.S. to Maintain Leverage Over Strait**\
+`Iran sees its control over the Strait of Hormuz as critical leverage in peace talks with the United States. It seems willing to risk the cease-fire to maintain that power.`\
+https://www.nytimes.com/2026/06/28/world/europe/iran-us-strait-of-hormuz-peace-talks.html
+
 **La avalancha de voluntarios en Venezuela ralentiza las labores de rescate**\
 `El gran número de voluntarios que acudieron con ayuda después de los terremotos de Venezuela colapsó la única carretera que llevaba a la zona afectada, lo que retrasó la llegada de los equipos de rescate.`\
 https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-voluntarios-trafico.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/28/espanol/cultura/andres-cantor-narrador-fut
 **Iran’s World Cup Elimination Ends a Politically Charged Odyssey**\
 `The Iranian team’s departure from the tournament ends one of the most politically charged odysseys in recent sports history. Its soccer federation criticized the United States and praised Mexico.`\
 https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
-
-**La biblioteca de Franklin añade libros sobre sexualidad a su colección**\
-`La Library Company of Philadelphia, creada en 1731 por Benjamin Franklin, ha recibido una donación de 1500 volúmenes sobre sexualidad que se remontan al siglo XVII.`\
-https://www.nytimes.com/es/2026/06/28/espanol/cultura/biblioteca-franklin-libros-sexualidad.html
-
-**Pride March Caps Joyous New York June, but Anxiety Tempers Hope**\
-`The annual celebration began Sunday in a city where many in the L.G.B.T.Q. community are optimistic about their local leaders but face continued challenges from the Trump administration.`\
-https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
 
