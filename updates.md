@@ -1,3 +1,11 @@
+**These Are the Cold Noodles of the Summer**\
+`Melissa Clark’s nutty, gingery take is powerfully delicious.`\
+https://www.nytimes.com/2026/06/28/dining/these-are-the-cold-noodles-of-the-summer.html
+
+**Addressing a Corrupt Pardon System**\
+`Readers respond to “There’s Actually Something We Can Do About Trump’s Pardons,” an Opinion guest essay by Tim Wu. Also: A loophole that harms our oceans.`\
+https://www.nytimes.com/2026/06/28/opinion/trump-pardons.html
+
 **Dear Diary**\
 `We celebrate 50 years of Metropolitan Diary.`\
 https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html

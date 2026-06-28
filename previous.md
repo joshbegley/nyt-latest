@@ -1,3 +1,11 @@
+**These Are the Cold Noodles of the Summer**\
+`Melissa Clark’s nutty, gingery take is powerfully delicious.`\
+https://www.nytimes.com/2026/06/28/dining/these-are-the-cold-noodles-of-the-summer.html
+
+**Addressing a Corrupt Pardon System**\
+`Readers respond to “There’s Actually Something We Can Do About Trump’s Pardons,” an Opinion guest essay by Tim Wu. Also: A loophole that harms our oceans.`\
+https://www.nytimes.com/2026/06/28/opinion/trump-pardons.html
+
 **Dear Diary**\
 `We celebrate 50 years of Metropolitan Diary.`\
 https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/27/us/miami-latin-america-world-cup.html
 **Metropolitan Diary Challenge Day 1: What Is Your N.Y. Story?**\
 `Over the next two days, we’ll help you craft your own Metropolitan Diary entry. Today, you’ll start by finding the moment you want to write about.`\
 https://www.nytimes.com/interactive/2026/06/27/nyregion/metropolitan-diary-challenge-day-1.html
-
-**Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
-`If she reaches the Senate, Ms. Letlow would replace Senator Bill Cassidy and become the first G.O.P. woman to represent Louisiana in the chamber.`\
-https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
-
-**Pro-Transgender Candidate Is Chased From a Trans Rights Event Over Gaza**\
-`Scott Wiener, who is running to replace Nancy Pelosi, was surrounded by a small group of protesters shouting invective before a transgender march in San Francisco.`\
-https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
 
