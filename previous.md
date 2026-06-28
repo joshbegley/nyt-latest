@@ -23,11 +23,11 @@ https://www.nytimes.com/2026/06/28/dining/five-bright-and-summery-recipes-for-la
 https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nancy.html
 
 **Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
-`The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
+`Their bodies were brought by helicopter to a Colorado airport, where their soot-covered comrades drove them to the coroner’s office. Fires are raging in the arid Southwest after a warm winter.`\
 https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado-firefighters-deaths.html
 
 **Dozens of Dogs Join Search for Venezuela Earthquake Survivors**\
-`Specially trained canines can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
+`Specially trained dogs can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
 https://www.nytimes.com/2026/06/28/world/americas/rescue-dogs-canine-units-earthquake-venezuela.html
 
 **These Are the Cold Noodles of the Summer**\
