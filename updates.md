@@ -1,3 +1,11 @@
+**Dear Diary**\
+`We celebrate 50 years of Metropolitan Diary.`\
+https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
+
+**‘The Bear’ Season 5 Recap: What Worked? What Lingers?**\
+`The final season was in many ways a recapitulation of the whole series. Here’s a look at where Carmy, Syd and the rest of the gang wound up.`\
+https://www.nytimes.com/2026/06/28/arts/television/the-bear-season-5-recap.html
+
 **Heat Starts to Break in Western Europe, as Central Europe Begins to Broil**\
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html

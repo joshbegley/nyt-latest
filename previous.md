@@ -1,3 +1,7 @@
+**Dear Diary**\
+`We celebrate 50 years of Metropolitan Diary.`\
+https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
+
 **Heat Starts to Break in Western Europe, as Central Europe Begins to Broil**\
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
@@ -66,9 +70,9 @@ https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodrigu
 `Most Americans have heard of Christian nationalism, according to Pew. Soon, they may be hearing about Christian civilizationism.`\
 https://www.nytimes.com/2026/06/28/briefing/the-elite-conservatives-trying-to-revive-western-civilization.html
 
-**‘The Bear’ Season 5 Recap: What Worked? What Questions Linger?**\
-`The final season was in many ways a recapitulation of the whole series in eight episodes. Here’s a look at where Carmy, Syd and the gang wound up.`\
-https://www.nytimes.com/2026/06/28/arts/the-bear-season-5-recap.html
+**‘The Bear’ Season 5 Recap: What Worked? What Lingers?**\
+`The final season was in many ways a recapitulation of the whole series. Here’s a look at where Carmy, Syd and the rest of the gang wound up.`\
+https://www.nytimes.com/2026/06/28/arts/television/the-bear-season-5-recap.html
 
 **What Life Is Like in Dahiya Amid a Hezbollah-Israel Truce in Lebanon**\
 `Dahiya, a sprawling area and Hezbollah stronghold, is stirring back to life amid a tense truce with Israel. “This war has brought so much loss,” one resident said.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results
 **Pro-Transgender Candidate Is Chased From a Trans Rights Event Over Gaza**\
 `Scott Wiener, who is running to replace Nancy Pelosi, was surrounded by a small group of protesters shouting invective before a transgender march in San Francisco.`\
 https://www.nytimes.com/2026/06/27/us/scott-wiener-trans-march-gaza-video.html
-
-**How Ordinary Venezuelans Are Leading the Search for Survivors**\
-`Days after two deadly earthquakes struck Venezuela, people are digging through the rubble to find their loved ones. The New York Times spoke with friends and relatives of two university students who were missing.`\
-https://www.nytimes.com/video/world/americas/100000010994962/venezuela-earthquake-rescue-missing.html
 
