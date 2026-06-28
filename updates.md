@@ -1,3 +1,7 @@
+**The City Where Colombia, and Much of Latin America, Plays as the Home Team**\
+`Miami has hosted some of the biggest events in South American and Caribbean sports, including Colombia’s match on Saturday. Brazil and Uruguay have also played World Cup games there.`\
+https://www.nytimes.com/2026/06/27/us/miami-latin-america-world-cup.html
+
 **Metropolitan Diary Challenge Day 1: What Is Your N.Y. Story?**\
 `Over the next two days, we’ll help you craft your own Metropolitan Diary entry. Today, you’ll start by finding the moment you want to write about.`\
 https://www.nytimes.com/interactive/2026/06/27/nyregion/metropolitan-diary-challenge-day-1.html
