@@ -1,3 +1,7 @@
+**Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
+`Fires are raging in the arid Southwest after a warm winter. Forecasters say the fires may grow rapidly, and parts of Colorado have been ordered to evacuate.`\
+https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado-firefighters-deaths.html
+
 **Oil Markets Edge Higher After Days of Attacks in Persian Gulf**\
 `Oil prices inched up on Sunday evening, while the S&P 500 futures market was little changed.`\
 https://www.nytimes.com/2026/06/28/business/oil-markets-edge-higher-after-days-of-attacks-in-persian-gulf.html

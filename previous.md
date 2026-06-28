@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/06/28/dining/five-bright-and-summery-recipes-for-la
 https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nancy.html
 
 **Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
-`Their bodies were brought by helicopter to a Colorado airport, where their soot-covered comrades drove them to the coroner’s office. Fires are raging in the arid Southwest after a warm winter.`\
+`Fires are raging in the arid Southwest after a warm winter. Forecasters say the fires may grow rapidly, and parts of Colorado have been ordered to evacuate.`\
 https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado-firefighters-deaths.html
 
 **Dozens of Dogs Join Search for Venezuela Earthquake Survivors**\
