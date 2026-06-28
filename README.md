@@ -1,3 +1,11 @@
+**Los nuevos ataques de Irán y EE. UU. entorpecen la recuperación del tráfico marítimo en el Golfo**\
+`Los ataques se produjeron después de que el tráfico por el estrecho de Ormuz alcanzara los niveles más altos desde el inicio de la guerra de Estados Unidos en Irán.`\
+https://www.nytimes.com/es/2026/06/28/espanol/negocios/ataques-iran-ee-uu-golfo-persico.html
+
+**The Real A.I. Race Isn’t America vs. China**\
+`Washington is starting to follow a similar playbook to Beijing when it comes to artificial intelligence policy.`\
+https://www.nytimes.com/2026/06/28/opinion/ai-race-china-us.html
+
 **A Mayor Is Taking Maternity Leave in Japan. Some Men Are Furious.**\
 `Shoko Kawata is the first mayor to take maternity leave in Japan’s history. Her decision has prompted debate about gender discrimination in the work force.`\
 https://www.nytimes.com/2026/06/28/world/asia/japan-mayor-maternity-leave.html
@@ -142,13 +150,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**We’re Getting America’s Children Hooked on Gambling**\
-`In part because gambling ads are in everything, everywhere, all at once.`\
-https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
-
 **How Do I Stop Guests From Bringing Their Children to My Parties?**\
 `A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
 https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
+
+**We’re Getting America’s Children Hooked on Gambling**\
+`In part because gambling ads are in everything, everywhere, all at once.`\
+https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/27/world/middleeast/us-iran-deal-vague-language.
 **Three Opinion Writers on Trump’s Latest Face-Plant**\
 `Trump planned a big party for America. It’s not going well.`\
 https://www.nytimes.com/2026/06/27/opinion/america-250-trump-division.html
-
-**Why Was Keir Starmer So Disastrously Ineffective?**\
-`His great achievement was to restore the Labour Party to government. His lack of conviction made him ineffective once he got there.`\
-https://www.nytimes.com/2026/06/27/opinion/keir-starmer-resignation-uk.html
-
-**It’s Ugly. It Costs $640,000. Everyone Is Mad About It but Me.**\
-`Ferrari’s new E.V. is being panned by critics, but it ought to be celebrated.`\
-https://www.nytimes.com/2026/06/27/opinion/ferrari-electric-vehicle.html
 
