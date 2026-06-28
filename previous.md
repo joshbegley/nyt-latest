@@ -1,3 +1,11 @@
+**Iran’s World Cup Elimination Ends a Politically Charged Odyssey**\
+`The Iranian team’s departure from the tournament ends one of the most politically charged odysseys in recent sports history. Its soccer federation criticized the United States and praised Mexico.`\
+https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
+
+**La biblioteca de Franklin añade libros sobre sexualidad a su colección**\
+`La Library Company of Philadelphia, creada en 1731 por Benjamin Franklin, ha recibido una donación de 1500 volúmenes sobre sexualidad que se remontan al siglo XVII.`\
+https://www.nytimes.com/es/2026/06/28/espanol/cultura/biblioteca-franklin-libros-sexualidad.html
+
 **Pride March Caps Joyous New York June While Threats Mount**\
 `The annual celebration of the L.G.B.T.Q. community comes as the Trump administration has targeted several New York City hospitals that have provided care for transgender young people.`\
 https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
 https://www.nytimes.com/2026/06/27/world/europe/heat-wave-central-eastern-europe.html
-
-**Once He Wanted to Lead FIFA. This Is Much Better.**\
-`Jordan’s arrival at the World Cup is the culmination of decades of patient effort by one man, but also a moment of solidarity for his nation and its diaspora.`\
-https://www.nytimes.com/2026/06/27/world/middleeast/jordan-prince-ali-al-hussein-world-cup.html
-
-**Australia Says It Will Toughen Its Social Media Ban for Children**\
-`Saying tech companies were “not doing enough” to keep youths under 16 off their platforms, the government announced tougher fines and new powers for a regulator.`\
-https://www.nytimes.com/2026/06/27/world/australia/social-media-ban-children.html
 
 **Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\

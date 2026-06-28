@@ -1,3 +1,11 @@
+**Iran’s World Cup Elimination Ends a Politically Charged Odyssey**\
+`The Iranian team’s departure from the tournament ends one of the most politically charged odysseys in recent sports history. Its soccer federation criticized the United States and praised Mexico.`\
+https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
+
+**La biblioteca de Franklin añade libros sobre sexualidad a su colección**\
+`La Library Company of Philadelphia, creada en 1731 por Benjamin Franklin, ha recibido una donación de 1500 volúmenes sobre sexualidad que se remontan al siglo XVII.`\
+https://www.nytimes.com/es/2026/06/28/espanol/cultura/biblioteca-franklin-libros-sexualidad.html
+
 **Chaotic Rush to Help Venezuela Earthquake Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
 https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
