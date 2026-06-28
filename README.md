@@ -1,3 +1,7 @@
+**Metropolitan Diary Challenge Day 1: What Is Your N.Y. Story?**\
+`Over the next two days, we’ll help you craft your own Metropolitan Diary entry. Today, you’ll start by finding the moment you want to write about.`\
+https://www.nytimes.com/interactive/2026/06/27/nyregion/metropolitan-diary-challenge-day-1.html
+
 **Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
 `If she reaches the Senate, Ms. Letlow would become the first G.O.P. woman to represent Louisiana in the chamber.`\
 https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
@@ -118,13 +122,13 @@ https://www.nytimes.com/2026/06/27/dining/the-july-monthly-bake-peaches-and-crea
 `Supporters welcomed the agreement as a step toward curtailing Iran’s influence within Lebanon, but others took to the streets, calling it a capitulation.`\
 https://www.nytimes.com/2026/06/27/world/middleeast/lebanon-israel-deal-divisions-protests-beirut.html
 
-**We’re Getting America’s Children Hooked on Gambling**\
-`In part because gambling ads are in everything, everywhere, all at once.`\
-https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
-
 **How Do I Stop Guests From Bringing Their Children to My Parties?**\
 `A reader is frustrated by the handful of friends who assume their children are welcome at events to which they are not explicitly invited.`\
 https://www.nytimes.com/2026/06/27/style/child-free-party-invitations.html
+
+**We’re Getting America’s Children Hooked on Gambling**\
+`In part because gambling ads are in everything, everywhere, all at once.`\
+https://www.nytimes.com/2026/06/27/opinion/gambling-addiction-middle-school.html
 
 **Central and Eastern Europe Are Feeling the Heat Now**\
 `Much of Germany and Poland were under extreme heat warnings on Saturday as the weather phenomenon driving this week’s record-breaking temperatures moved east.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000010991743/has-the-maga-sugar-rush-fi
 **Chinese Dissident Who Fled by Sea to South Korea Lands in Canada**\
 `Dong Guangping, who reached Toronto on Friday after a decade of failed attempts to escape China, recounted how he traveled by sea to South Korea last month.`\
 https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping-canada.html
-
-**Natural Selection**\
-`Sometimes, our preference for certitude, our need to define things with conviction, closes us off from possibility.`\
-https://www.nytimes.com/2026/06/27/briefing/natural-selection.html
 

@@ -1,3 +1,7 @@
+**U.S. Officials Said to Be Frustrated With Machado’s Call for Help**\
+`María Corina Machado, the exiled leader of the Venezuelan opposition, hopes to go home. U.S. officials say her wishes to do so come at an inopportune time.`\
+https://www.nytimes.com/2026/06/27/world/americas/us-officials-frustrated-with-exiled-venezuelan-leaders-call-for-help.html
+
 **Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
 `If she reaches the Senate, Ms. Letlow would become the first G.O.P. woman to represent Louisiana in the chamber.`\
 https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
