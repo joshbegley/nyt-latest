@@ -1,3 +1,11 @@
+**Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
+`The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/28/world/middleeast/helicopter-crash-near-major-saudi-oil-refinery-kills-14-people.html
+
+**Five Bright and Summery Recipes for Lazy Vacation Days**\
+`Because vacation is even better when you get to cook.`\
+https://www.nytimes.com/2026/06/28/dining/five-bright-and-summery-recipes-for-lazy-vacation-days.html
+
 **Skydiving Plane Crashes in France, Killing All 11 People Aboard**\
 `Five instructors, five students and a pilot died when the plane crashed on Sunday morning in a field near the northeastern city of Nancy.`\
 https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nancy.html

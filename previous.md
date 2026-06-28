@@ -1,3 +1,11 @@
+**Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
+`The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/28/world/middleeast/helicopter-crash-near-major-saudi-oil-refinery-kills-14-people.html
+
+**Five Bright and Summery Recipes for Lazy Vacation Days**\
+`Because vacation is even better when you get to cook.`\
+https://www.nytimes.com/2026/06/28/dining/five-bright-and-summery-recipes-for-lazy-vacation-days.html
+
 **Skydiving Plane Crashes in France, Killing All 11 People Aboard**\
 `Five instructors, five students and a pilot died when the plane crashed on Sunday morning in a field near the northeastern city of Nancy.`\
 https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nancy.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/28/opinion/ai-race-china-us.html
 **A Mayor Is Taking Maternity Leave in Japan. Some Men Are Furious.**\
 `Shoko Kawata is the first mayor to take maternity leave in Japan’s history. Her decision has prompted debate about gender discrimination in the work force.`\
 https://www.nytimes.com/2026/06/28/world/asia/japan-mayor-maternity-leave.html
-
-**No Corrections: June 28, 2026**\
-`No corrections appeared in print on Sunday, June 18, 2026.`\
-https://www.nytimes.com/2026/06/28/pageoneplus/no-corrections-june-28-2026.html
-
-**Drones Used to Fight Mosquitoes as Dengue Fever Surges in Sri Lanka**\
-`The military has joined the battle against the insects, as an outbreak strains hospitals in a country already reeling from energy shortages caused by the Iran War.`\
-https://www.nytimes.com/2026/06/28/world/asia/sri-lanka-dengue-mosquito-drones-military.html
 
