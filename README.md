@@ -175,7 +175,7 @@ https://www.nytimes.com/2026/06/28/us/iran-eliminated-world-cup.html
 https://www.nytimes.com/es/2026/06/28/espanol/cultura/biblioteca-franklin-libros-sexualidad.html
 
 **Pride March Caps Joyous New York June While Threats Mount**\
-`The annual celebration of the L.G.B.T.Q. community comes as the Trump administration has targeted several New York City hospitals that have provided care for transgender young people.`\
+`The annual celebration of the L.G.B.T.Q. community began Sunday in a city that has been targeted by the Trump administration but also buoyed by optimism in recent weeks.`\
 https://www.nytimes.com/2026/06/28/nyregion/nyc-pride-parade-march.html
 
 **What’s the Hottest Spot in New York for Campaigning? The Club.**\
