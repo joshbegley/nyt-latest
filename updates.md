@@ -1,3 +1,7 @@
+**Chinese Dissident Who Fled by Sea to South Korea Lands in Canada**\
+`Dong Guangping, who reached Toronto on Friday after a decade of failed attempts to escape China, recounted how he traveled by sea to South Korea last month.`\
+https://www.nytimes.com/2026/06/27/world/americas/china-dissident-dong-guangping-canada.html
+
 **Venezuela Live Updates: Chaotic Rush to Help Victims Delays Some Rescues**\
 `A surge of people rushed into the devastated earthquake zone to offer help in northern Venezuela, slowing the advance of emergency responders. The death toll linked to twin quakes earlier in the week surpassed 1,400.`\
 https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake
