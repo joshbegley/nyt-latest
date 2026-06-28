@@ -1,3 +1,35 @@
+**If These Celebrities Are Democracy’s Last Hope, We’re in Trouble**\
+`When speaking up actually means risking something, for once, it is more necessary than ever.`\
+https://www.nytimes.com/2026/06/28/opinion/celebrity-activism-donald-trump.html
+
+**We’re in a Golden Age of Queer Literature**\
+`After decades in which Queer literature was the underdog, it is now publishing’s golden goose.`\
+https://www.nytimes.com/2026/06/28/opinion/gay-lits-gone-mainstream.html
+
+**Beware the Purging of General Donahue**\
+`The dangers of Pete Hegseth are mounting.`\
+https://www.nytimes.com/2026/06/28/opinion/hegseth-donahue-military-purge.html
+
+**Today’s Wordle Hints for June 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/28/crosswords/wordle-review-1836.html
+
+**NYT Strands Hints for June 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/28/crosswords/strands-sidekick-848.html
+
+**NYT Connections Answers for June 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/28/crosswords/connections-companion-1114.html
+
+**Trump’s Science Cuts Betray America’s Past Since Lewis and Clark**\
+`America has funded scientific research since 1804 — and remembers that first project as a national glory. Cutting similar funding today is a betrayal.`\
+https://www.nytimes.com/2026/06/28/opinion/lewis-clark-scientific-research-funding.html
+
+**The Hamptons’ Essential Luxury Good: Human Labor**\
+`The people who want to visit can’t function without the people who have to live there.`\
+https://www.nytimes.com/2026/06/28/opinion/the-hamptons-human-labor.html
+
 **Mideast Live Updates: U.S. and Iran Trade Attacks With Few Signs of De-escalation**\
 `President Trump and Iran’s Revolutionary Guards exchanged threats and U.S. allies in the Gulf said they had intercepted Iranian drones, as hostilities entered a fourth day.`\
 https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/06/27/world/americas/us-officials-frustrated-with-e
 **Rescue Workers and Aid Arrive in Venezuela, Official Says**\
 `More than 1,600 rescue workers have arrived and 25 flights filled with aid will land over the next day in Venezuela after earthquakes devastated the country on Wednesday, according to Venezuela’s vice minister of foreign affairs, Oliver Blanco.`\
 https://www.nytimes.com/video/world/americas/100000010996841/venezuela-earthquake-rescue-workers-aid.html
-
-**A Rush of Volunteers in Venezuela Has Slowed Rescue Efforts**\
-`The outpouring of volunteer aid after Venezuela’s earthquakes clogged the only road into the disaster zone, delaying rescue crews.`\
-https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquake-volunteers-traffic.html
-
-**The Artist Uman’s Technicolor Paintings of Rural Life**\
-`Ahead of a survey exhibition, Uman discusses skipping art-world functions, living on a farm and making work on the floor.`\
-https://www.nytimes.com/2026/06/27/t-magazine/uman-hessel-museum-bard.html
-
-**Michigan Couple Are Charged With Murder After Death of Morbidly Obese Son**\
-`Seven-year-old Casper O’Brien weighed 255 pounds when he died last year. Prosecutors said he was bedridden and subsisted on little more than snack foods.`\
-https://www.nytimes.com/2026/06/27/us/michgan-parents-charged-murder-obesity.html
-
-**Down in the Valley**\
-`Rebecca Goldstein and Christina Iverson’s puzzle posits a sophisticated thesis on the American vernacular.`\
-https://www.nytimes.com/2026/06/27/crosswords/daily-puzzle-2026-06-28.html
-
-**Trump Picks Lance Schroyer as New ICE Director**\
-`The president said he was nominating Lance Schroyer, an adviser to Markwayne Mullin, the D.H.S. secretary, to lead the high-profile agency.`\
-https://www.nytimes.com/2026/06/27/us/politics/trump-oklahoma-ice-director.html
-
-**¿Quién hizo la estatua gigante de Messi en Argentina?**\
-`Mientras Lionel Messi persigue otro título mundial, un artista se apresura a terminar una gigantesca estatua del astro del fútbol en medio del desierto patagónico.`\
-https://www.nytimes.com/es/2026/06/27/espanol/america-latina/estatua-gigante-messi-argentina.html
-
-**12 Hours With Venezuelan Doctors Searching for Earthquake Survivors**\
-`A medical team set out from the capital to rescue people in the hardest-hit part of the disaster zone, La Guaira. They found silence in the ruins instead.`\
-https://www.nytimes.com/2026/06/27/world/americas/venezuela-earthquakes-doctors-rescues.html
-
-**Texas Has a New Way to Teach History: In Chronological Order**\
-`Most states teach history by subject. Texas will go chronologically, starting with ancient history and reaching World War II by seventh grade.`\
-https://www.nytimes.com/2026/06/27/us/texas-teaching-history.html
 
