@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/06/28/opinion/trump-pardons.html
 `We celebrate 50 years of Metropolitan Diary.`\
 https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
 
-**Heat Starts to Break in Western Europe, as Central Europe Begins to Broil**\
+**Heat Wave Starts to Break in Western Europe, as Central Europe Begins to Broil**\
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
 
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/06/28/nyregion/metropolitan-diary.html
 **NYT Spelling Bee Answers for June 28, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/28/crosswords/spelling-bee-forum.html
-
-**China Confirms Death of Pilot Who Flew Small Plane Into Beijing’s Tallest Tower**\
-`The statement came a day after online images showed falling debris and plane parts. Another 13 were injured in the incident five miles from Communist Party headquarters.`\
-https://www.nytimes.com/2026/06/28/world/asia/china-pilot-died-plane-crash-beijing.html
 
