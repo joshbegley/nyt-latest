@@ -1,3 +1,7 @@
+**Heat Wave Starts to Break in Western Europe, as Central Europe Begins to Broil**\
+`After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
+https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
+
 **Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
 `Their bodies were brought by helicopter to a Colorado airport, where their soot-covered comrades drove them to the coroner’s office. Fires are raging in the arid Southwest after a warm winter.`\
 https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado-firefighters-deaths.html
