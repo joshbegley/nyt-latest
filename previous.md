@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/06/27/us/miami-latin-america-world-cup.html
 https://www.nytimes.com/interactive/2026/06/27/nyregion/metropolitan-diary-challenge-day-1.html
 
 **Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
-`If she reaches the Senate, Ms. Letlow would become the first G.O.P. woman to represent Louisiana in the chamber.`\
+`If she reaches the Senate, Ms. Letlow would replace Senator Bill Cassidy and become the first G.O.P. woman to represent Louisiana in the chamber.`\
 https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
 
 **Pro-Transgender Candidate Is Chased From a Trans Rights Event Over Gaza**\

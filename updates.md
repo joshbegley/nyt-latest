@@ -1,3 +1,7 @@
+**Julia Letlow, Lifted by Trump, Wins Republican Senate Runoff in Louisiana**\
+`If she reaches the Senate, Ms. Letlow would replace Senator Bill Cassidy and become the first G.O.P. woman to represent Louisiana in the chamber.`\
+https://www.nytimes.com/2026/06/27/us/louisiana-senate-republican-runoff-results.html
+
 **The City Where Colombia, and Much of Latin America, Plays as the Home Team**\
 `Miami has hosted some of the biggest events in South American and Caribbean sports, including Colombia’s match on Saturday. Brazil and Uruguay have also played World Cup games there.`\
 https://www.nytimes.com/2026/06/27/us/miami-latin-america-world-cup.html
