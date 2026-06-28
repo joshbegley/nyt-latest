@@ -1,3 +1,7 @@
+**‘Supergirl’ Falters at the Box Office, Testing DC Studios’ Reboot**\
+`Overall, ticket sales for the weekend were up 21 percent from last year. But the expensive “Supergirl” debuted as a disappointing second, with an estimated $38 million.`\
+https://www.nytimes.com/2026/06/28/business/media/supergirl-box-office.html
+
 **L.G.B.T.Q. Figures Who Shaped History From the Margins**\
 `Their names may not be familiar, but they helped define queer art, activism and storytelling as we know it today.`\
 https://www.nytimes.com/2026/06/28/us/lgbtq-pride-history-trailblazers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/nyregion/central-park-horse-drawn-carriage-ri
 **‘After About 10 Minutes, a Car Pulled Up to the Traffic Light’**\
 `Friends of Metropolitan Diary, including the writer Candace Bushnell and the actor Ken Leung of “Industry,” share their stories to mark the column’s 50th anniversary.`\
 https://www.nytimes.com/2026/06/28/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for June 28, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/28/crosswords/spelling-bee-forum.html
 
