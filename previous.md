@@ -1,3 +1,7 @@
+**Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
+`The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
+https://www.nytimes.com/2026/06/28/us/three-firefighters-die-as-wildfires-ravage-utah-and-colorado.html
+
 **Dozens of Dogs Join Search for Venezuela Quake Survivors**\
 `Specially trained canines can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
 https://www.nytimes.com/2026/06/28/world/americas/rescue-dogs-canine-units-earthquake-venezuela.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/28/world/asia/sri-lanka-dengue-mosquito-drones-m
 **Quote of the Day: New York’s Dive Bars Have a Rich Past. Do They Have a Future?**\
 `Quotation of the Day for Sunday, June 28, 2026.`\
 https://www.nytimes.com/2026/06/27/pageoneplus/quote-of-the-day-new-yorks-dive-bars-have-a-rich-past-do-they-have-a-future.html
-
-**The City Where Colombia, and Much of Latin America, Plays as the Home Team**\
-`Miami has hosted some of the biggest events in South American and Caribbean sports, including Colombia’s match on Saturday. Brazil and Uruguay have also played World Cup games there.`\
-https://www.nytimes.com/2026/06/27/us/miami-latin-america-world-cup.html
 

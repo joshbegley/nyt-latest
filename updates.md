@@ -1,3 +1,7 @@
+**Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
+`The firefighters died in a blaze in Colorado. Fires have swept the arid border region after a warm winter produced less snow than normal.`\
+https://www.nytimes.com/2026/06/28/us/three-firefighters-die-as-wildfires-ravage-utah-and-colorado.html
+
 **Dozens of Dogs Join Search for Venezuela Quake Survivors**\
 `Specially trained canines can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
 https://www.nytimes.com/2026/06/28/world/americas/rescue-dogs-canine-units-earthquake-venezuela.html
