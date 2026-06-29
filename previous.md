@@ -1,3 +1,11 @@
+**Review: The Choreographer Lucinda Childs’s Persistence of Vision**\
+`“Momentary Reprise,” a program at Bard SummerScape, spanned Childs’s career, showing how she settled on a style in the 1970s and stuck with it.`\
+https://www.nytimes.com/2026/06/29/arts/dance/review-lucinda-childs-bard-summerscape-momentary-reprise.html
+
+**‘No One’s Coming to Save Us but Us’: Gen Z Runs for Office**\
+`Melat Kiros’s challenge Tuesday to Representative Diana DeGette, who was elected the year before Ms. Kiros was born, is the latest Gen Z test in a year defined by generational upheaval.`\
+https://www.nytimes.com/2026/06/29/us/elections/colorado-primary-gen-z.html
+
 **The Court Just Handed Trump a Dangerous New Power**\
 `The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010998713/29vid-venezuela-destruction-75664.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/americas/100000010998704/29vid-man-rescue-64485.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/americas/100000010998695/29vid-laguaira-families-43296.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
