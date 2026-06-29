@@ -142,8 +142,8 @@ https://www.nytimes.com/interactive/2026/06/29/nyregion/malik-beasley-indictment
 `The tennis player once again offered some on-court couture.`\
 https://www.nytimes.com/2026/06/29/style/naomi-osaka-fashion-wimbledon.html
 
-**N.B.A. Player Malik Beasley Charged in Federal Gambling Inquiry**\
-`Mr. Beasley, a former shooting guard for the Detroit Pistons, was among the latest group of people accused in a sweeping case targeting members of the N.B.A.`\
+**N.B.A. Player Malik Beasley Among 6 Charged in Federal Gambling Inquiry**\
+`Mr. Beasley, a former shooting guard for the Detroit Pistons, was accused in a sweeping effort to target illicit sports betting.`\
 https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
 
 **Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assault.html
 
 **Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
-`El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
+`El número de muertos ha subido a 1719 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
 https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
