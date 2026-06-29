@@ -1,3 +1,7 @@
+**Fired F.T.C. Commissioner Warns of Potential for Presidential Abuse of Power**\
+`Rebecca Slaughter said independent agencies like the Federal Trade Commission were created as watchdogs of powerful corporations and that presidents shouldn’t interfere with that.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-ftc-rebecca-slaughter.html
+
 **In Dissents, Some Justices Push Back Against Ruling to Block Trump From Firing Fed Governor Lisa Cook**\
 `A few dissenters cautioned that the majority didn’t allow the legal case over the president’s effort to fire the Fed governor Lisa D. Cook to play out in the lower courts.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-lisa-cook-fed-firing-dissents.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-lisa-cook-fed-firin
 https://www.nytimes.com/2026/06/29/weather/us-heat-wave-forecast.html
 
 **Luigi Mangione’s Federal Trial Delayed Until January**\
-`A federal judge made the postponement to avoid potential conflict with Luigi Mangione’s state trial regarding the assassination of a health insurance executive.`\
+`A judge made the postponement to avoid potential conflict with Luigi Mangione’s state trial regarding the assassination of a health insurance executive.`\
 https://www.nytimes.com/2026/06/29/nyregion/mangione-federal-trial-delay.html
 
 **Alex Murdaugh’s Murder Retrial Tentatively Set for April 2027**\
