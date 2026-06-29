@@ -1,3 +1,7 @@
+**Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
+`A New Zealand Olympian, his small gym in Auckland grew into a worldwide chain.`\
+https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
+
 **Rescatistas hallan en los escombros a un niño de 11 años con vida**\
 `Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
 https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html

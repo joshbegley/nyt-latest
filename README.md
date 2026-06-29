@@ -1,3 +1,7 @@
+**N.B.A. Player Malik Beasley Charged in Federal Gambling Inquiry**\
+`Mr. Beasley, a former shooting guard for the Detroit Pistons, was among the latest group of people accused in a sweeping case targeting members of the N.B.A.`\
+https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
+
 **Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
 `A New Zealand Olympian, his small gym in Auckland grew into a worldwide chain.`\
 https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/29/us/politics/israel-iran-democrats-republicans
 **Whatever You Do in Russia, Don’t Talk About the War**\
 `As Ukraine brings the war home to Russia, officials hesitate to designate shelters and blast sirens, downplaying the conflict’s consequences with euphemisms.`\
 https://www.nytimes.com/2026/06/29/world/europe/russia-ukraine-rhetoric.html
-
-**Fine, Don’t Prosecute President Trump. But Release Jack Smith’s Report.**\
-`Its suppression is highly irregular and disturbing.`\
-https://www.nytimes.com/2026/06/29/opinion/jack-smith-report-trump.html
 
