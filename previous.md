@@ -2,7 +2,7 @@
 `Andy Burnham, who looks set to become prime minister next month, said he would set up a new operation in Manchester called “No. 10 North” to give more funding and control to local leaders.`\
 https://www.nytimes.com/2026/06/29/world/europe/uk-andy-burnham-agenda-speech.html
 
-**Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
+**Ships Pull Back Amid Heightened Risk From Iran-U.S. Strikes**\
 `Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
 
