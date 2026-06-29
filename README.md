@@ -1,3 +1,7 @@
+**Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
+`Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
+
 **France Recorded 1,000 Excess Deaths During Heat Wave, Officials Say**\
 `First estimates published by the national health agency listed hundreds more deaths per day compared with the daily death rate in previous months.`\
 https://www.nytimes.com/2026/06/29/world/europe/france-heat-wave-excess-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/29/world/americas/for-these-teens-soccer-is-life
 **Should I Keep My Mother’s Wedding Gown?**\
 `A reader wonders if it is possible to separate sentiment from style.`\
 https://www.nytimes.com/2026/06/29/fashion/vintage-wedding-gowns-mom.html
-
-**How Cartel Violence Is Infiltrating Local Soccer**\
-`In Salamanca, Mexico, soccer matches are being plagued by violence and deaths in multiple shootings. Our investigative correspondent Maria Abi-Habib reports from the town.`\
-https://www.nytimes.com/video/world/americas/100000010906890/how-cartel-violence-is-infiltrating-local-soccer.html
 
