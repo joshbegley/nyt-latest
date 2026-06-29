@@ -1,3 +1,7 @@
+**Supreme Court Puts Limits on Cellphone Location Data Searches**\
+`The case involved “geofence” searches, which allow law enforcement to find suspects and witnesses by sweeping up location data from cellphones near crime scenes.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-geofence-warrant-cell-phones.html
+
 **Review: The Choreographer Lucinda Childs’s Persistence of Vision**\
 `“Momentary Reprise,” a program at Bard SummerScape, spanned Childs’s career, showing how she settled on a style in the 1970s and stuck with it.`\
 https://www.nytimes.com/2026/06/29/arts/dance/review-lucinda-childs-bard-summerscape-momentary-reprise.html
