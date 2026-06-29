@@ -75,7 +75,7 @@ https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carte
 https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
 
 **How Warsh Has Begun to Change the Fed**\
-`Just weeks into his job as chairman of the Federal Reserve, Kevin M. Warsh has embraced some of the central bank’s conventions while signaling seismic shifts ahead.`\
+`Just over a month into his job as chairman of the Federal Reserve, Kevin M. Warsh has embraced some conventions while signaling seismic shifts ahead.`\
 https://www.nytimes.com/2026/06/29/business/kevin-warsh-federal-reserve-reforms.html
 
 **The Ohio City Revived by Haitian Immigration Sees an Uncertain Future**\
