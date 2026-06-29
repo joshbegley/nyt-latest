@@ -1,3 +1,7 @@
+**Supreme Court Expands Presidential Powers to Fire Independent Regulators**\
+`The Supreme Court ruled 6-3 that President Trump could fire independent regulators for any reason. But the justices carved out an exception for the Federal Reserve, preventing the immediate removal of Lisa D. Cook, a Federal Reserve governor.`\
+https://www.nytimes.com/video/us/politics/100000010998994/trump-supreme-court-rulings-federal-reserve.html
+
 **La ciencia detrás de los alimentos fermentados**\
 `Los investigadores empiezan a comprender cómo alimentos como el kimchi, el yogur y el chucrut influyen en la salud.`\
 https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-beneficios.html
@@ -182,15 +186,11 @@ https://www.nytimes.com/2026/06/29/world/americas/venezuela-earthquake-death-tol
 `The origin of turtles has puzzled scientists. A new study provides more evidence that these shelled reptiles share a common ancestor with crocodiles and birds.`\
 https://www.nytimes.com/2026/06/29/science/turtles-origins-dinosaurs-archosaurs.html
 
-**Getting My Greens With This Satisfying Broccoli Salad**\
-`Blanched, still-warm broccoli florets expertly soak up a miso-ginger dressing in Kay Chun’s recipe.`\
-https://www.nytimes.com/2026/06/29/dining/getting-my-greens-with-this-satisfying-broccoli-salad.html
-
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
 https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power
 
-**World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
+**World Cup Updates: Dozens of Signs in Spanish Help a Team Feel at Home**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 

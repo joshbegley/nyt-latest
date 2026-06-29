@@ -1,3 +1,11 @@
+**La ciencia detrás de los alimentos fermentados**\
+`Los investigadores empiezan a comprender cómo alimentos como el kimchi, el yogur y el chucrut influyen en la salud.`\
+https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-beneficios.html
+
+**Daveigh Chase, ‘Lilo & Stitch’ Voice Actor, Died of AIDS, Officials Say**\
+`Ms. Chase was the voice of Lilo and also played the child villain in the horror film “The Ring.” She died in Los Angeles this month.`\
+https://www.nytimes.com/2026/06/29/movies/daveigh-chase-cause-death-aids.html
+
 **Efforts to Rescue Venezuela Quake Victims Grow More Desperate**\
 `The death toll has risen to over 1,700, which is likely an undercount.`\
 https://www.nytimes.com/2026/06/29/world/americas/efforts-to-rescue-venezuela-quake-victims-grow-more-desperate.html

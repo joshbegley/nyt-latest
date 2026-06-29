@@ -1,3 +1,11 @@
+**La ciencia detrás de los alimentos fermentados**\
+`Los investigadores empiezan a comprender cómo alimentos como el kimchi, el yogur y el chucrut influyen en la salud.`\
+https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-beneficios.html
+
+**Daveigh Chase, ‘Lilo & Stitch’ Voice Actor, Died of AIDS, Officials Say**\
+`Ms. Chase was the voice of Lilo and also played the child villain in the horror film “The Ring.” She died in Los Angeles this month.`\
+https://www.nytimes.com/2026/06/29/movies/daveigh-chase-cause-death-aids.html
+
 **Efforts to Rescue Venezuela Quake Victims Grow More Desperate**\
 `The death toll has risen to over 1,700, which is likely an undercount.`\
 https://www.nytimes.com/2026/06/29/world/americas/efforts-to-rescue-venezuela-quake-victims-grow-more-desperate.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/29/science/turtles-origins-dinosaurs-archosaurs.
 **Getting My Greens With This Satisfying Broccoli Salad**\
 `Blanched, still-warm broccoli florets expertly soak up a miso-ginger dressing in Kay Chun’s recipe.`\
 https://www.nytimes.com/2026/06/29/dining/getting-my-greens-with-this-satisfying-broccoli-salad.html
-
-**Test Your Knowledge of New York’s Algonquin Round Table**\
-`Try this short quiz on Manhattan’s influential “vicious circle” of 20th-century literary wits.`\
-https://www.nytimes.com/interactive/2026/06/29/books/review/round-table-quiz.html
-
-**Read the Indictment of Malik Beasley**\
-`Mr. Beasley, a former shooting guard for the Detroit Pistons, and five others have become the latest people to be caught up in a sweeping N.B.A. gambling investigation by federal prosecutors in Brooklyn.`\
-https://www.nytimes.com/interactive/2026/06/29/nyregion/malik-beasley-indictment.html
 
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
