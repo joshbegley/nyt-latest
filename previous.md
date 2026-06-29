@@ -1,3 +1,15 @@
+**‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\
+`In a rare dissent from the bench, Justice Sonia Sotomayor said that the Supreme Court undid “centuries of political practice,” and that the court concluded that the federal government had been acting in “open defiance of the Constitution.”`\
+https://www.nytimes.com/2026/06/29/us/politics/chaos-will-follow-ruling-allowing-trump-firings-dissent-predicts.html
+
+**New York Unveils $5 Billion Plan to Finish Brooklyn Mega-Development**\
+`The proposal is the latest attempt to complete Atlantic Yards, a project near Downtown Brooklyn that includes building housing over a rail yard. It has been in progress for decades.`\
+https://www.nytimes.com/2026/06/29/nyregion/atlantic-yards-brooklyn-development.html
+
+**In San Francisco’s A.I. Era, Even $180,000 Tech Salaries Are No Longer Enough**\
+`As OpenAI and Anthropic prepare to go public, tech workers making six figures are grousing that they cannot compete with the new A.I. elite. Some doubt they can afford to stay.`\
+https://www.nytimes.com/2026/06/29/technology/san-francisco-tech-salaries.html
+
 **Today, In Short**\
 `Gracie Abrams. Italian vacations. And the latest from the Supreme Court.`\
 https://www.nytimes.com/2026/06/29/briefing/today-in-short.html
@@ -174,19 +186,7 @@ https://www.nytimes.com/2026/06/29/podcasts/the-headlines/survivors-venezuela-fi
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
 https://www.nytimes.com/2026/06/29/crosswords/wordle-review-1837.html
 
-**NYT Strands Hints for June 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
-https://www.nytimes.com/2026/06/29/crosswords/strands-sidekick-849.html
-
-**NYT Connections Answers for June 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
-https://www.nytimes.com/2026/06/29/crosswords/connections-companion-1115.html
-
-**Pakistan Attacks Afghanistan, Killing More Than 30**\
-`The Taliban said that airstrikes left 36 civilians dead, while Pakistan claimed that its assault killed 32 militants, the latest in a monthslong conflict.`\
-https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
-
-**Para estos adolescentes, el fútbol lo es todo. Ahora, los cárteles quieren meterse al juego**\
-`En Celaya, México, los cárteles locales han convertido las canchas de fútbol en sangrientos campos de batalla al hacer de una liga local para adolescentes su última apuesta empresarial.`\
-https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carteles-futbol.html
+**World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 

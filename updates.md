@@ -1,3 +1,19 @@
+**‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\
+`In a rare dissent from the bench, Justice Sonia Sotomayor said that the Supreme Court undid “centuries of political practice,” and that the court concluded that the federal government had been acting in “open defiance of the Constitution.”`\
+https://www.nytimes.com/2026/06/29/us/politics/chaos-will-follow-ruling-allowing-trump-firings-dissent-predicts.html
+
+**New York Unveils $5 Billion Plan to Finish Brooklyn Mega-Development**\
+`The proposal is the latest attempt to complete Atlantic Yards, a project near Downtown Brooklyn that includes building housing over a rail yard. It has been in progress for decades.`\
+https://www.nytimes.com/2026/06/29/nyregion/atlantic-yards-brooklyn-development.html
+
+**In San Francisco’s A.I. Era, Even $180,000 Tech Salaries Are No Longer Enough**\
+`As OpenAI and Anthropic prepare to go public, tech workers making six figures are grousing that they cannot compete with the new A.I. elite. Some doubt they can afford to stay.`\
+https://www.nytimes.com/2026/06/29/technology/san-francisco-tech-salaries.html
+
+**World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Today, In Short**\
 `Gracie Abrams. Italian vacations. And the latest from the Supreme Court.`\
 https://www.nytimes.com/2026/06/29/briefing/today-in-short.html

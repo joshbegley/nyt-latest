@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
 `Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
 https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
 
-**Supreme Court Expands Presidential Power to Fire Officials, but Blocks Dismissal of Fed Governor for Now**\
-`In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
+**Supreme Court Expands Trump’s Power to Fire Officials, but Blocks Fed Governor Dismissal**\
+`In twin rulings, the justices said President Trump could fire independent regulators for any reason. But they affirmed the Fed’s independence, and said its leaders could not be fired at will.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-independent-regulator-firings.html
 
 **‘Heat Dome’ Grips Eastern Europe**\
@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
 `President Trump had asked the justices to intervene after a jury found that he had sexually abused and defamed the writer E. Jean Carroll.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assault.html
 
-**5 Killed in Shooting at Youth Center in Northern Germany, Police Say**\
+**6 Killed in Shooting at Youth Center in Northern Germany, Police Say**\
 `The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
 https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
 
