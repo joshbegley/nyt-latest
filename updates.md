@@ -1,3 +1,31 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998713/29vid-venezuela-destruction-75664.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998704/29vid-man-rescue-64485.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998695/29vid-laguaira-families-43296.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998692/29vid-laguaira-building-16214.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998685/29vid-loscocos-drone-81516.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998678/29vid-laguaira-drone-57583.html
+
+**Oil Prices Rise as U.S. and Iran Discuss Deal to Suspend Attacks in Gulf**\
+`Oil prices edged higher after an American official said the U.S. and Iran had agreed to halt attacks in a key shipping lane, raising hopes that hostilities would not escalate.`\
+https://www.nytimes.com/2026/06/29/business/oil-gas-price-iran.html
+
 **Migration Woes**\
 `We look into the anti-immigrant movement in South Africa.`\
 https://www.nytimes.com/2026/06/29/briefing/south-africa-immigration.html
