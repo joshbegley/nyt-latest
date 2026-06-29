@@ -1,3 +1,7 @@
+**In Peru’s Presidential Election, Keiko Fujimori Gives the Right in Latin America Another Win**\
+`Keiko Fujimori, a daughter of the former strongman Alberto Fujimori, returns her family’s movement to power, but with a narrow victory in a divided country.`\
+https://www.nytimes.com/2026/06/29/world/americas/peru-presidential-election-keiko-fujimori-conservative.html
+
 **Antes de los terremotos en Venezuela, millones recibieron alertas en sus celulares**\
 `Un sistema de detección sísmica basado en teléfonos celulares identificó dos terremotos en Venezuela y envió advertencias tempranas a usuarios en la región, incluso antes de que se sintieran con toda su intensidad.`\
 https://www.nytimes.com/es/interactive/2026/06/29/espanol/america-latina/venezuela-alerta-sismo-celulares-android.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-citizenship-voting-
 **Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
 `President Trump promised to “take appropriate action immediately” against Lisa Cook, the Fed governor he had tried to fire, even as the court affirmed that Fed officials can be fired only for cause.`\
 https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
-
-**‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\
-`In a rare dissent from the bench, Justice Sonia Sotomayor said that the Supreme Court undid “centuries of political practice,” and that the court concluded that the federal government had been acting in “open defiance of the Constitution.”`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-firings-dissent.html
 
