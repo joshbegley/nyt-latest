@@ -1,3 +1,11 @@
+**Supreme Court Upholds Mississippi Late-Arriving Mail-In Ballot Law**\
+`The justices had been asked to examine the legality of the state’s grace period for late-arriving mail-in ballots.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-late-mail-ballots.html
+
+**$22,000 Per Hour: Assistants Use a Legislative Loophole to Outearn Surgeons**\
+`A law meant to end surprise medical billing has led to large paydays for some surgical assistants, who can earn far more than the doctors they help.`\
+https://www.nytimes.com/2026/06/29/upshot/assistant-surgeons-loophole-pay.html
+
 **Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
 `El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
 https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto

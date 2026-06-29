@@ -1,3 +1,11 @@
+**Supreme Court Upholds Mississippi Late-Arriving Mail-In Ballot Law**\
+`The justices had been asked to examine the legality of the state’s grace period for late-arriving mail-in ballots.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-late-mail-ballots.html
+
+**$22,000 Per Hour: Assistants Use a Legislative Loophole to Outearn Surgeons**\
+`A law meant to end surprise medical billing has led to large paydays for some surgical assistants, who can earn far more than the doctors they help.`\
+https://www.nytimes.com/2026/06/29/upshot/assistant-surgeons-loophole-pay.html
+
 **¿Hay alguien vivo? 12 horas con médicos venezolanos en la zona del desastre**\
 `Un equipo médico partió de la capital para rescatar a la gente en la zona más afectada por el desastre, La Guaira. En cambio, lo que encontraron fue silencio entre las ruinas.`\
 https://www.nytimes.com/es/2026/06/29/espanol/medicos-desastre-la-guaira.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/29/movies/best-movies-2026.html
 **This Baker’s Business Is Booming (and It’s Not Just Because of the Cannon Fire)**\
 `Justin Cherry’s breads are in demand this semiquincentennial, as is his knowledge of historical baking methods.`\
 https://www.nytimes.com/2026/06/29/dining/justin-cherry-half-crown-bakehouse.html
-
-**Little Island Significantly Scales Back Its Summer Schedule**\
-`The artistic director said Barry Diller, the former Hollywood magnate who provides the bulk of the park’s funding, “wants to take programming in a different direction.”`\
-https://www.nytimes.com/2026/06/29/arts/music/little-island-schedule-performances-concerts.html
-
-**Running an Errand in Brooklyn, He Discovered Ditmas Park**\
-`Randell Pearson first saw the neighborhood when he was 18. He eventually was able to rent an apartment there, and 44 years later, he hasn’t left.`\
-https://www.nytimes.com/2026/06/29/realestate/ditmas-park-rent-control-apartment.html
 
