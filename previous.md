@@ -1,3 +1,7 @@
+**The Winners of Our 9th Annual Student Podcast Contest**\
+`We invited teenagers to create an original five-minute podcast about almost anything. Listen to the winning entries selected from 1,400 submissions.`\
+https://www.nytimes.com/2026/06/29/learning/the-winners-of-our-9th-annual-student-podcast-contest.html
+
 **Fired F.T.C. Commissioner Warns of Potential for Presidential Abuse of Power**\
 `Rebecca Slaughter said independent agencies like the Federal Trade Commission were created as watchdogs of powerful corporations and that presidents shouldn’t interfere with that.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-ftc-rebecca-slaughter.html
@@ -138,8 +142,8 @@ https://www.nytimes.com/interactive/2026/06/29/nyregion/malik-beasley-indictment
 `The tennis player once again offered some on-court couture.`\
 https://www.nytimes.com/2026/06/29/style/naomi-osaka-fashion-wimbledon.html
 
-**N.B.A. Player Malik Beasley Charged in Federal Gambling Inquiry**\
-`Mr. Beasley, a former shooting guard for the Detroit Pistons, was among the latest group of people accused in a sweeping case targeting members of the N.B.A.`\
+**N.B.A. Player Malik Beasley Among 6 Charged in Federal Gambling Inquiry**\
+`Mr. Beasley, a former shooting guard for the Detroit Pistons, was accused in a sweeping effort to target illicit sports betting.`\
 https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
 
 **Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
@@ -182,12 +186,8 @@ https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
 `President Trump had asked the justices to intervene after a jury found that he had sexually abused and defamed the writer E. Jean Carroll.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assault.html
 
-**6 Killed in Shooting at Youth Center in Northern Germany, Police Say**\
-`The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
-https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
-
 **Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
-`El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
+`El número de muertos ha subido a 1719 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
 https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\

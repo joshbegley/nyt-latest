@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-roy-moore.html
 `The case could open the door to stricter registration requirements at a time when President Trump has been pushing for them.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-citizenship-voting-arizona.html
 
-**Trump Renews Threat to Fire Fed Governor in Wake of Court Loss**\
+**Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
 `The president promised to “take appropriate action immediately” against Lisa D. Cook, a Fed governor.`\
 https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
 
