@@ -1,3 +1,7 @@
+**The President Is Now ‘Unitary.’ Two Scholars Debate What That Means.**\
+`Two legal scholars deconstruct a big court decision long in the making.`\
+https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
+
 **Abuse Survivors Reach $395 Million Deal With S.F. Diocese, Lawyers Say**\
 `Lawyers for the victims said the Archdiocese of San Francisco had agreed to pay the money to settle about 530 claims from people who said they were sexually abused by clergy members.`\
 https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
