@@ -1,3 +1,11 @@
+**The Supreme Court Handed Presidents Vast Power to Fire Key Officials. Were the Justices Right?**\
+`Two legal scholars deconstruct a big court decision long in the making.`\
+https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
+
+**The Supreme Court Just Handed Trump a Dangerous New Power**\
+`The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
+https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
+
 **Inmates Take Guards Hostage in Hourslong Standoff at North Carolina Jail**\
 `The authorities have not yet explained what led to the takeover, which ended Monday afternoon after unspecified negotiations.`\
 https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html

@@ -1,3 +1,7 @@
+**The Supreme Court Handed Presidents Vast Power to Fire Key Officials. Were the Justices Right?**\
+`Two legal scholars deconstruct a big court decision long in the making.`\
+https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
+
 **Inmates Take Guards Hostage in Hourslong Standoff at North Carolina Jail**\
 `The authorities have not yet explained what led to the takeover, which ended Monday afternoon after unspecified negotiations.`\
 https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/06/29/arts/dance/review-lucinda-childs-bard-summers
 `Melat Kiros’s challenge Tuesday to Representative Diana DeGette, who was elected the year before Ms. Kiros was born, is the latest Gen Z test in a year defined by generational upheaval.`\
 https://www.nytimes.com/2026/06/29/us/elections/colorado-primary-gen-z.html
 
-**The Court’s Hypocrisy**\
+**The Supreme Court Just Handed Trump a Dangerous New Power**\
 `The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/29/upshot/assistant-surgeons-loophole-pay.html
 **¿Hay alguien vivo? 12 horas con médicos venezolanos en la zona del desastre**\
 `Un equipo médico partió de la capital para rescatar a la gente en la zona más afectada por el desastre, La Guaira. En cambio, lo que encontraron fue silencio entre las ruinas.`\
 https://www.nytimes.com/es/2026/06/29/espanol/medicos-desastre-la-guaira.html
-
-**Voters Think A.I. Is Terrible. In Campaigns, It’s Everywhere.**\
-`A.I.-generated images are the public face of this election overhaul. Behind the scenes, campaigns are using the technology to analyze voter data, craft campaign materials and write custom messages.`\
-https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
 
 **Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
 `El número de muertos ha subido a 1719 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
