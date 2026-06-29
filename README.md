@@ -1,3 +1,7 @@
+**France Recorded 1,000 Excess Deaths During Heat Wave, Officials Say**\
+`First estimates published by the national health agency listed hundreds more deaths per day compared with the daily death rate in previous months.`\
+https://www.nytimes.com/2026/06/29/world/europe/france-heat-wave-excess-deaths.html
+
 **Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
 `The death toll has risen to 1,450 people, according to the Venezuelan government, but the actual count is expected to be much higher.`\
 https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/29/fashion/vintage-wedding-gowns-mom.html
 **How Cartel Violence Is Infiltrating Local Soccer**\
 `In Salamanca, Mexico, soccer matches are being plagued by violence and deaths in multiple shootings. Our investigative correspondent Maria Abi-Habib reports from the town.`\
 https://www.nytimes.com/video/world/americas/100000010906890/how-cartel-violence-is-infiltrating-local-soccer.html
-
-**Bed-and-Breakfasts Vs. Airbnb**\
-`Traditional bed-and-breakfast inns are doubling down on unique décor, personalized service and flexible policies, as they seek to distinguish themselves from vacation rentals.`\
-https://www.nytimes.com/2026/06/29/travel/bed-and-breakfasts-versus-airbnbs.html
 
