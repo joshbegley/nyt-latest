@@ -1,3 +1,11 @@
+**Quote of the Day: Venezuelan Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
+`Quotation of the Day for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/29/pageoneplus/quote-of-the-day-venezuelan-civilians-fill-the-gaps-one-grain-of-sand-at-a-time.html
+
+**NYT Spelling Bee Answers for June 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/29/crosswords/spelling-bee-forum.html
+
 **Metropolitan Diary Challenge Day 2: How to Write Your N.Y. Story**\
 `We want to help you craft your own Metropolitan Diary entry. Here are some tips for turning a special New York memory into a great story.`\
 https://www.nytimes.com/interactive/2026/06/28/nyregion/metropolitan-diary-challenge-day-2.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/06/28/us/2025lutnick-and-dfc-letters.ht
 **Delcy Rodriguez, Venezuela’s President, Is Accused of Politicizing Earthquake Relief**\
 `Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
 https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html
-
-**The Elite Conservatives Trying to Revive ‘Western Civilization’**\
-`Most Americans have heard of Christian nationalism, according to Pew. Soon, they may be hearing about Christian civilizationism.`\
-https://www.nytimes.com/2026/06/28/briefing/the-elite-conservatives-trying-to-revive-western-civilization.html
-
-**‘The Bear’ Season 5 Recap: What Worked? What Lingers?**\
-`The final season was in many ways a recapitulation of the whole series. Here’s a look at where Carmy, Syd and the rest of the gang wound up.`\
-https://www.nytimes.com/2026/06/28/arts/television/the-bear-season-5-recap.html
 
