@@ -1,3 +1,11 @@
+**Supreme Court Expands Trump’s Power to Fire Officials, but Blocks Fed Governor Dismissal**\
+`In twin rulings, the justices said President Trump could fire independent regulators for any reason. But they affirmed the Fed’s independence, and said its leaders could not be fired at will.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-independent-regulator-firings.html
+
+**6 Killed in Shooting at Youth Center in Northern Germany, Police Say**\
+`The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
+https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
+
 **‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\
 `In a rare dissent from the bench, Justice Sonia Sotomayor said that the Supreme Court undid “centuries of political practice,” and that the court concluded that the federal government had been acting in “open defiance of the Constitution.”`\
 https://www.nytimes.com/2026/06/29/us/politics/chaos-will-follow-ruling-allowing-trump-firings-dissent-predicts.html
