@@ -10,9 +10,9 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assaul
 `The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
 https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
 
-**En una morgue en Caracas, familias y autoridades intentan identificar a más de 100 víctimas**\
-`El proceso resulta difícil porque muchas personas quedaron gravemente aplastadas bajo los edificios derrumbados.`\
-https://www.nytimes.com/es/2026/06/29/espanol/morgue-caracas-cuerpos.html
+**Venezuela en vivo: la búsqueda de sobrevivientes sigue mientras la esperanza decae**\
+`El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
+https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto
 
 **Terremotos en Venezuela: así es la búsqueda de sobrevivientes**\
 `Los voluntarios de un barrio de clase media de Caracas usaron taladros, picos y mazos para romper el hormigón, intentando encontrar a alguien que necesitara ser rescatado.`\
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/06/29/nyregion/sprucing-up-a-magical-mysterious-par
 **Did American-Style ‘Gentle Parenting’ Spoil French Children?**\
 `As positive parenting takes over France, one psychologist’s call for a return to discipline has set off a furious debate.`\
 https://www.nytimes.com/2026/06/29/magazine/american-parenting-french-children.html
-
-**Berkeley Will Start Institute Named for Pelosi**\
-`The Trump administration has been scrutinizing the University of California, Berkeley, which insists its new program will be a nonpartisan venture.`\
-https://www.nytimes.com/2026/06/29/us/berkeley-pelosi-democracy.html
 
