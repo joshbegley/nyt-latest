@@ -1,3 +1,11 @@
+**Supreme Court to Weigh if Arizona Can Demand Proof of Citizenship to Vote**\
+`The case could open the door to stricter registration requirements at a time when President Trump has been pushing for them.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-citizenship-voting-arizona.html
+
+**Trump Renews Threat to Fire Fed Governor in Wake of Court Loss**\
+`The president promised to “take appropriate action immediately” against Lisa D. Cook, a Fed governor.`\
+https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
+
 **‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\
 `In a rare dissent from the bench, Justice Sonia Sotomayor said that the Supreme Court undid “centuries of political practice,” and that the court concluded that the federal government had been acting in “open defiance of the Constitution.”`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-firings-dissent.html
