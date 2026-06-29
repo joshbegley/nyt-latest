@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/29/us/what-to-know-wildfires-colorado-utah-arizo
 `The Supreme Court ruled on Monday that state laws allowing ballots to arrive after Election Day are legal. The decision is the latest in a series of setbacks for President Trump’s efforts to regulate elections.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-mail-ballots-grace-period.html
 
-**The Supreme Court Handed Presidents Vast Power to Fire Key Officials. Were the Justices Right?**\
+**The President Is Now ‘Unitary.’ Two Scholars Debate What That Means.**\
 `Two legal scholars deconstruct a big court decision long in the making.`\
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
 

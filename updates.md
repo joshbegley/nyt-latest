@@ -1,3 +1,23 @@
+**Abuse Survivors Reach $395 Million Deal With S.F. Diocese, Lawyers Say**\
+`Lawyers for the victims said the Archdiocese of San Francisco had agreed to pay the money to settle about 530 claims from people who said they were sexually abused by clergy members.`\
+https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
+
+**Colorado Supreme Court Rejects Democratic Redistricting Plans**\
+`The state’s high court found that ballot initiatives designed to change state law to install a newly gerrymandered map violated Colorado law.`\
+https://www.nytimes.com/2026/06/29/us/politics/colorado-supreme-court-rejects-democratic-redistricting-plans.html
+
+**What to Know About Wildfires in Colorado and Other Western States**\
+`Thousands of acres in Utah and other Western states have burned. Here is what to know about the firefighters who have died, the destruction so far and the spreading smoke.`\
+https://www.nytimes.com/2026/06/29/us/what-to-know-wildfires-colorado-utah-arizona-new-mexico-nevada.html
+
+**Supreme Court Decision on Late-Arriving Mail-In Ballots Grants Relief to 18 States**\
+`The Supreme Court ruled on Monday that state laws allowing ballots to arrive after Election Day are legal. The decision is the latest in a series of setbacks for President Trump’s efforts to regulate elections.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-mail-ballots-grace-period.html
+
+**Justices Expand Presidential Power Over Regulators, but Not the Fed**\
+`In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
+https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power
+
 **The Supreme Court Handed Presidents Vast Power to Fire Key Officials. Were the Justices Right?**\
 `Two legal scholars deconstruct a big court decision long in the making.`\
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
