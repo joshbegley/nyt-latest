@@ -1,3 +1,7 @@
+**Migration Woes**\
+`We look into the anti-immigrant movement in South Africa.`\
+https://www.nytimes.com/2026/06/29/briefing/south-africa-immigration.html
+
 **Comcast to Spin Off NBCUniversal Into Separate Company**\
 `The media business, which owns NBC News, Universal Pictures and the Peacock streaming service, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
 https://www.nytimes.com/2026/06/29/business/comcast-nbcuniversal-spinoff.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/29/learning/word-of-the-day-lassitude.html
 **Cross-Tabs: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
 `Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-crosstabs.html
-
-**Toplines: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
-`Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
-https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-toplines.html
 
