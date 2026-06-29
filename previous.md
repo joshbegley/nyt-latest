@@ -126,8 +126,8 @@ https://www.nytimes.com/2026/06/29/us/electric-forest-festival-baby-dead.html
 `The Ethics Committee told Senator Ruben Gallego it had dismissed allegations he engaged in sexual misconduct and campaign finance violations.`\
 https://www.nytimes.com/2026/06/29/us/politics/ruben-gallego-ethics-committee-misconduct-allegations.html
 
-**Sex Abuse Survivors Reach $395 Million Deal With San Francisco Diocese**\
-`The Archdiocese of San Francisco and lawyers for the survivors said the money would settle about 530 claims from people who said they were sexually abused by clergy members.`\
+**Sex Abuse Survivors Reach $395 Million Settlement With San Francisco Diocese**\
+`The Archdiocese of San Francisco and lawyers for the survivors said the settlement, which needs final approval, would resolve about 530 claims from people who said they were sexually abused by clergy members.`\
 https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
 
 **Colorado Supreme Court Rejects Democratic Redistricting Plans**\

@@ -1,3 +1,7 @@
+**Sex Abuse Survivors Reach $395 Million Settlement With San Francisco Diocese**\
+`The Archdiocese of San Francisco and lawyers for the survivors said the settlement, which needs final approval, would resolve about 530 claims from people who said they were sexually abused by clergy members.`\
+https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
+
 **Two Dan Sullivans to Appear on Alaska Senate Ballot, State High Court Rules**\
 `Republicans had sought the removal of a little-known candidate with the same name as the incumbent senator, arguing that he was not a “good faith” candidate.`\
 https://www.nytimes.com/2026/06/29/us/politics/alaska-dan-sullivan-senate-ballot.html
