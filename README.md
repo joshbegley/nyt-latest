@@ -1,3 +1,7 @@
+**Rescuers Find Earthquake Survivors as Critical Window Closes**\
+`An 11-year-old boy was rescued from the rubble of Venezuela’s twin earthquakes as the window to find survivors was closing. The country’s president said operations would continue.`\
+https://www.nytimes.com/video/world/americas/100000010998526/venezuela-earthquake-survivors-rescue.html
+
 **Making New Friends Is Hard. These Social Clubs Want to Make It Easier.**\
 `A new type of event aims to forge connection despite hectic schedules, exhaustion and a plethora of other social options.`\
 https://www.nytimes.com/2026/06/29/nyregion/nyc-lonely-making-friends.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/crosswords/connections-companion-1114.html
 **Trump’s Science Cuts Betray America’s Past Since Lewis and Clark**\
 `America has funded scientific research since 1804 — and remembers that first project as a national glory. Cutting similar funding today is a betrayal.`\
 https://www.nytimes.com/2026/06/28/opinion/lewis-clark-scientific-research-funding.html
-
-**The Hamptons’ Essential Luxury Good: Human Labor**\
-`The people who want to visit can’t function without the people who have to live there.`\
-https://www.nytimes.com/2026/06/28/opinion/the-hamptons-human-labor.html
 
