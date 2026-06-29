@@ -1,3 +1,7 @@
+**Comcast to Spin Off NBCUniversal Into Separate Company**\
+`The media business, which owns NBC News, Universal Pictures and the Peacock streaming service, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
+https://www.nytimes.com/2026/06/29/business/comcast-nbcuniversal-spinoff.html
+
 **Pochettino’s Contract Extension Offer, and the Start of the Knockouts**\
 `Will the USMNT secure the services of their incumbent but in-demand head coach beyond this World Cup?`\
 https://www.nytimes.com/2026/06/29/podcasts/pochettino-contract-extension-offer-usmnt-world-cup-knockouts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-
 **Toplines: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
 `Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-toplines.html
-
-**Rescuers Find Earthquake Survivors as Critical Window Closes**\
-`An 11-year-old boy was rescued from the rubble of Venezuela’s twin earthquakes as the window to find survivors was closing. The country’s president said operations would continue.`\
-https://www.nytimes.com/video/world/americas/100000010998526/venezuela-earthquake-survivors-rescue.html
 
