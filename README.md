@@ -1,3 +1,7 @@
+**Andy Burnham, the UK’s Likely Next Prime Minister, Promises Shift of Power Out of London**\
+`Andy Burnham, who looks set to become prime minister next month, said he would set up a new operation in Manchester called “No. 10 North” to give more funding and control to local leaders.`\
+https://www.nytimes.com/2026/06/29/world/europe/uk-andy-burnham-agenda-speech.html
+
 **Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
 `Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
@@ -74,8 +78,8 @@ https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
 `En Celaya, México, los cárteles locales han convertido las canchas de fútbol en sangrientos campos de batalla al hacer de una liga local para adolescentes su última apuesta empresarial.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carteles-futbol.html
 
-**Mideast Live Updates: U.S. and Iran Set for New Talks in Qatar, Officials Say**\
-`The discussions could take place as soon as Tuesday after the two sides agreed to halt the latest cycle of attacks. Iran did not confirm the talks but said consultations with Qatar were continuing.`\
+**Mideast Live Updates: U.S. and Iran Set for New Talks in Qatar, Trump Says**\
+`President Trump said the discussions would take place on Tuesday, after the United States and Iran exchanged strikes over the weekend. Iran did not confirm the talks but said consultations with Qatar were continuing.`\
 https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
 
 **How Warsh Has Begun to Change the Fed**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/29/realestate/washington-state-redlining-covenan
 **For These Teens in Mexico, Soccer Is Life. Now, the Cartels Want In.**\
 `In Celaya, Mexico, local cartels have turned soccer fields into bloody battlefields as they have co-opted a local league for teenagers as their latest business endeavor.`\
 https://www.nytimes.com/2026/06/29/world/americas/for-these-teens-soccer-is-life-now-the-cartels-want-in.html
-
-**Should I Keep My Mother’s Wedding Gown?**\
-`A reader wonders if it is possible to separate sentiment from style.`\
-https://www.nytimes.com/2026/06/29/fashion/vintage-wedding-gowns-mom.html
 

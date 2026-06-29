@@ -1,3 +1,7 @@
+**Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
+`Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
+
 **Mideast Live Updates: U.S. and Iran Set for New Talks in Qatar, Officials Say**\
 `The discussions could take place as soon as Tuesday after the two sides agreed to halt the latest cycle of attacks. Iran did not confirm the talks but said consultations with Qatar were continuing.`\
 https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
