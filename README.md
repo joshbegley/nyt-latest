@@ -1,3 +1,11 @@
+**Efforts to Rescue Venezuela Quake Victims Grow More Desperate**\
+`The death toll has risen to over 1,700, which is likely an undercount.`\
+https://www.nytimes.com/2026/06/29/world/americas/efforts-to-rescue-venezuela-quake-victims-grow-more-desperate.html
+
+**Clash Unfolds as Trump Administration Pushes Intelligence Agencies to Share Foreign Espionage Targets**\
+`The clash reflects increasing skepticism of the Office of the Director of National Intelligence, which has been willing to pursue President Trump’s priorities.`\
+https://www.nytimes.com/2026/06/29/us/trump-intelligence-agencies-spies-master-list.html
+
 **En Venezuela, comienzan los funerales de las víctimas de los terremotos**\
 `Los venezolanos empezaron a enterrar a algunas de las más de 1700 víctimas de los sismos de la semana pasada, y comparten historias de pérdidas inimaginables.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-funerales.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/2026/06/29/books/review/round-table-quiz.htm
 **Read the Indictment of Malik Beasley**\
 `Mr. Beasley, a former shooting guard for the Detroit Pistons, and five others have become the latest people to be caught up in a sweeping N.B.A. gambling investigation by federal prosecutors in Brooklyn.`\
 https://www.nytimes.com/interactive/2026/06/29/nyregion/malik-beasley-indictment.html
-
-**Naomi Osaka Serves Up a Fashion Slam at Wimbledon**\
-`The tennis player once again offered some on-court couture.`\
-https://www.nytimes.com/2026/06/29/style/naomi-osaka-fashion-wimbledon.html
-
-**N.B.A. Player Malik Beasley Among 6 Charged in Federal Gambling Inquiry**\
-`Mr. Beasley, a former shooting guard for the Detroit Pistons, was accused in a sweeping effort to target illicit sports betting.`\
-https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
 
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
