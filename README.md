@@ -1,3 +1,11 @@
+**How the Wildfires in Colorado and Utah Were Poised to Spark**\
+`Since last week, meteorologists issued a series of increasingly dire warnings about extremely critical weather conditions.`\
+https://www.nytimes.com/2026/06/29/weather/utah-colorado-fire-drought.html
+
+**Mamdani Nears Deal to Resolve Budget Fight Over Housing Vouchers**\
+`The dispute between Mayor Zohran Mamdani and his occasional rival, City Council Speaker Julie Menin, has held up passage of New York City’s $125 billion budget.`\
+https://www.nytimes.com/2026/06/29/nyregion/budget-mamdani-housing-cityfheps.html
+
 **Trump on Legislation to Address the Nation’s Housing Crisis: ‘It’s a Yawn’**\
 `Time and again, President Trump has brushed off Americans’ concerns about the economy and their financial situations.`\
 https://www.nytimes.com/2026/06/29/us/politics/trump-housing-bill.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.h
 **Reflections on an Imperfect America at 250**\
 `Readers respond to the Sunday Opinion section on what America gets right. Also: President Trump on a $250 bill; aid for immigrants.`\
 https://www.nytimes.com/2026/06/29/opinion/trump-america-250.html
-
-**NASA Aims to Catch a Falling Space Telescope and Push It Back Up**\
-`A rescue mission will soon be underway for NASA’s Swift telescope.`\
-https://www.nytimes.com/2026/06/29/science/nasa-falling-space-telescope-swift.html
-
-**La cifra total de víctimas de los terremotos en Venezuela podría saberse en semanas**\
-`Los expertos señalaron varios indicios de la letalidad de los dos terremotos, como el número de personas desaparecidas y la magnitud de los daños en los edificios.`\
-https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-muertos.html
 
