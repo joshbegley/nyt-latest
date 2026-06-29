@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/06/29/style/naomi-osaka-fashion-wimbledon.html
 `Mr. Beasley, a former shooting guard for the Detroit Pistons, was accused in a sweeping effort to target illicit sports betting.`\
 https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
 
-**Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
-`A New Zealand Olympian, he started a small gym in Auckland that grew into a worldwide chain.`\
-https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
-
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
 https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power

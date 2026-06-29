@@ -1,3 +1,11 @@
+**En Venezuela, comienzan los funerales de las víctimas de los terremotos**\
+`Los venezolanos empezaron a enterrar a algunas de las más de 1700 víctimas de los sismos de la semana pasada, y comparten historias de pérdidas inimaginables.`\
+https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-funerales.html
+
+**Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
+`A New Zealand Olympian, he started a small gym in Auckland that grew into a worldwide chain.`\
+https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
+
 **Cómo Rusia intenta ocultar los efectos de la guerra**\
 `Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
 https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
