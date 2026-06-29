@@ -1,3 +1,11 @@
+**Andy Burnham, the UK’s Likely Next Prime Minister, Promises Shift of Power Out of London**\
+`Andy Burnham, who looks set to become prime minister next month, said he would set up a new operation in Manchester called “No. 10 North” to give more funding and control to local leaders.`\
+https://www.nytimes.com/2026/06/29/world/europe/uk-andy-burnham-agenda-speech.html
+
+**Mideast Live Updates: U.S. and Iran Set for New Talks in Qatar, Trump Says**\
+`President Trump said the discussions would take place on Tuesday, after the United States and Iran exchanged strikes over the weekend. Iran did not confirm the talks but said consultations with Qatar were continuing.`\
+https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
+
 **Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
 `Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
