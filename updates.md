@@ -1,3 +1,15 @@
+**Even Absent, Trump Takes the Spotlight at a Night Celebrating Bill Maher**\
+`What the politician and the comic have in common became clear at the Mark Twain Prize ceremony, where the winner was called “underrated.”`\
+https://www.nytimes.com/2026/06/29/arts/television/bill-maher-trump-mark-twain-prize-kennedy-center.html
+
+**See How the Makeup of Independent Agencies Has Changed Under Trump**\
+`Even before the Supreme Court granted him more power to fire officials, President Trump had effectively ended Democratic majorities at several agencies.`\
+https://www.nytimes.com/2026/06/29/us/politics/independent-agencies-trump.html
+
+**Supreme Court Expands Presidential Power to Fire Officials, but Blocks Dismissal of Fed Governor for Now**\
+`In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-independent-regulator-firings.html
+
 **Read the Supreme Court’s Decision to Expand Presidential Power Over Regulators**\
 `The Supreme Court expanded President Trump’s power to fire independent government regulators, but said Federal Reserve officials could not be fired at will.`\
 https://www.nytimes.com/interactive/2026/06/29/us/politics/supreme-court-decision-trump-presidential-power-slaughter.html

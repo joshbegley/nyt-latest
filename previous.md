@@ -1,3 +1,11 @@
+**Even Absent, Trump Takes the Spotlight at a Night Celebrating Bill Maher**\
+`What the politician and the comic have in common became clear at the Mark Twain Prize ceremony, where the winner was called “underrated.”`\
+https://www.nytimes.com/2026/06/29/arts/television/bill-maher-trump-mark-twain-prize-kennedy-center.html
+
+**See How the Makeup of Independent Agencies Has Changed Under Trump**\
+`Even before the Supreme Court granted him more power to fire officials, President Trump had effectively ended Democratic majorities at several agencies.`\
+https://www.nytimes.com/2026/06/29/us/politics/independent-agencies-trump.html
+
 **Read the Supreme Court’s Decision to Expand Presidential Power Over Regulators**\
 `The Supreme Court expanded President Trump’s power to fire independent government regulators, but said Federal Reserve officials could not be fired at will.`\
 https://www.nytimes.com/interactive/2026/06/29/us/politics/supreme-court-decision-trump-presidential-power-slaughter.html
@@ -41,6 +49,10 @@ https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
 **Rescatistas hallan en los escombros a un niño de 11 años con vida**\
 `Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
 https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
+
+**Supreme Court Expands Presidential Power to Fire Officials, but Blocks Dismissal of Fed Governor for Now**\
+`In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-independent-regulator-firings.html
 
 **‘Heat Dome’ Grips Eastern Europe**\
 `High-level heat warnings were in place across much of Eastern Europe on Monday as a “heat dome,” which broke temperatures in France, Britain and Spain last week, continued to shift east.`\
@@ -177,16 +189,4 @@ https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carte
 **Mideast Live Updates: U.S. and Iran Set for New Talks in Qatar, Trump Says**\
 `President Trump said the discussions would take place on Tuesday, after the United States and Iran exchanged strikes over the weekend. Iran did not confirm the talks but said consultations with Qatar were continuing.`\
 https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
-
-**How Warsh Has Begun to Change the Fed**\
-`Just over a month into his job as chairman of the Federal Reserve, Kevin M. Warsh has embraced some conventions while signaling seismic shifts ahead.`\
-https://www.nytimes.com/2026/06/29/business/kevin-warsh-federal-reserve-reforms.html
-
-**The Ohio City Revived by Haitian Immigration Sees an Uncertain Future**\
-`In Springfield, Ohio, some residents see the end of an economic boom after the end of a humanitarian program for immigrants. Others see still darker possibilities.`\
-https://www.nytimes.com/2026/06/29/us/springfield-ohio-haitians-tps.html
-
-**What Donald Trump Really Loves**\
-`Flattery paves the road to the president’s heart.`\
-https://www.nytimes.com/2026/06/29/opinion/trump-love-language.html
 
