@@ -1,3 +1,7 @@
+**Pochettino’s Contract Extension Offer, and the Start of the Knockouts**\
+`Will the USMNT secure the services of their incumbent but in-demand head coach beyond this World Cup?`\
+https://www.nytimes.com/2026/06/29/podcasts/pochettino-contract-extension-offer-usmnt-world-cup-knockouts.html
+
 **Why Everyone Cares About This World Cup**\
 `Our reporter explains the magic of this moment, and two fans of the Iranian soccer team discuss its complexity.`\
 https://www.nytimes.com/2026/06/29/podcasts/the-daily/world-cup-iran.html
