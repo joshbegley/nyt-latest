@@ -1,3 +1,27 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998713/29vid-venezuela-destruction-75664.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998704/29vid-man-rescue-64485.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998695/29vid-laguaira-families-43296.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998692/29vid-laguaira-building-16214.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998685/29vid-loscocos-drone-81516.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/americas/100000010998678/29vid-laguaira-drone-57583.html
+
 **Migration Woes**\
 `We look into the anti-immigrant movement in South Africa.`\
 https://www.nytimes.com/2026/06/29/briefing/south-africa-immigration.html
@@ -170,31 +194,7 @@ https://www.nytimes.com/video/world/americas/100000010906890/how-cartel-violence
 `Traditional bed-and-breakfast inns are doubling down on unique décor, personalized service and flexible policies, as they seek to distinguish themselves from vacation rentals.`\
 https://www.nytimes.com/2026/06/29/travel/bed-and-breakfasts-versus-airbnbs.html
 
-**Oil Prices Rise on Possible Deal to Suspend Attacks in Gulf**\
+**Oil Prices Rise as U.S. and Iran Discuss Deal to Suspend Attacks in Gulf**\
 `Oil prices edged higher after an American official said the U.S. and Iran had agreed to halt attacks in a key shipping lane, raising hopes that hostilities would not escalate.`\
 https://www.nytimes.com/2026/06/29/business/oil-gas-price-iran.html
-
-**How The Times/Siena Poll Writes Sensitive Questions**\
-`Asking voters about highly charged issues is a delicate task. Precise language helps us avoid introducing bias so that we can best understand what is driving voters’ decisions.`\
-https://www.nytimes.com/2026/06/29/polls/polling-political-controversies-platner-maine.html
-
-**Poll Shows Maine’s Quirky Political Contours**\
-`A Times/Siena survey reveals a tight race in a key contest for Senate control.`\
-https://www.nytimes.com/2026/06/29/upshot/poll-maine-platner-collins.html
-
-**The Big Changes Coming to the Times/Siena Poll**\
-`The goal is to make the survey more deeply representative of the population.`\
-https://www.nytimes.com/2026/06/29/upshot/times-siena-polling-changes.html
-
-**Platner Has Slight Edge Over Collins in Tight Maine Senate Race, Poll Finds**\
-`The Maine race, which both parties see as key to winning control of the Senate, is extremely close as the sprint to fall begins, a Times/Portland Press Herald/Siena poll found.`\
-https://www.nytimes.com/2026/06/29/us/politics/collins-platner-maine-senate-poll.html
-
-**Word of the Day: lassitude**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/29/learning/word-of-the-day-lassitude.html
-
-**Cross-Tabs: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
-`Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
-https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-crosstabs.html
 
