@@ -1,3 +1,7 @@
+**In Japan’s ‘Little Brazil,’ a World Cup Showdown Tests Loyalties**\
+`More than 200,000 Brazilians live in Japan, after more than a century of migration between the countries. Many are of Japanese descent, so which team are they cheering on?`\
+https://www.nytimes.com/2026/06/29/world/asia/japan-brazil-world-cup-fans.html
+
 **Oil Prices Rise on Possible Deal to Suspend Attacks in Gulf**\
 `Oil prices edged higher after an American official said the U.S. and Iran had agreed to halt attacks in a key shipping lane, raising hopes that hostilities would not escalate.`\
 https://www.nytimes.com/2026/06/29/business/oil-gas-price-iran.html

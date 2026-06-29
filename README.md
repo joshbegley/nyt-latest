@@ -1,3 +1,135 @@
+**Mideast Live Updates: U.S. Reaches Deal With Iran to Halt Attacks, Official Says**\
+`The agreement would allow vessels to move freely through the Strait of Hormuz, a U.S. official said. Iran has not confirmed the deal.`\
+https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
+
+**How Warsh Has Begun to Change the Fed**\
+`Just weeks into his job as chairman of the Federal Reserve, Kevin M. Warsh has embraced some of the central bank’s conventions while signaling seismic shifts ahead.`\
+https://www.nytimes.com/2026/06/29/business/kevin-warsh-federal-reserve-reforms.html
+
+**The Ohio City Revived by Haitian Immigration Sees an Uncertain Future**\
+`In Springfield, Ohio, some residents see the end of an economic boom after the end of a humanitarian program for immigrants. Others see still darker possibilities.`\
+https://www.nytimes.com/2026/06/29/us/springfield-ohio-haitians-tps.html
+
+**What Donald Trump Really Loves**\
+`Flattery paves the road to the president’s heart.`\
+https://www.nytimes.com/2026/06/29/opinion/trump-love-language.html
+
+**In Brazil, Making a Huge Space ‘Cozy’ Is a Big Challenge**\
+`A family hired Coletivo Arquitetos to add a sense of warmth to their two-story penthouse in São Paulo.`\
+https://www.nytimes.com/2026/06/29/realestate/in-brazil-making-a-huge-space-cozy-is-a-big-challenge.html
+
+**China Emerges as a Relative Winner From Strait of Hormuz Crisis**\
+`A report examines how the war in Iran has weighed on Asian economies, but left China in a more advantageous position.`\
+https://www.nytimes.com/2026/06/29/business/economy/china-iran-strait-of-hormuz.html
+
+**With Final Decisions Ahead, the Supreme Court Is Sharply Divided**\
+`The justices will decide this week whether President Trump can end the guarantee of birthright citizenship and fire a leader of the independent Federal Reserve.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-final-decisions.html
+
+**The Trump Vibe Shift Was Just a Mirage**\
+`The country does not love its president.`\
+https://www.nytimes.com/2026/06/29/opinion/politics/trump-vibe-shift.html
+
+**Could GLP-1 Drugs Help You Live Longer?**\
+`Experts are intrigued by the theory. Here’s what early research suggests.`\
+https://www.nytimes.com/2026/06/29/well/glp1-drugs-ozempic-longevity.html
+
+**How a Global Researcher Lives on $110,000 in Long Island City**\
+`Before moving to New York, Weixun Hu had lived in seven other countries. He satisfies his wanderlust by splurging on special trips and taking the subway to random stops.`\
+https://www.nytimes.com/interactive/2026/06/29/nyregion/nyc-budgeting-affordability-hu.html
+
+**Israel and Iran Have Divided Democrats and Republicans. Will They Ever Be the Same?**\
+`Raging internal debates over foreign policy threaten both parties’ fortunes in November — and in 2028. Is a major ideological shift underway?`\
+https://www.nytimes.com/2026/06/29/us/politics/israel-iran-democrats-republicans-midterms.html
+
+**Whatever You Do in Russia, Don’t Talk About the War**\
+`As Ukraine brings the war home to Russia, officials hesitate to designate shelters and blast sirens, downplaying the conflict’s consequences with euphemisms.`\
+https://www.nytimes.com/2026/06/29/world/europe/russia-ukraine-rhetoric.html
+
+**Fine, Don’t Prosecute the President. But Release Jack Smith’s Report.**\
+`Its suppression is highly irregular and disturbing.`\
+https://www.nytimes.com/2026/06/29/opinion/jack-smith-report-trump.html
+
+**On the ‘Lux Tour’, Rosalía Shape Shifts Through Dance**\
+`On the “Lux” tour, the pop star mingles dance genres, starting the show on pointe. As with her dip into opera, her technique might not be perfect, but the intention is good.`\
+https://www.nytimes.com/2026/06/29/arts/dance/rosalia-lux-tour-ballet-charm-ladonna.html
+
+**‘The Bear’ Finale: I Hope You Saved Room for Cake**\
+`After a run of dazzling and frustrating ambition, the series closes with a pared-down menu and a touch of sweetness.`\
+https://www.nytimes.com/2026/06/29/arts/television/the-bear-finale-review.html
+
+**The Best Movies of 2026 So Far, and Where to Watch Them**\
+`Now is a good time to catch up on films you may have missed. Our critics have thoughts.`\
+https://www.nytimes.com/2026/06/29/movies/best-movies-2026.html
+
+**This Baker’s Business Is Booming (and It’s Not Just Because of the Cannon Fire)**\
+`Justin Cherry’s breads are in demand this semiquincentennial, as is his knowledge of historical baking methods.`\
+https://www.nytimes.com/2026/06/29/dining/justin-cherry-half-crown-bakehouse.html
+
+**Little Island Significantly Scales Back Its Summer Schedule**\
+`The artistic director said Barry Diller, the former Hollywood magnate who provides the bulk of the park’s funding, “wants to take programming in a different direction.”`\
+https://www.nytimes.com/2026/06/29/arts/music/little-island-schedule-performances-concerts.html
+
+**Running an Errand in Brooklyn, He Discovered Ditmas Park**\
+`Randell Pearson first saw the neighborhood when he was 18. He eventually was able to rent an apartment there, and 44 years later, he hasn’t left.`\
+https://www.nytimes.com/2026/06/29/realestate/ditmas-park-rent-control-apartment.html
+
+**Sprucing Up a Magical, Mysterious Park**\
+`Adrian Benepe, once city parks commissioner, is taking on the role of running the Fort Tryon Park Conservancy in Upper Manhattan. He is a huge fan of the place.`\
+https://www.nytimes.com/2026/06/29/nyregion/sprucing-up-a-magical-mysterious-park.html
+
+**Did American-Style ‘Gentle Parenting’ Spoil French Children?**\
+`As positive parenting takes over France, one psychologist’s call for a return to discipline has set off a furious debate.`\
+https://www.nytimes.com/2026/06/29/magazine/american-parenting-french-children.html
+
+**Berkeley Will Start Institute Named for Pelosi**\
+`The Trump administration has been scrutinizing the University of California, Berkeley, which insists its new program will be a nonpartisan venture.`\
+https://www.nytimes.com/2026/06/29/us/berkeley-pelosi-democracy.html
+
+**Meg Ryan Lists the Hamptons Home She Bought Two Years Ago**\
+`Plus, Kristen Wiig dropped the price on a house she is selling in Pasadena, Calif., and Joe Jonas is selling a Brooklyn condo.`\
+https://www.nytimes.com/2026/06/29/realestate/meg-ryan-kristen-wiig-celebrity-home-sales.html
+
+**A.I. ‘Employees’ Might Disrupt Work in Unexpected Ways**\
+`Scholars say the “unknown unknowns” of using artificial intelligence in the workplace may be undermining the technology’s advertised benefits.`\
+https://www.nytimes.com/2026/06/29/business/artificial-intelligence-workplace-consequences.html
+
+**22 New Books to Read in July: Colson Whitehead, Alice Oseman, Daniel Mason and More**\
+`Novels by Colson Whitehead and Daniel Mason, the final “Heartstopper” graphic novel, gripping thrillers, lush romantasy, true crime and more.`\
+https://www.nytimes.com/2026/06/29/books/new-books-july.html
+
+**Can Ozempic Make You Live Longer?**\
+`Scientists are studying whether GLP-1 medications could be lifespan-enhancing. Dana Smith, a health reporter for Well, explains the latest research around how these drugs might affect aging.`\
+https://www.nytimes.com/video/well/100000010986709/can-ozempic-make-you-live-longer.html
+
+**Parents Can’t Give Their Kids Everything. Siblings Can Help.**\
+`There are virtues in growing up in a pack.`\
+https://www.nytimes.com/2026/06/29/opinion/siblings-families-shrinking.html
+
+**Liberals Are Preaching Moral Values. What Took Them So Long?**\
+`Until recently, the language of morality belonged to social conservatives. But the history of liberalism suggests that values have been at its core all along.`\
+https://www.nytimes.com/2026/06/29/books/review/liberals-are-preaching-moral-values.html
+
+**How Washington State Is Helping Thousands of Black Residents Buy Homes**\
+`A groundbreaking loan program, designed to address historical racial discrimination, is facing new legal challenges.`\
+https://www.nytimes.com/2026/06/29/realestate/washington-state-redlining-covenant-homeownership.html
+
+**For These Teens in Mexico, Soccer Is Life. Now, the Cartels Want In.**\
+`In Celaya, Mexico, local cartels have turned soccer fields into bloody battlefields as they have co-opted a local league for teenagers as their latest business endeavor.`\
+https://www.nytimes.com/2026/06/29/world/americas/for-these-teens-soccer-is-life-now-the-cartels-want-in.html
+
+**Should I Keep My Mother’s Wedding Gown?**\
+`A reader wonders if it is possible to separate sentiment from style.`\
+https://www.nytimes.com/2026/06/29/fashion/vintage-wedding-gowns-mom.html
+
+**How Cartel Violence Is Infiltrating Local Soccer**\
+`In Salamanca, Mexico, soccer matches are being plagued by violence and deaths in multiple shootings. Our investigative correspondent Maria Abi-Habib reports from the town.`\
+https://www.nytimes.com/video/world/americas/100000010906890/how-cartel-violence-is-infiltrating-local-soccer.html
+
+**Bed-and-Breakfasts Vs. Airbnb**\
+`Traditional bed-and-breakfast inns are doubling down on unique décor, personalized service and flexible policies, as they seek to distinguish themselves from vacation rentals.`\
+https://www.nytimes.com/2026/06/29/travel/bed-and-breakfasts-versus-airbnbs.html
+
 **Oil Prices Rise on Possible Deal to Suspend Attacks in Gulf**\
 `Oil prices edged higher after an American official said the U.S. and Iran had agreed to halt attacks in a key shipping lane, raising hopes that hostilities would not escalate.`\
 https://www.nytimes.com/2026/06/29/business/oil-gas-price-iran.html
@@ -65,132 +197,4 @@ https://www.nytimes.com/2026/06/29/crosswords/spelling-bee-forum.html
 **Metropolitan Diary Challenge Day 2: How to Write Your N.Y. Story**\
 `We want to help you craft your own Metropolitan Diary entry. Here are some tips for turning a special New York memory into a great story.`\
 https://www.nytimes.com/interactive/2026/06/28/nyregion/metropolitan-diary-challenge-day-2.html
-
-**‘House of the Dragon’ Season 3 Episode 2 Recap: Throne of Blood**\
-`Rhaenyra is plunged back into grief. What will that mean for the fate of the realm?`\
-https://www.nytimes.com/2026/06/28/arts/television/house-of-the-dragon-recap-episode-2.html
-
-**Oil Markets Edge Higher After Days of Attacks in Persian Gulf**\
-`Oil prices inched up on Sunday evening, while the S&P 500 futures market was little changed.`\
-https://www.nytimes.com/2026/06/28/business/oil-markets-edge-higher-after-days-of-attacks-in-persian-gulf.html
-
-**NYT Crossword Answers for June 29, 2026**\
-`Ginny Too and Rajeswari Rajamani make their New York Times Crossword collaboration debut.`\
-https://www.nytimes.com/2026/06/28/crosswords/daily-puzzle-2026-06-29.html
-
-**Philippe Stern, Heir to the Patek Philippe Watch Brand, Dies at 88**\
-`In an era of electronic timepieces, he marketed $40,000 handmade watches as status symbols, breathing new life into a struggling industry.`\
-https://www.nytimes.com/2026/06/28/obituaries/phillipe-stern-dead.html
-
-**Mignon Dunn, Mezzo Soprano Known for ‘Carmen,’ Dies at 98**\
-`Growing up in Arkansas, she dreamed of singing at the Metropolitan Opera. She did so more than 650 times over 35 years.`\
-https://www.nytimes.com/2026/06/28/obituaries/mignon-dunn-dead.html
-
-**At a Caracas Morgue, Families and Officials Try to Identify More Than 100 Victims**\
-`Identifying victims has proved to be difficult because many bodies were badly crushed beneath collapsed buildings.`\
-https://www.nytimes.com/2026/06/28/world/americas/venezuela-earthquake-caracas-morgue.html
-
-**Drone Footage Shows Devastation From Venezuela Earthquakes**\
-`Twin earthquakes that devastated Venezuela on Wednesday killed more than 1,400 people and left thousands more injured.`\
-https://www.nytimes.com/video/world/americas/100000010997920/venezuela-earthquakes-damage-drone-video.html
-
-**Europe’s Heat Politics**\
-`As the continent swelters, some right-wing populists are talking up their support for air-conditioning.`\
-https://www.nytimes.com/2026/06/28/world/heat-wave-europe-iran-venezuela.html
-
-**In Venezuela, a Community Comes Together to Search for Earthquake Survivors**\
-`Volunteers in a middle-class neighborhood in Caracas used drills, picks and hammers to break through concrete, trying to find anyone in need of rescue.`\
-https://www.nytimes.com/2026/06/28/world/americas/caracas-venezuela-earthquake-rescue.html
-
-**Delcy Rodríguez es acusada de politizar la ayuda tras los terremotos**\
-`Los críticos dicen que la presidenta interina del país, Delcy Rodríguez, está intentando sacar partido de la tragedia para su beneficio político. Sus seguidores acusan a la oposición de hacer lo mismo.`\
-https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-delcy-rodriguez-ayuda.html
-
-**Three Firefighters Dead, as Wildfires Ravage Utah and Colorado**\
-`Three firefighters died and two were injured on Saturday in a blaze on the Utah-Colorado border, the U.S. Wildland Fire Service said in a statement.`\
-https://www.nytimes.com/video/us/100000010997587/utah-colorado-wildfires-firefighters.html
-
-**Los Países Bajos registran su primer caso de muerte asistida de un niño de entre 1 y 12 años**\
-`La muerte asistida por un médico para niños con enfermedades terminales de ese grupo de edad está permitida en el país desde 2024.`\
-https://www.nytimes.com/es/2026/06/28/espanol/mundo/muerte-asistida-nino-paises-bajos.html
-
-**Por qué lloran las personas mayores**\
-`Últimamente tengo tanto pasado a mis espaldas y dentro de mí que parece que se me sale por todas partes.`\
-https://www.nytimes.com/es/2026/06/28/espanol/opinion/vejez-llorar.html
-
-**Iran Risks Peace Talks With U.S. to Maintain Leverage Over Strait**\
-`Iran sees its control over the Strait of Hormuz as critical leverage in peace talks with the United States. It seems willing to risk the cease-fire to maintain that power.`\
-https://www.nytimes.com/2026/06/28/world/europe/iran-us-strait-of-hormuz-peace-talks.html
-
-**La avalancha de voluntarios en Venezuela ralentiza las labores de rescate**\
-`El gran número de voluntarios que acudieron con ayuda después de los terremotos de Venezuela colapsó la única carretera que llevaba a la zona afectada, lo que retrasó la llegada de los equipos de rescate.`\
-https://www.nytimes.com/es/2026/06/28/espanol/mundo/venezuela-terremotos-voluntarios-trafico.html
-
-**Machado pide volver a Venezuela, lo que habría irritado a funcionarios de EE. UU.**\
-`María Corina Machado, la líder exiliada de la oposición venezolana, desea volver a casa. Funcionarios de EE. UU. consideran que su deseo es inoportuno.`\
-https://www.nytimes.com/es/2026/06/28/espanol/america-latina/venezuela-terremotos-maria-corina-machado.html
-
-**A ‘Bald Meet-Up’ in NYC Fosters a Sense of Empowerment**\
-`The gathering on Saturday in Washington Square Park brought words of affirmation and a community that many said they thought they’d never find.`\
-https://www.nytimes.com/2026/06/28/us/nyc-bald-people-meet-up.html
-
-**‘Supergirl’ Falters at the Box Office, Testing DC Studios’ Reboot**\
-`Overall, ticket sales for the weekend were up 21 percent from last year. But the expensive “Supergirl” debuted as a disappointing second, with an estimated $38 million.`\
-https://www.nytimes.com/2026/06/28/business/media/supergirl-box-office.html
-
-**Deep Under the Rubble, Rescuers Find an 11-Year-Old Boy Alive**\
-`A Colombian rescue team worked for six hours to recover the child, Moises, from under nearly 10 feet of rubble in La Guaira. His rescue was captured on video.`\
-https://www.nytimes.com/2026/06/28/world/americas/deep-under-the-rubble-rescuers-find-an-11-year-old-boy-alive.html
-
-**L.G.B.T.Q. Figures Who Shaped History From the Margins**\
-`Their names may not be familiar, but they helped define queer art, activism and storytelling as we know it today.`\
-https://www.nytimes.com/2026/06/28/us/lgbtq-pride-history-trailblazers.html
-
-**A ‘Heat Dome’ Could Bring Triple- Digit Temperatures to the Midwest and Eastern U.S.**\
-`Forecasters warned that temperatures could break records in some areas. The heat is expected to last into the Fourth of July holiday weekend.`\
-https://www.nytimes.com/2026/06/28/weather/heat-wave-usa-nyc-dc-philadelpha.html
-
-**Deadly Floods Hit Kentucky**\
-`Gov. Andy Beshear of Kentucky declared a state of emergency after deadly floods swept through parts of the state.`\
-https://www.nytimes.com/video/weather/100000010997597/deadly-floods-hit-kentucky.html
-
-**Helicopter Crash Near Major Saudi Oil Refinery Kills 14 People**\
-`The incident occurred near the Ras Tanura facility in the east of the country, a key export hub for oil transported through the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/28/world/middleeast/deadly-helicopter-crash-saudi-arabia.html
-
-**Five Bright and Summery Recipes for Lazy Vacation Days**\
-`Because vacation is even better when you get to cook.`\
-https://www.nytimes.com/2026/06/28/dining/five-bright-and-summery-recipes-for-lazy-vacation-days.html
-
-**Skydiving Plane Crashes in France, Killing All 11 People Aboard**\
-`Five instructors, five students and a pilot died when the plane crashed on Sunday morning in a field near the northeastern city of Nancy.`\
-https://www.nytimes.com/2026/06/28/world/europe/france-skydiving-plane-crash-nancy.html
-
-**Three Firefighters Die as Wildfires Ravage Utah and Colorado**\
-`Fires are raging in the arid Southwest after a warm winter. Forecasters say the fires may grow rapidly, and parts of Colorado have been ordered to evacuate.`\
-https://www.nytimes.com/2026/06/28/us/wildfires-utah-colorado-firefighters-deaths.html
-
-**Dozens of Dogs Join Search for Venezuela Earthquake Survivors**\
-`Specially trained dogs can pick up the scent of survivors beneath mounds of collapsed debris, indicating where clearance teams should begin digging.`\
-https://www.nytimes.com/2026/06/28/world/americas/rescue-dogs-canine-units-earthquake-venezuela.html
-
-**These Are the Cold Noodles of the Summer**\
-`Melissa Clark’s nutty, gingery take is powerfully delicious.`\
-https://www.nytimes.com/2026/06/28/dining/these-are-the-cold-noodles-of-the-summer.html
-
-**Addressing a Corrupt Pardon System**\
-`Readers respond to “There’s Actually Something We Can Do About Trump’s Pardons,” an Opinion guest essay by Tim Wu. Also: A loophole that harms our oceans.`\
-https://www.nytimes.com/2026/06/28/opinion/trump-pardons.html
-
-**Dear Diary**\
-`We celebrate 50 years of Metropolitan Diary.`\
-https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
-
-**Heat Wave Starts to Break in Western Europe, as Central Europe Begins to Broil**\
-`After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
-https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
-
-**Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
-`More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
-https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
 
