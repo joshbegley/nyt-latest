@@ -1,3 +1,23 @@
+**Turtles Are Really Weird Animals. Where Did They Come From?**\
+`The origin of turtles has puzzled scientists. A new study provides more evidence that these shelled reptiles share a common ancestor with crocodiles and birds.`\
+https://www.nytimes.com/2026/06/29/science/turtles-origins-dinosaurs-archosaurs.html
+
+**Getting My Greens With This Satisfying Broccoli Salad**\
+`Blanched, still-warm broccoli florets expertly soak up a miso-ginger dressing in Kay Chun’s recipe.`\
+https://www.nytimes.com/2026/06/29/dining/getting-my-greens-with-this-satisfying-broccoli-salad.html
+
+**Test Your Knowledge of New York’s Algonquin Round Table**\
+`Try this short quiz on Manhattan’s influential “vicious circle” of 20th-century literary wits.`\
+https://www.nytimes.com/interactive/2026/06/29/books/review/round-table-quiz.html
+
+**Read the Indictment of Malik Beasley**\
+`Mr. Beasley, a former shooting guard for the Detroit Pistons, and four others have become the latest people to be caught up in a sweeping N.B.A. gambling investigation by federal prosecutors in Brooklyn.`\
+https://www.nytimes.com/interactive/2026/06/29/nyregion/malik-beasley-indictment.html
+
+**Naomi Osaka Serves Up a Fashion Slam at Wimbledon**\
+`The tennis player once again offered some on-court couture.`\
+https://www.nytimes.com/2026/06/29/style/naomi-osaka-fashion-wimbledon.html
+
 **N.B.A. Player Malik Beasley Charged in Federal Gambling Inquiry**\
 `Mr. Beasley, a former shooting guard for the Detroit Pistons, was among the latest group of people accused in a sweeping case targeting members of the N.B.A.`\
 https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
@@ -14,8 +34,8 @@ https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
 `High-level heat warnings were in place across much of Eastern Europe on Monday as a “heat dome,” which broke temperatures in France, Britain and Spain last week, continued to shift east.`\
 https://www.nytimes.com/video/world/europe/100000010998767/heat-wave-eastern-europe.html
 
-**Live Updates: Supreme Court Expands Presidential Power Over Regulators, but Blocks Fed Firing for Now**\
-`President Trump’s firing of an F.T.C. commissioner tested a precedent that has insulated independent regulators. But the justices carved out the “unique role” of the Federal Reserve.`\
+**Live Updates: Supreme Court Expands Presidential Power Over Regulators, but Not the Fed**\
+`In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
 https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power
 
 **Supreme Court Upholds Grace Period to Count Mail-In Ballots That Arrive After Election Day**\
@@ -135,7 +155,7 @@ https://www.nytimes.com/2026/06/29/crosswords/strands-sidekick-849.html
 https://www.nytimes.com/2026/06/29/crosswords/connections-companion-1115.html
 
 **Pakistan Attacks Afghanistan, Killing More Than 30**\
-`The Taliban said that airstrikes left 36 civilians dead, while Pakistan claimed that its assault killed 32 militants, in the latest in a monthslong conflict.`\
+`The Taliban said that airstrikes left 36 civilians dead, while Pakistan claimed that its assault killed 32 militants, the latest in a monthslong conflict.`\
 https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
 
 **Para estos adolescentes, el fútbol lo es todo. Ahora, los cárteles quieren meterse al juego**\
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/06/29/business/economy/china-iran-strait-of-hormuz.
 **With Final Decisions Ahead, the Supreme Court Is Sharply Divided**\
 `The justices will decide this week whether President Trump can end the guarantee of birthright citizenship and fire a leader of the independent Federal Reserve.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-final-decisions.html
-
-**The Trump Vibe Shift Was Just a Mirage**\
-`The country does not love its president.`\
-https://www.nytimes.com/2026/06/29/opinion/politics/trump-vibe-shift.html
-
-**Could GLP-1 Drugs Help You Live Longer?**\
-`Experts are intrigued by the theory. Here’s what early research suggests.`\
-https://www.nytimes.com/2026/06/29/well/glp1-drugs-ozempic-longevity.html
-
-**How a Global Researcher Lives on $110,000 in Long Island City**\
-`Before moving to New York, Weixun Hu had lived in seven other countries. He satisfies his wanderlust by splurging on special trips and taking the subway to random stops.`\
-https://www.nytimes.com/interactive/2026/06/29/nyregion/nyc-budgeting-affordability-hu.html
-
-**Israel and Iran Have Divided Democrats and Republicans. Will They Ever Be the Same?**\
-`Raging internal debates over foreign policy threaten both parties’ fortunes in November — and in 2028. Is a major ideological shift underway?`\
-https://www.nytimes.com/2026/06/29/us/politics/israel-iran-democrats-republicans-midterms.html
-
-**Whatever You Do in Russia, Don’t Talk About the War**\
-`As Ukraine brings the war home to Russia, officials hesitate to designate shelters and blast sirens, downplaying the conflict’s consequences with euphemisms.`\
-https://www.nytimes.com/2026/06/29/world/europe/russia-ukraine-rhetoric.html
 

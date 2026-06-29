@@ -1,3 +1,31 @@
+**Turtles Are Really Weird Animals. Where Did They Come From?**\
+`The origin of turtles has puzzled scientists. A new study provides more evidence that these shelled reptiles share a common ancestor with crocodiles and birds.`\
+https://www.nytimes.com/2026/06/29/science/turtles-origins-dinosaurs-archosaurs.html
+
+**Getting My Greens With This Satisfying Broccoli Salad**\
+`Blanched, still-warm broccoli florets expertly soak up a miso-ginger dressing in Kay Chun’s recipe.`\
+https://www.nytimes.com/2026/06/29/dining/getting-my-greens-with-this-satisfying-broccoli-salad.html
+
+**Test Your Knowledge of New York’s Algonquin Round Table**\
+`Try this short quiz on Manhattan’s influential “vicious circle” of 20th-century literary wits.`\
+https://www.nytimes.com/interactive/2026/06/29/books/review/round-table-quiz.html
+
+**Read the Indictment of Malik Beasley**\
+`Mr. Beasley, a former shooting guard for the Detroit Pistons, and four others have become the latest people to be caught up in a sweeping N.B.A. gambling investigation by federal prosecutors in Brooklyn.`\
+https://www.nytimes.com/interactive/2026/06/29/nyregion/malik-beasley-indictment.html
+
+**Naomi Osaka Serves Up a Fashion Slam at Wimbledon**\
+`The tennis player once again offered some on-court couture.`\
+https://www.nytimes.com/2026/06/29/style/naomi-osaka-fashion-wimbledon.html
+
+**Live Updates: Supreme Court Expands Presidential Power Over Regulators, but Not the Fed**\
+`In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
+https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power
+
+**Pakistan Attacks Afghanistan, Killing More Than 30**\
+`The Taliban said that airstrikes left 36 civilians dead, while Pakistan claimed that its assault killed 32 militants, the latest in a monthslong conflict.`\
+https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
+
 **N.B.A. Player Malik Beasley Charged in Federal Gambling Inquiry**\
 `Mr. Beasley, a former shooting guard for the Detroit Pistons, was among the latest group of people accused in a sweeping case targeting members of the N.B.A.`\
 https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
