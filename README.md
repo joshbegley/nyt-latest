@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
+`The death toll has risen to 1,450 people, according to the Venezuelan government, but the actual count is expected to be much higher.`\
+https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010998713/29vid-venezuela-destruction-75664.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/video/embedded/world/americas/100000010998678/29vid-lagu
 `We look into the anti-immigrant movement in South Africa.`\
 https://www.nytimes.com/2026/06/29/briefing/south-africa-immigration.html
 
-**Comcast to Spin Off NBCUniversal Into Separate Company**\
-`The media business, which owns NBC News, Universal Pictures and the Peacock streaming service, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
+**Comcast to Spin Off NBCUniversal, Ending a Long Union of Cable and Media**\
+`The media business, which owns NBC News and Universal Pictures, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
 https://www.nytimes.com/2026/06/29/business/comcast-nbcuniversal-spinoff.html
 
 **Pochettino’s Contract Extension Offer, and the Start of the Knockouts**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010906890/how-cartel-violence
 **Bed-and-Breakfasts Vs. Airbnb**\
 `Traditional bed-and-breakfast inns are doubling down on unique décor, personalized service and flexible policies, as they seek to distinguish themselves from vacation rentals.`\
 https://www.nytimes.com/2026/06/29/travel/bed-and-breakfasts-versus-airbnbs.html
-
-**Oil Prices Rise as U.S. and Iran Discuss Deal to Suspend Attacks in Gulf**\
-`Oil prices edged higher after an American official said the U.S. and Iran had agreed to halt attacks in a key shipping lane, raising hopes that hostilities would not escalate.`\
-https://www.nytimes.com/2026/06/29/business/oil-gas-price-iran.html
 
