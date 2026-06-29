@@ -1,3 +1,15 @@
+**Trump on Legislation to Address the Nation’s Housing Crisis: ‘It’s a Yawn’**\
+`Time and again, President Trump has brushed off Americans’ concerns about the economy and their financial situations.`\
+https://www.nytimes.com/2026/06/29/us/politics/trump-housing-bill.html
+
+**Keiko Fujimori gana las elecciones presidenciales en Perú**\
+`Keiko Fujimori, hija del exdictador Alberto Fujimori, devuelve al movimiento de su familia al poder, aunque con una victoria ajustada en un país dividido.`\
+https://www.nytimes.com/es/2026/06/29/espanol/america-latina/keiko-fujimori-gana-elecciones-peru.html
+
+**What to Watch in Colorado Primary Elections: Will Left-Wing Energy Keep Rising?**\
+`Primaries on Tuesday will be the latest test of Democrats’ anti-establishment mood.`\
+https://www.nytimes.com/2026/06/29/us/politics/colorado-primaries-what-to-watch.html
+
 **Search for Venezuela Quake Survivors Enters Fifth Day**\
 `Hopes of finding earthquake survivors has faded in Venezuela as the search entered its fifth day on Monday. The official death toll had risen to over 1,700 as of Monday afternoon, according to local authorities.`\
 https://www.nytimes.com/video/world/americas/100000010998902/venezuela-earthquake-search-survivors.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/29/science/nasa-falling-space-telescope-swift.ht
 **La cifra total de víctimas de los terremotos en Venezuela podría saberse en semanas**\
 `Los expertos señalaron varios indicios de la letalidad de los dos terremotos, como el número de personas desaparecidas y la magnitud de los daños en los edificios.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-muertos.html
-
-**At Funerals, Venezuela’s Wounded Families and Friends Unite in Grief**\
-`Venezuelans began to bury some of the more than 1,700 victims of last week’s earthquakes, sharing tales of unimaginable loss.`\
-https://www.nytimes.com/2026/06/29/world/americas/venezuela-funerals-earthquake.html
-
-**tk**\
-`tk`\
-https://static01.nyt.com/slideshow/2026/06/29/t-magazine/tk.html
-
-**Supreme Court Rules Against Roy Moore in Fight Over $8.2 Million Jury Award**\
-`The former Alabama Supreme Court justice and Senate candidate had asked the court to clear a path for him to potentially collect a jury award in a defamation case.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-roy-moore.html
 
