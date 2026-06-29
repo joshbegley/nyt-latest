@@ -1,3 +1,7 @@
+**Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
+`The president promised to “take appropriate action immediately” against Lisa D. Cook, a Fed governor.`\
+https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
+
 **The Winners of Our 9th Annual Student Podcast Contest**\
 `We invited teenagers to create an original five-minute podcast about almost anything. Listen to the winning entries selected from 1,400 submissions.`\
 https://www.nytimes.com/2026/06/29/learning/the-winners-of-our-9th-annual-student-podcast-contest.html
