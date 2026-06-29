@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-roy-moore.html
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-citizenship-voting-arizona.html
 
 **Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
-`The president promised to “take appropriate action immediately” against Lisa D. Cook, a Fed governor.`\
+`President Trump promised to “take appropriate action immediately” against Lisa Cook, the Fed governor he had tried to fire, even as the Supreme Court affirmed that Fed officials can be fired only for cause.`\
 https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
 
 **‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\

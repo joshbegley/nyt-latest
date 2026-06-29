@@ -1,3 +1,11 @@
+**Abdul Ahad Momand, Only Afghan to Fly in Space, Is Dead**\
+`A pilot in the Afghan Air Force, he was recruited for the Soviet space program. His 1988 flight took place as the Soviets were fighting a war in his country.`\
+https://www.nytimes.com/2026/06/29/world/middleeast/abdul-ahad-momand-dead.html
+
+**Efforts to Rescue Venezuela Quake Victims Grow More Desperate**\
+`The death toll has risen to over 1,700, which is likely an undercount.`\
+https://www.nytimes.com/2026/06/29/world/americas/venezuela-earthquake-victims-rescue-deaths.html
+
 **George Gresham, Health Care Union Powerhouse, Dies at 71**\
 `Until he lost an election last year amid accusations of self-enrichment, he was a longtime influential force in Democratic politics in New York.`\
 https://www.nytimes.com/2026/06/29/nyregion/george-gresham-dead.html

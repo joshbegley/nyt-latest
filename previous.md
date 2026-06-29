@@ -1,3 +1,7 @@
+**Abdul Ahad Momand, Only Afghan to Fly in Space, Is Dead**\
+`A pilot in the Afghan Air Force, he was recruited for the Soviet space program. His 1988 flight took place as the Soviets were fighting a war in his country.`\
+https://www.nytimes.com/2026/06/29/world/middleeast/abdul-ahad-momand-dead.html
+
 **George Gresham, Health Care Union Powerhouse, Dies at 71**\
 `Until he lost an election last year amid accusations of self-enrichment, he was a longtime influential force in Democratic politics in New York.`\
 https://www.nytimes.com/2026/06/29/nyregion/george-gresham-dead.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/06/29/movies/daveigh-chase-cause-death-aids.html
 
 **Efforts to Rescue Venezuela Quake Victims Grow More Desperate**\
 `The death toll has risen to over 1,700, which is likely an undercount.`\
-https://www.nytimes.com/2026/06/29/world/americas/efforts-to-rescue-venezuela-quake-victims-grow-more-desperate.html
+https://www.nytimes.com/2026/06/29/world/americas/venezuela-earthquake-victims-rescue-deaths.html
 
 **Clash Unfolds as Trump Administration Pushes Intelligence Agencies to Share Foreign Espionage Targets**\
 `The clash reflects increasing skepticism of the Office of the Director of National Intelligence, which has been willing to pursue President Trump’s priorities.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/29/us/politics/independent-agencies-trump.html
 **Read the Supreme Court’s Decision to Expand Presidential Power Over Regulators**\
 `The Supreme Court expanded President Trump’s power to fire independent government regulators, but said Federal Reserve officials could not be fired at will.`\
 https://www.nytimes.com/interactive/2026/06/29/us/politics/supreme-court-decision-trump-presidential-power-slaughter.html
-
-**Read the Supreme Court’s Decision to Block the Firing of Lisa Cook**\
-`The Supreme Court’s found Lisa Cook, a Federal Reserve governor, had not been given an opportunity to refute the administration’s unproven allegations of mortgage fraud.`\
-https://www.nytimes.com/interactive/2026/06/29/us/politics/supreme-court-decision-trump-lisa-cook.html
 
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
