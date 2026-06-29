@@ -1,3 +1,11 @@
+**Cross-Tabs: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-toplines.html
+
 **Rescuers Find Earthquake Survivors as Critical Window Closes**\
 `An 11-year-old boy was rescued from the rubble of Venezuela’s twin earthquakes as the window to find survivors was closing. The country’s president said operations would continue.`\
 https://www.nytimes.com/video/world/americas/100000010998526/venezuela-earthquake-survivors-rescue.html
