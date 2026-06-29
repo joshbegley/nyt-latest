@@ -1,3 +1,15 @@
+**En una morgue en Caracas, familias y autoridades intentan identificar a más de 100 víctimas**\
+`El proceso resulta difícil porque muchas personas quedaron gravemente aplastadas bajo los edificios derrumbados.`\
+https://www.nytimes.com/es/2026/06/29/espanol/morgue-caracas-cuerpos.html
+
+**Terremotos en Venezuela: así es la búsqueda de sobrevivientes**\
+`Los voluntarios de un barrio de clase media de Caracas usaron taladros, picos y mazos para romper el hormigón, intentando encontrar a alguien que necesitara ser rescatado.`\
+https://www.nytimes.com/es/2026/06/29/espanol/sobrevivientes-caracas-san-bernardino.html
+
+**Fine, Don’t Prosecute President Trump. But Release Jack Smith’s Report.**\
+`Its suppression is highly irregular and disturbing.`\
+https://www.nytimes.com/2026/06/29/opinion/jack-smith-report-trump.html
+
 **Europe Heat Wave: Forecasts, Warnings and How to Stay Cool**\
 `A heat wave responsible for shattering numerous temperature records in Western Europe continued its shift east.`\
 https://www.nytimes.com/2026/06/29/weather/heat-wave-eastern-europe-forecasts.html
