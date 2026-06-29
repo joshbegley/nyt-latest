@@ -1,3 +1,15 @@
+**Los jóvenes que eligieron quedarse en Cuba**\
+`En medio del mayor éxodo de la historia reciente del país, cuatro cubanos narran lo que significa permanecer en la isla.`\
+https://www.nytimes.com/es/2026/06/29/espanol/opinion/cuba-jovenes-exilio-artistas.html
+
+**‘Elle’ and 10 More Shows to Watch on TV this Week**\
+`This “Legally Blonde” prequel premieres and networks air coverage around the nation’s 250th Independence Day.`\
+https://www.nytimes.com/2026/06/29/arts/television/elle-and-10-more-shows-to-watch-on-tv-this-week.html
+
+**A.I. Is Strangling Our Economy**\
+`So much money is being poured into A.I. that the rest of the economy is starting to suffer.`\
+https://www.nytimes.com/2026/06/29/opinion/ai-economy-affordability.html
+
 **Quote of the Day: Venezuelan Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
 `Quotation of the Day for Monday, June 29, 2026.`\
 https://www.nytimes.com/2026/06/29/pageoneplus/quote-of-the-day-venezuelan-civilians-fill-the-gaps-one-grain-of-sand-at-a-time.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
 **Trump Cut a Billion-Dollar Mining Deal. His Sons Stand to Profit.**\
 `An agreement between the U.S. and Kazakhstan has given a group of American investors with ties to the president and the commerce secretary access to one of the world’s largest untapped reserves of tungsten.`\
 https://www.nytimes.com/2026/06/28/world/europe/trump-lutnick-sons-kazakhstan.html
-
-**Kazakhstan’s Leader Deepens U.S. Ties, Saying Trump Was ‘Sent by Heaven’**\
-`The Central Asian nation is aggressively courting President Trump’s Washington to counterbalance its powerful neighbors, Russia and China.`\
-https://www.nytimes.com/2026/06/28/world/asia/kazakhstan-trump.html
-
-**Read the document**\
-`A letter from Commerce Secretary Howard Lutnick to President Kassym-Jomart Tokayev of Kazakhstan.`\
-https://www.nytimes.com/interactive/2026/06/28/us/2025lutnick-and-dfc-letters.html
-
-**Delcy Rodriguez, Venezuela’s President, Is Accused of Politicizing Earthquake Relief**\
-`Critics say the country’s interim president, Delcy Rodríguez, is trying to exploit the tragedy for her political benefit. Her supporters accuse the opposition of doing the same.`\
-https://www.nytimes.com/2026/06/28/world/americas/venezuela-quake-relief-rodriguez.html
 
