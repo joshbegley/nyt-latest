@@ -1,3 +1,11 @@
+**In Dissents, Some Justices Push Back Against Ruling to Block Trump From Firing Fed Governor Lisa Cook**\
+`A few dissenters cautioned that the majority didn’t allow the legal case over the president’s effort to fire the Fed governor Lisa D. Cook to play out in the lower courts.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-lisa-cook-fed-firing-dissents.html
+
+**See Day-by-Day Forecast as Heat Wave Engulfs U.S. Ahead of the July 4 Weekend**\
+`Dangerous heat is expected across much of the country through the July 4 weekend.`\
+https://www.nytimes.com/2026/06/29/weather/us-heat-wave-forecast.html
+
 **Luigi Mangione’s Federal Trial Delayed Until January**\
 `A federal judge made the postponement to avoid potential conflict with Luigi Mangione’s state trial regarding the assassination of a health insurance executive.`\
 https://www.nytimes.com/2026/06/29/nyregion/mangione-federal-trial-delay.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
 **Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
 `El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
 https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto
-
-**Terremotos en Venezuela: así es la búsqueda de sobrevivientes**\
-`Los voluntarios de un barrio de clase media de Caracas usaron taladros, picos y mazos para romper el hormigón, intentando encontrar a alguien que necesitara ser rescatado.`\
-https://www.nytimes.com/es/2026/06/29/espanol/sobrevivientes-caracas-san-bernardino.html
-
-**Europe Heat Wave: Forecasts, Warnings and How to Stay Cool**\
-`A heat wave responsible for shattering numerous temperature records in Western Europe continued its shift east.`\
-https://www.nytimes.com/2026/06/29/weather/heat-wave-eastern-europe-forecasts.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\

@@ -1,3 +1,11 @@
+**Luigi Mangione’s Federal Trial Delayed Until January**\
+`A federal judge made the postponement to avoid potential conflict with Luigi Mangione’s state trial regarding the assassination of a health insurance executive.`\
+https://www.nytimes.com/2026/06/29/nyregion/mangione-federal-trial-delay.html
+
+**The Court’s Hypocrisy**\
+`The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
+https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
+
 **Alex Murdaugh’s Murder Retrial Tentatively Set for April 2027**\
 `The move comes after a court overturned his murder convictions. A judge still needs to decide the location of the trial and what evidence will be allowed.`\
 https://www.nytimes.com/2026/06/29/us/alex-murdaugh-murder-retrial-date.html
