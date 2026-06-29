@@ -1,3 +1,7 @@
+**Inmates Take Guards Hostage in Hourslong Standoff at North Carolina Jail**\
+`The authorities have not yet explained what led to the takeover, which ended Monday afternoon after unspecified negotiations.`\
+https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html
+
 **The Winners of Our 9th Annual Student Podcast Contest**\
 `We invited teenagers to create an original five-minute podcast about almost anything. Listen to the winning entries selected from 1,400 submissions.`\
 https://www.nytimes.com/2026/06/29/learning/the-winners-of-our-9th-annual-student-podcast-contest.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/06/29/espanol/medicos-desastre-la-guaira.html
 **Voters Think A.I. Is Terrible. In Campaigns, It’s Everywhere.**\
 `A.I.-generated images are the public face of this election overhaul. Behind the scenes, campaigns are using the technology to analyze voter data, craft campaign materials and write custom messages.`\
 https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
-
-**Supreme Court Rejects Trump’s Request to Appeal $5 Million Verdict in E. Jean Carroll Case**\
-`President Trump had asked the justices to intervene after a jury found that he had sexually abused and defamed the writer E. Jean Carroll.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assault.html
 
 **Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
 `El número de muertos ha subido a 1719 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
