@@ -1,3 +1,7 @@
+**Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
+`More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
+https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
+
 **Oil Markets Edge Higher After Days of Attacks in Persian Gulf**\
 `Oil prices inched up on Sunday evening, while the S&P 500 futures market was little changed.`\
 https://www.nytimes.com/2026/06/28/business/oil-markets-edge-higher-after-days-of-attacks-in-persian-gulf.html

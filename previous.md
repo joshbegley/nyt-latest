@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/06/28/briefing/metropolitan-diary-anniversary.html
 `After days of record temperatures in Western Europe, the extreme heat is easing there. Now, Central Europe is facing days of dangerous swelter.`\
 https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
 
-**Venezuela Live Updates: Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
+**Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
 
