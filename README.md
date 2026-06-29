@@ -1,3 +1,11 @@
+**Cross-Tabs: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-toplines.html
+
 **Rescuers Find Earthquake Survivors as Critical Window Closes**\
 `An 11-year-old boy was rescued from the rubble of Venezuela’s twin earthquakes as the window to find survivors was closing. The country’s president said operations would continue.`\
 https://www.nytimes.com/video/world/americas/100000010998526/venezuela-earthquake-survivors-rescue.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/28/crosswords/wordle-review-1836.html
 **NYT Strands Hints for June 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
 https://www.nytimes.com/2026/06/28/crosswords/strands-sidekick-848.html
-
-**NYT Connections Answers for June 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
-https://www.nytimes.com/2026/06/28/crosswords/connections-companion-1114.html
-
-**Trump’s Science Cuts Betray America’s Past Since Lewis and Clark**\
-`America has funded scientific research since 1804 — and remembers that first project as a national glory. Cutting similar funding today is a betrayal.`\
-https://www.nytimes.com/2026/06/28/opinion/lewis-clark-scientific-research-funding.html
 
