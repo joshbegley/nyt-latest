@@ -1,3 +1,15 @@
+**Alex Murdaugh’s Murder Retrial Tentatively Set for April 2027**\
+`The move comes after a court overturned his murder convictions. A judge still needs to decide the location of the trial and what evidence will be allowed.`\
+https://www.nytimes.com/2026/06/29/us/alex-murdaugh-murder-retrial-date.html
+
+**Pakistan Launches Deadly Strikes in Afghanistan**\
+`The United Nations’ mission in Afghanistan said that at least 28 civilians were killed and several others were injured in Pakistani airstrikes on eastern Afghanistan on Sunday.`\
+https://www.nytimes.com/video/world/asia/100000010998779/afghanistan-pakistan-airstrikes.html
+
+**Why Trump Is Giving Republicans Midterms Anxiety**\
+`Ahead of the midterms, Republicans have sought to focus on the issue of affordability, but the president keeps going off script. Our White House correspondent Tyler Pager explains.`\
+https://www.nytimes.com/video/us/politics/100000010993276/why-trump-is-giving-republicans-midterms-anxiety.html
+
 **Another Trump Administration Payment to Stop Offshore Wind Farm**\
 `It was the fourth such deal struck by the administration to get companies to forfeit their offshore wind leases.`\
 https://www.nytimes.com/2026/06/29/climate/trump-offshore-wind-duke-energy.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/06/29/weather/heat-wave-eastern-europe-forecasts.ht
 **Many Child Safety Features on Social Apps Don’t Work, Report Finds**\
 `Researchers found that teens can discover harmful content, connect with unknown adults and easily bypass time limits.`\
 https://www.nytimes.com/2026/06/29/us/social-media-child-safety-report.html
-
-**Could Comcast and NBCUniversal Do Deals After They Break Up?**\
-`Comcast said it plans to spin off its big media division from its core broadband operations. That could lead to some big-ticket deal-making.`\
-https://www.nytimes.com/2026/06/29/business/dealbook/comcast-nbcuniversal-deals.html
-
-**Andy Burnham, the UK’s Likely Next Prime Minister, Promises Shift of Power Out of London**\
-`Andy Burnham, who looks set to become prime minister next month, said he would set up a new operation in Manchester called “No. 10 North” to give more funding and control to local leaders.`\
-https://www.nytimes.com/2026/06/29/world/europe/uk-andy-burnham-agenda-speech.html
-
-**Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
-`Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
-https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
