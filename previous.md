@@ -1,3 +1,7 @@
+**‘Heat Dome’ Grips Eastern Europe**\
+`High-level heat warnings were in place across much of Eastern Europe on Monday as a “heat dome,” which broke temperatures in France, Britain and Spain last week, continued to shift east.`\
+https://www.nytimes.com/video/world/europe/100000010998767/heat-wave-eastern-europe.html
+
 **Supreme Court Upholds Mississippi Late-Arriving Mail-In Ballot Law**\
 `The justices had been asked to examine the legality of the state’s grace period for late-arriving mail-in ballots.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-late-mail-ballots.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/29/arts/television/the-bear-finale-review.html
 **The Best Movies of 2026 So Far, and Where to Watch Them**\
 `Now is a good time to catch up on films you may have missed. Our critics have thoughts.`\
 https://www.nytimes.com/2026/06/29/movies/best-movies-2026.html
-
-**This Baker’s Business Is Booming (and It’s Not Just Because of the Cannon Fire)**\
-`Justin Cherry’s breads are in demand this semiquincentennial, as is his knowledge of historical baking methods.`\
-https://www.nytimes.com/2026/06/29/dining/justin-cherry-half-crown-bakehouse.html
 

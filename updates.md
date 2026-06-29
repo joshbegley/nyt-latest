@@ -1,3 +1,7 @@
+**‘Heat Dome’ Grips Eastern Europe**\
+`High-level heat warnings were in place across much of Eastern Europe on Monday as a “heat dome,” which broke temperatures in France, Britain and Spain last week, continued to shift east.`\
+https://www.nytimes.com/video/world/europe/100000010998767/heat-wave-eastern-europe.html
+
 **Supreme Court Upholds Mississippi Late-Arriving Mail-In Ballot Law**\
 `The justices had been asked to examine the legality of the state’s grace period for late-arriving mail-in ballots.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-late-mail-ballots.html

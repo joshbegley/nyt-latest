@@ -1,3 +1,11 @@
+**Rescatistas hallan en los escombros a un niño de 11 años con vida**\
+`Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
+https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
+
+**Supreme Court Expands Presidential Power by Allowing Trump to Fire F.T.C. Official**\
+`President Trump’s firing tested a precedent that had insulated independent regulators. But the justices carved out the “unique role” of the Federal Reserve.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-independent-regulator-firings.html
+
 **‘Heat Dome’ Grips Eastern Europe**\
 `High-level heat warnings were in place across much of Eastern Europe on Monday as a “heat dome,” which broke temperatures in France, Britain and Spain last week, continued to shift east.`\
 https://www.nytimes.com/video/world/europe/100000010998767/heat-wave-eastern-europe.html
@@ -50,7 +58,7 @@ https://www.nytimes.com/2026/06/29/business/dealbook/comcast-nbcuniversal-deals.
 `Andy Burnham, who looks set to become prime minister next month, said he would set up a new operation in Manchester called “No. 10 North” to give more funding and control to local leaders.`\
 https://www.nytimes.com/2026/06/29/world/europe/uk-andy-burnham-agenda-speech.html
 
-**Ships Pull Back Amid Heightened Risk From Iran-U.S. Strikes**\
+**Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
 `Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/06/29/opinion/jack-smith-report-trump.html
 **On the ‘Lux Tour’, Rosalía Shape Shifts Through Dance**\
 `On the “Lux” tour, the pop star mingles dance genres, starting the show on pointe. As with her dip into opera, her technique might not be perfect, but the intention is good.`\
 https://www.nytimes.com/2026/06/29/arts/dance/rosalia-lux-tour-ballet-charm-ladonna.html
-
-**‘The Bear’ Finale: I Hope You Saved Room for Cake**\
-`After a run of dazzling and frustrating ambition, the series closes with a pared-down menu and a touch of sweetness.`\
-https://www.nytimes.com/2026/06/29/arts/television/the-bear-finale-review.html
-
-**The Best Movies of 2026 So Far, and Where to Watch Them**\
-`Now is a good time to catch up on films you may have missed. Our critics have thoughts.`\
-https://www.nytimes.com/2026/06/29/movies/best-movies-2026.html
 
