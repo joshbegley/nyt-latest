@@ -1,3 +1,7 @@
+**Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
+`El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
+https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto
+
 **¿Hay alguien vivo? 12 horas con médicos venezolanos en la zona del desastre**\
 `Un equipo médico partió de la capital para rescatar a la gente en la zona más afectada por el desastre, La Guaira. En cambio, lo que encontraron fue silencio entre las ruinas.`\
 https://www.nytimes.com/es/2026/06/29/espanol/medicos-desastre-la-guaira.html
