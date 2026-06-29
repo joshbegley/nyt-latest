@@ -1,3 +1,7 @@
+**N.B.A. Player Malik Beasley Charged in Federal Gambling Inquiry**\
+`Mr. Beasley, a former shooting guard for the Detroit Pistons, was among the latest group of people accused in a sweeping case targeting members of the N.B.A.`\
+https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
+
 **Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
 `A New Zealand Olympian, his small gym in Auckland grew into a worldwide chain.`\
 https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
