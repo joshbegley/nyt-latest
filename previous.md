@@ -1,3 +1,7 @@
+**Europe Heat Wave: Forecasts, Warnings and How to Stay Cool**\
+`A heat wave responsible for shattering numerous temperature records in Western Europe continued its shift east.`\
+https://www.nytimes.com/2026/06/29/weather/heat-wave-eastern-europe-forecasts.html
+
 **Many Child Safety Features on Social Apps Don’t Work, Report Finds**\
 `Researchers found that teens can discover harmful content, connect with unknown adults and easily bypass time limits.`\
 https://www.nytimes.com/2026/06/29/us/social-media-child-safety-report.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/well/100000010986709/can-ozempic-make-you-live-lon
 **Liberals Are Preaching Moral Values. What Took Them So Long?**\
 `Until recently, the language of morality belonged to social conservatives. But the history of liberalism suggests that values have been at its core all along.`\
 https://www.nytimes.com/2026/06/29/books/review/liberals-are-preaching-moral-values.html
-
-**Parents Can’t Give Their Kids Everything. Siblings Can Help.**\
-`There are virtues in growing up in a pack.`\
-https://www.nytimes.com/2026/06/29/opinion/siblings-families-shrinking.html
 

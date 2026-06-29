@@ -1,3 +1,7 @@
+**Europe Heat Wave: Forecasts, Warnings and How to Stay Cool**\
+`A heat wave responsible for shattering numerous temperature records in Western Europe continued its shift east.`\
+https://www.nytimes.com/2026/06/29/weather/heat-wave-eastern-europe-forecasts.html
+
 **Many Child Safety Features on Social Apps Don’t Work, Report Finds**\
 `Researchers found that teens can discover harmful content, connect with unknown adults and easily bypass time limits.`\
 https://www.nytimes.com/2026/06/29/us/social-media-child-safety-report.html
