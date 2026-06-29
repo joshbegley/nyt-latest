@@ -1,3 +1,11 @@
+**Migration Woes**\
+`We look into the anti-immigrant movement in South Africa.`\
+https://www.nytimes.com/2026/06/29/briefing/south-africa-immigration.html
+
+**Comcast to Spin Off NBCUniversal Into Separate Company**\
+`The media business, which owns NBC News, Universal Pictures and the Peacock streaming service, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
+https://www.nytimes.com/2026/06/29/business/comcast-nbcuniversal-spinoff.html
+
 **Pochettino’s Contract Extension Offer, and the Start of the Knockouts**\
 `Will the USMNT secure the services of their incumbent but in-demand head coach beyond this World Cup?`\
 https://www.nytimes.com/2026/06/29/podcasts/pochettino-contract-extension-offer-usmnt-world-cup-knockouts.html
