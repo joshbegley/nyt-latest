@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3 Episode 2 Recap: Throne of Blood**\
+`Rhaenyra is plunged back into grief. What will that mean for the fate of the realm?`\
+https://www.nytimes.com/2026/06/28/arts/television/house-of-the-dragon-recap-episode-2.html
+
 **Oil Markets Edge Higher After Days of Attacks in Persian Gulf**\
 `Oil prices inched up on Sunday evening, while the S&P 500 futures market was little changed.`\
 https://www.nytimes.com/2026/06/28/business/oil-markets-edge-higher-after-days-of-attacks-in-persian-gulf.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/arts/television/the-bear-season-5-recap.html
 **What Life Is Like in Dahiya Amid a Hezbollah-Israel Truce in Lebanon**\
 `Dahiya, a sprawling area and Hezbollah stronghold, is stirring back to life amid a tense truce with Israel. “This war has brought so much loss,” one resident said.`\
 https://www.nytimes.com/2026/06/28/world/middleeast/beirut-dahiya-israel-lebanon-cease-fire.html
-
-**Warrior, Hero, Villain or Fool? 150 Years of Reassessing Custer**\
-`Few American military commanders have had as complicated a legacy as George Armstrong Custer, who died at the Battle of the Little Bighorn in June 1876.`\
-https://www.nytimes.com/interactive/2026/06/28/arts/battle-little-bighorn-custer.html
 
