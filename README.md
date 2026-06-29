@@ -1,3 +1,7 @@
+**En Venezuela, comienzan los funerales de las víctimas de los terremotos**\
+`Los venezolanos empezaron a enterrar a algunas de las más de 1700 víctimas de los sismos de la semana pasada, y comparten historias de pérdidas inimaginables.`\
+https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-funerales.html
+
 **Cómo Rusia intenta ocultar los efectos de la guerra**\
 `Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
 https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.h
 **Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
 `A New Zealand Olympian, his small gym in Auckland grew into a worldwide chain.`\
 https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
-
-**Rescatistas hallan en los escombros a un niño de 11 años con vida**\
-`Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
-https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
 
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
