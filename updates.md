@@ -1,3 +1,11 @@
+**Search for Venezuela Quake Survivors Enters Fifth Day**\
+`Hopes of finding earthquake survivors has faded in Venezuela as the search entered its fifth day on Monday. The official death toll had risen to over 1,700 as of Monday afternoon, according to local authorities.`\
+https://www.nytimes.com/video/world/americas/100000010998902/venezuela-earthquake-search-survivors.html
+
+**The Supreme Court Expands Presidential Power**\
+`Also, NASA plans to catch a falling space telescope and nudge it up. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/06/29/briefing/supreme-court-presidential-power.html
+
 **In Peru’s Presidential Election, Keiko Fujimori Gives the Right in Latin America Another Win**\
 `Keiko Fujimori, a daughter of the former strongman Alberto Fujimori, returns her family’s movement to power, but with a narrow victory in a divided country.`\
 https://www.nytimes.com/2026/06/29/world/americas/peru-presidential-election-keiko-fujimori-conservative.html
