@@ -1,3 +1,11 @@
+**Supreme Court to Weigh if Arizona Can Demand Proof of Citizenship to Vote**\
+`The case could open the door to stricter registration requirements at a time when President Trump has been pushing for them.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-citizenship-voting-arizona.html
+
+**Trump Renews Threat to Fire Fed Governor in Wake of Court Loss**\
+`The president promised to “take appropriate action immediately” against Lisa D. Cook, a Fed governor.`\
+https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
+
 **‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\
 `In a rare dissent from the bench, Justice Sonia Sotomayor said that the Supreme Court undid “centuries of political practice,” and that the court concluded that the federal government had been acting in “open defiance of the Constitution.”`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-firings-dissent.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/29/podcasts/pochettino-contract-extension-offer-
 **Why Everyone Cares About This World Cup**\
 `Our reporter explains the magic of this moment, and two fans of the Iranian soccer team discuss its complexity.`\
 https://www.nytimes.com/2026/06/29/podcasts/the-daily/world-cup-iran.html
-
-**A Frantic Search for Survivors in Venezuela, and Fires Scorch Western U.S.**\
-`Plus, microdramas are trying to go mainstream.`\
-https://www.nytimes.com/2026/06/29/podcasts/the-headlines/survivors-venezuela-fires-us.html
-
-**Today’s Wordle Hints for June 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
-https://www.nytimes.com/2026/06/29/crosswords/wordle-review-1837.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\

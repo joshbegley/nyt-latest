@@ -1,6 +1,6 @@
 **‘Chaos Will Follow’ Ruling Allowing Trump Firings, Dissent Predicts**\
 `In a rare dissent from the bench, Justice Sonia Sotomayor said that the Supreme Court undid “centuries of political practice,” and that the court concluded that the federal government had been acting in “open defiance of the Constitution.”`\
-https://www.nytimes.com/2026/06/29/us/politics/chaos-will-follow-ruling-allowing-trump-firings-dissent-predicts.html
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-firings-dissent.html
 
 **New York Unveils $5 Billion Plan to Finish Brooklyn Mega-Development**\
 `The proposal is the latest attempt to complete Atlantic Yards, a project near Downtown Brooklyn that includes building housing over a rail yard. It has been in progress for decades.`\
