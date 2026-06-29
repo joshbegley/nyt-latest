@@ -1,3 +1,7 @@
+**Supreme Court Puts Limits on Cellphone Location Data Searches**\
+`The case involved “geofence” searches, which allow law enforcement to find suspects and witnesses by sweeping up location data from cellphones near crime scenes.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-geofence-warrant-cell-phones.html
+
 **Review: The Choreographer Lucinda Childs’s Persistence of Vision**\
 `“Momentary Reprise,” a program at Bard SummerScape, spanned Childs’s career, showing how she settled on a style in the 1970s and stuck with it.`\
 https://www.nytimes.com/2026/06/29/arts/dance/review-lucinda-childs-bard-summerscape-momentary-reprise.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/29/world/europe/france-heat-wave-excess-deaths.h
 **Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
 `The death toll has risen to 1,450 people, according to the Venezuelan government, but that grim figure is likely to be a dramatic undercount.`\
 https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/americas/100000010998713/29vid-venezuela-destruction-75664.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
