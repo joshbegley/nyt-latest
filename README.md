@@ -1,3 +1,7 @@
+**Kean Set to Speak at the Capitol After Mysterious Absence**\
+`After months of silence, Representative Tom Kean Jr. was expected to deliver a speech explaining his 116-day absence from Congress.`\
+https://www.nytimes.com/2026/06/29/us/politics/tom-kean-returns.html
+
 **Senator Gallego’s Use of Campaign Funds for Family Trips Prompts Scrutiny**\
 `The Arizona senator used campaign money to fly his family to Nantucket and the Caribbean. The Justice Department has said it is investigating his campaign finance activity.`\
 https://www.nytimes.com/2026/06/29/us/politics/gallego-campaign-funds-family.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/29/arts/dance/review-lucinda-childs-bard-summers
 **‘No One’s Coming to Save Us but Us’: Gen Z Runs for Office**\
 `Melat Kiros’s challenge Tuesday to Representative Diana DeGette, who was elected the year before Ms. Kiros was born, is the latest Gen Z test in a year defined by generational upheaval.`\
 https://www.nytimes.com/2026/06/29/us/elections/colorado-primary-gen-z.html
-
-**The Supreme Court Just Handed Trump a Dangerous New Power**\
-`The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
-https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
 

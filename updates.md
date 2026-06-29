@@ -1,3 +1,11 @@
+**Senator Gallego’s Use of Campaign Funds for Family Trips Prompts Scrutiny**\
+`The Arizona senator used campaign money to fly his family to Nantucket and the Caribbean. The Justice Department has said it is investigating his campaign finance activity.`\
+https://www.nytimes.com/2026/06/29/us/politics/gallego-campaign-funds-family.html
+
+**Inmates Take Guards Hostage in Hourslong Standoff at North Carolina Jail**\
+`It is not yet clear what ignited the takeover, but the county sheriff said it started when at least one inmate got access to keys used to unlock cell doors.`\
+https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html
+
 **How the Wildfires in Colorado and Utah Were Poised to Spark**\
 `Since last week, meteorologists issued a series of increasingly dire warnings about extremely critical weather conditions.`\
 https://www.nytimes.com/2026/06/29/weather/utah-colorado-fire-drought.html

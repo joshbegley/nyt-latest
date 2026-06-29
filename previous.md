@@ -1,3 +1,7 @@
+**Senator Gallego’s Use of Campaign Funds for Family Trips Prompts Scrutiny**\
+`The Arizona senator used campaign money to fly his family to Nantucket and the Caribbean. The Justice Department has said it is investigating his campaign finance activity.`\
+https://www.nytimes.com/2026/06/29/us/politics/gallego-campaign-funds-family.html
+
 **How the Wildfires in Colorado and Utah Were Poised to Spark**\
 `Since last week, meteorologists issued a series of increasingly dire warnings about extremely critical weather conditions.`\
 https://www.nytimes.com/2026/06/29/weather/utah-colorado-fire-drought.html
@@ -131,7 +135,7 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-mail-ballots-grace-
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
 
 **Inmates Take Guards Hostage in Hourslong Standoff at North Carolina Jail**\
-`The authorities have not yet explained what led to the takeover, which ended Monday afternoon after unspecified negotiations.`\
+`It is not yet clear what ignited the takeover, but the county sheriff said it started when at least one inmate got access to keys used to unlock cell doors.`\
 https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html
 
 **The Winners of Our 9th Annual Student Podcast Contest**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/29/us/elections/colorado-primary-gen-z.html
 **The Supreme Court Just Handed Trump a Dangerous New Power**\
 `The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
-
-**Reflections on an Imperfect America at 250**\
-`Readers respond to the Sunday Opinion section on what America gets right. Also: President Trump on a $250 bill; aid for immigrants.`\
-https://www.nytimes.com/2026/06/29/opinion/trump-america-250.html
 
