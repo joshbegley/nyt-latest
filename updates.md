@@ -1,3 +1,15 @@
+**Alex Murdaugh’s Murder Retrial Tentatively Set for April 2027**\
+`The move comes after a court overturned his murder convictions. A judge still needs to decide the location of the trial and what evidence will be allowed.`\
+https://www.nytimes.com/2026/06/29/us/alex-murdaugh-murder-retrial-date.html
+
+**Pakistan Launches Deadly Strikes in Afghanistan**\
+`The United Nations’ mission in Afghanistan said that at least 28 civilians were killed and several others were injured in Pakistani airstrikes on eastern Afghanistan on Sunday.`\
+https://www.nytimes.com/video/world/asia/100000010998779/afghanistan-pakistan-airstrikes.html
+
+**Why Trump Is Giving Republicans Midterms Anxiety**\
+`Ahead of the midterms, Republicans have sought to focus on the issue of affordability, but the president keeps going off script. Our White House correspondent Tyler Pager explains.`\
+https://www.nytimes.com/video/us/politics/100000010993276/why-trump-is-giving-republicans-midterms-anxiety.html
+
 **Another Trump Administration Payment to Stop Offshore Wind Farm**\
 `It was the fourth such deal struck by the administration to get companies to forfeit their offshore wind leases.`\
 https://www.nytimes.com/2026/06/29/climate/trump-offshore-wind-duke-energy.html

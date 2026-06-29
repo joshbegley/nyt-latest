@@ -1,3 +1,7 @@
+**Luigi Mangione’s Federal Trial Delayed Until January**\
+`A federal judge made the postponement to avoid potential conflict with Luigi Mangione’s state trial regarding the assassination of a health insurance executive.`\
+https://www.nytimes.com/2026/06/29/nyregion/mangione-federal-trial-delay.html
+
 **Alex Murdaugh’s Murder Retrial Tentatively Set for April 2027**\
 `The move comes after a court overturned his murder convictions. A judge still needs to decide the location of the trial and what evidence will be allowed.`\
 https://www.nytimes.com/2026/06/29/us/alex-murdaugh-murder-retrial-date.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/06/29/arts/dance/review-lucinda-childs-bard-summers
 `Melat Kiros’s challenge Tuesday to Representative Diana DeGette, who was elected the year before Ms. Kiros was born, is the latest Gen Z test in a year defined by generational upheaval.`\
 https://www.nytimes.com/2026/06/29/us/elections/colorado-primary-gen-z.html
 
-**The Court Just Handed Trump a Dangerous New Power**\
+**The Court’s Hypocrisy**\
 `The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/06/29/espanol/sobrevivientes-caracas-san-bernard
 **Europe Heat Wave: Forecasts, Warnings and How to Stay Cool**\
 `A heat wave responsible for shattering numerous temperature records in Western Europe continued its shift east.`\
 https://www.nytimes.com/2026/06/29/weather/heat-wave-eastern-europe-forecasts.html
-
-**Many Child Safety Features on Social Apps Don’t Work, Report Finds**\
-`Researchers found that teens can discover harmful content, connect with unknown adults and easily bypass time limits.`\
-https://www.nytimes.com/2026/06/29/us/social-media-child-safety-report.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
