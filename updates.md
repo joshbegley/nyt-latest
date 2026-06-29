@@ -1,3 +1,23 @@
+**Read Newly Discovered Documents from John Dickinson, a U.S. Founding Father**\
+`A letter from Dickinson, a leader of the First and Second Continental Congress, glimpses an effort to peaceably avert the Revolutionary War.`\
+https://www.nytimes.com/interactive/2026/06/29/us/john-dickinson-letter-england-peace.html
+
+**Emily Barker Loved Fighting Fires. She Died in One She Couldn’t Escape.**\
+`Emily Barker was one of two women who died fighting a large forest fire in Colorado this week.`\
+https://www.nytimes.com/2026/06/29/us/women-forest-firefighter-deaths-emily-barker.html
+
+**What the U.S. Owes Venezuela**\
+`Expectations are rising over the role the Trump administration could play in helping after two devastating quakes.`\
+https://www.nytimes.com/2026/06/29/world/venezuela-earthquake-trump-aid.html
+
+**Drone Strikes JetBlue Flight Landing at Kennedy Airport, Pilot Says**\
+`The incident Monday came less than three days after a United Airlines crew reported encountering a drone while arriving at Newark Liberty International Airport.`\
+https://www.nytimes.com/2026/06/29/nyregion/drone-jetblue-kennedy-airport.html
+
+**Man Indicted on Charges of Stabbing 7 People at Penn Station**\
+`Prosecutors say the man, Hector Deleon, went on a spree of random violence in June at the nation’s busiest transit hub, leaving at least one person with a brain injury.`\
+https://www.nytimes.com/2026/06/29/nyregion/penn-station-stabbing-arraignment.html
+
 **Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
 `President Trump promised to “take appropriate action immediately” against Lisa Cook, the Fed governor he had tried to fire, even as the Supreme Court affirmed that Fed officials can be fired only for cause.`\
 https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html

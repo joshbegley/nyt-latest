@@ -1,3 +1,23 @@
+**Read Newly Discovered Documents from John Dickinson, a U.S. Founding Father**\
+`A letter from Dickinson, a leader of the First and Second Continental Congress, glimpses an effort to peaceably avert the Revolutionary War.`\
+https://www.nytimes.com/interactive/2026/06/29/us/john-dickinson-letter-england-peace.html
+
+**Emily Barker Loved Fighting Fires. She Died in One She Couldn’t Escape.**\
+`Emily Barker was one of two women who died fighting a large forest fire in Colorado this week.`\
+https://www.nytimes.com/2026/06/29/us/women-forest-firefighter-deaths-emily-barker.html
+
+**What the U.S. Owes Venezuela**\
+`Expectations are rising over the role the Trump administration could play in helping after two devastating quakes.`\
+https://www.nytimes.com/2026/06/29/world/venezuela-earthquake-trump-aid.html
+
+**Drone Strikes JetBlue Flight Landing at Kennedy Airport, Pilot Says**\
+`The incident Monday came less than three days after a United Airlines crew reported encountering a drone while arriving at Newark Liberty International Airport.`\
+https://www.nytimes.com/2026/06/29/nyregion/drone-jetblue-kennedy-airport.html
+
+**Man Indicted on Charges of Stabbing 7 People at Penn Station**\
+`Prosecutors say the man, Hector Deleon, went on a spree of random violence in June at the nation’s busiest transit hub, leaving at least one person with a brain injury.`\
+https://www.nytimes.com/2026/06/29/nyregion/penn-station-stabbing-arraignment.html
+
 **Abdul Ahad Momand, Only Afghan to Fly in Space, Is Dead**\
 `A pilot in the Afghan Air Force, he was recruited for the Soviet space program. His 1988 flight took place as the Soviets were fighting a war in his country.`\
 https://www.nytimes.com/2026/06/29/world/middleeast/abdul-ahad-momand-dead.html
@@ -169,26 +189,6 @@ https://www.nytimes.com/2026/06/29/nyregion/atlantic-yards-brooklyn-development.
 **In San Francisco’s A.I. Era, Even $180,000 Tech Salaries Are No Longer Enough**\
 `As OpenAI and Anthropic prepare to go public, tech workers making six figures are grousing that they cannot compete with the new A.I. elite. Some doubt they can afford to stay.`\
 https://www.nytimes.com/2026/06/29/technology/san-francisco-tech-salaries.html
-
-**Today, In Short**\
-`Gracie Abrams. Italian vacations. And the latest from the Supreme Court.`\
-https://www.nytimes.com/2026/06/29/briefing/today-in-short.html
-
-**Even Absent, Trump Takes the Spotlight at a Night Celebrating Bill Maher**\
-`What the politician and the comic have in common became clear at the Mark Twain Prize ceremony, where the winner was called “underrated.”`\
-https://www.nytimes.com/2026/06/29/arts/television/bill-maher-trump-mark-twain-prize-kennedy-center.html
-
-**See How the Makeup of Independent Agencies Has Changed Under Trump**\
-`Even before the Supreme Court granted him more power to fire officials, President Trump had effectively ended Democratic majorities at several agencies.`\
-https://www.nytimes.com/2026/06/29/us/politics/independent-agencies-trump.html
-
-**Read the Supreme Court’s Decision to Expand Presidential Power Over Regulators**\
-`The Supreme Court expanded President Trump’s power to fire independent government regulators, but said Federal Reserve officials could not be fired at will.`\
-https://www.nytimes.com/interactive/2026/06/29/us/politics/supreme-court-decision-trump-presidential-power-slaughter.html
-
-**Justices Expand Presidential Power Over Regulators, but Not the Fed**\
-`In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
-https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power
 
 **World Cup Updates: Dozens of Signs in Spanish Help a Team Feel at Home**\
 `(No description)`\
