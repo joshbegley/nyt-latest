@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/06/29/science/nasa-falling-space-telescope-swift.ht
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-muertos.html
 
 **At Funerals, Venezuela’s Wounded Families and Friends Unite in Grief**\
-`Venezuelans began to bury some of the more than 1,400 victims of last week’s earthquakes, sharing tales of unimaginable loss.`\
+`Venezuelans began to bury some of the more than 1,700 victims of last week’s earthquakes, sharing tales of unimaginable loss.`\
 https://www.nytimes.com/2026/06/29/world/americas/venezuela-funerals-earthquake.html
 
 **tk**\
