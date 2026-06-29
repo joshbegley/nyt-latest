@@ -1,3 +1,15 @@
+**Read the Supreme Court’s Decision to Expand Presidential Power Over Regulators**\
+`The Supreme Court expanded President Trump’s power to fire independent government regulators, but said Federal Reserve officials could not be fired at will.`\
+https://www.nytimes.com/interactive/2026/06/29/us/politics/supreme-court-decision-trump-presidential-power-slaughter.html
+
+**Read the Supreme Court’s Decision to Block the Firing of Lisa Cook**\
+`The Supreme Court’s found Lisa Cook, a Federal Reserve governor, had not been given an opportunity to refute the administration’s unproven allegations of mortgage fraud.`\
+https://www.nytimes.com/interactive/2026/06/29/us/politics/supreme-court-decision-trump-lisa-cook.html
+
+**Scale of Venezuela Earthquakes Death Toll Could Take Weeks to Emerge**\
+`Experts pointed to several indications that the twin earthquakes were particularly lethal, including the number of people reported missing and the extent of building damage.`\
+https://www.nytimes.com/2026/06/29/world/americas/venezuela-earthquake-death-toll.html
+
 **Turtles Are Really Weird Animals. Where Did They Come From?**\
 `The origin of turtles has puzzled scientists. A new study provides more evidence that these shelled reptiles share a common ancestor with crocodiles and birds.`\
 https://www.nytimes.com/2026/06/29/science/turtles-origins-dinosaurs-archosaurs.html
@@ -11,7 +23,7 @@ https://www.nytimes.com/2026/06/29/dining/getting-my-greens-with-this-satisfying
 https://www.nytimes.com/interactive/2026/06/29/books/review/round-table-quiz.html
 
 **Read the Indictment of Malik Beasley**\
-`Mr. Beasley, a former shooting guard for the Detroit Pistons, and four others have become the latest people to be caught up in a sweeping N.B.A. gambling investigation by federal prosecutors in Brooklyn.`\
+`Mr. Beasley, a former shooting guard for the Detroit Pistons, and five others have become the latest people to be caught up in a sweeping N.B.A. gambling investigation by federal prosecutors in Brooklyn.`\
 https://www.nytimes.com/interactive/2026/06/29/nyregion/malik-beasley-indictment.html
 
 **Naomi Osaka Serves Up a Fashion Slam at Wimbledon**\
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/06/29/us/springfield-ohio-haitians-tps.html
 **What Donald Trump Really Loves**\
 `Flattery paves the road to the president’s heart.`\
 https://www.nytimes.com/2026/06/29/opinion/trump-love-language.html
-
-**In Brazil, Making a Huge Space ‘Cozy’ Is a Big Challenge**\
-`A family hired Coletivo Arquitetos to add a sense of warmth to their two-story penthouse in São Paulo.`\
-https://www.nytimes.com/2026/06/29/realestate/in-brazil-making-a-huge-space-cozy-is-a-big-challenge.html
-
-**China Emerges as a Relative Winner From Strait of Hormuz Crisis**\
-`A report examines how the war in Iran has weighed on Asian economies, but left China in a more advantageous position.`\
-https://www.nytimes.com/2026/06/29/business/economy/china-iran-strait-of-hormuz.html
-
-**With Final Decisions Ahead, the Supreme Court Is Sharply Divided**\
-`The justices will decide this week whether President Trump can end the guarantee of birthright citizenship and fire a leader of the independent Federal Reserve.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-final-decisions.html
 
