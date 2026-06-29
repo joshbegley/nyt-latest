@@ -1,3 +1,23 @@
+**Why Everyone Cares About This World Cup**\
+`Our reporter explains the magic of this moment, and two fans of the Iranian soccer team discuss its complexity.`\
+https://www.nytimes.com/2026/06/29/podcasts/the-daily/world-cup-iran.html
+
+**A Frantic Search for Survivors in Venezuela, and Fires Scorch Western U.S.**\
+`Plus, microdramas are trying to go mainstream.`\
+https://www.nytimes.com/2026/06/29/podcasts/the-headlines/survivors-venezuela-fires-us.html
+
+**Today’s Wordle Hints for June 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/29/crosswords/wordle-review-1837.html
+
+**NYT Strands Hints for June 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/29/crosswords/strands-sidekick-849.html
+
+**NYT Connections Answers for June 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/29/crosswords/connections-companion-1115.html
+
 **Pakistan Attacks Afghanistan, Killing More Than 30**\
 `The Taliban said that airstrikes left 36 civilians dead, while Pakistan claimed that its assault killed 32 militants, in the latest in a monthslong conflict.`\
 https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/world/americas/100000010998526/venezuela-earthquak
 **Making New Friends Is Hard. These Social Clubs Want to Make It Easier.**\
 `A new type of event aims to forge connection despite hectic schedules, exhaustion and a plethora of other social options.`\
 https://www.nytimes.com/2026/06/29/nyregion/nyc-lonely-making-friends.html
-
-**In Japan’s ‘Little Brazil,’ a World Cup Showdown Tests Loyalties**\
-`More than 200,000 Brazilians live in Japan, after more than a century of migration between the countries. Many are of Japanese descent, so which team are they cheering on?`\
-https://www.nytimes.com/2026/06/29/world/asia/japan-brazil-world-cup-fans.html
-
-**Los jóvenes que eligieron quedarse en Cuba**\
-`En medio del mayor éxodo de la historia reciente del país, cuatro cubanos narran lo que significa permanecer en la isla.`\
-https://www.nytimes.com/es/2026/06/29/espanol/opinion/cuba-jovenes-exilio-artistas.html
-
-**A.I. Is Strangling Our Economy**\
-`So much money is being poured into A.I. that the rest of the economy is starting to suffer.`\
-https://www.nytimes.com/2026/06/29/opinion/ai-economy-affordability.html
-
-**‘Elle’ and 10 More Shows to Watch on TV this Week**\
-`This “Legally Blonde” prequel premieres and networks air coverage around the nation’s 250th Independence Day.`\
-https://www.nytimes.com/2026/06/29/arts/television/elle-and-10-more-shows-to-watch-on-tv-this-week.html
-
-**Quote of the Day: Venezuelan Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
-`Quotation of the Day for Monday, June 29, 2026.`\
-https://www.nytimes.com/2026/06/29/pageoneplus/quote-of-the-day-venezuelan-civilians-fill-the-gaps-one-grain-of-sand-at-a-time.html
 

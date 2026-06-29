@@ -1,3 +1,23 @@
+**Why Everyone Cares About This World Cup**\
+`Our reporter explains the magic of this moment, and two fans of the Iranian soccer team discuss its complexity.`\
+https://www.nytimes.com/2026/06/29/podcasts/the-daily/world-cup-iran.html
+
+**A Frantic Search for Survivors in Venezuela, and Fires Scorch Western U.S.**\
+`Plus, microdramas are trying to go mainstream.`\
+https://www.nytimes.com/2026/06/29/podcasts/the-headlines/survivors-venezuela-fires-us.html
+
+**Today’s Wordle Hints for June 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/29/crosswords/wordle-review-1837.html
+
+**NYT Strands Hints for June 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/29/crosswords/strands-sidekick-849.html
+
+**NYT Connections Answers for June 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/29/crosswords/connections-companion-1115.html
+
 **Pakistan Attacks Afghanistan, Killing More Than 30**\
 `The Taliban said that airstrikes left 36 civilians dead, while Pakistan claimed that its assault killed 32 militants, in the latest in a monthslong conflict.`\
 https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
