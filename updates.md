@@ -1,3 +1,7 @@
+**Many Child Safety Features on Social Apps Don’t Work, Report Finds**\
+`Researchers found that teens can discover harmful content, connect with unknown adults and easily bypass time limits.`\
+https://www.nytimes.com/2026/06/29/us/social-media-child-safety-report.html
+
 **Could Comcast and NBCUniversal Do Deals After They Break Up?**\
 `Comcast said it plans to spin off its big media division from its core broadband operations. That could lead to some big-ticket deal-making.`\
 https://www.nytimes.com/2026/06/29/business/dealbook/comcast-nbcuniversal-deals.html

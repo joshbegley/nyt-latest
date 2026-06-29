@@ -1,3 +1,7 @@
+**Many Child Safety Features on Social Apps Don’t Work, Report Finds**\
+`Researchers found that teens can discover harmful content, connect with unknown adults and easily bypass time limits.`\
+https://www.nytimes.com/2026/06/29/us/social-media-child-safety-report.html
+
 **Could Comcast and NBCUniversal Do Deals After They Break Up?**\
 `Comcast said it plans to spin off its big media division from its core broadband operations. That could lead to some big-ticket deal-making.`\
 https://www.nytimes.com/2026/06/29/business/dealbook/comcast-nbcuniversal-deals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/29/books/review/liberals-are-preaching-moral-val
 **Parents Can’t Give Their Kids Everything. Siblings Can Help.**\
 `There are virtues in growing up in a pack.`\
 https://www.nytimes.com/2026/06/29/opinion/siblings-families-shrinking.html
-
-**How Washington State Is Helping Thousands of Black Residents Buy Homes**\
-`A groundbreaking loan program, designed to address historical racial discrimination, is facing new legal challenges.`\
-https://www.nytimes.com/2026/06/29/realestate/washington-state-redlining-covenant-homeownership.html
 
