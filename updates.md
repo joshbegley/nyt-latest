@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Gracie Abrams. Italian vacations. And the latest from the Supreme Court.`\
+https://www.nytimes.com/2026/06/29/briefing/today-in-short.html
+
 **Even Absent, Trump Takes the Spotlight at a Night Celebrating Bill Maher**\
 `What the politician and the comic have in common became clear at the Mark Twain Prize ceremony, where the winner was called “underrated.”`\
 https://www.nytimes.com/2026/06/29/arts/television/bill-maher-trump-mark-twain-prize-kennedy-center.html

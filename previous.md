@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Gracie Abrams. Italian vacations. And the latest from the Supreme Court.`\
+https://www.nytimes.com/2026/06/29/briefing/today-in-short.html
+
 **Even Absent, Trump Takes the Spotlight at a Night Celebrating Bill Maher**\
 `What the politician and the comic have in common became clear at the Mark Twain Prize ceremony, where the winner was called “underrated.”`\
 https://www.nytimes.com/2026/06/29/arts/television/bill-maher-trump-mark-twain-prize-kennedy-center.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
 **Para estos adolescentes, el fútbol lo es todo. Ahora, los cárteles quieren meterse al juego**\
 `En Celaya, México, los cárteles locales han convertido las canchas de fútbol en sangrientos campos de batalla al hacer de una liga local para adolescentes su última apuesta empresarial.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carteles-futbol.html
-
-**Mideast Live Updates: U.S. and Iran Set for New Talks in Qatar, Trump Says**\
-`President Trump said the discussions would take place on Tuesday, after the United States and Iran exchanged strikes over the weekend. Iran did not confirm the talks but said consultations with Qatar were continuing.`\
-https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
 
