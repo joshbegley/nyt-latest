@@ -1,3 +1,7 @@
+**Oil Prices Rise on Possible Deal to Suspend Attacks in Gulf**\
+`Oil prices edged higher after an American official said the U.S. and Iran had agreed to halt attacks in a key shipping lane, raising hopes that hostilities would not escalate.`\
+https://www.nytimes.com/2026/06/29/business/oil-gas-price-iran.html
+
 **How The Times/Siena Poll Writes Sensitive Questions**\
 `Asking voters about highly charged issues is a delicate task. Precise language helps us avoid introducing bias so that we can best understand what is driving voters’ decisions.`\
 https://www.nytimes.com/2026/06/29/polls/polling-political-controversies-platner-maine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/world/europe/central-europe-heat-wave.html
 **Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
-
-**See How Colombia’s Goal Was Ruled Offside by a Toe**\
-`View in 3-D how close Colombia came to scoring a go-ahead goal in second-half stoppage time against Portugal.`\
-https://www.nytimes.com/interactive/2026/06/28/sports/soccer/colombia-portugal-world-cup-offside-goal.html
 
