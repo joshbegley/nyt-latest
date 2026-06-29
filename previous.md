@@ -1,3 +1,7 @@
+**Making New Friends Is Hard. These Social Clubs Want to Make It Easier.**\
+`A new type of event aims to forge connection despite hectic schedules, exhaustion and a plethora of other social options.`\
+https://www.nytimes.com/2026/06/29/nyregion/nyc-lonely-making-friends.html
+
 **In Japan’s ‘Little Brazil,’ a World Cup Showdown Tests Loyalties**\
 `More than 200,000 Brazilians live in Japan, following more than a century of migration between the countries. Many are of Japanese descent, so who are they cheering on?`\
 https://www.nytimes.com/2026/06/29/world/asia/japan-brazil-world-cup-fans.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/opinion/lewis-clark-scientific-research-fundi
 **The Hamptons’ Essential Luxury Good: Human Labor**\
 `The people who want to visit can’t function without the people who have to live there.`\
 https://www.nytimes.com/2026/06/28/opinion/the-hamptons-human-labor.html
-
-**Mideast Live Updates: U.S. Indicates a Deal to Suspend Attacks in Strait but Iran Hasn’t Confirmed**\
-`A U.S. official said the U.S. and Iran agreed to halt attacks in the Strait of Hormuz and allow vessels to move freely. Hostilities in recent days have threatened a two-week-old cease-fire.`\
-https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
 
