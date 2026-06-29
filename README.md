@@ -167,7 +167,7 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-ftc-rebecca-slaught
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-lisa-cook-fed-firing-dissents.html
 
 **See Day-by-Day Forecast as Heat Wave Engulfs U.S. Ahead of the July 4 Weekend**\
-`Dangerous heat is expected across much of the country through the July 4 weekend.`\
+`Dangerous heat is expected across much of the country through the Fourth of July weekend.`\
 https://www.nytimes.com/2026/06/29/weather/us-heat-wave-forecast.html
 
 **Luigi Mangione’s Federal Trial Delayed Until January**\

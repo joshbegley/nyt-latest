@@ -1,3 +1,7 @@
+**Director Who Defrauded Netflix Gets 30-Month Prison Term**\
+`Carl Rinsch was convicted last year of stealing $11 million from the streamer, which funded a science fiction series he had pitched.`\
+https://www.nytimes.com/2026/06/29/business/carl-rinsch-netflix-fraud.html
+
 **Sex Abuse Survivors Reach $395 Million Settlement With San Francisco Diocese**\
 `The Archdiocese of San Francisco and lawyers for the survivors said the settlement, which needs final approval, would resolve about 530 claims from people who said they were sexually abused by clergy members.`\
 https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html

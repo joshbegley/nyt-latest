@@ -1,3 +1,7 @@
+**Director Who Defrauded Netflix Gets 30-Month Prison Term**\
+`Carl Rinsch was convicted last year of stealing $11 million from the streamer, which funded a science fiction series he had pitched.`\
+https://www.nytimes.com/2026/06/29/business/carl-rinsch-netflix-fraud.html
+
 **Two Dan Sullivans to Appear on Alaska Senate Ballot, State High Court Rules**\
 `Republicans had sought the removal of a little-known candidate with the same name as the incumbent senator, arguing that he was not a “good faith” candidate.`\
 https://www.nytimes.com/2026/06/29/us/politics/alaska-dan-sullivan-senate-ballot.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/29/climate/trump-offshore-wind-duke-energy.html
 **Wimbledon Is One Place That Won’t Screen England in the World Cup**\
 `The tennis tournament, a bastion of sometimes stuffy rules, has no plans to broadcast World Cup matches on Henman Hill, but restrictions on cellphone use have been eased.`\
 https://www.nytimes.com/2026/06/29/world/europe/wimbledon-world-cup.html
-
-**Supreme Court Puts Limits on Cellphone Location Data Searches**\
-`The case involved “geofence” searches, which allow law enforcement to find suspects and witnesses by sweeping up location data from cellphones near crime scenes.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-geofence-warrant-cell-phones.html
 
