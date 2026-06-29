@@ -1,3 +1,7 @@
+**Para estos adolescentes, el fútbol lo es todo. Ahora, los cárteles quieren meterse al juego**\
+`En Celaya, México, los cárteles locales han convertido las canchas de fútbol en sangrientos campos de batalla al hacer de una liga local para adolescentes su última apuesta empresarial.`\
+https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carteles-futbol.html
+
 **Mideast Live Updates: U.S. Reaches Deal With Iran to Halt Attacks, Official Says**\
 `The agreement would allow vessels to move freely through the Strait of Hormuz, a U.S. official said. Iran has not confirmed the deal.`\
 https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/29/pageoneplus/quote-of-the-day-venezuelan-civil
 **NYT Spelling Bee Answers for June 29, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/29/crosswords/spelling-bee-forum.html
-
-**Metropolitan Diary Challenge Day 2: How to Write Your N.Y. Story**\
-`We want to help you craft your own Metropolitan Diary entry. Here are some tips for turning a special New York memory into a great story.`\
-https://www.nytimes.com/interactive/2026/06/28/nyregion/metropolitan-diary-challenge-day-2.html
 
