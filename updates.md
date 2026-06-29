@@ -1,3 +1,7 @@
+**Rescuers Find Earthquake Survivors as Critical Window Closes**\
+`An 11-year-old boy was rescued from the rubble of Venezuela’s twin earthquakes as the window to find survivors was closing. The country’s president said operations would continue.`\
+https://www.nytimes.com/video/world/americas/100000010998526/venezuela-earthquake-survivors-rescue.html
+
 **Making New Friends Is Hard. These Social Clubs Want to Make It Easier.**\
 `A new type of event aims to forge connection despite hectic schedules, exhaustion and a plethora of other social options.`\
 https://www.nytimes.com/2026/06/29/nyregion/nyc-lonely-making-friends.html
