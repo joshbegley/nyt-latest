@@ -1,3 +1,11 @@
+**tk**\
+`tk`\
+https://static01.nyt.com/slideshow/2026/06/29/t-magazine/tk.html
+
+**Supreme Court Rules Against Roy Moore in Fight Over $8.2 Million Jury Award**\
+`The former Alabama Supreme Court justice and Senate candidate had asked the court to clear a path for him to potentially collect a jury award in a defamation case.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-roy-moore.html
+
 **Supreme Court to Weigh if Arizona Can Demand Proof of Citizenship to Vote**\
 `The case could open the door to stricter registration requirements at a time when President Trump has been pushing for them.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-citizenship-voting-arizona.html

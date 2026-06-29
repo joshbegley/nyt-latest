@@ -1,3 +1,11 @@
+**La cifra total de víctimas de los terremotos en Venezuela podría saberse en semanas**\
+`Los expertos señalaron varios indicios de la letalidad de los dos terremotos, como el número de personas desaparecidas y la magnitud de los daños en los edificios.`\
+https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-muertos.html
+
+**At Funerals, Venezuela’s Wounded Families and Friends Unite in Grief**\
+`Venezuelans began to bury some of the more than 1,400 victims of last week’s earthquakes, sharing tales of unimaginable loss.`\
+https://www.nytimes.com/2026/06/29/world/americas/venezuela-funerals-earthquake.html
+
 **tk**\
 `tk`\
 https://static01.nyt.com/slideshow/2026/06/29/t-magazine/tk.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/embedded/world/americas/100000010998685/29vid-losc
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010998678/29vid-laguaira-drone-57583.html
-
-**Migration Woes**\
-`We look into the anti-immigrant movement in South Africa.`\
-https://www.nytimes.com/2026/06/29/briefing/south-africa-immigration.html
-
-**Comcast to Spin Off NBCUniversal, Ending a Long Union of Cable and Media**\
-`The media business, which owns NBC News and Universal Pictures, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
-https://www.nytimes.com/2026/06/29/business/comcast-nbcuniversal-spinoff.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\

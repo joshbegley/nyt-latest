@@ -1,3 +1,11 @@
+**tk**\
+`tk`\
+https://static01.nyt.com/slideshow/2026/06/29/t-magazine/tk.html
+
+**Supreme Court Rules Against Roy Moore in Fight Over $8.2 Million Jury Award**\
+`The former Alabama Supreme Court justice and Senate candidate had asked the court to clear a path for him to potentially collect a jury award in a defamation case.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-roy-moore.html
+
 **Supreme Court to Weigh if Arizona Can Demand Proof of Citizenship to Vote**\
 `The case could open the door to stricter registration requirements at a time when President Trump has been pushing for them.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-citizenship-voting-arizona.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/29/briefing/south-africa-immigration.html
 **Comcast to Spin Off NBCUniversal, Ending a Long Union of Cable and Media**\
 `The media business, which owns NBC News and Universal Pictures, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
 https://www.nytimes.com/2026/06/29/business/comcast-nbcuniversal-spinoff.html
-
-**Pochettino’s Contract Extension Offer, and the Start of the Knockouts**\
-`Will the USMNT secure the services of their incumbent but in-demand head coach beyond this World Cup?`\
-https://www.nytimes.com/2026/06/29/podcasts/pochettino-contract-extension-offer-usmnt-world-cup-knockouts.html
-
-**Why Everyone Cares About This World Cup**\
-`Our reporter explains the magic of this moment, and two fans of the Iranian soccer team discuss its complexity.`\
-https://www.nytimes.com/2026/06/29/podcasts/the-daily/world-cup-iran.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
