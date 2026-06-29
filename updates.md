@@ -1,3 +1,23 @@
+**How the Wildfires in Colorado and Utah Were Poised to Spark**\
+`Since last week, meteorologists issued a series of increasingly dire warnings about extremely critical weather conditions.`\
+https://www.nytimes.com/2026/06/29/weather/utah-colorado-fire-drought.html
+
+**Mamdani Nears Deal to Resolve Budget Fight Over Housing Vouchers**\
+`The dispute between Mayor Zohran Mamdani and his occasional rival, City Council Speaker Julie Menin, has held up passage of New York City’s $125 billion budget.`\
+https://www.nytimes.com/2026/06/29/nyregion/budget-mamdani-housing-cityfheps.html
+
+**Trump on Legislation to Address the Nation’s Housing Crisis: ‘It’s a Yawn’**\
+`Time and again, President Trump has brushed off Americans’ concerns about the economy and their financial situations.`\
+https://www.nytimes.com/2026/06/29/us/politics/trump-housing-bill.html
+
+**Keiko Fujimori gana las elecciones presidenciales en Perú**\
+`Keiko Fujimori, hija del exdictador Alberto Fujimori, devuelve al movimiento de su familia al poder, aunque con una victoria ajustada en un país dividido.`\
+https://www.nytimes.com/es/2026/06/29/espanol/america-latina/keiko-fujimori-gana-elecciones-peru.html
+
+**What to Watch in Colorado Primary Elections: Will Left-Wing Energy Keep Rising?**\
+`Primaries on Tuesday will be the latest test of Democrats’ anti-establishment mood.`\
+https://www.nytimes.com/2026/06/29/us/politics/colorado-primaries-what-to-watch.html
+
 **Search for Venezuela Quake Survivors Enters Fifth Day**\
 `Hopes of finding earthquake survivors has faded in Venezuela as the search entered its fifth day on Monday. The official death toll had risen to over 1,700 as of Monday afternoon, according to local authorities.`\
 https://www.nytimes.com/video/world/americas/100000010998902/venezuela-earthquake-search-survivors.html
