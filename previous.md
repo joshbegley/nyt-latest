@@ -1,3 +1,7 @@
+**In Japan’s ‘Little Brazil,’ a World Cup Showdown Tests Loyalties**\
+`More than 200,000 Brazilians live in Japan, following more than a century of migration between the countries. Many are of Japanese descent, so who are they cheering on?`\
+https://www.nytimes.com/2026/06/29/world/asia/japan-brazil-world-cup-fans.html
+
 **Los jóvenes que eligieron quedarse en Cuba**\
 `En medio del mayor éxodo de la historia reciente del país, cuatro cubanos narran lo que significa permanecer en la isla.`\
 https://www.nytimes.com/es/2026/06/29/espanol/opinion/cuba-jovenes-exilio-artistas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/28/opinion/the-hamptons-human-labor.html
 **Mideast Live Updates: U.S. Indicates a Deal to Suspend Attacks in Strait but Iran Hasn’t Confirmed**\
 `A U.S. official said the U.S. and Iran agreed to halt attacks in the Strait of Hormuz and allow vessels to move freely. Hostilities in recent days have threatened a two-week-old cease-fire.`\
 https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
-
-**Trump Cut a Billion-Dollar Mining Deal. His Sons Stand to Profit.**\
-`An agreement between the U.S. and Kazakhstan has given a group of American investors with ties to the president and the commerce secretary access to one of the world’s largest untapped reserves of tungsten.`\
-https://www.nytimes.com/2026/06/28/world/europe/trump-lutnick-sons-kazakhstan.html
 
