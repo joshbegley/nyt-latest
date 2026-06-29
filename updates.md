@@ -1,3 +1,7 @@
+**Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
+`President Trump promised to “take appropriate action immediately” against Lisa Cook, the Fed governor he had tried to fire, even as the Supreme Court affirmed that Fed officials can be fired only for cause.`\
+https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
+
 **Abdul Ahad Momand, Only Afghan to Fly in Space, Is Dead**\
 `A pilot in the Afghan Air Force, he was recruited for the Soviet space program. His 1988 flight took place as the Soviets were fighting a war in his country.`\
 https://www.nytimes.com/2026/06/29/world/middleeast/abdul-ahad-momand-dead.html
