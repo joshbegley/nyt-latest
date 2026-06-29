@@ -1,3 +1,7 @@
+**La Corte Suprema confirma el fallo: Trump debe pagar 5 millones de dólares por abuso sexual**\
+`El presidente Trump había pedido a los magistrados que intervinieran luego de que un jurado determinó que había abusado sexualmente de la escritora E. Jean Carroll, además de difamarla.`\
+https://www.nytimes.com/es/2026/06/29/espanol/estados-unidos/suprema-corte-e-jean-carroll-trump.html
+
 **Kean Set to Speak at the Capitol After Mysterious Absence**\
 `After months of silence, Representative Tom Kean Jr. was expected to deliver a speech explaining his 116-day absence from Congress.`\
 https://www.nytimes.com/2026/06/29/us/politics/tom-kean-returns.html
