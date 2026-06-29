@@ -1,3 +1,11 @@
+**Another Trump Administration Payment to Stop Offshore Wind Farm**\
+`It was the fourth such deal struck by the administration to get companies to forfeit their offshore wind leases.`\
+https://www.nytimes.com/2026/06/29/climate/trump-offshore-wind-duke-energy.html
+
+**Wimbledon Is One Place That Won’t Screen England in the World Cup**\
+`The tennis tournament, a bastion of sometimes stuffy rules, has no plans to broadcast World Cup matches on Henman Hill, but restrictions on cellphone use have been eased.`\
+https://www.nytimes.com/2026/06/29/world/europe/wimbledon-world-cup.html
+
 **Supreme Court Puts Limits on Cellphone Location Data Searches**\
 `The case involved “geofence” searches, which allow law enforcement to find suspects and witnesses by sweeping up location data from cellphones near crime scenes.`\
 https://www.nytimes.com/2026/06/29/us/politics/supreme-court-geofence-warrant-cell-phones.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/29/world/europe/uk-andy-burnham-agenda-speech.ht
 **Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
 `Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
-
-**France Recorded 1,000 Excess Deaths During Heat Wave, Officials Say**\
-`First estimates published by the national health agency listed hundreds more deaths per day compared with the daily death rate in previous months.`\
-https://www.nytimes.com/2026/06/29/world/europe/france-heat-wave-excess-deaths.html
-
-**Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
-`The death toll has risen to 1,450 people, according to the Venezuelan government, but that grim figure is likely to be a dramatic undercount.`\
-https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
