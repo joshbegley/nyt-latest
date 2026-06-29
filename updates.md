@@ -1,3 +1,7 @@
+**Pakistan Attacks Afghanistan, Killing More Than 30**\
+`The Taliban said that airstrikes left 36 civilians dead, while Pakistan claimed that its assault killed 32 militants, in the latest in a monthslong conflict.`\
+https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
+
 **Para estos adolescentes, el fútbol lo es todo. Ahora, los cárteles quieren meterse al juego**\
 `En Celaya, México, los cárteles locales han convertido las canchas de fútbol en sangrientos campos de batalla al hacer de una liga local para adolescentes su última apuesta empresarial.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carteles-futbol.html
