@@ -1,3 +1,7 @@
+**Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
+`President Trump promised to “take appropriate action immediately” against Lisa Cook, the Fed governor he had tried to fire, even as the court affirmed that Fed officials can be fired only for cause.`\
+https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
+
 **Read Newly Discovered Documents from John Dickinson, a U.S. Founding Father**\
 `A letter from Dickinson, a leader of the First and Second Continental Congress, glimpses an effort to peaceably avert the Revolutionary War.`\
 https://www.nytimes.com/interactive/2026/06/29/us/john-dickinson-letter-england-peace.html

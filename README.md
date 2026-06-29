@@ -1,3 +1,11 @@
+**The Pursuit of Hungriness: 250 Years of American Food Innovation**\
+`Sliced bread. Soul food. Cheetos. Here are 25 inventions, crazes and cravings that defined the national diet, decade by decade.`\
+https://www.nytimes.com/interactive/2026/06/29/dining/america-250-years-of-food.html
+
+**Shooting in Northern Germany Kills 6**\
+`A shooting at a youth center in northern German left six people dead and several others injured, the local authorities said. The police arrested the alleged gunman and another individual connected to the shooting.`\
+https://www.nytimes.com/video/world/europe/100000010999198/germany-stade-shooting.html
+
 **Read Newly Discovered Documents from John Dickinson, a U.S. Founding Father**\
 `A letter from Dickinson, a leader of the First and Second Continental Congress, glimpses an effort to peaceably avert the Revolutionary War.`\
 https://www.nytimes.com/interactive/2026/06/29/us/john-dickinson-letter-england-peace.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-firings-disse
 **New York Unveils $5 Billion Plan to Finish Brooklyn Mega-Development**\
 `The proposal is the latest attempt to complete Atlantic Yards, a project near Downtown Brooklyn that includes building housing over a rail yard. It has been in progress for decades.`\
 https://www.nytimes.com/2026/06/29/nyregion/atlantic-yards-brooklyn-development.html
-
-**In San Francisco’s A.I. Era, Even $180,000 Tech Salaries Are No Longer Enough**\
-`As OpenAI and Anthropic prepare to go public, tech workers making six figures are grousing that they cannot compete with the new A.I. elite. Some doubt they can afford to stay.`\
-https://www.nytimes.com/2026/06/29/technology/san-francisco-tech-salaries.html
-
-**World Cup Updates: Dozens of Signs in Spanish Help a Team Feel at Home**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
