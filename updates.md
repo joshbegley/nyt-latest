@@ -1,3 +1,15 @@
+**The Court Just Handed Trump a Dangerous New Power**\
+`The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
+https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
+
+**Reflections on an Imperfect America at 250**\
+`Readers respond to the Sunday Opinion section on what America gets right. Also: President Trump on a $250 bill; aid for immigrants.`\
+https://www.nytimes.com/2026/06/29/opinion/trump-america-250.html
+
+**NASA Aims to Catch a Falling Space Telescope and Push It Back Up**\
+`A rescue mission will soon be underway for NASA’s Swift telescope.`\
+https://www.nytimes.com/2026/06/29/science/nasa-falling-space-telescope-swift.html
+
 **La cifra total de víctimas de los terremotos en Venezuela podría saberse en semanas**\
 `Los expertos señalaron varios indicios de la letalidad de los dos terremotos, como el número de personas desaparecidas y la magnitud de los daños en los edificios.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-muertos.html
