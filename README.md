@@ -1,3 +1,7 @@
+**NASA Aims to Catch a Falling Space Telescope and Push It Back Up**\
+`A rescue mission will soon be underway for NASA’s Swift telescope.`\
+https://www.nytimes.com/2026/06/29/science/nasa-falling-space-telescope-swift.html
+
 **La cifra total de víctimas de los terremotos en Venezuela podría saberse en semanas**\
 `Los expertos señalaron varios indicios de la letalidad de los dos terremotos, como el número de personas desaparecidas y la magnitud de los daños en los edificios.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-muertos.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/embedded/world/americas/100000010998692/29vid-lagu
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010998685/29vid-loscocos-drone-81516.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/americas/100000010998678/29vid-laguaira-drone-57583.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
