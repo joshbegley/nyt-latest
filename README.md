@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assaul
 `The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
 https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
 
-**Venezuela en vivo: la búsqueda de sobrevivientes sigue mientras la esperanza decae**\
+**Venezuela en vivo: la búsqueda de supervivientes se vuelve más desesperada al aumentar el número de víctimas mortales**\
 `El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
 https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto
 
