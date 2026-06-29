@@ -1,3 +1,7 @@
+**Metropolitan Diary Challenge Day 2: How to Write Your N.Y. Story**\
+`We want to help you craft your own Metropolitan Diary entry. Here are some tips for turning a special New York memory into a great story.`\
+https://www.nytimes.com/interactive/2026/06/28/nyregion/metropolitan-diary-challenge-day-2.html
+
 **‘House of the Dragon’ Season 3 Episode 2 Recap: Throne of Blood**\
 `Rhaenyra is plunged back into grief. What will that mean for the fate of the realm?`\
 https://www.nytimes.com/2026/06/28/arts/television/house-of-the-dragon-recap-episode-2.html
