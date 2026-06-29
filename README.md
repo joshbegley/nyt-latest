@@ -138,7 +138,7 @@ https://www.nytimes.com/2026/06/29/us/politics/israel-iran-democrats-republicans
 `As Ukraine brings the war home to Russia, officials hesitate to designate shelters and blast sirens, downplaying the conflict’s consequences with euphemisms.`\
 https://www.nytimes.com/2026/06/29/world/europe/russia-ukraine-rhetoric.html
 
-**Fine, Don’t Prosecute the President. But Release Jack Smith’s Report.**\
+**Fine, Don’t Prosecute President Trump. But Release Jack Smith’s Report.**\
 `Its suppression is highly irregular and disturbing.`\
 https://www.nytimes.com/2026/06/29/opinion/jack-smith-report-trump.html
 
