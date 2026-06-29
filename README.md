@@ -39,7 +39,7 @@ https://www.nytimes.com/video/world/americas/100000010998526/venezuela-earthquak
 https://www.nytimes.com/2026/06/29/nyregion/nyc-lonely-making-friends.html
 
 **In Japan’s ‘Little Brazil,’ a World Cup Showdown Tests Loyalties**\
-`More than 200,000 Brazilians live in Japan, following more than a century of migration between the countries. Many are of Japanese descent, so who are they cheering on?`\
+`More than 200,000 Brazilians live in Japan, after more than a century of migration between the countries. Many are of Japanese descent, so which team are they cheering on?`\
 https://www.nytimes.com/2026/06/29/world/asia/japan-brazil-world-cup-fans.html
 
 **Los jóvenes que eligieron quedarse en Cuba**\
