@@ -1,3 +1,11 @@
+**The Court Just Handed Trump a Dangerous New Power**\
+`The Supreme Court is bestowing new powers on a president who often behaves as an aspiring autocrat.`\
+https://www.nytimes.com/2026/06/29/opinion/supreme-court-firings-trump-ftc-fed.html
+
+**Reflections on an Imperfect America at 250**\
+`Readers respond to the Sunday Opinion section on what America gets right. Also: President Trump on a $250 bill; aid for immigrants.`\
+https://www.nytimes.com/2026/06/29/opinion/trump-america-250.html
+
 **NASA Aims to Catch a Falling Space Telescope and Push It Back Up**\
 `A rescue mission will soon be underway for NASA’s Swift telescope.`\
 https://www.nytimes.com/2026/06/29/science/nasa-falling-space-telescope-swift.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/embedded/world/americas/100000010998704/29vid-man-
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010998695/29vid-laguaira-families-43296.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/americas/100000010998692/29vid-laguaira-building-16214.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/americas/100000010998685/29vid-loscocos-drone-81516.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\
