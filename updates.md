@@ -1,3 +1,11 @@
+**Efforts to Rescue Venezuela Quake Victims Grow More Desperate**\
+`The death toll has risen to over 1,700, which is likely an undercount.`\
+https://www.nytimes.com/2026/06/29/world/americas/efforts-to-rescue-venezuela-quake-victims-grow-more-desperate.html
+
+**Clash Unfolds as Trump Administration Pushes Intelligence Agencies to Share Foreign Espionage Targets**\
+`The clash reflects increasing skepticism of the Office of the Director of National Intelligence, which has been willing to pursue President Trump’s priorities.`\
+https://www.nytimes.com/2026/06/29/us/trump-intelligence-agencies-spies-master-list.html
+
 **En Venezuela, comienzan los funerales de las víctimas de los terremotos**\
 `Los venezolanos empezaron a enterrar a algunas de las más de 1700 víctimas de los sismos de la semana pasada, y comparten historias de pérdidas inimaginables.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-funerales.html
