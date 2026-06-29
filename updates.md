@@ -1,3 +1,15 @@
+**Voters Think A.I. Is Terrible. In Campaigns, It’s Everywhere.**\
+`A.I.-generated images are the public face of this election overhaul. Behind the scenes, campaigns are using the technology to analyze voter data, craft campaign materials and write custom messages.`\
+https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
+
+**Supreme Court Rejects Trump’s Request to Appeal $5 Million Verdict in E. Jean Carroll Case**\
+`President Trump had asked the justices to intervene after a jury found that he had sexually abused and defamed the writer E. Jean Carroll.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assault.html
+
+**Venezuela en vivo: la búsqueda de sobrevivientes sigue mientras la esperanza decae**\
+`El número de muertos ha subido a 1450 personas, según el gobierno venezolano, pero se espera que la cifra real sea mucho mayor.`\
+https://www.nytimes.com/live/2026/06/29/espanol/venezuela-terremoto
+
 **Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
 `The death toll has risen to 1,450 people, according to the Venezuelan government, but that grim figure is likely to be a dramatic undercount.`\
 https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
