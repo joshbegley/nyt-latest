@@ -1,3 +1,7 @@
+**California Hopes to Speed Up Election Results With $40 Million Infusion**\
+`It took six days to determine the outcome of the primary for Los Angeles mayor, and seven for the governor’s race.`\
+https://www.nytimes.com/2026/06/29/us/california-election-ballot-counting-money.html
+
 **Director Who Defrauded Netflix Gets 30-Month Prison Term**\
 `Carl Rinsch was convicted last year of stealing $11 million from the streamer, which funded a science fiction series he had pitched.`\
 https://www.nytimes.com/2026/06/29/business/carl-rinsch-netflix-fraud.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/politics/100000010993276/why-trump-is-giving-re
 **Another Trump Administration Payment to Stop Offshore Wind Farm**\
 `It was the fourth such deal struck by the administration to get companies to forfeit their offshore wind leases.`\
 https://www.nytimes.com/2026/06/29/climate/trump-offshore-wind-duke-energy.html
-
-**Wimbledon Is One Place That Won’t Screen England in the World Cup**\
-`The tennis tournament, a bastion of sometimes stuffy rules, has no plans to broadcast World Cup matches on Henman Hill, but restrictions on cellphone use have been eased.`\
-https://www.nytimes.com/2026/06/29/world/europe/wimbledon-world-cup.html
 
