@@ -1,3 +1,7 @@
+**Could Comcast and NBCUniversal Do Deals After They Break Up?**\
+`Comcast said it plans to spin off its big media division from its core broadband operations. That could lead to some big-ticket deal-making.`\
+https://www.nytimes.com/2026/06/29/business/dealbook/comcast-nbcuniversal-deals.html
+
 **Andy Burnham, the UK’s Likely Next Prime Minister, Promises Shift of Power Out of London**\
 `Andy Burnham, who looks set to become prime minister next month, said he would set up a new operation in Manchester called “No. 10 North” to give more funding and control to local leaders.`\
 https://www.nytimes.com/2026/06/29/world/europe/uk-andy-burnham-agenda-speech.html
@@ -182,19 +186,15 @@ https://www.nytimes.com/2026/06/29/books/new-books-july.html
 `Scientists are studying whether GLP-1 medications could be lifespan-enhancing. Dana Smith, a health reporter for Well, explains the latest research around how these drugs might affect aging.`\
 https://www.nytimes.com/video/well/100000010986709/can-ozempic-make-you-live-longer.html
 
-**Parents Can’t Give Their Kids Everything. Siblings Can Help.**\
-`There are virtues in growing up in a pack.`\
-https://www.nytimes.com/2026/06/29/opinion/siblings-families-shrinking.html
-
 **Liberals Are Preaching Moral Values. What Took Them So Long?**\
 `Until recently, the language of morality belonged to social conservatives. But the history of liberalism suggests that values have been at its core all along.`\
 https://www.nytimes.com/2026/06/29/books/review/liberals-are-preaching-moral-values.html
 
+**Parents Can’t Give Their Kids Everything. Siblings Can Help.**\
+`There are virtues in growing up in a pack.`\
+https://www.nytimes.com/2026/06/29/opinion/siblings-families-shrinking.html
+
 **How Washington State Is Helping Thousands of Black Residents Buy Homes**\
 `A groundbreaking loan program, designed to address historical racial discrimination, is facing new legal challenges.`\
 https://www.nytimes.com/2026/06/29/realestate/washington-state-redlining-covenant-homeownership.html
-
-**For These Teens in Mexico, Soccer Is Life. Now, the Cartels Want In.**\
-`In Celaya, Mexico, local cartels have turned soccer fields into bloody battlefields as they have co-opted a local league for teenagers as their latest business endeavor.`\
-https://www.nytimes.com/2026/06/29/world/americas/for-these-teens-soccer-is-life-now-the-cartels-want-in.html
 
