@@ -1,3 +1,7 @@
+**Could Comcast and NBCUniversal Do Deals After They Break Up?**\
+`Comcast said it plans to spin off its big media division from its core broadband operations. That could lead to some big-ticket deal-making.`\
+https://www.nytimes.com/2026/06/29/business/dealbook/comcast-nbcuniversal-deals.html
+
 **Ships Pull Back Amid Heightened Risk From Iran-U.S. Strikes**\
 `Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
