@@ -1,3 +1,11 @@
+**Quote of the Day: Venezuelan Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
+`Quotation of the Day for Monday, June 29, 2026.`\
+https://www.nytimes.com/2026/06/29/pageoneplus/quote-of-the-day-venezuelan-civilians-fill-the-gaps-one-grain-of-sand-at-a-time.html
+
+**NYT Spelling Bee Answers for June 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/29/crosswords/spelling-bee-forum.html
+
 **Metropolitan Diary Challenge Day 2: How to Write Your N.Y. Story**\
 `We want to help you craft your own Metropolitan Diary entry. Here are some tips for turning a special New York memory into a great story.`\
 https://www.nytimes.com/interactive/2026/06/28/nyregion/metropolitan-diary-challenge-day-2.html
