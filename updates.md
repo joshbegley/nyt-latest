@@ -1,3 +1,15 @@
+**France Recorded 1,000 Excess Deaths During Heat Wave, Officials Say**\
+`First estimates published by the national health agency listed hundreds more deaths per day compared with the daily death rate in previous months.`\
+https://www.nytimes.com/2026/06/29/world/europe/france-heat-wave-excess-deaths.html
+
+**Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
+`The death toll has risen to 1,450 people, according to the Venezuelan government, but the actual count is expected to be much higher.`\
+https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
+
+**Comcast to Spin Off NBCUniversal, Ending a Long Union of Cable and Media**\
+`The media business, which owns NBC News and Universal Pictures, will be separated from Comcast’s cable and internet business, following a trend in the media industry.`\
+https://www.nytimes.com/2026/06/29/business/comcast-nbcuniversal-spinoff.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/americas/100000010998713/29vid-venezuela-destruction-75664.html

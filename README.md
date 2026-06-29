@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/06/29/world/asia/pakistan-afghanistan-strikes.html
 `En Celaya, México, los cárteles locales han convertido las canchas de fútbol en sangrientos campos de batalla al hacer de una liga local para adolescentes su última apuesta empresarial.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/mexico-celaya-carteles-futbol.html
 
-**Mideast Live Updates: U.S. Reaches Deal With Iran to Halt Attacks, Official Says**\
-`The agreement would allow vessels to move freely through the Strait of Hormuz, a U.S. official said. Iran has not confirmed the deal.`\
+**Mideast Live Updates: U.S. and Iran Set for New Talks in Qatar, Officials Say**\
+`The discussions could take place as soon as Tuesday after the two sides agreed to halt the latest cycle of attacks. Iran did not confirm the talks but said consultations with Qatar were continuing.`\
 https://www.nytimes.com/live/2026/06/29/world/hormuz-us-iran-strikes
 
 **How Warsh Has Begun to Change the Fed**\
