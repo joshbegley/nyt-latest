@@ -1,3 +1,7 @@
+**5 Killed in Shooting at Youth Center in Northern Germany, Police Say**\
+`The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
+https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
+
 **En una morgue en Caracas, familias y autoridades intentan identificar a más de 100 víctimas**\
 `El proceso resulta difícil porque muchas personas quedaron gravemente aplastadas bajo los edificios derrumbados.`\
 https://www.nytimes.com/es/2026/06/29/espanol/morgue-caracas-cuerpos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/29/realestate/meg-ryan-kristen-wiig-celebrity-ho
 **A.I. ‘Employees’ Might Disrupt Work in Unexpected Ways**\
 `Scholars say the “unknown unknowns” of using artificial intelligence in the workplace may be undermining the technology’s advertised benefits.`\
 https://www.nytimes.com/2026/06/29/business/artificial-intelligence-workplace-consequences.html
-
-**22 New Books to Read in July: Colson Whitehead, Alice Oseman, Daniel Mason and More**\
-`Novels by Colson Whitehead and Daniel Mason, the final “Heartstopper” graphic novel, gripping thrillers, lush romantasy, true crime and more.`\
-https://www.nytimes.com/2026/06/29/books/new-books-july.html
 
