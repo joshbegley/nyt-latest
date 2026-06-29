@@ -1,3 +1,11 @@
+**California Hopes to Speed Up Election Results With $40 Million Infusion**\
+`It took six days to determine the outcome of the primary for Los Angeles mayor, and seven for the governor’s race.`\
+https://www.nytimes.com/2026/06/29/us/california-election-ballot-counting-money.html
+
+**See Day-by-Day Forecast as Heat Wave Engulfs U.S. Ahead of the July 4 Weekend**\
+`Dangerous heat is expected across much of the country through the Fourth of July weekend.`\
+https://www.nytimes.com/2026/06/29/weather/us-heat-wave-forecast.html
+
 **Director Who Defrauded Netflix Gets 30-Month Prison Term**\
 `Carl Rinsch was convicted last year of stealing $11 million from the streamer, which funded a science fiction series he had pitched.`\
 https://www.nytimes.com/2026/06/29/business/carl-rinsch-netflix-fraud.html
