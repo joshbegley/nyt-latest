@@ -1,5 +1,17 @@
-**Abuse Survivors Reach $395 Million Deal With S.F. Diocese, Lawyers Say**\
-`Lawyers for the victims said the Archdiocese of San Francisco had agreed to pay the money to settle about 530 claims from people who said they were sexually abused by clergy members.`\
+**Cómo Rusia intenta ocultar los efectos de la guerra**\
+`Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
+https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
+
+**Newborn’s Body Is Found in a Portable Bathroom at Electric Forest Music Festival**\
+`Investigators were asking for information from people who attended the Electric Forest music festival, which draws tens of thousands of people to Western Michigan.`\
+https://www.nytimes.com/2026/06/29/us/electric-forest-festival-baby-dead.html
+
+**Ethics Panel Tosses Misconduct Claims Against Gallego**\
+`The Ethics Committee told Senator Ruben Gallego it had dismissed allegations he engaged in sexual misconduct and campaign finance violations.`\
+https://www.nytimes.com/2026/06/29/us/politics/ruben-gallego-ethics-committee-misconduct-allegations.html
+
+**Sex Abuse Survivors Reach $395 Million Deal With San Francisco Diocese**\
+`The Archdiocese of San Francisco and lawyers for the survivors said the money would settle about 530 claims from people who said they were sexually abused by clergy members.`\
 https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
 
 **Colorado Supreme Court Rejects Democratic Redistricting Plans**\
@@ -178,21 +190,9 @@ https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
 `Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
 https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
 
-**Supreme Court Expands Trump’s Power to Fire Officials, but Blocks Fed Governor Dismissal**\
-`In twin rulings, the justices said President Trump could fire independent regulators for any reason. But they affirmed the Fed’s independence, and said its leaders could not be fired at will.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-independent-regulator-firings.html
-
-**‘Heat Dome’ Grips Eastern Europe**\
-`High-level heat warnings were in place across much of Eastern Europe on Monday as a “heat dome,” which broke temperatures in France, Britain and Spain last week, continued to shift east.`\
-https://www.nytimes.com/video/world/europe/100000010998767/heat-wave-eastern-europe.html
-
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
 https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power
-
-**Supreme Court Upholds Grace Period to Count Mail-In Ballots That Arrive After Election Day**\
-`The justices had been asked to examine the legality of the state’s grace period for late-arriving mail-in ballots.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-late-mail-ballots.html
 
 **World Cup Updates: Japan’s Next Match Is Uniting and Dividing Its ‘Little Brazil’**\
 `(No description)`\

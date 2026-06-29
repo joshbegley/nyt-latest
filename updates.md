@@ -1,3 +1,19 @@
+**Cómo Rusia intenta ocultar los efectos de la guerra**\
+`Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
+https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
+
+**Newborn’s Body Is Found in a Portable Bathroom at Electric Forest Music Festival**\
+`Investigators were asking for information from people who attended the Electric Forest music festival, which draws tens of thousands of people to Western Michigan.`\
+https://www.nytimes.com/2026/06/29/us/electric-forest-festival-baby-dead.html
+
+**Ethics Panel Tosses Misconduct Claims Against Gallego**\
+`The Ethics Committee told Senator Ruben Gallego it had dismissed allegations he engaged in sexual misconduct and campaign finance violations.`\
+https://www.nytimes.com/2026/06/29/us/politics/ruben-gallego-ethics-committee-misconduct-allegations.html
+
+**Sex Abuse Survivors Reach $395 Million Deal With San Francisco Diocese**\
+`The Archdiocese of San Francisco and lawyers for the survivors said the money would settle about 530 claims from people who said they were sexually abused by clergy members.`\
+https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
+
 **The President Is Now ‘Unitary.’ Two Scholars Debate What That Means.**\
 `Two legal scholars deconstruct a big court decision long in the making.`\
 https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
