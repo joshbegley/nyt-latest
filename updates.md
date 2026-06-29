@@ -1,3 +1,11 @@
+**Inmates Take Guards Hostage in Hourslong Standoff at North Carolina Jail**\
+`The authorities have not yet explained what led to the takeover, which ended Monday afternoon after unspecified negotiations.`\
+https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html
+
+**At Funerals, Venezuela’s Wounded Families and Friends Unite in Grief**\
+`Venezuelans began to bury some of the more than 1,700 victims of last week’s earthquakes, sharing tales of unimaginable loss.`\
+https://www.nytimes.com/2026/06/29/world/americas/venezuela-funerals-earthquake.html
+
 **Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
 `The president promised to “take appropriate action immediately” against Lisa D. Cook, a Fed governor.`\
 https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
