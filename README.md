@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/06/29/style/naomi-osaka-fashion-wimbledon.html
 https://www.nytimes.com/2026/06/29/nyregion/nba-malik-beasley-charged-gambling.html
 
 **Les Mills, Olympian Who Founded Fitness Chain, Dies at 91**\
-`A New Zealand Olympian, his small gym in Auckland grew into a worldwide chain.`\
+`A New Zealand Olympian, he started a small gym in Auckland that grew into a worldwide chain.`\
 https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
 
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
