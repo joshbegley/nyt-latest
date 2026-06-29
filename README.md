@@ -1,3 +1,11 @@
+**Voters Think A.I. Is Terrible. In Campaigns, It’s Everywhere.**\
+`A.I.-generated images are the public face of this election overhaul. Behind the scenes, campaigns are using the technology to analyze voter data, craft campaign materials and write custom messages.`\
+https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
+
+**Supreme Court Rejects Trump’s Request to Appeal $5 Million Verdict in E. Jean Carroll Case**\
+`President Trump had asked the justices to intervene after a jury found that he had sexually abused and defamed the writer E. Jean Carroll.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-trump-sexual-assault.html
+
 **5 Killed in Shooting at Youth Center in Northern Germany, Police Say**\
 `The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
 https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/29/magazine/american-parenting-french-children.h
 **Berkeley Will Start Institute Named for Pelosi**\
 `The Trump administration has been scrutinizing the University of California, Berkeley, which insists its new program will be a nonpartisan venture.`\
 https://www.nytimes.com/2026/06/29/us/berkeley-pelosi-democracy.html
-
-**Meg Ryan Lists the Hamptons Home She Bought Two Years Ago**\
-`Plus, Kristen Wiig dropped the price on a house she is selling in Pasadena, Calif., and Joe Jonas is selling a Brooklyn condo.`\
-https://www.nytimes.com/2026/06/29/realestate/meg-ryan-kristen-wiig-celebrity-home-sales.html
-
-**A.I. ‘Employees’ Might Disrupt Work in Unexpected Ways**\
-`Scholars say the “unknown unknowns” of using artificial intelligence in the workplace may be undermining the technology’s advertised benefits.`\
-https://www.nytimes.com/2026/06/29/business/artificial-intelligence-workplace-consequences.html
 

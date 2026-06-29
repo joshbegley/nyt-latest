@@ -1,3 +1,7 @@
+**Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
+`The death toll has risen to 1,450 people, according to the Venezuelan government, but that grim figure is likely to be a dramatic undercount.`\
+https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
+
 **5 Killed in Shooting at Youth Center in Northern Germany, Police Say**\
 `The shooter’s motive was unclear, but the authorities said it was not believed to be related to terrorism.`\
 https://www.nytimes.com/2026/06/29/world/europe/germany-shooting-stade.html

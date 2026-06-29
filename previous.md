@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.
 https://www.nytimes.com/2026/06/29/world/europe/france-heat-wave-excess-deaths.html
 
 **Venezuela Live Updates: Search for Quake Survivors Presses On Even as Hopes Fade**\
-`The death toll has risen to 1,450 people, according to the Venezuelan government, but the actual count is expected to be much higher.`\
+`The death toll has risen to 1,450 people, according to the Venezuelan government, but that grim figure is likely to be a dramatic undercount.`\
 https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
 
 ****\
