@@ -1,3 +1,11 @@
+**La cifra total de víctimas de los terremotos en Venezuela podría saberse en semanas**\
+`Los expertos señalaron varios indicios de la letalidad de los dos terremotos, como el número de personas desaparecidas y la magnitud de los daños en los edificios.`\
+https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-muertos.html
+
+**At Funerals, Venezuela’s Wounded Families and Friends Unite in Grief**\
+`Venezuelans began to bury some of the more than 1,400 victims of last week’s earthquakes, sharing tales of unimaginable loss.`\
+https://www.nytimes.com/2026/06/29/world/americas/venezuela-funerals-earthquake.html
+
 **tk**\
 `tk`\
 https://static01.nyt.com/slideshow/2026/06/29/t-magazine/tk.html
