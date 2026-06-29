@@ -1,3 +1,7 @@
+**¿Hay alguien vivo? 12 horas con médicos venezolanos en la zona del desastre**\
+`Un equipo médico partió de la capital para rescatar a la gente en la zona más afectada por el desastre, La Guaira. En cambio, lo que encontraron fue silencio entre las ruinas.`\
+https://www.nytimes.com/es/2026/06/29/espanol/medicos-desastre-la-guaira.html
+
 **Voters Think A.I. Is Terrible. In Campaigns, It’s Everywhere.**\
 `A.I.-generated images are the public face of this election overhaul. Behind the scenes, campaigns are using the technology to analyze voter data, craft campaign materials and write custom messages.`\
 https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/06/29/arts/music/little-island-schedule-performance
 **Running an Errand in Brooklyn, He Discovered Ditmas Park**\
 `Randell Pearson first saw the neighborhood when he was 18. He eventually was able to rent an apartment there, and 44 years later, he hasn’t left.`\
 https://www.nytimes.com/2026/06/29/realestate/ditmas-park-rent-control-apartment.html
-
-**Sprucing Up a Magical, Mysterious Park**\
-`Adrian Benepe, once city parks commissioner, is taking on the role of running the Fort Tryon Park Conservancy in Upper Manhattan. He is a huge fan of the place.`\
-https://www.nytimes.com/2026/06/29/nyregion/sprucing-up-a-magical-mysterious-park.html
-
-**Did American-Style ‘Gentle Parenting’ Spoil French Children?**\
-`As positive parenting takes over France, one psychologist’s call for a return to discipline has set off a furious debate.`\
-https://www.nytimes.com/2026/06/29/magazine/american-parenting-french-children.html
 

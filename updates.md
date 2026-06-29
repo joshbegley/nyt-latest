@@ -1,3 +1,7 @@
+**¿Hay alguien vivo? 12 horas con médicos venezolanos en la zona del desastre**\
+`Un equipo médico partió de la capital para rescatar a la gente en la zona más afectada por el desastre, La Guaira. En cambio, lo que encontraron fue silencio entre las ruinas.`\
+https://www.nytimes.com/es/2026/06/29/espanol/medicos-desastre-la-guaira.html
+
 **Voters Think A.I. Is Terrible. In Campaigns, It’s Everywhere.**\
 `A.I.-generated images are the public face of this election overhaul. Behind the scenes, campaigns are using the technology to analyze voter data, craft campaign materials and write custom messages.`\
 https://www.nytimes.com/2026/06/29/us/politics/political-campaigns-ai-tech.html
