@@ -1,3 +1,11 @@
+**George Gresham, Health Care Union Powerhouse, Dies at 71**\
+`Until he lost an election last year amid accusations of self-enrichment, he was a longtime influential force in Democratic politics in New York.`\
+https://www.nytimes.com/2026/06/29/nyregion/george-gresham-dead.html
+
+**Las mejores películas de 2026, hasta ahora**\
+`Si aún no las has visto, este es un buen momento para ponerte al día. Estas son las producciones favoritas de nuestros críticos.`\
+https://www.nytimes.com/es/2026/06/29/espanol/cultura/mejores-peliculas-ano.html
+
 **Supreme Court Expands Presidential Powers to Fire Independent Regulators**\
 `The Supreme Court ruled 6-3 that President Trump could fire independent regulators for any reason. But the justices carved out an exception for the Federal Reserve, preventing the immediate removal of Lisa D. Cook, a Federal Reserve governor.`\
 https://www.nytimes.com/video/us/politics/100000010998994/trump-supreme-court-rulings-federal-reserve.html
