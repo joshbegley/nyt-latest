@@ -1,3 +1,7 @@
+**Kean Set to Speak at the Capitol After Mysterious Absence**\
+`After months of silence, Representative Tom Kean Jr. was expected to deliver a speech explaining his 116-day absence from Congress.`\
+https://www.nytimes.com/2026/06/29/us/politics/tom-kean-returns.html
+
 **Senator Gallego’s Use of Campaign Funds for Family Trips Prompts Scrutiny**\
 `The Arizona senator used campaign money to fly his family to Nantucket and the Caribbean. The Justice Department has said it is investigating his campaign finance activity.`\
 https://www.nytimes.com/2026/06/29/us/politics/gallego-campaign-funds-family.html
