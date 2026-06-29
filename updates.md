@@ -1,3 +1,7 @@
+**Two Dan Sullivans to Appear on Alaska Senate Ballot, State High Court Rules**\
+`Republicans had sought the removal of a little-known candidate with the same name as the incumbent senator, arguing that he was not a “good faith” candidate.`\
+https://www.nytimes.com/2026/06/29/us/politics/alaska-dan-sullivan-senate-ballot.html
+
 **La Corte Suprema confirma el fallo: Trump debe pagar 5 millones de dólares por abuso sexual**\
 `El presidente Trump había pedido a los magistrados que intervinieran luego de que un jurado determinó que había abusado sexualmente de la escritora E. Jean Carroll, además de difamarla.`\
 https://www.nytimes.com/es/2026/06/29/espanol/estados-unidos/suprema-corte-e-jean-carroll-trump.html
