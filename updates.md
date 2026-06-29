@@ -1,3 +1,15 @@
+**Los jóvenes que eligieron quedarse en Cuba**\
+`En medio del mayor éxodo de la historia reciente del país, cuatro cubanos narran lo que significa permanecer en la isla.`\
+https://www.nytimes.com/es/2026/06/29/espanol/opinion/cuba-jovenes-exilio-artistas.html
+
+**‘Elle’ and 10 More Shows to Watch on TV this Week**\
+`This “Legally Blonde” prequel premieres and networks air coverage around the nation’s 250th Independence Day.`\
+https://www.nytimes.com/2026/06/29/arts/television/elle-and-10-more-shows-to-watch-on-tv-this-week.html
+
+**A.I. Is Strangling Our Economy**\
+`So much money is being poured into A.I. that the rest of the economy is starting to suffer.`\
+https://www.nytimes.com/2026/06/29/opinion/ai-economy-affordability.html
+
 **Quote of the Day: Venezuelan Civilians Fill the Gaps One ‘Grain of Sand’ at a Time**\
 `Quotation of the Day for Monday, June 29, 2026.`\
 https://www.nytimes.com/2026/06/29/pageoneplus/quote-of-the-day-venezuelan-civilians-fill-the-gaps-one-grain-of-sand-at-a-time.html
