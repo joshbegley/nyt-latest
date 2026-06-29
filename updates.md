@@ -1,3 +1,11 @@
+**Supreme Court Expands Presidential Powers to Fire Independent Regulators**\
+`The Supreme Court ruled 6-3 that President Trump could fire independent regulators for any reason. But the justices carved out an exception for the Federal Reserve, preventing the immediate removal of Lisa D. Cook, a Federal Reserve governor.`\
+https://www.nytimes.com/video/us/politics/100000010998994/trump-supreme-court-rulings-federal-reserve.html
+
+**World Cup Updates: Dozens of Signs in Spanish Help a Team Feel at Home**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **La ciencia detrás de los alimentos fermentados**\
 `Los investigadores empiezan a comprender cómo alimentos como el kimchi, el yogur y el chucrut influyen en la salud.`\
 https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-beneficios.html
