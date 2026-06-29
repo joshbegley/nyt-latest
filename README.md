@@ -1,3 +1,7 @@
+**Cómo Rusia intenta ocultar los efectos de la guerra**\
+`Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
+https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
+
 **Newborn’s Body Is Found in a Portable Bathroom at Electric Forest Music Festival**\
 `Investigators were asking for information from people who attended the Electric Forest music festival, which draws tens of thousands of people to Western Michigan.`\
 https://www.nytimes.com/2026/06/29/us/electric-forest-festival-baby-dead.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/06/29/us/electric-forest-festival-baby-dead.html
 `The Ethics Committee told Senator Ruben Gallego it had dismissed allegations he engaged in sexual misconduct and campaign finance violations.`\
 https://www.nytimes.com/2026/06/29/us/politics/ruben-gallego-ethics-committee-misconduct-allegations.html
 
-**Abuse Survivors Reach $395 Million Deal With S.F. Diocese, Lawyers Say**\
-`Lawyers for the victims said the Archdiocese of San Francisco had agreed to pay the money to settle about 530 claims from people who said they were sexually abused by clergy members.`\
+**Sex Abuse Survivors Reach $395 Million Deal With San Francisco Diocese**\
+`The Archdiocese of San Francisco and lawyers for the survivors said the money would settle about 530 claims from people who said they were sexually abused by clergy members.`\
 https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
 
 **Colorado Supreme Court Rejects Democratic Redistricting Plans**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/29/world/les-mills-dead.html
 **Rescatistas hallan en los escombros a un niño de 11 años con vida**\
 `Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
 https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
-
-**Supreme Court Expands Trump’s Power to Fire Officials, but Blocks Fed Governor Dismissal**\
-`In twin rulings, the justices said President Trump could fire independent regulators for any reason. But they affirmed the Fed’s independence, and said its leaders could not be fired at will.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-independent-regulator-firings.html
 
 **Justices Expand Presidential Power Over Regulators, but Not the Fed**\
 `In twin rulings, the justices said President Trump could fire independent regulators for any reason but explicitly affirmed the Fed’s independence and said its leaders could not be fired at will.`\
