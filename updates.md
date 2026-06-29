@@ -1,3 +1,15 @@
+**Antes de los terremotos en Venezuela, millones recibieron alertas en sus celulares**\
+`Un sistema de detección sísmica basado en teléfonos celulares identificó dos terremotos en Venezuela y envió advertencias tempranas a usuarios en la región, incluso antes de que se sintieran con toda su intensidad.`\
+https://www.nytimes.com/es/interactive/2026/06/29/espanol/america-latina/venezuela-alerta-sismo-celulares-android.html
+
+**The Pursuit of Hungriness: 250 Years of American Food Innovation**\
+`Sliced bread. Soul food. Cheetos. Here are 25 inventions, crazes and cravings that defined the national diet, decade by decade.`\
+https://www.nytimes.com/interactive/2026/06/29/dining/america-250-years-of-food.html
+
+**Shooting in Northern Germany Kills 6**\
+`A shooting at a youth center in northern German left six people dead and several others injured, the local authorities said. The police arrested the alleged gunman and another individual connected to the shooting.`\
+https://www.nytimes.com/video/world/europe/100000010999198/germany-stade-shooting.html
+
 **Trump Renews Threat to Fire Fed Governor Lisa Cook After Supreme Court Ruling**\
 `President Trump promised to “take appropriate action immediately” against Lisa Cook, the Fed governor he had tried to fire, even as the court affirmed that Fed officials can be fired only for cause.`\
 https://www.nytimes.com/2026/06/29/us/politics/trump-fire-fed-governor-cook.html
