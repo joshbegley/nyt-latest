@@ -1,3 +1,19 @@
+**Rescatistas hallan en los escombros a un niño de 11 años con vida**\
+`Un equipo de rescate colombiano trabajó durante 6 horas para sacar al niño, Moisés, de debajo de casi tres metros de escombros en La Guaira. La escena quedó grabada en video.`\
+https://www.nytimes.com/es/2026/06/29/espanol/nino-moises-rescatado-ileso.html
+
+**Live Updates: Supreme Court Expands Presidential Power Over Regulators, but Blocks Fed Firing for Now**\
+`President Trump’s firing of an F.T.C. commissioner tested a precedent that has insulated independent regulators. But the justices carved out the “unique role” of the Federal Reserve.`\
+https://www.nytimes.com/live/2026/06/29/us/trump-supreme-court-presidential-power
+
+**Supreme Court Upholds Grace Period to Count Mail-In Ballots That Arrive After Election Day**\
+`The justices had been asked to examine the legality of the state’s grace period for late-arriving mail-in ballots.`\
+https://www.nytimes.com/2026/06/29/us/politics/supreme-court-late-mail-ballots.html
+
+**Ships Pull Back Amid Heightened Risk From U.S.-Iran Strikes**\
+`Four days of attacks by both countries forced a sharp decline in the number of vessels navigating through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/06/29/business/iran-strait-hormuz-shipping-traffic.html
+
 **‘Heat Dome’ Grips Eastern Europe**\
 `High-level heat warnings were in place across much of Eastern Europe on Monday as a “heat dome,” which broke temperatures in France, Britain and Spain last week, continued to shift east.`\
 https://www.nytimes.com/video/world/europe/100000010998767/heat-wave-eastern-europe.html
