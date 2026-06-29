@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3 Episode 2 Recap: Throne of Blood**\
+`Rhaenyra is plunged back into grief. What will that mean for the fate of the realm?`\
+https://www.nytimes.com/2026/06/28/arts/television/house-of-the-dragon-recap-episode-2.html
+
 **Mideast Live Updates: U.S. Indicates a Deal to Suspend Attacks in Strait but Iran Hasn’t Confirmed**\
 `A U.S. official said the U.S. and Iran agreed to halt attacks in the Strait of Hormuz and allow vessels to move freely. Hostilities in recent days have threatened a two-week-old cease-fire.`\
 https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
