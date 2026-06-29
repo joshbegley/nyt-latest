@@ -1,3 +1,11 @@
+**En una morgue en Caracas, familias y autoridades intentan identificar a más de 100 víctimas**\
+`El proceso resulta difícil porque muchas personas quedaron gravemente aplastadas bajo los edificios derrumbados.`\
+https://www.nytimes.com/es/2026/06/29/espanol/morgue-caracas-cuerpos.html
+
+**Terremotos en Venezuela: así es la búsqueda de sobrevivientes**\
+`Los voluntarios de un barrio de clase media de Caracas usaron taladros, picos y mazos para romper el hormigón, intentando encontrar a alguien que necesitara ser rescatado.`\
+https://www.nytimes.com/es/2026/06/29/espanol/sobrevivientes-caracas-san-bernardino.html
+
 **Europe Heat Wave: Forecasts, Warnings and How to Stay Cool**\
 `A heat wave responsible for shattering numerous temperature records in Western Europe continued its shift east.`\
 https://www.nytimes.com/2026/06/29/weather/heat-wave-eastern-europe-forecasts.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/29/business/artificial-intelligence-workplace-co
 **22 New Books to Read in July: Colson Whitehead, Alice Oseman, Daniel Mason and More**\
 `Novels by Colson Whitehead and Daniel Mason, the final “Heartstopper” graphic novel, gripping thrillers, lush romantasy, true crime and more.`\
 https://www.nytimes.com/2026/06/29/books/new-books-july.html
-
-**Can Ozempic Make You Live Longer?**\
-`Scientists are studying whether GLP-1 medications could be lifespan-enhancing. Dana Smith, a health reporter for Well, explains the latest research around how these drugs might affect aging.`\
-https://www.nytimes.com/video/well/100000010986709/can-ozempic-make-you-live-longer.html
-
-**Liberals Are Preaching Moral Values. What Took Them So Long?**\
-`Until recently, the language of morality belonged to social conservatives. But the history of liberalism suggests that values have been at its core all along.`\
-https://www.nytimes.com/2026/06/29/books/review/liberals-are-preaching-moral-values.html
 
