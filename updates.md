@@ -1,3 +1,23 @@
+**How The Times/Siena Poll Writes Sensitive Questions**\
+`Asking voters about highly charged issues is a delicate task. Precise language helps us avoid introducing bias so that we can best understand what is driving voters’ decisions.`\
+https://www.nytimes.com/2026/06/29/polls/polling-political-controversies-platner-maine.html
+
+**Poll Shows Maine’s Quirky Political Contours**\
+`A Times/Siena survey reveals a tight race in a key contest for Senate control.`\
+https://www.nytimes.com/2026/06/29/upshot/poll-maine-platner-collins.html
+
+**The Big Changes Coming to the Times/Siena Poll**\
+`The goal is to make the survey more deeply representative of the population.`\
+https://www.nytimes.com/2026/06/29/upshot/times-siena-polling-changes.html
+
+**Platner Has Slight Edge Over Collins in Tight Maine Senate Race, Poll Finds**\
+`The Maine race, which both parties see as key to winning control of the Senate, is extremely close as the sprint to fall begins, a Times/Portland Press Herald/Siena poll found.`\
+https://www.nytimes.com/2026/06/29/us/politics/collins-platner-maine-senate-poll.html
+
+**Word of the Day: lassitude**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/29/learning/word-of-the-day-lassitude.html
+
 **Cross-Tabs: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
 `Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-crosstabs.html

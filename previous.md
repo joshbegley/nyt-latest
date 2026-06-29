@@ -1,3 +1,23 @@
+**How The Times/Siena Poll Writes Sensitive Questions**\
+`Asking voters about highly charged issues is a delicate task. Precise language helps us avoid introducing bias so that we can best understand what is driving voters’ decisions.`\
+https://www.nytimes.com/2026/06/29/polls/polling-political-controversies-platner-maine.html
+
+**Poll Shows Maine’s Quirky Political Contours**\
+`A Times/Siena survey reveals a tight race in a key contest for Senate control.`\
+https://www.nytimes.com/2026/06/29/upshot/poll-maine-platner-collins.html
+
+**The Big Changes Coming to the Times/Siena Poll**\
+`The goal is to make the survey more deeply representative of the population.`\
+https://www.nytimes.com/2026/06/29/upshot/times-siena-polling-changes.html
+
+**Platner Has Slight Edge Over Collins in Tight Maine Senate Race, Poll Finds**\
+`The Maine race, which both parties see as key to winning control of the Senate, is extremely close as the sprint to fall begins, a Times/Portland Press Herald/Siena poll found.`\
+https://www.nytimes.com/2026/06/29/us/politics/collins-platner-maine-senate-poll.html
+
+**Word of the Day: lassitude**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/29/learning/word-of-the-day-lassitude.html
+
 **Cross-Tabs: June 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
 `Results of a New York Times/Portland Press Herald/Siena poll of 608 likely voters conducted from June 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/06/29/polls/times-pph-siena-maine-poll-crosstabs.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
 **See How Colombia’s Goal Was Ruled Offside by a Toe**\
 `View in 3-D how close Colombia came to scoring a go-ahead goal in second-half stoppage time against Portugal.`\
 https://www.nytimes.com/interactive/2026/06/28/sports/soccer/colombia-portugal-world-cup-offside-goal.html
-
-**If These Celebrities Are Democracy’s Last Hope, We’re in Trouble**\
-`When speaking up actually means risking something, for once, it is more necessary than ever.`\
-https://www.nytimes.com/2026/06/28/opinion/celebrity-activism-donald-trump.html
-
-**We’re in a Golden Age of Queer Literature**\
-`After decades in which Queer literature was the underdog, it is now publishing’s golden goose.`\
-https://www.nytimes.com/2026/06/28/opinion/gay-lits-gone-mainstream.html
-
-**Beware the Purging of General Donahue**\
-`The dangers of Pete Hegseth are mounting.`\
-https://www.nytimes.com/2026/06/28/opinion/hegseth-donahue-military-purge.html
-
-**Today’s Wordle Hints for June 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
-https://www.nytimes.com/2026/06/28/crosswords/wordle-review-1836.html
-
-**NYT Strands Hints for June 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 29, 2026.`\
-https://www.nytimes.com/2026/06/28/crosswords/strands-sidekick-848.html
 
