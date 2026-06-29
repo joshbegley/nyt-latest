@@ -1,3 +1,7 @@
+**Mideast Live Updates: U.S. Indicates a Deal to Suspend Attacks in Strait but Iran Hasn’t Confirmed**\
+`A U.S. official said the U.S. and Iran agreed to halt attacks in the Strait of Hormuz and allow vessels to move freely. Hostilities in recent days have threatened a two-week-old cease-fire.`\
+https://www.nytimes.com/live/2026/06/28/world/us-iran-strikes-hormuz
+
 **Rescuers in ‘Critical Hours’ as Window to Find Survivors Closes**\
 `More than three days after twin earthquakes devastated the Venezuelan coast, the rescue effort faced chaos and delays as the chances of finding survivors diminished.`\
 https://www.nytimes.com/live/2026/06/28/world/venezuela-earthquake
