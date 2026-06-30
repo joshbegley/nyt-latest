@@ -1,3 +1,7 @@
+**John Oliver Dives into Trump’s Pet Project: A ‘Giant Duck Death Trap’**\
+`The “Last Week Tonight” host said the United States was “dealing with a literal swamp of corruption” for its 250th birthday.`\
+https://www.nytimes.com/2026/06/30/arts/television/john-oliver-lincoln-memorial-pool-ducks.html
+
 **Trump cerró un acuerdo minero y sus hijos se beneficiarán**\
 `Un acuerdo entre EE. UU. y Kazajistán ha dado a un grupo de inversores vinculados al presidente y al secretario de Comercio acceso a una de las mayores reservas de tungsteno sin explotar del mundo.`\
 https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/minas-hijos-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse
 **Colorado Supreme Court Rejects Democratic Redistricting Plans**\
 `The state’s high court found that ballot initiatives designed to change state law to install a newly gerrymandered map violated Colorado law.`\
 https://www.nytimes.com/2026/06/29/us/politics/colorado-supreme-court-rejects-democratic-redistricting-plans.html
-
-**What to Know About Wildfires in Colorado and Other Western States**\
-`Thousands of acres in Utah and other Western states have burned. Here is what to know about the firefighters who have died, the destruction so far and the spreading smoke.`\
-https://www.nytimes.com/2026/06/29/us/what-to-know-wildfires-colorado-utah-arizona-new-mexico-nevada.html
 
