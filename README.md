@@ -1,8 +1,12 @@
+**Las labores de rescate en Venezuela se vuelven cada vez más desesperadas**\
+`Venezuela ya superó las 72 horas que los expertos en gestión de desastres consideran críticas para encontrar sobrevivientes. El número de muertos ha subido a más de 1700, aunque es probable que la cifra real sea mayor.`\
+https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-rescate-sobrevivientes-victimas.html
+
 **What to Know About the Supreme Court’s Birthright Citizenship Order**\
 `The decision ends one of the most aggressive parts of Trump’s immigration agenda. But hundreds of other restrictions have taken effect.`\
 https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-order-explained.html
 
-**‘Heartbreaking’ Ruling Leaves Trans Advocates Crestfallen**\
+**Supreme Court Ruling on Trans Athletes Leaves Advocates Crestfallen**\
 `The ruling upholding two state laws blocking transgender athletes from participating in girls’ and women’s sports was the latest in a series of defeats.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-trans-athletes-decision-reactions.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/30/well/eat/appetite-loss-with-age.html
 **How the Supreme Court Ushered in Corporate Chaos in D.C.**\
 `Though the high court affirmed the political independence of the Federal Reserve, it gave the presidency huge control over dozens of federal regulators.`\
 https://www.nytimes.com/2026/06/30/business/dealbook/supreme-court-fed-ftc-regulatory-agencies.html
-
-**The 1968 Pact on Shipping Routes in the Strait of Hormuz That Iran Is Rejecting**\
-`For decades, a maritime agreement negotiated by Iran and Oman has governed the main pathways through the strait.`\
-https://www.nytimes.com/2026/06/30/world/middleeast/the-1968-pact-on-shipping-routes-in-the-strait-of-hormuz-that-iran-is-rejecting.html
 
