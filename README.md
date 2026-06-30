@@ -1,3 +1,7 @@
+**What to Know About the Supreme Court’s Birthright Citizenship Order**\
+`The decision ends one of the most aggressive parts of Trump’s immigration agenda. But hundreds of other restrictions have taken effect.`\
+https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-order-explained.html
+
 **‘Heartbreaking’ Ruling Leaves Trans Advocates Crestfallen**\
 `The ruling upholding two state laws blocking transgender athletes from participating in girls’ and women’s sports was the latest in a series of defeats.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-trans-athletes-decision-reactions.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/30/business/dealbook/supreme-court-fed-ftc-regul
 **The 1968 Pact on Shipping Routes in the Strait of Hormuz That Iran Is Rejecting**\
 `For decades, a maritime agreement negotiated by Iran and Oman has governed the main pathways through the strait.`\
 https://www.nytimes.com/2026/06/30/world/middleeast/the-1968-pact-on-shipping-routes-in-the-strait-of-hormuz-that-iran-is-rejecting.html
-
-**Parcel Bomb Explodes in Monaco, Injuring 3**\
-`The blast seriously injured three people, including a child, according to the authorities, who said the assailant was on the run.`\
-https://www.nytimes.com/2026/06/30/world/europe/monaco-parcel-bomb-explosion.html
 
