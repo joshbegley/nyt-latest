@@ -1,3 +1,19 @@
+**Trump cerró un acuerdo minero y sus hijos se beneficiarán**\
+`Un acuerdo entre EE. UU. y Kazajistán ha dado a un grupo de inversores vinculados al presidente y al secretario de Comercio acceso a una de las mayores reservas de tungsteno sin explotar del mundo.`\
+https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/minas-hijos-trump.html
+
+**La hipocresía de la Corte Suprema**\
+`El máximo tribunal de Estados Unidos está otorgando nuevos poderes a un presidente que con frecuencia actúa como un aspirante a autócrata.`\
+https://www.nytimes.com/es/2026/06/30/espanol/opinion/corte-suprema-estados-unidos-poderes-trump.html
+
+**Pope Leo’s Showdown With the Church’s Radical Right**\
+`An impending clash between Pope Leo and ultratraditionalist Catholics threatens to end the pontiff’s honeymoon.`\
+https://www.nytimes.com/2026/06/30/opinion/pope-leo-latin-mass-catholic-church.html
+
+**Venezuela’s Tragedy Is Bigger Than the Earthquakes**\
+`Venezuela’s natural disaster was unavoidable, but the devastation it has left in its wake was not.`\
+https://www.nytimes.com/2026/06/30/opinion/venezuela-earthquake-tragedy.html
+
 **¿Por qué los aficionados de Noruega hacen un ‘remo vikingo’ en el Mundial?**\
 `Multitudes de aficionados noruegos vestidos de rojo reman codo con codo en estadios, colegios e incluso en una residencia de ancianos. No todo el mundo está encantado.`\
 https://www.nytimes.com/es/2026/06/30/espanol/deportes/noruega-remo-vikingo-mundial.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/06/29/us/politics/colorado-supreme-court-rejects-de
 **What to Know About Wildfires in Colorado and Other Western States**\
 `Thousands of acres in Utah and other Western states have burned. Here is what to know about the firefighters who have died, the destruction so far and the spreading smoke.`\
 https://www.nytimes.com/2026/06/29/us/what-to-know-wildfires-colorado-utah-arizona-new-mexico-nevada.html
-
-**Supreme Court Decision on Late-Arriving Mail-In Ballots Grants Relief to 18 States**\
-`The Supreme Court ruled on Monday that state laws allowing ballots to arrive after Election Day are legal. The decision is the latest in a series of setbacks for President Trump’s efforts to regulate elections.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-mail-ballots-grace-period.html
-
-**The President Is Now ‘Unitary.’ Two Scholars Debate What That Means.**\
-`Two legal scholars deconstruct a big court decision long in the making.`\
-https://www.nytimes.com/2026/06/29/opinion/supreme-court-trump-executive-power.html
-
-**Inmates Take Guards Hostage in Hourslong Standoff at North Carolina Jail**\
-`It is not yet clear what ignited the takeover, but the county sheriff said it started when at least one inmate got access to keys used to unlock cell doors.`\
-https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html
-
-**The Winners of Our 9th Annual Student Podcast Contest**\
-`We invited teenagers to create an original five-minute podcast about almost anything. Listen to the winning entries selected from 1,400 submissions.`\
-https://www.nytimes.com/2026/06/29/learning/the-winners-of-our-9th-annual-student-podcast-contest.html
 
