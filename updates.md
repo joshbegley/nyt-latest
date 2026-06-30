@@ -1,3 +1,7 @@
+**5 Temperature Records Meteorologists Are Watching This Week**\
+`New York could record 100 degrees for the first time since 2012, as a brutal heat wave spreads east.`\
+https://www.nytimes.com/2026/06/30/weather/heat-wave-records-broken.html
+
 **10-Year-Old Boy Charged With First-Degree Murder in Shooting of Infant Niece**\
 `The boy shot his 7-month-old niece at a St. Louis home with a firearm that had been kept under a mattress, the police said. The baby’s father, who owned the weapon, has also been charged.`\
 https://www.nytimes.com/2026/06/30/us/missouri-baby-shooting-murder.html
