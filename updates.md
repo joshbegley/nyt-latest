@@ -1,3 +1,15 @@
+**Read the Supreme Court Decision Banning Transgender Athletes From Women’s Sports**\
+`The court upheld state laws in West Virginia and Idaho barring the participation of transgender female athletes from girls’ and women’s sports teams.`\
+https://www.nytimes.com/interactive/2026/06/30/us/scotus-trans.html
+
+**Manhunt Underway After Parcel Bomb Explodes in Monaco**\
+`An international manhunt was underway on Tuesday after a parcel bomb exploded in Monaco, seriously injuring three people.`\
+https://www.nytimes.com/video/world/europe/100000011001237/monaco-parcel-bomb-explosion-manhunt.html
+
+**Live Updates: Supreme Court Allows States to Bar Transgender Athletes from Girls’ Sports**\
+`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
+https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
+
 **With New Seizures, Value of the Met’s Looted Artifacts Tops $95 Million**\
 `The Manhattan district attorney’s office said it secured the return of dozens of ancient artifacts in June, after a process that the museum described as collaborative.`\
 https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-million.html
