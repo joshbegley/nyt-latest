@@ -2,6 +2,10 @@
 `Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
 https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
 
+**Live Updates: Supreme Court Upholds Birthright Citizenship**\
+`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/live/2026/06/30/us/supreme-court-birthright-citizenship
+
 **Read the Supreme Court Decision Banning Transgender Athletes From Women’s Sports**\
 `The court upheld state laws in West Virginia and Idaho barring the participation of transgender female athletes from girls’ and women’s sports teams.`\
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-trans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/movies/bang-my-box-the-robin-byrd-story-revie
 **Restaurant Review: Dean’s in Manhattan**\
 `This restaurant from two King partners nails the fish and chips and other standards, but defies the notion that all English food is bland.`\
 https://www.nytimes.com/2026/06/30/dining/restaurant-review-deans-manhattan.html
-
-**Why It’s Best Not to Rush a Relationship**\
-`The designer Dan Pearson says intentionally creating landscapes slowly can produce the most inspiring results, as well as opportunities for fine-tuning later.`\
-https://www.nytimes.com/2026/06/30/realestate/why-its-best-not-to-rush-a-relationship.html
 
