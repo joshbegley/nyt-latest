@@ -1,3 +1,11 @@
+**The Supreme Court Just Gave the G.O.P. a New Midterm Edge**\
+`The decision, which allows parties to spend more in coordination with candidates, is likely to further expand the power of big money in American politics.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-midterms-campaign-finance.html
+
+**Tom Kean, New Jersey Congressman, Says Depression Led to Long Absence**\
+`After months of mystery, the New Jersey representative broke his silence about the undisclosed health issue that prompted his 117-day absence.`\
+https://www.nytimes.com/2026/06/30/us/politics/tom-kean-return-depression.html
+
 **The 1952 Law That Was Central to the Birthright Citizenship Case**\
 `When Congress passed a sweeping immigration reform measure after World War II, it included language that mirrored the 14th Amendment’s citizenship clause — and perhaps even took it a step further.`\
 https://www.nytimes.com/2026/06/30/us/politics/1952-immigration-nationality-act-birthright-citizenship.html

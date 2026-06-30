@@ -1,3 +1,7 @@
+**The Supreme Court Just Gave the G.O.P. a New Midterm Edge**\
+`The decision, which allows parties to spend more in coordination with candidates, is likely to further expand the power of big money in American politics.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-midterms-campaign-finance.html
+
 **The 1952 Law That Was Central to the Birthright Citizenship Case**\
 `When Congress passed a sweeping immigration reform measure after World War II, it included language that mirrored the 14th Amendment’s citizenship clause — and perhaps even took it a step further.`\
 https://www.nytimes.com/2026/06/30/us/politics/1952-immigration-nationality-act-birthright-citizenship.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-a
 `As Paris Men’s Fashion week winds to a close, see what our critic thought about shows at Celine, Soshiotsuki, Willy Chavarria and Comme des Garçons Homme.`\
 https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
 
-**Tom Kean Says Depression Led to Long Absence From Congress**\
+**Tom Kean, New Jersey Congressman, Says Depression Led to Long Absence**\
 `After months of mystery, the New Jersey representative broke his silence about the undisclosed health issue that prompted his 117-day absence.`\
 https://www.nytimes.com/2026/06/30/us/politics/tom-kean-return-depression.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/crosswords/wordle-review-1838.html
 **NYT Strands Hints for July 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
 https://www.nytimes.com/2026/06/30/crosswords/strands-sidekick-850.html
-
-**Fourth of July Heat Wave Forecast: Here Are the Day-by-Day Temperatures**\
-`A day-by-day breakdown of where dangerous heat is expected through the Fourth of July weekend.`\
-https://www.nytimes.com/2026/06/30/weather/july-fourth-heat-wave-forecast.html
 
