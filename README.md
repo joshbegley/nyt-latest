@@ -1,3 +1,11 @@
+**Aid Workers in Venezuela Fear Disease Outbreaks After Twin Quakes**\
+`Health care workers worry that illnesses like cholera could spread in areas where clean water was already in short supply, and last week’s earthquakes destroyed water systems.`\
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-disease-outbreaks.html
+
+**The Vera Rubin Telescope Begins Surveying Our Cosmos**\
+`The Vera C. Rubin Observatory is beginning the widest, deepest survey yet of the southern sky.`\
+https://www.nytimes.com/2026/06/30/science/rubin-telescope.html
+
 **Curiosity, Perseverance and Now Promise? NASA May Send a Mars Rover to the Moon.**\
 `As part of plans to establish a lunar base, the space agency may send to the moon a spare test version of the rover — as well as a soccer ball.`\
 https://www.nytimes.com/2026/06/30/science/nasa-moon-base-research.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-secretary
 **Colorado Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-2-primary.html
-
-**What to Know About Flights to Venezuela After Devastating Earthquakes**\
-`Six days after powerful back-to-back earthquakes, air travel in and out of the country remains severely restricted.`\
-https://www.nytimes.com/2026/06/30/travel/venezuela-airports-damage-closed.html
-
-**How Democrats Could Win in Texas**\
-`Our chief political analyst, Nate Cohn, unpacks a New York Times/Siena poll of voters in Texas, where control of the Senate could be decided in the 2026 midterm elections.`\
-https://www.nytimes.com/video/polls/100000010992598/how-democrats-could-win-in-texas.html
 

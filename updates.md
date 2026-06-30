@@ -1,3 +1,7 @@
+**Curiosity, Perseverance and Now Promise? NASA May Send a Mars Rover to the Moon.**\
+`As part of plans to establish a lunar base, the space agency may send to the moon a spare test version of the rover — as well as a soccer ball.`\
+https://www.nytimes.com/2026/06/30/science/nasa-moon-base-research.html
+
 **Supreme Court Blocks Trump’s Push to End Birthright Citizenship**\
 `Also, a House Republican says depression led to his long absence. Here's the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/06/30/briefing/supreme-court-birthright-citizenship.html
