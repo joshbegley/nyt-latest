@@ -1,3 +1,7 @@
+**China Increases Military and Economic Pressure on Japan**\
+`Beijing’s latest pressure tactics include flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
+https://www.nytimes.com/2026/06/30/world/asia/china-japan-rare-earths-patrols.html
+
 **Can You Really Be a Working-Class Party if There Are Very Few Workers in Your Party?**\
 `There an irony at the heart of the D.S.A.’s ascendance.`\
 https://www.nytimes.com/2026/06/30/opinion/democratic-primaries-socialists-mamdani.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/arts/television/john-oliver-lincoln-memorial-
 **Trump cerró un acuerdo minero y sus hijos se beneficiarán**\
 `Un acuerdo entre EE. UU. y Kazajistán ha dado a un grupo de inversores vinculados al presidente y al secretario de Comercio acceso a una de las mayores reservas de tungsteno sin explotar del mundo.`\
 https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/minas-hijos-trump.html
-
-**La hipocresía de la Corte Suprema**\
-`El máximo tribunal de Estados Unidos está otorgando nuevos poderes a un presidente que con frecuencia actúa como un aspirante a autócrata.`\
-https://www.nytimes.com/es/2026/06/30/espanol/opinion/corte-suprema-estados-unidos-poderes-trump.html
 
