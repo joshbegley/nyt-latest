@@ -1,3 +1,7 @@
+**It’s Soccer, but Set to Disco. And May the Best Dancers Win.**\
+`“Discofoot,” a dance showdown and soccer game played to disco hits, originated in France. Last weekend, in honor of the World Cup, it had its U.S. premiere.`\
+https://www.nytimes.com/2026/06/30/arts/dance/discofoot-soccer-dance-world-cup.html
+
 **Ontario and Quebec Face Heat Warnings as High Temperatures Spread Across Canada**\
 `Parts of Ontario and Quebec will be well above normal temperatures this week as a heat wave spreads over North America.`\
 https://www.nytimes.com/2026/06/30/weather/ontario-quebec-canada-heat-wave.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/weather/july-fourth-heat-wave-forecast.html
 **Shipping Traffic in Strait of Hormuz Picks Up Again**\
 `Vessels stranded for months have started moving in larger numbers, but many pulled back over the weekend after Iran and the U.S. exchanged attacks.`\
 https://www.nytimes.com/2026/06/30/business/strait-hormuz-ships-iran-war.html
-
-**Oil Prices Tick Higher as Iran and U.S. Prepare for Talks**\
-`Iran and the United States were set for further talks after a spurt of hostilities had underscored the uncertainty surrounding attempts to strike a lasting peace deal.`\
-https://www.nytimes.com/2026/06/30/business/oil-gas-prices-iran.html
 
