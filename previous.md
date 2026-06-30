@@ -1,3 +1,15 @@
+**Nursing Students and Others Get Higher Student Loan Limits**\
+`A legal challenge to a law that takes effect this week has doubled the amount certain graduate students can borrow from the federal government to $50,000 per year.`\
+https://www.nytimes.com/2026/06/30/business/nursing-student-loan-caps.html
+
+**New York Is Set to Offer Transit Discounts to 340,000 More Riders**\
+`A budget deal between the mayor and the City Council is expected to expand eligibility for the Fair Fares program, which provides half-price fares to lower-income New Yorkers.`\
+https://www.nytimes.com/2026/06/30/nyregion/nyc-fair-fares-transit-discounts.html
+
+**Why Can’t I Eat as Much as I Used to?**\
+`Hormonal shifts, diminished sense of smell and taste, muscle loss — many factors can influence hunger loss in older adults.`\
+https://www.nytimes.com/2026/06/30/well/eat/appetite-loss-with-age.html
+
 **How the Supreme Court Ushered in Corporate Chaos in D.C.**\
 `Though the high court affirmed the political independence of the Federal Reserve, it gave the presidency huge control over dozens of federal regulators.`\
 https://www.nytimes.com/2026/06/30/business/dealbook/supreme-court-fed-ftc-regulatory-agencies.html
@@ -71,7 +83,7 @@ https://www.nytimes.com/2026/06/30/business/oil-gas-prices-iran.html
 https://www.nytimes.com/2026/06/30/podcasts/inside-pablo-torre-finds-out-dan-le-batard.html
 
 **China Increases Military and Economic Pressure on Japan**\
-`Beijing’s latest pressure tactics include flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
+`Beijing’s moves have included flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
 https://www.nytimes.com/2026/06/30/world/asia/china-japan-rare-earths-patrols.html
 
 **Can You Really Be a Working-Class Party if There Are Very Few Workers in Your Party?**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/30/style/taylor-swift-wedding-travis-kelce-detai
 **Book Review: ‘Dead but Dreaming of Electric Sheep,’ by Paul Tremblay**\
 `In Paul Tremblay’s new A.I. dystopia, “Dead but Dreaming of Electric Sheep,” an experimental technology gives its heroine control over somebody else’s body.`\
 https://www.nytimes.com/2026/06/30/books/review/dead-but-dreaming-of-electric-sheep-paul-tremblay.html
-
-**At 250, Has America Delivered on Its Classical Music Promise?**\
-`The classical music tradition in the United States is borrowed from Europe. But few could have anticipated how European it would remain.`\
-https://www.nytimes.com/2026/06/30/arts/music/american-classical-music-remains-european.html
-
-**Congress Cleaned Up After Nixon. After Trump, It’ll Be a Bigger Job.**\
-`The Supreme Court has eviscerated the separation of powers.`\
-https://www.nytimes.com/2026/06/30/opinion/congress-scotus-trump-slaughter.html
-
-**How Grindr’s C.E.O. Adopted A.I.: ‘I Just Imposed It’**\
-`George Arison, the gay dating app’s chief executive, is aiming for all code to be eventually written by artificial intelligence, making the company “leaner.”`\
-https://www.nytimes.com/2026/06/30/business/grindr-ceo-george-arison-ai.html
 
