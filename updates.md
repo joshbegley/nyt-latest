@@ -1,3 +1,11 @@
+**Times/Siena Poll Shows Hannah Pingree Leading in Maine Governor’s Race**\
+`Hannah Pingree, former Maine House speaker, starts the race to Election Day against Bobby Charles in a strong position, according to a New York Times/Portland Press Herald/Siena poll.`\
+https://www.nytimes.com/2026/06/30/polls/maine-governor-poll.html
+
+**Word of the Day: expatiate**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/30/learning/word-of-the-day-expatiate.html
+
 **Moscow Is Attacked by Dozens of Drones, Its Mayor Says**\
 `Sergei Sobyanin said the Russian military had shot down more than 60 drones. He did not report any injuries.`\
 https://www.nytimes.com/2026/06/30/world/europe/moscow-drone-attack-russia-ukraine-war.html
