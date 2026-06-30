@@ -1,3 +1,15 @@
+**Shortages of Rescue Equipment Hampered Venezuela’s Earthquake Response**\
+`Residents appealed for excavators, generators and specialized rescue tools as civilians have stepped in to supply crews working through the rubble.`\
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-rescue-equipment-aid.html
+
+**Supreme Court Upholds Birthright Citizenship**\
+`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizenship.html
+
+**Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
+`The justices blocked an executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
+
 **Robby Hoffman: ‘How Weird Are These Rich People?’**\
 `The comedian Robby Hoffman grew up poor in a Hasidic community in Crown Heights, Brooklyn, the seventh of 10 children. On “The Interview,” she talked about the differences she’s observed between rich and poor people.`\
 https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-are-these-rich-people.html

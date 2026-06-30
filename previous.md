@@ -18,6 +18,10 @@ https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/trump-ciudadania-na
 `Bark Barbecue serves a Caribbean take on the genre in Bushwick, Brooklyn, Titán brings a Mexican collaboration to Dumbo and more restaurant news.`\
 https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
 
+**Shortages of Rescue Equipment Hampered Venezuela’s Earthquake Response**\
+`Residents appealed for excavators, generators and specialized rescue tools as civilians have stepped in to supply crews working through the rubble.`\
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-rescue-equipment-aid.html
+
 **NPR Retracts Article Falsely Suggesting Justice Alito Retired**\
 `The news outlet quickly removed the article, which was written by NPR’s seasoned Supreme Court reporter, Nina Totenberg, from its website.`\
 https://www.nytimes.com/2026/06/30/business/media/npr-samuel-alito-nina-totenberg.html
@@ -59,14 +63,14 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athlete
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
 
 **Supreme Court Upholds Birthright Citizenship**\
-`The justices rejected President Trump’s executive order that tried to end the practice of automatically granting citizenship to the children of undocumented immigrants and some temporary foreign visitors.`\
+`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizenship.html
 
 **Supreme Court Lifts Spending Limits on Political Parties and Candidates**\
 `Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
 https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
 
-**Live Updates: Supreme Court Rejects Trump’s Effort to End Birthright Citizenship**\
+**Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `The justices blocked an executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/podcasts/inside-pablo-torre-finds-out-dan-le-
 **China Increases Military and Economic Pressure on Japan**\
 `Beijing’s moves have included flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
 https://www.nytimes.com/2026/06/30/world/asia/china-japan-rare-earths-patrols.html
-
-**Death Toll Tops 1,700 as Hopes Fade of Finding Quake Survivors**\
-`The government said it had not given up on pulling people alive from the wreckage, but there were few rescues on the fifth day.`\
-https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
 
