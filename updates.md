@@ -1,3 +1,7 @@
+**Dangerous Heat Wave Spreads Across U.S.**\
+`Intense heat is expected across much of the United States through the Fourth of July holiday weekend. The temperatures could break daily records in some parts of the country as the heat spreads east.`\
+https://www.nytimes.com/video/weather/100000011000844/us-heat-wave.html
+
 **Times/Siena Poll Shows Hannah Pingree Leading in Maine Governor’s Race**\
 `Hannah Pingree, former Maine House speaker, starts the race to Election Day against Bobby Charles in a strong position, according to a New York Times/Portland Press Herald/Siena poll.`\
 https://www.nytimes.com/2026/06/30/polls/maine-governor-poll.html
