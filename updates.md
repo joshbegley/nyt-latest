@@ -1,3 +1,7 @@
+**More Than 1 Million Migrants Apply for Legal Status in Spain**\
+`Since late April, the Spanish government has allowed undocumented migrants a path out of legal limbo, making Spain a beacon to the global left.`\
+https://www.nytimes.com/2026/06/30/world/europe/spain-migrants-legal-status.html
+
 **2 Killed as Bus Flips Into Traffic on Long Island Expressway**\
 `A bus crashed into multiple vehicles in Queens just before midnight on Monday. Authorities investigating the incident have closed lanes on the highway near 50th Street.`\
 https://www.nytimes.com/2026/06/30/us/long-island-expressway-crash.html
