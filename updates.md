@@ -1,3 +1,7 @@
+**Trump Pulled in at Least $2.2 Billion in 2025, Financial Disclosure Shows**\
+`The release of a mandatory financial disclosure for 2025 shows that the Trump family’s holdings, particularly the president’s crypto businesses, were stunningly lucrative.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-financial-disclosure-crypto-windfall.html
+
 **5 Temperature Records Meteorologists Are Watching This Week**\
 `New York could record 100 degrees for the first time since 2012, as a brutal heat wave spreads east.`\
 https://www.nytimes.com/2026/06/30/weather/heat-wave-records-broken.html
