@@ -1,3 +1,7 @@
+**Trump Officials Sideline Machado, Venezuela’s Opposition Leader, Over Earthquake Response**\
+`A bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela has angered U.S. officials focused on recovery and stability.`\
+https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.html
+
 **Takeaways From a Transformative Supreme Court Term**\
 `The justices rejected some of President Trump’s signature initiatives, but delivered lasting, long-sought conservative wins.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/30/opinion/supreme-court-trump-birthright.html
 **What the Supreme Court Decisions About Trump’s Firings Mean**\
 `Our chief legal affairs correspondent, Adam Liptak, explains how two Supreme Court rulings on the firings of independent regulators first expand the power of the president, and then carve out an exception.`\
 https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decisions-about-trumps-firings-mean.html
-
-**7 Songs Recorded Live at Madison Square Garden**\
-`Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
-https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
 
