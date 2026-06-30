@@ -1,3 +1,11 @@
+**The Two Mexico Cities Fighting for Claim Over Soccer’s Origin**\
+`Mineral del Monte, a small former mining town that became a tourist destination partly because of its Cornish influence, claims that soccer in Mexico started there. Well, so does the nearby city of Pachuca.`\
+https://www.nytimes.com/2026/06/30/world/americas/world-cup-mexico-soccer.html
+
+**Supreme Court Strikes Down Trump’s Order to Limit Birthright Citizenship**\
+`The Supreme Court rejected President Trump’s executive order that limited birthright citizenship on Tuesday. The decision stopped a more than decade-long effort by the president to use the issue as a political tool.`\
+https://www.nytimes.com/video/us/politics/100000011001650/birthright-citizenship-supreme-court.html
+
 **Venezuela’s Maduro Accused in Lawsuit of Authorizing Police Killings**\
 `Five families whose loved ones were killed during a deadly police campaign have sued the former Venezuelan leader in U.S. court in Brooklyn.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-maduro-killings-lawsuit.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremoto
 **What to Know About the Supreme Court’s Birthright Citizenship Order**\
 `The decision ends one of the most aggressive parts of Trump’s immigration agenda. But hundreds of other restrictions have taken effect.`\
 https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-order-explained.html
-
-**Supreme Court Ruling on Trans Athletes Leaves Advocates Crestfallen**\
-`The ruling upholding two state laws blocking transgender athletes from participating in girls’ and women’s sports was the latest in a series of defeats.`\
-https://www.nytimes.com/2026/06/30/us/politics/supreme-court-trans-athletes-decision-reactions.html
-
-**Mamdani and City Council Agree on $126 Billion Budget**\
-`A handshake deal, reached right at the statutory budget deadline, will expand programs that offer housing vouchers and discounted transit fares.`\
-https://www.nytimes.com/2026/06/30/nyregion/mamdani-budget-nyc.html
 

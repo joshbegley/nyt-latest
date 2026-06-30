@@ -1,3 +1,11 @@
+**Venezuela’s Maduro Accused in Lawsuit of Authorizing Police Killings**\
+`Five families whose loved ones were killed during a deadly police campaign have sued the former Venezuelan leader in U.S. court in Brooklyn.`\
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-maduro-killings-lawsuit.html
+
+**4 Warning Signs for Graham Platner. And 4 for Susan Collins Too.**\
+`The Maine race, which both parties see as key to winning control of the Senate, is extremely close, a Times/Portland Press Herald/Siena poll found. Both candidates have reasons for concern.`\
+https://www.nytimes.com/2026/06/30/us/politics/collins-platner-maine-senate-poll-worries.html
+
 **Restaurant Review: Kaiseki in the East Village**\
 `The stripped down location of the chef Hiroki Odo’s restaurant takes an à la carte approach to the Japanese meal.`\
 https://www.nytimes.com/2026/06/30/dining/brief-restaurant-review-odo-east-village.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-trans-athletes-deci
 **Mamdani and City Council Agree on $126 Billion Budget**\
 `A handshake deal, reached right at the statutory budget deadline, will expand programs that offer housing vouchers and discounted transit fares.`\
 https://www.nytimes.com/2026/06/30/nyregion/mamdani-budget-nyc.html
-
-**Venezuela Earthquake Victims Seek Shelter Outside**\
-`Many Venezuelans have taken to living in the streets after two devastating earthquakes displaced them from their homes.`\
-https://www.nytimes.com/video/world/americas/venezuela-earthquakes-victims-displaced.html
-
-**Judah Gribetz, Key Negotiator in New York City’s Fiscal Crisis, Dies at 97**\
-`A top aide to Gov. Hugh L. Carey in the 1970s, he was an influential figure in talks between the governor and Abraham D. Beame, the mayor, as the city faced financial collapse.`\
-https://www.nytimes.com/2026/06/30/nyregion/judah-gribetz-dead.html
 
