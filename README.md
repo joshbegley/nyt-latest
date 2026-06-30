@@ -1,3 +1,11 @@
+**After a Tap Heard in Rubble, U.S. Rescue Teams Begin a Grueling Marathon**\
+`Surrounded by the devastation of Venezuela’s earthquakes, emergency specialists from California, Virginia and Florida work with locals to search for survivors.`\
+https://www.nytimes.com/2026/06/30/us/american-rescue-teams-venezuela-earthquake.html
+
+**Trump Had a Billion Dollar Windfall After Returning to the White House**\
+`The release of a mandatory financial disclosure for 2025 shows that the Trump family’s holdings, particularly the president’s crypto businesses, were stunningly lucrative.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-financial-disclosure-crypto-windfall.html
+
 **What Tom Kean Did and Didn’t Explain About His Absence**\
 `Representative Thomas Kean Jr., a New Jersey Republican, has finally reappeared in Congress. Questions remain about his nearly four-month absence from public life, which he said was due to depression.`\
 https://www.nytimes.com/2026/06/30/nyregion/tom-kean-new-jersey-absence.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-
 **Colorado Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
-
-**Colorado Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-5-primary.html
-
-**Colorado Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-7-primary.html
 
