@@ -1,3 +1,23 @@
+**Can You Really Be a Working-Class Party if There Are Very Few Workers in Your Party?**\
+`There an irony at the heart of the D.S.A.’s ascendance.`\
+https://www.nytimes.com/2026/06/30/opinion/democratic-primaries-socialists-mamdani.html
+
+**Texas Is a Tossup. The Times/Siena Poll Points to How It Got There.**\
+`A major shift among Hispanic voters and a favorable candidate matchup have helped put Democrats on the doorstep of a Senate upset.`\
+https://www.nytimes.com/2026/06/30/upshot/texas-poll-talarico-paxton.html
+
+**¿Los medicamentos para adelgazar también alargan la vida?**\
+`A los expertos les intriga esta teoría. Esto es lo que sugieren los primeros estudios.`\
+https://www.nytimes.com/es/2026/06/30/espanol/medicamentos-adelgazar-longevidad.html
+
+**Cómo Estambul conquistó el mundo del tango**\
+`Con una comunidad apasionada, decenas de escuelas y competencias internacionales, la metrópoli turca hoy figura entre las ciudades imprescindibles para los amantes de este baile.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/tango-turquia.html
+
+**Why the True Death Toll of Venezuela’s Quakes Is So Hard to Know**\
+`Five days after devastating twin earthquakes flattened entire residential neighborhoods, experts fear the official death toll of 1,719 could be a serious undercount.`\
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-quakes-death-toll.html
+
 **When Sly Stone Got Married at M.S.G., He Had 20,000 Fans There With Him**\
 `A celebrity wedding at the New York arena? The funk and soul star did just that in 1974.`\
 https://www.nytimes.com/2026/06/30/arts/music/sly-stone-taylor-swift-msg-wedding.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/minas-hijos-trump.h
 **La hipocresía de la Corte Suprema**\
 `El máximo tribunal de Estados Unidos está otorgando nuevos poderes a un presidente que con frecuencia actúa como un aspirante a autócrata.`\
 https://www.nytimes.com/es/2026/06/30/espanol/opinion/corte-suprema-estados-unidos-poderes-trump.html
-
-**Venezuela’s Tragedy Is Bigger Than the Earthquakes**\
-`Venezuela’s natural disaster was unavoidable, but the devastation it has left in its wake was not.`\
-https://www.nytimes.com/2026/06/30/opinion/venezuela-earthquake-tragedy.html
-
-**Pope Leo’s Showdown With the Church’s Radical Right**\
-`An impending clash between Pope Leo and ultratraditionalist Catholics threatens to end the pontiff’s honeymoon.`\
-https://www.nytimes.com/2026/06/30/opinion/pope-leo-latin-mass-catholic-church.html
-
-**¿Por qué los aficionados de Noruega hacen un ‘remo vikingo’ en el Mundial?**\
-`Multitudes de aficionados noruegos vestidos de rojo reman codo con codo en estadios, colegios e incluso en una residencia de ancianos. No todo el mundo está encantado.`\
-https://www.nytimes.com/es/2026/06/30/espanol/deportes/noruega-remo-vikingo-mundial.html
-
-**Norway’s ‘Viking Row’ Is a Fan Phenomenon at the World Cup**\
-`Seas of red-clad Norwegian supporters are rowing shoulder to shoulder at stadiums, schools, even a nursing home. Not everyone is thrilled.`\
-https://www.nytimes.com/2026/06/30/world/europe/norway-fans-viking-row-cheer.html
-
-**Quote of the Day: A Viking Nation Pulls Together**\
-`Quotation of the Day for Tuesday, June 30, 2026.`\
-https://www.nytimes.com/2026/06/30/pageoneplus/quote-of-the-day-a-viking-nation-pulls-together.html
 
