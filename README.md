@@ -1,3 +1,7 @@
+**The 1968 Pact on Shipping Routes in the Strait of Hormuz That Iran Is Rejecting**\
+`For decades, a maritime agreement negotiated by Iran and Oman has governed the main pathways through the strait.`\
+https://www.nytimes.com/2026/06/30/world/middleeast/the-1968-pact-on-shipping-routes-in-the-strait-of-hormuz-that-iran-is-rejecting.html
+
 **Parcel Bomb Explodes in Monaco, Injuring 3**\
 `The blast seriously injured three people, including a child, according to the authorities, who said the assailant was on the run.`\
 https://www.nytimes.com/2026/06/30/world/europe/monaco-parcel-bomb-explosion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/business/grindr-ceo-george-arison-ai.html
 **How to Travel With a Car Seat**\
 `Cumbersome car seats are a perennial headache for parents who take trips with their little ones, but the right gear and a little creativity can ease the burden.`\
 https://www.nytimes.com/2026/06/30/travel/car-seat-traveling-tip.html
-
-**For Lifelong Runners, Quitting Can Feel Like a Form of Grief**\
-`For those who rely on the sport for identity and community, leaving it behind can feel like a form of grief.`\
-https://www.nytimes.com/2026/06/30/well/move/running-loss-grief.html
 
