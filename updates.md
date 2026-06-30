@@ -1,3 +1,7 @@
+**Trump Officials Sideline Machado, Venezuela’s Opposition Leader, Over Earthquake Response**\
+`A bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela has angered U.S. officials focused on recovery and stability.`\
+https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.html
+
 **Takeaways From a Transformative Supreme Court Term**\
 `The justices rejected some of President Trump’s signature initiatives, but delivered lasting, long-sought conservative wins.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
