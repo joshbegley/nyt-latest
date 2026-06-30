@@ -1,3 +1,11 @@
+**Courtney Sale Ross, Founder and Funder of a Quirky School, Dies at 78**\
+`Instead of home-schooling her daughter, she spent hundreds of millions of dollars building an idiosyncratic educational institution in the Hamptons.`\
+https://www.nytimes.com/2026/06/30/education/courtney-sale-ross-dead.html
+
+**Today, In Short**\
+`Celebrity weddings. Wimbledon. And laughing apes.`\
+https://www.nytimes.com/2026/06/30/briefing/today-in-short.html
+
 **‘Birthright’ Stages a Thrillingly Complex Conversation on Conversation Itself**\
 `Jonathan Spector’s ambitious drama about six Jewish friends and their shifting relationship with Israel stretches over three hours and nearly two decades.`\
 https://www.nytimes.com/2026/06/30/theater/birthright-review-israel-spector.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/06/30/movies/blake-lively-justin-baldoni-legal-fees
 `48 países en competencia. 96 camisetas en exhibición. Vota por tus diseños favoritos y descubre qué puesto ocupan según los lectores del Times.`\
 https://www.nytimes.com/es/interactive/2026/06/30/espanol/deportes/mejor-camiseta-mundial.html
 
-**Plaintiff in Transgender Athlete Case Recently Won a State Shot Put Title**\
+**Plaintiff in Supreme Court Transgender Athlete Case Recently Won a State Shot Put Title**\
 `The success of Becky Pepper-Jackson, a West Virginia high school sophomore, prompted criticism from the state’s governor.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes-plaintiff.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/pageoneplus/corrections-june-30-2026.html
 **Chris Rufo, MAGA’s Top Activist on the Right, Has a Conspiracy Problem**\
 `One of MAGA’s leading activists discusses how he views the second Trump administration, as well as various factions of the right.`\
 https://www.nytimes.com/2026/06/30/opinion/ezra-klein-podcast-chris-rufo.html
-
-**Times/Siena Poll Finds Talarico and Paxton Tied in Texas Senate Race**\
-`James Talarico, a Democratic state lawmaker, is tied with Ken Paxton, the Republican state attorney general, according to a New York Times/Siena poll.`\
-https://www.nytimes.com/2026/06/30/us/politics/texas-senate-poll-talarico-paxton.html
-
-**Book Review: ‘The Midnight Special,’ by Colin Asher**\
-`“The Midnight Special” offers an unconventional cultural history with profiles of five artists influenced by the carceral system.`\
-https://www.nytimes.com/2026/06/30/books/review/colin-asher-midnight-special.html
 

@@ -1,3 +1,19 @@
+**‘Birthright’ Stages a Thrillingly Complex Conversation on Conversation Itself**\
+`Jonathan Spector’s ambitious drama about six Jewish friends and their shifting relationship with Israel stretches over three hours and nearly two decades.`\
+https://www.nytimes.com/2026/06/30/theater/birthright-review-israel-spector.html
+
+**BMW Will Build a New Electric S.U.V. in South Carolina**\
+`The German company is doubling down on electric vehicles even as other automakers pull back after acknowledging billions of dollars in losses.`\
+https://www.nytimes.com/2026/06/30/business/bmw-electric-vehicles-south-carolina.html
+
+**Blake Lively Seeks $8 Million in Legal Fees in Dispute With Justin Baldoni**\
+`After the actress settled her retaliation claims, a judge granted her fees for one part of the sprawling Hollywood case.`\
+https://www.nytimes.com/2026/06/30/movies/blake-lively-justin-baldoni-legal-fees.html
+
+**La Copa Mundial de las camisetas**\
+`48 países en competencia. 96 camisetas en exhibición. Vota por tus diseños favoritos y descubre qué puesto ocupan según los lectores del Times.`\
+https://www.nytimes.com/es/interactive/2026/06/30/espanol/deportes/mejor-camiseta-mundial.html
+
 **Plaintiff in Transgender Athlete Case Recently Won a State Shot Put Title**\
 `The success of Becky Pepper-Jackson, a West Virginia high school sophomore, prompted criticism from the state’s governor.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes-plaintiff.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/06/30/us/politics/texas-senate-poll-talarico-paxton
 **Book Review: ‘The Midnight Special,’ by Colin Asher**\
 `“The Midnight Special” offers an unconventional cultural history with profiles of five artists influenced by the carceral system.`\
 https://www.nytimes.com/2026/06/30/books/review/colin-asher-midnight-special.html
-
-**I’m Gay, Not Queer. It Matters.**\
-`Polyamorous? Queer. Vaguely uncomfortable with gender expectations? Possibly queer, too.`\
-https://www.nytimes.com/2026/06/30/opinion/queer-gay-rights.html
-
-**‘The Bear’ Star Lionel Boyce’s 5 Favorite Places in Copenhagen**\
-`On the show, the aspiring pastry chef traveled to Denmark’s capital for culinary training and fell in love with the city. The actor behind the role did, too.`\
-https://www.nytimes.com/2026/06/30/travel/the-bear-lionel-boyce-copenhagen.html
-
-**She Couldn’t Shake the Story of a Female Killer. Now It’s a Musical.**\
-`The Sugarland singer Jennifer Nettles has written and is starring in a so-called “pop-eretta” titled “Giulia: The Poison Queen of Palermo.”`\
-https://www.nytimes.com/2026/06/30/theater/jennifer-nettles-giulia-musical.html
-
-**What Italy’s Failure to Make the Soccer World Cup Says About Its Wider Woes**\
-`For some Italians, their team’s absence from the biggest tournament in soccer is a metaphor for a broader national malaise.`\
-https://www.nytimes.com/2026/06/30/world/europe/italy-soccer-world-cup-national-malaise.html
 
