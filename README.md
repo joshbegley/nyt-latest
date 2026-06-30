@@ -190,7 +190,7 @@ https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremoto
 `A day after a deadly attack in northern Germany, the news media’s attention largely shifted to the country’s poor performance at the World Cup.`\
 https://www.nytimes.com/2026/06/30/world/europe/germany-shooting-stade-world-cup.html
 
-**Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
+**Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
 
