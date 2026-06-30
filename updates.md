@@ -1,3 +1,7 @@
+**Fourth of July Heat Wave Forecast: Here Are the Day-by-Day Temperatures**\
+`A day-by-day breakdown of where dangerous heat is expected through the Fourth of July weekend.`\
+https://www.nytimes.com/2026/06/30/weather/july-fourth-heat-wave-forecast.html
+
 **Shipping Traffic in Strait of Hormuz Picks Up Again**\
 `Vessels stranded for months have started moving in larger numbers, but many pulled back over the weekend after Iran and the U.S. exchanged attacks.`\
 https://www.nytimes.com/2026/06/30/business/strait-hormuz-ships-iran-war.html
