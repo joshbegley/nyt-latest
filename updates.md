@@ -1,3 +1,11 @@
+**Woman Wading in Central Florida River Is Fatally Bitten by Alligator**\
+`The woman, 31, was kneeling in the shallow part of a river in Seminole County, in Central Florida, when an alligator bit her, the authorities said.`\
+https://www.nytimes.com/2026/06/30/us/woman-dies-florida-alligator-attack.html
+
+**Supreme Court to Weigh Constitutional Protection for AR-15 Rifles**\
+`Two cases to be heard in the fall challenge legality of state and local bans on the weapons, which are popular with gun owners and have been used in mass shootings.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-assault-rifles.html
+
 **La escasez de equipos de rescate complicó la respuesta de Venezuela a los terremotos**\
 `Voluntarios y expertos afirman que el país carecía de las herramientas y maquinaria necesarias para lidiar con un desastre de esta magnitud.`\
 https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-equipo-rescate.html

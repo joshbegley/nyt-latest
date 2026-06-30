@@ -1,3 +1,11 @@
+**Woman Wading in Central Florida River Is Fatally Bitten by Alligator**\
+`The woman, 31, was kneeling in the shallow part of a river in Seminole County, in Central Florida, when an alligator bit her, the authorities said.`\
+https://www.nytimes.com/2026/06/30/us/woman-dies-florida-alligator-attack.html
+
+**Supreme Court to Weigh Constitutional Protection for AR-15 Rifles**\
+`Two cases to be heard in the fall challenge legality of state and local bans on the weapons, which are popular with gun owners and have been used in mass shootings.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-assault-rifles.html
+
 **Colorado State Senate Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-senate-primary.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
 **Tom Kean, New Jersey Congressman, Says Depression Led to Long Absence**\
 `After months of mystery, the New Jersey representative broke his silence about the undisclosed health issue that prompted his 117-day absence.`\
 https://www.nytimes.com/2026/06/30/us/politics/tom-kean-return-depression.html
-
-**La Corte Suprema de EE. UU. ratifica la ciudadanía por nacimiento**\
-`Los jueces bloquearon una orden ejecutiva del presidente Trump que prohibía la ciudadanía por nacimiento para los hijos de migrantes indocumentados y de algunos visitantes extranjeros temporales.`\
-https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/trump-ciudadania-nacimiento-corte-suprema.html
-
-**Oberon Brings Artful Dining to the New Museum**\
-`Bark Barbecue serves a Caribbean take on the genre in Bushwick, Brooklyn, Titán brings a Mexican collaboration to Dumbo and more restaurant news.`\
-https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
