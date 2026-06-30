@@ -1,3 +1,11 @@
+**N.I.H. Announces World’s Largest Integrated Health Database**\
+`It contains more than half a million people’s genomes, paired with clinical records and wearable tech data. That gives researchers unmatched power to study both diseases and treatments.`\
+https://www.nytimes.com/2026/06/30/science/nih-announces-worlds-largest-integrated-health-database.html
+
+**Street Style Look of the Week: A Sheer Top That ‘Doesn’t Make Sense’**\
+`A jewelry designer with experience in men’s wear looks for the “something that doesn’t make sense” that elevates an outfit.`\
+https://www.nytimes.com/2026/06/30/style/street-style-look-sheer-top.html
+
 **Nursing Students and Others Get Higher Student Loan Limits**\
 `A legal challenge to a law that takes effect this week has doubled the amount certain graduate students can borrow from the federal government to $50,000 per year.`\
 https://www.nytimes.com/2026/06/30/business/nursing-student-loan-caps.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000010998727/100000010998
 **Chris Rufo Thinks the Right Can Control This. I Don’t.**\
 `One of MAGA’s leading activists discusses how he views the second Trump administration, as well as various factions of the right.`\
 https://www.nytimes.com/video/opinion/100000010979142/chris-rufo-thinks-the-right-can-control-this-i-dont.html
-
-**How Taylor Swift and Travis Kelce Could Reveal Wedding Details**\
-`The playbook for celebrities’ wedding reveals has become a careful choreography — especially when you’re one of the biggest pop stars in the world.`\
-https://www.nytimes.com/2026/06/30/style/taylor-swift-wedding-travis-kelce-details.html
-
-**Book Review: ‘Dead but Dreaming of Electric Sheep,’ by Paul Tremblay**\
-`In Paul Tremblay’s new A.I. dystopia, “Dead but Dreaming of Electric Sheep,” an experimental technology gives its heroine control over somebody else’s body.`\
-https://www.nytimes.com/2026/06/30/books/review/dead-but-dreaming-of-electric-sheep-paul-tremblay.html
 
