@@ -1,3 +1,11 @@
+**Takeaways From a Transformative Supreme Court Term**\
+`The justices rejected some of President Trump’s signature initiatives, but delivered lasting, long-sought conservative wins.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
+
+**U.S. Supreme Court Allows States to Ban Transgender Athletes on Girls’ Teams**\
+`The Supreme Court upheld West Virginia and Idaho state laws on Tuesday that bar transgender athletes from playing on girls’ and women’s sports teams.`\
+https://www.nytimes.com/video/us/politics/100000011001543/scotus-supreme-court-transgender-athletes.html
+
 **What Is the ‘Spirit of Liberty’ Today?**\
 `It’s time to update Learned Hand’s great 1944 address.`\
 https://www.nytimes.com/2026/06/30/opinion/america-250-us-liberty-learned-hand.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decision
 **7 Songs Recorded Live at Madison Square Garden**\
 `Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
 https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
-
-**Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
-`Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
-https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
-
-**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
-`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
-https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
 
