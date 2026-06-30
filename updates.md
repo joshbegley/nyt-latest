@@ -1,3 +1,7 @@
+**‘Please Enjoy It, or You Are Fired’: Inside ‘PTFO’ With Dan Le Batard**\
+`The show keeps winning awards, but what do we do for an encore?`\
+https://www.nytimes.com/2026/06/30/podcasts/inside-pablo-torre-finds-out-dan-le-batard.html
+
 **China Increases Military and Economic Pressure on Japan**\
 `Beijing’s latest pressure tactics include flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
 https://www.nytimes.com/2026/06/30/world/asia/china-japan-rare-earths-patrols.html

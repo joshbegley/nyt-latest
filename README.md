@@ -1,3 +1,11 @@
+**Shipping Traffic in Strait of Hormuz Picks Up Again**\
+`Vessels stranded for months have started moving in larger numbers, but many pulled back over the weekend after Iran and the U.S. exchanged attacks.`\
+https://www.nytimes.com/2026/06/30/business/strait-hormuz-ships-iran-war.html
+
+**Oil Prices Hold Steady as Iran and U.S. Prepare for Talks**\
+`Iran and the United States were set for further talks after a spurt of hostilities had underscored the uncertainty surrounding attempts to strike a lasting peace deal.`\
+https://www.nytimes.com/2026/06/30/business/oil-gas-prices-iran.html
+
 **‘Please Enjoy It, or You Are Fired’: Inside ‘PTFO’ With Dan Le Batard**\
 `The show keeps winning awards, but what do we do for an encore?`\
 https://www.nytimes.com/2026/06/30/podcasts/inside-pablo-torre-finds-out-dan-le-batard.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/crosswords/spelling-bee-forum.html
 **Columbia University Has a New President. Again. This One Plans to Stay.**\
 `Jennifer Mnookin will be the Ivy League university’s fifth president in four years. She describes herself as “a principled pragmatist.”`\
 https://www.nytimes.com/2026/06/30/nyregion/columbia-university-new-president.html
-
-**Trying to Keep Track of Mangione’s State Case? It May Not Be Easy.**\
-`Though public access is a right in both federal and state courts, the judge in Luigi Mangione’s New York case has kept some legal documents sealed.`\
-https://www.nytimes.com/2026/06/30/nyregion/luigi-mangione-trial-secrecy.html
-
-**John Oliver Dives Into Trump’s Pet Project: A ‘Giant Duck Death Trap’**\
-`The “Last Week Tonight” host said the United States was “dealing with a literal swamp of corruption” for its 250th birthday.`\
-https://www.nytimes.com/2026/06/30/arts/television/john-oliver-lincoln-memorial-pool-ducks.html
 
