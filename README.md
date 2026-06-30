@@ -1,3 +1,19 @@
+**Para revelar las raíces rítmicas de la risa, basta con hacerle cosquillas a un simio**\
+`Un estudio realizado con chimpancés, gorilas y otros grandes simios, además de niños humanos, arroja luz sobre la evolución de la risa.`\
+https://www.nytimes.com/es/2026/06/30/espanol/para-revelar-las-raices-ritmicas-de-la-risa-basta-con-hacerle-cosquillas-a-un-simio.html
+
+**NYT Spelling Bee Answers for June 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/30/crosswords/spelling-bee-forum.html
+
+**Columbia University Has a New President. Again. This One Plans to Stay.**\
+`Jennifer Mnookin will be the Ivy League university’s fifth president in four years. She describes herself as “a principled pragmatist.”`\
+https://www.nytimes.com/2026/06/30/nyregion/columbia-university-new-president.html
+
+**Trying to Keep Track of Mangione’s State Case? It May Not Be Easy.**\
+`Though public access is a right in both federal and state courts, the judge in Luigi Mangione’s New York case has kept some legal documents sealed.`\
+https://www.nytimes.com/2026/06/30/nyregion/luigi-mangione-trial-secrecy.html
+
 **John Oliver Dives Into Trump’s Pet Project: A ‘Giant Duck Death Trap’**\
 `The “Last Week Tonight” host said the United States was “dealing with a literal swamp of corruption” for its 250th birthday.`\
 https://www.nytimes.com/2026/06/30/arts/television/john-oliver-lincoln-memorial-pool-ducks.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremoto
 **Cómo Rusia intenta ocultar los efectos de la guerra**\
 `Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
 https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
-
-**Newborn’s Body Is Found in a Portable Bathroom at Electric Forest Music Festival**\
-`Investigators were asking for information from people who attended the Electric Forest music festival, which draws tens of thousands of people to Western Michigan.`\
-https://www.nytimes.com/2026/06/29/us/electric-forest-festival-baby-dead.html
-
-**Ethics Panel Tosses Misconduct Claims Against Gallego**\
-`The Ethics Committee told Senator Ruben Gallego it had dismissed allegations he engaged in sexual misconduct and campaign finance violations.`\
-https://www.nytimes.com/2026/06/29/us/politics/ruben-gallego-ethics-committee-misconduct-allegations.html
-
-**Sex Abuse Survivors Reach $395 Million Settlement With San Francisco Diocese**\
-`The Archdiocese of San Francisco and lawyers for the survivors said the settlement, which needs final approval, would resolve about 530 claims from people who said they were sexually abused by clergy members.`\
-https://www.nytimes.com/2026/06/29/us/san-francisco-archdiocese-clergy-sex-abuse-settlement.html
-
-**Colorado Supreme Court Rejects Democratic Redistricting Plans**\
-`The state’s high court found that ballot initiatives designed to change state law to install a newly gerrymandered map violated Colorado law.`\
-https://www.nytimes.com/2026/06/29/us/politics/colorado-supreme-court-rejects-democratic-redistricting-plans.html
 
