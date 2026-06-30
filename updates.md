@@ -1,3 +1,11 @@
+**Robby Hoffman: ‘How Weird Are These Rich People?’**\
+`The comedian Robby Hoffman grew up poor in a Hasidic community in Crown Heights, Brooklyn, the seventh of 10 children. On “The Interview,” she talked about the differences she’s observed between rich and poor people.`\
+https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-are-these-rich-people.html
+
+**New York City Will Offer Transit Discounts to 340,000 More Riders**\
+`A budget deal between the mayor and the City Council is set to expand eligibility for the Fair Fares program, which provides half-price fares to lower-income New Yorkers.`\
+https://www.nytimes.com/2026/06/30/nyregion/nyc-fair-fares-transit-discounts.html
+
 **Men’s Style Gets Colorful and Strange**\
 `As Paris Men’s Fashion week winds to a close, see what our critic thought about shows at Celine, Soshiotsuki, Willy Chavarria and Comme des Garçons Homme.`\
 https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
