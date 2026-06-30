@@ -1,3 +1,11 @@
+**Restaurant Review: Kaiseki in the East Village**\
+`The stripped down location of the chef Hiroki Odo’s restaurant takes an à la carte approach to the Japanese meal.`\
+https://www.nytimes.com/2026/06/30/dining/brief-restaurant-review-odo-east-village.html
+
+**Mapa: un terremoto de magnitud 6,0 se registra en la costa de México**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/30/espanol/mexico-sismo-temblor.html
+
 **Map: 6.0-Magnitude Earthquake Shakes Off Mexico's Coast**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/30/world/quake-tracker-gulf-of-california.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/americas/venezuela-earthquakes-victims-displ
 **Judah Gribetz, Key Negotiator in New York City’s Fiscal Crisis, Dies at 97**\
 `A top aide to Gov. Hugh L. Carey in the 1970s, he was an influential figure in talks between the governor and Abraham D. Beame, the mayor, as the city faced financial collapse.`\
 https://www.nytimes.com/2026/06/30/nyregion/judah-gribetz-dead.html
-
-**La cifra real de fallecidos en los terremotos de Venezuela será complicada de saber**\
-`Seis días después de que dos terremotos devastadores arrasaran barrios residenciales enteros, los expertos temen que la cifra oficial de 1719 muertos pueda estar muy por debajo de la realidad.`\
-https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-muertes-cifra.html
-
-**Justices Reject Trump’s Effort to End Birthright Citizenship**\
-`President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
-https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
 
