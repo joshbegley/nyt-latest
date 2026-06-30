@@ -1,3 +1,7 @@
+**How Democrats Could Win in Texas**\
+`Our chief political analyst, Nate Cohn, unpacks a New York Times/Siena poll of voters in Texas, where control of the Senate could be decided in the 2026 midterm elections.`\
+https://www.nytimes.com/video/polls/100000010992598/how-democrats-could-win-in-texas.html
+
 **A Barrage of Big Decisions From the Supreme Court**\
 `Readers react to several of the justices’ rulings this week.`\
 https://www.nytimes.com/2026/06/30/opinion/supreme-court-trump-birthright.html

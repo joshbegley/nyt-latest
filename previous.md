@@ -1,3 +1,7 @@
+**How Democrats Could Win in Texas**\
+`Our chief political analyst, Nate Cohn, unpacks a New York Times/Siena poll of voters in Texas, where control of the Senate could be decided in the 2026 midterm elections.`\
+https://www.nytimes.com/video/polls/100000010992598/how-democrats-could-win-in-texas.html
+
 **A Barrage of Big Decisions From the Supreme Court**\
 `Readers react to several of the justices’ rulings this week.`\
 https://www.nytimes.com/2026/06/30/opinion/supreme-court-trump-birthright.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
 **With New Seizures, Value of the Met’s Looted Artifacts Tops $95 Million**\
 `The Manhattan district attorney’s office said it secured the return of dozens of ancient artifacts in June, after a process that the museum described as collaborative.`\
 https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-million.html
-
-**Marc Jacobs Looks on the Bright Side**\
-`His brand has a new owner and the future may be uncertain, but color him ready.`\
-https://www.nytimes.com/2026/06/30/style/marc-jacobs-spring-2027.html
 
