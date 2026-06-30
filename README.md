@@ -1,3 +1,11 @@
+**Times/Siena Poll Shows Hannah Pingree Leading in Maine Governor’s Race**\
+`Hannah Pingree, former Maine House speaker, starts the race to Election Day against Bobby Charles in a strong position, according to a New York Times/Portland Press Herald/Siena poll.`\
+https://www.nytimes.com/2026/06/30/polls/maine-governor-poll.html
+
+**Word of the Day: expatiate**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/06/30/learning/word-of-the-day-expatiate.html
+
 **Moscow Is Attacked by Dozens of Drones, Its Mayor Says**\
 `Sergei Sobyanin said the Russian military had shot down more than 60 drones. He did not report any injuries.`\
 https://www.nytimes.com/2026/06/30/world/europe/moscow-drone-attack-russia-ukraine-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-benefi
 **Daveigh Chase, ‘Lilo & Stitch’ Voice Actor, Died of AIDS, Officials Say**\
 `Ms. Chase was the voice of Lilo and also played the child villain in the horror film “The Ring.” She died in Los Angeles this month.`\
 https://www.nytimes.com/2026/06/29/movies/daveigh-chase-cause-death-aids.html
-
-**Efforts to Rescue Venezuela Quake Victims Grow More Desperate**\
-`The death toll has risen to over 1,700, which is likely an undercount.`\
-https://www.nytimes.com/2026/06/29/world/americas/venezuela-earthquake-victims-rescue-deaths.html
-
-**Clash Unfolds as Trump Administration Pushes Intelligence Agencies to Share Foreign Espionage Targets**\
-`The clash reflects increasing skepticism of the Office of the Director of National Intelligence, which has been willing to pursue President Trump’s priorities.`\
-https://www.nytimes.com/2026/06/29/us/trump-intelligence-agencies-spies-master-list.html
 
