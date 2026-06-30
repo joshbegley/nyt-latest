@@ -1,3 +1,11 @@
+**Aid Workers in Venezuela Fear Disease Outbreaks After Twin Quakes**\
+`Health care workers worry that illnesses like cholera could spread in areas where clean water was already in short supply, and last week’s earthquakes destroyed water systems.`\
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-disease-outbreaks.html
+
+**The Vera Rubin Telescope Begins Surveying Our Cosmos**\
+`The Vera C. Rubin Observatory is beginning the widest, deepest survey yet of the southern sky.`\
+https://www.nytimes.com/2026/06/30/science/rubin-telescope.html
+
 **Curiosity, Perseverance and Now Promise? NASA May Send a Mars Rover to the Moon.**\
 `As part of plans to establish a lunar base, the space agency may send to the moon a spare test version of the rover — as well as a soccer ball.`\
 https://www.nytimes.com/2026/06/30/science/nasa-moon-base-research.html
