@@ -1,3 +1,15 @@
+**Courtney Sale Ross, Founder and Funder of a Quirky School, Dies at 78**\
+`Instead of home-schooling her daughter, she spent hundreds of millions of dollars building an idiosyncratic educational institution in the Hamptons.`\
+https://www.nytimes.com/2026/06/30/education/courtney-sale-ross-dead.html
+
+**Today, In Short**\
+`Celebrity weddings. Wimbledon. And laughing apes.`\
+https://www.nytimes.com/2026/06/30/briefing/today-in-short.html
+
+**Plaintiff in Supreme Court Transgender Athlete Case Recently Won a State Shot Put Title**\
+`The success of Becky Pepper-Jackson, a West Virginia high school sophomore, prompted criticism from the state’s governor.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes-plaintiff.html
+
 **‘Birthright’ Stages a Thrillingly Complex Conversation on Conversation Itself**\
 `Jonathan Spector’s ambitious drama about six Jewish friends and their shifting relationship with Israel stretches over three hours and nearly two decades.`\
 https://www.nytimes.com/2026/06/30/theater/birthright-review-israel-spector.html
