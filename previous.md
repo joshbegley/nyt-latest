@@ -1,3 +1,7 @@
+**States Sue Trump Administration Over Medicaid Work Requirements**\
+`The lawsuit argues that new federal rules went beyond what Congress enacted and broke from guidance that the federal government previewed to states.`\
+https://www.nytimes.com/2026/06/30/us/politics/medicaid-work-requirements-lawsuit.html
+
 **Bear Breaks Into Truck, Helping Itself to Handyman’s Lunch**\
 `A handyman was returning to his truck when he opened the door and found a cub eating his lunch from the passenger seat in Steamboat Springs, Colo.`\
 https://www.nytimes.com/2026/06/30/us/colorado-bear-truck-steamboat-springs.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/06/30/upshot/flashback.html
 **Who Counts as an Elite in Trump’s America?**\
 `What makes someone an elite in America today? On “The Opinions,” the columnist Jamelle Bouie says America has gotten confused about who actually holds power.`\
 https://www.nytimes.com/video/opinion/100000010999222/who-counts-as-an-elite-in-trumps-america.html
-
-**The Supreme Court Gets Birthright Citizenship Right**\
-`The Constitution is clear. People who are born in this country and subject to its laws are citizens.`\
-https://www.nytimes.com/2026/06/30/opinion/supreme-court-birthright-citizenship-trump.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\

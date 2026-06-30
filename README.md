@@ -1,3 +1,7 @@
+**A Hot and Deadly Start to Wildfire Season**\
+`Thousands of acres in Utah and other Western states have burned as a U.S. heat wave widens.`\
+https://www.nytimes.com/2026/06/30/climate/heat-wave-wildfires.html
+
 **States Sue Trump Administration Over Medicaid Work Requirements**\
 `The lawsuit argues that new federal rules went beyond what Congress enacted and broke from guidance that the federal government previewed to states.`\
 https://www.nytimes.com/2026/06/30/us/politics/medicaid-work-requirements-lawsuit.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/06/30/espanol/mundo/guerra-rusia-ucrania-putin-d
 **Flashback 250: The Great U.S. History Quiz**\
 `Can you sort 25 historical events — before getting three wrong answers?`\
 https://www.nytimes.com/interactive/2026/06/30/upshot/flashback.html
-
-**Who Counts as an Elite in Trump’s America?**\
-`What makes someone an elite in America today? On “The Opinions,” the columnist Jamelle Bouie says America has gotten confused about who actually holds power.`\
-https://www.nytimes.com/video/opinion/100000010999222/who-counts-as-an-elite-in-trumps-america.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\

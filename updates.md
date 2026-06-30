@@ -1,3 +1,7 @@
+**States Sue Trump Administration Over Medicaid Work Requirements**\
+`The lawsuit argues that new federal rules went beyond what Congress enacted and broke from guidance that the federal government previewed to states.`\
+https://www.nytimes.com/2026/06/30/us/politics/medicaid-work-requirements-lawsuit.html
+
 **Bear Breaks Into Truck, Helping Itself to Handyman’s Lunch**\
 `A handyman was returning to his truck when he opened the door and found a cub eating his lunch from the passenger seat in Steamboat Springs, Colo.`\
 https://www.nytimes.com/2026/06/30/us/colorado-bear-truck-steamboat-springs.html
