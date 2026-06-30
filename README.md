@@ -1,3 +1,15 @@
+**2 Killed as Bus Flips Into Traffic on Long Island Expressway**\
+`A bus crashed into multiple vehicles in Queens just before midnight on Monday. Authorities investigating the incident have closed lanes on the highway near 50th Street.`\
+https://www.nytimes.com/2026/06/30/us/long-island-expressway-crash.html
+
+**Wins and Losses**\
+`We look at Supreme Court rulings on presidential power and mail-in ballots.`\
+https://www.nytimes.com/2026/06/30/briefing/wins-and-losses-at-the-supreme-court.html
+
+**La deuda de EE. UU. con Venezuela**\
+`Cada vez hay más expectativas sobre lo que el gobierno de Trump podría hacer para ayudar tras dos terremotos devastadores.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/deuda-ee-uu-venezuela-terremotos.html
+
 **USMNT Knockout Preview, and Mexico’s Dark Horse Chances**\
 `The latest from the U.S. and Mexico camps as both co-hosts prepare for the Round of 32.`\
 https://www.nytimes.com/2026/06/30/podcasts/usmnt-knockout-preview-mexico-ecuador.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/06/30/polls/times-siena-texas-poll-cros
 **Toplines: June 2026 Times/Siena Poll of the Likely Electorate in Texas**\
 `Results of a New York Times/Siena poll of 656 likely voters conducted from June 19 to 27, 2026.`\
 https://www.nytimes.com/interactive/2026/06/30/polls/times-siena-texas-poll-toplines.html
-
-**Australian Man Charged With Homicide After Thai Teen’s Body Found in Suitcase**\
-`The 17-year-old’s remains were found abandoned near railroad tracks in Pattaya. The suspect was arrested while trying to leave the country.`\
-https://www.nytimes.com/2026/06/30/world/asia/australian-thailand-teenager-murder-suitcase.html
-
-**Dangerous Heat Wave Spreads Across U.S.**\
-`Intense heat is expected across much of the United States through the Fourth of July holiday weekend. The temperatures could break daily records in some parts of the country as the heat spreads east.`\
-https://www.nytimes.com/video/weather/100000011000844/us-heat-wave.html
-
-**Times/Siena Poll Shows Hannah Pingree Leading in Maine Governor’s Race**\
-`Hannah Pingree, former Maine House speaker, starts the race to Election Day against Bobby Charles in a strong position, according to a New York Times/Portland Press Herald/Siena poll.`\
-https://www.nytimes.com/2026/06/30/polls/maine-governor-poll.html
 
