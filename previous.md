@@ -1,4 +1,4 @@
-**What Travelers Need to Know About Flights to Venezuela**\
+**What to Know About Flights to Venezuela After Devastating Earthquakes**\
 `Six days after powerful back-to-back earthquakes, air travel in and out of the country remains severely restricted.`\
 https://www.nytimes.com/2026/06/30/travel/venezuela-airports-damage-closed.html
 
