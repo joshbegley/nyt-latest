@@ -1,3 +1,7 @@
+**Fourth of July Heat Wave Forecast: Here Are the Day-by-Day Temperatures**\
+`A day-by-day breakdown of where dangerous heat is expected through the Fourth of July weekend.`\
+https://www.nytimes.com/2026/06/30/weather/july-fourth-heat-wave-forecast.html
+
 **Shipping Traffic in Strait of Hormuz Picks Up Again**\
 `Vessels stranded for months have started moving in larger numbers, but many pulled back over the weekend after Iran and the U.S. exchanged attacks.`\
 https://www.nytimes.com/2026/06/30/business/strait-hormuz-ships-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/30/espanol/para-revelar-las-raices-ritmicas-d
 **NYT Spelling Bee Answers for June 30, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/06/30/crosswords/spelling-bee-forum.html
-
-**Columbia University Has a New President. Again. This One Plans to Stay.**\
-`Jennifer Mnookin will be the Ivy League university’s fifth president in four years. She describes herself as “a principled pragmatist.”`\
-https://www.nytimes.com/2026/06/30/nyregion/columbia-university-new-president.html
 
