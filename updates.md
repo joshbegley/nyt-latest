@@ -1,3 +1,19 @@
+**Men’s Style Gets Colorful and Strange**\
+`As Paris Men’s Fashion week winds to a close, see what our critic thought about shows at Celine, Soshiotsuki, Willy Chavarria and Comme des Garçons Homme.`\
+https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
+
+**Tom Kean Says Depression Led to Long Absence From Congress**\
+`After months of mystery, the New Jersey representative broke his silence about the undisclosed health issue that prompted his 117-day absence.`\
+https://www.nytimes.com/2026/06/30/us/politics/tom-kean-return-depression.html
+
+**La Corte Suprema de EE. UU. ratifica la ciudadanía por nacimiento**\
+`Los jueces bloquearon una orden ejecutiva del presidente Trump que prohibía la ciudadanía por nacimiento para los hijos de migrantes indocumentados y de algunos visitantes extranjeros temporales.`\
+https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/trump-ciudadania-nacimiento-corte-suprema.html
+
+**Supreme Court Upholds Birthright Citizenship**\
+`The justices rejected President Trump’s executive order that tried to end the practice of automatically granting citizenship to the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizenship.html
+
 **Oberon Brings Artful Dining to the New Museum**\
 `Bark Barbecue serves a Caribbean take on the genre in Bushwick, Brooklyn, Titán brings a Mexican collaboration to Dumbo and more restaurant news.`\
 https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
