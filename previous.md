@@ -1,3 +1,11 @@
+**Court Halts Pentagon Rule Requiring Escorts for Journalists**\
+`A federal judge temporarily blocked a new rule that restricted reporters’ access to the Pentagon, in a lawsuit brought by The New York Times.`\
+https://www.nytimes.com/2026/06/30/business/media/pentagon-journalists-escort-rule.html
+
+**Arkansas State House District 44 Special Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas special runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-arkansas-state-house-district-44-special-runoff.html
+
 **Amy Coney Barrett Faces Right-Wing Ire Over Recent Rulings**\
 `Justice Barrett sided with Chief Justice Roberts and the liberal minority to uphold birthright citizenship and mail-in voting practices.`\
 https://www.nytimes.com/2026/06/30/us/politics/amy-coney-barrett-gop-scotus-rulings.html
@@ -37,10 +45,6 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-primary.h
 **Colorado Governor Primary 2026: Live Election Results, Bennet vs. Weiser**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-governor-primary.html
-
-**Arkansas State House District 44 Special Special Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arkansas special runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-arkansas-state-house-district-44-special-runoff.html
 
 **Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
 `Get live results and maps from the 2026 Colorado primary election.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/30/weather/ontario-quebec-canada-heat-wave.html
 **Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
 `Bending Spoons, an Italian company that buys aging internet companies, is going public this week at a potential value of $19 billion.`\
 https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
-
-**Robby Hoffman: ‘How Weird Are These Rich People?’**\
-`The comedian Robby Hoffman grew up poor in a Hasidic community in Crown Heights, Brooklyn, the seventh of 10 children. On “The Interview,” she talked about the differences she’s observed between rich and poor people.`\
-https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-are-these-rich-people.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\

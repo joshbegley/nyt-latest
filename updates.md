@@ -1,3 +1,11 @@
+**Court Halts Pentagon Rule Requiring Escorts for Journalists**\
+`A federal judge temporarily blocked a new rule that restricted reporters’ access to the Pentagon, in a lawsuit brought by The New York Times.`\
+https://www.nytimes.com/2026/06/30/business/media/pentagon-journalists-escort-rule.html
+
+**Arkansas State House District 44 Special Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas special runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-arkansas-state-house-district-44-special-runoff.html
+
 **Amy Coney Barrett Faces Right-Wing Ire Over Recent Rulings**\
 `Justice Barrett sided with Chief Justice Roberts and the liberal minority to uphold birthright citizenship and mail-in voting practices.`\
 https://www.nytimes.com/2026/06/30/us/politics/amy-coney-barrett-gop-scotus-rulings.html
