@@ -1,3 +1,7 @@
+**Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
+`Bending Spoons, an Italian company that bought aging internet companies like AOL, Evernote and Vimeo, is going public this week at a potential value of $19 billion.`\
+https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
+
 **Robby Hoffman: ‘How Weird Are These Rich People?’**\
 `The comedian Robby Hoffman grew up poor in a Hasidic community in Crown Heights, Brooklyn, the seventh of 10 children. On “The Interview,” she talked about the differences she’s observed between rich and poor people.`\
 https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-are-these-rich-people.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/business/oil-gas-prices-iran.html
 **‘Please Enjoy It, or You Are Fired’: Inside ‘PTFO’ With Dan Le Batard**\
 `The show keeps winning awards, but what do we do for an encore?`\
 https://www.nytimes.com/2026/06/30/podcasts/inside-pablo-torre-finds-out-dan-le-batard.html
-
-**China Increases Military and Economic Pressure on Japan**\
-`Beijing’s moves have included flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
-https://www.nytimes.com/2026/06/30/world/asia/china-japan-rare-earths-patrols.html
 

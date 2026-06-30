@@ -1,3 +1,7 @@
+**Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
+`Bending Spoons, an Italian company that bought aging internet companies like AOL, Evernote and Vimeo, is going public this week at a potential value of $19 billion.`\
+https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
+
 **Shortages of Rescue Equipment Hampered Venezuela’s Earthquake Response**\
 `Residents appealed for excavators, generators and specialized rescue tools as civilians have stepped in to supply crews working through the rubble.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-rescue-equipment-aid.html

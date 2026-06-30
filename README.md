@@ -1,3 +1,7 @@
+**Ontario and Quebec Face Heat Warnings as High Temperatures Spread Across Canada**\
+`Parts of Ontario and Quebec will be well above normal temperatures this week as a heat wave spreads over North America.`\
+https://www.nytimes.com/2026/06/30/weather/ontario-quebec-canada-heat-wave.html
+
 **Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
 `Bending Spoons, an Italian company that bought aging internet companies like AOL, Evernote and Vimeo, is going public this week at a potential value of $19 billion.`\
 https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizens
 https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
-`The justices blocked an executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+`President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
 
 **Read the Supreme Court Decision Upholding Bans on Transgender Athletes in Women’s Sports**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/business/strait-hormuz-ships-iran-war.html
 **Oil Prices Tick Higher as Iran and U.S. Prepare for Talks**\
 `Iran and the United States were set for further talks after a spurt of hostilities had underscored the uncertainty surrounding attempts to strike a lasting peace deal.`\
 https://www.nytimes.com/2026/06/30/business/oil-gas-prices-iran.html
-
-**‘Please Enjoy It, or You Are Fired’: Inside ‘PTFO’ With Dan Le Batard**\
-`The show keeps winning awards, but what do we do for an encore?`\
-https://www.nytimes.com/2026/06/30/podcasts/inside-pablo-torre-finds-out-dan-le-batard.html
 
