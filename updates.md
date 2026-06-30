@@ -1,3 +1,15 @@
+**¿Por qué los aficionados de Noruega hacen un ‘remo vikingo’ en el Mundial?**\
+`Multitudes de aficionados noruegos vestidos de rojo reman codo con codo en estadios, colegios e incluso en una residencia de ancianos. No todo el mundo está encantado.`\
+https://www.nytimes.com/es/2026/06/30/espanol/deportes/noruega-remo-vikingo-mundial.html
+
+**Norway’s ‘Viking Row’ Is a Fan Phenomenon at the World Cup**\
+`Seas of red-clad Norwegian supporters are rowing shoulder to shoulder at stadiums, schools, even a nursing home. Not everyone is thrilled.`\
+https://www.nytimes.com/2026/06/30/world/europe/norway-fans-viking-row-cheer.html
+
+**Quote of the Day: A Viking Nation Pulls Together**\
+`Quotation of the Day for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/30/pageoneplus/quote-of-the-day-a-viking-nation-pulls-together.html
+
 **NYT Crossword Answers for June 30, 2026**\
 `John Liber makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/06/29/crosswords/d.html

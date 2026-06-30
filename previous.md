@@ -1,3 +1,15 @@
+**¿Por qué los aficionados de Noruega hacen un ‘remo vikingo’ en el Mundial?**\
+`Multitudes de aficionados noruegos vestidos de rojo reman codo con codo en estadios, colegios e incluso en una residencia de ancianos. No todo el mundo está encantado.`\
+https://www.nytimes.com/es/2026/06/30/espanol/deportes/noruega-remo-vikingo-mundial.html
+
+**Norway’s ‘Viking Row’ Is a Fan Phenomenon at the World Cup**\
+`Seas of red-clad Norwegian supporters are rowing shoulder to shoulder at stadiums, schools, even a nursing home. Not everyone is thrilled.`\
+https://www.nytimes.com/2026/06/30/world/europe/norway-fans-viking-row-cheer.html
+
+**Quote of the Day: A Viking Nation Pulls Together**\
+`Quotation of the Day for Tuesday, June 30, 2026.`\
+https://www.nytimes.com/2026/06/30/pageoneplus/quote-of-the-day-a-viking-nation-pulls-together.html
+
 **NYT Crossword Answers for June 30, 2026**\
 `John Liber makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/06/29/crosswords/d.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/29/us/north-carolina-jail-standoff.html
 **The Winners of Our 9th Annual Student Podcast Contest**\
 `We invited teenagers to create an original five-minute podcast about almost anything. Listen to the winning entries selected from 1,400 submissions.`\
 https://www.nytimes.com/2026/06/29/learning/the-winners-of-our-9th-annual-student-podcast-contest.html
-
-**Fired F.T.C. Commissioner Warns of Potential for Presidential Abuse of Power**\
-`Rebecca Slaughter said independent agencies like the Federal Trade Commission were created as watchdogs of powerful corporations and that presidents shouldn’t interfere with that.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-ftc-rebecca-slaughter.html
-
-**In Dissents, Some Justices Push Back Against Ruling to Block Trump From Firing Fed Governor Lisa Cook**\
-`A few dissenters cautioned that the majority didn’t allow the legal case over the president’s effort to fire the Fed governor Lisa D. Cook to play out in the lower courts.`\
-https://www.nytimes.com/2026/06/29/us/politics/supreme-court-lisa-cook-fed-firing-dissents.html
-
-**See Day-by-Day Forecast as Heat Wave Engulfs U.S. Ahead of the July 4 Weekend**\
-`Dangerous heat is expected across much of the country through the Fourth of July weekend.`\
-https://www.nytimes.com/2026/06/29/weather/us-heat-wave-forecast.html
 
