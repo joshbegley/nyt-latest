@@ -1,3 +1,11 @@
+**55% of Americans support birthright citizenship.**\
+`The Supreme Court decision puts the court in line with the views of a majority of Americans.`\
+https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-polls.html
+
+**House G.O.P. Revolt Blocks Pentagon Bill**\
+`Ultraconservative lawmakers refused to back a critical procedural measure as they pressed for action on voting legislation championed by President Trump.`\
+https://www.nytimes.com/2026/06/30/us/politics/republicans-house-defense-elections-save-america.html
+
 **Court Halts Pentagon Rule Requiring Escorts for Journalists**\
 `A federal judge temporarily blocked a new rule that restricted reporters’ access to the Pentagon, in a lawsuit brought by The New York Times.`\
 https://www.nytimes.com/2026/06/30/business/media/pentagon-journalists-escort-rule.html
@@ -110,13 +118,13 @@ https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decision
 `Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
 https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
 
-**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
-`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
-https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
-
 **Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
 `Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
 https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
+
+**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
+`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
+https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
 
 **Tom Kean Cites Depression as Reason for Long Absence from Congress**\
 `Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/30/us/politics/1952-immigration-nationality-act-
 **It’s Soccer, but Set to Disco. And May the Best Dancers Win.**\
 `“Discofoot,” a dance showdown and soccer game played to disco hits, originated in France. Last weekend, in honor of the World Cup, it had its U.S. premiere.`\
 https://www.nytimes.com/2026/06/30/arts/dance/discofoot-soccer-dance-world-cup.html
-
-**Ontario and Quebec Face Heat Warnings as High Temperatures Spread Across Canada**\
-`Parts of Ontario and Quebec will be well above normal temperatures this week as a heat wave spreads over North America.`\
-https://www.nytimes.com/2026/06/30/weather/ontario-quebec-canada-heat-wave.html
-
-**Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
-`Bending Spoons, an Italian company that buys aging internet companies, is going public this week at a potential value of $19 billion.`\
-https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\

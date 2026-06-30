@@ -1,3 +1,11 @@
+**55% of Americans support birthright citizenship.**\
+`The Supreme Court decision puts the court in line with the views of a majority of Americans.`\
+https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-polls.html
+
+**House G.O.P. Revolt Blocks Pentagon Bill**\
+`Ultraconservative lawmakers refused to back a critical procedural measure as they pressed for action on voting legislation championed by President Trump.`\
+https://www.nytimes.com/2026/06/30/us/politics/republicans-house-defense-elections-save-america.html
+
 **Court Halts Pentagon Rule Requiring Escorts for Journalists**\
 `A federal judge temporarily blocked a new rule that restricted reporters’ access to the Pentagon, in a lawsuit brought by The New York Times.`\
 https://www.nytimes.com/2026/06/30/business/media/pentagon-journalists-escort-rule.html
