@@ -1,4 +1,4 @@
-**John Oliver Dives into Trump’s Pet Project: A ‘Giant Duck Death Trap’**\
+**John Oliver Dives Into Trump’s Pet Project: A ‘Giant Duck Death Trap’**\
 `The “Last Week Tonight” host said the United States was “dealing with a literal swamp of corruption” for its 250th birthday.`\
 https://www.nytimes.com/2026/06/30/arts/television/john-oliver-lincoln-memorial-pool-ducks.html
 
