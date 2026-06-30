@@ -1,3 +1,15 @@
+**A Barrage of Big Decisions From the Supreme Court**\
+`Readers react to several of the justices’ rulings this week.`\
+https://www.nytimes.com/2026/06/30/opinion/supreme-court-trump-birthright.html
+
+**What the Supreme Court Decisions About Trump’s Firings Mean**\
+`Our chief legal affairs correspondent, Adam Liptak, explains how two Supreme Court rulings on the firings of independent regulators first expand the power of the president, and then carve out an exception.`\
+https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decisions-about-trumps-firings-mean.html
+
+**7 Songs Recorded Live at Madison Square Garden**\
+`Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
+https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
+
 **Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
 `Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
 https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
@@ -142,7 +154,7 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athlete
 `The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
 
-**Supreme Court Upholds Birthright Citizenship**\
+**Supreme Court Upholds Birthright Citizenship, Blocking a Key Trump Policy**\
 `The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizenship.html
 
@@ -177,20 +189,4 @@ https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-m
 **Marc Jacobs Looks on the Bright Side**\
 `His brand has a new owner and the future may be uncertain, but color him ready.`\
 https://www.nytimes.com/2026/06/30/style/marc-jacobs-spring-2027.html
-
-**After U.S.-Iran War, Oman Is Said to Propose Strait of Hormuz Fee Plan**\
-`Under the proposal, Iran and Oman would collect payment for ships passing through the Strait of Hormuz, according to officials and diplomats with knowledge of the matter.`\
-https://www.nytimes.com/2026/06/30/world/middleeast/iran-war-oman-strait-hormuz-fee-ships.html
-
-**N.I.H. Announces World’s Largest Integrated Health Database**\
-`It contains more than half a million people’s genomes, paired with clinical records and wearable tech data. That gives researchers unmatched power to study both diseases and treatments.`\
-https://www.nytimes.com/2026/06/30/science/nih-announces-worlds-largest-integrated-health-database.html
-
-**Street Style Look of the Week: A Sheer Top That ‘Doesn’t Make Sense’**\
-`A jewelry designer with experience in men’s wear looks for the “something that doesn’t make sense” that elevates an outfit.`\
-https://www.nytimes.com/2026/06/30/style/street-style-look-sheer-top.html
-
-**Nursing Students and Others Get Higher Student Loan Limits**\
-`A legal challenge to a law that takes effect this week has doubled the amount certain graduate students can borrow from the federal government to $50,000 per year.`\
-https://www.nytimes.com/2026/06/30/business/nursing-student-loan-caps.html
 

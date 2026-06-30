@@ -1,3 +1,19 @@
+**A Barrage of Big Decisions From the Supreme Court**\
+`Readers react to several of the justices’ rulings this week.`\
+https://www.nytimes.com/2026/06/30/opinion/supreme-court-trump-birthright.html
+
+**What the Supreme Court Decisions About Trump’s Firings Mean**\
+`Our chief legal affairs correspondent, Adam Liptak, explains how two Supreme Court rulings on the firings of independent regulators first expand the power of the president, and then carve out an exception.`\
+https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decisions-about-trumps-firings-mean.html
+
+**7 Songs Recorded Live at Madison Square Garden**\
+`Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
+https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
+
+**Supreme Court Upholds Birthright Citizenship, Blocking a Key Trump Policy**\
+`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizenship.html
+
 **Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
 `Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
 https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
