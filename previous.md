@@ -1,3 +1,7 @@
+**Three Great Documentaries to Stream**\
+`This month’s picks check the pulse of 1960s Paris, explore David Hockney’s artistry and paint an intimate portrait of mortality.`\
+https://www.nytimes.com/2026/06/30/movies/great-documentaries-streaming.html
+
 **Courtney Sale Ross, Founder and Funder of a Quirky School, Dies at 78**\
 `Instead of home-schooling her daughter, she spent hundreds of millions of dollars building an idiosyncratic educational institution in the Hamptons.`\
 https://www.nytimes.com/2026/06/30/education/courtney-sale-ross-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/nyregion/interns-and-inequality-in-new-york.h
 **Corrections: June 30, 2026**\
 `Corrections that appeared in print on Tuesday, June 30, 2026.`\
 https://www.nytimes.com/2026/06/30/pageoneplus/corrections-june-30-2026.html
-
-**Chris Rufo, MAGA’s Top Activist on the Right, Has a Conspiracy Problem**\
-`One of MAGA’s leading activists discusses how he views the second Trump administration, as well as various factions of the right.`\
-https://www.nytimes.com/2026/06/30/opinion/ezra-klein-podcast-chris-rufo.html
 

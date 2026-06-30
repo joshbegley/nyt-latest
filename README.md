@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/06/30/theater/birthright-review-israel-spector.html
 `The German company is doubling down on electric vehicles even as other automakers pull back after acknowledging billions of dollars in losses.`\
 https://www.nytimes.com/2026/06/30/business/bmw-electric-vehicles-south-carolina.html
 
-**Blake Lively Seeks $8 Million in Legal Fees in Dispute With Justin Baldoni**\
+**Blake Lively Seeks $8 Million in Legal Bills in Dispute With Justin Baldoni**\
 `After the actress settled her retaliation claims, a judge granted her fees for one part of the sprawling Hollywood case.`\
 https://www.nytimes.com/2026/06/30/movies/blake-lively-justin-baldoni-legal-fees.html
 
@@ -40,7 +40,7 @@ https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
 
 **Live Updates: Supreme Court Rejects Trump’s Effort to End Birthright Citizenship**\
 `The justices blocked an executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
-https://www.nytimes.com/live/2026/06/30/us/supreme-court-birthright-citizenship
+https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
 
 **Read the Supreme Court Decision Upholding Bans on Transgender Athletes in Women’s Sports**\
 `The court upheld state laws in West Virginia and Idaho barring the participation of transgender female athletes from girls’ and women’s sports teams.`\

@@ -1,3 +1,7 @@
+**Three Great Documentaries to Stream**\
+`This month’s picks check the pulse of 1960s Paris, explore David Hockney’s artistry and paint an intimate portrait of mortality.`\
+https://www.nytimes.com/2026/06/30/movies/great-documentaries-streaming.html
+
 **Live Updates: Supreme Court Allows States to Bar Transgender Athletes From Girls’ Sports**\
 `The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions. President Trump hailed the ruling as a major victory.`\
 https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
