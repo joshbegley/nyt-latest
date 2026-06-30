@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
 `The Supreme Court upheld West Virginia and Idaho state laws on Tuesday that bar transgender athletes from playing on girls’ and women’s sports teams.`\
 https://www.nytimes.com/video/us/politics/100000011001543/scotus-supreme-court-transgender-athletes.html
 
-**What Is the ‘Spirit of Liberty’ Today?**\
-`It’s time to update Learned Hand’s great 1944 address.`\
+**Rays of Hope in Dark Times**\
+`It’s time to update Learned Hand’s great “Spirit of Liberty” address.`\
 https://www.nytimes.com/2026/06/30/opinion/america-250-us-liberty-learned-hand.html
 
 **China’s Plan to Save Jobs From A.I.**\
