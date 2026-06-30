@@ -1,3 +1,11 @@
+**Read the Supreme Court Decision Banning Transgender Athletes From Women’s Sports**\
+`The court upheld state laws in West Virginia and Idaho barring the participation of transgender female athletes from girls’ and women’s sports teams.`\
+https://www.nytimes.com/interactive/2026/06/30/us/scotus-trans.html
+
+**Manhunt Underway After Parcel Bomb Explodes in Monaco**\
+`An international manhunt was underway on Tuesday after a parcel bomb exploded in Monaco, seriously injuring three people.`\
+https://www.nytimes.com/video/world/europe/100000011001237/monaco-parcel-bomb-explosion-manhunt.html
+
 **Live Updates: Supreme Court Allows States to Bar Transgender Athletes from Girls’ Sports**\
 `The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
 https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/realestate/why-its-best-not-to-rush-a-relatio
 **Why A.I. Won’t Steal All Our Jobs**\
 `Congratulations. You’re irreplaceable.`\
 https://www.nytimes.com/2026/06/30/opinion/ai-agents-steal-jobs-employment.html
-
-**A Founder’s Previously Unknown Attempt to Avert the Revolutionary War**\
-`Recently discovered documents reveal a back-channel attempt by a leader of the Continental Congress to make peace. (He did not succeed.)`\
-https://www.nytimes.com/2026/06/30/us/250-american-revolution-john-dickinson.html
-
-**Capital Punishment Is on the Decline. Except in Ron DeSantis’s Florida.**\
-`In most of the country, executions are a thing of the past. But one state has been carrying them out at a record pace.`\
-https://www.nytimes.com/2026/06/30/magazine/florida-death-penalty.html
 
