@@ -1,3 +1,11 @@
+**Bear Surprises Truck Owner in Colorado**\
+`A garage camera caught the moment a handyman in Colorado opened the door to his truck to find a bear cub eating his lunch inside.`\
+https://www.nytimes.com/video/embedded/at-home/100000011002282/bear-surprises-truck-owner-in-colorado.html
+
+**Trump Urges Congress to Take Up Birthright Citizenship. Here’s Why It’s Unlikely.**\
+`The president lost his case in the Supreme Court, but mere legislation would not be enough.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-congress-birthright-citizenship.html
+
 **Woman Wading in Central Florida River Is Fatally Bitten by Alligator**\
 `The woman, 31, was kneeling in the shallow part of a river in Seminole County, in Central Florida, when an alligator bit her, the authorities said.`\
 https://www.nytimes.com/2026/06/30/us/woman-dies-florida-alligator-attack.html

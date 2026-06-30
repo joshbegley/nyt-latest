@@ -1,3 +1,11 @@
+**Bear Surprises Truck Owner in Colorado**\
+`A garage camera caught the moment a handyman in Colorado opened the door to his truck to find a bear cub eating his lunch inside.`\
+https://www.nytimes.com/video/embedded/at-home/100000011002282/bear-surprises-truck-owner-in-colorado.html
+
+**Trump Urges Congress to Take Up Birthright Citizenship. Here’s Why It’s Unlikely.**\
+`The president lost his case in the Supreme Court, but mere legislation would not be enough.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-congress-birthright-citizenship.html
+
 **Woman Wading in Central Florida River Is Fatally Bitten by Alligator**\
 `The woman, 31, was kneeling in the shallow part of a river in Seminole County, in Central Florida, when an alligator bit her, the authorities said.`\
 https://www.nytimes.com/2026/06/30/us/woman-dies-florida-alligator-attack.html
@@ -94,13 +102,13 @@ https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decision
 `Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
 https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
 
-**Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
-`Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
-https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
-
 **Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
 `Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
 https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
+
+**Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
+`Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
+https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
 
 **Tom Kean Cites Depression as Reason for Long Absence from Congress**\
 `Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-event
 **Robby Hoffman: ‘How Weird Are These Rich People?’**\
 `The comedian Robby Hoffman grew up poor in a Hasidic community in Crown Heights, Brooklyn, the seventh of 10 children. On “The Interview,” she talked about the differences she’s observed between rich and poor people.`\
 https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-are-these-rich-people.html
-
-**Men’s Style Gets Colorful and Strange**\
-`As Paris Men’s Fashion week winds to a close, see what our critic thought about shows at Celine, Soshiotsuki, Willy Chavarria and Comme des Garçons Homme.`\
-https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
-
-**Tom Kean, New Jersey Congressman, Says Depression Led to Long Absence**\
-`After months of mystery, the New Jersey representative broke his silence about the undisclosed health issue that prompted his 117-day absence.`\
-https://www.nytimes.com/2026/06/30/us/politics/tom-kean-return-depression.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\

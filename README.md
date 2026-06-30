@@ -1,3 +1,7 @@
+**Amy Coney Barrett Faces Right-Wing Ire Over Recent Rulings**\
+`Justice Barrett sided with Chief Justice Roberts and the liberal minority to uphold birthright citizenship and mail-in voting practices.`\
+https://www.nytimes.com/2026/06/30/us/politics/amy-coney-barrett-gop-scotus-rulings.html
+
 **Bear Surprises Truck Owner in Colorado**\
 `A garage camera caught the moment a handyman in Colorado opened the door to his truck to find a bear cub eating his lunch inside.`\
 https://www.nytimes.com/video/embedded/at-home/100000011002282/bear-surprises-truck-owner-in-colorado.html
