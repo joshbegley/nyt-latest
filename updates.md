@@ -1,3 +1,7 @@
+**Talarico Seizes on Paxton Tabloid Story to Test Corruption Attacks in Texas Senate Race**\
+`After a salacious report about Ken Paxton, the Republican nominee for Senate in Texas, his Democratic rival, James Talarico, seized on the news — but focused on corruption and affordability.`\
+https://www.nytimes.com/2026/06/30/us/politics/paxton-talarico-corruption-affordability-texas.html
+
 **Beaver Statue Honoring the United States Is Smashed in Toronto**\
 `One of dozens of statues of Canada’s national animal, part of a public art installation for the World Cup, was destroyed. It was the one wearing stars and stripes.`\
 https://www.nytimes.com/2026/06/30/world/canada/world-cup-toronto-beaver-destroyed.html
