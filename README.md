@@ -1,3 +1,7 @@
+**Moscow Is Attacked by Dozens of Drones, Its Mayor Says**\
+`Sergei Sobyanin said the Russian military had shot down more than 60 drones. He did not report any injuries.`\
+https://www.nytimes.com/2026/06/30/world/europe/moscow-drone-attack-russia-ukraine-war.html
+
 **Mideast Live Updates: U.S. and Iran Offer Conflicting Plans for Doha Talks**\
 `Iranian officials contradicted President Trump’s claim that representatives from the two countries would speak directly in Qatar’s capital on Tuesday.`\
 https://www.nytimes.com/live/2026/06/30/world/iran-us-talks-qatar-hormuz

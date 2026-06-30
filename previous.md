@@ -1,3 +1,11 @@
+**Mideast Live Updates: U.S. and Iran Offer Conflicting Plans for Doha Talks**\
+`Iranian officials contradicted President Trump’s claim that representatives from the two countries would speak directly in Qatar’s capital on Tuesday.`\
+https://www.nytimes.com/live/2026/06/30/world/iran-us-talks-qatar-hormuz
+
+**Norway’s “Viking Row” Craze Takes Over World Cup**\
+`Norway’s “Viking Row” cheer, where fans mimic the rowing of a longship while chanting, “Ro!” has taken over stadiums, schools and parliament during the World Cup.`\
+https://www.nytimes.com/video/sports/world-cup/100000011000829/world-cup-viking-row.html
+
 **Para revelar las raíces rítmicas de la risa, basta con hacerle cosquillas a un simio**\
 `Un estudio realizado con chimpancés, gorilas y otros grandes simios, además de niños humanos, arroja luz sobre la evolución de la risa.`\
 https://www.nytimes.com/es/2026/06/30/espanol/para-revelar-las-raices-ritmicas-de-la-risa-basta-con-hacerle-cosquillas-a-un-simio.html
@@ -26,13 +34,13 @@ https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/minas-hijos-trump.h
 `El máximo tribunal de Estados Unidos está otorgando nuevos poderes a un presidente que con frecuencia actúa como un aspirante a autócrata.`\
 https://www.nytimes.com/es/2026/06/30/espanol/opinion/corte-suprema-estados-unidos-poderes-trump.html
 
-**Pope Leo’s Showdown With the Church’s Radical Right**\
-`An impending clash between Pope Leo and ultratraditionalist Catholics threatens to end the pontiff’s honeymoon.`\
-https://www.nytimes.com/2026/06/30/opinion/pope-leo-latin-mass-catholic-church.html
-
 **Venezuela’s Tragedy Is Bigger Than the Earthquakes**\
 `Venezuela’s natural disaster was unavoidable, but the devastation it has left in its wake was not.`\
 https://www.nytimes.com/2026/06/30/opinion/venezuela-earthquake-tragedy.html
+
+**Pope Leo’s Showdown With the Church’s Radical Right**\
+`An impending clash between Pope Leo and ultratraditionalist Catholics threatens to end the pontiff’s honeymoon.`\
+https://www.nytimes.com/2026/06/30/opinion/pope-leo-latin-mass-catholic-church.html
 
 **¿Por qué los aficionados de Noruega hacen un ‘remo vikingo’ en el Mundial?**\
 `Multitudes de aficionados noruegos vestidos de rojo reman codo con codo en estadios, colegios e incluso en una residencia de ancianos. No todo el mundo está encantado.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/29/world/americas/venezuela-earthquake-victims-r
 **Clash Unfolds as Trump Administration Pushes Intelligence Agencies to Share Foreign Espionage Targets**\
 `The clash reflects increasing skepticism of the Office of the Director of National Intelligence, which has been willing to pursue President Trump’s priorities.`\
 https://www.nytimes.com/2026/06/29/us/trump-intelligence-agencies-spies-master-list.html
-
-**En Venezuela, comienzan los funerales de las víctimas de los terremotos**\
-`Los venezolanos empezaron a enterrar a algunas de las más de 1700 víctimas de los sismos de la semana pasada, y comparten historias de pérdidas inimaginables.`\
-https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-funerales.html
-
-**Cómo Rusia intenta ocultar los efectos de la guerra**\
-`Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
-https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
 

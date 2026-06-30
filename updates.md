@@ -1,3 +1,11 @@
+**Mideast Live Updates: U.S. and Iran Offer Conflicting Plans for Doha Talks**\
+`Iranian officials contradicted President Trump’s claim that representatives from the two countries would speak directly in Qatar’s capital on Tuesday.`\
+https://www.nytimes.com/live/2026/06/30/world/iran-us-talks-qatar-hormuz
+
+**Norway’s “Viking Row” Craze Takes Over World Cup**\
+`Norway’s “Viking Row” cheer, where fans mimic the rowing of a longship while chanting, “Ro!” has taken over stadiums, schools and parliament during the World Cup.`\
+https://www.nytimes.com/video/sports/world-cup/100000011000829/world-cup-viking-row.html
+
 **Para revelar las raíces rítmicas de la risa, basta con hacerle cosquillas a un simio**\
 `Un estudio realizado con chimpancés, gorilas y otros grandes simios, además de niños humanos, arroja luz sobre la evolución de la risa.`\
 https://www.nytimes.com/es/2026/06/30/espanol/para-revelar-las-raices-ritmicas-de-la-risa-basta-con-hacerle-cosquillas-a-un-simio.html
