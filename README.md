@@ -1,3 +1,15 @@
+**Men’s Style Gets Colorful and Strange**\
+`As Paris Men’s Fashion week winds to a close, see what our critic thought about shows at Celine, Soshiotsuki, Willy Chavarria and Comme des Garçons Homme.`\
+https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
+
+**Tom Kean Says Depression Led to Long Absence From Congress**\
+`After months of mystery, the New Jersey representative broke his silence about the undisclosed health issue that prompted his 117-day absence.`\
+https://www.nytimes.com/2026/06/30/us/politics/tom-kean-return-depression.html
+
+**La Corte Suprema de EE. UU. ratifica la ciudadanía por nacimiento**\
+`Los jueces bloquearon una orden ejecutiva del presidente Trump que prohibía la ciudadanía por nacimiento para los hijos de migrantes indocumentados y de algunos visitantes extranjeros temporales.`\
+https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/trump-ciudadania-nacimiento-corte-suprema.html
+
 **Oberon Brings Artful Dining to the New Museum**\
 `Bark Barbecue serves a Caribbean take on the genre in Bushwick, Brooklyn, Titán brings a Mexican collaboration to Dumbo and more restaurant news.`\
 https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
@@ -41,6 +53,10 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athlete
 **Read the Supreme Court Ruling That Upholds Birthright Citizenship**\
 `The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
+
+**Supreme Court Upholds Birthright Citizenship**\
+`The justices rejected President Trump’s executive order that tried to end the practice of automatically granting citizenship to the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizenship.html
 
 **Supreme Court Lifts Spending Limits on Political Parties and Candidates**\
 `Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/06/30/world/asia/china-japan-rare-earths-patrols.ht
 **Can You Really Be a Working-Class Party if There Are Very Few Workers in Your Party?**\
 `There an irony at the heart of the D.S.A.’s ascendance.`\
 https://www.nytimes.com/2026/06/30/opinion/democratic-primaries-socialists-mamdani.html
-
-**Texas Is a Tossup. The Times/Siena Poll Points to How It Got There.**\
-`A major shift among Hispanic voters and a favorable candidate matchup have helped put Democrats on the doorstep of a Senate upset.`\
-https://www.nytimes.com/2026/06/30/upshot/texas-poll-talarico-paxton.html
-
-**¿Los medicamentos para adelgazar también alargan la vida?**\
-`A los expertos les intriga esta teoría. Esto es lo que sugieren los primeros estudios.`\
-https://www.nytimes.com/es/2026/06/30/espanol/medicamentos-adelgazar-longevidad.html
-
-**Cómo Estambul conquistó el mundo del tango**\
-`Con una comunidad apasionada, decenas de escuelas y competencias internacionales, la metrópoli turca hoy figura entre las ciudades imprescindibles para los amantes de este baile.`\
-https://www.nytimes.com/es/2026/06/30/espanol/mundo/tango-turquia.html
-
-**Why the True Death Toll of Venezuela’s Quakes Is So Hard to Know**\
-`Five days after devastating twin earthquakes flattened entire residential neighborhoods, experts fear the official death toll of 1,719 could be a serious undercount.`\
-https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-death-toll.html
 
 **Death Toll Tops 1,700 as Hopes Fade of Finding Quake Survivors**\
 `The government said it had not given up on pulling people alive from the wreckage, but there were few rescues on the fifth day.`\
