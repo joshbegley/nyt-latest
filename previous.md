@@ -1,3 +1,27 @@
+**USMNT Knockout Preview, and Mexico’s Dark Horse Chances**\
+`The latest from the U.S. and Mexico camps as both co-hosts prepare for the Round of 32.`\
+https://www.nytimes.com/2026/06/30/podcasts/usmnt-knockout-preview-mexico-ecuador.html
+
+**The Supreme Court Expands Presidential Power. Again.**\
+`The justices ruled that President Trump could fire independent government regulators despite federal laws meant to protect their jobs.`\
+https://www.nytimes.com/2026/06/30/podcasts/the-daily/supreme-court-trump.html
+
+**Supreme Court Expands Trump’s Power, and a Dangerous U.S. Heat Wave Spreads**\
+`Plus, a daring rescue mission in space.`\
+https://www.nytimes.com/2026/06/30/podcasts/the-headlines/supreme-court-trump-heat-wave.html
+
+**NYT Connections Answers for July 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/06/30/crosswords/connections-companion-1116.html
+
+**Today’s Wordle Hints for July 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/06/30/crosswords/wordle-review-1838.html
+
+**NYT Strands Hints for July 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/06/30/crosswords/strands-sidekick-850.html
+
 **Fourth of July Heat Wave Forecast: Here Are the Day-by-Day Temperatures**\
 `A day-by-day breakdown of where dangerous heat is expected through the Fourth of July weekend.`\
 https://www.nytimes.com/2026/06/30/weather/july-fourth-heat-wave-forecast.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/weather/100000011000844/us-heat-wave.html
 **Times/Siena Poll Shows Hannah Pingree Leading in Maine Governor’s Race**\
 `Hannah Pingree, former Maine House speaker, starts the race to Election Day against Bobby Charles in a strong position, according to a New York Times/Portland Press Herald/Siena poll.`\
 https://www.nytimes.com/2026/06/30/polls/maine-governor-poll.html
-
-**Word of the Day: expatiate**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/06/30/learning/word-of-the-day-expatiate.html
-
-**Moscow Is Attacked by Dozens of Drones, Its Mayor Says**\
-`Sergei Sobyanin said the Russian military had shot down more than 60 drones. He did not report any injuries.`\
-https://www.nytimes.com/2026/06/30/world/europe/moscow-drone-attack-russia-ukraine-war.html
-
-**Mideast Live Updates: U.S. and Iran Offer Conflicting Plans for Doha Talks**\
-`Iranian officials contradicted President Trump’s claim that representatives from the two countries would speak directly in Qatar’s capital on Tuesday.`\
-https://www.nytimes.com/live/2026/06/30/world/iran-us-talks-qatar-hormuz
-
-**Norway’s “Viking Row” Craze Takes Over World Cup**\
-`Norway’s “Viking Row” cheer, where fans mimic the rowing of a longship while chanting, “Ro!” has taken over stadiums, schools and parliament during the World Cup.`\
-https://www.nytimes.com/video/sports/world-cup/100000011000829/world-cup-viking-row.html
-
-**Para revelar las raíces rítmicas de la risa, basta con hacerle cosquillas a un simio**\
-`Un estudio realizado con chimpancés, gorilas y otros grandes simios, además de niños humanos, arroja luz sobre la evolución de la risa.`\
-https://www.nytimes.com/es/2026/06/30/espanol/para-revelar-las-raices-ritmicas-de-la-risa-basta-con-hacerle-cosquillas-a-un-simio.html
-
-**NYT Spelling Bee Answers for June 30, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/06/30/crosswords/spelling-bee-forum.html
 

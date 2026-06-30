@@ -1,3 +1,27 @@
+**USMNT Knockout Preview, and Mexico’s Dark Horse Chances**\
+`The latest from the U.S. and Mexico camps as both co-hosts prepare for the Round of 32.`\
+https://www.nytimes.com/2026/06/30/podcasts/usmnt-knockout-preview-mexico-ecuador.html
+
+**The Supreme Court Expands Presidential Power. Again.**\
+`The justices ruled that President Trump could fire independent government regulators despite federal laws meant to protect their jobs.`\
+https://www.nytimes.com/2026/06/30/podcasts/the-daily/supreme-court-trump.html
+
+**Supreme Court Expands Trump’s Power, and a Dangerous U.S. Heat Wave Spreads**\
+`Plus, a daring rescue mission in space.`\
+https://www.nytimes.com/2026/06/30/podcasts/the-headlines/supreme-court-trump-heat-wave.html
+
+**NYT Connections Answers for July 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/06/30/crosswords/connections-companion-1116.html
+
+**Today’s Wordle Hints for July 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/06/30/crosswords/wordle-review-1838.html
+
+**NYT Strands Hints for July 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/06/30/crosswords/strands-sidekick-850.html
+
 **Why the True Death Toll of Venezuela’s Quakes Is So Hard to Know**\
 `Five days after devastating twin earthquakes flattened entire residential neighborhoods, experts fear the official death toll of 1,719 could be a serious undercount.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-death-toll.html
