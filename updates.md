@@ -1,3 +1,7 @@
+**Daveigh Chase, voz de ‘Lilo & Stitch’, murió a causa del sida**\
+`Chase era la voz de Lilo y también interpretó a la niña villana en la película de terror “El aro”. Falleció en Los Ángeles este mes.`\
+https://www.nytimes.com/es/2026/06/29/espanol/daveigh-chase-murio-sida.html
+
 **Former Chinese Billionaire and Bannon Associate Is Sentenced for Fraud**\
 `The businessman courted U.S. conservatives as an anti-Communist crusader while using his supporters’ money to buy lavish homes and a Bugatti supercar.`\
 https://www.nytimes.com/2026/06/29/us/guo-wengui-sentencing.html
