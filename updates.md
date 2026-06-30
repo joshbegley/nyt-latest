@@ -1,3 +1,7 @@
+**The 1968 Pact on Shipping Routes in the Strait of Hormuz That Iran Is Rejecting**\
+`For decades, a maritime agreement negotiated by Iran and Oman has governed the main pathways through the strait.`\
+https://www.nytimes.com/2026/06/30/world/middleeast/the-1968-pact-on-shipping-routes-in-the-strait-of-hormuz-that-iran-is-rejecting.html
+
 **Parcel Bomb Explodes in Monaco, Injuring 3**\
 `The blast seriously injured three people, including a child, according to the authorities, who said the assailant was on the run.`\
 https://www.nytimes.com/2026/06/30/world/europe/monaco-parcel-bomb-explosion.html
