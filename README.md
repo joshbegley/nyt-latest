@@ -1,3 +1,7 @@
+**Venezuela Earthquake Victims Seek Shelter Outside**\
+`Many Venezuelans have taken to living in the streets after two devastating earthquakes displaced them from their homes.`\
+https://www.nytimes.com/video/world/americas/venezuela-earthquakes-victims-displaced.html
+
 **Judah Gribetz, Key Negotiator in New York City’s Fiscal Crisis, Dies at 97**\
 `A top aide to Gov. Hugh L. Carey in the 1970s, he was an influential figure in talks between the governor and Abraham D. Beame, the mayor, as the city faced financial collapse.`\
 https://www.nytimes.com/2026/06/30/nyregion/judah-gribetz-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/30/business/indonesia-trial-nadiem-makarim.html
 **More Than 1 Million Migrants Apply for Legal Status in Spain**\
 `Since late April, the Spanish government has allowed undocumented migrants a path out of legal limbo, making Spain a beacon to the global left.`\
 https://www.nytimes.com/2026/06/30/world/europe/spain-migrants-legal-status.html
-
-**2 Killed as Bus Flips Into Traffic on Long Island Expressway**\
-`A bus crashed into multiple vehicles in Queens just before midnight on Monday. Authorities investigating the incident have closed lanes on the highway near 50th Street.`\
-https://www.nytimes.com/2026/06/30/us/long-island-expressway-crash.html
 

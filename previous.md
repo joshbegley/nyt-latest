@@ -1,3 +1,7 @@
+**Judah Gribetz, Key Negotiator in New York City’s Fiscal Crisis, Dies at 97**\
+`A top aide to Gov. Hugh L. Carey in the 1970s, he was an influential figure in talks between the governor and Abraham D. Beame, the mayor, as the city faced financial collapse.`\
+https://www.nytimes.com/2026/06/30/nyregion/judah-gribetz-dead.html
+
 **La cifra real de fallecidos en los terremotos de Venezuela será complicada de saber**\
 `Seis días después de que dos terremotos devastadores arrasaran barrios residenciales enteros, los expertos temen que la cifra oficial de 1719 muertos pueda estar muy por debajo de la realidad.`\
 https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-muertes-cifra.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/30/world/europe/spain-migrants-legal-status.html
 **2 Killed as Bus Flips Into Traffic on Long Island Expressway**\
 `A bus crashed into multiple vehicles in Queens just before midnight on Monday. Authorities investigating the incident have closed lanes on the highway near 50th Street.`\
 https://www.nytimes.com/2026/06/30/us/long-island-expressway-crash.html
-
-**Wins and Losses**\
-`We look at Supreme Court rulings on presidential power and mail-in ballots.`\
-https://www.nytimes.com/2026/06/30/briefing/wins-and-losses-at-the-supreme-court.html
 
