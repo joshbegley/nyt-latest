@@ -1,3 +1,7 @@
+**Read the Supreme Court Ruling That Upholds Birthright Citizenship**\
+`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
+
 **Supreme Court Lifts Spending Limits on Political Parties and Candidates**\
 `Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
 https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
 `The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/supreme-court-birthright-citizenship
 
-**Read the Supreme Court Decision Banning Transgender Athletes From Women’s Sports**\
+**Read the Supreme Court Decision Upholding Bans on Transgender Athletes in Women’s Sports**\
 `The court upheld state laws in West Virginia and Idaho barring the participation of transgender female athletes from girls’ and women’s sports teams.`\
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-trans.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/movies/dawn-dead-mall-romero.html
 **‘Bang My Box: The Robin Byrd Story’ Review: Sex for the City**\
 `A New York City pioneer of cable-access programming is given a lively tribute in this cheekily diverting documentary.`\
 https://www.nytimes.com/2026/06/30/movies/bang-my-box-the-robin-byrd-story-review.html
-
-**Restaurant Review: Dean’s in Manhattan**\
-`This restaurant from two King partners nails the fish and chips and other standards, but defies the notion that all English food is bland.`\
-https://www.nytimes.com/2026/06/30/dining/restaurant-review-deans-manhattan.html
 

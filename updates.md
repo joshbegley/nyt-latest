@@ -1,3 +1,11 @@
+**Supreme Court Lifts Spending Limits on Political Parties and Candidates**\
+`Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
+https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
+
+**Live Updates: Supreme Court Upholds Birthright Citizenship**\
+`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/live/2026/06/30/us/supreme-court-birthright-citizenship
+
 **Read the Supreme Court Decision Banning Transgender Athletes From Women’s Sports**\
 `The court upheld state laws in West Virginia and Idaho barring the participation of transgender female athletes from girls’ and women’s sports teams.`\
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-trans.html
