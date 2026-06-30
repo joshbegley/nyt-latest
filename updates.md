@@ -1,3 +1,11 @@
+**C.I.A. Reorganization Prioritizes Cyberoperations**\
+`John Ratcliffe, the C.I.A. director, said that the agency would take “smart risks,” but that people would have oversight of artificial intelligence.`\
+https://www.nytimes.com/2026/06/30/us/politics/cia-reorganization-cyber-ai.html
+
+**A Hot and Deadly Start to Wildfire Season**\
+`Thousands of acres in Utah and other Western states have burned as a U.S. heat wave widens.`\
+https://www.nytimes.com/2026/06/30/climate/heat-wave-wildfires.html
+
 **States Sue Trump Administration Over Medicaid Work Requirements**\
 `The lawsuit argues that new federal rules went beyond what Congress enacted and broke from guidance that the federal government previewed to states.`\
 https://www.nytimes.com/2026/06/30/us/politics/medicaid-work-requirements-lawsuit.html
