@@ -1,3 +1,19 @@
+**Para revelar las raíces rítmicas de la risa, basta con hacerle cosquillas a un simio**\
+`Un estudio realizado con chimpancés, gorilas y otros grandes simios, además de niños humanos, arroja luz sobre la evolución de la risa.`\
+https://www.nytimes.com/es/2026/06/30/espanol/para-revelar-las-raices-ritmicas-de-la-risa-basta-con-hacerle-cosquillas-a-un-simio.html
+
+**NYT Spelling Bee Answers for June 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/06/30/crosswords/spelling-bee-forum.html
+
+**Columbia University Has a New President. Again. This One Plans to Stay.**\
+`Jennifer Mnookin will be the Ivy League university’s fifth president in four years. She describes herself as “a principled pragmatist.”`\
+https://www.nytimes.com/2026/06/30/nyregion/columbia-university-new-president.html
+
+**Trying to Keep Track of Mangione’s State Case? It May Not Be Easy.**\
+`Though public access is a right in both federal and state courts, the judge in Luigi Mangione’s New York case has kept some legal documents sealed.`\
+https://www.nytimes.com/2026/06/30/nyregion/luigi-mangione-trial-secrecy.html
+
 **John Oliver Dives Into Trump’s Pet Project: A ‘Giant Duck Death Trap’**\
 `The “Last Week Tonight” host said the United States was “dealing with a literal swamp of corruption” for its 250th birthday.`\
 https://www.nytimes.com/2026/06/30/arts/television/john-oliver-lincoln-memorial-pool-ducks.html
