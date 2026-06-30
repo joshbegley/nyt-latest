@@ -1,3 +1,15 @@
+**For Many Americans, Depression Is Familiar. Here’s What We Know.**\
+`Representative Thomas Kean Jr. announced he had been hospitalized for depression. More than one in four U.S. adults report having been diagnosed with the condition.`\
+https://www.nytimes.com/2026/06/30/nyregion/depression-thomas-kean-symptoms-treatment.html
+
+**Butter Rice Cakes**\
+`Also known as Shanghai butter mochi, Shanghai butter rice cakes and butter tteok in Korea, these butter mochi are individually sized, extra-crunchy and have taken the internet by storm.`\
+https://www.nytimes.com/video/dining/100000011003223/butter-rice-cakes.html
+
+**Trump Says It’s ‘Too Bad’ Supreme Court Upheld Birthright Citizenship**\
+`The court’s decision was a major rebuke to President Trump, who falsely asserted that Congress could reverse it through legislation.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-congress-birthright-citizenship.html
+
 **Nicolás Maduro es demandado en EE. UU. por asesinatos de 5 jóvenes en Caracas**\
 `Este caso representa un intento poco habitual de hacer responsable a un jefe de Estado ante un tribunal de Estados Unidos.`\
 https://www.nytimes.com/es/2026/06/30/espanol/america-latina/demanda-maduro-brooklyn-asesinato.html

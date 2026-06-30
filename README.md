@@ -1,3 +1,7 @@
+**Colorado Handyman Discovers Bear in His Truck Eating His Lunch**\
+`A handyman in Steamboat Springs, Colo., discovered a bear eating his lunch in his truck.`\
+https://www.nytimes.com/video/us/100000011002988/colorado-bear-eats-lunch-truck.html
+
 **For Many Americans, Depression Is Familiar. Here’s What We Know.**\
 `Representative Thomas Kean Jr. announced he had been hospitalized for depression. More than one in four U.S. adults report having been diagnosed with the condition.`\
 https://www.nytimes.com/2026/06/30/nyregion/depression-thomas-kean-symptoms-treatment.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/06/30/briefing/supreme-court-birthright-citizenship
 https://www.nytimes.com/2026/06/30/us/politics/trump-republican-midterm-convention-dallas-texas.html
 
 **Trump Officials Sideline Machado, Venezuela’s Opposition Leader, Over Earthquake Response**\
-`A bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela has angered U.S. officials focused on recovery and stability.`\
+`U.S. officials called a bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela a “political stunt” that has distracted from recovery efforts.`\
 https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.html
 
 **Takeaways From a Transformative Supreme Court Term**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-governor-
 **Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate-primary.html
-
-**Colorado Third Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-3-primary.html
 

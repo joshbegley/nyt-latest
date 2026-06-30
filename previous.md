@@ -1,3 +1,11 @@
+**For Many Americans, Depression Is Familiar. Here’s What We Know.**\
+`Representative Thomas Kean Jr. announced he had been hospitalized for depression. More than one in four U.S. adults report having been diagnosed with the condition.`\
+https://www.nytimes.com/2026/06/30/nyregion/depression-thomas-kean-symptoms-treatment.html
+
+**Butter Rice Cakes**\
+`Also known as Shanghai butter mochi, Shanghai butter rice cakes and butter tteok in Korea, these butter mochi are individually sized, extra-crunchy and have taken the internet by storm.`\
+https://www.nytimes.com/video/dining/100000011003223/butter-rice-cakes.html
+
 **Nicolás Maduro es demandado en EE. UU. por asesinatos de 5 jóvenes en Caracas**\
 `Este caso representa un intento poco habitual de hacer responsable a un jefe de Estado ante un tribunal de Estados Unidos.`\
 https://www.nytimes.com/es/2026/06/30/espanol/america-latina/demanda-maduro-brooklyn-asesinato.html
@@ -150,8 +158,8 @@ https://www.nytimes.com/2026/06/30/us/politics/amy-coney-barrett-gop-scotus-ruli
 `A garage camera caught the moment a handyman in Colorado opened the door to his truck to find a bear cub eating his lunch inside.`\
 https://www.nytimes.com/video/embedded/at-home/100000011002282/bear-surprises-truck-owner-in-colorado.html
 
-**Trump Urges Congress to Take Up Birthright Citizenship. Here’s Why It’s Unlikely.**\
-`The president lost his case in the Supreme Court, but mere legislation would not be enough.`\
+**Trump Says It’s ‘Too Bad’ Supreme Court Upheld Birthright Citizenship**\
+`The court’s decision was a major rebuke to President Trump, who falsely asserted that Congress could reverse it through legislation.`\
 https://www.nytimes.com/2026/06/30/us/politics/trump-congress-birthright-citizenship.html
 
 **Woman Wading in Central Florida River Is Fatally Bitten by Alligator**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate
 **Colorado Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-3-primary.html
-
-**Colorado Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-8-primary.html
-
-**Colorado Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-4-primary.html
 
