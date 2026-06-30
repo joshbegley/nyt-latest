@@ -1,3 +1,67 @@
+**Colorado Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-primary.html
+
+**Colorado Governor Primary 2026: Live Election Results, Bennet vs. Weiser**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-governor-primary.html
+
+**Arkansas State House District 44 Special Special Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas special runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-arkansas-state-house-district-44-special-runoff.html
+
+**Colorado State Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-senate-primary.html
+
+**Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate-primary.html
+
+**Colorado State House Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-house-primary.html
+
+**Colorado Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-3-primary.html
+
+**Colorado Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-8-primary.html
+
+**Colorado Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-4-primary.html
+
+**Colorado Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
+
+**Colorado Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-5-primary.html
+
+**Colorado Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-7-primary.html
+
+**Colorado First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-1-primary.html
+
+**Colorado Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-attorney-general-primary.html
+
+**Colorado Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-secretary-of-state-primary.html
+
+**Colorado Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-2-primary.html
+
 **What to Know About Flights to Venezuela After Devastating Earthquakes**\
 `Six days after powerful back-to-back earthquakes, air travel in and out of the country remains severely restricted.`\
 https://www.nytimes.com/2026/06/30/travel/venezuela-airports-damage-closed.html
