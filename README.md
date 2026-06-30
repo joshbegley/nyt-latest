@@ -1,3 +1,7 @@
+**A Barrage of Big Decisions From the Supreme Court**\
+`Readers react to several of the justices’ rulings this week.`\
+https://www.nytimes.com/2026/06/30/opinion/supreme-court-trump-birthright.html
+
 **What the Supreme Court Decisions About Trump’s Firings Mean**\
 `Our chief legal affairs correspondent, Adam Liptak, explains how two Supreme Court rulings on the firings of independent regulators first expand the power of the president, and then carve out an exception.`\
 https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decisions-about-trumps-firings-mean.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-m
 **Marc Jacobs Looks on the Bright Side**\
 `His brand has a new owner and the future may be uncertain, but color him ready.`\
 https://www.nytimes.com/2026/06/30/style/marc-jacobs-spring-2027.html
-
-**After U.S.-Iran War, Oman Is Said to Propose Strait of Hormuz Fee Plan**\
-`Under the proposal, Iran and Oman would collect payment for ships passing through the Strait of Hormuz, according to officials and diplomats with knowledge of the matter.`\
-https://www.nytimes.com/2026/06/30/world/middleeast/iran-war-oman-strait-hormuz-fee-ships.html
-
-**N.I.H. Announces World’s Largest Integrated Health Database**\
-`It contains more than half a million people’s genomes, paired with clinical records and wearable tech data. That gives researchers unmatched power to study both diseases and treatments.`\
-https://www.nytimes.com/2026/06/30/science/nih-announces-worlds-largest-integrated-health-database.html
 
