@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizens
 `Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
 https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
 
-**Live Updates: Supreme Court Rejects Trump’s Effort to End Birthright Citizenship**\
+**Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `The justices blocked an executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
 
