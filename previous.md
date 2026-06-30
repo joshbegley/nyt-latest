@@ -1,3 +1,7 @@
+**Marc Jacobs Looks on the Bright Side**\
+`His brand has a new owner and the future may be uncertain, but color him ready.`\
+https://www.nytimes.com/2026/06/30/style/marc-jacobs-spring-2027.html
+
 **After U.S.-Iran War, Oman Is Said to Propose Strait of Hormuz Fee Plan**\
 `Under the proposal, Iran and Oman would collect payment for ships passing through the Strait of Hormuz, according to officials and diplomats with knowledge of the matter.`\
 https://www.nytimes.com/2026/06/30/world/middleeast/iran-war-oman-strait-hormuz-fee-ships.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/world/europe/russia-ukraine-prom.html
 ****\
 `Laura on the swing she liked to visit with her best friend Masha.`\
 https://www.nytimes.com/video/embedded/world/europe/100000010998829/30int-ukraine-prom-91467.html
-
-****\
-`Yehor practicing the waltz.`\
-https://www.nytimes.com/video/embedded/world/europe/100000010998727/100000010998716-58065.html
 
