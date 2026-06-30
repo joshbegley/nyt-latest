@@ -1,3 +1,7 @@
+**The 1952 Law That Was Central to the Birthright Citizenship Case**\
+`When Congress passed a sweeping immigration reform measure after World War II, it included language that mirrored the 14th Amendment’s citizenship clause — and perhaps even took it a step further.`\
+https://www.nytimes.com/2026/06/30/us/politics/1952-immigration-nationality-act-birthright-citizenship.html
+
 **It’s Soccer, but Set to Disco. And May the Best Dancers Win.**\
 `“Discofoot,” a dance showdown and soccer game played to disco hits, originated in France. Last weekend, in honor of the World Cup, it had its U.S. premiere.`\
 https://www.nytimes.com/2026/06/30/arts/dance/discofoot-soccer-dance-world-cup.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
 `Residents appealed for excavators, generators and specialized rescue tools as civilians have stepped in to supply crews working through the rubble.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-rescue-equipment-aid.html
 
-**NPR Retracts Article Falsely Suggesting Justice Alito Retired**\
+**NPR Retracts Article That Mistakenly Said Justice Alito Would Retire**\
 `The news outlet quickly removed the article, which was written by NPR’s seasoned Supreme Court reporter, Nina Totenberg, from its website.`\
 https://www.nytimes.com/2026/06/30/business/media/npr-samuel-alito-nina-totenberg.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/crosswords/strands-sidekick-850.html
 **Fourth of July Heat Wave Forecast: Here Are the Day-by-Day Temperatures**\
 `A day-by-day breakdown of where dangerous heat is expected through the Fourth of July weekend.`\
 https://www.nytimes.com/2026/06/30/weather/july-fourth-heat-wave-forecast.html
-
-**Shipping Traffic in Strait of Hormuz Picks Up Again**\
-`Vessels stranded for months have started moving in larger numbers, but many pulled back over the weekend after Iran and the U.S. exchanged attacks.`\
-https://www.nytimes.com/2026/06/30/business/strait-hormuz-ships-iran-war.html
 

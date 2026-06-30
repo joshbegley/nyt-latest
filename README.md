@@ -22,7 +22,7 @@ https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-a
 `As Paris Men’s Fashion week winds to a close, see what our critic thought about shows at Celine, Soshiotsuki, Willy Chavarria and Comme des Garçons Homme.`\
 https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
 
-**Tom Kean Says Depression Led to Long Absence From Congress**\
+**Tom Kean, New Jersey Congressman, Says Depression Led to Long Absence**\
 `After months of mystery, the New Jersey representative broke his silence about the undisclosed health issue that prompted his 117-day absence.`\
 https://www.nytimes.com/2026/06/30/us/politics/tom-kean-return-depression.html
 
