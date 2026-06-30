@@ -1,3 +1,7 @@
+**Dangerous Heat Wave Spreads Across U.S.**\
+`Intense heat is expected across much of the United States through the Fourth of July holiday weekend. The temperatures could break daily records in some parts of the country as the heat spreads east.`\
+https://www.nytimes.com/video/weather/100000011000844/us-heat-wave.html
+
 **Times/Siena Poll Shows Hannah Pingree Leading in Maine Governor’s Race**\
 `Hannah Pingree, former Maine House speaker, starts the race to Election Day against Bobby Charles in a strong position, according to a New York Times/Portland Press Herald/Siena poll.`\
 https://www.nytimes.com/2026/06/30/polls/maine-governor-poll.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010998994/trump-supreme-court-ru
 **La ciencia detrás de los alimentos fermentados**\
 `Los investigadores empiezan a comprender cómo alimentos como el kimchi, el yogur y el chucrut influyen en la salud.`\
 https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-beneficios.html
-
-**Daveigh Chase, ‘Lilo & Stitch’ Voice Actor, Died of AIDS, Officials Say**\
-`Ms. Chase was the voice of Lilo and also played the child villain in the horror film “The Ring.” She died in Los Angeles this month.`\
-https://www.nytimes.com/2026/06/29/movies/daveigh-chase-cause-death-aids.html
 
