@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/06/30/arts/dance/discofoot-soccer-dance-world-cup.h
 https://www.nytimes.com/2026/06/30/weather/ontario-quebec-canada-heat-wave.html
 
 **Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
-`Bending Spoons, an Italian company that bought aging internet companies like AOL, Evernote and Vimeo, is going public this week at a potential value of $19 billion.`\
+`Bending Spoons, an Italian company that buys aging internet companies, is going public this week at a potential value of $19 billion.`\
 https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
 
 **Robby Hoffman: ‘How Weird Are These Rich People?’**\

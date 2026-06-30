@@ -1,3 +1,15 @@
+**What to Know About the Supreme Court’s Birthright Citizenship Order**\
+`The decision ends one of the most aggressive parts of Trump’s immigration agenda. But hundreds of other restrictions have taken effect.`\
+https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-order-explained.html
+
+**‘Heartbreaking’ Ruling Leaves Trans Advocates Crestfallen**\
+`The ruling upholding two state laws blocking transgender athletes from participating in girls’ and women’s sports was the latest in a series of defeats.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-trans-athletes-decision-reactions.html
+
+**Mamdani and City Council Agree on $126 Billion Budget**\
+`A handshake deal, reached right at the statutory budget deadline, will expand programs that offer housing vouchers and discounted transit fares.`\
+https://www.nytimes.com/2026/06/30/nyregion/mamdani-budget-nyc.html
+
 **Venezuela Earthquake Victims Seek Shelter Outside**\
 `Many Venezuelans have taken to living in the streets after two devastating earthquakes displaced them from their homes.`\
 https://www.nytimes.com/video/world/americas/venezuela-earthquakes-victims-displaced.html
