@@ -1,3 +1,15 @@
+**Supreme Court Blocks Trump’s Push to End Birthright Citizenship**\
+`Also, a House Republican says depression led to his long absence. Here's the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/06/30/briefing/supreme-court-birthright-citizenship.html
+
+**Trump Announces Republican Midterm Convention in Dallas, Texas**\
+`Parties normally hold conventions only in presidential years, but President Trump liked the idea of mobilizing Republicans this fall.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-republican-midterm-convention-dallas-texas.html
+
+**G.O.P. Revolt Paralyzes the House, Stalling Trump Agenda**\
+`A Republican blockade derailed a Pentagon policy bill and other legislation as the far right pressed for action on a voting bill championed by President Trump.`\
+https://www.nytimes.com/2026/06/30/us/politics/republicans-house-defense-elections-save-america.html
+
 **Trump Officials Sideline Machado, Venezuela’s Opposition Leader, Over Earthquake Response**\
 `A bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela has angered U.S. officials focused on recovery and stability.`\
 https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.html
