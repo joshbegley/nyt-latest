@@ -1,3 +1,7 @@
+**NYT Crossword Answers for June 30, 2026**\
+`John Liber makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/06/29/crosswords/d.html
+
 **Daveigh Chase, voz de ‘Lilo & Stitch’, murió a causa del sida**\
 `Chase era la voz de Lilo y también interpretó a la niña villana en la película de terror “El aro”. Falleció en Los Ángeles este mes.`\
 https://www.nytimes.com/es/2026/06/29/espanol/daveigh-chase-murio-sida.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/06/29/us/guo-wengui-sentencing.html
 https://www.nytimes.com/2026/06/29/opinion/haley-stevens-michigan-democrats.html
 
 **Judge Orders Trump to End Efforts to Kill Hudson Tunnel Funding**\
-`Federal judge says that the administration’s attempts to block money for the $16 billion rail project were “flagrantly” illegal.`\
+`A federal judge says that the administration’s attempts to block money for the $16 billion rail project were “flagrantly” illegal.`\
 https://www.nytimes.com/2026/06/29/nyregion/hudson-tunnel-trump-funding-judge-ruling.html
 
 **California Hopes to Speed Up Election Results With $40 Million Infusion**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/29/us/politics/supreme-court-lisa-cook-fed-firin
 **See Day-by-Day Forecast as Heat Wave Engulfs U.S. Ahead of the July 4 Weekend**\
 `Dangerous heat is expected across much of the country through the Fourth of July weekend.`\
 https://www.nytimes.com/2026/06/29/weather/us-heat-wave-forecast.html
-
-**Luigi Mangione’s Federal Trial Delayed Until January**\
-`A judge made the postponement to avoid potential conflict with Luigi Mangione’s state trial regarding the assassination of a health insurance executive.`\
-https://www.nytimes.com/2026/06/29/nyregion/mangione-federal-trial-delay.html
 
