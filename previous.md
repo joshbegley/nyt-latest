@@ -1,3 +1,11 @@
+**Parcel Bomb Explodes in Monaco, Injuring 3**\
+`The blast seriously injured three people, including a child, according to the authorities, who said the assailant was on the run.`\
+https://www.nytimes.com/2026/06/30/world/europe/monaco-parcel-bomb-explosion.html
+
+**Prominent Tech Founder in Indonesia Is Found Guilty in Corruption Case**\
+`The case against Nadiem Makarim, a co-founder of Gojek, has fueled concerns about judicial fairness in a nation where foreign investors were already growing wary.`\
+https://www.nytimes.com/2026/06/30/business/indonesia-trial-nadiem-makarim.html
+
 **More Than 1 Million Migrants Apply for Legal Status in Spain**\
 `Since late April, the Spanish government has allowed undocumented migrants a path out of legal limbo, making Spain a beacon to the global left.`\
 https://www.nytimes.com/2026/06/30/world/europe/spain-migrants-legal-status.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/travel/car-seat-traveling-tip.html
 **For Lifelong Runners, Quitting Can Feel Like a Form of Grief**\
 `For those who rely on the sport for identity and community, leaving it behind can feel like a form of grief.`\
 https://www.nytimes.com/2026/06/30/well/move/running-loss-grief.html
-
-**What Is the Difference Between a Tiny Home, an R.V. and an A.D.U.?**\
-`Interest continues to grow for minimalist, often mobile, houses with no room to spare.`\
-https://www.nytimes.com/2026/06/30/realestate/tiny-home-explainer-living-small.html
-
-**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Texas**\
-`Results of a New York Times/Siena poll of 656 likely voters conducted from June 19 to 27, 2026.`\
-https://www.nytimes.com/interactive/2026/06/30/polls/times-siena-texas-poll-crosstabs.html
 

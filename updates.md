@@ -1,3 +1,11 @@
+**Parcel Bomb Explodes in Monaco, Injuring 3**\
+`The blast seriously injured three people, including a child, according to the authorities, who said the assailant was on the run.`\
+https://www.nytimes.com/2026/06/30/world/europe/monaco-parcel-bomb-explosion.html
+
+**Prominent Tech Founder in Indonesia Is Found Guilty in Corruption Case**\
+`The case against Nadiem Makarim, a co-founder of Gojek, has fueled concerns about judicial fairness in a nation where foreign investors were already growing wary.`\
+https://www.nytimes.com/2026/06/30/business/indonesia-trial-nadiem-makarim.html
+
 **More Than 1 Million Migrants Apply for Legal Status in Spain**\
 `Since late April, the Spanish government has allowed undocumented migrants a path out of legal limbo, making Spain a beacon to the global left.`\
 https://www.nytimes.com/2026/06/30/world/europe/spain-migrants-legal-status.html
