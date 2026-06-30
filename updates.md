@@ -1,3 +1,7 @@
+**With New Seizures, Value of the Met’s Looted Artifacts Tops $95 Million**\
+`The Manhattan district attorney’s office said it secured the return of dozens of ancient artifacts in June, after a process that the museum described as collaborative.`\
+https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-million.html
+
 **Marc Jacobs Looks on the Bright Side**\
 `His brand has a new owner and the future may be uncertain, but color him ready.`\
 https://www.nytimes.com/2026/06/30/style/marc-jacobs-spring-2027.html

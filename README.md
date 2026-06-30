@@ -1,3 +1,7 @@
+**Live Updates: Supreme Court Allows States to Bar Transgender Athletes from Girls’ Sports**\
+`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
+https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
+
 **With New Seizures, Value of the Met’s Looted Artifacts Tops $95 Million**\
 `The Manhattan district attorney’s office said it secured the return of dozens of ancient artifacts in June, after a process that the museum described as collaborative.`\
 https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-million.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/us/250-american-revolution-john-dickinson.htm
 **Capital Punishment Is on the Decline. Except in Ron DeSantis’s Florida.**\
 `In most of the country, executions are a thing of the past. But one state has been carrying them out at a record pace.`\
 https://www.nytimes.com/2026/06/30/magazine/florida-death-penalty.html
-
-**The Prom Went On in Kyiv, but Masha’s Date Danced Alone**\
-`Masha Polska, 15, was an avid dancer who had been dreaming of a star turn in the group waltz. That was not to be.`\
-https://www.nytimes.com/2026/06/30/world/europe/russia-ukraine-prom.html
 
