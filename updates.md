@@ -1,3 +1,11 @@
+**What Travelers Need to Know About Flights to Venezuela**\
+`Six days after powerful back-to-back earthquakes, air travel in and out of the country remains severely restricted.`\
+https://www.nytimes.com/2026/06/30/travel/venezuela-airports-damage-closed.html
+
+**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
+`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
+https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
+
 **How Democrats Could Win in Texas**\
 `Our chief political analyst, Nate Cohn, unpacks a New York Times/Siena poll of voters in Texas, where control of the Senate could be decided in the 2026 midterm elections.`\
 https://www.nytimes.com/video/polls/100000010992598/how-democrats-could-win-in-texas.html

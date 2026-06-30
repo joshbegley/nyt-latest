@@ -1,3 +1,7 @@
+**What Travelers Need to Know About Flights to Venezuela**\
+`Six days after powerful back-to-back earthquakes, air travel in and out of the country remains severely restricted.`\
+https://www.nytimes.com/2026/06/30/travel/venezuela-airports-damage-closed.html
+
 **How Democrats Could Win in Texas**\
 `Our chief political analyst, Nate Cohn, unpacks a New York Times/Siena poll of voters in Texas, where control of the Senate could be decided in the 2026 midterm elections.`\
 https://www.nytimes.com/video/polls/100000010992598/how-democrats-could-win-in-texas.html
@@ -14,13 +18,13 @@ https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decision
 `Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
 https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
 
+**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
+`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
+https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
+
 **Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
 `Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
 https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
-
-**New York City Set to Sweat as Potentially Record-Breaking Heat Looms**\
-`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
-https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
 
 **Tom Kean Cites Depression as Reason for Long Absence from Congress**\
 `Representative Tom Kean, Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athlete
 **Live Updates: Supreme Court Allows States to Bar Transgender Athletes From Girls’ Sports**\
 `The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions. President Trump hailed the ruling as a major victory.`\
 https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
-
-**With New Seizures, Value of the Met’s Looted Artifacts Tops $95 Million**\
-`The Manhattan district attorney’s office said it secured the return of dozens of ancient artifacts in June, after a process that the museum described as collaborative.`\
-https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-million.html
 
