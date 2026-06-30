@@ -1,3 +1,7 @@
+**La cifra real de fallecidos en los terremotos de Venezuela será complicada de saber**\
+`Seis días después de que dos terremotos devastadores arrasaran barrios residenciales enteros, los expertos temen que la cifra oficial de 1719 muertos pueda estar muy por debajo de la realidad.`\
+https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-muertes-cifra.html
+
 **World Cup Loss Dominates German News, Displacing Even a Mass Shooting**\
 `A day after a deadly attack in northern Germany, the news media’s attention largely shifted to the country’s poor performance at the World Cup.`\
 https://www.nytimes.com/2026/06/30/world/europe/germany-shooting-stade-world-cup.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/30/us/long-island-expressway-crash.html
 **Wins and Losses**\
 `We look at Supreme Court rulings on presidential power and mail-in ballots.`\
 https://www.nytimes.com/2026/06/30/briefing/wins-and-losses-at-the-supreme-court.html
-
-**La deuda de EE. UU. con Venezuela**\
-`Cada vez hay más expectativas sobre lo que el gobierno de Trump podría hacer para ayudar tras dos terremotos devastadores.`\
-https://www.nytimes.com/es/2026/06/30/espanol/mundo/deuda-ee-uu-venezuela-terremotos.html
 
