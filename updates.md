@@ -1,3 +1,7 @@
+**Venezuela Earthquake Victims Seek Shelter Outside**\
+`Many Venezuelans have taken to living in the streets after two devastating earthquakes displaced them from their homes.`\
+https://www.nytimes.com/video/world/americas/venezuela-earthquakes-victims-displaced.html
+
 **Judah Gribetz, Key Negotiator in New York City’s Fiscal Crisis, Dies at 97**\
 `A top aide to Gov. Hugh L. Carey in the 1970s, he was an influential figure in talks between the governor and Abraham D. Beame, the mayor, as the city faced financial collapse.`\
 https://www.nytimes.com/2026/06/30/nyregion/judah-gribetz-dead.html
