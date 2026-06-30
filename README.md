@@ -1,3 +1,11 @@
+**Supreme Court Blocks Trump’s Push to End Birthright Citizenship**\
+`Also, a House Republican says depression led to his long absence. Here's the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/06/30/briefing/supreme-court-birthright-citizenship.html
+
+**Trump Announces Republican Midterm Convention in Dallas, Texas**\
+`Parties normally hold conventions only in presidential years, but President Trump liked the idea of mobilizing Republicans this fall.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-republican-midterm-convention-dallas-texas.html
+
 **Trump Officials Sideline Machado, Venezuela’s Opposition Leader, Over Earthquake Response**\
 `A bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela has angered U.S. officials focused on recovery and stability.`\
 https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.html
@@ -82,8 +90,8 @@ https://www.nytimes.com/2026/06/30/us/politics/trans-athletes-supreme-court-demo
 `The Supreme Court decision puts the court in line with the views of a majority of Americans.`\
 https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-polls.html
 
-**House G.O.P. Revolt Blocks Pentagon Bill**\
-`Ultraconservative lawmakers refused to back a critical procedural measure as they pressed for action on voting legislation championed by President Trump.`\
+**G.O.P. Revolt Paralyzes the House, Stalling Trump Agenda**\
+`A Republican blockade derailed a Pentagon policy bill and other legislation as the far right pressed for action on a voting bill championed by President Trump.`\
 https://www.nytimes.com/2026/06/30/us/politics/republicans-house-defense-elections-save-america.html
 
 **Court Halts Pentagon Rule Requiring Escorts for Journalists**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/30/travel/venezuela-airports-damage-closed.html
 **How Democrats Could Win in Texas**\
 `Our chief political analyst, Nate Cohn, unpacks a New York Times/Siena poll of voters in Texas, where control of the Senate could be decided in the 2026 midterm elections.`\
 https://www.nytimes.com/video/polls/100000010992598/how-democrats-could-win-in-texas.html
-
-**A Barrage of Big Decisions From the Supreme Court**\
-`Readers react to several of the justices’ rulings this week.`\
-https://www.nytimes.com/2026/06/30/opinion/supreme-court-trump-birthright.html
-
-**What the Supreme Court Decisions About Trump’s Firings Mean**\
-`Our chief legal affairs correspondent, Adam Liptak, explains how two Supreme Court rulings on the firings of independent regulators first expand the power of the president, and then carve out an exception.`\
-https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decisions-about-trumps-firings-mean.html
 
