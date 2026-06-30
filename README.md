@@ -1,3 +1,11 @@
+**Beaver Statue Honoring the United States Is Smashed in Toronto**\
+`One of dozens of statues of Canada’s national animal, part of a public art installation for the World Cup, was destroyed. It was the one wearing stars and stripes.`\
+https://www.nytimes.com/2026/06/30/world/canada/world-cup-toronto-beaver-destroyed.html
+
+**John Loring, Longtime Design Director at Tiffany & Company, Dies at 86**\
+`One of the country’s influential tastemakers, he oversaw the rapid expansion of Tiffany in the midst of seismic shifts in luxury retail.`\
+https://www.nytimes.com/2026/06/30/style/john-loring-dead.html
+
 **Aid Workers in Venezuela Fear Disease Outbreaks After Twin Quakes**\
 `Health care workers worry that illnesses like cholera could spread in areas where clean water was already in short supply, and last week’s earthquakes destroyed water systems.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-disease-outbreaks.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-
 **Colorado Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-attorney-general-primary.html
-
-**Colorado Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-secretary-of-state-primary.html
-
-**Colorado Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-2-primary.html
 
