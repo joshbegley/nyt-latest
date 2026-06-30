@@ -1,3 +1,15 @@
+**10-Year-Old Boy Charged With First-Degree Murder in Shooting of Infant Niece**\
+`The boy shot his 7-month-old niece at a St. Louis home with a firearm that had been kept under a mattress, the police said. The baby’s father, who owned the weapon, has also been charged.`\
+https://www.nytimes.com/2026/06/30/us/missouri-baby-shooting-murder.html
+
+**In Copenhagen, a Pioneering Shop Owner Marks Her Next Chapter**\
+`The owner of the Apartment, which introduced the concept of residential retail, invited friends for a dinner in her new gallery and guesthouse.`\
+https://www.nytimes.com/2026/06/30/t-magazine/copenhagen-apartment-next-chapter.html
+
+**In the United States, Every World Cup Team Is a Home Team**\
+`At block parties, backyards and beer halls, an expanded tournament gave immigrant diasporas large and small the chance to revel in support of their home countries.`\
+https://www.nytimes.com/interactive/2026/07/01/us/world-cup-fans.html
+
 **Colorado Handyman Discovers Bear in His Truck Eating His Lunch**\
 `A handyman in Steamboat Springs, Colo., discovered a bear eating his lunch in his truck.`\
 https://www.nytimes.com/video/us/100000011002988/colorado-bear-eats-lunch-truck.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremoto
 **Colorado State House Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-house-primary.html
-
-**Colorado Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-primary.html
-
-**Colorado Governor Primary 2026: Live Election Results, Bennet vs. Weiser**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-governor-primary.html
-
-**Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate-primary.html
 
