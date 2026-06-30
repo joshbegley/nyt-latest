@@ -1,3 +1,7 @@
+**Parcel Bomb Explodes in Monaco, Injuring 3**\
+`The blast seriously injured three people, including a child, according to the authorities, who said the assailant was on the run.`\
+https://www.nytimes.com/2026/06/30/world/europe/monaco-parcel-bomb-explosion.html
+
 **Prominent Tech Founder in Indonesia Is Found Guilty in Corruption Case**\
 `The case against Nadiem Makarim, a co-founder of Gojek, has fueled concerns about judicial fairness in a nation where foreign investors were already growing wary.`\
 https://www.nytimes.com/2026/06/30/business/indonesia-trial-nadiem-makarim.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/travel/car-seat-traveling-tip.html
 **For Lifelong Runners, Quitting Can Feel Like a Form of Grief**\
 `For those who rely on the sport for identity and community, leaving it behind can feel like a form of grief.`\
 https://www.nytimes.com/2026/06/30/well/move/running-loss-grief.html
-
-**What Is the Difference Between a Tiny Home, an R.V. and an A.D.U.?**\
-`Interest continues to grow for minimalist, often mobile, houses with no room to spare.`\
-https://www.nytimes.com/2026/06/30/realestate/tiny-home-explainer-living-small.html
 
