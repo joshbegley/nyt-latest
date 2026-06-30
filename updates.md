@@ -1,3 +1,15 @@
+**Former Chinese Billionaire and Bannon Associate Is Sentenced for Fraud**\
+`The businessman courted U.S. conservatives as an anti-Communist crusader while using his supporters’ money to buy lavish homes and a Bugatti supercar.`\
+https://www.nytimes.com/2026/06/29/us/guo-wengui-sentencing.html
+
+**In Michigan, the Most Moderate Candidate May Not Be the Most Electable**\
+`The case for Haley Stevens’s candidacy rests on electability, but it’s far from clear how electable she really is.`\
+https://www.nytimes.com/2026/06/29/opinion/haley-stevens-michigan-democrats.html
+
+**Judge Orders Trump to End Efforts to Kill Hudson Tunnel Funding**\
+`Federal judge says that the administration’s attempts to block money for the $16 billion rail project were “flagrantly” illegal.`\
+https://www.nytimes.com/2026/06/29/nyregion/hudson-tunnel-trump-funding-judge-ruling.html
+
 **California Hopes to Speed Up Election Results With $40 Million Infusion**\
 `It took six days to determine the outcome of the primary for Los Angeles mayor, and seven for the governor’s race.`\
 https://www.nytimes.com/2026/06/29/us/california-election-ballot-counting-money.html
