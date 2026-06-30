@@ -1,3 +1,15 @@
+**Former Chinese Billionaire and Bannon Associate Is Sentenced for Fraud**\
+`The businessman courted U.S. conservatives as an anti-Communist crusader while using his supporters’ money to buy lavish homes and a Bugatti supercar.`\
+https://www.nytimes.com/2026/06/29/us/guo-wengui-sentencing.html
+
+**In Michigan, the Most Moderate Candidate May Not Be the Most Electable**\
+`The case for Haley Stevens’s candidacy rests on electability, but it’s far from clear how electable she really is.`\
+https://www.nytimes.com/2026/06/29/opinion/haley-stevens-michigan-democrats.html
+
+**Judge Orders Trump to End Efforts to Kill Hudson Tunnel Funding**\
+`Federal judge says that the administration’s attempts to block money for the $16 billion rail project were “flagrantly” illegal.`\
+https://www.nytimes.com/2026/06/29/nyregion/hudson-tunnel-trump-funding-judge-ruling.html
+
 **California Hopes to Speed Up Election Results With $40 Million Infusion**\
 `It took six days to determine the outcome of the primary for Los Angeles mayor, and seven for the governor’s race.`\
 https://www.nytimes.com/2026/06/29/us/california-election-ballot-counting-money.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/06/29/nyregion/mangione-federal-trial-delay.html
 **Alex Murdaugh’s Murder Retrial Tentatively Set for April 2027**\
 `The move comes after a court overturned his murder convictions. A judge still needs to decide the location of the trial and what evidence will be allowed.`\
 https://www.nytimes.com/2026/06/29/us/alex-murdaugh-murder-retrial-date.html
-
-**Pakistan Launches Deadly Strikes in Afghanistan**\
-`The United Nations’ mission in Afghanistan said that at least 28 civilians were killed and several others were injured in Pakistani airstrikes on eastern Afghanistan on Sunday.`\
-https://www.nytimes.com/video/world/asia/100000010998779/afghanistan-pakistan-airstrikes.html
-
-**Why Trump Is Giving Republicans Midterms Anxiety**\
-`Ahead of the midterms, Republicans have sought to focus on the issue of affordability, but the president keeps going off script. Our White House correspondent Tyler Pager explains.`\
-https://www.nytimes.com/video/us/politics/100000010993276/why-trump-is-giving-republicans-midterms-anxiety.html
-
-**Another Trump Administration Payment to Stop Offshore Wind Farm**\
-`It was the fourth such deal struck by the administration to get companies to forfeit their offshore wind leases.`\
-https://www.nytimes.com/2026/06/29/climate/trump-offshore-wind-duke-energy.html
 
