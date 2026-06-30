@@ -1,3 +1,7 @@
+**Norway’s “Viking Row” Craze Takes Over World Cup**\
+`Norway’s “Viking Row” cheer, where fans mimic the rowing of a longship while chanting, “Ro!” has taken over stadiums, schools and parliament during the World Cup.`\
+https://www.nytimes.com/video/sports/world-cup/100000011000829/world-cup-viking-row.html
+
 **Para revelar las raíces rítmicas de la risa, basta con hacerle cosquillas a un simio**\
 `Un estudio realizado con chimpancés, gorilas y otros grandes simios, además de niños humanos, arroja luz sobre la evolución de la risa.`\
 https://www.nytimes.com/es/2026/06/30/espanol/para-revelar-las-raices-ritmicas-de-la-risa-basta-con-hacerle-cosquillas-a-un-simio.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/06/29/us/trump-intelligence-agencies-spies-master-l
 **En Venezuela, comienzan los funerales de las víctimas de los terremotos**\
 `Los venezolanos empezaron a enterrar a algunas de las más de 1700 víctimas de los sismos de la semana pasada, y comparten historias de pérdidas inimaginables.`\
 https://www.nytimes.com/es/2026/06/29/espanol/america-latina/venezuela-terremotos-funerales.html
-
-**Cómo Rusia intenta ocultar los efectos de la guerra**\
-`Ahora que Ucrania lleva la guerra a territorio ruso, autoridades y medios estatales minimizan el impacto, generando confusión y frustración entre los ciudadanos.`\
-https://www.nytimes.com/es/2026/06/29/espanol/mundo/rusia-guerra-ucrania-drones.html
 
