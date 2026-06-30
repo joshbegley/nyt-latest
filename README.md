@@ -1,3 +1,11 @@
+**Oberon Brings Artful Dining to the New Museum**\
+`Bark Barbecue serves a Caribbean take on the genre in Bushwick, Brooklyn, Titán brings a Mexican collaboration to Dumbo and more restaurant news.`\
+https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
+
+**NPR Retracts Article Falsely Suggesting Justice Alito Retired**\
+`The news outlet quickly removed the article, which was written by NPR’s seasoned Supreme Court reporter, Nina Totenberg, from its website.`\
+https://www.nytimes.com/2026/06/30/business/media/npr-samuel-alito-nina-totenberg.html
+
 **Three Great Documentaries to Stream**\
 `This month’s picks check the pulse of 1960s Paris, explore David Hockney’s artistry and paint an intimate portrait of mortality.`\
 https://www.nytimes.com/2026/06/30/movies/great-documentaries-streaming.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/es/2026/06/30/espanol/mundo/tango-turquia.html
 `Five days after devastating twin earthquakes flattened entire residential neighborhoods, experts fear the official death toll of 1,719 could be a serious undercount.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-death-toll.html
 
-**When Sly Stone Got Married at M.S.G., He Had 20,000 Fans There With Him**\
-`A celebrity wedding at the New York arena? The funk and soul star did just that in 1974.`\
-https://www.nytimes.com/2026/06/30/arts/music/sly-stone-taylor-swift-msg-wedding.html
-
-**Interns and Inequality in New York**\
-`A debate about paid and unpaid interns in the City Council has put a spotlight on fairness issues around internships.`\
-https://www.nytimes.com/2026/06/30/nyregion/interns-and-inequality-in-new-york.html
-
-**Corrections: June 30, 2026**\
-`Corrections that appeared in print on Tuesday, June 30, 2026.`\
-https://www.nytimes.com/2026/06/30/pageoneplus/corrections-june-30-2026.html
+**Death Toll Tops 1,700 as Hopes Fade of Finding Quake Survivors**\
+`The government said it had not given up on pulling people alive from the wreckage, but there were few rescues on the fifth day.`\
+https://www.nytimes.com/live/2026/06/29/world/venezuela-earthquake-news
 
