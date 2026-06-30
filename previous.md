@@ -50,7 +50,7 @@ https://www.nytimes.com/video/world/europe/100000011001237/monaco-parcel-bomb-ex
 `The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes.html
 
-**Live Updates: Supreme Court Allows States to Bar Transgender Athletes from Girls’ Sports**\
+**Live Updates: Supreme Court Allows States to Bar Transgender Athletes From Girls’ Sports**\
 `The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions. President Trump hailed the ruling as a major victory.`\
 https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
 

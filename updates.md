@@ -1,3 +1,7 @@
+**Live Updates: Supreme Court Allows States to Bar Transgender Athletes From Girls’ Sports**\
+`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions. President Trump hailed the ruling as a major victory.`\
+https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
+
 **Courtney Sale Ross, Founder and Funder of a Quirky School, Dies at 78**\
 `Instead of home-schooling her daughter, she spent hundreds of millions of dollars building an idiosyncratic educational institution in the Hamptons.`\
 https://www.nytimes.com/2026/06/30/education/courtney-sale-ross-dead.html
