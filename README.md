@@ -1,3 +1,7 @@
+**C.I.A. Reorganization Prioritizes Cyberoperations**\
+`John Ratcliffe, the C.I.A. director, said that the agency would take “smart risks,” but that people would have oversight of artificial intelligence.`\
+https://www.nytimes.com/2026/06/30/us/politics/cia-reorganization-cyber-ai.html
+
 **A Hot and Deadly Start to Wildfire Season**\
 `Thousands of acres in Utah and other Western states have burned as a U.S. heat wave widens.`\
 https://www.nytimes.com/2026/06/30/climate/heat-wave-wildfires.html
@@ -138,13 +142,13 @@ https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decision
 `Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
 https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
 
-**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
-`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
-https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
-
 **Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
 `Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
 https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
+
+**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
+`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
+https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
 
 **Tom Kean Cites Depression as Reason for Long Absence from Congress**\
 `Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/30/world/europe/germany-shooting-stade-world-cup
 **Otro ataque de drones en Moscú aumenta la presión sobre Putin**\
 `Mientras interrumpe el suministro de combustible ruso e intensifica su campaña para aislar Crimea, Ucrania volvió a atacar a la capital rusa.`\
 https://www.nytimes.com/es/2026/06/30/espanol/mundo/guerra-rusia-ucrania-putin-drones.html
-
-**Flashback 250: The Great U.S. History Quiz**\
-`Can you sort 25 historical events — before getting three wrong answers?`\
-https://www.nytimes.com/interactive/2026/06/30/upshot/flashback.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
