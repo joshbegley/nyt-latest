@@ -1,3 +1,11 @@
+**Más de un millón de migrantes solicitan la regularización en España**\
+`El programa, que inició a finales de abril, está destinado a incorporar a los migrantes indocumentados al mercado laboral formal.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/espana-regularizacion-inmigrantes-millon-residencia-trabajo.html
+
+**Trans Sports Ruling Puts Pressure on States Without Bans**\
+`Almost half of states do not prohibit trans girls and women from competing. The Supreme Court ruling doesn’t force them to, but lawmakers and voters could change that.`\
+https://www.nytimes.com/2026/06/30/us/politics/trans-athletes-supreme-court-democratic-states.html
+
 **55% of Americans support birthright citizenship.**\
 `The Supreme Court decision puts the court in line with the views of a majority of Americans.`\
 https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-polls.html

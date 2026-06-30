@@ -1,3 +1,11 @@
+**Más de un millón de migrantes solicitan la regularización en España**\
+`El programa, que inició a finales de abril, está destinado a incorporar a los migrantes indocumentados al mercado laboral formal.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/espana-regularizacion-inmigrantes-millon-residencia-trabajo.html
+
+**Trans Sports Ruling Puts Pressure on States Without Bans**\
+`Almost half of states do not prohibit trans girls and women from competing. The Supreme Court ruling doesn’t force them to, but lawmakers and voters could change that.`\
+https://www.nytimes.com/2026/06/30/us/politics/trans-athletes-supreme-court-democratic-states.html
+
 **55% of Americans support birthright citizenship.**\
 `The Supreme Court decision puts the court in line with the views of a majority of Americans.`\
 https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-polls.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/06/30/opinion/supreme-court-birthright-citizenship-
 **The Supreme Court Just Gave the G.O.P. a New Midterm Edge**\
 `The decision, which allows parties to spend more in coordination with candidates, is likely to further expand the power of big money in American politics.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-midterms-campaign-finance.html
-
-**The 1952 Law That Was Central to the Birthright Citizenship Case**\
-`When Congress passed a sweeping immigration reform measure after World War II, it included language that mirrored the 14th Amendment’s citizenship clause — and perhaps even took it a step further.`\
-https://www.nytimes.com/2026/06/30/us/politics/1952-immigration-nationality-act-birthright-citizenship.html
-
-**It’s Soccer, but Set to Disco. And May the Best Dancers Win.**\
-`“Discofoot,” a dance showdown and soccer game played to disco hits, originated in France. Last weekend, in honor of the World Cup, it had its U.S. premiere.`\
-https://www.nytimes.com/2026/06/30/arts/dance/discofoot-soccer-dance-world-cup.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
