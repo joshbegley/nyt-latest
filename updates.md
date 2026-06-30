@@ -1,3 +1,7 @@
+**World Cup Loss Dominates German News, Displacing Even a Mass Shooting**\
+`A day after a deadly attack in northern Germany, the news media’s attention largely shifted to the country’s poor performance at the World Cup.`\
+https://www.nytimes.com/2026/06/30/world/europe/germany-shooting-stade-world-cup.html
+
 **Otro ataque de drones en Moscú aumenta la presión sobre Putin**\
 `Mientras interrumpe el suministro de combustible ruso e intensifica su campaña para aislar Crimea, Ucrania volvió a atacar a la capital rusa.`\
 https://www.nytimes.com/es/2026/06/30/espanol/mundo/guerra-rusia-ucrania-putin-drones.html
