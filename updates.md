@@ -1,3 +1,7 @@
+**After U.S.-Iran War, Oman Is Said to Propose Strait of Hormuz Fee Plan**\
+`Under the proposal, Iran and Oman would collect payment for ships passing through the Strait of Hormuz, according to officials and diplomats with knowledge of the matter.`\
+https://www.nytimes.com/2026/06/30/world/middleeast/iran-war-oman-strait-hormuz-fee-ships.html
+
 **N.I.H. Announces World’s Largest Integrated Health Database**\
 `It contains more than half a million people’s genomes, paired with clinical records and wearable tech data. That gives researchers unmatched power to study both diseases and treatments.`\
 https://www.nytimes.com/2026/06/30/science/nih-announces-worlds-largest-integrated-health-database.html
