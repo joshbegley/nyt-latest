@@ -1,8 +1,12 @@
+**Nicolás Maduro es demandado en EE. UU. por asesinatos de 5 jóvenes en Caracas**\
+`Este caso representa un intento poco habitual de hacer responsable a un jefe de Estado ante un tribunal de Estados Unidos.`\
+https://www.nytimes.com/es/2026/06/30/espanol/america-latina/demanda-maduro-brooklyn-asesinato.html
+
 **After a Tap Heard in Rubble, U.S. Rescue Teams Begin a Grueling Marathon**\
 `Surrounded by the devastation of Venezuela’s earthquakes, emergency specialists from California, Virginia and Florida work with locals to search for survivors.`\
 https://www.nytimes.com/2026/06/30/us/american-rescue-teams-venezuela-earthquake.html
 
-**Trump Had a Billion Dollar Windfall After Returning to the White House**\
+**Trump Had a Billion-Dollar Windfall After Returning to the White House**\
 `The release of a mandatory financial disclosure for 2025 shows that the Trump family’s holdings, particularly the president’s crypto businesses, were stunningly lucrative.`\
 https://www.nytimes.com/2026/06/30/us/politics/trump-financial-disclosure-crypto-windfall.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-
 **Colorado Fourth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-4-primary.html
-
-**Colorado Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
 
