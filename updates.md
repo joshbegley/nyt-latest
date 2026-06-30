@@ -1,3 +1,15 @@
+**Las labores de rescate en Venezuela se vuelven cada vez más desesperadas**\
+`Venezuela ya superó las 72 horas que los expertos en gestión de desastres consideran críticas para encontrar sobrevivientes. El número de muertos ha subido a más de 1700, aunque es probable que la cifra real sea mayor.`\
+https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-rescate-sobrevivientes-victimas.html
+
+**Supreme Court Ruling on Trans Athletes Leaves Advocates Crestfallen**\
+`The ruling upholding two state laws blocking transgender athletes from participating in girls’ and women’s sports was the latest in a series of defeats.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-trans-athletes-decision-reactions.html
+
+**Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
+`Bending Spoons, an Italian company that buys aging internet companies, is going public this week at a potential value of $19 billion.`\
+https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
+
 **What to Know About the Supreme Court’s Birthright Citizenship Order**\
 `The decision ends one of the most aggressive parts of Trump’s immigration agenda. But hundreds of other restrictions have taken effect.`\
 https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-order-explained.html
