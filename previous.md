@@ -36,7 +36,7 @@ https://www.nytimes.com/es/2026/06/30/espanol/mundo/tango-turquia.html
 
 **Why the True Death Toll of Venezuela’s Quakes Is So Hard to Know**\
 `Five days after devastating twin earthquakes flattened entire residential neighborhoods, experts fear the official death toll of 1,719 could be a serious undercount.`\
-https://www.nytimes.com/2026/06/30/world/americas/venezuela-quakes-death-toll.html
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-death-toll.html
 
 **When Sly Stone Got Married at M.S.G., He Had 20,000 Fans There With Him**\
 `A celebrity wedding at the New York arena? The funk and soul star did just that in 1974.`\

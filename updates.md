@@ -1,3 +1,7 @@
+**Why the True Death Toll of Venezuela’s Quakes Is So Hard to Know**\
+`Five days after devastating twin earthquakes flattened entire residential neighborhoods, experts fear the official death toll of 1,719 could be a serious undercount.`\
+https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-death-toll.html
+
 **Fourth of July Heat Wave Forecast: Here Are the Day-by-Day Temperatures**\
 `A day-by-day breakdown of where dangerous heat is expected through the Fourth of July weekend.`\
 https://www.nytimes.com/2026/06/30/weather/july-fourth-heat-wave-forecast.html
