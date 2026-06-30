@@ -1,3 +1,15 @@
+**Restaurant Review: Kaiseki in the East Village**\
+`The stripped down location of the chef Hiroki Odo’s restaurant takes an à la carte approach to the Japanese meal.`\
+https://www.nytimes.com/2026/06/30/dining/brief-restaurant-review-odo-east-village.html
+
+**Mapa: un terremoto de magnitud 6,0 se registra en la costa de México**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/06/30/espanol/mexico-sismo-temblor.html
+
+**Map: 6.0-Magnitude Earthquake Shakes Off Mexico's Coast**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/30/world/quake-tracker-gulf-of-california.html
+
 **Ciudadanía por nacimiento en EE. UU.: lo que hay que saber del fallo de la Corte Suprema**\
 `Defensores de los derechos civiles y de los migrantes aplaudieron la decisión, pero advirtieron que el miedo causado por la persecución del gobierno de Trump seguiría presente.`\
 https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/ciudadania-nacimiento-trump-corte-que-pasa.html
