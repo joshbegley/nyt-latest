@@ -6,8 +6,8 @@ https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
 `Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
 https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
 
-**Live Updates: Supreme Court Upholds Birthright Citizenship**\
-`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+**Live Updates: Supreme Court Rejects Trump’s Effort to End Birthright Citizenship**\
+`The justices blocked an executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/supreme-court-birthright-citizenship
 
 **Read the Supreme Court Decision Upholding Bans on Transgender Athletes in Women’s Sports**\
@@ -17,6 +17,10 @@ https://www.nytimes.com/interactive/2026/06/30/us/scotus-trans.html
 **Manhunt Underway After Parcel Bomb Explodes in Monaco**\
 `An international manhunt was underway on Tuesday after a parcel bomb exploded in Monaco, seriously injuring three people.`\
 https://www.nytimes.com/video/world/europe/100000011001237/monaco-parcel-bomb-explosion-manhunt.html
+
+**Supreme Court Allows States to Bar Transgender Athletes From Girls’ Sports**\
+`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes.html
 
 **Live Updates: Supreme Court Allows States to Bar Transgender Athletes from Girls’ Sports**\
 `The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/world/europe/italy-soccer-world-cup-national-
 **Horror Fans Bid a Bittersweet Farewell to an Empty Mall Full of Zombies**\
 `Thousands flocked to a soon-to-close shopping center near Pittsburgh for a celebration of George A. Romero’s “Dawn of the Dead.”`\
 https://www.nytimes.com/2026/06/30/movies/dawn-dead-mall-romero.html
-
-**‘Bang My Box: The Robin Byrd Story’ Review: Sex for the City**\
-`A New York City pioneer of cable-access programming is given a lively tribute in this cheekily diverting documentary.`\
-https://www.nytimes.com/2026/06/30/movies/bang-my-box-the-robin-byrd-story-review.html
 
