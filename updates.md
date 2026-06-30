@@ -1,3 +1,15 @@
+**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll of 656 likely voters conducted from June 19 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/06/30/polls/times-siena-texas-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll of 656 likely voters conducted from June 19 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/06/30/polls/times-siena-texas-poll-toplines.html
+
+**Australian Man Charged With Homicide After Thai Teen’s Body Found in Suitcase**\
+`The 17-year-old’s remains were found abandoned near railroad tracks in Pattaya. The suspect was arrested while trying to leave the country.`\
+https://www.nytimes.com/2026/06/30/world/asia/australian-thailand-teenager-murder-suitcase.html
+
 **Dangerous Heat Wave Spreads Across U.S.**\
 `Intense heat is expected across much of the United States through the Fourth of July holiday weekend. The temperatures could break daily records in some parts of the country as the heat spreads east.`\
 https://www.nytimes.com/video/weather/100000011000844/us-heat-wave.html

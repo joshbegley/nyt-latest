@@ -1,3 +1,15 @@
+**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll of 656 likely voters conducted from June 19 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/06/30/polls/times-siena-texas-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll of 656 likely voters conducted from June 19 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/06/30/polls/times-siena-texas-poll-toplines.html
+
+**Australian Man Charged With Homicide After Thai Teen’s Body Found in Suitcase**\
+`The 17-year-old’s remains were found abandoned near railroad tracks in Pattaya. The suspect was arrested while trying to leave the country.`\
+https://www.nytimes.com/2026/06/30/world/asia/australian-thailand-teenager-murder-suitcase.html
+
 **Dangerous Heat Wave Spreads Across U.S.**\
 `Intense heat is expected across much of the United States through the Fourth of July holiday weekend. The temperatures could break daily records in some parts of the country as the heat spreads east.`\
 https://www.nytimes.com/video/weather/100000011000844/us-heat-wave.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/29/world/middleeast/abdul-ahad-momand-dead.html
 **George Gresham, Health Care Union Powerhouse, Dies at 71**\
 `Until he lost an election last year amid accusations of self-enrichment, he was a longtime influential force in Democratic politics in New York.`\
 https://www.nytimes.com/2026/06/29/nyregion/george-gresham-dead.html
-
-**Las mejores películas de 2026, hasta ahora**\
-`Si aún no las has visto, este es un buen momento para ponerte al día. Estas son las producciones favoritas de nuestros críticos.`\
-https://www.nytimes.com/es/2026/06/29/espanol/cultura/mejores-peliculas-ano.html
-
-**Supreme Court Expands Presidential Powers to Fire Independent Regulators**\
-`The Supreme Court ruled 6-3 that President Trump could fire independent regulators for any reason. But the justices carved out an exception for the Federal Reserve, preventing the immediate removal of Lisa D. Cook, a Federal Reserve governor.`\
-https://www.nytimes.com/video/us/politics/100000010998994/trump-supreme-court-rulings-federal-reserve.html
-
-**La ciencia detrás de los alimentos fermentados**\
-`Los investigadores empiezan a comprender cómo alimentos como el kimchi, el yogur y el chucrut influyen en la salud.`\
-https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-beneficios.html
 
