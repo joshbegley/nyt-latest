@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/06/30/business/oil-gas-prices-iran.html
 https://www.nytimes.com/2026/06/30/podcasts/inside-pablo-torre-finds-out-dan-le-batard.html
 
 **China Increases Military and Economic Pressure on Japan**\
-`Beijing’s latest pressure tactics include flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
+`Beijing’s moves have included flying bombers near Japan, detaining businesspeople and restricting the exports of rare earths.`\
 https://www.nytimes.com/2026/06/30/world/asia/china-japan-rare-earths-patrols.html
 
 **Can You Really Be a Working-Class Party if There Are Very Few Workers in Your Party?**\
