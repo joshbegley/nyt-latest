@@ -1,3 +1,11 @@
+**NYT Crossword Answers for June 30, 2026**\
+`John Liber makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/06/29/crosswords/d.html
+
+**Judge Orders Trump to End Efforts to Kill Hudson Tunnel Funding**\
+`A federal judge says that the administration’s attempts to block money for the $16 billion rail project were “flagrantly” illegal.`\
+https://www.nytimes.com/2026/06/29/nyregion/hudson-tunnel-trump-funding-judge-ruling.html
+
 **Daveigh Chase, voz de ‘Lilo & Stitch’, murió a causa del sida**\
 `Chase era la voz de Lilo y también interpretó a la niña villana en la película de terror “El aro”. Falleció en Los Ángeles este mes.`\
 https://www.nytimes.com/es/2026/06/29/espanol/daveigh-chase-murio-sida.html
