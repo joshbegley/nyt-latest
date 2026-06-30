@@ -1,3 +1,7 @@
+**With New Seizures, Value of the Met’s Looted Artifacts Tops $95 Million**\
+`The Manhattan district attorney’s office said it secured the return of dozens of ancient artifacts in June, after a process that the museum described as collaborative.`\
+https://www.nytimes.com/2026/06/30/arts/design/met-returns-looted-artifacts-95-million.html
+
 **Marc Jacobs Looks on the Bright Side**\
 `His brand has a new owner and the future may be uncertain, but color him ready.`\
 https://www.nytimes.com/2026/06/30/style/marc-jacobs-spring-2027.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/magazine/florida-death-penalty.html
 **The Prom Went On in Kyiv, but Masha’s Date Danced Alone**\
 `Masha Polska, 15, was an avid dancer who had been dreaming of a star turn in the group waltz. That was not to be.`\
 https://www.nytimes.com/2026/06/30/world/europe/russia-ukraine-prom.html
-
-****\
-`Laura on the swing she liked to visit with her best friend Masha.`\
-https://www.nytimes.com/video/embedded/world/europe/100000010998829/30int-ukraine-prom-91467.html
 
