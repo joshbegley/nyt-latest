@@ -1,3 +1,7 @@
+**John Oliver Dives Into Trump’s Pet Project: A ‘Giant Duck Death Trap’**\
+`The “Last Week Tonight” host said the United States was “dealing with a literal swamp of corruption” for its 250th birthday.`\
+https://www.nytimes.com/2026/06/30/arts/television/john-oliver-lincoln-memorial-pool-ducks.html
+
 **Trump cerró un acuerdo minero y sus hijos se beneficiarán**\
 `Un acuerdo entre EE. UU. y Kazajistán ha dado a un grupo de inversores vinculados al presidente y al secretario de Comercio acceso a una de las mayores reservas de tungsteno sin explotar del mundo.`\
 https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/minas-hijos-trump.html
