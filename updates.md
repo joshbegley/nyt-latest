@@ -1,3 +1,23 @@
+**10-Year-Old Boy Charged With First-Degree Murder in Shooting of Infant Niece**\
+`The boy shot his 7-month-old niece at a St. Louis home with a firearm that had been kept under a mattress, the police said. The baby’s father, who owned the weapon, has also been charged.`\
+https://www.nytimes.com/2026/06/30/us/missouri-baby-shooting-murder.html
+
+**In Copenhagen, a Pioneering Shop Owner Marks Her Next Chapter**\
+`The owner of the Apartment, which introduced the concept of residential retail, invited friends for a dinner in her new gallery and guesthouse.`\
+https://www.nytimes.com/2026/06/30/t-magazine/copenhagen-apartment-next-chapter.html
+
+**In the United States, Every World Cup Team Is a Home Team**\
+`At block parties, backyards and beer halls, an expanded tournament gave immigrant diasporas large and small the chance to revel in support of their home countries.`\
+https://www.nytimes.com/interactive/2026/07/01/us/world-cup-fans.html
+
+**Colorado Handyman Discovers Bear in His Truck Eating His Lunch**\
+`A handyman in Steamboat Springs, Colo., discovered a bear eating his lunch in his truck.`\
+https://www.nytimes.com/video/us/100000011002988/colorado-bear-eats-lunch-truck.html
+
+**Trump Officials Sideline Machado, Venezuela’s Opposition Leader, Over Earthquake Response**\
+`U.S. officials called a bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela a “political stunt” that has distracted from recovery efforts.`\
+https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.html
+
 **For Many Americans, Depression Is Familiar. Here’s What We Know.**\
 `Representative Thomas Kean Jr. announced he had been hospitalized for depression. More than one in four U.S. adults report having been diagnosed with the condition.`\
 https://www.nytimes.com/2026/06/30/nyregion/depression-thomas-kean-symptoms-treatment.html
