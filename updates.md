@@ -1,3 +1,15 @@
+**It’s Soccer, but Set to Disco. And May the Best Dancers Win.**\
+`“Discofoot,” a dance showdown and soccer game played to disco hits, originated in France. Last weekend, in honor of the World Cup, it had its U.S. premiere.`\
+https://www.nytimes.com/2026/06/30/arts/dance/discofoot-soccer-dance-world-cup.html
+
+**Ontario and Quebec Face Heat Warnings as High Temperatures Spread Across Canada**\
+`Parts of Ontario and Quebec will be well above normal temperatures this week as a heat wave spreads over North America.`\
+https://www.nytimes.com/2026/06/30/weather/ontario-quebec-canada-heat-wave.html
+
+**Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
+`President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
+
 **Bending Spoons, Owner of AOL and Other Old Internet Brands, Is Going Public**\
 `Bending Spoons, an Italian company that bought aging internet companies like AOL, Evernote and Vimeo, is going public this week at a potential value of $19 billion.`\
 https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-eventbrite.html
