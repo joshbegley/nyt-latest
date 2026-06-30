@@ -1,3 +1,7 @@
+**How the Supreme Court Ushered in Corporate Chaos in D.C.**\
+`Though the high court affirmed the political independence of the Federal Reserve, it gave the presidency huge control over dozens of federal regulators.`\
+https://www.nytimes.com/2026/06/30/business/dealbook/supreme-court-fed-ftc-regulatory-agencies.html
+
 **The 1968 Pact on Shipping Routes in the Strait of Hormuz That Iran Is Rejecting**\
 `For decades, a maritime agreement negotiated by Iran and Oman has governed the main pathways through the strait.`\
 https://www.nytimes.com/2026/06/30/world/middleeast/the-1968-pact-on-shipping-routes-in-the-strait-of-hormuz-that-iran-is-rejecting.html

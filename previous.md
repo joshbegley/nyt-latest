@@ -1,3 +1,7 @@
+**How the Supreme Court Ushered in Corporate Chaos in D.C.**\
+`Though the high court affirmed the political independence of the Federal Reserve, it gave the presidency huge control over dozens of federal regulators.`\
+https://www.nytimes.com/2026/06/30/business/dealbook/supreme-court-fed-ftc-regulatory-agencies.html
+
 **The 1968 Pact on Shipping Routes in the Strait of Hormuz That Iran Is Rejecting**\
 `For decades, a maritime agreement negotiated by Iran and Oman has governed the main pathways through the strait.`\
 https://www.nytimes.com/2026/06/30/world/middleeast/the-1968-pact-on-shipping-routes-in-the-strait-of-hormuz-that-iran-is-rejecting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/opinion/congress-scotus-trump-slaughter.html
 **How Grindr’s C.E.O. Adopted A.I.: ‘I Just Imposed It’**\
 `George Arison, the gay dating app’s chief executive, is aiming for all code to be eventually written by artificial intelligence, making the company “leaner.”`\
 https://www.nytimes.com/2026/06/30/business/grindr-ceo-george-arison-ai.html
-
-**How to Travel With a Car Seat**\
-`Cumbersome car seats are a perennial headache for parents who take trips with their little ones, but the right gear and a little creativity can ease the burden.`\
-https://www.nytimes.com/2026/06/30/travel/car-seat-traveling-tip.html
 
