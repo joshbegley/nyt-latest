@@ -1,3 +1,11 @@
+**What Tom Kean Did and Didn’t Explain About His Absence**\
+`Representative Thomas Kean Jr., a New Jersey Republican, has finally reappeared in Congress. Questions remain about his nearly four-month absence from public life, which he said was due to depression.`\
+https://www.nytimes.com/2026/06/30/nyregion/tom-kean-new-jersey-absence.html
+
+**Rays of Hope in Dark Times**\
+`It’s time to update Learned Hand’s great “Spirit of Liberty” address.`\
+https://www.nytimes.com/2026/06/30/opinion/america-250-us-liberty-learned-hand.html
+
 **Talarico Seizes on Paxton Tabloid Story to Test Corruption Attacks in Texas Senate Race**\
 `After a salacious report about Ken Paxton, the Republican nominee for Senate in Texas, his Democratic rival, James Talarico, seized on the news — but focused on corruption and affordability.`\
 https://www.nytimes.com/2026/06/30/us/politics/paxton-talarico-corruption-affordability-texas.html

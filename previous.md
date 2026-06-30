@@ -1,3 +1,7 @@
+**What Tom Kean Did and Didn’t Explain About His Absence**\
+`Representative Thomas Kean Jr., a New Jersey Republican, has finally reappeared in Congress. Questions remain about his nearly four-month absence from public life, which he said was due to depression.`\
+https://www.nytimes.com/2026/06/30/nyregion/tom-kean-new-jersey-absence.html
+
 **Talarico Seizes on Paxton Tabloid Story to Test Corruption Attacks in Texas Senate Race**\
 `After a salacious report about Ken Paxton, the Republican nominee for Senate in Texas, his Democratic rival, James Talarico, seized on the news — but focused on corruption and affordability.`\
 https://www.nytimes.com/2026/06/30/us/politics/paxton-talarico-corruption-affordability-texas.html
@@ -42,8 +46,8 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
 `The Supreme Court upheld West Virginia and Idaho state laws on Tuesday that bar transgender athletes from playing on girls’ and women’s sports teams.`\
 https://www.nytimes.com/video/us/politics/100000011001543/scotus-supreme-court-transgender-athletes.html
 
-**What Is the ‘Spirit of Liberty’ Today?**\
-`It’s time to update Learned Hand’s great 1944 address.`\
+**Rays of Hope in Dark Times**\
+`It’s time to update Learned Hand’s great “Spirit of Liberty” address.`\
 https://www.nytimes.com/2026/06/30/opinion/america-250-us-liberty-learned-hand.html
 
 **China’s Plan to Save Jobs From A.I.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-
 **Colorado Seventh Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-7-primary.html
-
-**Colorado First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-1-primary.html
 
