@@ -1,3 +1,19 @@
+**Trump cerró un acuerdo minero y sus hijos se beneficiarán**\
+`Un acuerdo entre EE. UU. y Kazajistán ha dado a un grupo de inversores vinculados al presidente y al secretario de Comercio acceso a una de las mayores reservas de tungsteno sin explotar del mundo.`\
+https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/minas-hijos-trump.html
+
+**La hipocresía de la Corte Suprema**\
+`El máximo tribunal de Estados Unidos está otorgando nuevos poderes a un presidente que con frecuencia actúa como un aspirante a autócrata.`\
+https://www.nytimes.com/es/2026/06/30/espanol/opinion/corte-suprema-estados-unidos-poderes-trump.html
+
+**Pope Leo’s Showdown With the Church’s Radical Right**\
+`An impending clash between Pope Leo and ultratraditionalist Catholics threatens to end the pontiff’s honeymoon.`\
+https://www.nytimes.com/2026/06/30/opinion/pope-leo-latin-mass-catholic-church.html
+
+**Venezuela’s Tragedy Is Bigger Than the Earthquakes**\
+`Venezuela’s natural disaster was unavoidable, but the devastation it has left in its wake was not.`\
+https://www.nytimes.com/2026/06/30/opinion/venezuela-earthquake-tragedy.html
+
 **¿Por qué los aficionados de Noruega hacen un ‘remo vikingo’ en el Mundial?**\
 `Multitudes de aficionados noruegos vestidos de rojo reman codo con codo en estadios, colegios e incluso en una residencia de ancianos. No todo el mundo está encantado.`\
 https://www.nytimes.com/es/2026/06/30/espanol/deportes/noruega-remo-vikingo-mundial.html
