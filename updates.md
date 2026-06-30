@@ -1,3 +1,19 @@
+**Takeaways From a Transformative Supreme Court Term**\
+`The justices rejected some of President Trump’s signature initiatives, but delivered lasting, long-sought conservative wins.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
+
+**U.S. Supreme Court Allows States to Ban Transgender Athletes on Girls’ Teams**\
+`The Supreme Court upheld West Virginia and Idaho state laws on Tuesday that bar transgender athletes from playing on girls’ and women’s sports teams.`\
+https://www.nytimes.com/video/us/politics/100000011001543/scotus-supreme-court-transgender-athletes.html
+
+**What Is the ‘Spirit of Liberty’ Today?**\
+`It’s time to update Learned Hand’s great 1944 address.`\
+https://www.nytimes.com/2026/06/30/opinion/america-250-us-liberty-learned-hand.html
+
+**China’s Plan to Save Jobs From A.I.**\
+`As it embeds the technology in every industry, China is thinking about how to keep humans employed.`\
+https://www.nytimes.com/2026/06/30/world/china-ai-jobs-birthright-hormuz.html
+
 **Neon Buys ‘Artificial,’ a Film About OpenAI, After Amazon Dropped It**\
 `Neon purchased “Artificial,” which focuses on OpenAI’s chief, Sam Altman, after Amazon walked away from it following an investment in the start-up.`\
 https://www.nytimes.com/2026/06/30/business/media/openai-movie-artificial-neon-amazon.html
