@@ -1,3 +1,7 @@
+**Plaintiff in Transgender Athlete Case Recently Won a State Shot Put Title**\
+`The success of Becky Pepper-Jackson, a West Virginia high school sophomore, prompted criticism from the state’s governor.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes-plaintiff.html
+
 **Read the Supreme Court Ruling That Upholds Birthright Citizenship**\
 `The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/video/world/europe/100000011001237/monaco-parcel-bomb-ex
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes.html
 
 **Live Updates: Supreme Court Allows States to Bar Transgender Athletes from Girls’ Sports**\
-`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
+`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions. President Trump hailed the ruling as a major victory.`\
 https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
 
 **With New Seizures, Value of the Met’s Looted Artifacts Tops $95 Million**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/theater/jennifer-nettles-giulia-musical.html
 **What Italy’s Failure to Make the Soccer World Cup Says About Its Wider Woes**\
 `For some Italians, their team’s absence from the biggest tournament in soccer is a metaphor for a broader national malaise.`\
 https://www.nytimes.com/2026/06/30/world/europe/italy-soccer-world-cup-national-malaise.html
-
-**Horror Fans Bid a Bittersweet Farewell to an Empty Mall Full of Zombies**\
-`Thousands flocked to a soon-to-close shopping center near Pittsburgh for a celebration of George A. Romero’s “Dawn of the Dead.”`\
-https://www.nytimes.com/2026/06/30/movies/dawn-dead-mall-romero.html
 
