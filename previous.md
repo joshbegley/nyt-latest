@@ -1,3 +1,7 @@
+**The Supreme Court Gets Birthright Citizenship Right**\
+`The Constitution is clear. People who are born in this country and subject to its laws are citizens.`\
+https://www.nytimes.com/2026/06/30/opinion/supreme-court-birthright-citizenship-trump.html
+
 **The Supreme Court Just Gave the G.O.P. a New Midterm Edge**\
 `The decision, which allows parties to spend more in coordination with candidates, is likely to further expand the power of big money in American politics.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-midterms-campaign-finance.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/crosswords/connections-companion-1116.html
 **Today’s Wordle Hints for July 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
 https://www.nytimes.com/2026/06/30/crosswords/wordle-review-1838.html
-
-**NYT Strands Hints for July 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
-https://www.nytimes.com/2026/06/30/crosswords/strands-sidekick-850.html
 

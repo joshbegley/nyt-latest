@@ -1,3 +1,7 @@
+**The Supreme Court Gets Birthright Citizenship Right**\
+`The Constitution is clear. People who are born in this country and subject to its laws are citizens.`\
+https://www.nytimes.com/2026/06/30/opinion/supreme-court-birthright-citizenship-trump.html
+
 **The Supreme Court Just Gave the G.O.P. a New Midterm Edge**\
 `The decision, which allows parties to spend more in coordination with candidates, is likely to further expand the power of big money in American politics.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-midterms-campaign-finance.html
