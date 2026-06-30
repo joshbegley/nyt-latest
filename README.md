@@ -1,3 +1,7 @@
+**Map: 6.0-Magnitude Earthquake Shakes Off Mexico's Coast**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/06/30/world/quake-tracker-gulf-of-california.html
+
 **Ciudadanía por nacimiento en EE. UU.: lo que hay que saber del fallo de la Corte Suprema**\
 `Defensores de los derechos civiles y de los migrantes aplaudieron la decisión, pero advirtieron que el miedo causado por la persecución del gobierno de Trump seguiría presente.`\
 https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/ciudadania-nacimiento-trump-corte-que-pasa.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/06/30/nyregion/judah-gribetz-dead.html
 **La cifra real de fallecidos en los terremotos de Venezuela será complicada de saber**\
 `Seis días después de que dos terremotos devastadores arrasaran barrios residenciales enteros, los expertos temen que la cifra oficial de 1719 muertos pueda estar muy por debajo de la realidad.`\
 https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-muertes-cifra.html
-
-**World Cup Loss Dominates German News, Displacing Even a Mass Shooting**\
-`A day after a deadly attack in northern Germany, the news media’s attention largely shifted to the country’s poor performance at the World Cup.`\
-https://www.nytimes.com/2026/06/30/world/europe/germany-shooting-stade-world-cup.html
 
 **Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\

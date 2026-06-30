@@ -1,3 +1,11 @@
+**Ciudadanía por nacimiento en EE. UU.: lo que hay que saber del fallo de la Corte Suprema**\
+`Defensores de los derechos civiles y de los migrantes aplaudieron la decisión, pero advirtieron que el miedo causado por la persecución del gobierno de Trump seguiría presente.`\
+https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/ciudadania-nacimiento-trump-corte-que-pasa.html
+
+**Justices Reject Trump’s Effort to End Birthright Citizenship**\
+`President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
+https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
+
 **C.I.A. Reorganization Prioritizes Cyberoperations**\
 `John Ratcliffe, the C.I.A. director, said that the agency would take “smart risks,” but that people would have oversight of artificial intelligence.`\
 https://www.nytimes.com/2026/06/30/us/politics/cia-reorganization-cyber-ai.html

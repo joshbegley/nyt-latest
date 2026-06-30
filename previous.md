@@ -1,3 +1,7 @@
+**Ciudadanía por nacimiento en EE. UU.: lo que hay que saber del fallo de la Corte Suprema**\
+`Defensores de los derechos civiles y de los migrantes aplaudieron la decisión, pero advirtieron que el miedo causado por la persecución del gobierno de Trump seguiría presente.`\
+https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/ciudadania-nacimiento-trump-corte-que-pasa.html
+
 **C.I.A. Reorganization Prioritizes Cyberoperations**\
 `John Ratcliffe, the C.I.A. director, said that the agency would take “smart risks,” but that people would have oversight of artificial intelligence.`\
 https://www.nytimes.com/2026/06/30/us/politics/cia-reorganization-cyber-ai.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremoto
 `A day after a deadly attack in northern Germany, the news media’s attention largely shifted to the country’s poor performance at the World Cup.`\
 https://www.nytimes.com/2026/06/30/world/europe/germany-shooting-stade-world-cup.html
 
-**Otro ataque de drones en Moscú aumenta la presión sobre Putin**\
-`Mientras interrumpe el suministro de combustible ruso e intensifica su campaña para aislar Crimea, Ucrania volvió a atacar a la capital rusa.`\
-https://www.nytimes.com/es/2026/06/30/espanol/mundo/guerra-rusia-ucrania-putin-drones.html
-
-**Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
+**Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
 
