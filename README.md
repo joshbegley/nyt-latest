@@ -1,3 +1,7 @@
+**Bear Surprises Truck Owner in Colorado**\
+`A garage camera caught the moment a handyman in Colorado opened the door to his truck to find a bear cub eating his lunch inside.`\
+https://www.nytimes.com/video/embedded/at-home/100000011002282/bear-surprises-truck-owner-in-colorado.html
+
 **Trump Urges Congress to Take Up Birthright Citizenship. Here’s Why It’s Unlikely.**\
 `The president lost his case in the Supreme Court, but mere legislation would not be enough.`\
 https://www.nytimes.com/2026/06/30/us/politics/trump-congress-birthright-citizenship.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/06/30/technology/bending-spoons-ipo-aol-vimeo-event
 **Robby Hoffman: ‘How Weird Are These Rich People?’**\
 `The comedian Robby Hoffman grew up poor in a Hasidic community in Crown Heights, Brooklyn, the seventh of 10 children. On “The Interview,” she talked about the differences she’s observed between rich and poor people.`\
 https://www.nytimes.com/video/podcasts/100000011001746/robby-hoffman-how-weird-are-these-rich-people.html
-
-**Men’s Style Gets Colorful and Strange**\
-`As Paris Men’s Fashion week winds to a close, see what our critic thought about shows at Celine, Soshiotsuki, Willy Chavarria and Comme des Garçons Homme.`\
-https://www.nytimes.com/2026/06/30/style/paris-mens-fasion-celine.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
