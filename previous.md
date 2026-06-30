@@ -1,3 +1,11 @@
+**Flashback 250: The Great U.S. History Quiz**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/06/30/upshot/flashback.html
+
+**Who Counts as an Elite in Trump’s America?**\
+`What makes someone an elite in America today? On “The Opinions,” the columnist Jamelle Bouie says America has gotten confused about who actually holds power.`\
+https://www.nytimes.com/video/opinion/100000010999222/who-counts-as-an-elite-in-trumps-america.html
+
 **The Supreme Court Gets Birthright Citizenship Right**\
 `The Constitution is clear. People who are born in this country and subject to its laws are citizens.`\
 https://www.nytimes.com/2026/06/30/opinion/supreme-court-birthright-citizenship-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/podcasts/the-daily/supreme-court-trump.html
 **Supreme Court Expands Trump’s Power, and a Dangerous U.S. Heat Wave Spreads**\
 `Plus, a daring rescue mission in space.`\
 https://www.nytimes.com/2026/06/30/podcasts/the-headlines/supreme-court-trump-heat-wave.html
-
-**NYT Connections Answers for July 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
-https://www.nytimes.com/2026/06/30/crosswords/connections-companion-1116.html
-
-**Today’s Wordle Hints for July 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 1, 2026.`\
-https://www.nytimes.com/2026/06/30/crosswords/wordle-review-1838.html
 

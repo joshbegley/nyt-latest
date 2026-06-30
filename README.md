@@ -1,5 +1,9 @@
+**Otro ataque de drones en Moscú aumenta la presión sobre Putin**\
+`Mientras interrumpe el suministro de combustible ruso e intensifica su campaña para aislar Crimea, Ucrania volvió a atacar a la capital rusa.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/guerra-rusia-ucrania-putin-drones.html
+
 **Flashback 250: The Great U.S. History Quiz**\
-`Can you sort 8 historical events?`\
+`Can you sort 25 historical events — before getting three wrong answers?`\
 https://www.nytimes.com/interactive/2026/06/30/upshot/flashback.html
 
 **Who Counts as an Elite in Trump’s America?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/podcasts/usmnt-knockout-preview-mexico-ecuado
 **The Supreme Court Expands Presidential Power. Again.**\
 `The justices ruled that President Trump could fire independent government regulators despite federal laws meant to protect their jobs.`\
 https://www.nytimes.com/2026/06/30/podcasts/the-daily/supreme-court-trump.html
-
-**Supreme Court Expands Trump’s Power, and a Dangerous U.S. Heat Wave Spreads**\
-`Plus, a daring rescue mission in space.`\
-https://www.nytimes.com/2026/06/30/podcasts/the-headlines/supreme-court-trump-heat-wave.html
 
