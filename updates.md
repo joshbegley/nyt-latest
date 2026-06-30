@@ -1,3 +1,7 @@
+**Bear Breaks Into Truck, Helping Itself to Handyman’s Lunch**\
+`A handyman was returning to his truck when he opened the door and found a cub eating his lunch from the passenger seat in Steamboat Springs, Colo.`\
+https://www.nytimes.com/2026/06/30/us/colorado-bear-truck-steamboat-springs.html
+
 **Más de un millón de migrantes solicitan la regularización en España**\
 `El programa, que inició a finales de abril, está destinado a incorporar a los migrantes indocumentados al mercado laboral formal.`\
 https://www.nytimes.com/es/2026/06/30/espanol/mundo/espana-regularizacion-inmigrantes-millon-residencia-trabajo.html

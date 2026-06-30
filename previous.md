@@ -1,3 +1,7 @@
+**Bear Breaks Into Truck, Helping Itself to Handyman’s Lunch**\
+`A handyman was returning to his truck when he opened the door and found a cub eating his lunch from the passenger seat in Steamboat Springs, Colo.`\
+https://www.nytimes.com/2026/06/30/us/colorado-bear-truck-steamboat-springs.html
+
 **Más de un millón de migrantes solicitan la regularización en España**\
 `El programa, que inició a finales de abril, está destinado a incorporar a los migrantes indocumentados al mercado laboral formal.`\
 https://www.nytimes.com/es/2026/06/30/espanol/mundo/espana-regularizacion-inmigrantes-millon-residencia-trabajo.html
@@ -126,13 +130,13 @@ https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decision
 `Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
 https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
 
-**Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
-`Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
-https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
-
 **Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
 `Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
 https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
+
+**Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
+`Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
+https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
 
 **Tom Kean Cites Depression as Reason for Long Absence from Congress**\
 `Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/opinion/100000010999222/who-counts-as-an-elite-in-
 **The Supreme Court Gets Birthright Citizenship Right**\
 `The Constitution is clear. People who are born in this country and subject to its laws are citizens.`\
 https://www.nytimes.com/2026/06/30/opinion/supreme-court-birthright-citizenship-trump.html
-
-**The Supreme Court Just Gave the G.O.P. a New Midterm Edge**\
-`The decision, which allows parties to spend more in coordination with candidates, is likely to further expand the power of big money in American politics.`\
-https://www.nytimes.com/2026/06/30/us/politics/supreme-court-midterms-campaign-finance.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
