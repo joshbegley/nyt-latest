@@ -1,3 +1,7 @@
+**Australian Man Charged With Homicide After Thai Teen’s Body Found in Suitcase**\
+`The 17-year-old’s remains were found abandoned near railroad tracks in Pattaya. The suspect was arrested while trying to leave the country.`\
+https://www.nytimes.com/2026/06/30/world/asia/australian-thailand-teenager-murder-suitcase.html
+
 **Dangerous Heat Wave Spreads Across U.S.**\
 `Intense heat is expected across much of the United States through the Fourth of July holiday weekend. The temperatures could break daily records in some parts of the country as the heat spreads east.`\
 https://www.nytimes.com/video/weather/100000011000844/us-heat-wave.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/29/espanol/cultura/mejores-peliculas-ano.html
 **Supreme Court Expands Presidential Powers to Fire Independent Regulators**\
 `The Supreme Court ruled 6-3 that President Trump could fire independent regulators for any reason. But the justices carved out an exception for the Federal Reserve, preventing the immediate removal of Lisa D. Cook, a Federal Reserve governor.`\
 https://www.nytimes.com/video/us/politics/100000010998994/trump-supreme-court-rulings-federal-reserve.html
-
-**La ciencia detrás de los alimentos fermentados**\
-`Los investigadores empiezan a comprender cómo alimentos como el kimchi, el yogur y el chucrut influyen en la salud.`\
-https://www.nytimes.com/es/2026/06/29/espanol/alimentos-fermentados-salud-beneficios.html
 
