@@ -1,3 +1,11 @@
+**What Is the ‘Spirit of Liberty’ Today?**\
+`It’s time to update Learned Hand’s great 1944 address.`\
+https://www.nytimes.com/2026/06/30/opinion/america-250-us-liberty-learned-hand.html
+
+**China’s Plan to Save Jobs From A.I.**\
+`As it embeds the technology in every industry, China is thinking about how to keep humans employed.`\
+https://www.nytimes.com/2026/06/30/world/china-ai-jobs-birthright-hormuz.html
+
 **Neon Buys ‘Artificial,’ a Film About OpenAI, After Amazon Dropped It**\
 `Neon purchased “Artificial,” which focuses on OpenAI’s chief, Sam Altman, after Amazon walked away from it following an investment in the start-up.`\
 https://www.nytimes.com/2026/06/30/business/media/openai-movie-artificial-neon-amazon.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-ac
 **Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
 `Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
 https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
-
-**Tom Kean Cites Depression as Reason for Long Absence from Congress**\
-`Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
-https://www.nytimes.com/video/us/politics/100000011001612/tom-kean-nj-absence-depression.html
-
-**Las labores de rescate en Venezuela se vuelven cada vez más desesperadas**\
-`Venezuela ya superó las 72 horas que los expertos en gestión de desastres consideran críticas para encontrar sobrevivientes. El número de muertos ha subido a más de 1700, aunque es probable que la cifra real sea mayor.`\
-https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-rescate-sobrevivientes-victimas.html
 

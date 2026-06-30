@@ -1,3 +1,7 @@
+**Neon Buys ‘Artificial,’ a Film About OpenAI, After Amazon Dropped It**\
+`Neon purchased “Artificial,” which focuses on OpenAI’s chief, Sam Altman, after Amazon walked away from it following an investment in the start-up.`\
+https://www.nytimes.com/2026/06/30/business/media/openai-movie-artificial-neon-amazon.html
+
 **The Two Mexico Cities Fighting for Claim Over Soccer’s Origin**\
 `Mineral del Monte, a small former mining town that became a tourist destination partly because of its Cornish influence, claims that soccer in Mexico started there. Well, so does the nearby city of Pachuca.`\
 https://www.nytimes.com/2026/06/30/world/americas/world-cup-mexico-soccer.html

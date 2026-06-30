@@ -1,3 +1,7 @@
+**Neon Buys ‘Artificial,’ a Film About OpenAI, After Amazon Dropped It**\
+`Neon purchased “Artificial,” which focuses on OpenAI’s chief, Sam Altman, after Amazon walked away from it following an investment in the start-up.`\
+https://www.nytimes.com/2026/06/30/business/media/openai-movie-artificial-neon-amazon.html
+
 **The Two Mexico Cities Fighting for Claim Over Soccer’s Origin**\
 `Mineral del Monte, a small former mining town that became a tourist destination partly because of its Cornish influence, claims that soccer in Mexico started there. Well, so does the nearby city of Pachuca.`\
 https://www.nytimes.com/2026/06/30/world/americas/world-cup-mexico-soccer.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011001612/tom-kean-nj-absence-de
 **Las labores de rescate en Venezuela se vuelven cada vez más desesperadas**\
 `Venezuela ya superó las 72 horas que los expertos en gestión de desastres consideran críticas para encontrar sobrevivientes. El número de muertos ha subido a más de 1700, aunque es probable que la cifra real sea mayor.`\
 https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-rescate-sobrevivientes-victimas.html
-
-**What to Know About the Supreme Court’s Birthright Citizenship Order**\
-`The decision ends one of the most aggressive parts of Trump’s immigration agenda. But hundreds of other restrictions have taken effect.`\
-https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-order-explained.html
 
