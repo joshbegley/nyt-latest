@@ -1,3 +1,11 @@
+**La escasez de equipos de rescate complicó la respuesta de Venezuela a los terremotos**\
+`Voluntarios y expertos afirman que el país carecía de las herramientas y maquinaria necesarias para lidiar con un desastre de esta magnitud.`\
+https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-equipo-rescate.html
+
+**Tom Kean Cites Depression as Reason for Long Absence from Congress**\
+`Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
+https://www.nytimes.com/video/us/politics/100000011001612/tom-kean-nj-absence-depression.html
+
 **Colorado Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-primary.html

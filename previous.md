@@ -1,3 +1,15 @@
+**Colorado State Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-senate-primary.html
+
+**La escasez de equipos de rescate complicó la respuesta de Venezuela a los terremotos**\
+`Voluntarios y expertos afirman que el país carecía de las herramientas y maquinaria necesarias para lidiar con un desastre de esta magnitud.`\
+https://www.nytimes.com/es/2026/06/30/espanol/america-latina/venezuela-terremotos-equipo-rescate.html
+
+**Colorado State House Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-house-primary.html
+
 **Colorado Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary elections.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-primary.html
@@ -10,17 +22,9 @@ https://www.nytimes.com/interactive/2026/us/elections/results-colorado-governor-
 `Get live results and maps from the 2026 Arkansas special runoff election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-arkansas-state-house-district-44-special-runoff.html
 
-**Colorado State Senate Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-senate-primary.html
-
 **Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate-primary.html
-
-**Colorado State House Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-house-primary.html
 
 **Colorado Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
@@ -91,7 +95,7 @@ https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
 https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
 
 **Tom Kean Cites Depression as Reason for Long Absence from Congress**\
-`Representative Tom Kean, Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
+`Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
 https://www.nytimes.com/video/us/politics/100000011001612/tom-kean-nj-absence-depression.html
 
 **Las labores de rescate en Venezuela se vuelven cada vez más desesperadas**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/trump-ciudadania-na
 **Oberon Brings Artful Dining to the New Museum**\
 `Bark Barbecue serves a Caribbean take on the genre in Bushwick, Brooklyn, Titán brings a Mexican collaboration to Dumbo and more restaurant news.`\
 https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
-
-**Shortages of Rescue Equipment Hampered Venezuela’s Earthquake Response**\
-`Residents appealed for excavators, generators and specialized rescue tools as civilians have stepped in to supply crews working through the rubble.`\
-https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-rescue-equipment-aid.html
 
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\

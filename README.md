@@ -86,13 +86,13 @@ https://www.nytimes.com/video/us/100000011000312/what-the-supreme-court-decision
 `Hear tracks from Johnny Cash, Barbra Streisand and Billy Joel.`\
 https://www.nytimes.com/2026/06/30/arts/music/amplifier-newsletter-madison-square-garden-live.html
 
-**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
-`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
-https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
-
 **Comcast, NBCUniversal Split Drives Deal-Making Speculation**\
 `Almost as soon as the two companies announced a split, analysts rushed to consider potential merger and acquisition targets for each.`\
 https://www.nytimes.com/2026/06/30/business/media/comcast-nbcuniversal-merger-acquisition-charter-netflix.html
+
+**Record-Breaking Heat Wave Expected to Hit New York City Ahead of July 4 Weekend**\
+`Mayor Zohran Mamdani signed an executive order that aims to protect workers who must toil outside. Temperatures this week could exceed 100 degrees.`\
+https://www.nytimes.com/2026/06/30/nyregion/nyc-heat-wave.html
 
 **Tom Kean Cites Depression as Reason for Long Absence from Congress**\
 `Representative Thomas H. Kean Jr., Republican of New Jersey, said that his 117-day absence from Congress was because of a lengthy hospitalization to treat depression.`\
