@@ -1,3 +1,11 @@
+**Otro ataque de drones en Moscú aumenta la presión sobre Putin**\
+`Mientras interrumpe el suministro de combustible ruso e intensifica su campaña para aislar Crimea, Ucrania volvió a atacar a la capital rusa.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/guerra-rusia-ucrania-putin-drones.html
+
+**Flashback 250: The Great U.S. History Quiz**\
+`Can you sort 25 historical events — before getting three wrong answers?`\
+https://www.nytimes.com/interactive/2026/06/30/upshot/flashback.html
+
 **Flashback 250: The Great U.S. History Quiz**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/06/30/upshot/flashback.html

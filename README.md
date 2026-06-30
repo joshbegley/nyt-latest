@@ -1,3 +1,7 @@
+**World Cup Loss Dominates German News, Displacing Even a Mass Shooting**\
+`A day after a deadly attack in northern Germany, the news media’s attention largely shifted to the country’s poor performance at the World Cup.`\
+https://www.nytimes.com/2026/06/30/world/europe/germany-shooting-stade-world-cup.html
+
 **Otro ataque de drones en Moscú aumenta la presión sobre Putin**\
 `Mientras interrumpe el suministro de combustible ruso e intensifica su campaña para aislar Crimea, Ucrania volvió a atacar a la capital rusa.`\
 https://www.nytimes.com/es/2026/06/30/espanol/mundo/guerra-rusia-ucrania-putin-drones.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/06/30/briefing/wins-and-losses-at-the-supreme-court
 **La deuda de EE. UU. con Venezuela**\
 `Cada vez hay más expectativas sobre lo que el gobierno de Trump podría hacer para ayudar tras dos terremotos devastadores.`\
 https://www.nytimes.com/es/2026/06/30/espanol/mundo/deuda-ee-uu-venezuela-terremotos.html
-
-**USMNT Knockout Preview, and Mexico’s Dark Horse Chances**\
-`The latest from the U.S. and Mexico camps as both co-hosts prepare for the Round of 32.`\
-https://www.nytimes.com/2026/06/30/podcasts/usmnt-knockout-preview-mexico-ecuador.html
-
-**The Supreme Court Expands Presidential Power. Again.**\
-`The justices ruled that President Trump could fire independent government regulators despite federal laws meant to protect their jobs.`\
-https://www.nytimes.com/2026/06/30/podcasts/the-daily/supreme-court-trump.html
 
