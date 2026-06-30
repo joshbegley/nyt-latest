@@ -1,3 +1,19 @@
+**2 Killed as Bus Flips Into Traffic on Long Island Expressway**\
+`A bus crashed into multiple vehicles in Queens just before midnight on Monday. Authorities investigating the incident have closed lanes on the highway near 50th Street.`\
+https://www.nytimes.com/2026/06/30/us/long-island-expressway-crash.html
+
+**Wins and Losses**\
+`We look at Supreme Court rulings on presidential power and mail-in ballots.`\
+https://www.nytimes.com/2026/06/30/briefing/wins-and-losses-at-the-supreme-court.html
+
+**La deuda de EE. UU. con Venezuela**\
+`Cada vez hay más expectativas sobre lo que el gobierno de Trump podría hacer para ayudar tras dos terremotos devastadores.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/deuda-ee-uu-venezuela-terremotos.html
+
+**Oil Prices Tick Higher as Iran and U.S. Prepare for Talks**\
+`Iran and the United States were set for further talks after a spurt of hostilities had underscored the uncertainty surrounding attempts to strike a lasting peace deal.`\
+https://www.nytimes.com/2026/06/30/business/oil-gas-prices-iran.html
+
 **USMNT Knockout Preview, and Mexico’s Dark Horse Chances**\
 `The latest from the U.S. and Mexico camps as both co-hosts prepare for the Round of 32.`\
 https://www.nytimes.com/2026/06/30/podcasts/usmnt-knockout-preview-mexico-ecuador.html
