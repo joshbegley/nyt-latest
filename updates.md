@@ -1,3 +1,11 @@
+**Plaintiff in Transgender Athlete Case Recently Won a State Shot Put Title**\
+`The success of Becky Pepper-Jackson, a West Virginia high school sophomore, prompted criticism from the state’s governor.`\
+https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes-plaintiff.html
+
+**Live Updates: Supreme Court Allows States to Bar Transgender Athletes from Girls’ Sports**\
+`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions. President Trump hailed the ruling as a major victory.`\
+https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
+
 **Read the Supreme Court Ruling That Upholds Birthright Citizenship**\
 `The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
