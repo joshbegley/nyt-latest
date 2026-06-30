@@ -1,3 +1,67 @@
+**Colorado Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-primary.html
+
+**Colorado Governor Primary 2026: Live Election Results, Bennet vs. Weiser**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-governor-primary.html
+
+**Arkansas State House District 44 Special Special Runoff 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas special runoff election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-arkansas-state-house-district-44-special-runoff.html
+
+**Colorado State Senate Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-senate-primary.html
+
+**Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate-primary.html
+
+**Colorado State House Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-state-house-primary.html
+
+**Colorado Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-3-primary.html
+
+**Colorado Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-8-primary.html
+
+**Colorado Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-4-primary.html
+
+**Colorado Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
+
+**Colorado Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-5-primary.html
+
+**Colorado Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-7-primary.html
+
+**Colorado First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-1-primary.html
+
+**Colorado Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-attorney-general-primary.html
+
+**Colorado Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-secretary-of-state-primary.html
+
+**Colorado Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-2-primary.html
+
 **What to Know About Flights to Venezuela After Devastating Earthquakes**\
 `Six days after powerful back-to-back earthquakes, air travel in and out of the country remains severely restricted.`\
 https://www.nytimes.com/2026/06/30/travel/venezuela-airports-damage-closed.html
@@ -122,71 +186,7 @@ https://www.nytimes.com/2026/06/30/dining/nyc-restaurant-news.html
 `Residents appealed for excavators, generators and specialized rescue tools as civilians have stepped in to supply crews working through the rubble.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-earthquake-rescue-equipment-aid.html
 
-**NPR Retracts Article That Mistakenly Said Justice Alito Would Retire**\
-`The news outlet quickly removed the article, which was written by NPR’s seasoned Supreme Court reporter, Nina Totenberg, from its website.`\
-https://www.nytimes.com/2026/06/30/business/media/npr-samuel-alito-nina-totenberg.html
-
-**Three Great Documentaries to Stream**\
-`This month’s picks check the pulse of 1960s Paris, explore David Hockney’s artistry and paint an intimate portrait of mortality.`\
-https://www.nytimes.com/2026/06/30/movies/great-documentaries-streaming.html
-
-**Courtney Sale Ross, Founder and Funder of a Quirky School, Dies at 78**\
-`Instead of home-schooling her daughter, she spent hundreds of millions of dollars building an idiosyncratic educational institution in the Hamptons.`\
-https://www.nytimes.com/2026/06/30/education/courtney-sale-ross-dead.html
-
-**Today, In Short**\
-`Celebrity weddings. Wimbledon. And laughing apes.`\
-https://www.nytimes.com/2026/06/30/briefing/today-in-short.html
-
-**‘Birthright’ Stages a Thrillingly Complex Conversation on Conversation Itself**\
-`Jonathan Spector’s ambitious drama about six Jewish friends and their shifting relationship with Israel stretches over three hours and nearly two decades.`\
-https://www.nytimes.com/2026/06/30/theater/birthright-review-israel-spector.html
-
-**BMW Will Build a New Electric S.U.V. in South Carolina**\
-`The German company is doubling down on electric vehicles even as other automakers pull back after acknowledging billions of dollars in losses.`\
-https://www.nytimes.com/2026/06/30/business/bmw-electric-vehicles-south-carolina.html
-
-**Blake Lively Seeks $8 Million in Legal Bills in Dispute With Justin Baldoni**\
-`After the actress settled her retaliation claims, a judge granted her fees for one part of the sprawling Hollywood case.`\
-https://www.nytimes.com/2026/06/30/movies/blake-lively-justin-baldoni-legal-fees.html
-
-**La Copa Mundial de las camisetas**\
-`48 países en competencia. 96 camisetas en exhibición. Vota por tus diseños favoritos y descubre qué puesto ocupan según los lectores del Times.`\
-https://www.nytimes.com/es/interactive/2026/06/30/espanol/deportes/mejor-camiseta-mundial.html
-
-**Plaintiff in Supreme Court Transgender Athlete Case Recently Won a State Shot Put Title**\
-`The success of Becky Pepper-Jackson, a West Virginia high school sophomore, prompted criticism from the state’s governor.`\
-https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes-plaintiff.html
-
-**Read the Supreme Court Ruling That Upholds Birthright Citizenship**\
-`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
-https://www.nytimes.com/interactive/2026/06/30/us/scotus-birthright.html
-
-**Supreme Court Upholds Birthright Citizenship, Blocking a Key Trump Policy**\
-`The justices blocked President Trump’s executive order that banned birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
-https://www.nytimes.com/2026/06/30/us/politics/supreme-court-birthright-citizenship.html
-
-**Supreme Court Lifts Spending Limits on Political Parties and Candidates**\
-`Republicans had asked the court to strike down restrictions on how much political parties can spend in coordination with candidates.`\
-https://www.nytimes.com/2026/06/30/us/supreme-court-campaign-finance.html
-
 **Supreme Court Live Updates: Justices Reject Trump’s Effort to End Birthright Citizenship**\
 `President Trump tried to ban birthright citizenship for the children of undocumented immigrants and some temporary foreign visitors.`\
 https://www.nytimes.com/live/2026/06/30/us/birthright-citizenship-supreme-court
-
-**Read the Supreme Court Decision Upholding Bans on Transgender Athletes in Women’s Sports**\
-`The court upheld state laws in West Virginia and Idaho barring the participation of transgender female athletes from girls’ and women’s sports teams.`\
-https://www.nytimes.com/interactive/2026/06/30/us/scotus-trans.html
-
-**Manhunt Underway After Parcel Bomb Explodes in Monaco**\
-`An international manhunt was underway on Tuesday after a parcel bomb exploded in Monaco, seriously injuring three people.`\
-https://www.nytimes.com/video/world/europe/100000011001237/monaco-parcel-bomb-explosion-manhunt.html
-
-**Supreme Court Allows States to Bar Transgender Athletes From Girls’ Sports**\
-`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions on transgender female athletes joining women’s sports teams.`\
-https://www.nytimes.com/2026/06/30/us/politics/supreme-court-transgender-athletes.html
-
-**Live Updates: Supreme Court Allows States to Bar Transgender Athletes From Girls’ Sports**\
-`The court’s decision involving laws from West Virginia and Idaho has implications for 25 other states with similar restrictions. President Trump hailed the ruling as a major victory.`\
-https://www.nytimes.com/live/2026/06/30/us/supreme-court-trans-athletes
 
