@@ -1,3 +1,7 @@
+**If Conservatives Want to Save Marriage, They Need to Let It Evolve**\
+`It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
+https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
+
 **U.S. and Iran Set to Hold Indirect Talks After Trading Attacks: What to Know**\
 `Negotiators are in Qatar for indirect talks and ship traffic has risen in the Strait of Hormuz, even as Tehran and Washington remain far apart on key issues. Here’s what to know.`\
 https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html

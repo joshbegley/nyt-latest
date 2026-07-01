@@ -1,3 +1,7 @@
+**If Conservatives Want to Save Marriage, They Need to Let It Evolve**\
+`It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
+https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011004014/Biz-Wheels-Carclubs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/movies/enola-holmes-3-review.html
 **The Yoto Music Box Is a Ray of Hope Amid the ‘Techlash’**\
 `Amid widespread “techlash” over addictive screens and apps, the Yoto, an audio player for children, shows there’s still a way to make money while doing something nice.`\
 https://www.nytimes.com/2026/07/01/technology/personaltech/yoto-music-box-screens.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000010985958/xxtechfix-YOTO-video-916.html
 
