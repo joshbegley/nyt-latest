@@ -1,3 +1,11 @@
+**Colorado Governor Fires Officials Who Opposed Freeing Election Denier**\
+`Gov. Jared Polis commuted the sentence of Tina Peters, who tampered with voting machines in an attempt to show that the 2020 election had been rigged against President Trump.`\
+https://www.nytimes.com/2026/07/01/us/jared-polis-tina-peters-clemency-board-fired.html
+
+**Two People Climb Empire State Building’s Spire and Display Banner**\
+`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black banner with a quote on it.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
+
 **Couple Climbs Needle of Empire State Building**\
 `After making the ascent, the man proposed to the woman on a tiny platform, 1,450 feet above the city.`\
 https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
