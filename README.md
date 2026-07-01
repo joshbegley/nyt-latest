@@ -1,3 +1,7 @@
+**As Companies Race for Cheaper A.I. Options, This Start-Up Pitches a Solution**\
+`Together AI, which specializes in open-source artificial intelligence models, is now worth more than $8 billion.`\
+https://www.nytimes.com/2026/07/01/business/dealbook/together-ai-funding.html
+
 **A Separation of Powers**\
 `We look at the Supreme Court rulings on birthright citizenship and transgender athletes.`\
 https://www.nytimes.com/2026/07/01/briefing/supreme-court-birthright-citizenship-transgender-athletes.html
@@ -43,8 +47,8 @@ https://www.nytimes.com/2026/07/01/world/middleeast/syria-trump-hezbollah-lebano
 https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-conversaciones-trump.html
 
 **Victor Willis, Village People Frontman, Dies at 74**\
-`Willis, who often performed dressed as a helmeted police officer, co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
-https://www.nytimes.com/2026/07/01/obituaries/victor-willis-village-people-dead.html
+`Often performing dressed as a helmeted police officer, he co-wrote the group’s biggest hits, including “Y.M.C.A” and “Macho Man.”`\
+https://www.nytimes.com/2026/07/01/arts/music/victor-willis-dead.html
 
 **Republicans’ Home-Field Edge for Senate Seems Just Enough for Now**\
 `Democratic candidates are generally popular, Times/Siena polling finds, but retaking the Senate remains a big challenge.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/magazine/ai-medical-scribes-doctors.html
 **A Town in Quebec Is the First Governing Body to Adopt the Universal Declaration of the Rights of Trees**\
 `Terrasse-Vaudreuil has adopted a resolution to protect trees, which its mayor called “indispensable allies,” as living beings.`\
 https://www.nytimes.com/2026/07/01/world/canada/quebec-trees-rights-canada-terrasse-vaudreuil.html
-
-**Sandra Boynton’s Best Books: A Guide**\
-`An introduction to a living genius of children’s literature for the adults who will inevitably read her on repeat.`\
-https://www.nytimes.com/2026/07/01/books/best-sandra-boynton-books.html
 
