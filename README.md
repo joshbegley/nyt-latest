@@ -1,3 +1,7 @@
+**Canada Will Compete in Eurovision Song Contest**\
+`The country’s national broadcaster confirmed that it is joining the world’s most popular singing contest next year. Some fans are urging it to send a star like Shania Twain.`\
+https://www.nytimes.com/2026/07/01/arts/music/eurovision-song-contest-canada.html
+
 **Who Is Ahead in Vermont's At-Large Congressional District?**\
 `Track the latest polls in Vermont's At-Large Congressional District.`\
 https://www.nytimes.com/interactive/polls/vermont-us-house-at-large-polls-2026.html
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/07/01/world/middleeast/syria-trump-hezbollah-lebano
 `El 1 de julio podría ser el principio del fin de un acuerdo comercial que el presidente Donald Trump lleva tiempo criticando; o el inicio de un camino para renovarlo.`\
 https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-conversaciones-trump.html
 
-**Victor Willis, Village People Frontman, Dies at 74**\
-`Often performing dressed as a helmeted police officer, he co-wrote the group’s biggest hits including “Y.M.C.A.” and “Macho Man.”`\
+**Victor Willis, Lead Singer of the Village People, Dies at 74**\
+`Often performing dressed as a helmeted police officer, he also co-wrote the group’s biggest hits, including “Y.M.C.A.” and “Macho Man.”`\
 https://www.nytimes.com/2026/07/01/arts/music/victor-willis-dead.html
 
 **Republicans’ Home-Field Edge for Senate Seems Just Enough for Now**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/well/glp1-medicare.html
 **Is Kidmaxxing the Ultimate Status Symbol for Ultimate Wealth?**\
 `What drives these men to reproduce at an industrial scale?`\
 https://www.nytimes.com/2026/07/01/opinion/children-parents-billionaires-wealth-fathers.html
-
-**30 Fun Things to Do in N.Y.C. in July**\
-`This month brings the nation’s 250th birthday bash, “Les Miserables,” Mark Morris, the World Cup final, Jay-Z at Yankee Stadium and nine nights of Bon Jovi.`\
-https://www.nytimes.com/2026/07/01/arts/fun-things-to-do-nyc-july.html
 

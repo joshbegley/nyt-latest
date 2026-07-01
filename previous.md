@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/07/01/realestate/homes-for-sale-in-washington-dc-co
 `Our critic chose 10 moments from the theatrical year that shifted her thinking.`\
 https://www.nytimes.com/2026/07/01/theater/best-theater-moments-2026-so-far.html
 
-**Trump’s Historical Yarns Often Stretch (or Disregard) the Truth**\
+**Fact-Checking Trump’s Inaccurate Accounts of U.S. History**\
 `We fact-checked the president’s colorful — and inaccurate — accounts of American history from the Battle of Gettysburg to the Unabomber.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-fact-check-american-history.html
 

@@ -1,3 +1,7 @@
+**Fact-Checking Trump’s Inaccurate Accounts of U.S. History**\
+`We fact-checked the president’s colorful — and inaccurate — accounts of American history from the Battle of Gettysburg to the Unabomber.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-fact-check-american-history.html
+
 **Who Is Ahead in Vermont's At-Large Congressional District?**\
 `Track the latest polls in Vermont's At-Large Congressional District.`\
 https://www.nytimes.com/interactive/polls/vermont-us-house-at-large-polls-2026.html
