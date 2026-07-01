@@ -1,3 +1,11 @@
+**Omán habría propuesto un pago ‘voluntario’ para el estrecho de Ormuz**\
+`A pesar de las objeciones de EE. UU., Irán y Omán avanzan con sus planes de cobrar a los barcos que transiten por el estrecho, según funcionarios y diplomáticos al tanto del asunto.`\
+https://www.nytimes.com/es/2026/07/01/espanol/mundo/oman-pago-estrecho-ormuz-peaje.html
+
+**How to World Cup**\
+`New to soccer? You’re welcome here.`\
+https://www.nytimes.com/2026/07/01/opinion/world-cup-soccer-football.html
+
 **Democratic Outsiders Keep Rolling: 5 Takeaways From Colorado’s Primaries**\
 `A democratic socialist ousted a veteran congresswoman in Denver, and a U.S. senator lost his bid for governor. But the state’s other senator fended off a progressive primary challenger.`\
 https://www.nytimes.com/2026/07/01/us/politics/colorado-primary-takeaways.html
