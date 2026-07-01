@@ -1,3 +1,11 @@
+**Crypto Brought Trump a Huge Windfall, Even as Many Investors Lost Big**\
+`President Trump and his family reaped vast financial rewards from a memecoin that generated losses for hundreds of thousands of investors.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-crypto-memecoin-world-liberty.html
+
+**JD Vance Defends Iran War in Speech to Military Members**\
+`The vice president, a staunch critic of foreign wars, accused the president’s detractors of trying to prolong a conflict the administration was trying to end.`\
+https://www.nytimes.com/2026/07/01/us/vance-iran-war-military.html
+
 **The Heat Wave Proves That We Need to Adapt to Climate Change**\
 `The world’s infrastructure was built for a climate we no longer have.`\
 https://www.nytimes.com/2026/07/01/opinion/heat-wave-europe-america.html
