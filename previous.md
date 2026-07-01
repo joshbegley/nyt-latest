@@ -1,3 +1,7 @@
+**Word of the Day: insuperable**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/01/learning/word-of-the-day-insuperable.html
+
 **No envíes cheques por correo. Simplemente no lo hagas.**\
 `Los expertos recomiendan revisar con frecuencia los movimientos de tu cuenta. Los cheques robados de los buzones pueden ser alterados y utilizados para cometer fraude.`\
 https://www.nytimes.com/es/2026/07/01/espanol/negocios/cheques-correo-estafa-fraude.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/us/american-rescue-teams-venezuela-earthquake
 **Trump Pulled in at Least $2.2 Billion in 2025, Financial Disclosure Shows**\
 `The release of a mandatory financial disclosure for 2025 shows that the Trump family’s holdings, particularly the president’s crypto businesses, were stunningly lucrative.`\
 https://www.nytimes.com/2026/06/30/us/politics/trump-financial-disclosure-crypto-windfall.html
-
-**What Tom Kean Did and Didn’t Explain About His Absence**\
-`Representative Thomas Kean Jr., a New Jersey Republican, has finally reappeared in Congress. Questions remain about his nearly four-month absence from public life, which he said was due to depression.`\
-https://www.nytimes.com/2026/06/30/nyregion/tom-kean-new-jersey-absence.html
 

@@ -1,3 +1,7 @@
+**Word of the Day: insuperable**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/01/learning/word-of-the-day-insuperable.html
+
 **No envíes cheques por correo. Simplemente no lo hagas.**\
 `Los expertos recomiendan revisar con frecuencia los movimientos de tu cuenta. Los cheques robados de los buzones pueden ser alterados y utilizados para cometer fraude.`\
 https://www.nytimes.com/es/2026/07/01/espanol/negocios/cheques-correo-estafa-fraude.html
