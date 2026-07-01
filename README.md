@@ -1,3 +1,7 @@
+**U.S. Lifts Restrictions on Anthropic’s Most Powerful A.I. Models**\
+`The move allows Anthropic to bring its most powerful technologies back online, de-escalating a feud with the Trump administration.`\
+https://www.nytimes.com/2026/06/30/technology/us-lifts-restrictions-anthropic.html
+
 **Trump’s Moneymaking Run: Unrivaled in Presidential History**\
 `The president’s move to open new business ventures, rather than eliminate potential conflicts, defies a long-held tradition.`\
 https://www.nytimes.com/2026/06/30/us/politics/trump-moneymaking-presidential-history.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/interactive/2026/06/30/espanol/mexico-sismo-temblor.h
 **Map: 6.0-Magnitude Earthquake Shakes Off Mexico's Coast**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/06/30/world/quake-tracker-gulf-of-california.html
-
-**Ciudadanía por nacimiento en EE. UU.: lo que hay que saber del fallo de la Corte Suprema**\
-`Defensores de los derechos civiles y de los migrantes aplaudieron la decisión, pero advirtieron que el miedo causado por la persecución del gobierno de Trump seguiría presente.`\
-https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/ciudadania-nacimiento-trump-corte-que-pasa.html
 
