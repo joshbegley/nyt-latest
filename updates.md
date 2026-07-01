@@ -1,3 +1,11 @@
+**How the Iran War Ignited a Clash Between Trump and the Saudi Crown Prince**\
+`Crown Prince Mohammed bin Salman pressed President Trump earlier to cripple Iran. But as Iran asserted its power, the prince urged a cease-fire, and is now pursuing his security priorities.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-saudi-crown-prince-iran.html
+
+**SpaceX and the World Cup: The Winners of Week 2 of Our Summer Reading Contest**\
+`Heeva Alavi, an Iranian-American, writes about her family’s mixed emotions about the World Cup, while Aariv Shah reflects on the SpaceX I.P.O.`\
+https://www.nytimes.com/2026/07/01/learning/spacex-and-the-world-cup-the-winners-of-week-2-of-our-summer-reading-contest.html
+
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV, Peacock and More in July**\
 `“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
 https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
