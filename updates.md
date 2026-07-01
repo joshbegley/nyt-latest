@@ -1,3 +1,7 @@
+**Who Is Ahead in the Vermont Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Vermont governor election.`\
+https://www.nytimes.com/interactive/polls/vermont-governor-election-polls-2026.html
+
 **As Companies Race for Cheaper A.I. Options, This Start-Up Pitches a Solution**\
 `Together AI, which specializes in open-source artificial intelligence models, is now worth more than $8 billion.`\
 https://www.nytimes.com/2026/07/01/business/dealbook/together-ai-funding.html

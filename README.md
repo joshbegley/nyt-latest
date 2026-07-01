@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/07/01/world/middleeast/syria-trump-hezbollah-lebano
 https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-conversaciones-trump.html
 
 **Victor Willis, Village People Frontman, Dies at 74**\
-`Often performing dressed as a helmeted police officer, he co-wrote the group’s biggest hits, including “Y.M.C.A” and “Macho Man.”`\
+`Often performing dressed as a helmeted police officer, he co-wrote the group’s biggest hits including “Y.M.C.A.” and “Macho Man.”`\
 https://www.nytimes.com/2026/07/01/arts/music/victor-willis-dead.html
 
 **Republicans’ Home-Field Edge for Senate Seems Just Enough for Now**\
