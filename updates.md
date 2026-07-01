@@ -1,3 +1,7 @@
+**Minanbé, unas ruinas mayas descubiertas lejos, muy lejos, de los circuitos habituales**\
+`Escaneos aéreos realizados con lidar indicaron la presencia de monumentos y otros vestigios arqueológicos en una zona remota de la península de Yucatán. La travesía para llegar ahí fue ardua.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/minanbe-ruinas-mayas.html
+
 **Omán habría propuesto un pago ‘voluntario’ para el estrecho de Ormuz**\
 `A pesar de las objeciones de EE. UU., Irán y Omán avanzan con sus planes de cobrar a los barcos que transiten por el estrecho, según funcionarios y diplomáticos al tanto del asunto.`\
 https://www.nytimes.com/es/2026/07/01/espanol/mundo/oman-pago-estrecho-ormuz-peaje.html

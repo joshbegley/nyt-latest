@@ -1,3 +1,7 @@
+**Minanbé, unas ruinas mayas descubiertas lejos, muy lejos, de los circuitos habituales**\
+`Escaneos aéreos realizados con lidar indicaron la presencia de monumentos y otros vestigios arqueológicos en una zona remota de la península de Yucatán. La travesía para llegar ahí fue ardua.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/minanbe-ruinas-mayas.html
+
 **Omán habría propuesto un pago ‘voluntario’ para el estrecho de Ormuz**\
 `A pesar de las objeciones de EE. UU., Irán y Omán avanzan con sus planes de cobrar a los barcos que transiten por el estrecho, según funcionarios y diplomáticos al tanto del asunto.`\
 https://www.nytimes.com/es/2026/07/01/espanol/mundo/oman-pago-estrecho-ormuz-peaje.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/science/nasa-moon-base-research.html
 **Supreme Court Blocks Trump’s Push to End Birthright Citizenship**\
 `Also, a House Republican says depression led to his long absence. Here's the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/06/30/briefing/supreme-court-birthright-citizenship.html
-
-**Trump Announces Republican Midterm Convention in Dallas, Texas**\
-`Parties normally hold conventions only in presidential years, but President Trump liked the idea of mobilizing Republicans this fall.`\
-https://www.nytimes.com/2026/06/30/us/politics/trump-republican-midterm-convention-dallas-texas.html
 
