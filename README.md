@@ -1,3 +1,7 @@
+**El Observatorio Vera C. Rubin empieza a explorar nuestro cosmos**\
+`Con la información recopilada se creará un registro nítido de cómo los objetos se desplazan, pulsan y explotan en nuestro sistema solar, la Vía Láctea y más allá.`\
+https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/video-imagenes-universo-espacio-chile-observatorio.html
+
 **Adults Arrested After 16 Children Are Found in Squalor in Rural Ohio**\
 `The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said.`\
 https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/americas/100000011003697/venezuela-earthquak
 **Conservatives Don’t Have the Solution for Falling Marriage Rates**\
 `It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
 https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011004014/Biz-Wheels-Carclubs.html
 
