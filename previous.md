@@ -1,3 +1,7 @@
+**Heat Wave Trudges East on Wednesday**\
+`More than 160 million people are under extreme heat warnings or heat advisories ahead of the Fourth of July weekend.`\
+https://www.nytimes.com/2026/07/01/weather/fourth-of-july-heat-wave-latest-updates.html
+
 **Trump Suggestion of a Syrian Crackdown on Hezbollah Confounds Many in Mideast**\
 `During peace talks, President Trump repeatedly floated the idea that Syria could help subdue Hezbollah in Lebanon. The proposal revived bitter memories.`\
 https://www.nytimes.com/2026/07/01/world/middleeast/syria-trump-hezbollah-lebanon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/travel/warsaw-nightlife-clubs-edm-djs.html
 **Is Women’s Japanese Wrestling Fashion’s Favorite New Sport?**\
 `Olympia Le-Tan’s fashion career has taken her from Chanel to the world of Sukeban.`\
 https://www.nytimes.com/2026/07/01/style/sukeban-japanese-womens-wrestling-olumpia-le-tan.html
-
-**How War Takes Its Toll on Ukraine’s Pregnant Women**\
-`Bombings, blackouts and displacement compound maternal anxiety. Still, many women persevere. “We must bring new life,” one said.`\
-https://www.nytimes.com/2026/07/01/world/europe/ukraine-war-pregnant-women-hospitals.html
 
