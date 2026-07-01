@@ -1,3 +1,47 @@
+**Colorado Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
+
+**Colorado Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-8-primary.html
+
+**Colorado Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-4-primary.html
+
+**Colorado Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-3-primary.html
+
+**Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate-primary.html
+
+**Colorado Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-5-primary.html
+
+**Colorado Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-7-primary.html
+
+**Colorado Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-secretary-of-state-primary.html
+
+**Colorado Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-attorney-general-primary.html
+
+**Colorado First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-1-primary.html
+
+**Colorado Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-2-primary.html
+
 **The Dress Code for Taylor Swift and Travis Kelce’s Wedding? Expect a Black-Tie Event.**\
 `New details have emerged about the celebration at Madison Square Garden, widely believed to be a wedding, including a dress code.`\
 https://www.nytimes.com/2026/06/30/style/taylor-swift-wedding-kelce-dress-code.html
