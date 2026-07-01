@@ -1,3 +1,7 @@
+**Trump on the Range: A Presidential Visit to the Roosevelt Library in North Dakota**\
+`President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, who he called “a great he-man.”`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-north-dakota-roosevelt-library.html
+
 **Does Trump Worry About Conflicts of Interest? ‘I Found Out That Nobody Cared.’**\
 `American presidents have generally tried to avoid appearing to profit from the office. President Trump has chosen a different path.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-money-conflicts-presidency.html
