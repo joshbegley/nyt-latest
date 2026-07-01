@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 1, 2026**\
+`Jeffrey Martinovic bends the laws of crossword physics.`\
+https://www.nytimes.com/2026/06/30/crosswords/2026-07-01.html
+
+**Colorado’s Attorney General Upsets Bennet in Primary for Governor**\
+`Phil Weiser beat Senator Michael Bennet in the Democratic primary, presenting himself as the stronger foil for President Trump.`\
+https://www.nytimes.com/2026/06/30/us/colorado-governor-democrat-phil-weiser.html
+
 **Judges Strike Down Trump Rule on Loan Forgiveness for Public Servants**\
 `Two federal courts have blocked a new Trump administration rule that could have narrowed eligibility for a student loan forgiveness program for public servants.`\
 https://www.nytimes.com/2026/06/30/business/trump-student-loan-forgiveness.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/business/media/openai-movie-artificial-neon-a
 **The Two Mexico Cities Fighting for Claim Over Soccer’s Origin**\
 `Mineral del Monte, a small former mining town that became a tourist destination partly because of its Cornish influence, claims that soccer in Mexico started there. Well, so does the nearby city of Pachuca.`\
 https://www.nytimes.com/2026/06/30/world/americas/world-cup-mexico-soccer.html
-
-**Supreme Court Strikes Down Trump’s Order to Limit Birthright Citizenship**\
-`The Supreme Court rejected President Trump’s executive order that limited birthright citizenship on Tuesday. The decision stopped a more than decade-long effort by the president to use the issue as a political tool.`\
-https://www.nytimes.com/video/us/politics/100000011001650/birthright-citizenship-supreme-court.html
-
-**Venezuela’s Maduro Accused in Lawsuit of Authorizing Police Killings**\
-`Five families whose loved ones were killed during a deadly police campaign have sued the former Venezuelan leader in U.S. court in Brooklyn.`\
-https://www.nytimes.com/2026/06/30/world/americas/venezuela-maduro-killings-lawsuit.html
 
