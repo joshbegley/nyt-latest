@@ -1,3 +1,7 @@
+**Professor Fired for Criticizing Charlie Kirk Wins $1.9 Million Settlement**\
+`Tamar Shirinian, a former professor at the University of Tennessee at Knoxville, was among those who lost their jobs over their posts about the slain conservative activist.`\
+https://www.nytimes.com/2026/07/01/us/tennessee-professor-charlie-kirk-settlement.html
+
 **Minanbé, unas ruinas mayas descubiertas lejos, muy lejos, de los circuitos habituales**\
 `Escaneos aéreos realizados con lidar indicaron la presencia de monumentos y otros vestigios arqueológicos en una zona remota de la península de Yucatán. La travesía para llegar ahí fue ardua.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/minanbe-ruinas-mayas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/science/rubin-telescope.html
 **Curiosity, Perseverance and Now Promise? NASA May Send a Mars Rover to the Moon.**\
 `As part of plans to establish a lunar base, the space agency may send to the moon a spare test version of the rover — as well as a soccer ball.`\
 https://www.nytimes.com/2026/06/30/science/nasa-moon-base-research.html
-
-**Supreme Court Blocks Trump’s Push to End Birthright Citizenship**\
-`Also, a House Republican says depression led to his long absence. Here's the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/06/30/briefing/supreme-court-birthright-citizenship.html
 
