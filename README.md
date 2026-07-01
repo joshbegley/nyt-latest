@@ -1,3 +1,7 @@
+**This Cell Feeds, Grows and Reproduces. And It’s Manmade.**\
+`From chemical building blocks, scientists have created synthetic cells that have most of the hallmarks of life.`\
+https://www.nytimes.com/interactive/2026/07/01/science/spudcells-synthetic-cell.html
+
 **Ecuador vs. Mexico Divided This Neighborhood. But Only for 90 Minutes.**\
 `Only one team could win the World Cup match on Tuesday, but all of Roosevelt Avenue in Corona, Queens, seemed to come together for the block party.`\
 https://www.nytimes.com/2026/07/01/nyregion/ecuador-mexico-world-cup-fans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/us/politics/trump-fact-check-american-history
 **Despite Some Losses for Trump, Supreme Court Delivers Enduring Conservative Wins**\
 `The justices pushed back on some of President Trump’s signature moves, but they also expanded presidential power and supplied victories on long-sought conservative goals.`\
 https://www.nytimes.com/2026/07/01/us/politics/supreme-court-term-trump-conservatives.html
-
-**A Risky Burial in the Heart of an Ebola Outbreak**\
-`Safe interment is critical to containing the deadly disease, but in recent days around one Congolese town, that was not always being done.`\
-https://www.nytimes.com/2026/07/01/world/africa/ebola-congo-burials.html
 

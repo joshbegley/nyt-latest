@@ -1,3 +1,7 @@
+**Anthropic Won a Reprieve From the Trump Administration. Is It Enough?**\
+`The company can restore access to its most powerful A.I. models. But Silicon Valley remains worried about the Trump Administration’s heavier hand on regulation.`\
+https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trump.html
+
 **Ecuador vs. Mexico Divided This Neighborhood. But Only for 90 Minutes.**\
 `Only one team could win the World Cup match on Tuesday, but all of Roosevelt Avenue in Corona, Queens, seemed to come together for the block party.`\
 https://www.nytimes.com/2026/07/01/nyregion/ecuador-mexico-world-cup-fans.html
