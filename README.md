@@ -1,8 +1,12 @@
+**¿Cuál es la cuna del fútbol mexicano? Depende a quién le preguntes**\
+`Una pequeña localidad minera se convirtió en destino turístico por su abolengo futbolero. Una ciudad vecina reivindica el mismo legado.`\
+https://www.nytimes.com/es/2026/06/30/espanol/deportes/cuna-futbol-mexicano-hidalgo.html
+
 **NYT Crossword Answers for July 1, 2026**\
 `Jeffrey Martinovic bends the laws of crossword physics.`\
 https://www.nytimes.com/2026/06/30/crosswords/2026-07-01.html
 
-**Colorado’s Attorney General Upsets Bennet in Primary for Governor**\
+**Phil Weiser Upsets Michael Bennet in Colorado Democratic Governor Primary**\
 `Phil Weiser beat Senator Michael Bennet in the Democratic primary, presenting himself as the stronger foil for President Trump.`\
 https://www.nytimes.com/2026/06/30/us/colorado-governor-democrat-phil-weiser.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/world/china-ai-jobs-birthright-hormuz.html
 **Neon Buys ‘Artificial,’ a Film About OpenAI, After Amazon Dropped It**\
 `Neon purchased “Artificial,” which focuses on OpenAI’s chief, Sam Altman, after Amazon walked away from it following an investment in the start-up.`\
 https://www.nytimes.com/2026/06/30/business/media/openai-movie-artificial-neon-amazon.html
-
-**The Two Mexico Cities Fighting for Claim Over Soccer’s Origin**\
-`Mineral del Monte, a small former mining town that became a tourist destination partly because of its Cornish influence, claims that soccer in Mexico started there. Well, so does the nearby city of Pachuca.`\
-https://www.nytimes.com/2026/06/30/world/americas/world-cup-mexico-soccer.html
 
