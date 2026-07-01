@@ -1,3 +1,11 @@
+**World Cup Success Is Giving Americans ‘Permission to Be Patriotic’**\
+`Heading into the World Cup, many Americans had mixed feelings about the tournament and their nation.`\
+https://www.nytimes.com/2026/07/01/us/world-cup-american-pride.html
+
+**An American Mosaic**\
+`This map shows how people in the United States identify their ancestry or family origin. Explore the many ways we describe our heritage and ourselves.`\
+https://www.nytimes.com/interactive/2026/07/01/us/america-ancestry-census-data-map.html
+
 **Two People Climb Empire State Building’s Spire and Display Flag**\
 `Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black flag with a quote on it.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
