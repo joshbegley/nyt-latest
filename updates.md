@@ -1,3 +1,7 @@
+**How to Dress for a Heat Wave**\
+`Advice for choosing the best fabrics and styles to help cool you down in extreme heat.`\
+https://www.nytimes.com/2026/07/01/style/heat-wave-clothing-materials-stay-cool.html
+
 **Troop Casualties in Ukraine War Top 2 Million, Study Finds**\
 `Russia has borne the heavier toll, with 1.4 million troops killed or wounded since it invaded in February 2022.`\
 https://www.nytimes.com/2026/07/01/us/politics/russia-ukraine-troop-casualties.html
