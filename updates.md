@@ -1,3 +1,7 @@
+**Couple Climbs Needle of Empire State Building**\
+`After making the ascent, the man proposed to the woman on a tiny platform, 1,450 feet above the city.`\
+https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
+
 **Chris Brown’s Former Housekeeper Awarded $13 Million in Dog Mauling**\
 `The housekeeper said in her lawsuit that a dog weighing more than 200 pounds had “savagely” bitten her at the singer’s California home in 2020.`\
 https://www.nytimes.com/2026/07/01/arts/music/chris-brown-dog-mauling-verdict.html

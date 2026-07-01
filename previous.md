@@ -171,7 +171,7 @@ https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire
 https://www.nytimes.com/2026/07/01/climate/interior-department-ethics-chatfield.html
 
 **Couple Climbs Needle of Empire State Building**\
-`After making the climb, the pair unfurled a large black banner and apparently posted to Instagram. Video shows one person proposing to the other.`\
+`After making the ascent, the man proposed to the woman on a tiny platform, 1,450 feet above the city.`\
 https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
 
 **Man Killed by Crocodile at a Popular Resort City in Mexico**\
