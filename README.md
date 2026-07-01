@@ -1,3 +1,7 @@
+**Colorado Governor Fires Officials Who Opposed Freeing Election Denier**\
+`Gov. Jared Polis commuted the sentence of Tina Peters, who tampered with voting machines in an attempt to show that the 2020 election had been rigged against President Trump.`\
+https://www.nytimes.com/2026/07/01/us/jared-polis-tina-peters-clemency-board-fired.html
+
 **Ukraine War Crosses a Grim Milestone**\
 `Also, scientists create a cell with the hallmarks of life. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/07/01/briefing/ukraine-war-casualties-air-force-one.html
@@ -162,8 +166,8 @@ https://www.nytimes.com/2026/07/01/world/americas/venezuela-earthquakes-bodies-m
 `By 2016, when he retired from the parent company of glossy magazines like Vogue, Vanity Fair and The New Yorker, print was seriously struggling.`\
 https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
 
-**Two People Climb Empire State Building’s Spire and Display Flag**\
-`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black flag with a quote on it.`\
+**Two People Climb Empire State Building’s Spire and Display Banner**\
+`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black banner with a quote on it.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
 
 **A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011004328/01vid-ml-eddie-huang-masc
 **A New Era at the Montpellier Dance Festival**\
 `The Montpellier dance festival, with new directors for the first time in more than 40 years, featured the wildly popular (La)Horde.`\
 https://www.nytimes.com/2026/07/01/arts/dance/montpellier-dance-festival-la-horde-apres-moi-le-deluge.html
-
-**Bombings in Greece Target Governing Party Members, Officials Say**\
-`A candidate for Parliament for the New Democracy party was injured in one of the bombings in the city of Thessaloniki, as were her parents, the police said.`\
-https://www.nytimes.com/2026/07/01/world/europe/greece-bombings-thessaloniki.html
 
