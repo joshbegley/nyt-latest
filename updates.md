@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 1, 2026**\
+`Jeffrey Martinovic bends the laws of crossword physics.`\
+https://www.nytimes.com/2026/06/30/crosswords/2026-07-01.html
+
+**Colorado’s Attorney General Upsets Bennet in Primary for Governor**\
+`Phil Weiser beat Senator Michael Bennet in the Democratic primary, presenting himself as the stronger foil for President Trump.`\
+https://www.nytimes.com/2026/06/30/us/colorado-governor-democrat-phil-weiser.html
+
 **Judges Strike Down Trump Rule on Loan Forgiveness for Public Servants**\
 `Two federal courts have blocked a new Trump administration rule that could have narrowed eligibility for a student loan forgiveness program for public servants.`\
 https://www.nytimes.com/2026/06/30/business/trump-student-loan-forgiveness.html
