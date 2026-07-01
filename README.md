@@ -1,3 +1,15 @@
+**Dark and Light: Words for the Fourth**\
+`Readers respond to a column by Bret Stephens and a letter about the Fourth of July. Also: Food eduction, for children and parents.`\
+https://www.nytimes.com/2026/07/01/opinion/america-250-july4.html
+
+**Washington, D.C., Is Full of Construction Zones and Armed Camps**\
+`President Trump seems to have turned swaths of the city into either a construction zone or an armed camp as he seeks to prove that he alone can improve it.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-washington-dc-construction.html
+
+**As Earthquake Death Toll Mounts, Venezuela Grapples With Recovering and Burying Bodies**\
+`As the death toll mounts, thousands of bodies have overwhelmed Venezuela’s forensic system, turning a seaport into a temporary morgue.`\
+https://www.nytimes.com/2026/07/01/world/americas/venezuela-earthquakes-bodies-morgues.html
+
 **Charles H. Townsend Dies at 82; Led Condé Nast During Digital Transition**\
 `By 2016, when he retired from the parent company of glossy magazines like Vogue, Vanity Fair and The New Yorker, print was seriously struggling.`\
 https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/01/arts/music/eurovision-song-contest-canada.htm
 **Who Is Ahead in Vermont's At-Large Congressional District?**\
 `Track the latest polls in Vermont's At-Large Congressional District.`\
 https://www.nytimes.com/interactive/polls/vermont-us-house-at-large-polls-2026.html
-
-**Who Is Ahead in the Vermont Governor's Race? Latest 2026 Election Polls**\
-`Track the latest polls in the Vermont governor election.`\
-https://www.nytimes.com/interactive/polls/vermont-governor-election-polls-2026.html
-
-**As Companies Race for Cheaper A.I. Options, This Start-Up Pitches a Solution**\
-`Together AI, which specializes in open-source artificial intelligence models, is now worth more than $8 billion.`\
-https://www.nytimes.com/2026/07/01/business/dealbook/together-ai-funding.html
-
-**A Separation of Powers**\
-`We look at the Supreme Court rulings on birthright citizenship and transgender athletes.`\
-https://www.nytimes.com/2026/07/01/briefing/supreme-court-birthright-citizenship-transgender-athletes.html
 
