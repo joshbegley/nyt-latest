@@ -1,3 +1,11 @@
+**Canada Will Compete in Eurovision Song Contest**\
+`The country’s national broadcaster confirmed that it is joining the world’s most popular singing contest next year. Some fans are urging it to send a star like Shania Twain.`\
+https://www.nytimes.com/2026/07/01/arts/music/eurovision-song-contest-canada.html
+
+**Victor Willis, Lead Singer of the Village People, Dies at 74**\
+`Often performing dressed as a helmeted police officer, he also co-wrote the group’s biggest hits, including “Y.M.C.A.” and “Macho Man.”`\
+https://www.nytimes.com/2026/07/01/arts/music/victor-willis-dead.html
+
 **Fact-Checking Trump’s Inaccurate Accounts of U.S. History**\
 `We fact-checked the president’s colorful — and inaccurate — accounts of American history from the Battle of Gettysburg to the Unabomber.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-fact-check-american-history.html
