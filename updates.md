@@ -1,3 +1,7 @@
+**No envíes cheques por correo. Simplemente no lo hagas.**\
+`Los expertos recomiendan revisar con frecuencia los movimientos de tu cuenta. Los cheques robados de los buzones pueden ser alterados y utilizados para cometer fraude.`\
+https://www.nytimes.com/es/2026/07/01/espanol/negocios/cheques-correo-estafa-fraude.html
+
 **With Lessons From a Perilous Blizzard, Mamdani Prepares for Extreme Heat**\
 `After more than two dozen people died during a brutal cold snap in New York City, city officials came up with a plan to keep people safe in the cold and extreme heat.`\
 https://www.nytimes.com/2026/07/01/nyregion/new-york-city-mamdani-heat-cold-deaths.html
