@@ -42,13 +42,13 @@ https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-con
 `Willis, who often performed dressed as a helmeted police officer, co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
 https://www.nytimes.com/2026/07/01/obituaries/victor-willis-village-people-dead.html
 
-**Uñas nude: ¿cuándo se volvió la manicura natural símbolo de status?**\
-`Las uñas al natural son una tendencia cada vez más presente. Aunque los críticos remarcan que puede haber algo de clasismo y exclusión en esta moda.`\
-https://www.nytimes.com/es/2026/07/01/espanol/estilos-de-vida/tendencia-manicure-unas-nude.html
-
 **Republicans’ Home-Field Edge for Senate Seems Just Enough for Now**\
 `Democratic candidates are generally popular, Times/Siena polling finds, but retaking the Senate remains a big challenge.`\
 https://www.nytimes.com/2026/07/01/upshot/polls-ohio-iowa-alaska-carolina.html
+
+**Uñas nude: ¿cuándo se volvió la manicura natural símbolo de status?**\
+`Las uñas al natural son una tendencia cada vez más presente. Aunque los críticos remarcan que puede haber algo de clasismo y exclusión en esta moda.`\
+https://www.nytimes.com/es/2026/07/01/espanol/estilos-de-vida/tendencia-manicure-unas-nude.html
 
 **The Birthright Decision Was Surprisingly Close, Some Legal Scholars Say**\
 `A bare majority of Supreme Court justices ruled that President Trump’s executive order was unconstitutional, reflecting a conservative shift on the issue.`\
