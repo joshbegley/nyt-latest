@@ -1,3 +1,15 @@
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV, Peacock and More in July**\
+`“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
+https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
+
+**Catholic Group Consecrates 4 Bishops, Risking Break With Vatican**\
+`The traditionalist Society of St. Pius X went ahead with the ceremony, even after the Vatican warned it would result in the bishops’ excommunication.`\
+https://www.nytimes.com/2026/07/01/world/europe/vatican-bishops-church-excommunication.html
+
+**Conservatives Don’t Have the Solution for Falling Marriage Rates**\
+`It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
+https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
+
 **This Cell Feeds, Grows and Reproduces. And It’s Manmade.**\
 `From chemical building blocks, scientists have created synthetic cells that have most of the hallmarks of life.`\
 https://www.nytimes.com/interactive/2026/07/01/science/spudcells-synthetic-cell.html

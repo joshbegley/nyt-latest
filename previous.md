@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV, Peacock and More in July**\
+`“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
+https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
+
+**Catholic Group Consecrates 4 Bishops, Risking Break With Vatican**\
+`The traditionalist Society of St. Pius X went ahead with the ceremony, even after the Vatican warned it would result in the bishops’ excommunication.`\
+https://www.nytimes.com/2026/07/01/world/europe/vatican-bishops-church-excommunication.html
+
 **This Cell Feeds, Grows and Reproduces. And It’s Manmade.**\
 `From chemical building blocks, scientists have created synthetic cells that have most of the hallmarks of life.`\
 https://www.nytimes.com/interactive/2026/07/01/science/spudcells-synthetic-cell.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/video/us/politics/100000011003842/melat-kiros-democrat-s
 `The scale of last week’s twin earthquakes began to emerge in La Guaira, Venezuela, where bodies piled up at an improvised morgue in the city’s sun-scorched port.`\
 https://www.nytimes.com/video/world/americas/100000011003697/venezuela-earthquake-la-guaira-port-bodies.html
 
-**If Conservatives Want to Save Marriage, They Need to Let It Evolve**\
+**Conservatives Don’t Have the Solution for Falling Marriage Rates**\
 `It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
 https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/realestate/homes-for-sale-in-washington-dc-co
 **The 10 Most Mind-Altering Theater Moments of 2026 (So Far)**\
 `Our critic chose 10 moments from the theatrical year that shifted her thinking.`\
 https://www.nytimes.com/2026/07/01/theater/best-theater-moments-2026-so-far.html
-
-**Fact-Checking Trump’s Inaccurate Accounts of U.S. History**\
-`We fact-checked the president’s colorful — and inaccurate — accounts of American history from the Battle of Gettysburg to the Unabomber.`\
-https://www.nytimes.com/2026/07/01/us/politics/trump-fact-check-american-history.html
-
-**Despite Some Losses for Trump, Supreme Court Delivers Enduring Conservative Wins**\
-`The justices pushed back on some of President Trump’s signature moves, but they also expanded presidential power and supplied victories on long-sought conservative goals.`\
-https://www.nytimes.com/2026/07/01/us/politics/supreme-court-term-trump-conservatives.html
 
