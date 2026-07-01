@@ -1,3 +1,7 @@
+**Toddler Discovered Dead in Back Seat of S.U.V. in Florida**\
+`The child was found by his father, who thought he had been dropped off at a preschool, the authorities and the school said.`\
+https://www.nytimes.com/2026/07/01/us/florida-toddler-dead-car-heat-wave.html
+
 **Estoy en Venezuela. La situación está peor de lo que parece**\
 `La catástrofe natural de Venezuela era inevitable, pero la devastación que ha dejado a su paso no.`\
 https://www.nytimes.com/es/2026/07/01/espanol/opinion/venezuela-terremotos-corrupcion-gobierno.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/learning/spacex-and-the-world-cup-the-winners
 **The Best Movies and Shows Streaming in July 2026: ‘Elle,’ ‘Silo’ and More**\
 `“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
 https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
-
-**Catholic Group Consecrates 4 Bishops, Risking Break With Vatican**\
-`The traditionalist Society of St. Pius X went ahead with the ceremony, even after the Vatican warned it would result in the bishops’ excommunication.`\
-https://www.nytimes.com/2026/07/01/world/europe/vatican-bishops-church-excommunication.html
 
