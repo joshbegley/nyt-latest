@@ -1,3 +1,7 @@
+**SpudCell: Scientists Made a Cell With Most of the Hallmarks of Life. Here’s What to Know.**\
+`From why it was created to whether it’s alive, here’s what to know about SpudCell, the latest advance in synthetic biology.`\
+https://www.nytimes.com/2026/07/01/science/spud-cell-what-to-know.html
+
 **Fed’s Warsh Says Inflation Poses Less Risk Than a Few Weeks Ago**\
 `The Federal Reserve chairman, Kevin Warsh, stressed that the central bank would “deliver price stability,” a point he has emphasized repeatedly since taking over in May.`\
 https://www.nytimes.com/2026/07/01/business/kevin-warsh-inflation-ecb.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/pageoneplus/corrections-july-1-2026.html
 **Hillary Clinton Makes a Surprise Appearance at Carnegie Hall**\
 `Clinton narrated “Lincoln Portrait,” a work by the American composer Aaron Copland, in her debut with a symphony orchestra.`\
 https://www.nytimes.com/2026/07/01/nyregion/hillary-clinton-carnegie-hall.html
-
-**Eddie Huang Wants Men to Do Better. Himself Included.**\
-`The chef and writer wants men to do better. Himself included.`\
-https://www.nytimes.com/2026/07/01/podcasts/eddie-huang-author-relationships.html
 
