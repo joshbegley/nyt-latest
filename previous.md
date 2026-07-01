@@ -1,3 +1,19 @@
+**Two People Arrested After Climbing Empire State Building Spire**\
+`A couple, Angela Nikolau and Ivan Beerkus, climbed the spire of the Empire State Building on Wednesday and displayed a black flag with a quote on it. The police said that they were arrested.`\
+https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new-york-nyc.html
+
+**Robby Hoffman: ‘I Don’t Think Being Offended Is the Worst Thing’**\
+`On “The Interview,” Robby Hoffman discussed the backlash she has received as her career as a comedian has taken off.`\
+https://www.nytimes.com/video/podcasts/100000011005288/robby-hoffman-i-dont-think-being-offended-is-the-worst-thing.html
+
+**Who Can Sell ‘6 7’ Chicken Nuggets? One Company Is Asking a Court to Decide**\
+`The meat and poultry giant Perdue said in a lawsuit that Soules Foods copied its packaging that is based on a meme popular with children.`\
+https://www.nytimes.com/2026/07/01/us/perdue-chicken-nuggets-lawsuit-6-7.html
+
+**Sea Hawk Helicopter Makes Emergency Landing in Arabian Sea, Navy Says**\
+`Three crew members were rescued, though a fourth remained missing. There is no indication that the landing was caused by “hostile action,” the Navy said.`\
+https://www.nytimes.com/2026/07/01/us/navy-helicopter-rescue-missing-person.html
+
 **Minnesota Pardons Sexual Abuser Who Was Set to Be Deported**\
 `Tou Lue Vang has expressed regret for abusing a 10-year-old two decades ago. The Trump administration accused Gov. Tim Walz, a Democrat, of shielding an immigrant who committed a serious crime.`\
 https://www.nytimes.com/2026/07/01/us/politics/minnesota-pardon-sexual-abuser.html
@@ -80,7 +96,7 @@ https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
 
 **Two People Climb The Empire State Building’s Spire and Display Flag**\
 `Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black flag with a quote on it.`\
-https://www.nytimes.com/video/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
+https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
 
 **A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
 `Jenifer Chatfield, a top official at the Interior Department, faces scrutiny from ethics experts for actions that could help her family’s business.`\
@@ -181,16 +197,4 @@ https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.ht
 **These Hot Dogs Are Ridiculously Good**\
 `(No description)`\
 https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.html
-
-**Can ‘Chalant’ Dating Help More People Find Love? Ask Taylor and Travis.**\
-`Taylor Swift and Travis Kelce are the poster children for enthusiastic romance. Some regular daters are pining for a similar dynamic.`\
-https://www.nytimes.com/2026/07/01/well/live/chalance-dating-taylor-swift-travis-kelce.html
-
-**Kerry Washington, Cat Cohen and Raúl Esparza Star in Off Broadway Shows in July**\
-`Kerry Washington and Kara Young pay tribute to Whoopi Goldberg, while Raúl Esparza takes on Shakespeare in the Park.`\
-https://www.nytimes.com/2026/07/01/theater/18-off-broadway-shows-july.html
-
-**SpudCell: Scientists Made a Cell With Most of the Hallmarks of Life. Here’s What to Know.**\
-`From why it was created to whether it’s alive, here’s what to know about SpudCell, the latest advance in synthetic biology.`\
-https://www.nytimes.com/2026/07/01/science/spud-cell-what-to-know.html
 

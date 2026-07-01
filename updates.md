@@ -1,3 +1,23 @@
+**Two People Arrested After Climbing Empire State Building Spire**\
+`A couple, Angela Nikolau and Ivan Beerkus, climbed the spire of the Empire State Building on Wednesday and displayed a black flag with a quote on it. The police said that they were arrested.`\
+https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new-york-nyc.html
+
+**Robby Hoffman: ‘I Don’t Think Being Offended Is the Worst Thing’**\
+`On “The Interview,” Robby Hoffman discussed the backlash she has received as her career as a comedian has taken off.`\
+https://www.nytimes.com/video/podcasts/100000011005288/robby-hoffman-i-dont-think-being-offended-is-the-worst-thing.html
+
+**Who Can Sell ‘6 7’ Chicken Nuggets? One Company Is Asking a Court to Decide**\
+`The meat and poultry giant Perdue said in a lawsuit that Soules Foods copied its packaging that is based on a meme popular with children.`\
+https://www.nytimes.com/2026/07/01/us/perdue-chicken-nuggets-lawsuit-6-7.html
+
+**Sea Hawk Helicopter Makes Emergency Landing in Arabian Sea, Navy Says**\
+`Three crew members were rescued, though a fourth remained missing. There is no indication that the landing was caused by “hostile action,” the Navy said.`\
+https://www.nytimes.com/2026/07/01/us/navy-helicopter-rescue-missing-person.html
+
+**Two People Climb The Empire State Building’s Spire and Display Flag**\
+`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black flag with a quote on it.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
+
 **Minnesota Pardons Sexual Abuser Who Was Set to Be Deported**\
 `Tou Lue Vang has expressed regret for abusing a 10-year-old two decades ago. The Trump administration accused Gov. Tim Walz, a Democrat, of shielding an immigrant who committed a serious crime.`\
 https://www.nytimes.com/2026/07/01/us/politics/minnesota-pardon-sexual-abuser.html
