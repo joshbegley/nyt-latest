@@ -1,3 +1,11 @@
+**Omán habría propuesto un pago ‘voluntario’ para el estrecho de Ormuz**\
+`A pesar de las objeciones de EE. UU., Irán y Omán avanzan con sus planes de cobrar a los barcos que transiten por el estrecho, según funcionarios y diplomáticos al tanto del asunto.`\
+https://www.nytimes.com/es/2026/07/01/espanol/mundo/oman-pago-estrecho-ormuz-peaje.html
+
+**How to World Cup**\
+`New to soccer? You’re welcome here.`\
+https://www.nytimes.com/2026/07/01/opinion/world-cup-soccer-football.html
+
 **Democratic Outsiders Keep Rolling: 5 Takeaways From Colorado’s Primaries**\
 `A democratic socialist ousted a veteran congresswoman in Denver, and a U.S. senator lost his bid for governor. But the state’s other senator fended off a progressive primary challenger.`\
 https://www.nytimes.com/2026/07/01/us/politics/colorado-primary-takeaways.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/briefing/supreme-court-birthright-citizenship
 **Trump Announces Republican Midterm Convention in Dallas, Texas**\
 `Parties normally hold conventions only in presidential years, but President Trump liked the idea of mobilizing Republicans this fall.`\
 https://www.nytimes.com/2026/06/30/us/politics/trump-republican-midterm-convention-dallas-texas.html
-
-**Trump Officials Sideline Machado, Venezuela’s Opposition Leader, Over Earthquake Response**\
-`U.S. officials called a bid by María Corina Machado, the Nobel Peace Prize winner, to return to earthquake-battered Venezuela a “political stunt” that has distracted from recovery efforts.`\
-https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.html
-
-**Takeaways From a Transformative Supreme Court Term**\
-`The justices rejected some of President Trump’s signature initiatives, but delivered lasting, long-sought conservative wins.`\
-https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
 
