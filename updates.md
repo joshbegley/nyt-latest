@@ -1,3 +1,11 @@
+**England’s World Cup Hopes, and USMNT-Bosnia Preview**\
+`The “Three Lions” take on the Democratic Republic of Congo in the Round of 32.`\
+https://www.nytimes.com/2026/07/01/podcasts/england-congo-world-cup-usmnt-bosnia.html
+
+**3 People Die During World Cup Celebrations in Mexico City**\
+`A man, 44, and two women, ages 19 and 48, died from asphyxiation, the authorities said, as crowds celebrated the Mexican team’s victory over Ecuador.`\
+https://www.nytimes.com/2026/07/01/world/americas/world-cup-mexico-city-crowd-deaths.html
+
 **Why Americans Will Get Less Help Paying for College**\
 `With new limits on federal lending, many students will need private loans and some could be shut out.`\
 https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
