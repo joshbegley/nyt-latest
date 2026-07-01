@@ -1,3 +1,7 @@
+**Professor Fired for Criticizing Charlie Kirk Wins $1.9 Million Settlement**\
+`Tamar Shirinian, a former professor at the University of Tennessee at Knoxville, was among those who lost their jobs over their posts about the slain conservative activist.`\
+https://www.nytimes.com/2026/07/01/us/tennessee-professor-charlie-kirk-settlement.html
+
 **Minanbé, unas ruinas mayas descubiertas lejos, muy lejos, de los circuitos habituales**\
 `Escaneos aéreos realizados con lidar indicaron la presencia de monumentos y otros vestigios arqueológicos en una zona remota de la península de Yucatán. La travesía para llegar ahí fue ardua.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/minanbe-ruinas-mayas.html
