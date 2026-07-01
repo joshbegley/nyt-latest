@@ -1,3 +1,11 @@
+**Judge Blocks Postal Service From Imposing Restrictions on Mail-In Ballots**\
+`The ruling, based on agreements the service made in a 2021 legal settlement, was the second time a judge has blocked new restrictions by President Trump on mail-in voting.`\
+https://www.nytimes.com/2026/07/01/us/politics/judge-trump-postal-service.html
+
+**Promising Much to Many, Johnson Loses His Grip on the House**\
+`Republicans are growing frustrated with Mr. Johnson’s approach to governing with a razor-thin majority, saying that he promises more than he can achieve, frustrating the disparate groups in his caucus.`\
+https://www.nytimes.com/2026/07/01/us/politics/mike-johnson-house-majority.html
+
 **August Trial Date Is Set for Brooklyn Power Broker Accused of Bribery**\
 `Lawyers for Frank Carone, who was an aide to former Mayor Eric Adams, said they want his trial to begin as soon as possible.`\
 https://www.nytimes.com/2026/07/01/nyregion/frank-carone-corruption-trial-date.html
