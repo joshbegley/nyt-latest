@@ -1,3 +1,7 @@
+**The Heat Wave Proves That We Need to Adapt to Climate Change**\
+`The world’s infrastructure was built for a climate we no longer have.`\
+https://www.nytimes.com/2026/07/01/opinion/heat-wave-europe-america.html
+
 **The Good List: 7 Things to Add Joy to Your Day**\
 `Old menus, vivid lightning and Richard Grant sniffing things.`\
 https://www.nytimes.com/2026/07/01/briefing/the-good-list-ram-dass-handwriting.html
