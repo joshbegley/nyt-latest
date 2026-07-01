@@ -1,9 +1,13 @@
+**Trump Suggestion of a Syrian Crackdown on Hezbollah Confounds Many in Mideast**\
+`During peace talks, President Trump repeatedly floated the idea that Syria could help subdue Hezbollah in Lebanon. The proposal revived bitter memories.`\
+https://www.nytimes.com/2026/07/01/world/middleeast/syria-trump-hezbollah-lebanon.html
+
 **Negociaciones del TMEC: lo que hay que saber**\
 `El 1 de julio podría ser el principio del fin de un acuerdo comercial que el presidente Donald Trump lleva tiempo criticando; o el inicio de un camino para renovarlo.`\
 https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-conversaciones-trump.html
 
 **Victor Willis, Village People Frontman, Dies at 74**\
-`Dressed as a helmeted police officer, Willis co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
+`Willis, who often performed dressed as a helmeted police officer, co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
 https://www.nytimes.com/2026/07/01/obituaries/victor-willis-village-people-dead.html
 
 **Uñas nude: ¿cuándo se volvió la manicura natural símbolo de status?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/style/sukeban-japanese-womens-wrestling-olump
 **How War Takes Its Toll on Ukraine’s Pregnant Women**\
 `Bombings, blackouts and displacement compound maternal anxiety. Still, many women persevere. “We must bring new life,” one said.`\
 https://www.nytimes.com/2026/07/01/world/europe/ukraine-war-pregnant-women-hospitals.html
-
-**Texas Stock Exchange Launches as Dallas Builds Y’all Street**\
-`City leaders are wagering that a growing cluster of Wall Street firms can cement Dallas as “Y’all Street,” even as marquee names head for the exits.`\
-https://www.nytimes.com/2026/07/01/us/texas-stock-exchange-dallas-yall-street.html
 

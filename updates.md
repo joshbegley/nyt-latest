@@ -1,3 +1,7 @@
+**Why Are So Many Cubans Migrating to Guyana?**\
+`Guyana, a tiny, oil-rich, English-speaking South American country, has become a destination for Cubans fleeing desperate conditions. We traveled to the capital, Georgetown, to meet with migrant families and learn more about the lives they left behind.`\
+https://www.nytimes.com/video/world/americas/100000010968903/cuba-guyana-immigrants.html
+
 **Negociaciones del TMEC: lo que hay que saber**\
 `El 1 de julio podría ser el principio del fin de un acuerdo comercial que el presidente Donald Trump lleva tiempo criticando; o el inicio de un camino para renovarlo.`\
 https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-conversaciones-trump.html
