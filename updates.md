@@ -1,3 +1,7 @@
+**Does Trump Worry About Conflicts of Interest? ‘I Found Out That Nobody Cared.’**\
+`American presidents have generally tried to avoid appearing to profit from the office. President Trump has chosen a different path.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-money-conflicts-presidency.html
+
 **¿Y si sí? México encuentra esperanza en la Copa Mundial**\
 `El desempeño de la selección mexicana en el Mundial ha electrizado a la nación, atrayendo a cientos de miles de personas a celebraciones callejeras que se han convertido en expresión de resiliencia y optimismo colectivos.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mexico-elimina-ecuador-celebraciones.html
