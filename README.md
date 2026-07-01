@@ -1,3 +1,7 @@
+**Who Is Ahead in the Vermont Governor's Race? Latest 2026 Election Polls**\
+`Track the latest polls in the Vermont governor election.`\
+https://www.nytimes.com/interactive/polls/vermont-governor-election-polls-2026.html
+
 **As Companies Race for Cheaper A.I. Options, This Start-Up Pitches a Solution**\
 `Together AI, which specializes in open-source artificial intelligence models, is now worth more than $8 billion.`\
 https://www.nytimes.com/2026/07/01/business/dealbook/together-ai-funding.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/arts/fun-things-to-do-nyc-july.html
 **How A.I. Might Change the Way Doctors Think**\
 `For generations, writing up a summary of a patient exam was a vital step for physicians trying to make an accurate diagnosis. What happens when A.I. does it for them?`\
 https://www.nytimes.com/2026/07/01/magazine/ai-medical-scribes-doctors.html
-
-**A Town in Quebec Is the First Governing Body to Adopt the Universal Declaration of the Rights of Trees**\
-`Terrasse-Vaudreuil has adopted a resolution to protect trees, which its mayor called “indispensable allies,” as living beings.`\
-https://www.nytimes.com/2026/07/01/world/canada/quebec-trees-rights-canada-terrasse-vaudreuil.html
 

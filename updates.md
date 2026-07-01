@@ -1,3 +1,11 @@
+**As Companies Race for Cheaper A.I. Options, This Start-Up Pitches a Solution**\
+`Together AI, which specializes in open-source artificial intelligence models, is now worth more than $8 billion.`\
+https://www.nytimes.com/2026/07/01/business/dealbook/together-ai-funding.html
+
+**Victor Willis, Village People Frontman, Dies at 74**\
+`Often performing dressed as a helmeted police officer, he co-wrote the group’s biggest hits, including “Y.M.C.A” and “Macho Man.”`\
+https://www.nytimes.com/2026/07/01/arts/music/victor-willis-dead.html
+
 **A Separation of Powers**\
 `We look at the Supreme Court rulings on birthright citizenship and transgender athletes.`\
 https://www.nytimes.com/2026/07/01/briefing/supreme-court-birthright-citizenship-transgender-athletes.html
