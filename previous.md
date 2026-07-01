@@ -1,3 +1,7 @@
+**Minnesota Pardons Sexual Abuser Who Was Set to Be Deported**\
+`Tou Lue Vang has expressed regret for abusing a 10-year-old two decades ago. The Trump administration accused Gov. Tim Walz, a Democrat, of shielding an immigrant who committed a serious crime.`\
+https://www.nytimes.com/2026/07/01/us/politics/minnesota-pardon-sexual-abuser.html
+
 **Robby Hoffman on Being Outed at 17**\
 `On “The Interview,” the comedian Robby Hoffman talked about what it was like to have her relationship with her girlfriend exposed when she was 17.`\
 https://www.nytimes.com/video/podcasts/100000011005264/robby-hoffman-on-being-outed-at-17.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/theater/18-off-broadway-shows-july.html
 **SpudCell: Scientists Made a Cell With Most of the Hallmarks of Life. Here’s What to Know.**\
 `From why it was created to whether it’s alive, here’s what to know about SpudCell, the latest advance in synthetic biology.`\
 https://www.nytimes.com/2026/07/01/science/spud-cell-what-to-know.html
-
-**Fed’s Warsh Says Inflation Poses Less Risk Than a Few Weeks Ago**\
-`The Federal Reserve chairman, Kevin Warsh, stressed that the central bank would “deliver price stability,” a point he has emphasized repeatedly since taking over in May.`\
-https://www.nytimes.com/2026/07/01/business/kevin-warsh-inflation-ecb.html
 

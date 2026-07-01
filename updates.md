@@ -1,3 +1,7 @@
+**Minnesota Pardons Sexual Abuser Who Was Set to Be Deported**\
+`Tou Lue Vang has expressed regret for abusing a 10-year-old two decades ago. The Trump administration accused Gov. Tim Walz, a Democrat, of shielding an immigrant who committed a serious crime.`\
+https://www.nytimes.com/2026/07/01/us/politics/minnesota-pardon-sexual-abuser.html
+
 **Robby Hoffman on Being Outed at 17**\
 `On “The Interview,” the comedian Robby Hoffman talked about what it was like to have her relationship with her girlfriend exposed when she was 17.`\
 https://www.nytimes.com/video/podcasts/100000011005264/robby-hoffman-on-being-outed-at-17.html
