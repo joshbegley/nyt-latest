@@ -1,3 +1,7 @@
+**Ecuador vs. Mexico Divided This Neighborhood. But Only for 90 Minutes.**\
+`Only one team could win the World Cup match on Tuesday, but all of Roosevelt Avenue in Corona, Queens, seemed to come together for the block party.`\
+https://www.nytimes.com/2026/07/01/nyregion/ecuador-mexico-world-cup-fans.html
+
 **Democratic Socialist Ousts 15-Term Incumbent in Colorado Primary**\
 `Melat Kiros, an immigrant and first-time candidate, will most likely head to Congress in a deep blue Colorado district after defeating Representative Diana DeGette, a 15-term incumbent, in a Democratic House primary.`\
 https://www.nytimes.com/video/us/politics/100000011003842/melat-kiros-democrat-socialist-colorado-primaries.html
