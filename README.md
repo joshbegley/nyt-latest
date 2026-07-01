@@ -190,8 +190,8 @@ https://www.nytimes.com/2026/07/01/world/americas/venezuela-earthquakes-bodies-m
 `By 2016, when he retired from the parent company of glossy magazines like Vogue, Vanity Fair and The New Yorker, print was seriously struggling.`\
 https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
 
-**Two People Climb Empire State Building’s Spire and Display Banner**\
-`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black banner with a quote on it.`\
+**A Couple Climb Atop the Empire State Building for a Marriage Proposal**\
+`Two Russian “rooftoppers” ascended the spire of the Empire State Building, 1,450 feet above the city, and one got down on one knee and presented a ring.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
 
 **A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
