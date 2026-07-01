@@ -1,3 +1,11 @@
+**Man Killed by Crocodile at a Popular Resort City in Mexico**\
+`The government described the rare fatal attack in Puerto Vallarta as “deeply unfortunate, unusual and isolated.”`\
+https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html
+
+**Micron to Donate $250 Million to Trump Accounts, Trump Says**\
+`President Trump said that the U.S. chipmaker would make a significant donation to a new type of investment account for children created by the administration.`\
+https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
+
 **First Europe, Then North America: Welcome to Heat Dome Summer.**\
 `What’s causing all the record-breaking heat, and when will it end?`\
 https://www.nytimes.com/2026/07/01/weather/heat-domes-europe-us.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.
 **NYT Connections Answers for July 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
 https://www.nytimes.com/2026/07/01/crosswords/connections-companion-1117.html
-
-**Today’s Wordle Hints for July 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
-https://www.nytimes.com/2026/07/01/crosswords/wordle-review-1839.html
-
-**NYT Strands Hints for July 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
-https://www.nytimes.com/2026/07/01/crosswords/strands-sidekick-851.html
 
