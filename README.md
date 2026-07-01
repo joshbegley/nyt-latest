@@ -1,3 +1,7 @@
+**U.S. Braces for a Record-Breaking Heat Wave**\
+`Dangerous heat is expected across much of the United States through the Fourth of July weekend. New York City Mayor Zohran Mamdani urged people to take the forecast seriously.`\
+https://www.nytimes.com/video/us/100000011003623/us-heat-wave.html
+
 **Word of the Day: insuperable**\
 `This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/01/learning/word-of-the-day-insuperable.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/06/30/espanol/america-latina/demanda-maduro-broo
 **After a Tap Heard in Rubble, U.S. Rescue Teams Begin a Grueling Marathon**\
 `Surrounded by the devastation of Venezuela’s earthquakes, emergency specialists from California, Virginia and Florida work with locals to search for survivors.`\
 https://www.nytimes.com/2026/06/30/us/american-rescue-teams-venezuela-earthquake.html
-
-**Trump Pulled in at Least $2.2 Billion in 2025, Financial Disclosure Shows**\
-`The release of a mandatory financial disclosure for 2025 shows that the Trump family’s holdings, particularly the president’s crypto businesses, were stunningly lucrative.`\
-https://www.nytimes.com/2026/06/30/us/politics/trump-financial-disclosure-crypto-windfall.html
 
