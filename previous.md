@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/07/01/us/politics/trump-saudi-crown-prince-iran.htm
 `Heeva Alavi, an Iranian-American, writes about her family’s mixed emotions about the World Cup, while Aariv Shah reflects on the SpaceX I.P.O.`\
 https://www.nytimes.com/2026/07/01/learning/spacex-and-the-world-cup-the-winners-of-week-2-of-our-summer-reading-contest.html
 
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV, Peacock and More in July**\
+**The Best Movies and Shows Streaming in July 2026: ‘Elle,’ ‘Silo’ and More**\
 `“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
 https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
 
