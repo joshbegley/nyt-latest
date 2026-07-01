@@ -1,3 +1,15 @@
+**U.S.A.I.D. Cuts Killed People. That’s the Truth.**\
+`Musk insists that his demolition of humanitarian aid didn’t cost lives. So I propose he take a trip with me.`\
+https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html
+
+**¿Qué hace Venezuela con sus muertos?**\
+`A medida que aumenta el número de fallecidos, el sistema forense de Venezuela se ha visto desbordado con miles de cuerpos, hasta el punto de que un puerto se ha convertido en una morgue provisional.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-muertos-cuerpos.html
+
+**Ukraine Takes the War to Russia**\
+`Kyiv’s aim is simple: Put enough pressure on President Vladimir Putin that he agrees to end the war. Will it work?`\
+https://www.nytimes.com/2026/07/01/world/ukraine-war-russia-putin-maduro-harry-kane.html
+
 **Three People Die During Mexico City’s World Cup Celebrations**\
 `A man and two women died from asphyxiation during World Cup celebrations in Mexico City following the National Teams win over Ecuador on Tuesday, local authorities said.`\
 https://www.nytimes.com/video/world/americas/100000011004349/people-dead-mexico-city-world-cup.html
@@ -126,8 +138,8 @@ https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire
 `Jenifer Chatfield, a top official at the Interior Department, faces scrutiny from ethics experts for actions that could help her family’s business.`\
 https://www.nytimes.com/2026/07/01/climate/interior-department-ethics-chatfield.html
 
-**Two People Climb Needle of Empire State Building**\
-`After making the climb, the pair unfurled a large black flag and apparently posted to Instagram. Video appears to show one person proposing to the other.`\
+**Couple Climbs Needle of Empire State Building**\
+`After making the climb, the pair unfurled a large black banner and apparently posted to Instagram. Video shows one person proposing to the other.`\
 https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
 
 **Man Killed by Crocodile at a Popular Resort City in Mexico**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mueren-personas-mex
 **Which Is More Powerful, the MAGA Right, or ‘Woke’ Left?**\
 `The Times Opinion columnist Ezra Klein and the conservative activist Christopher Rufo see the dangers of the right and the left differently. They talk about their disagreements on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000010979150/which-is-more-powerful-the-maga-right-or-woke-left.html
-
-**How to Dress for a Heat Wave**\
-`Advice for choosing the best fabrics and styles to help cool you down in extreme heat.`\
-https://www.nytimes.com/2026/07/01/style/heat-wave-clothing-materials-stay-cool.html
-
-**Sour Cream and Onion Hot Dogs**\
-`Put chips on your hot dog! And other delicious things too. Ali Slagle, a Cooking contributor, is here to up your hot dog game.`\
-https://www.nytimes.com/video/dining/100000011004263/sour-cream-and-onion-hot-dogs.html
-
-**8 Essential Songs Produced by Tay Keith**\
-`The Memphis-born producer, who died in June at 29, brought deceptively soulful moodiness to some of the biggest rap hits of the past decade.`\
-https://www.nytimes.com/2026/07/01/arts/music/tay-keith-songs.html
 

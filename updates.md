@@ -1,3 +1,19 @@
+**U.S.A.I.D. Cuts Killed People. That’s the Truth.**\
+`Musk insists that his demolition of humanitarian aid didn’t cost lives. So I propose he take a trip with me.`\
+https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html
+
+**¿Qué hace Venezuela con sus muertos?**\
+`A medida que aumenta el número de fallecidos, el sistema forense de Venezuela se ha visto desbordado con miles de cuerpos, hasta el punto de que un puerto se ha convertido en una morgue provisional.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-muertos-cuerpos.html
+
+**Ukraine Takes the War to Russia**\
+`Kyiv’s aim is simple: Put enough pressure on President Vladimir Putin that he agrees to end the war. Will it work?`\
+https://www.nytimes.com/2026/07/01/world/ukraine-war-russia-putin-maduro-harry-kane.html
+
+**Couple Climbs Needle of Empire State Building**\
+`After making the climb, the pair unfurled a large black banner and apparently posted to Instagram. Video shows one person proposing to the other.`\
+https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
+
 **Adults Arrested After 16 Children Are Found in Squalor in Rural Ohio**\
 `The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said. The adults pleaded not guilty.`\
 https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
