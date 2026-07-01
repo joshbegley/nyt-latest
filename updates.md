@@ -1,3 +1,11 @@
+**Anthropic Won a Reprieve From the Trump Administration. Is It Enough?**\
+`The company can restore access to its most powerful A.I. models. But Silicon Valley remains worried about the Trump administration’s heavier hand on regulation.`\
+https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trump.html
+
+**What to Know About the U.S.-Mexico-Canada Trade Agreement Talks**\
+`July 1 could be the beginning of the end for a trade pact President Trump has long criticized — or the start of a path to its renewal.`\
+https://www.nytimes.com/2026/07/01/business/economy/usmca-north-america-trade.html
+
 **SpudCell: Scientists Made a Cell With Most of the Hallmarks of Life. Here’s What to Know.**\
 `From why it was created to whether it’s alive, here’s what to know about SpudCell, the latest advance in synthetic biology.`\
 https://www.nytimes.com/2026/07/01/science/spud-cell-what-to-know.html
