@@ -1,3 +1,23 @@
+**Sour Cream and Onion Hot Dogs**\
+`Put chips on your hot dog! And other delicious things too. Ali Slagle, a Cooking contributor, is here to up your hot dog game.`\
+https://www.nytimes.com/video/dining/100000011004263/sour-cream-and-onion-hot-dogs.html
+
+**8 Essential Songs Produced by Tay Keith**\
+`The Memphis-born producer, who died in June at 29, brought deceptively soulful moodiness to some of the biggest rap hits of the past decade.`\
+https://www.nytimes.com/2026/07/01/arts/music/tay-keith-songs.html
+
+**The Divorce Crusader**\
+`Part activist, part influencer, Adina Sash will do anything to rescue Orthodox women she sees as trapped in their marriages.`\
+https://www.nytimes.com/2026/07/01/style/adina-sash-flatbush-girl-jewish-divorce.html
+
+**Pineapple Hot Dogs**\
+`Hawaiian pizza fans, listen up: Put pineapple on your hot dog, too! Ali Slagle, a Cooking contributor, shows you how.`\
+https://www.nytimes.com/video/dining/100000011004161/pineapple-hot-dogs.html
+
+**What Would Taylor Swift and Travis Kelce’s Prenuptial Agreement Look Like?**\
+`What would a prenuptial agreement between one of the world’s biggest pop stars and a three-time Super Bowl champion look like? Legal experts weigh in.`\
+https://www.nytimes.com/2026/07/01/business/taylor-swift-travis-kelce-prenup.html
+
 **Today, In Short**\
 `Food history. LeBron James. And an obstacle course.`\
 https://www.nytimes.com/2026/07/01/briefing/today-in-short.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/07/01/us/crunchtime-in-the-air-conditioning-busines
 **How ‘Widow’s Bay’ Created All Those Creepy Board Games**\
 `Our reporter talked to the team that made the shudder-inducing boxes.`\
 https://www.nytimes.com/2026/07/01/crosswords/widows-bay-creepy-board-games.html
-
-**Para la selección de España, un toque de casa en Tennessee**\
-`Una imprenta local ha fabricado cientos de pancartas en español para uno de los favoritos del Mundial, que ahora entrena en Chattanooga.`\
-https://www.nytimes.com/es/2026/07/01/espanol/deportes/espana-tennessee.html
-
-**What to Know About the U.S.-Mexico-Canada Trade Agreement Talks**\
-`July 1 could be the beginning of the end for a trade pact President Trump has long criticized — or the start of a path to its renewal.`\
-https://www.nytimes.com/2026/07/01/business/economy/usmca-north-america-trade.html
-
-**After Venezuela Earthquakes, Deportees from the U.S. Are Missing or Found Dead**\
-`Many of the 146 Venezuelans deported from the United States the day the earthquake struck are feared dead.`\
-https://www.nytimes.com/2026/07/01/world/americas/venezuela-earthquakes-deportees-us-deaths.html
-
-**Five Words That Shook the World**\
-`It wasn’t Thomas Jefferson who made “All men are created equal” actually mean something.`\
-https://www.nytimes.com/2026/07/01/opinion/declaration-independence-jefferson-douglass-lincoln.html
-
-**Control of the Senate Is Up for Grabs, Times/Siena Polls Find**\
-`Republicans are defending seats in Alaska, Iowa, Maine, North Carolina, Ohio and Texas as they try to maintain their majority. Democrats are competitive in all six states — but not leading in enough to take the chamber.`\
-https://www.nytimes.com/2026/07/01/us/politics/polls-senate-control.html
 
