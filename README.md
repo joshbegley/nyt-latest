@@ -1,3 +1,19 @@
+**Estoy en Venezuela. La situación está peor de lo que parece**\
+`La catástrofe natural de Venezuela era inevitable, pero la devastación que ha dejado a su paso no.`\
+https://www.nytimes.com/es/2026/07/01/espanol/opinion/venezuela-terremotos-corrupcion-gobierno.html
+
+**Celebrating the World Cup, the English Ask: Who Owns the Flag?**\
+`The national flag of England, a white banner with a bold red cross, has been displayed by soccer fans during the World Cup. But it has caused tension over whom, and what, it is meant to represent.`\
+https://www.nytimes.com/2026/07/01/world/europe/england-world-cup-flags.html
+
+**Trump Flies on New Air Force One Jet Gifted by Qatar**\
+`President Trump took his first flight on the new Air Force One, a luxury Boeing 747-8 gifted by Qatar. Trump’s decision to accept the jet from a foreign government has prompted ethical concerns from lawmakers.`\
+https://www.nytimes.com/video/us/politics/100000011004086/trump-qatar-air-force-one.html
+
+**Chris Brown’s Former Housekeeper Awarded $13 Million in Dog Mauling**\
+`The housekeeper said in her lawsuit that a dog weighing more than 200 pounds had “savagely” bit her at the singer’s California home in 2020.`\
+https://www.nytimes.com/2026/07/01/arts/music/chris-brown-dog-mauling-verdict.html
+
 **Trump Administration Sues Over New Gun Bans in Virginia and California**\
 `The Justice Department is challenging a ban on semiautomatic assault rifles in Virginia and a ban on Glocks and Glock-style pistols in California, arguing they are unlawful under the Second Amendment.`\
 https://www.nytimes.com/2026/07/01/us/politics/justice-trump-suit-gun-ban-virginia-california.html
@@ -58,8 +74,8 @@ https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
 `The government described the rare fatal attack in Puerto Vallarta as “deeply unfortunate, unusual and isolated.”`\
 https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html
 
-**Trump Accounts to Receive $250 Million Donation From Chip Maker Micron, Trump Says**\
-`The president said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration for children.`\
+**Trump Accounts to Receive $250 Million Donation From Chip Maker Micron**\
+`President Trump said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration for children.`\
 https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
 
 **First Europe, Then North America: Welcome to Heat Dome Summer.**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-str
 **Catholic Group Consecrates 4 Bishops, Risking Break With Vatican**\
 `The traditionalist Society of St. Pius X went ahead with the ceremony, even after the Vatican warned it would result in the bishops’ excommunication.`\
 https://www.nytimes.com/2026/07/01/world/europe/vatican-bishops-church-excommunication.html
-
-**This Cell Feeds, Grows and Reproduces. And It’s Manmade.**\
-`From chemical building blocks, scientists have created synthetic cells that have most of the hallmarks of life.`\
-https://www.nytimes.com/interactive/2026/07/01/science/spudcells-synthetic-cell.html
-
-**Ecuador vs. Mexico Divided This Neighborhood. But Only for 90 Minutes.**\
-`Only one team could win the World Cup match on Tuesday, but all of Roosevelt Avenue in Corona, Queens, seemed to come together for the block party.`\
-https://www.nytimes.com/2026/07/01/nyregion/ecuador-mexico-world-cup-fans.html
-
-**Democratic Socialist Ousts 15-Term Incumbent in Colorado Primary**\
-`Melat Kiros, an immigrant from Ethiopia and a first-time candidate, will most likely head to Congress in a deep-blue Colorado district after defeating Representative Diana DeGette, a 15-term incumbent, in a Democratic House primary.`\
-https://www.nytimes.com/video/us/politics/100000011003842/melat-kiros-democrat-socialist-colorado-primaries.html
-
-**As Earthquake Death Toll Rises, a Venezuelan Port Becomes a Morgue**\
-`The scale of last week’s twin earthquakes began to emerge in La Guaira, Venezuela, where bodies piled up at an improvised morgue in the city’s sun-scorched port.`\
-https://www.nytimes.com/video/world/americas/100000011003697/venezuela-earthquake-la-guaira-port-bodies.html
 
