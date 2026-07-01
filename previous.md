@@ -1,3 +1,7 @@
+**After Trading Attacks, U.S. and Iran Edge Back Toward Diplomacy**\
+`With negotiators in Qatar, oil prices are easing as shipowners send more vessels through the Strait of Hormuz, unblocking energy flows.`\
+https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
+
 **Where Trump Won and Lost at the Supreme Court**\
 `Abbie VanSickle, a Supreme Court correspondent for The New York Times, takes stock of the court’s term this year. Opinions largely broke for conservatives, but the court pushed back on some of President Trump’s boldest ideas.`\
 https://www.nytimes.com/video/us/100000011001507/where-trump-won-and-lost-at-the-supreme-court.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000010985958/xxtechfix-YOTO-v
 **America, Onscreen**\
 `Ten writers on the films that get at the hopes, dreams, heartbreak and hilarity of the U.S.A. as it turns 250.`\
 https://www.nytimes.com/2026/07/01/movies/what-is-the-definitive-movie-about-america.html
-
-**Book Review: ‘Gerontocracy in America,’ by Samuel Moyn**\
-`A new book by Samuel Moyn argues that the country has become an “oldigarchy,” in which wealth and power are hoarded by the elderly.`\
-https://www.nytimes.com/2026/07/01/books/review/gerontocracy-in-america-samuel-moyn.html
 

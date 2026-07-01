@@ -1,3 +1,7 @@
+**After Trading Attacks, U.S. and Iran Edge Back Toward Diplomacy**\
+`With negotiators in Qatar, oil prices are easing as shipowners send more vessels through the Strait of Hormuz, unblocking energy flows.`\
+https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
+
 **Where Trump Won and Lost at the Supreme Court**\
 `Abbie VanSickle, a Supreme Court correspondent for The New York Times, takes stock of the court’s term this year. Opinions largely broke for conservatives, but the court pushed back on some of President Trump’s boldest ideas.`\
 https://www.nytimes.com/video/us/100000011001507/where-trump-won-and-lost-at-the-supreme-court.html
