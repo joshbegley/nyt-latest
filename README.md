@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/07/01/world/europe/england-world-cup-flags.html
 https://www.nytimes.com/video/us/politics/100000011004086/trump-qatar-air-force-one.html
 
 **Chris Brown’s Former Housekeeper Awarded $13 Million in Dog Mauling**\
-`The housekeeper said in her lawsuit that a dog weighing more than 200 pounds had “savagely” bit her at the singer’s California home in 2020.`\
+`The housekeeper said in her lawsuit that a dog weighing more than 200 pounds had “savagely” bitten her at the singer’s California home in 2020.`\
 https://www.nytimes.com/2026/07/01/arts/music/chris-brown-dog-mauling-verdict.html
 
 **Trump Administration Sues Over New Gun Bans in Virginia and California**\

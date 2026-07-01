@@ -1,3 +1,7 @@
+**Ukraine War Crosses a Grim Milestone**\
+`Also, scientists create a cell with the hallmarks of life. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/07/01/briefing/ukraine-war-casualties-air-force-one.html
+
 **America Rings In 250th Birthday Amid Deep Polarization and Political Rifts**\
 `How does a deeply polarized country come together to have a birthday party?`\
 https://www.nytimes.com/2026/07/01/us/politics/usa-america-250-trump.html

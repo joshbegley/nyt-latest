@@ -1,3 +1,7 @@
+**Ukraine War Crosses a Grim Milestone**\
+`Also, scientists create a cell with the hallmarks of life. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/07/01/briefing/ukraine-war-casualties-air-force-one.html
+
 **America Rings In 250th Birthday Amid Deep Polarization and Political Rifts**\
 `How does a deeply polarized country come together to have a birthday party?`\
 https://www.nytimes.com/2026/07/01/us/politics/usa-america-250-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/arts/dance/montpellier-dance-festival-la-hord
 **Bombings in Greece Target Governing Party Members, Officials Say**\
 `A candidate for Parliament for the New Democracy party was injured in one of the bombings in the city of Thessaloniki, as were her parents, the police said.`\
 https://www.nytimes.com/2026/07/01/world/europe/greece-bombings-thessaloniki.html
-
-**Michael Byrne, British Stage Actor, Dies at 86**\
-`He had a long career in theater, and several small roles in big movies, including “Force 10 From Navarone” and “Indiana Jones and the Last Crusade.”`\
-https://www.nytimes.com/2026/07/01/obituaries/michael-byrne-dead.html
 
