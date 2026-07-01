@@ -1,3 +1,11 @@
+**Two People Arrested After Climbing Empire State Building Spire**\
+`A couple, Angela Nikolau and Ivan Beerkus, climbed the spire of the Empire State Building on Wednesday and displayed a black flag with a quote on it. The police said that they were arrested.`\
+https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new-york-nyc.html
+
+**Robby Hoffman: ‘I Don’t Think Being Offended Is the Worst Thing’**\
+`On “The Interview,” Robby Hoffman discussed the backlash she has received as her career as a comedian has taken off.`\
+https://www.nytimes.com/video/podcasts/100000011005288/robby-hoffman-i-dont-think-being-offended-is-the-worst-thing.html
+
 **Who Can Sell ‘6 7’ Chicken Nuggets? One Company Is Asking a Court to Decide**\
 `The meat and poultry giant Perdue said in a lawsuit that Soules Foods copied its packaging that is based on a meme popular with children.`\
 https://www.nytimes.com/2026/07/01/us/perdue-chicken-nuggets-lawsuit-6-7.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.ht
 **These Hot Dogs Are Ridiculously Good**\
 `(No description)`\
 https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.html
-
-**Can ‘Chalant’ Dating Help More People Find Love? Ask Taylor and Travis.**\
-`Taylor Swift and Travis Kelce are the poster children for enthusiastic romance. Some regular daters are pining for a similar dynamic.`\
-https://www.nytimes.com/2026/07/01/well/live/chalance-dating-taylor-swift-travis-kelce.html
-
-**Kerry Washington, Cat Cohen and Raúl Esparza Star in Off Broadway Shows in July**\
-`Kerry Washington and Kara Young pay tribute to Whoopi Goldberg, while Raúl Esparza takes on Shakespeare in the Park.`\
-https://www.nytimes.com/2026/07/01/theater/18-off-broadway-shows-july.html
 
