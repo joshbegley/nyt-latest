@@ -1,3 +1,7 @@
+**Manny Rutinel, a Progressive, Wins Colorado Primary for Competitive House Seat**\
+`Manny Rutinel, a state representative and former activist, will face Representative Gabe Evans, a Republican seen as vulnerable, in the fall.`\
+https://www.nytimes.com/2026/06/30/us/politics/manny-rutinel-colorado-8th-district-democrats.html
+
 **E. Jean Carroll Asks Judge to Order Trump to Pay $5 Million Jury Award**\
 `The writer’s request came after the Supreme Court declined to review a civil case in which President Trump was found liable for sexually abusing and defaming her.`\
 https://www.nytimes.com/2026/06/30/nyregion/trump-e-jean-carroll-defamation-assault.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/world/americas/venezuela-maduro-killings-laws
 **4 Warning Signs for Graham Platner. And 4 for Susan Collins Too.**\
 `The Maine race, which both parties see as key to winning control of the Senate, is extremely close, a Times/Portland Press Herald/Siena poll found. Both candidates have reasons for concern.`\
 https://www.nytimes.com/2026/06/30/us/politics/collins-platner-maine-senate-poll-worries.html
-
-**Restaurant Review: Kaiseki in the East Village**\
-`The stripped down location of the chef Hiroki Odo’s restaurant takes an à la carte approach to the Japanese meal.`\
-https://www.nytimes.com/2026/06/30/dining/brief-restaurant-review-odo-east-village.html
 
