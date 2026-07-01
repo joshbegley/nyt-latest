@@ -1,3 +1,11 @@
+**The Dress Code for Taylor Swift and Travis Kelce’s Wedding? Expect a Black-Tie Event.**\
+`New details have emerged about the celebration at Madison Square Garden, widely believed to be a wedding, including a dress code.`\
+https://www.nytimes.com/2026/06/30/style/taylor-swift-wedding-kelce-dress-code.html
+
+**EE. UU. obstaculiza el regreso de María Corina Machado a Venezuela**\
+`La líder opositora exiliada se empeña en volver a un país desolado por los terremotos, lo que ha irritado a las autoridades estadounidenses, enfocadas en la recuperación y la estabilidad.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/maria-corina-machado-trump-regreso-venezuela.html
+
 **During Traffic Stop, N.F.L. Reporter Appeared to Show Off Her Access**\
 `A body-worn camera recording shows Dianna Russini, formerly an “insider” for The Athletic, talking football with an officer and avoiding a citation.`\
 https://www.nytimes.com/2026/06/30/nyregion/dianna-russini-video-police.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/us/politics/amy-coney-barrett-gop-scotus-ruli
 **Bear Surprises Truck Owner in Colorado**\
 `A garage camera caught the moment a handyman in Colorado opened the door to his truck to find a bear cub eating his lunch inside.`\
 https://www.nytimes.com/video/embedded/at-home/100000011002282/bear-surprises-truck-owner-in-colorado.html
-
-**Trump Says It’s ‘Too Bad’ Supreme Court Upheld Birthright Citizenship**\
-`The court’s decision was a major rebuke to President Trump, who falsely asserted that Congress could reverse it through legislation.`\
-https://www.nytimes.com/2026/06/30/us/politics/trump-congress-birthright-citizenship.html
-
-**Woman Wading in Central Florida River Is Fatally Bitten by Alligator**\
-`The woman, 31, was kneeling in the shallow part of a river in Seminole County, in Central Florida, when an alligator bit her, the authorities said.`\
-https://www.nytimes.com/2026/06/30/us/woman-dies-florida-alligator-attack.html
 
