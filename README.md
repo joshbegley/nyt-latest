@@ -1,3 +1,11 @@
+**Charles H. Townsend Dies at 82; Led Condé Nast During Digital Transition**\
+`By 2016, when he retired from the parent company of glossy magazines like Vogue, Vanity Fair and The New Yorker, print was seriously struggling.`\
+https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
+
+**Two People Climb The Empire State Building’s Spire and Display Flag**\
+`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black flag with a quote on it.`\
+https://www.nytimes.com/video/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
+
 **A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
 `Jenifer Chatfield, a top official at the Interior Department, faces scrutiny from ethics experts for actions that could help her family’s business.`\
 https://www.nytimes.com/2026/07/01/climate/interior-department-ethics-chatfield.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/01/business/dealbook/together-ai-funding.html
 **A Separation of Powers**\
 `We look at the Supreme Court rulings on birthright citizenship and transgender athletes.`\
 https://www.nytimes.com/2026/07/01/briefing/supreme-court-birthright-citizenship-transgender-athletes.html
-
-**England’s World Cup Hopes, and USMNT-Bosnia Preview**\
-`The “Three Lions” take on the Democratic Republic of Congo in the Round of 32.`\
-https://www.nytimes.com/2026/07/01/podcasts/england-congo-world-cup-usmnt-bosnia.html
-
-**The Supreme Court’s Momentous Term, and How Trump Has Made at Least $2.2 Billion in Office**\
-`Plus, zombies at the mall.`\
-https://www.nytimes.com/2026/07/01/podcasts/the-headlines/supreme-court-trump.html
 
