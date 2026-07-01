@@ -1,3 +1,11 @@
+**Negociaciones del TMEC: lo que hay que saber**\
+`El 1 de julio podría ser el principio del fin de un acuerdo comercial que el presidente Donald Trump lleva tiempo criticando; o el inicio de un camino para renovarlo.`\
+https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-conversaciones-trump.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000010985958/xxtechfix-YOTO-video-916.html
+
 **Victor Willis, Village People Frontman, Dies at 74**\
 `Dressed as a helmeted police officer, Willis co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
 https://www.nytimes.com/2026/07/01/obituaries/victor-willis-village-people-dead.html
