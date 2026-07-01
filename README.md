@@ -1,4 +1,4 @@
-**Colorado Governor Fires Officials Who Opposed Freeing Election Denier**\
+**Colorado Governor Fires Officials Who Opposed Freeing Tina Peters**\
 `Gov. Jared Polis commuted the sentence of Tina Peters, who tampered with voting machines in an attempt to show that the 2020 election had been rigged against President Trump.`\
 https://www.nytimes.com/2026/07/01/us/jared-polis-tina-peters-clemency-board-fired.html
 
