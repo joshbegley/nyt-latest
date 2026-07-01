@@ -1,3 +1,15 @@
+**¿Y si sí? México encuentra esperanza en la Copa Mundial**\
+`El desempeño de la selección mexicana en el Mundial ha electrizado a la nación, atrayendo a cientos de miles de personas a celebraciones callejeras que se han convertido en expresión de resiliencia y optimismo colectivos.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mexico-elimina-ecuador-celebraciones.html
+
+**Who is Ahead in Texas's 28th Congressional District?**\
+`Track the latest polls in Texas's 28th Congressional District.`\
+https://www.nytimes.com/interactive/polls/texas-us-house-28-polls-2026.html
+
+**Who is Ahead in Arizona's 4th Congressional District?**\
+`Track the latest polls in Arizona's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-4-polls-2026.html
+
 **5 Songs to Get You Moving This Summer**\
 `Summer has officially begun, and it’s time to be out dancing. From K-pop to house to electro, our critic Jon Caramanica has five songs to get you started.`\
 https://www.nytimes.com/video/podcasts/100000011005625/5-songs-to-get-you-moving-this-summer.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire
 **A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
 `Jenifer Chatfield, a top official at the Interior Department, faces scrutiny from ethics experts for actions that could help her family’s business.`\
 https://www.nytimes.com/2026/07/01/climate/interior-department-ethics-chatfield.html
-
-**Couple Climbs Needle of Empire State Building**\
-`After making the ascent, the man proposed to the woman on a tiny platform, 1,450 feet above the city.`\
-https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
-
-**Man Killed by Crocodile at a Popular Resort City in Mexico**\
-`The government described the rare fatal attack in Puerto Vallarta as “deeply unfortunate, unusual and isolated.”`\
-https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html
-
-**Trump Accounts to Receive $250 Million Donation From Chip Maker Micron**\
-`President Trump said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration.`\
-https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
 

@@ -1,3 +1,15 @@
+**5 Songs to Get You Moving This Summer**\
+`Summer has officially begun, and it’s time to be out dancing. From K-pop to house to electro, our critic Jon Caramanica has five songs to get you started.`\
+https://www.nytimes.com/video/podcasts/100000011005625/5-songs-to-get-you-moving-this-summer.html
+
+**Does Trump Worry About Conflicts of Interest? ‘I Found Out Nobody Cared.’**\
+`American presidents have generally tried to avoid appearing to profit from the office. President Trump has chosen a different path.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-money-conflicts-presidency.html
+
+**The Key Ways Trump’s Financial Interests Intersect With Government Policy**\
+`President Trump’s business holdings, which garnered him more than $2 billion last year, create potential conflicts of interest surpassing any predecessor.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-finances-government-conflicts.html
+
 **Colorado Governor Fires Officials Who Opposed Freeing Tina Peters**\
 `Gov. Jared Polis commuted the sentence of Tina Peters, who tampered with voting machines in an attempt to show that the 2020 election had been rigged against President Trump.`\
 https://www.nytimes.com/2026/07/01/us/jared-polis-tina-peters-clemency-board-fired.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death
 **Trump Accounts to Receive $250 Million Donation From Chip Maker Micron**\
 `President Trump said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration.`\
 https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
-
-**First Europe, Then North America: Welcome to Heat Dome Summer.**\
-`What’s causing all the record-breaking heat, and when will it end?`\
-https://www.nytimes.com/2026/07/01/weather/heat-domes-europe-us.html
-
-**Eddie Huang’s New Model of Manhood**\
-`The chef and writer Eddie Huang tells Anna Martin, host of the “Modern Love” podcast, why his concept of how to be a man has changed because of his relationship with his wife, Natashia.`\
-https://www.nytimes.com/video/podcasts/100000011004328/01vid-ml-eddie-huang-masculinity.html
-
-**A New Era at the Montpellier Dance Festival**\
-`The Montpellier dance festival, with new directors for the first time in more than 40 years, featured the wildly popular (La)Horde.`\
-https://www.nytimes.com/2026/07/01/arts/dance/montpellier-dance-festival-la-horde-apres-moi-le-deluge.html
 

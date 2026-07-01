@@ -1,3 +1,15 @@
+**5 Songs to Get You Moving This Summer**\
+`Summer has officially begun, and it’s time to be out dancing. From K-pop to house to electro, our critic Jon Caramanica has five songs to get you started.`\
+https://www.nytimes.com/video/podcasts/100000011005625/5-songs-to-get-you-moving-this-summer.html
+
+**Does Trump Worry About Conflicts of Interest? ‘I Found Out Nobody Cared.’**\
+`American presidents have generally tried to avoid appearing to profit from the office. President Trump has chosen a different path.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-money-conflicts-presidency.html
+
+**The Key Ways Trump’s Financial Interests Intersect With Government Policy**\
+`President Trump’s business holdings, which garnered him more than $2 billion last year, create potential conflicts of interest surpassing any predecessor.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-finances-government-conflicts.html
+
 **Colorado Governor Fires Officials Who Opposed Freeing Tina Peters**\
 `Gov. Jared Polis commuted the sentence of Tina Peters, who tampered with voting machines in an attempt to show that the 2020 election had been rigged against President Trump.`\
 https://www.nytimes.com/2026/07/01/us/jared-polis-tina-peters-clemency-board-fired.html
