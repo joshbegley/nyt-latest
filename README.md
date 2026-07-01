@@ -1,3 +1,27 @@
+**Why Americans Will Get Less Help Paying for College**\
+`With new limits on federal lending, many students will need private loans and some could be shut out.`\
+https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
+
+**The Supreme Court’s Momentous Term, and How Trump Has Made at Least $2.2 Billion in Office**\
+`Plus, zombies at the mall.`\
+https://www.nytimes.com/2026/07/01/podcasts/the-headlines/supreme-court-trump.html
+
+**NYT Connections Answers for July 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/01/crosswords/connections-companion-1117.html
+
+**Today’s Wordle Hints for July 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/01/crosswords/wordle-review-1839.html
+
+**NYT Strands Hints for July 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/01/crosswords/strands-sidekick-851.html
+
+**3 People Die During World Cup Celebrations in Mexico City**\
+`A man, 44, and two women, ages 19 and 48, died from asphyxiation, the authorities said, as crowds celebrated the Mexican team’s victory over Ecuador.`\
+https://www.nytimes.com/2026/07/01/world/americas/3-people-die-during-world-cup-celebrations-in-mexico-city.html
+
 **Heat Wave Trudges East on Wednesday**\
 `More than 160 million people are under extreme heat warnings or heat advisories ahead of the Fourth of July weekend.`\
 https://www.nytimes.com/2026/07/01/weather/fourth-of-july-heat-wave-latest-updates.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/01/business/tungsten-mine-south-korea.html
 **Why Are So Many Cubans Migrating to Guyana?**\
 `Guyana, a tiny, oil-rich, English-speaking South American country, has become a destination for Cubans fleeing desperate conditions. We traveled to the capital, Georgetown, to meet with migrant families and learn more about the lives they left behind.`\
 https://www.nytimes.com/video/world/americas/100000010968903/cuba-guyana-immigrants.html
-
-**Should I Buy an Area Rug on Etsy?**\
-`In our new advice column, we help a reader weigh the risks of buying a rug from a vendor on the e-commerce site.`\
-https://www.nytimes.com/2026/07/01/realestate/should-i-buy-an-area-rug-on-etsy.html
-
-**The Best Relationship Tips of 2026 (So Far)**\
-`Consider your turnoffs, widen your definition of sex and craft a good “heads-up” sentence.`\
-https://www.nytimes.com/2026/07/01/well/family/dating-relationship-advice-2026-so-far.html
-
-**What Zionism Is and What It Is Not**\
-`Understanding Jewish self-determination.`\
-https://www.nytimes.com/2026/07/01/opinion/zionism-jewish-israel.html
-
-**A (Serious) Homage to Sandra Boynton, Queen of Board Books**\
-`Now that Sandra Boynton’s books have crossed generations of child-rearing — and her first, “Hippos Go Berserk!,” is approaching 50 — they deserve another look.`\
-https://www.nytimes.com/2026/07/01/books/review/sandra-boynton-board-books-kids-hippos-go-berserk.html
-
-**How Warsaw Is Becoming a Nightlife Capital**\
-`A scrappy electronic dance music scene, fueled by young collectives and buzzy D.J.s, is putting the Polish capital on the global nightlife map.`\
-https://www.nytimes.com/2026/07/01/travel/warsaw-nightlife-clubs-edm-djs.html
-
-**Is Women’s Japanese Wrestling Fashion’s Favorite New Sport?**\
-`Olympia Le-Tan’s fashion career has taken her from Chanel to the world of Sukeban.`\
-https://www.nytimes.com/2026/07/01/style/sukeban-japanese-womens-wrestling-olumpia-le-tan.html
 
