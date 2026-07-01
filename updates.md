@@ -1,3 +1,7 @@
+**U.S. Lifts Restrictions on Anthropic’s Most Powerful A.I. Models**\
+`The move allows Anthropic to bring its most powerful technologies back online, de-escalating a feud with the Trump administration.`\
+https://www.nytimes.com/2026/06/30/technology/us-lifts-restrictions-anthropic.html
+
 **Trump’s Moneymaking Run: Unrivaled in Presidential History**\
 `The president’s move to open new business ventures, rather than eliminate potential conflicts, defies a long-held tradition.`\
 https://www.nytimes.com/2026/06/30/us/politics/trump-moneymaking-presidential-history.html
