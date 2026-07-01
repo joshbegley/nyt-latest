@@ -1,3 +1,7 @@
+**Negociaciones del TMEC: lo que hay que saber**\
+`El 1 de julio podría ser el principio del fin de un acuerdo comercial que el presidente Donald Trump lleva tiempo criticando; o el inicio de un camino para renovarlo.`\
+https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/tmec-renovacion-conversaciones-trump.html
+
 **Victor Willis, Village People Frontman, Dies at 74**\
 `Dressed as a helmeted police officer, Willis co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
 https://www.nytimes.com/2026/07/01/obituaries/victor-willis-village-people-dead.html
@@ -118,6 +122,10 @@ https://www.nytimes.com/2026/07/01/movies/enola-holmes-3-review.html
 `Amid widespread “techlash” over addictive screens and apps, the Yoto, an audio player for children, shows there’s still a way to make money while doing something nice.`\
 https://www.nytimes.com/2026/07/01/technology/personaltech/yoto-music-box-screens.html
 
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000010985958/xxtechfix-YOTO-video-916.html
+
 **America, Onscreen**\
 `Ten writers on the films that get at the hopes, dreams, heartbreak and hilarity of the U.S.A. as it turns 250.`\
 https://www.nytimes.com/2026/07/01/movies/what-is-the-definitive-movie-about-america.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/world/europe/ukraine-war-pregnant-women-hospi
 **Texas Stock Exchange Launches as Dallas Builds Y’all Street**\
 `City leaders are wagering that a growing cluster of Wall Street firms can cement Dallas as “Y’all Street,” even as marquee names head for the exits.`\
 https://www.nytimes.com/2026/07/01/us/texas-stock-exchange-dallas-yall-street.html
-
-**How the Museum of Ice Cream and Other Companies Woo Visitors From Art Institutions**\
-`As arts institutions struggle to increase attendance, entertainment centers marketed as museums are wooing those who once might have gone to view art.`\
-https://www.nytimes.com/2026/07/01/arts/design/museum-of-ice-cream-companies-art.html
-
-**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
-`Results of a New York Times/Siena poll of 601 likely voters conducted from June 15 to 28, 2026.`\
-https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-ohio-poll-crosstabs.html
 
