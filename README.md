@@ -1,3 +1,11 @@
+**Where Trump Won and Lost at the Supreme Court**\
+`Abbie VanSickle, a Supreme Court correspondent for The New York Times, takes stock of the court’s term this year. Opinions largely broke for conservatives, but the court pushed back on some of President Trump’s boldest ideas.`\
+https://www.nytimes.com/video/us/100000011001507/where-trump-won-and-lost-at-the-supreme-court.html
+
+**Anthropic Won a Reprieve From the Trump Administration. Is It Enough?**\
+`The company can restore access its most powerful A.I. models. But Silicon Valley remains worried about the Trump Administration’s heavier hand on regulation.`\
+https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trump.html
+
 **Canada Will Compete in Eurovision Song Contest**\
 `The country’s national broadcaster confirmed that it is joining the world’s most popular singing contest next year. Some fans are urging it to send a star like Shania Twain.`\
 https://www.nytimes.com/2026/07/01/arts/music/eurovision-song-contest-canada.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/movies/what-is-the-definitive-movie-about-ame
 **Book Review: ‘Gerontocracy in America,’ by Samuel Moyn**\
 `A new book by Samuel Moyn argues that the country has become an “oldigarchy,” in which wealth and power are hoarded by the elderly.`\
 https://www.nytimes.com/2026/07/01/books/review/gerontocracy-in-america-samuel-moyn.html
-
-**What Older Adults Should Know About GLP-1 Drugs as Medicare Coverage Expands**\
-`A Medicare pilot beginning Wednesday will broaden access to medications like Wegovy and Zepbound. There are unique risks for those over 65.`\
-https://www.nytimes.com/2026/07/01/well/glp1-medicare.html
-
-**Is Kidmaxxing the Ultimate Status Symbol for Ultimate Wealth?**\
-`What drives these men to reproduce at an industrial scale?`\
-https://www.nytimes.com/2026/07/01/opinion/children-parents-billionaires-wealth-fathers.html
 
