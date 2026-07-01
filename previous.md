@@ -1,3 +1,15 @@
+**How JD Vance Helped bell hooks Back Onto the Best-Seller List**\
+`A grass-roots campaign urged readers to buy copies of the Black feminist writer’s 2002 book “Communion” before Vice President JD Vance’s book of the same name hit shelves.`\
+https://www.nytimes.com/2026/07/01/books/communion-bell-hooks-jd-vance.html
+
+**LeBron James’ Last Act Should Be Cleveland**\
+`James doesn’t need another championship ring or another record. He needs to be loved more.`\
+https://www.nytimes.com/2026/07/01/opinion/lebron-james-cleveland-cavaliers-nba.html
+
+**Toddler Discovered Dead in Back Seat of S.U.V. in Florida**\
+`The child was found by his father, who thought he had been dropped off at a preschool, the authorities and the school said.`\
+https://www.nytimes.com/2026/07/01/us/florida-toddler-dead-car-heat-wave.html
+
 **Estoy en Venezuela. La situación está peor de lo que parece**\
 `La catástrofe natural de Venezuela era inevitable, pero la devastación que ha dejado a su paso no.`\
 https://www.nytimes.com/es/2026/07/01/espanol/opinion/venezuela-terremotos-corrupcion-gobierno.html
@@ -166,7 +178,7 @@ https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.h
 `Taylor Swift and Travis Kelce are the poster children for enthusiastic romance. Some regular daters are pining for a similar dynamic.`\
 https://www.nytimes.com/2026/07/01/well/live/chalance-dating-taylor-swift-travis-kelce.html
 
-**18 Off and Off Off Broadway Shows to See in July**\
+**Kerry Washington, Cat Cohen and Raúl Esparza Star in Off Broadway Shows in July**\
 `Kerry Washington and Kara Young pay tribute to Whoopi Goldberg, while Raúl Esparza takes on Shakespeare in the Park.`\
 https://www.nytimes.com/2026/07/01/theater/18-off-broadway-shows-july.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/01/business/kevin-warsh-inflation-ecb.html
 **How the Iran War Ignited a Clash Between Trump and the Saudi Crown Prince**\
 `Crown Prince Mohammed bin Salman pressed President Trump earlier to cripple Iran. But as Iran asserted its power, the prince urged a cease-fire, and is now pursuing his security priorities.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-saudi-crown-prince-iran.html
-
-**SpaceX and the World Cup: The Winners of Week 2 of Our Summer Reading Contest**\
-`Heeva Alavi, an Iranian-American, writes about her family’s mixed emotions about the World Cup, while Aariv Shah reflects on the SpaceX I.P.O.`\
-https://www.nytimes.com/2026/07/01/learning/spacex-and-the-world-cup-the-winners-of-week-2-of-our-summer-reading-contest.html
-
-**The Best Movies and Shows Streaming in July 2026: ‘Elle,’ ‘Silo’ and More**\
-`“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
-https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
-
-**Catholic Group Consecrates 4 Bishops, Risking Break With Vatican**\
-`The traditionalist Society of St. Pius X went ahead with the ceremony, even after the Vatican warned it would result in the bishops’ excommunication.`\
-https://www.nytimes.com/2026/07/01/world/europe/vatican-bishops-church-excommunication.html
 

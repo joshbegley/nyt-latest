@@ -1,3 +1,19 @@
+**How JD Vance Helped bell hooks Back Onto the Best-Seller List**\
+`A grass-roots campaign urged readers to buy copies of the Black feminist writer’s 2002 book “Communion” before Vice President JD Vance’s book of the same name hit shelves.`\
+https://www.nytimes.com/2026/07/01/books/communion-bell-hooks-jd-vance.html
+
+**LeBron James’ Last Act Should Be Cleveland**\
+`James doesn’t need another championship ring or another record. He needs to be loved more.`\
+https://www.nytimes.com/2026/07/01/opinion/lebron-james-cleveland-cavaliers-nba.html
+
+**Toddler Discovered Dead in Back Seat of S.U.V. in Florida**\
+`The child was found by his father, who thought he had been dropped off at a preschool, the authorities and the school said.`\
+https://www.nytimes.com/2026/07/01/us/florida-toddler-dead-car-heat-wave.html
+
+**Kerry Washington, Cat Cohen and Raúl Esparza Star in Off Broadway Shows in July**\
+`Kerry Washington and Kara Young pay tribute to Whoopi Goldberg, while Raúl Esparza takes on Shakespeare in the Park.`\
+https://www.nytimes.com/2026/07/01/theater/18-off-broadway-shows-july.html
+
 **Estoy en Venezuela. La situación está peor de lo que parece**\
 `La catástrofe natural de Venezuela era inevitable, pero la devastación que ha dejado a su paso no.`\
 https://www.nytimes.com/es/2026/07/01/espanol/opinion/venezuela-terremotos-corrupcion-gobierno.html
