@@ -1,3 +1,7 @@
+**Two People Climb Empire State Building’s Spire and Display Flag**\
+`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black flag with a quote on it.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
+
 **U.S.A.I.D. Cuts Killed People. That’s the Truth.**\
 `Musk insists that his demolition of humanitarian aid didn’t cost lives. So I propose he take a trip with me.`\
 https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html

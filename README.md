@@ -1,3 +1,11 @@
+**World Cup Success Is Giving Americans ‘Permission to Be Patriotic’**\
+`Heading into the World Cup, many Americans had mixed feelings about the tournament and their nation.`\
+https://www.nytimes.com/2026/07/01/us/world-cup-american-pride.html
+
+**An American Mosaic**\
+`This map shows how people in the United States identify their ancestry or family origin. Explore the many ways we describe our heritage and ourselves.`\
+https://www.nytimes.com/interactive/2026/07/01/us/america-ancestry-census-data-map.html
+
 **U.S.A.I.D. Cuts Killed People. That’s the Truth.**\
 `Musk insists that his demolition of humanitarian aid didn’t cost lives. So I propose he take a trip with me.`\
 https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/us/politics/russia-ukraine-troop-casualties.h
 **Trump Takes First Flight on New Air Force One From Qatar**\
 `The Boeing 747-8, a gift worth $200 million from the Qatari royal family, has attracted considerable scrutiny over whether a foreign government was trying to influence the president.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-air-force-one-first-flight.html
-
-**3 personas mueren durante las celebraciones del Mundial en Ciudad de México**\
-`Las autoridades dijeron que un hombre de 44 años y dos mujeres, de 19 y 48 años, murieron por asfixia, mientras la gente celebraba la victoria de la selección mexicana ante Ecuador.`\
-https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mueren-personas-mexico-mundial-angel.html
-
-**Which Is More Powerful, the MAGA Right, or ‘Woke’ Left?**\
-`The Times Opinion columnist Ezra Klein and the conservative activist Christopher Rufo see the dangers of the right and the left differently. They talk about their disagreements on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000010979150/which-is-more-powerful-the-maga-right-or-woke-left.html
 
