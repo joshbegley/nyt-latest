@@ -1,3 +1,11 @@
+**Un grupo de venezolanos fueron deportados a su país desde EE. UU. El mismo día, ocurrieron los terremotos**\
+`El gobierno venezolano no dijo cuántas personas deportadas estaban en un centro en lo alto de una colina en La Guaira, el estado más afectado, ni cuántos murieron.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-deportados-muertes.html
+
+**Heat Wave Spreads East on Wednesday**\
+`More than 160 million people are under extreme heat warnings or heat advisories ahead of the Fourth of July weekend.`\
+https://www.nytimes.com/2026/07/01/weather/fourth-of-july-heat-wave-latest-updates.html
+
 **How to Dress for a Heat Wave**\
 `Advice for choosing the best fabrics and styles to help cool you down in extreme heat.`\
 https://www.nytimes.com/2026/07/01/style/heat-wave-clothing-materials-stay-cool.html

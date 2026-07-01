@@ -1,3 +1,7 @@
+**Un grupo de venezolanos fueron deportados a su país desde EE. UU. El mismo día, ocurrieron los terremotos**\
+`El gobierno venezolano no dijo cuántas personas deportadas estaban en un centro en lo alto de una colina en La Guaira, el estado más afectado, ni cuántos murieron.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-deportados-muertes.html
+
 **Troop Casualties in Ukraine War Top 2 Million, Study Finds**\
 `Russia has borne the heavier toll, with 1.4 million troops killed or wounded since it invaded in February 2022.`\
 https://www.nytimes.com/2026/07/01/us/politics/russia-ukraine-troop-casualties.html
@@ -166,7 +170,7 @@ https://www.nytimes.com/2026/07/01/crosswords/strands-sidekick-851.html
 `A man, 44, and two women, ages 19 and 48, died from asphyxiation, the authorities said, as crowds celebrated the Mexican team’s victory over Ecuador.`\
 https://www.nytimes.com/2026/07/01/world/americas/world-cup-mexico-city-crowd-deaths.html
 
-**Heat Wave Trudges East on Wednesday**\
+**Heat Wave Spreads East on Wednesday**\
 `More than 160 million people are under extreme heat warnings or heat advisories ahead of the Fourth of July weekend.`\
 https://www.nytimes.com/2026/07/01/weather/fourth-of-july-heat-wave-latest-updates.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/upshot/polls-ohio-iowa-alaska-carolina.html
 **Uñas nude: ¿cuándo se volvió la manicura natural símbolo de status?**\
 `Las uñas al natural son una tendencia cada vez más presente. Aunque los críticos remarcan que puede haber algo de clasismo y exclusión en esta moda.`\
 https://www.nytimes.com/es/2026/07/01/espanol/estilos-de-vida/tendencia-manicure-unas-nude.html
-
-**The Birthright Decision Was Surprisingly Close, Some Legal Scholars Say**\
-`A bare majority of Supreme Court justices ruled that President Trump’s executive order was unconstitutional, reflecting a conservative shift on the issue.`\
-https://www.nytimes.com/2026/07/01/us/politics/birthright-supreme-court-decision.html
 

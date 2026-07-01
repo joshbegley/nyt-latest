@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Don’t Want an Old Man’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/01/style/tiny-modern-love-stories-i-dont-want-an-old-man.html
+
 **Un grupo de venezolanos fueron deportados a su país desde EE. UU. El mismo día, ocurrieron los terremotos**\
 `El gobierno venezolano no dijo cuántas personas deportadas estaban en un centro en lo alto de una colina en La Guaira, el estado más afectado, ni cuántos murieron.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-deportados-muertes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/arts/music/victor-willis-dead.html
 **Republicans’ Home-Field Edge for Senate Seems Just Enough for Now**\
 `Democratic candidates are generally popular, Times/Siena polling finds, but retaking the Senate remains a big challenge.`\
 https://www.nytimes.com/2026/07/01/upshot/polls-ohio-iowa-alaska-carolina.html
-
-**Uñas nude: ¿cuándo se volvió la manicura natural símbolo de status?**\
-`Las uñas al natural son una tendencia cada vez más presente. Aunque los críticos remarcan que puede haber algo de clasismo y exclusión en esta moda.`\
-https://www.nytimes.com/es/2026/07/01/espanol/estilos-de-vida/tendencia-manicure-unas-nude.html
 
