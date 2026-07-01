@@ -1,3 +1,7 @@
+**Trump Flies on New Air Force One Jet Gifted by Qatar**\
+`President Trump took his first flight on the new Air Force One, a luxury Boeing 747, on Wednesday. Mr. Trump’s decision to accept the jet from Qatar has prompted ethical concerns from lawmakers.`\
+https://www.nytimes.com/video/us/politics/100000011004086/trump-qatar-air-force-one.html
+
 **World Cup Success Is Giving Americans ‘Permission to Be Patriotic’**\
 `Heading into the World Cup, many Americans had mixed feelings about the tournament and their nation.`\
 https://www.nytimes.com/2026/07/01/us/world-cup-american-pride.html
