@@ -1,3 +1,11 @@
+**¿Cuál es la cuna del fútbol mexicano? Depende a quién le preguntes**\
+`Una pequeña localidad minera se convirtió en destino turístico por su abolengo futbolero. Una ciudad vecina reivindica el mismo legado.`\
+https://www.nytimes.com/es/2026/06/30/espanol/deportes/cuna-futbol-mexicano-hidalgo.html
+
+**Phil Weiser Upsets Michael Bennet in Colorado Democratic Governor Primary**\
+`Phil Weiser beat Senator Michael Bennet in the Democratic primary, presenting himself as the stronger foil for President Trump.`\
+https://www.nytimes.com/2026/06/30/us/colorado-governor-democrat-phil-weiser.html
+
 **NYT Crossword Answers for July 1, 2026**\
 `Jeffrey Martinovic bends the laws of crossword physics.`\
 https://www.nytimes.com/2026/06/30/crosswords/2026-07-01.html
