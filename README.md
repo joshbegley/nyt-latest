@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
 https://www.nytimes.com/video/us/100000011001507/where-trump-won-and-lost-at-the-supreme-court.html
 
 **Anthropic Won a Reprieve From the Trump Administration. Is It Enough?**\
-`The company can restore access to its most powerful A.I. models. But Silicon Valley remains worried about the Trump Administration’s heavier hand on regulation.`\
+`The company can restore access to its most powerful A.I. models. But Silicon Valley remains worried about the Trump administration’s heavier hand on regulation.`\
 https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trump.html
 
 **Canada Will Compete in Eurovision Song Contest**\
