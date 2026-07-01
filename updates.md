@@ -1,3 +1,11 @@
+**Rosemary M. Collyer, Judge in F.B.I. and Guantánamo Bay Cases, Dies at 80**\
+`From her seat on the Foreign Intelligence Surveillance Court, she criticized the way the F.B.I. had sought to wiretap an aide to President Donald Trump.`\
+https://www.nytimes.com/2026/07/01/us/rosemary-m-collyer-dead.html
+
+**Trump percibió al menos 2 millardos de dólares tras volver a la Casa Blanca**\
+`La publicación de la declaración financiera obligatoria correspondiente a 2025 revela que los activos de la familia Trump, sobre todo los negocios de criptomonedas del presidente, resultaron increíblemente lucrativos.`\
+https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/trump-dolares-declaracion-financiera.html
+
 **The Democratic Incumbents Most at Risk of Losing to Progressive Primary Challengers in 2026**\
 `A wave of outsider fervor has already knocked out a number of incumbents in primary races. Several more face spirited opposition.`\
 https://www.nytimes.com/2026/07/01/us/politics/democratic-incumbents-progressive-primary-challengers.html

@@ -1,3 +1,11 @@
+**Rosemary M. Collyer, Judge in F.B.I. and Guantánamo Bay Cases, Dies at 80**\
+`From her seat on the Foreign Intelligence Surveillance Court, she criticized the way the F.B.I. had sought to wiretap an aide to President Donald Trump.`\
+https://www.nytimes.com/2026/07/01/us/rosemary-m-collyer-dead.html
+
+**Trump percibió al menos 2 millardos de dólares tras volver a la Casa Blanca**\
+`La publicación de la declaración financiera obligatoria correspondiente a 2025 revela que los activos de la familia Trump, sobre todo los negocios de criptomonedas del presidente, resultaron increíblemente lucrativos.`\
+https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/trump-dolares-declaracion-financiera.html
+
 **The Democratic Incumbents Most at Risk of Losing to Progressive Primary Challengers in 2026**\
 `A wave of outsider fervor has already knocked out a number of incumbents in primary races. Several more face spirited opposition.`\
 https://www.nytimes.com/2026/07/01/us/politics/democratic-incumbents-progressive-primary-challengers.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
 **Where Trump Won and Lost at the Supreme Court**\
 `Abbie VanSickle, a Supreme Court correspondent for The New York Times, takes stock of the court’s term this year. Opinions largely broke for conservatives, but the court pushed back on some of President Trump’s boldest ideas.`\
 https://www.nytimes.com/video/us/100000011001507/where-trump-won-and-lost-at-the-supreme-court.html
-
-**Anthropic Won a Reprieve From the Trump Administration. Is It Enough?**\
-`The company can restore access to its most powerful A.I. models. But Silicon Valley remains worried about the Trump administration’s heavier hand on regulation.`\
-https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trump.html
-
-**Canada Will Compete in Eurovision Song Contest**\
-`The country’s national broadcaster confirmed that it is joining the world’s most popular singing contest next year. Some fans are urging it to send a star like Shania Twain.`\
-https://www.nytimes.com/2026/07/01/arts/music/eurovision-song-contest-canada.html
 
