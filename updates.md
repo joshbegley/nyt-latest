@@ -1,3 +1,7 @@
+**Democratic Outsiders Keep Rolling: 5 Takeaways From Colorado’s Primaries**\
+`A democratic socialist ousted a veteran congresswoman in Denver, and a U.S. senator lost his bid for governor. But the state’s other senator fended off a progressive primary challenger.`\
+https://www.nytimes.com/2026/07/01/us/politics/colorado-primary-takeaways.html
+
 **Melat Kiros, a Left-Wing Insurgent, Ousts a 15-Term Congresswoman in Colorado**\
 `Melat Kiros, a 29-year-old democratic socialist, unseated Representative Diana DeGette in a Democratic primary to represent the Denver area.`\
 https://www.nytimes.com/2026/07/01/us/politics/melat-kiros-degette-colorado-democratic-primary.html

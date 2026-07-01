@@ -1,3 +1,7 @@
+**Democratic Outsiders Keep Rolling: 5 Takeaways From Colorado’s Primaries**\
+`A democratic socialist ousted a veteran congresswoman in Denver, and a U.S. senator lost his bid for governor. But the state’s other senator fended off a progressive primary challenger.`\
+https://www.nytimes.com/2026/07/01/us/politics/colorado-primary-takeaways.html
+
 **Melat Kiros, a Left-Wing Insurgent, Ousts a 15-Term Congresswoman in Colorado**\
 `Melat Kiros, a 29-year-old democratic socialist, unseated Representative Diana DeGette in a Democratic primary to represent the Denver area.`\
 https://www.nytimes.com/2026/07/01/us/politics/melat-kiros-degette-colorado-democratic-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/06/30/world/americas/trump-machado-venezuela-rift.h
 **Takeaways From a Transformative Supreme Court Term**\
 `The justices rejected some of President Trump’s signature initiatives, but delivered lasting, long-sought conservative wins.`\
 https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
-
-**U.S. Supreme Court Allows States to Ban Transgender Athletes on Girls’ Teams**\
-`The Supreme Court upheld West Virginia and Idaho state laws on Tuesday that bar transgender athletes from playing on girls’ and women’s sports teams.`\
-https://www.nytimes.com/video/us/politics/100000011001543/scotus-supreme-court-transgender-athletes.html
 
