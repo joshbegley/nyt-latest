@@ -1,3 +1,7 @@
+**How to Dress for a Heat Wave**\
+`Advice for choosing the best fabrics and styles to help cool you down extreme heat.`\
+https://www.nytimes.com/2026/07/01/style/heat-wave-clothing-materials-stay-cool.html
+
 **Sour Cream and Onion Hot Dogs**\
 `Put chips on your hot dog! And other delicious things too. Ali Slagle, a Cooking contributor, is here to up your hot dog game.`\
 https://www.nytimes.com/video/dining/100000011004263/sour-cream-and-onion-hot-dogs.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/world/europe/bosnia-and-herzegovina-name-worl
 **Crunchtime in the Air-Conditioning Business: Long Days and Hot Work**\
 `With Chicago and much of the country in the grips of a heat wave, air-conditioning technicians are enduring sweltering temperatures to keep systems working.`\
 https://www.nytimes.com/2026/07/01/us/crunchtime-in-the-air-conditioning-business-long-days-and-hot-work.html
-
-**How ‘Widow’s Bay’ Created All Those Creepy Board Games**\
-`Our reporter talked to the team that made the shudder-inducing boxes.`\
-https://www.nytimes.com/2026/07/01/crosswords/widows-bay-creepy-board-games.html
 
