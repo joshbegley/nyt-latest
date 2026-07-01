@@ -1,3 +1,27 @@
+**Why Americans Will Get Less Help Paying for College**\
+`With new limits on federal lending, many students will need private loans and some could be shut out.`\
+https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
+
+**The Supreme Court’s Momentous Term, and How Trump Has Made at Least $2.2 Billion in Office**\
+`Plus, zombies at the mall.`\
+https://www.nytimes.com/2026/07/01/podcasts/the-headlines/supreme-court-trump.html
+
+**NYT Connections Answers for July 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/01/crosswords/connections-companion-1117.html
+
+**Today’s Wordle Hints for July 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/01/crosswords/wordle-review-1839.html
+
+**NYT Strands Hints for July 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/01/crosswords/strands-sidekick-851.html
+
+**3 People Die During World Cup Celebrations in Mexico City**\
+`A man, 44, and two women, ages 19 and 48, died from asphyxiation, the authorities said, as crowds celebrated the Mexican team’s victory over Ecuador.`\
+https://www.nytimes.com/2026/07/01/world/americas/3-people-die-during-world-cup-celebrations-in-mexico-city.html
+
 **Heat Wave Trudges East on Wednesday**\
 `More than 160 million people are under extreme heat warnings or heat advisories ahead of the Fourth of July weekend.`\
 https://www.nytimes.com/2026/07/01/weather/fourth-of-july-heat-wave-latest-updates.html
