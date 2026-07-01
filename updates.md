@@ -1,3 +1,11 @@
+**August Trial Date Is Set for Brooklyn Power Broker Accused of Bribery**\
+`Lawyers for Frank Carone, who was an aide to former Mayor Eric Adams, said they want his trial to begin as soon as possible.`\
+https://www.nytimes.com/2026/07/01/nyregion/frank-carone-corruption-trial-date.html
+
+**¿Y Si Sí? The World Cup Delivers Hope to Mexico**\
+`Mexico’s World Cup run has electrified the nation, drawing hundreds of thousands into the streets in celebrations of collective joy, resilience and hope.`\
+https://www.nytimes.com/2026/07/01/world/americas/mexico-world-cup-celebrations.html
+
 **Trump Flies on New Air Force One Jet Gifted by Qatar**\
 `President Trump took his first flight on the new Air Force One, a luxury Boeing 747, on Wednesday. Mr. Trump’s decision to accept the jet from Qatar has prompted ethical concerns from lawmakers.`\
 https://www.nytimes.com/video/us/politics/100000011004086/trump-qatar-air-force-one.html

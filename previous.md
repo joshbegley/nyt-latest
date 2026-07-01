@@ -1,3 +1,11 @@
+**August Trial Date Is Set for Brooklyn Power Broker Accused of Bribery**\
+`Lawyers for Frank Carone, who was an aide to former Mayor Eric Adams, said they want his trial to begin as soon as possible.`\
+https://www.nytimes.com/2026/07/01/nyregion/frank-carone-corruption-trial-date.html
+
+**¿Y Si Sí? The World Cup Delivers Hope to Mexico**\
+`Mexico’s World Cup run has electrified the nation, drawing hundreds of thousands into the streets in celebrations of collective joy, resilience and hope.`\
+https://www.nytimes.com/2026/07/01/world/americas/mexico-world-cup-celebrations.html
+
 **World Cup Success Is Giving Americans ‘Permission to Be Patriotic’**\
 `Heading into the World Cup, many Americans had mixed feelings about the tournament and their nation.`\
 https://www.nytimes.com/2026/07/01/us/world-cup-american-pride.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/style/tiny-modern-love-stories-i-dont-want-an
 **Un grupo de venezolanos fueron deportados a su país desde EE. UU. El mismo día, ocurrieron los terremotos**\
 `El gobierno venezolano no dijo cuántas personas deportadas estaban en un centro en lo alto de una colina en La Guaira, el estado más afectado, ni cuántos murieron.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-deportados-muertes.html
-
-**Troop Casualties in Ukraine War Top 2 Million, Study Finds**\
-`Russia has borne the heavier toll, with 1.4 million troops killed or wounded since it invaded in February 2022.`\
-https://www.nytimes.com/2026/07/01/us/politics/russia-ukraine-troop-casualties.html
-
-**Trump Takes First Flight on New Air Force One From Qatar**\
-`The Boeing 747-8, a gift worth $200 million from the Qatari royal family, has attracted considerable scrutiny over whether a foreign government was trying to influence the president.`\
-https://www.nytimes.com/2026/07/01/us/politics/trump-air-force-one-first-flight.html
 

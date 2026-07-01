@@ -1,3 +1,11 @@
+**Judge Blocks Postal Service From Imposing Restrictions on Mail-In Ballots**\
+`The ruling, based on agreements the service made in a 2021 legal settlement, was the second time a judge has blocked new restrictions by President Trump on mail-in voting.`\
+https://www.nytimes.com/2026/07/01/us/politics/judge-trump-postal-service.html
+
+**Promising Much to Many, Johnson Loses His Grip on the House**\
+`Republicans are growing frustrated with Mr. Johnson’s approach to governing with a razor-thin majority, saying that he promises more than he can achieve, frustrating the disparate groups in his caucus.`\
+https://www.nytimes.com/2026/07/01/us/politics/mike-johnson-house-majority.html
+
 **August Trial Date Is Set for Brooklyn Power Broker Accused of Bribery**\
 `Lawyers for Frank Carone, who was an aide to former Mayor Eric Adams, said they want his trial to begin as soon as possible.`\
 https://www.nytimes.com/2026/07/01/nyregion/frank-carone-corruption-trial-date.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/obituaries/michael-byrne-dead.html
 **Ex-C.I.A. Chief Asks for Order Forcing Trump Administration to Preserve Records**\
 `Lawyers for John O. Brennan said they want the materials saved in anticipation of bringing a vindictive prosecution motion if charges against Mr. Brennan are ultimately filed.`\
 https://www.nytimes.com/2026/07/01/us/politics/john-brennan-investigations-records.html
-
-**Tiny Love Stories: ‘I Don’t Want an Old Man’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/07/01/style/tiny-modern-love-stories-i-dont-want-an-old-man.html
-
-**Un grupo de venezolanos fueron deportados a su país desde EE. UU. El mismo día, ocurrieron los terremotos**\
-`El gobierno venezolano no dijo cuántas personas deportadas estaban en un centro en lo alto de una colina en La Guaira, el estado más afectado, ni cuántos murieron.`\
-https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-deportados-muertes.html
 
