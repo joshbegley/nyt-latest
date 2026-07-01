@@ -1,3 +1,11 @@
+**Democratic Socialist Ousts 15-Term Incumbent in Colorado Primary**\
+`Melat Kiros, an immigrant and first-time candidate, will most likely head to Congress in a deep blue Colorado district after defeating Representative Diana DeGette, a 15-term incumbent, in a Democratic House primary.`\
+https://www.nytimes.com/video/us/politics/100000011003842/melat-kiros-democrat-socialist-colorado-primaries.html
+
+**As Earthquake Death Toll Rises, a Venezuelan Port Becomes a Morgue**\
+`The scale of last week’s twin earthquakes began to emerge in La Guaira, Venezuela, where bodies piled up at an improvised morgue in the city’s sun-scorched port.`\
+https://www.nytimes.com/video/world/americas/100000011003697/venezuela-earthquake-la-guaira-port-bodies.html
+
 **If Conservatives Want to Save Marriage, They Need to Let It Evolve**\
 `It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
 https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/world/africa/ebola-congo-burials.html
 **‘Minions & Monsters’ Review: Third Time’s the Charm**\
 `The latest film of the wildly successful spinoff franchise ushers the Minions into a new era of cultural ubiquity, while bringing some new creative juice.`\
 https://www.nytimes.com/2026/07/01/movies/minions-and-monsters-review.html
-
-**‘Enola Holmes 3’ Review: A Kidnapping in Malta**\
-`Millie Bobby Brown shines as Sherlock’s younger sister in the playful third movie of this popular franchise.`\
-https://www.nytimes.com/2026/07/01/movies/enola-holmes-3-review.html
-
-**The Yoto Music Box Is a Ray of Hope Amid the ‘Techlash’**\
-`Amid widespread “techlash” over addictive screens and apps, the Yoto, an audio player for children, shows there’s still a way to make money while doing something nice.`\
-https://www.nytimes.com/2026/07/01/technology/personaltech/yoto-music-box-screens.html
 
