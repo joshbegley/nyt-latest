@@ -1,3 +1,7 @@
+**U.S. to Overhaul Radiation Safety Rules to Spur Nuclear Expansion**\
+`The Nuclear Regulatory Commission plans to end longstanding guidance that radiation exposure be “as low as reasonably achievable.”`\
+https://www.nytimes.com/2026/07/01/climate/nrc-radiation-regulation-nuclear-overhaul.html
+
 **Two People Arrested After Climbing Empire State Building Spire**\
 `A couple, Angela Nikolau and Ivan Beerkus, climbed the spire of the Empire State Building on Wednesday and displayed a black flag with a quote on it. The police said that they were arrested.`\
 https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new-york-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/briefing/today-in-short.html
 **N.Y.P.D. Memo Outlines Taylor Swift Wedding Events at the Garden**\
 `Law enforcement officials in the city are preparing to monitor the pop star’s two-day event at Madison Square Garden, and several streets in the area will be closed.`\
 https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.html
-
-**These Hot Dogs Are Ridiculously Good**\
-`(No description)`\
-https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.html
 

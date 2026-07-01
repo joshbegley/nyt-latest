@@ -1,3 +1,7 @@
+**The Good List: 7 Things to Add Joy to Your Day**\
+`Old menus, vivid lightning and Richard Grant sniffing things.`\
+https://www.nytimes.com/2026/07/01/briefing/the-good-list-ram-dass-handwriting.html
+
 **U.S. to Overhaul Radiation Safety Rules to Spur Nuclear Expansion**\
 `The Nuclear Regulatory Commission plans to end longstanding guidance that radiation exposure be “as low as reasonably achievable.”`\
 https://www.nytimes.com/2026/07/01/climate/nrc-radiation-regulation-nuclear-overhaul.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new
 `On “The Interview,” Robby Hoffman discussed the backlash she has received as her career as a comedian has taken off.`\
 https://www.nytimes.com/video/podcasts/100000011005288/robby-hoffman-i-dont-think-being-offended-is-the-worst-thing.html
 
-**Who Can Sell ‘6 7’ Chicken Nuggets? One Company Is Asking a Court to Decide**\
+**Who Can Sell ‘6 7’ Chicken Nuggets? One Company Is Asking a Court to Decide.**\
 `The meat and poultry giant Perdue said in a lawsuit that Soules Foods copied its packaging that is based on a meme popular with children.`\
 https://www.nytimes.com/2026/07/01/us/perdue-chicken-nuggets-lawsuit-6-7.html
 
@@ -115,7 +119,7 @@ https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
 https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html
 
 **Trump Accounts to Receive $250 Million Donation From Chip Maker Micron**\
-`President Trump said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration for children.`\
+`President Trump said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration.`\
 https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
 
 **First Europe, Then North America: Welcome to Heat Dome Summer.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/business/taylor-swift-travis-kelce-prenup.htm
 **Today, In Short**\
 `Food history. LeBron James. And an obstacle course.`\
 https://www.nytimes.com/2026/07/01/briefing/today-in-short.html
-
-**N.Y.P.D. Memo Outlines Taylor Swift Wedding Events at the Garden**\
-`Law enforcement officials in the city are preparing to monitor the pop star’s two-day event at Madison Square Garden, and several streets in the area will be closed.`\
-https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.html
 

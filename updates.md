@@ -1,3 +1,7 @@
+**U.S. to Overhaul Radiation Safety Rules to Spur Nuclear Expansion**\
+`The Nuclear Regulatory Commission plans to end longstanding guidance that radiation exposure be “as low as reasonably achievable.”`\
+https://www.nytimes.com/2026/07/01/climate/nrc-radiation-regulation-nuclear-overhaul.html
+
 **Two People Arrested After Climbing Empire State Building Spire**\
 `A couple, Angela Nikolau and Ivan Beerkus, climbed the spire of the Empire State Building on Wednesday and displayed a black flag with a quote on it. The police said that they were arrested.`\
 https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new-york-nyc.html
