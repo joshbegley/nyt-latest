@@ -87,7 +87,7 @@ https://www.nytimes.com/es/2026/07/01/espanol/opinion/venezuela-terremotos-corru
 https://www.nytimes.com/2026/07/01/world/europe/england-world-cup-flags.html
 
 **Trump Flies on New Air Force One Jet Gifted by Qatar**\
-`President Trump took his first flight on the new Air Force One, a luxury Boeing 747-8 gifted by Qatar. Trump’s decision to accept the jet from a foreign government has prompted ethical concerns from lawmakers.`\
+`President Trump took his first flight on the new Air Force One, a luxury Boeing 747, on Wednesday. Mr. Trump’s decision to accept the jet from Qatar has prompted ethical concerns from lawmakers.`\
 https://www.nytimes.com/video/us/politics/100000011004086/trump-qatar-air-force-one.html
 
 **Chris Brown’s Former Housekeeper Awarded $13 Million in Dog Mauling**\
