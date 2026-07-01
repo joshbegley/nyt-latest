@@ -1,3 +1,7 @@
+**Victor Willis, Village People Frontman, Dies at 74**\
+`Dressed as a helmeted police officer, Willis co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
+https://www.nytimes.com/2026/07/01/obituaries/victor-willis-village-people-dead.html
+
 **Uñas nude: ¿cuándo se volvió la manicura natural símbolo de status?**\
 `Las uñas al natural son una tendencia cada vez más presente. Aunque los críticos remarcan que puede haber algo de clasismo y exclusión en esta moda.`\
 https://www.nytimes.com/es/2026/07/01/espanol/estilos-de-vida/tendencia-manicure-unas-nude.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/arts/design/museum-of-ice-cream-companies-art
 **Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
 `Results of a New York Times/Siena poll of 601 likely voters conducted from June 15 to 28, 2026.`\
 https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-ohio-poll-crosstabs.html
-
-**Toplines: June 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
-`Results of a New York Times/Siena poll of 601 likely voters conducted from June 15 to 28, 2026.`\
-https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-ohio-poll-toplines.html
 
