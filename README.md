@@ -1,3 +1,7 @@
+**N.Y.P.D. Memo Outlines Taylor Swift Wedding Events at the Garden**\
+`Law enforcement officials in the city are preparing to monitor the pop star’s two-day event at Madison Square Garden, and several streets in the area will be closed.`\
+https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.html
+
 **These Hot Dogs Are Ridiculously Good**\
 `(No description)`\
 https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/us/politics/polls-senate-control.html
 **Is the Supreme Court Incoherent? Independent? 3 Legal Scholars Assess a Tumultuous Term.**\
 `What it means to have a “no ifs, ands or quasis about it” problem.`\
 https://www.nytimes.com/2026/07/01/opinion/supreme-court-birthright-citizenship-slaughter.html
-
-**Republicans Lead in Key Senate States**\
-`New York Times/Siena polling of six battleground states shows a close race for control of the U.S. Senate in November. Our chief political analyst, Nate Cohn, walks through the findings state by state.`\
-https://www.nytimes.com/video/upshot/100000010999231/republicans-lead-in-key-senate-states.html
 

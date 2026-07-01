@@ -1,3 +1,15 @@
+**These Hot Dogs Are Ridiculously Good**\
+`(No description)`\
+https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.html
+
+**Can ‘Chalant’ Dating Help More People Find Love? Ask Taylor and Travis.**\
+`Taylor Swift and Travis Kelce are the poster children for enthusiastic romance. Some regular daters are pining for a similar dynamic.`\
+https://www.nytimes.com/2026/07/01/well/live/chalance-dating-taylor-swift-travis-kelce.html
+
+**18 Off and Off Off Broadway Shows to See in July**\
+`Kerry Washington and Kara Young pay tribute to Whoopi Goldberg, while Raúl Esparza takes on Shakespeare in the Park.`\
+https://www.nytimes.com/2026/07/01/theater/18-off-broadway-shows-july.html
+
 **Anthropic Won a Reprieve From the Trump Administration. Is It Enough?**\
 `The company can restore access to its most powerful A.I. models. But Silicon Valley remains worried about the Trump administration’s heavier hand on regulation.`\
 https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trump.html

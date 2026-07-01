@@ -1,3 +1,15 @@
+**These Hot Dogs Are Ridiculously Good**\
+`(No description)`\
+https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.html
+
+**Can ‘Chalant’ Dating Help More People Find Love? Ask Taylor and Travis.**\
+`Taylor Swift and Travis Kelce are the poster children for enthusiastic romance. Some regular daters are pining for a similar dynamic.`\
+https://www.nytimes.com/2026/07/01/well/live/chalance-dating-taylor-swift-travis-kelce.html
+
+**18 Off and Off Off Broadway Shows to See in July**\
+`Kerry Washington and Kara Young pay tribute to Whoopi Goldberg, while Raúl Esparza takes on Shakespeare in the Park.`\
+https://www.nytimes.com/2026/07/01/theater/18-off-broadway-shows-july.html
+
 **SpudCell: Scientists Made a Cell With Most of the Hallmarks of Life. Here’s What to Know.**\
 `From why it was created to whether it’s alive, here’s what to know about SpudCell, the latest advance in synthetic biology.`\
 https://www.nytimes.com/2026/07/01/science/spud-cell-what-to-know.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/01/opinion/supreme-court-birthright-citizenship-
 **Republicans Lead in Key Senate States**\
 `New York Times/Siena polling of six battleground states shows a close race for control of the U.S. Senate in November. Our chief political analyst, Nate Cohn, walks through the findings state by state.`\
 https://www.nytimes.com/video/upshot/100000010999231/republicans-lead-in-key-senate-states.html
-
-**She Grew Up Loving ‘Legally Blonde.’ Now She’s Elle Woods.**\
-`Lexi Minetree beat out 5,000 other actors to play the teenage heroine of “Elle,” a prequel series. She shares many qualities with her can-do character.`\
-https://www.nytimes.com/2026/07/01/arts/television/lexi-minetree-elle-legally-blonde.html
-
-**Ohio and Iowa Governors Races Tight, New Polls Show**\
-`Voters polled in the states, Iowa and Ohio, also voiced high levels of disapproval for President Trump’s performance.`\
-https://www.nytimes.com/2026/07/01/us/iowa-ohio-governor-poll.html
-
-**Corrections: July 1, 2026**\
-`Corrections that appeared in print on Wednesday, July 1, 2026.`\
-https://www.nytimes.com/2026/07/01/pageoneplus/corrections-july-1-2026.html
 
