@@ -14,7 +14,7 @@ https://www.nytimes.com/interactive/polls/arizona-us-house-4-polls-2026.html
 `Summer has officially begun, and it’s time to be out dancing. From K-pop to house to electro, our critic Jon Caramanica has five songs to get you started.`\
 https://www.nytimes.com/video/podcasts/100000011005625/5-songs-to-get-you-moving-this-summer.html
 
-**Does Trump Worry About Conflicts of Interest? ‘I Found Out Nobody Cared.’**\
+**Does Trump Worry About Conflicts of Interest? ‘I Found Out That Nobody Cared.’**\
 `American presidents have generally tried to avoid appearing to profit from the office. President Trump has chosen a different path.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-money-conflicts-presidency.html
 

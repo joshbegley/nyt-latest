@@ -1,3 +1,19 @@
+**¿Y si sí? México encuentra esperanza en la Copa Mundial**\
+`El desempeño de la selección mexicana en el Mundial ha electrizado a la nación, atrayendo a cientos de miles de personas a celebraciones callejeras que se han convertido en expresión de resiliencia y optimismo colectivos.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mexico-elimina-ecuador-celebraciones.html
+
+**Who is Ahead in Texas's 28th Congressional District?**\
+`Track the latest polls in Texas's 28th Congressional District.`\
+https://www.nytimes.com/interactive/polls/texas-us-house-28-polls-2026.html
+
+**Who is Ahead in Arizona's 4th Congressional District?**\
+`Track the latest polls in Arizona's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/arizona-us-house-4-polls-2026.html
+
+**A Couple Climb Atop the Empire State Building for a Marriage Proposal**\
+`Two Russian “rooftoppers” ascended the spire of the Empire State Building, 1,450 feet above the city, and one got down on one knee and presented a ring.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
+
 **5 Songs to Get You Moving This Summer**\
 `Summer has officially begun, and it’s time to be out dancing. From K-pop to house to electro, our critic Jon Caramanica has five songs to get you started.`\
 https://www.nytimes.com/video/podcasts/100000011005625/5-songs-to-get-you-moving-this-summer.html
