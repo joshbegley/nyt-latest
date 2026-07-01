@@ -1,3 +1,11 @@
+**Crypto Brought Trump a Huge Windfall, Even as Many Investors Lost Big**\
+`President Trump and his family reaped vast financial rewards from a memecoin that generated losses for hundreds of thousands of investors.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-crypto-memecoin-world-liberty.html
+
+**JD Vance Defends Iran War in Speech to Military Members**\
+`The vice president, a staunch critic of foreign wars, accused the president’s detractors of trying to prolong a conflict the administration was trying to end.`\
+https://www.nytimes.com/2026/07/01/us/vance-iran-war-military.html
+
 **The Heat Wave Proves That We Need to Adapt to Climate Change**\
 `The world’s infrastructure was built for a climate we no longer have.`\
 https://www.nytimes.com/2026/07/01/opinion/heat-wave-europe-america.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/arts/music/tay-keith-songs.html
 **The Divorce Crusader**\
 `Part activist, part influencer, Adina Sash will do anything to rescue Orthodox women she sees as trapped in their marriages.`\
 https://www.nytimes.com/2026/07/01/style/adina-sash-flatbush-girl-jewish-divorce.html
-
-**Pineapple Hot Dogs**\
-`Hawaiian pizza fans, listen up: Put pineapple on your hot dog, too! Ali Slagle, a Cooking contributor, shows you how.`\
-https://www.nytimes.com/video/dining/100000011004161/pineapple-hot-dogs.html
-
-**What Would Taylor Swift and Travis Kelce’s Prenuptial Agreement Look Like?**\
-`What would a prenuptial agreement between one of the world’s biggest pop stars and a three-time Super Bowl champion look like? Legal experts weigh in.`\
-https://www.nytimes.com/2026/07/01/business/taylor-swift-travis-kelce-prenup.html
 
