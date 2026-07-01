@@ -1,3 +1,7 @@
+**Three People Die During Mexico City’s World Cup Celebrations**\
+`A man and two women died from asphyxiation during World Cup celebrations in Mexico City following the National Teams win over Ecuador on Tuesday, local authorities said.`\
+https://www.nytimes.com/video/world/americas/100000011004349/people-dead-mexico-city-world-cup.html
+
 **Crypto Brought Trump a Huge Windfall, Even as Many Investors Lost Big**\
 `President Trump and his family reaped vast financial rewards from a memecoin that generated losses for hundreds of thousands of investors.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-crypto-memecoin-world-liberty.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011004263/sour-cream-and-onion-hot-do
 **8 Essential Songs Produced by Tay Keith**\
 `The Memphis-born producer, who died in June at 29, brought deceptively soulful moodiness to some of the biggest rap hits of the past decade.`\
 https://www.nytimes.com/2026/07/01/arts/music/tay-keith-songs.html
-
-**The Divorce Crusader**\
-`Part activist, part influencer, Adina Sash will do anything to rescue Orthodox women she sees as trapped in their marriages.`\
-https://www.nytimes.com/2026/07/01/style/adina-sash-flatbush-girl-jewish-divorce.html
 

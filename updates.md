@@ -1,3 +1,7 @@
+**Three People Die During Mexico City’s World Cup Celebrations**\
+`A man and two women died from asphyxiation during World Cup celebrations in Mexico City following the National Teams win over Ecuador on Tuesday, local authorities said.`\
+https://www.nytimes.com/video/world/americas/100000011004349/people-dead-mexico-city-world-cup.html
+
 **Crypto Brought Trump a Huge Windfall, Even as Many Investors Lost Big**\
 `President Trump and his family reaped vast financial rewards from a memecoin that generated losses for hundreds of thousands of investors.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-crypto-memecoin-world-liberty.html
