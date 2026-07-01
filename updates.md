@@ -1,3 +1,19 @@
+**Dark and Light: Words for the Fourth**\
+`Readers respond to a column by Bret Stephens and a letter about the Fourth of July. Also: Food education, for children and parents.`\
+https://www.nytimes.com/2026/07/01/opinion/america-250-july4.html
+
+**Trump Remakes Washington, D.C., Into a Maze of Fences and Guard Members**\
+`President Trump seems to have turned swaths of the city into either a construction zone or an armed camp as he seeks to prove that he alone can improve it.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-washington-dc-construction.html
+
+**As Earthquake Death Toll Mounts, Venezuela Grapples With Recovering and Burying Bodies**\
+`As the death toll mounts, thousands of bodies have overwhelmed Venezuela’s forensic system, turning a seaport into a temporary morgue.`\
+https://www.nytimes.com/2026/07/01/world/americas/venezuela-earthquakes-bodies-morgues.html
+
+**Trump Accounts to Receive $250 Million Donation From Chip Maker Micron, Trump Says**\
+`President Trump said that the U.S. chip maker would make a significant donation to a new type of investment account for children created by the administration.`\
+https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
+
 **Charles H. Townsend Dies at 82; Led Condé Nast During Digital Transition**\
 `By 2016, when he retired from the parent company of glossy magazines like Vogue, Vanity Fair and The New Yorker, print was seriously struggling.`\
 https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
