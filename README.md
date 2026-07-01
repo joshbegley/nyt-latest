@@ -163,7 +163,7 @@ https://www.nytimes.com/2026/07/01/books/best-sandra-boynton-books.html
 https://www.nytimes.com/2026/07/01/business/tungsten-mine-south-korea.html
 
 **Why Are So Many Cubans Migrating to Guyana?**\
-`Guyana, a tiny, oil-rich, English-speaking South American country, has become a destination for Cubans fleeing desperate conditions. We traveled to the capital, Georgetown, to to meet with migrant families, and learn more about the lives they left behind.`\
+`Guyana, a tiny, oil-rich, English-speaking South American country, has become a destination for Cubans fleeing desperate conditions. We traveled to the capital, Georgetown, to meet with migrant families and learn more about the lives they left behind.`\
 https://www.nytimes.com/video/world/americas/100000010968903/cuba-guyana-immigrants.html
 
 **Should I Buy an Area Rug on Etsy?**\
