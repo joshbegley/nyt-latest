@@ -1,3 +1,11 @@
+**The Dress Code for Taylor Swift and Travis Kelce’s Wedding? Expect a Black-Tie Event.**\
+`New details have emerged about the celebration at Madison Square Garden, widely believed to be a wedding, including a dress code.`\
+https://www.nytimes.com/2026/06/30/style/taylor-swift-wedding-kelce-dress-code.html
+
+**EE. UU. obstaculiza el regreso de María Corina Machado a Venezuela**\
+`La líder opositora exiliada se empeña en volver a un país desolado por los terremotos, lo que ha irritado a las autoridades estadounidenses, enfocadas en la recuperación y la estabilidad.`\
+https://www.nytimes.com/es/2026/06/30/espanol/mundo/maria-corina-machado-trump-regreso-venezuela.html
+
 **During Traffic Stop, N.F.L. Reporter Appeared to Show Off Her Access**\
 `A body-worn camera recording shows Dianna Russini, formerly an “insider” for The Athletic, talking football with an officer and avoiding a citation.`\
 https://www.nytimes.com/2026/06/30/nyregion/dianna-russini-video-police.html
