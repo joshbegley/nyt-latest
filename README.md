@@ -1,3 +1,43 @@
+**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll of 601 likely voters conducted from June 15 to 28, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-ohio-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll of 601 likely voters conducted from June 15 to 28, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-ohio-poll-toplines.html
+
+**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in North Carolina**\
+`Results of a New York Times/Siena poll of 601 likely voters conducted from June 15 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-north-carolina-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Siena Poll of the Likely Electorate in North Carolina**\
+`Results of a New York Times/Siena poll of 601 likely voters conducted from June 15 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-north-carolina-poll-toplines.html
+
+**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of New York Times/Siena poll of 600 likely voters conducted from June 15 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-iowa-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of New York Times/Siena poll of 600 likely voters conducted from June 15 to 27, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-iowa-poll-toplines.html
+
+**Toplines: June 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll of 593 likely voters conducted from June 15 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-alaska-poll-toplines.html
+
+**Cross-Tabs: June 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll of 593 likely voters conducted from June 15 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-alaska-poll-crosstabs.html
+
+**Cross-Tabs: June 2026 Times/Siena Polls of Likely Voters in Battleground Senate Races**\
+`Results of New York Times/Siena polls of 3,659 likely voters in Alaska, Iowa, Maine, North Carolina, Ohio and Texas conducted from June 15 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-battleground-poll-crosstabs.html
+
+**Toplines: June 2026 Times/Siena Polls of Likely Voters in Battleground Senate Races**\
+`Results of New York Times/Siena polls of 3,659 likely voters in Alaska, Iowa, Maine, North Carolina, Ohio and Texas conducted from June 15 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/07/01/polls/times-siena-battleground-poll-toplines.html
+
 **U.S. Braces for a Record-Breaking Heat Wave**\
 `Dangerous heat is expected across much of the United States through the Fourth of July weekend. Zohran Mamdani of New York City urged people to take the forecast seriously.`\
 https://www.nytimes.com/video/us/100000011003623/us-heat-wave.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/06/30/nyregion/dianna-russini-video-police.html
 ****\
 `Body-worn footage appears to show Dianna Russini, a former N.F.L. reporter for The Athletic, showing off her access during a traffic stop in Ridgewood, N.J.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011002216/30vid-Dianna-Russini-police.html
-
-**U.S. Mobilizes for Venezuela Despite Trump’s Disdain for Foreign Aid**\
-`The State Department has promised $100 million in new funds to aid groups, after President Trump was criticized for an anemic response to an earthquake in Myanmar last year.`\
-https://www.nytimes.com/2026/06/30/us/politics/us-aid-venezuela-earthquake.html
-
-**5 Temperature Records Meteorologists Are Watching This Week**\
-`New York could record 100 degrees for the first time since 2012, as a brutal heat wave spreads east.`\
-https://www.nytimes.com/2026/06/30/weather/heat-wave-records-broken.html
-
-**10-Year-Old Boy Charged With First-Degree Murder in Shooting of Infant Niece**\
-`The boy shot his 7-month-old niece at a St. Louis home with a firearm that had been kept under a mattress, the police said. The baby’s father, who owned the weapon, has also been charged.`\
-https://www.nytimes.com/2026/06/30/us/missouri-baby-shooting-murder.html
-
-**In Copenhagen, a Pioneering Shop Owner Marks Her Next Chapter**\
-`The owner of the Apartment, which introduced the concept of residential retail, invited friends for a dinner in her new gallery and guesthouse.`\
-https://www.nytimes.com/2026/06/30/t-magazine/copenhagen-apartment-next-chapter.html
-
-**In the United States, Every World Cup Team Is a Home Team**\
-`At block parties, backyards and beer halls, an expanded tournament gave immigrant diasporas large and small the chance to revel in support of their home countries.`\
-https://www.nytimes.com/interactive/2026/06/30/us/world-cup-fans.html
-
-**Colorado Handyman Discovers Bear in His Truck Eating His Lunch**\
-`A handyman in Steamboat Springs, Colo., discovered a bear eating his lunch in his truck.`\
-https://www.nytimes.com/video/us/100000011002988/colorado-bear-eats-lunch-truck.html
-
-**For Many Americans, Depression Is Familiar. Here’s What We Know.**\
-`Representative Thomas Kean Jr. announced he had been hospitalized for depression. More than one in four U.S. adults report having been diagnosed with the condition.`\
-https://www.nytimes.com/2026/06/30/nyregion/depression-thomas-kean-symptoms-treatment.html
-
-**Butter Rice Cakes**\
-`Also known as Shanghai butter mochi, Shanghai butter rice cakes and butter tteok in Korea, these butter mochi are individually sized, extra-crunchy and have taken the internet by storm.`\
-https://www.nytimes.com/video/dining/100000011003223/butter-rice-cakes.html
-
-**Nicolás Maduro es demandado en EE. UU. por asesinatos de 5 jóvenes en Caracas**\
-`Este caso representa un intento poco habitual de hacer responsable a un jefe de Estado ante un tribunal de Estados Unidos.`\
-https://www.nytimes.com/es/2026/06/30/espanol/america-latina/demanda-maduro-brooklyn-asesinato.html
-
-**After a Tap Heard in Rubble, U.S. Rescue Teams Begin a Grueling Marathon**\
-`Surrounded by the devastation of Venezuela’s earthquakes, emergency specialists from California, Virginia and Florida work with locals to search for survivors.`\
-https://www.nytimes.com/2026/06/30/us/american-rescue-teams-venezuela-earthquake.html
 
