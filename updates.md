@@ -1,3 +1,7 @@
+**N.Y.P.D. Memo Outlines Taylor Swift Wedding Events at the Garden**\
+`Law enforcement officials in the city are preparing to monitor the pop star’s two-day event at Madison Square Garden, and several streets in the area will be closed.`\
+https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.html
+
 **These Hot Dogs Are Ridiculously Good**\
 `(No description)`\
 https://www.nytimes.com/2026/07/01/dining/these-hot-dogs-are-ridiculously-good.html

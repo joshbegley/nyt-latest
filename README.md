@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Food history. LeBron James. And an obstacle course.`\
+https://www.nytimes.com/2026/07/01/briefing/today-in-short.html
+
 **N.Y.P.D. Memo Outlines Taylor Swift Wedding Events at the Garden**\
 `Law enforcement officials in the city are preparing to monitor the pop star’s two-day event at Madison Square Garden, and several streets in the area will be closed.`\
 https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/opinion/declaration-independence-jefferson-do
 **Control of the Senate Is Up for Grabs, Times/Siena Polls Find**\
 `Republicans are defending seats in Alaska, Iowa, Maine, North Carolina, Ohio and Texas as they try to maintain their majority. Democrats are competitive in all six states — but not leading in enough to take the chamber.`\
 https://www.nytimes.com/2026/07/01/us/politics/polls-senate-control.html
-
-**Is the Supreme Court Incoherent? Independent? 3 Legal Scholars Assess a Tumultuous Term.**\
-`What it means to have a “no ifs, ands or quasis about it” problem.`\
-https://www.nytimes.com/2026/07/01/opinion/supreme-court-birthright-citizenship-slaughter.html
 
