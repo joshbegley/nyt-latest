@@ -1,5 +1,9 @@
+**America Rings In 250th Birthday Amid Deep Polarization and Political Rifts**\
+`How does a deeply polarized country come together to have a birthday party?`\
+https://www.nytimes.com/2026/07/01/us/politics/usa-america-250-trump.html
+
 **Judge Blocks Postal Service From Imposing Restrictions on Mail-In Ballots**\
-`The ruling, based on agreements the service made in a 2021 legal settlement, was the second time a judge has blocked new restrictions by President Trump on mail-in voting.`\
+`The ruling, based on agreements the service made in a 2021 legal settlement, was the second time a judge has blocked new curbs by President Trump on voting by mail.`\
 https://www.nytimes.com/2026/07/01/us/politics/judge-trump-postal-service.html
 
 **Promising Much to Many, Johnson Loses His Grip on the House**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/world/europe/greece-bombings-thessaloniki.htm
 **Michael Byrne, British Stage Actor, Dies at 86**\
 `He had a long career in theater, and several small roles in big movies, including “Force 10 From Navarone” and “Indiana Jones and the Last Crusade.”`\
 https://www.nytimes.com/2026/07/01/obituaries/michael-byrne-dead.html
-
-**Ex-C.I.A. Chief Asks for Order Forcing Trump Administration to Preserve Records**\
-`Lawyers for John O. Brennan said they want the materials saved in anticipation of bringing a vindictive prosecution motion if charges against Mr. Brennan are ultimately filed.`\
-https://www.nytimes.com/2026/07/01/us/politics/john-brennan-investigations-records.html
 

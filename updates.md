@@ -1,3 +1,11 @@
+**America Rings In 250th Birthday Amid Deep Polarization and Political Rifts**\
+`How does a deeply polarized country come together to have a birthday party?`\
+https://www.nytimes.com/2026/07/01/us/politics/usa-america-250-trump.html
+
+**Judge Blocks Postal Service From Imposing Restrictions on Mail-In Ballots**\
+`The ruling, based on agreements the service made in a 2021 legal settlement, was the second time a judge has blocked new curbs by President Trump on voting by mail.`\
+https://www.nytimes.com/2026/07/01/us/politics/judge-trump-postal-service.html
+
 **Judge Blocks Postal Service From Imposing Restrictions on Mail-In Ballots**\
 `The ruling, based on agreements the service made in a 2021 legal settlement, was the second time a judge has blocked new restrictions by President Trump on mail-in voting.`\
 https://www.nytimes.com/2026/07/01/us/politics/judge-trump-postal-service.html
