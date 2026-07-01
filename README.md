@@ -1,3 +1,7 @@
+**Trump’s Moneymaking Run: Unrivaled in Presidential History**\
+`The president’s move to open new business ventures, rather than eliminate potential conflicts, defies a long-held tradition.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-moneymaking-presidential-history.html
+
 **Colorado Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
@@ -76,7 +80,7 @@ https://www.nytimes.com/2026/06/30/t-magazine/copenhagen-apartment-next-chapter.
 
 **In the United States, Every World Cup Team Is a Home Team**\
 `At block parties, backyards and beer halls, an expanded tournament gave immigrant diasporas large and small the chance to revel in support of their home countries.`\
-https://www.nytimes.com/interactive/2026/07/01/us/world-cup-fans.html
+https://www.nytimes.com/interactive/2026/06/30/us/world-cup-fans.html
 
 **Colorado Handyman Discovers Bear in His Truck Eating His Lunch**\
 `A handyman in Steamboat Springs, Colo., discovered a bear eating his lunch in his truck.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/06/30/world/quake-tracker-gulf-of-calif
 **Ciudadanía por nacimiento en EE. UU.: lo que hay que saber del fallo de la Corte Suprema**\
 `Defensores de los derechos civiles y de los migrantes aplaudieron la decisión, pero advirtieron que el miedo causado por la persecución del gobierno de Trump seguiría presente.`\
 https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/ciudadania-nacimiento-trump-corte-que-pasa.html
-
-**C.I.A. Reorganization Prioritizes Cyberoperations**\
-`John Ratcliffe, the C.I.A. director, said that the agency would take “smart risks,” but that people would have oversight of artificial intelligence.`\
-https://www.nytimes.com/2026/06/30/us/politics/cia-reorganization-cyber-ai.html
 
