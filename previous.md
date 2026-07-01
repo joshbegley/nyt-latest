@@ -1,3 +1,7 @@
+**Judges Strike Down Trump Rule on Loan Forgiveness for Public Servants**\
+`Two federal courts have blocked a new Trump administration rule that could have narrowed eligibility for a student loan forgiveness program for public servants.`\
+https://www.nytimes.com/2026/06/30/business/trump-student-loan-forgiveness.html
+
 **Manny Rutinel, a Progressive, Wins Colorado Primary for Competitive House Seat**\
 `Manny Rutinel, a state representative and former activist, will face Representative Gabe Evans, a Republican seen as vulnerable, in the fall.`\
 https://www.nytimes.com/2026/06/30/us/politics/manny-rutinel-colorado-8th-district-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011001650/birthright-citizenship
 **Venezuela’s Maduro Accused in Lawsuit of Authorizing Police Killings**\
 `Five families whose loved ones were killed during a deadly police campaign have sued the former Venezuelan leader in U.S. court in Brooklyn.`\
 https://www.nytimes.com/2026/06/30/world/americas/venezuela-maduro-killings-lawsuit.html
-
-**4 Warning Signs for Graham Platner. And 4 for Susan Collins Too.**\
-`The Maine race, which both parties see as key to winning control of the Senate, is extremely close, a Times/Portland Press Herald/Siena poll found. Both candidates have reasons for concern.`\
-https://www.nytimes.com/2026/06/30/us/politics/collins-platner-maine-senate-poll-worries.html
 

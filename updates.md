@@ -1,3 +1,7 @@
+**Judges Strike Down Trump Rule on Loan Forgiveness for Public Servants**\
+`Two federal courts have blocked a new Trump administration rule that could have narrowed eligibility for a student loan forgiveness program for public servants.`\
+https://www.nytimes.com/2026/06/30/business/trump-student-loan-forgiveness.html
+
 **Manny Rutinel, a Progressive, Wins Colorado Primary for Competitive House Seat**\
 `Manny Rutinel, a state representative and former activist, will face Representative Gabe Evans, a Republican seen as vulnerable, in the fall.`\
 https://www.nytimes.com/2026/06/30/us/politics/manny-rutinel-colorado-8th-district-democrats.html
