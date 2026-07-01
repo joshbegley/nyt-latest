@@ -1,3 +1,15 @@
+**The Good List: 7 Things to Add Joy to Your Day**\
+`Old menus, vivid lightning and Richard Grant sniffing things.`\
+https://www.nytimes.com/2026/07/01/briefing/the-good-list-ram-dass-handwriting.html
+
+**Who Can Sell ‘6 7’ Chicken Nuggets? One Company Is Asking a Court to Decide.**\
+`The meat and poultry giant Perdue said in a lawsuit that Soules Foods copied its packaging that is based on a meme popular with children.`\
+https://www.nytimes.com/2026/07/01/us/perdue-chicken-nuggets-lawsuit-6-7.html
+
+**Trump Accounts to Receive $250 Million Donation From Chip Maker Micron**\
+`President Trump said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration.`\
+https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
+
 **U.S. to Overhaul Radiation Safety Rules to Spur Nuclear Expansion**\
 `The Nuclear Regulatory Commission plans to end longstanding guidance that radiation exposure be “as low as reasonably achievable.”`\
 https://www.nytimes.com/2026/07/01/climate/nrc-radiation-regulation-nuclear-overhaul.html
