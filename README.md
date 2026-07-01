@@ -15,7 +15,7 @@ https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mueren-personas-mex
 https://www.nytimes.com/video/opinion/100000010979150/which-is-more-powerful-the-maga-right-or-woke-left.html
 
 **How to Dress for a Heat Wave**\
-`Advice for choosing the best fabrics and styles to help cool you down extreme heat.`\
+`Advice for choosing the best fabrics and styles to help cool you down in extreme heat.`\
 https://www.nytimes.com/2026/07/01/style/heat-wave-clothing-materials-stay-cool.html
 
 **Sour Cream and Onion Hot Dogs**\
