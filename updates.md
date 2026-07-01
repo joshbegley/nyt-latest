@@ -1,3 +1,7 @@
+**U.S. Braces for a Record-Breaking Heat Wave**\
+`Dangerous heat is expected across much of the United States through the Fourth of July weekend. New York City Mayor Zohran Mamdani urged people to take the forecast seriously.`\
+https://www.nytimes.com/video/us/100000011003623/us-heat-wave.html
+
 **Word of the Day: insuperable**\
 `This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/01/learning/word-of-the-day-insuperable.html
