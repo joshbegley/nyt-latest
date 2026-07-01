@@ -1,3 +1,47 @@
+**Colorado Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
+
+**Colorado Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-8-primary.html
+
+**Colorado Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-4-primary.html
+
+**Colorado Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-3-primary.html
+
+**Colorado U.S. Senate Primary 2026: Live Election Results, Hickenlooper vs. Gonzales**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-senate-primary.html
+
+**Colorado Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-5-primary.html
+
+**Colorado Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-7-primary.html
+
+**Colorado Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-secretary-of-state-primary.html
+
+**Colorado Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-attorney-general-primary.html
+
+**Colorado First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-1-primary.html
+
+**Colorado Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-2-primary.html
+
 **The Dress Code for Taylor Swift and Travis Kelce’s Wedding? Expect a Black-Tie Event.**\
 `New details have emerged about the celebration at Madison Square Garden, widely believed to be a wedding, including a dress code.`\
 https://www.nytimes.com/2026/06/30/style/taylor-swift-wedding-kelce-dress-code.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/es/2026/06/30/espanol/estados-unidos/ciudadania-nacimien
 **C.I.A. Reorganization Prioritizes Cyberoperations**\
 `John Ratcliffe, the C.I.A. director, said that the agency would take “smart risks,” but that people would have oversight of artificial intelligence.`\
 https://www.nytimes.com/2026/06/30/us/politics/cia-reorganization-cyber-ai.html
-
-**A Hot and Deadly Start to Wildfire Season**\
-`Thousands of acres in Utah and other Western states have burned as a U.S. heat wave widens.`\
-https://www.nytimes.com/2026/06/30/climate/heat-wave-wildfires.html
-
-**States Sue Trump Administration Over Medicaid Work Requirements**\
-`The lawsuit argues that new federal rules went beyond what Congress enacted and broke from guidance that the federal government previewed to states.`\
-https://www.nytimes.com/2026/06/30/us/politics/medicaid-work-requirements-lawsuit.html
-
-**Bear Breaks Into Truck, Helping Itself to Handyman’s Lunch**\
-`A handyman was returning to his truck when he opened the door and found a cub eating his lunch from the passenger seat in Steamboat Springs, Colo.`\
-https://www.nytimes.com/2026/06/30/us/colorado-bear-truck-steamboat-springs.html
-
-**Más de un millón de migrantes solicitan la regularización en España**\
-`El programa, que inició a finales de abril, está destinado a incorporar a los migrantes indocumentados al mercado laboral formal.`\
-https://www.nytimes.com/es/2026/06/30/espanol/mundo/espana-regularizacion-inmigrantes-millon-residencia-trabajo.html
-
-**Trans Sports Ruling Puts Pressure on States Without Bans**\
-`Almost half of states do not prohibit trans girls and women from competing. The Supreme Court ruling doesn’t force them to, but lawmakers and voters could change that.`\
-https://www.nytimes.com/2026/06/30/us/politics/trans-athletes-supreme-court-democratic-states.html
-
-**55% of Americans support birthright citizenship.**\
-`The Supreme Court decision puts the court in line with the views of a majority of Americans.`\
-https://www.nytimes.com/2026/06/30/us/politics/birthright-citizenship-polls.html
-
-**G.O.P. Revolt Paralyzes the House, Stalling Trump Agenda**\
-`A Republican blockade derailed a Pentagon policy bill and other legislation as the far right pressed for action on a voting bill championed by President Trump.`\
-https://www.nytimes.com/2026/06/30/us/politics/republicans-house-defense-elections-save-america.html
-
-**Court Halts Pentagon Rule Requiring Escorts for Journalists**\
-`A federal judge temporarily blocked a new rule that restricted reporters’ access to the Pentagon, in a lawsuit brought by The New York Times.`\
-https://www.nytimes.com/2026/06/30/business/media/pentagon-journalists-escort-rule.html
-
-**Arkansas State House District 44 Special Runoff 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arkansas special runoff election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-arkansas-state-house-district-44-special-runoff.html
-
-**Amy Coney Barrett Faces Right-Wing Ire Over Recent Rulings**\
-`Justice Barrett sided with Chief Justice Roberts and the liberal minority to uphold birthright citizenship and mail-in voting practices.`\
-https://www.nytimes.com/2026/06/30/us/politics/amy-coney-barrett-gop-scotus-rulings.html
-
-**Bear Surprises Truck Owner in Colorado**\
-`A garage camera caught the moment a handyman in Colorado opened the door to his truck to find a bear cub eating his lunch inside.`\
-https://www.nytimes.com/video/embedded/at-home/100000011002282/bear-surprises-truck-owner-in-colorado.html
 
