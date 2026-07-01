@@ -1,3 +1,7 @@
+**Who Is Ahead in Vermont's At-Large Congressional District?**\
+`Track the latest polls in Vermont's At-Large Congressional District.`\
+https://www.nytimes.com/interactive/polls/vermont-us-house-at-large-polls-2026.html
+
 **Who Is Ahead in the Vermont Governor's Race? Latest 2026 Election Polls**\
 `Track the latest polls in the Vermont governor election.`\
 https://www.nytimes.com/interactive/polls/vermont-governor-election-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/opinion/children-parents-billionaires-wealth-
 **30 Fun Things to Do in N.Y.C. in July**\
 `This month brings the nation’s 250th birthday bash, “Les Miserables,” Mark Morris, the World Cup final, Jay-Z at Yankee Stadium and nine nights of Bon Jovi.`\
 https://www.nytimes.com/2026/07/01/arts/fun-things-to-do-nyc-july.html
-
-**How A.I. Might Change the Way Doctors Think**\
-`For generations, writing up a summary of a patient exam was a vital step for physicians trying to make an accurate diagnosis. What happens when A.I. does it for them?`\
-https://www.nytimes.com/2026/07/01/magazine/ai-medical-scribes-doctors.html
 
