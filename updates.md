@@ -1,3 +1,11 @@
+**SpudCell: Scientists Made a Cell With Most of the Hallmarks of Life. Here’s What to Know.**\
+`From why it was created to whether it’s alive, here’s what to know about SpudCell, the latest advance in synthetic biology.`\
+https://www.nytimes.com/2026/07/01/science/spud-cell-what-to-know.html
+
+**Fed’s Warsh Says Inflation Poses Less Risk Than a Few Weeks Ago**\
+`The Federal Reserve chairman, Kevin Warsh, stressed that the central bank would “deliver price stability,” a point he has emphasized repeatedly since taking over in May.`\
+https://www.nytimes.com/2026/07/01/business/kevin-warsh-inflation-ecb.html
+
 **The Best Movies and Shows Streaming in July 2026: ‘Elle,’ ‘Silo’ and More**\
 `“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
 https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
