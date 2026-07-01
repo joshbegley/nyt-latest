@@ -1,3 +1,7 @@
+**Robby Hoffman on Being Outed at 17**\
+`On “The Interview,” the comedian Robby Hoffman talked about what it was like to have her relationship with her girlfriend exposed when she was 17.`\
+https://www.nytimes.com/video/podcasts/100000011005264/robby-hoffman-on-being-outed-at-17.html
+
 **How JD Vance Helped bell hooks Back Onto the Best-Seller List**\
 `A grass-roots campaign urged readers to buy copies of the Black feminist writer’s 2002 book “Communion” before Vice President JD Vance’s book of the same name hit shelves.`\
 https://www.nytimes.com/2026/07/01/books/communion-bell-hooks-jd-vance.html

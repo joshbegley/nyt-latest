@@ -1,3 +1,7 @@
+**Robby Hoffman on Being Outed at 17**\
+`On “The Interview,” the comedian Robby Hoffman talked about what it was like to have her relationship with her girlfriend exposed when she was 17.`\
+https://www.nytimes.com/video/podcasts/100000011005264/robby-hoffman-on-being-outed-at-17.html
+
 **How JD Vance Helped bell hooks Back Onto the Best-Seller List**\
 `A grass-roots campaign urged readers to buy copies of the Black feminist writer’s 2002 book “Communion” before Vice President JD Vance’s book of the same name hit shelves.`\
 https://www.nytimes.com/2026/07/01/books/communion-bell-hooks-jd-vance.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/science/spud-cell-what-to-know.html
 **Fed’s Warsh Says Inflation Poses Less Risk Than a Few Weeks Ago**\
 `The Federal Reserve chairman, Kevin Warsh, stressed that the central bank would “deliver price stability,” a point he has emphasized repeatedly since taking over in May.`\
 https://www.nytimes.com/2026/07/01/business/kevin-warsh-inflation-ecb.html
-
-**How the Iran War Ignited a Clash Between Trump and the Saudi Crown Prince**\
-`Crown Prince Mohammed bin Salman pressed President Trump earlier to cripple Iran. But as Iran asserted its power, the prince urged a cease-fire, and is now pursuing his security priorities.`\
-https://www.nytimes.com/2026/07/01/us/politics/trump-saudi-crown-prince-iran.html
 
