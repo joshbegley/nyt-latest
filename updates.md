@@ -1,3 +1,23 @@
+**With Lessons From a Perilous Blizzard, Mamdani Prepares for Extreme Heat**\
+`After more than two dozen people died during a brutal cold snap in New York City, city officials came up with a plan to keep people safe in the cold and extreme heat.`\
+https://www.nytimes.com/2026/07/01/nyregion/new-york-city-mamdani-heat-cold-deaths.html
+
+**Back in Congress, Tom Kean Jr. Faces a New Challenge: Staying There**\
+`The New Jersey Republican has explained the reason for his long absence: depression. Now he must convince voters that he deserves another term.`\
+https://www.nytimes.com/2026/07/01/nyregion/tom-kean-reelection-challenges.html
+
+**NYT Spelling Bee Answers for July 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/01/crosswords/spelling-bee-forum.html
+
+**Turkey as a Tango Destination? A Reporter Was Living That Story.**\
+`A Times journalist profiled Istanbul’s thriving tango scene after finding herself transformed by the dance.`\
+https://www.nytimes.com/2026/07/01/world/middleeast/turkey-as-a-tango-destination-a-reporter-was-living-that-story.html
+
+**Her Letter Is a Window Into the Dawn of the American Revolution**\
+`A young New Yorker’s letter to her cousin in London showed how colonial women in the late 1700s were waging their own battles against the British.`\
+https://www.nytimes.com/2026/07/01/nyregion/250th-anniversary-nyc-charity-clarke.html
+
 **Professor Fired for Criticizing Charlie Kirk Wins $1.9 Million Settlement**\
 `Tamar Shirinian, a former professor at the University of Tennessee at Knoxville, was among those who lost their jobs over their posts about the slain conservative activist.`\
 https://www.nytimes.com/2026/07/01/us/tennessee-professor-charlie-kirk-settlement.html
