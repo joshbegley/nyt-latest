@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/07/01/us/politics/justice-trump-suit-gun-ban-virgin
 https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/video-imagenes-universo-espacio-chile-observatorio.html
 
 **Adults Arrested After 16 Children Are Found in Squalor in Rural Ohio**\
-`The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said.`\
+`The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said. The adults pleaded not guilty.`\
 https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
 
 **Un turista muere tras ser atacado por un cocodrilo en Puerto Vallarta**\

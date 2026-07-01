@@ -1,3 +1,7 @@
+**Adults Arrested After 16 Children Are Found in Squalor in Rural Ohio**\
+`The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said. The adults pleaded not guilty.`\
+https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
+
 **Three People Die During Mexico City’s World Cup Celebrations**\
 `A man and two women died from asphyxiation during World Cup celebrations in Mexico City following the National Teams win over Ecuador on Tuesday, local authorities said.`\
 https://www.nytimes.com/video/world/americas/100000011004349/people-dead-mexico-city-world-cup.html
