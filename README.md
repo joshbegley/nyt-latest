@@ -2,13 +2,13 @@
 `The “Three Lions” take on the Democratic Republic of Congo in the Round of 32.`\
 https://www.nytimes.com/2026/07/01/podcasts/england-congo-world-cup-usmnt-bosnia.html
 
-**Why Americans Will Get Less Help Paying for College**\
-`With new limits on federal lending, many students will need private loans and some could be shut out.`\
-https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
-
 **The Supreme Court’s Momentous Term, and How Trump Has Made at Least $2.2 Billion in Office**\
 `Plus, zombies at the mall.`\
 https://www.nytimes.com/2026/07/01/podcasts/the-headlines/supreme-court-trump.html
+
+**Why Americans Will Get Less Help Paying for College**\
+`With new limits on federal lending, many students will need private loans and some could be shut out.`\
+https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
 
 **NYT Connections Answers for July 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
