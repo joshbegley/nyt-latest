@@ -1,3 +1,27 @@
+**First Europe, Then North America: Welcome to Heat Dome Summer.**\
+`What’s causing all the record-breaking heat, and when will it end?`\
+https://www.nytimes.com/2026/07/01/weather/heat-domes-europe-us.html
+
+**Eddie Huang’s New Model of Manhood**\
+`The chef and writer Eddie Huang tells Anna Martin, host of the “Modern Love” podcast, why his concept of how to be a man has changed because of his relationship with his wife, Natashia.`\
+https://www.nytimes.com/video/podcasts/100000011004328/01vid-ml-eddie-huang-masculinity.html
+
+**A New Era at the Montpellier Dance Festival**\
+`The Montpellier dance festival, with new directors for the first time in more than 40 years, featured the wildly popular (La)Horde.`\
+https://www.nytimes.com/2026/07/01/arts/dance/montpellier-dance-festival-la-horde-apres-moi-le-deluge.html
+
+**Bombings in Greece Target Governing Party Members, Officials Say**\
+`A candidate for Parliament for the New Democracy party was injured in one of the bombings in the city of Thessaloniki, as were her parents, the police said.`\
+https://www.nytimes.com/2026/07/01/world/europe/greece-bombings-thessaloniki.html
+
+**Michael Byrne, British Stage Actor, Dies at 86**\
+`He had a long career on the boards, and several small roles in big movies, including “Force 10 From Navarone” and “Indiana Jones and the Last Crusade.”`\
+https://www.nytimes.com/2026/07/01/obituaries/michael-byrne-dead.html
+
+**Ex-C.I.A. Chief Asks for Order Forcing Trump Administration to Preserve Records**\
+`Lawyers for John O. Brennan said they want the materials saved in anticipation of bringing a vindictive prosecution motion if charges against Mr. Brennan are ultimately filed.`\
+https://www.nytimes.com/2026/07/01/us/politics/john-brennan-investigations-records.html
+
 **Tiny Love Stories: ‘I Don’t Want an Old Man’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/07/01/style/tiny-modern-love-stories-i-dont-want-an-old-man.html
