@@ -1,3 +1,7 @@
+**The Democratic Incumbents Most at Risk of Losing to Progressive Primary Challengers in 2026**\
+`A wave of outsider fervor has already knocked out a number of incumbents in primary races. Several more face spirited opposition.`\
+https://www.nytimes.com/2026/07/01/us/politics/democratic-incumbents-progressive-primary-challengers.html
+
 **Dark and Light: Words for the Fourth**\
 `Readers respond to a column by Bret Stephens and a letter about the Fourth of July. Also: Food education, for children and parents.`\
 https://www.nytimes.com/2026/07/01/opinion/america-250-july4.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trum
 **Canada Will Compete in Eurovision Song Contest**\
 `The country’s national broadcaster confirmed that it is joining the world’s most popular singing contest next year. Some fans are urging it to send a star like Shania Twain.`\
 https://www.nytimes.com/2026/07/01/arts/music/eurovision-song-contest-canada.html
-
-**Who Is Ahead in Vermont's At-Large Congressional District?**\
-`Track the latest polls in Vermont's At-Large Congressional District.`\
-https://www.nytimes.com/interactive/polls/vermont-us-house-at-large-polls-2026.html
 

@@ -1,3 +1,7 @@
+**The Democratic Incumbents Most at Risk of Losing to Progressive Primary Challengers in 2026**\
+`A wave of outsider fervor has already knocked out a number of incumbents in primary races. Several more face spirited opposition.`\
+https://www.nytimes.com/2026/07/01/us/politics/democratic-incumbents-progressive-primary-challengers.html
+
 **Dark and Light: Words for the Fourth**\
 `Readers respond to a column by Bret Stephens and a letter about the Fourth of July. Also: Food education, for children and parents.`\
 https://www.nytimes.com/2026/07/01/opinion/america-250-july4.html
