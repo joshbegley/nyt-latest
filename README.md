@@ -1,3 +1,7 @@
+**Trump on the Range: A Presidential Visit to the Roosevelt Library in North Dakota**\
+`President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, who he called “a great he-man.”`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-north-dakota-roosevelt-library.html
+
 **¿Y si sí? México encuentra esperanza en la Copa Mundial**\
 `El desempeño de la selección mexicana en el Mundial ha electrizado a la nación, atrayendo a cientos de miles de personas a celebraciones callejeras que se han convertido en expresión de resiliencia y optimismo colectivos.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mexico-elimina-ecuador-celebraciones.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
 **A Couple Climb Atop the Empire State Building for a Marriage Proposal**\
 `Two Russian “rooftoppers” ascended the spire of the Empire State Building, 1,450 feet above the city, and one got down on one knee and presented a ring.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
-
-**A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
-`Jenifer Chatfield, a top official at the Interior Department, faces scrutiny from ethics experts for actions that could help her family’s business.`\
-https://www.nytimes.com/2026/07/01/climate/interior-department-ethics-chatfield.html
 
