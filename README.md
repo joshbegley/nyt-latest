@@ -1,3 +1,23 @@
+**With Lessons From a Perilous Blizzard, Mamdani Prepares for Extreme Heat**\
+`After more than two dozen people died during a brutal cold snap in New York City, city officials came up with a plan to keep people safe in the cold and extreme heat.`\
+https://www.nytimes.com/2026/07/01/nyregion/new-york-city-mamdani-heat-cold-deaths.html
+
+**Back in Congress, Tom Kean Jr. Faces a New Challenge: Staying There**\
+`The New Jersey Republican has explained the reason for his long absence: depression. Now he must convince voters that he deserves another term.`\
+https://www.nytimes.com/2026/07/01/nyregion/tom-kean-reelection-challenges.html
+
+**NYT Spelling Bee Answers for July 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/01/crosswords/spelling-bee-forum.html
+
+**Turkey as a Tango Destination? A Reporter Was Living That Story.**\
+`A Times journalist profiled Istanbul’s thriving tango scene after finding herself transformed by the dance.`\
+https://www.nytimes.com/2026/07/01/world/middleeast/turkey-as-a-tango-destination-a-reporter-was-living-that-story.html
+
+**Her Letter Is a Window Into the Dawn of the American Revolution**\
+`A young New Yorker’s letter to her cousin in London showed how colonial women in the late 1700s were waging their own battles against the British.`\
+https://www.nytimes.com/2026/07/01/nyregion/250th-anniversary-nyc-charity-clarke.html
+
 **Professor Fired for Criticizing Charlie Kirk Wins $1.9 Million Settlement**\
 `Tamar Shirinian, a former professor at the University of Tennessee at Knoxville, was among those who lost their jobs over their posts about the slain conservative activist.`\
 https://www.nytimes.com/2026/07/01/us/tennessee-professor-charlie-kirk-settlement.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/06/30/nyregion/tom-kean-new-jersey-absence.html
 **Talarico Seizes on Paxton Tabloid Story to Test Corruption Attacks in Texas Senate Race**\
 `After a salacious report about Ken Paxton, the Republican nominee for Senate in Texas, his Democratic rival, James Talarico, seized on the news — but focused on corruption and affordability.`\
 https://www.nytimes.com/2026/06/30/us/politics/paxton-talarico-corruption-affordability-texas.html
-
-**Beaver Statue Honoring the United States Is Smashed in Toronto**\
-`One of dozens of statues of Canada’s national animal, part of a public art installation for the World Cup, was destroyed. It was the one wearing stars and stripes.`\
-https://www.nytimes.com/2026/06/30/world/canada/world-cup-toronto-beaver-destroyed.html
-
-**John Loring, Longtime Design Director at Tiffany & Company, Dies at 86**\
-`One of the country’s influential tastemakers, he oversaw the rapid expansion of Tiffany in the midst of seismic shifts in luxury retail.`\
-https://www.nytimes.com/2026/06/30/style/john-loring-dead.html
-
-**Aid Workers in Venezuela Fear Disease Outbreaks After Twin Quakes**\
-`Health care workers worry that illnesses like cholera could spread in areas where clean water was already in short supply, and last week’s earthquakes destroyed water systems.`\
-https://www.nytimes.com/2026/06/30/world/americas/venezuela-disease-outbreaks.html
-
-**The Vera Rubin Telescope Begins Surveying Our Cosmos**\
-`The Vera C. Rubin Observatory is beginning the widest, deepest survey yet of the southern sky.`\
-https://www.nytimes.com/2026/06/30/science/rubin-telescope.html
-
-**Curiosity, Perseverance and Now Promise? NASA May Send a Mars Rover to the Moon.**\
-`As part of plans to establish a lunar base, the space agency may send to the moon a spare test version of the rover — as well as a soccer ball.`\
-https://www.nytimes.com/2026/06/30/science/nasa-moon-base-research.html
 
