@@ -1,4 +1,4 @@
-**After Trading Attacks, U.S. and Iran Edge Back Toward Diplomacy**\
+**U.S. and Iran Set to Hold Indirect Talks After Trading Attacks: What to Know**\
 `With negotiators in Qatar, oil prices are easing as shipowners send more vessels through the Strait of Hormuz, unblocking energy flows.`\
 https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
 
