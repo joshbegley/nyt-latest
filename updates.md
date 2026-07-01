@@ -1,3 +1,11 @@
+**Trump’s Moneymaking Run: Unrivaled in Presidential History**\
+`The president’s move to open new business ventures, rather than eliminate potential conflicts, defies a long-held tradition.`\
+https://www.nytimes.com/2026/06/30/us/politics/trump-moneymaking-presidential-history.html
+
+**In the United States, Every World Cup Team Is a Home Team**\
+`At block parties, backyards and beer halls, an expanded tournament gave immigrant diasporas large and small the chance to revel in support of their home countries.`\
+https://www.nytimes.com/interactive/2026/06/30/us/world-cup-fans.html
+
 **Colorado Sixth Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-colorado-us-house-6-primary.html
