@@ -1,3 +1,7 @@
+**The Heat Wave Proves That We Need to Adapt to Climate Change**\
+`The world’s infrastructure was built for a climate we no longer have.`\
+https://www.nytimes.com/2026/07/01/opinion/heat-wave-europe-america.html
+
 **The Good List: 7 Things to Add Joy to Your Day**\
 `Old menus, vivid lightning and Richard Grant sniffing things.`\
 https://www.nytimes.com/2026/07/01/briefing/the-good-list-ram-dass-handwriting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011004161/pineapple-hot-dogs.html
 **What Would Taylor Swift and Travis Kelce’s Prenuptial Agreement Look Like?**\
 `What would a prenuptial agreement between one of the world’s biggest pop stars and a three-time Super Bowl champion look like? Legal experts weigh in.`\
 https://www.nytimes.com/2026/07/01/business/taylor-swift-travis-kelce-prenup.html
-
-**Today, In Short**\
-`Food history. LeBron James. And an obstacle course.`\
-https://www.nytimes.com/2026/07/01/briefing/today-in-short.html
 
