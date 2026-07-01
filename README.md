@@ -1,8 +1,8 @@
 **Dark and Light: Words for the Fourth**\
-`Readers respond to a column by Bret Stephens and a letter about the Fourth of July. Also: Food eduction, for children and parents.`\
+`Readers respond to a column by Bret Stephens and a letter about the Fourth of July. Also: Food education, for children and parents.`\
 https://www.nytimes.com/2026/07/01/opinion/america-250-july4.html
 
-**Washington, D.C., Is Full of Construction Zones and Armed Camps**\
+**Trump Remakes Washington, D.C., Into a Maze of Fences and Guard Members**\
 `President Trump seems to have turned swaths of the city into either a construction zone or an armed camp as he seeks to prove that he alone can improve it.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-washington-dc-construction.html
 
@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
 `The government described the rare fatal attack in Puerto Vallarta as “deeply unfortunate, unusual and isolated.”`\
 https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html
 
-**Micron to Donate $250 Million to Trump Accounts, Trump Says**\
-`President Trump said that the U.S. chipmaker would make a significant donation to a new type of investment account for children created by the administration.`\
+**Trump Accounts to Receive $250 Million Donation From Chip Maker Micron, Trump Says**\
+`President Trump said that the U.S. chip maker would make a significant donation to a new type of investment account for children created by the administration.`\
 https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
 
 **First Europe, Then North America: Welcome to Heat Dome Summer.**\
