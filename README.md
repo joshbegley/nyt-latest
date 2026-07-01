@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV, Peacock and More in July**\
+`“Elle” and “Descendants: Wicked Wonderland” arrive, and new “Star Trek: Strange New Worlds” and “Silo” seasons begin.`\
+https://www.nytimes.com/2026/07/01/arts/television/movies-tv-shows-july-2026-streaming.html
+
 **Catholic Group Consecrates 4 Bishops, Risking Break With Vatican**\
 `The traditionalist Society of St. Pius X went ahead with the ceremony, even after the Vatican warned it would result in the bishops’ excommunication.`\
 https://www.nytimes.com/2026/07/01/world/europe/vatican-bishops-church-excommunication.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/realestate/homes-for-sale-in-washington-dc-co
 **The 10 Most Mind-Altering Theater Moments of 2026 (So Far)**\
 `Our critic chose 10 moments from the theatrical year that shifted her thinking.`\
 https://www.nytimes.com/2026/07/01/theater/best-theater-moments-2026-so-far.html
-
-**Fact-Checking Trump’s Inaccurate Accounts of U.S. History**\
-`We fact-checked the president’s colorful — and inaccurate — accounts of American history from the Battle of Gettysburg to the Unabomber.`\
-https://www.nytimes.com/2026/07/01/us/politics/trump-fact-check-american-history.html
 
