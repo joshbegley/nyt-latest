@@ -1,3 +1,15 @@
+**Melat Kiros, a Left-Wing Insurgent, Ousts a 15-Term Congresswoman in Colorado**\
+`Melat Kiros, a 29-year-old democratic socialist, unseated Representative Diana DeGette in a Democratic primary to represent the Denver area.`\
+https://www.nytimes.com/2026/07/01/us/politics/melat-kiros-degette-colorado-democratic-primary.html
+
+**Archaeologists Find Maya Monuments Off the Beaten Path. Way Off.**\
+`Scientists drove ATVs for miles and then hiked miles more through dense forest to reach a site untouched by looting on Mexico’s Yucatán Peninsula. They named it Minanbé, meaning “there is no path.”`\
+https://www.nytimes.com/2026/07/01/world/americas/maya-ruins-minanbe-mexico.html
+
+**Quote of the Day: G.O.P. Given a Boost Ahead of the Midterms**\
+`Quotation of the Day for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/07/01/pageoneplus/quote-of-the-day-gop-given-a-boost-ahead-of-the-midterms.html
+
 **¿Cuál es la cuna del fútbol mexicano? Depende a quién le preguntes**\
 `Una pequeña localidad minera se convirtió en destino turístico por su abolengo futbolero. Una ciudad vecina reivindica el mismo legado.`\
 https://www.nytimes.com/es/2026/06/30/espanol/deportes/cuna-futbol-mexicano-hidalgo.html

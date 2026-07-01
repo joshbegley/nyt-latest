@@ -1,3 +1,15 @@
+**Melat Kiros, a Left-Wing Insurgent, Ousts a 15-Term Congresswoman in Colorado**\
+`Melat Kiros, a 29-year-old democratic socialist, unseated Representative Diana DeGette in a Democratic primary to represent the Denver area.`\
+https://www.nytimes.com/2026/07/01/us/politics/melat-kiros-degette-colorado-democratic-primary.html
+
+**Archaeologists Find Maya Monuments Off the Beaten Path. Way Off.**\
+`Scientists drove ATVs for miles and then hiked miles more through dense forest to reach a site untouched by looting on Mexico’s Yucatán Peninsula. They named it Minanbé, meaning “there is no path.”`\
+https://www.nytimes.com/2026/07/01/world/americas/maya-ruins-minanbe-mexico.html
+
+**Quote of the Day: G.O.P. Given a Boost Ahead of the Midterms**\
+`Quotation of the Day for Wednesday, July 1, 2026.`\
+https://www.nytimes.com/2026/07/01/pageoneplus/quote-of-the-day-gop-given-a-boost-ahead-of-the-midterms.html
+
 **¿Cuál es la cuna del fútbol mexicano? Depende a quién le preguntes**\
 `Una pequeña localidad minera se convirtió en destino turístico por su abolengo futbolero. Una ciudad vecina reivindica el mismo legado.`\
 https://www.nytimes.com/es/2026/06/30/espanol/deportes/cuna-futbol-mexicano-hidalgo.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/06/30/us/politics/supreme-court-takeaways-term.html
 **U.S. Supreme Court Allows States to Ban Transgender Athletes on Girls’ Teams**\
 `The Supreme Court upheld West Virginia and Idaho state laws on Tuesday that bar transgender athletes from playing on girls’ and women’s sports teams.`\
 https://www.nytimes.com/video/us/politics/100000011001543/scotus-supreme-court-transgender-athletes.html
-
-**Rays of Hope in Dark Times**\
-`It’s time to update Learned Hand’s great “Spirit of Liberty” address.`\
-https://www.nytimes.com/2026/06/30/opinion/america-250-us-liberty-learned-hand.html
-
-**China’s Plan to Save Jobs From A.I.**\
-`As it embeds the technology in every industry, China is thinking about how to keep humans employed.`\
-https://www.nytimes.com/2026/06/30/world/china-ai-jobs-birthright-hormuz.html
-
-**Neon Buys ‘Artificial,’ a Film About OpenAI, After Amazon Dropped It**\
-`Neon purchased “Artificial,” which focuses on OpenAI’s chief, Sam Altman, after Amazon walked away from it following an investment in the start-up.`\
-https://www.nytimes.com/2026/06/30/business/media/openai-movie-artificial-neon-amazon.html
 
