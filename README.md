@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/07/01/crosswords/widows-bay-creepy-board-games.html
 `Una imprenta local ha fabricado cientos de pancartas en español para uno de los favoritos del Mundial, que ahora entrena en Chattanooga.`\
 https://www.nytimes.com/es/2026/07/01/espanol/deportes/espana-tennessee.html
 
-**What to Know About the U.S.-Mexico-Canada Agreement Talks**\
+**What to Know About the U.S.-Mexico-Canada Trade Agreement Talks**\
 `July 1 could be the beginning of the end for a trade pact President Trump has long criticized — or the start of a path to its renewal.`\
 https://www.nytimes.com/2026/07/01/business/economy/usmca-north-america-trade.html
 
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/07/01/us/iowa-ohio-governor-poll.html
 **Corrections: July 1, 2026**\
 `Corrections that appeared in print on Wednesday, July 1, 2026.`\
 https://www.nytimes.com/2026/07/01/pageoneplus/corrections-july-1-2026.html
-
-**Hillary Clinton Makes a Surprise Appearance at Carnegie Hall**\
-`Clinton narrated “Lincoln Portrait,” a work by the American composer Aaron Copland, in her debut with a symphony orchestra.`\
-https://www.nytimes.com/2026/07/01/nyregion/hillary-clinton-carnegie-hall.html
 
