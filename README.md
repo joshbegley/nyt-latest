@@ -3,7 +3,7 @@
 https://www.nytimes.com/video/embedded/business/100000011004014/Biz-Wheels-Carclubs.html
 
 **U.S. and Iran Set to Hold Indirect Talks After Trading Attacks: What to Know**\
-`With negotiators in Qatar, oil prices are easing as shipowners send more vessels through the Strait of Hormuz, unblocking energy flows.`\
+`Negotiators are in Qatar for indirect talks and ship traffic has risen in the Strait of Hormuz, even as Tehran and Washington remain far apart on key issues. Here’s what to know.`\
 https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
 
 **Where Trump Won and Lost at the Supreme Court**\
