@@ -1,3 +1,7 @@
+**Troop Casualties in Ukraine War Top 2 Million, Study Finds**\
+`Russia has borne the heavier toll, with 1.4 million troops killed or wounded since it invaded in February 2022.`\
+https://www.nytimes.com/2026/07/01/us/politics/russia-ukraine-troop-casualties.html
+
 **Trump Takes First Flight on New Air Force One**\
 `The Boeing 747-8, a gift worth $200 million from the Qatari royal family, has attracted considerable scrutiny over whether a foreign government was trying to influence the president.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-air-force-one-first-flight.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/interactive/2026/07/01/science/spudcells-synthetic-cell.
 https://www.nytimes.com/2026/07/01/nyregion/ecuador-mexico-world-cup-fans.html
 
 **Democratic Socialist Ousts 15-Term Incumbent in Colorado Primary**\
-`Melat Kiros, an immigrant and first-time candidate, will most likely head to Congress in a deep blue Colorado district after defeating Representative Diana DeGette, a 15-term incumbent, in a Democratic House primary.`\
+`Melat Kiros, an immigrant from Ethiopia and a first-time candidate, will most likely head to Congress in a deep-blue Colorado district after defeating Representative Diana DeGette, a 15-term incumbent, in a Democratic House primary.`\
 https://www.nytimes.com/video/us/politics/100000011003842/melat-kiros-democrat-socialist-colorado-primaries.html
 
 **As Earthquake Death Toll Rises, a Venezuelan Port Becomes a Morgue**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/01/espanol/estilos-de-vida/tendencia-manicure
 **The Birthright Decision Was Surprisingly Close, Some Legal Scholars Say**\
 `A bare majority of Supreme Court justices ruled that President Trump’s executive order was unconstitutional, reflecting a conservative shift on the issue.`\
 https://www.nytimes.com/2026/07/01/us/politics/birthright-supreme-court-decision.html
-
-**¿Qué es el índice de calor y por qué es importante?**\
-`Cuando suben las temperaturas, este es el dato al que hay que prestar atención.`\
-https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/indice-de-calor-que-es.html
 

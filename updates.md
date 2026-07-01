@@ -1,3 +1,15 @@
+**Trump Takes First Flight on New Air Force One**\
+`The Boeing 747-8, a gift worth $200 million from the Qatari royal family, has attracted considerable scrutiny over whether a foreign government was trying to influence the president.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-air-force-one-first-flight.html
+
+**3 personas mueren durante las celebraciones del Mundial en Ciudad de México**\
+`Las autoridades dijeron que un hombre de 44 años y dos mujeres, de 19 y 48 años, murieron por asfixia, mientras la gente celebraba la victoria de la selección mexicana ante Ecuador.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/mueren-personas-mexico-mundial-angel.html
+
+**Which Is More Powerful, the MAGA Right, or ‘Woke’ Left?**\
+`The Times Opinion columnist Ezra Klein and the conservative activist Christopher Rufo see the dangers of the right and the left differently. They talk about their disagreements on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000010979150/which-is-more-powerful-the-maga-right-or-woke-left.html
+
 **How to Dress for a Heat Wave**\
 `Advice for choosing the best fabrics and styles to help cool you down extreme heat.`\
 https://www.nytimes.com/2026/07/01/style/heat-wave-clothing-materials-stay-cool.html
