@@ -1,3 +1,7 @@
+**England’s World Cup Hopes, and USMNT-Bosnia Preview**\
+`The “Three Lions” take on the Democratic Republic of Congo in the Round of 32.`\
+https://www.nytimes.com/2026/07/01/podcasts/england-congo-world-cup-usmnt-bosnia.html
+
 **Why Americans Will Get Less Help Paying for College**\
 `With new limits on federal lending, many students will need private loans and some could be shut out.`\
 https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/07/01/crosswords/strands-sidekick-851.html
 
 **3 People Die During World Cup Celebrations in Mexico City**\
 `A man, 44, and two women, ages 19 and 48, died from asphyxiation, the authorities said, as crowds celebrated the Mexican team’s victory over Ecuador.`\
-https://www.nytimes.com/2026/07/01/world/americas/3-people-die-during-world-cup-celebrations-in-mexico-city.html
+https://www.nytimes.com/2026/07/01/world/americas/world-cup-mexico-city-crowd-deaths.html
 
 **Heat Wave Trudges East on Wednesday**\
 `More than 160 million people are under extreme heat warnings or heat advisories ahead of the Fourth of July weekend.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/books/best-sandra-boynton-books.html
 **The South Korean Mine at the Center of America’s Tungsten Push**\
 `Deep beneath a South Korean mountain, workers are reviving a mine that could challenge China’s grip on a metal vital to weapons, chips and industry.`\
 https://www.nytimes.com/2026/07/01/business/tungsten-mine-south-korea.html
-
-**Why Are So Many Cubans Migrating to Guyana?**\
-`Guyana, a tiny, oil-rich, English-speaking South American country, has become a destination for Cubans fleeing desperate conditions. We traveled to the capital, Georgetown, to meet with migrant families and learn more about the lives they left behind.`\
-https://www.nytimes.com/video/world/americas/100000010968903/cuba-guyana-immigrants.html
 
