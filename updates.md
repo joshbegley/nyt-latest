@@ -1,3 +1,11 @@
+**E. Jean Carroll Asks Judge to Order Trump to Pay $5 Million Jury Award**\
+`The writer’s request came after the Supreme Court declined to review a civil case in which President Trump was found liable for sexually abusing and defaming her.`\
+https://www.nytimes.com/2026/06/30/nyregion/trump-e-jean-carroll-defamation-assault.html
+
+**Driver Is Reported Dead Days After Plowing Into World Cup Fans in Mexico**\
+`The episode appears to the most significant violence after wins by the Mexico national team, which has drawn huge crowds onto streets across the country.`\
+https://www.nytimes.com/2026/06/30/world/americas/mexico-driver-died-world-cup-party.html
+
 **U.S. Lifts Restrictions on Anthropic’s Most Powerful A.I. Models**\
 `The move allows Anthropic to bring its most powerful technologies back online, de-escalating a feud with the Trump administration.`\
 https://www.nytimes.com/2026/06/30/technology/us-lifts-restrictions-anthropic.html

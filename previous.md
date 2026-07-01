@@ -1,3 +1,11 @@
+**E. Jean Carroll Asks Judge to Order Trump to Pay $5 Million Jury Award**\
+`The writer’s request came after the Supreme Court declined to review a civil case in which President Trump was found liable for sexually abusing and defaming her.`\
+https://www.nytimes.com/2026/06/30/nyregion/trump-e-jean-carroll-defamation-assault.html
+
+**Driver Is Reported Dead Days After Plowing Into World Cup Fans in Mexico**\
+`The episode appears to the most significant violence after wins by the Mexico national team, which has drawn huge crowds onto streets across the country.`\
+https://www.nytimes.com/2026/06/30/world/americas/mexico-driver-died-world-cup-party.html
+
 **U.S. Lifts Restrictions on Anthropic’s Most Powerful A.I. Models**\
 `The move allows Anthropic to bring its most powerful technologies back online, de-escalating a feud with the Trump administration.`\
 https://www.nytimes.com/2026/06/30/technology/us-lifts-restrictions-anthropic.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/06/30/us/politics/collins-platner-maine-senate-poll
 **Restaurant Review: Kaiseki in the East Village**\
 `The stripped down location of the chef Hiroki Odo’s restaurant takes an à la carte approach to the Japanese meal.`\
 https://www.nytimes.com/2026/06/30/dining/brief-restaurant-review-odo-east-village.html
-
-**Mapa: un terremoto de magnitud 6,0 se registra en la costa de México**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/06/30/espanol/mexico-sismo-temblor.html
-
-**Map: 6.0-Magnitude Earthquake Shakes Off Mexico's Coast**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/06/30/world/quake-tracker-gulf-of-california.html
 
