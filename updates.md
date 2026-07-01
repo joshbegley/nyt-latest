@@ -1,3 +1,7 @@
+**A Separation of Powers**\
+`We look at the Supreme Court rulings on birthright citizenship and transgender athletes.`\
+https://www.nytimes.com/2026/07/01/briefing/supreme-court-birthright-citizenship-transgender-athletes.html
+
 **England’s World Cup Hopes, and USMNT-Bosnia Preview**\
 `The “Three Lions” take on the Democratic Republic of Congo in the Round of 32.`\
 https://www.nytimes.com/2026/07/01/podcasts/england-congo-world-cup-usmnt-bosnia.html

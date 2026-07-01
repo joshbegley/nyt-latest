@@ -1,3 +1,7 @@
+**A Separation of Powers**\
+`We look at the Supreme Court rulings on birthright citizenship and transgender athletes.`\
+https://www.nytimes.com/2026/07/01/briefing/supreme-court-birthright-citizenship-transgender-athletes.html
+
 **England’s World Cup Hopes, and USMNT-Bosnia Preview**\
 `The “Three Lions” take on the Democratic Republic of Congo in the Round of 32.`\
 https://www.nytimes.com/2026/07/01/podcasts/england-congo-world-cup-usmnt-bosnia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/world/canada/quebec-trees-rights-canada-terra
 **Sandra Boynton’s Best Books: A Guide**\
 `An introduction to a living genius of children’s literature for the adults who will inevitably read her on repeat.`\
 https://www.nytimes.com/2026/07/01/books/best-sandra-boynton-books.html
-
-**The South Korean Mine at the Center of America’s Tungsten Push**\
-`Deep beneath a South Korean mountain, workers are reviving a mine that could challenge China’s grip on a metal vital to weapons, chips and industry.`\
-https://www.nytimes.com/2026/07/01/business/tungsten-mine-south-korea.html
 
