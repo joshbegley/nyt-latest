@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Food history. LeBron James. And an obstacle course.`\
+https://www.nytimes.com/2026/07/01/briefing/today-in-short.html
+
 **N.Y.P.D. Memo Outlines Taylor Swift Wedding Events at the Garden**\
 `Law enforcement officials in the city are preparing to monitor the pop star’s two-day event at Madison Square Garden, and several streets in the area will be closed.`\
 https://www.nytimes.com/2026/07/01/nyregion/taylor-swift-wedding-police-roads.html
