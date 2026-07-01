@@ -1,3 +1,7 @@
+**This Cell Feeds, Grows and Reproduces. And It’s Manmade.**\
+`From chemical building blocks, scientists have created synthetic cells that have most of the hallmarks of life.`\
+https://www.nytimes.com/interactive/2026/07/01/science/spudcells-synthetic-cell.html
+
 **Anthropic Won a Reprieve From the Trump Administration. Is It Enough?**\
 `The company can restore access to its most powerful A.I. models. But Silicon Valley remains worried about the Trump Administration’s heavier hand on regulation.`\
 https://www.nytimes.com/2026/07/01/business/dealbook/anthropic-fable-mythos-trump.html
