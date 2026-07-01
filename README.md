@@ -1,5 +1,9 @@
+**A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
+`Jenifer Chatfield, a top official at the Interior Department, faces scrutiny from ethics experts for actions that could help her family’s business.`\
+https://www.nytimes.com/2026/07/01/climate/interior-department-ethics-chatfield.html
+
 **Two People Climb Needle of Empire State Building**\
-`After making the climb, the pair unfurled a large black flag and apparently posted to Instagram.`\
+`After making the climb, the pair unfurled a large black flag and apparently posted to Instagram. Video appears to show one person proposing to the other.`\
 https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
 
 **Man Killed by Crocodile at a Popular Resort City in Mexico**\
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/07/01/arts/dance/montpellier-dance-festival-la-hord
 https://www.nytimes.com/2026/07/01/world/europe/greece-bombings-thessaloniki.html
 
 **Michael Byrne, British Stage Actor, Dies at 86**\
-`He had a long career on the boards, and several small roles in big movies, including “Force 10 From Navarone” and “Indiana Jones and the Last Crusade.”`\
+`He had a long career in theater, and several small roles in big movies, including “Force 10 From Navarone” and “Indiana Jones and the Last Crusade.”`\
 https://www.nytimes.com/2026/07/01/obituaries/michael-byrne-dead.html
 
 **Ex-C.I.A. Chief Asks for Order Forcing Trump Administration to Preserve Records**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/podcasts/england-congo-world-cup-usmnt-bosnia
 **The Supreme Court’s Momentous Term, and How Trump Has Made at Least $2.2 Billion in Office**\
 `Plus, zombies at the mall.`\
 https://www.nytimes.com/2026/07/01/podcasts/the-headlines/supreme-court-trump.html
-
-**Why Americans Will Get Less Help Paying for College**\
-`With new limits on federal lending, many students will need private loans and some could be shut out.`\
-https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
 

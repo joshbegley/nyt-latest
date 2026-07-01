@@ -1,3 +1,7 @@
+**Two People Climb Needle of Empire State Building**\
+`After making the climb, the pair unfurled a large black flag and apparently posted to Instagram.`\
+https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
+
 **Man Killed by Crocodile at a Popular Resort City in Mexico**\
 `The government described the rare fatal attack in Puerto Vallarta as “deeply unfortunate, unusual and isolated.”`\
 https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html

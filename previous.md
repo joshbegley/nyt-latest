@@ -1,3 +1,7 @@
+**Two People Climb Needle of Empire State Building**\
+`After making the climb, the pair unfurled a large black flag and apparently posted to Instagram.`\
+https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
+
 **Man Killed by Crocodile at a Popular Resort City in Mexico**\
 `The government described the rare fatal attack in Puerto Vallarta as “deeply unfortunate, unusual and isolated.”`\
 https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/podcasts/the-headlines/supreme-court-trump.ht
 **Why Americans Will Get Less Help Paying for College**\
 `With new limits on federal lending, many students will need private loans and some could be shut out.`\
 https://www.nytimes.com/2026/07/01/podcasts/the-daily/federal-college-loans-cap.html
-
-**NYT Connections Answers for July 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 2, 2026.`\
-https://www.nytimes.com/2026/07/01/crosswords/connections-companion-1117.html
 
