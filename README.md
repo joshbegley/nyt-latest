@@ -1,8 +1,12 @@
+**Ruling on Trans Athletes Gave the G.O.P. a Win. Most Democrats Looked the Other Way.**\
+`While Republicans celebrated the ruling, many Democrats stayed quiet on an issue that had proved divisive in the last election.`\
+https://www.nytimes.com/2026/07/01/us/politics/supreme-court-trans-athletes-midterms.html
+
 **Trump Administration Delivers Lucrative Win for Its Kratom Allies**\
 `In moving to ban a potent synthetic version of kratom, the president’s team paved the way for more sales for makers of rival botanic supplements, who had aggressively lobbied for the change.`\
 https://www.nytimes.com/2026/07/01/us/kratom-trump-administration.html
 
-**Trump on the Range: A Presidential Visit to the Roosevelt Library in North Dakota**\
+**Trump Finds His Presidential Alter Ego, the ‘He-Man’ Teddy Roosevelt**\
 `President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, who he called “a great he-man.”`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-north-dakota-roosevelt-library.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/us/politics/trump-washington-dc-construction.
 **As Earthquake Death Toll Mounts, Venezuela Grapples With Recovering and Burying Bodies**\
 `As the death toll mounts, thousands of bodies have overwhelmed Venezuela’s forensic system, turning a seaport into a temporary morgue.`\
 https://www.nytimes.com/2026/07/01/world/americas/venezuela-earthquakes-bodies-morgues.html
-
-**Charles H. Townsend Dies at 82; Led Condé Nast During Digital Transition**\
-`By 2016, when he retired from the parent company of glossy magazines like Vogue, Vanity Fair and The New Yorker, print was seriously struggling.`\
-https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
 

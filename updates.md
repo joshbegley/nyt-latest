@@ -1,3 +1,7 @@
+**Trump Administration Delivers Lucrative Win for Its Kratom Allies**\
+`In moving to ban a potent synthetic version of kratom, the president’s team paved the way for more sales for makers of rival botanic supplements, who had aggressively lobbied for the change.`\
+https://www.nytimes.com/2026/07/01/us/kratom-trump-administration.html
+
 **Trump on the Range: A Presidential Visit to the Roosevelt Library in North Dakota**\
 `President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, who he called “a great he-man.”`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-north-dakota-roosevelt-library.html
