@@ -1,3 +1,11 @@
+**Who Is Ahead in Vermont's At-Large Congressional District?**\
+`Track the latest polls in Vermont's At-Large Congressional District.`\
+https://www.nytimes.com/interactive/polls/vermont-us-house-at-large-polls-2026.html
+
+**Victor Willis, Village People Frontman, Dies at 74**\
+`Often performing dressed as a helmeted police officer, he co-wrote the group’s biggest hits including “Y.M.C.A.” and “Macho Man.”`\
+https://www.nytimes.com/2026/07/01/arts/music/victor-willis-dead.html
+
 **Who Is Ahead in the Vermont Governor's Race? Latest 2026 Election Polls**\
 `Track the latest polls in the Vermont governor election.`\
 https://www.nytimes.com/interactive/polls/vermont-governor-election-polls-2026.html
