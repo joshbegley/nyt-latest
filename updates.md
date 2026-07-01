@@ -1,3 +1,7 @@
+**Chris Brown’s Former Housekeeper Awarded $13 Million in Dog Mauling**\
+`The housekeeper said in her lawsuit that a dog weighing more than 200 pounds had “savagely” bitten her at the singer’s California home in 2020.`\
+https://www.nytimes.com/2026/07/01/arts/music/chris-brown-dog-mauling-verdict.html
+
 **Ukraine War Crosses a Grim Milestone**\
 `Also, scientists create a cell with the hallmarks of life. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/07/01/briefing/ukraine-war-casualties-air-force-one.html
