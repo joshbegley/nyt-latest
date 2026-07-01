@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011004014/Biz-Wheels-Carclubs.html
+
 **U.S. and Iran Set to Hold Indirect Talks After Trading Attacks: What to Know**\
 `With negotiators in Qatar, oil prices are easing as shipowners send more vessels through the Strait of Hormuz, unblocking energy flows.`\
 https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/technology/personaltech/yoto-music-box-screen
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000010985958/xxtechfix-YOTO-video-916.html
-
-**America, Onscreen**\
-`Ten writers on the films that get at the hopes, dreams, heartbreak and hilarity of the U.S.A. as it turns 250.`\
-https://www.nytimes.com/2026/07/01/movies/what-is-the-definitive-movie-about-america.html
 
