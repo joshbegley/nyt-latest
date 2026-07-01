@@ -1,3 +1,23 @@
+**Charles H. Townsend Dies at 82; Led Condé Nast During Digital Transition**\
+`By 2016, when he retired from the parent company of glossy magazines like Vogue, Vanity Fair and The New Yorker, print was seriously struggling.`\
+https://www.nytimes.com/2026/07/01/business/media/charles-h-townsend-dead.html
+
+**Two People Climb The Empire State Building’s Spire and Display Flag**\
+`Two individuals climb to the Empire State Building’s spire on Wednesday and displayed a black flag with a quote on it.`\
+https://www.nytimes.com/video/nyregion/100000011004761/nyc-metro-empire-state-building-flag.html
+
+**A Wildlife Regulator’s Family Business Had a Permit to Renew. She Stepped In.**\
+`Jenifer Chatfield, a top official at the Interior Department, faces scrutiny from ethics experts for actions that could help her family’s business.`\
+https://www.nytimes.com/2026/07/01/climate/interior-department-ethics-chatfield.html
+
+**Two People Climb Needle of Empire State Building**\
+`After making the climb, the pair unfurled a large black flag and apparently posted to Instagram. Video appears to show one person proposing to the other.`\
+https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
+
+**Michael Byrne, British Stage Actor, Dies at 86**\
+`He had a long career in theater, and several small roles in big movies, including “Force 10 From Navarone” and “Indiana Jones and the Last Crusade.”`\
+https://www.nytimes.com/2026/07/01/obituaries/michael-byrne-dead.html
+
 **Two People Climb Needle of Empire State Building**\
 `After making the climb, the pair unfurled a large black flag and apparently posted to Instagram.`\
 https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
