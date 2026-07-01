@@ -1,3 +1,7 @@
+**Trump Administration Sues Over New Gun Bans in Virginia and California**\
+`The Justice Department is challenging a ban on semiautomatic assault rifles in Virginia and a ban on Glocks and Glock-style pistols in California, arguing they are unlawful under the Second Amendment.`\
+https://www.nytimes.com/2026/07/01/us/politics/justice-trump-suit-gun-ban-virginia-california.html
+
 **El Observatorio Vera C. Rubin empieza a explorar nuestro cosmos**\
 `Con la información recopilada se creará un registro nítido de cómo los objetos se desplazan, pulsan y explotan en nuestro sistema solar, la Vía Láctea y más allá.`\
 https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/video-imagenes-universo-espacio-chile-observatorio.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011003842/melat-kiros-democrat-s
 **As Earthquake Death Toll Rises, a Venezuelan Port Becomes a Morgue**\
 `The scale of last week’s twin earthquakes began to emerge in La Guaira, Venezuela, where bodies piled up at an improvised morgue in the city’s sun-scorched port.`\
 https://www.nytimes.com/video/world/americas/100000011003697/venezuela-earthquake-la-guaira-port-bodies.html
-
-**Conservatives Don’t Have the Solution for Falling Marriage Rates**\
-`It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
-https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
 
