@@ -1,3 +1,27 @@
+**How to Dress for a Heat Wave**\
+`Advice for choosing the best fabrics and styles to help cool you down extreme heat.`\
+https://www.nytimes.com/2026/07/01/style/heat-wave-clothing-materials-stay-cool.html
+
+**Sour Cream and Onion Hot Dogs**\
+`Put chips on your hot dog! And other delicious things too. Ali Slagle, a Cooking contributor, is here to up your hot dog game.`\
+https://www.nytimes.com/video/dining/100000011004263/sour-cream-and-onion-hot-dogs.html
+
+**8 Essential Songs Produced by Tay Keith**\
+`The Memphis-born producer, who died in June at 29, brought deceptively soulful moodiness to some of the biggest rap hits of the past decade.`\
+https://www.nytimes.com/2026/07/01/arts/music/tay-keith-songs.html
+
+**The Divorce Crusader**\
+`Part activist, part influencer, Adina Sash will do anything to rescue Orthodox women she sees as trapped in their marriages.`\
+https://www.nytimes.com/2026/07/01/style/adina-sash-flatbush-girl-jewish-divorce.html
+
+**Pineapple Hot Dogs**\
+`Hawaiian pizza fans, listen up: Put pineapple on your hot dog, too! Ali Slagle, a Cooking contributor, shows you how.`\
+https://www.nytimes.com/video/dining/100000011004161/pineapple-hot-dogs.html
+
+**What Would Taylor Swift and Travis Kelce’s Prenuptial Agreement Look Like?**\
+`What would a prenuptial agreement between one of the world’s biggest pop stars and a three-time Super Bowl champion look like? Legal experts weigh in.`\
+https://www.nytimes.com/2026/07/01/business/taylor-swift-travis-kelce-prenup.html
+
 **Today, In Short**\
 `Food history. LeBron James. And an obstacle course.`\
 https://www.nytimes.com/2026/07/01/briefing/today-in-short.html
