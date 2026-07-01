@@ -1,3 +1,11 @@
+**Trump Suggestion of a Syrian Crackdown on Hezbollah Confounds Many in Mideast**\
+`During peace talks, President Trump repeatedly floated the idea that Syria could help subdue Hezbollah in Lebanon. The proposal revived bitter memories.`\
+https://www.nytimes.com/2026/07/01/world/middleeast/syria-trump-hezbollah-lebanon.html
+
+**Victor Willis, Village People Frontman, Dies at 74**\
+`Willis, who often performed dressed as a helmeted police officer, co-wrote the group’s biggest hits including “Y.M.C.A” and “Macho Man.”`\
+https://www.nytimes.com/2026/07/01/obituaries/victor-willis-village-people-dead.html
+
 **Why Are So Many Cubans Migrating to Guyana?**\
 `Guyana, a tiny, oil-rich, English-speaking South American country, has become a destination for Cubans fleeing desperate conditions. We traveled to the capital, Georgetown, to meet with migrant families and learn more about the lives they left behind.`\
 https://www.nytimes.com/video/world/americas/100000010968903/cuba-guyana-immigrants.html
