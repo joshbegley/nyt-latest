@@ -1,3 +1,23 @@
+**El Observatorio Vera C. Rubin empieza a explorar nuestro cosmos**\
+`Con la información recopilada se creará un registro nítido de cómo los objetos se desplazan, pulsan y explotan en nuestro sistema solar, la Vía Láctea y más allá.`\
+https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/video-imagenes-universo-espacio-chile-observatorio.html
+
+**Adults Arrested After 16 Children Are Found in Squalor in Rural Ohio**\
+`The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said.`\
+https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
+
+**Un turista muere tras ser atacado por un cocodrilo en Puerto Vallarta**\
+`El gobierno de Jalisco, el estado mexicano donde se encuentra esta ciudad turística, dijo que se trataba de un ataque “de carácter inusual y aislado”.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/muere-turista-cocodrilo-mexico-puerto-vallarta.html
+
+**Trump Accounts to Receive $250 Million Donation From Chip Maker Micron, Trump Says**\
+`The president said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration for children.`\
+https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
+
+**Trump Takes First Flight on New Air Force One From Qatar**\
+`The Boeing 747-8, a gift worth $200 million from the Qatari royal family, has attracted considerable scrutiny over whether a foreign government was trying to influence the president.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-air-force-one-first-flight.html
+
 **Rosemary M. Collyer, Judge in F.B.I. and Guantánamo Bay Cases, Dies at 80**\
 `From her seat on the Foreign Intelligence Surveillance Court, she criticized the way the F.B.I. had sought to wiretap an aide to President Donald Trump.`\
 https://www.nytimes.com/2026/07/01/us/rosemary-m-collyer-dead.html

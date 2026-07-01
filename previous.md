@@ -1,3 +1,15 @@
+**El Observatorio Vera C. Rubin empieza a explorar nuestro cosmos**\
+`Con la información recopilada se creará un registro nítido de cómo los objetos se desplazan, pulsan y explotan en nuestro sistema solar, la Vía Láctea y más allá.`\
+https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/video-imagenes-universo-espacio-chile-observatorio.html
+
+**Adults Arrested After 16 Children Are Found in Squalor in Rural Ohio**\
+`The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said.`\
+https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
+
+**Un turista muere tras ser atacado por un cocodrilo en Puerto Vallarta**\
+`El gobierno de Jalisco, el estado mexicano donde se encuentra esta ciudad turística, dijo que se trataba de un ataque “de carácter inusual y aislado”.`\
+https://www.nytimes.com/es/2026/07/01/espanol/america-latina/muere-turista-cocodrilo-mexico-puerto-vallarta.html
+
 **Rosemary M. Collyer, Judge in F.B.I. and Guantánamo Bay Cases, Dies at 80**\
 `From her seat on the Foreign Intelligence Surveillance Court, she criticized the way the F.B.I. had sought to wiretap an aide to President Donald Trump.`\
 https://www.nytimes.com/2026/07/01/us/rosemary-m-collyer-dead.html
@@ -43,7 +55,7 @@ https://www.nytimes.com/2026/07/01/nyregion/empire-state-building-climbers.html
 https://www.nytimes.com/2026/07/01/travel/puerto-vallarta-mexico-crocodile-death.html
 
 **Trump Accounts to Receive $250 Million Donation From Chip Maker Micron, Trump Says**\
-`President Trump said that the U.S. chip maker would make a significant donation to a new type of investment account for children created by the administration.`\
+`The president said the U.S. chip maker would make a significant donation to a new type of investment account created by the administration for children.`\
 https://www.nytimes.com/2026/07/01/business/economy/micron-250-million-dollars-trump-accounts.html
 
 **First Europe, Then North America: Welcome to Heat Dome Summer.**\
@@ -82,7 +94,7 @@ https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremoto
 `Russia has borne the heavier toll, with 1.4 million troops killed or wounded since it invaded in February 2022.`\
 https://www.nytimes.com/2026/07/01/us/politics/russia-ukraine-troop-casualties.html
 
-**Trump Takes First Flight on New Air Force One**\
+**Trump Takes First Flight on New Air Force One From Qatar**\
 `The Boeing 747-8, a gift worth $200 million from the Qatari royal family, has attracted considerable scrutiny over whether a foreign government was trying to influence the president.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-air-force-one-first-flight.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/video/world/americas/100000011003697/venezuela-earthquak
 **Conservatives Don’t Have the Solution for Falling Marriage Rates**\
 `It makes absolutely no sense to create a definition of marriage that excludes the desires and ideals of a substantial majority of Americans.`\
 https://www.nytimes.com/2026/07/01/opinion/conservatives-marriage-babies.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011004014/Biz-Wheels-Carclubs.html
-
-**U.S. and Iran Set to Hold Indirect Talks After Trading Attacks: What to Know**\
-`Negotiators are in Qatar for indirect talks and ship traffic has risen in the Strait of Hormuz, even as Tehran and Washington remain far apart on key issues. Here’s what to know.`\
-https://www.nytimes.com/2026/07/01/world/middleeast/us-iran-diplomacy-qatar.html
-
-**Where Trump Won and Lost at the Supreme Court**\
-`Abbie VanSickle, a Supreme Court correspondent for The New York Times, takes stock of the court’s term this year. Opinions largely broke for conservatives, but the court pushed back on some of President Trump’s boldest ideas.`\
-https://www.nytimes.com/video/us/100000011001507/where-trump-won-and-lost-at-the-supreme-court.html
 
