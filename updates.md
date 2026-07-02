@@ -1,3 +1,11 @@
+**Bomb Explodes at Damascus Cafe, Killing at Least 6**\
+`The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent instability as its leaders try to chart a path out of years of dictatorship and war.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
+
+**Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
 **All New York Suffers in a Heat Wave. It’s Worse in Jamaica, Queens.**\
 `“Heat-vulnerable” parts of the city have few trees, little shade and limited access to air-conditioning. And the risk of death is also higher.`\
 https://www.nytimes.com/2026/07/02/nyregion/heat-wave-nyc-jamaica-queens.html

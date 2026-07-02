@@ -90,8 +90,8 @@ https://www.nytimes.com/2026/07/02/briefing/today-in-short.html
 `On Thursday, Blue Owl reported another quarter of significant investor withdrawal requests from some of its private credit funds.`\
 https://www.nytimes.com/2026/07/02/business/private-credit-withdrawals.html
 
-**Bomb Explodes at Damascus Cafe, Killing at Least 4**\
-`The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent insecurity.`\
+**Bomb Explodes at Damascus Cafe, Killing at Least 6**\
+`The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent instability as its leaders try to chart a path out of years of dictatorship and war.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
 
 **Herbert Lust, Collector Who Befriended Giacometti, Dies at 99**\
@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia
 https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
 
 **Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
-`Temperatures in parts of the Northeast reached triple digits by midday as the region slogged through a hot spell that has already scorched the Midwest.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 
