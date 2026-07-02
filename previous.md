@@ -2,7 +2,7 @@
 `A science-fiction thriller with political overtones and a new version of “Little House on the Prairie” are among this month’s most promising titles.`\
 https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
 
-**Olympian Is Indicted After Arrest at Washington’s Reflecting Pool**\
+**David Hearn, Olympian Canoeist, Is Indicted After Arrest at Trump’s Reflecting Pool**\
 `David Hearn, a former canoeist, is accused of vandalizing the algae-challenged pool, which President Trump has said he would repair and beautify with fresh sealant. But the algae returned and the paint peeled.`\
 https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.html
 

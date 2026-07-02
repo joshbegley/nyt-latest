@@ -1,3 +1,11 @@
+**Three Ways Trump Is Strangling Economic Growth**\
+`Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
+https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
+
+**Why Am I Dreading Taylor Swift’s Wedding?**\
+`Are you not entertained?`\
+https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
+
 **The Best Movies and TV Shows Coming to Netflix in July**\
 `A science-fiction thriller with political overtones and a new version of “Little House on the Prairie” are among this month’s most promising titles.`\
 https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-do
 **An Aerial View of Disaster at a Venezuela Housing Project**\
 `What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
 https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
-
-**Tesla Sales Surge 25% on Recovery in Europe**\
-`Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
-https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
-
-**Searching for George Washington**\
-`Portfolio of George Washington Portraits`\
-https://static01.nyt.com/slideshow/2026/07/02/opinion/searching-for-george-washington.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
