@@ -1,3 +1,7 @@
+**Workers Endure Sweltering Conditions as Heat Wave Intensifies**\
+`Some workers dealt with sweltering conditions as others found business opportunities amid a heat wave that was intensifying in the Northeast.`\
+https://www.nytimes.com/video/us/100000011006139/extreme-heat-workers.html
+
 **Word of the Day: penury**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/02/learning/word-of-the-day-penury.html
