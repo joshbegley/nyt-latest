@@ -1,3 +1,19 @@
+**How New Yorkers Dressed for the Heat Wave**\
+`The streets became a backdrop for crop tops, World Cup gear and at least one aloha shirt.`\
+https://www.nytimes.com/2026/07/02/style/heat-wave-fashion-new-york.html
+
+**Court Blocks Firings of Intelligence Officers Who Worked on Diversity**\
+`The C.I.A. and Office of the Director of National Intelligence had tried to fire 19 officers at the beginning of the second Trump administration.`\
+https://www.nytimes.com/2026/07/02/us/politics/cia-odni-intelligence-diversity-court.html
+
+**See How Europe’s Heat Waves Melted the Alps’ Glaciers**\
+`The snowfall from last winter disappeared a month sooner than usual, after two early hot spells. Huge volumes of exposed ice are now starting to vanish.`\
+https://www.nytimes.com/2026/07/02/climate/europe-heat-waves-melting-glaciers.html
+
+**Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
+`Temperatures in parts of the Northeast reached triple digits by midday as the region slogged through a hot spell that has already scorched the Midwest.`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
 **Did You Recently Buy a Home in New York? We Want to Hear Your Story.**\
 `From the five boroughs up to the Hudson Valley and the Finger Lakes, we’re looking for home buyers to feature in our weekly column, The Hunt.`\
 https://www.nytimes.com/2026/07/02/realestate/the-hunt-new-york-stories.html

@@ -1,3 +1,7 @@
+**All New York Suffers in a Heat Wave. It’s Worse in Jamaica, Queens.**\
+`“Heat-vulnerable” parts of the city have few trees, little shade and limited access to air-conditioning. And the risk of death is also higher.`\
+https://www.nytimes.com/2026/07/02/nyregion/heat-wave-nyc-jamaica-queens.html
+
 **How New Yorkers Dressed for the Heat Wave**\
 `The streets became a backdrop for crop tops, World Cup gear and at least one aloha shirt.`\
 https://www.nytimes.com/2026/07/02/style/heat-wave-fashion-new-york.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia
 **USMNT Advance, at a Cost**\
 `The U.S. dominate Bosnia to reach the last 16 but will face Belgium without talismanic striker Folarin Balogun.`\
 https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
-
-**As Far Right Rises, German Leaders Look to Jump-Start the Economy**\
-`An agreement between Chancellor Friedrich Merz and his center-left partners bets on politically painful compromises in hopes of holding off hard-line rivals.`\
-https://www.nytimes.com/2026/07/02/world/europe/germany-overhaul-merz-economy-pensions.html
 
 **Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
 `Temperatures in parts of the Northeast reached triple digits by midday as the region slogged through a hot spell that has already scorched the Midwest.`\

@@ -1,3 +1,15 @@
+**How New Yorkers Dressed for the Heat Wave**\
+`The streets became a backdrop for crop tops, World Cup gear and at least one aloha shirt.`\
+https://www.nytimes.com/2026/07/02/style/heat-wave-fashion-new-york.html
+
+**Court Blocks Firings of Intelligence Officers Who Worked on Diversity**\
+`The C.I.A. and Office of the Director of National Intelligence had tried to fire 19 officers at the beginning of the second Trump administration.`\
+https://www.nytimes.com/2026/07/02/us/politics/cia-odni-intelligence-diversity-court.html
+
+**See How Europe’s Heat Waves Melted the Alps’ Glaciers**\
+`The snowfall from last winter disappeared a month sooner than usual, after two early hot spells. Huge volumes of exposed ice are now starting to vanish.`\
+https://www.nytimes.com/2026/07/02/climate/europe-heat-waves-melting-glaciers.html
+
 **Did You Recently Buy a Home in New York? We Want to Hear Your Story.**\
 `From the five boroughs up to the Hudson Valley and the Finger Lakes, we’re looking for home buyers to feature in our weekly column, The Hunt.`\
 https://www.nytimes.com/2026/07/02/realestate/the-hunt-new-york-stories.html
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
 `An agreement between Chancellor Friedrich Merz and his center-left partners bets on politically painful compromises in hopes of holding off hard-line rivals.`\
 https://www.nytimes.com/2026/07/02/world/europe/germany-overhaul-merz-economy-pensions.html
 
-**California Bans ‘Sell By’ Labels, Hoping to Cut Food Waste**\
-`The law standardizes language around expiration dates, aiming to minimize confusion about when food is safe to eat. More than one-third of food sold nationwide is wasted, the U.S.D.A. says.`\
-https://www.nytimes.com/2026/07/02/us/california-food-labels-sell-by.html
-
-**The Fallout of Massive Earthquakes for Venezuela — and the U.S.**\
-`Venezuelans describe the disaster, and our reporter explains the political aftermath.`\
-https://www.nytimes.com/2026/07/02/podcasts/the-daily/earthquake-venezuela.html
-
-**A Quiet Surge in ICE Arrests, and Trump’s First Flight on Plane Given by Qatar**\
-`Plus, the fight over “Y.M.C.A.”`\
-https://www.nytimes.com/2026/07/02/podcasts/the-headlines/ice-arrests-trump-plane.html
-
-**NYT Connections Answers for July 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
-https://www.nytimes.com/2026/07/02/crosswords/connections-companion-1118.html
+**Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
+`Temperatures in parts of the Northeast reached triple digits by midday as the region slogged through a hot spell that has already scorched the Midwest.`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 
