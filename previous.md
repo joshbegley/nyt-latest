@@ -38,7 +38,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-bioche
 `The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
 
-**Live Updates: U.S. Hiring Continues at a Steady Pace**\
+**Live Updates: U.S. Hiring Continues at a Steady but Slower Pace**\
 `The economy added 57,000 jobs in June, the unemployment rate ticked down to 4.2 percent, and wage gains were solid.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
