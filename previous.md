@@ -1,3 +1,7 @@
+**What America’s 250th Means to Mamdani**\
+`Mayor Zohran Mamdani has not actively pushed New York City’s role in the nation’s anniversary celebrations, in part because of the complexities he sees in the country’s past and present.`\
+https://www.nytimes.com/2026/07/01/nyregion/mamdani-usa-250-birthday-nyc.html
+
 **Immigrant Arrests Surge to 10,000 in 5 Days as ICE Clamps Down**\
 `The agency has doubled its daily arrest numbers without the fanfare of last year’s large urban operations, sowing fear in immigrant communities.`\
 https://www.nytimes.com/2026/07/01/us/politics/ice-immigrant-arrests-surge.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/video-imagene
 **Adults Arrested After 16 Children Are Found in Squalor in Rural Ohio**\
 `The children were hospitalized and two had to be airlifted to trauma centers. “One of the worst environments that I’ve seen,” the state’s attorney general said. The adults pleaded not guilty.`\
 https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
-
-**Un turista muere tras ser atacado por un cocodrilo en Puerto Vallarta**\
-`El gobierno de Jalisco, el estado mexicano donde se encuentra esta ciudad turística, dijo que se trataba de un ataque “de carácter inusual y aislado”.`\
-https://www.nytimes.com/es/2026/07/01/espanol/america-latina/muere-turista-cocodrilo-mexico-puerto-vallarta.html
 

@@ -1,3 +1,7 @@
+**What America’s 250th Means to Mamdani**\
+`Mayor Zohran Mamdani has not actively pushed New York City’s role in the nation’s anniversary celebrations, in part because of the complexities he sees in the country’s past and present.`\
+https://www.nytimes.com/2026/07/01/nyregion/mamdani-usa-250-birthday-nyc.html
+
 **Immigrant Arrests Surge to 10,000 in 5 Days as ICE Clamps Down**\
 `The agency has doubled its daily arrest numbers without the fanfare of last year’s large urban operations, sowing fear in immigrant communities.`\
 https://www.nytimes.com/2026/07/01/us/politics/ice-immigrant-arrests-surge.html
