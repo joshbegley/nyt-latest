@@ -1,3 +1,11 @@
+**Live Updates: U.S. Hiring Continues at a Steady Pace**\
+`The economy added 57,000 jobs in June, the unemployment rate ticked down to 4.2 percent, and wage gains were solid.`\
+https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
+**A solid job market underpins Warsh’s inflation pledge.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/02/business/economy/a-solid-jobs-market-underpins-warshs-inflation-pledge.html
+
 **Searching for George Washington**\
 `Portfolio of George Washington Portraits`\
 https://static01.nyt.com/slideshow/2026/07/02/opinion/searching-for-george-washington.html

@@ -35,8 +35,12 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-bioche
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
 
 **Live Updates: U.S. Hiring Continues at a Steady Pace**\
-`The economy added 57,000 jobs in June and the unemployment rate ticked down to 4.2 percent, according to a report released on Thursday.`\
+`The economy added 57,000 jobs in June, the unemployment rate ticked down to 4.2 percent, and wage gains were solid.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
+**A solid job market underpins Warsh’s inflation pledge.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/02/business/economy/a-solid-jobs-market-underpins-warshs-inflation-pledge.html
 
 **China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
 `City authorities said the pilot had suffered from insomnia and anxiety and had expressed a desire to end his life.`\

@@ -42,8 +42,8 @@ https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 `(No description)`\
 https://www.nytimes.com/2026/07/02/business/economy/a-solid-jobs-market-underpins-warshs-inflation-pledge.html
 
-**China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
-`City authorities said the pilot had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
+**China Says Pilot Who Flew Into Skyscraper Had Thoughts of Death**\
+`Beijing authorities said the pilot who hit a building in the city had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
 https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.html
 
 **An American Mosaic**\
