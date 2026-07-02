@@ -1,3 +1,15 @@
+**Tesla Driver Using Autopilot in Texas Crash Is Charged With Manslaughter**\
+`A front-door video camera of the crash, which killed a woman inside her home, showed the Tesla plowing into a house through its driveway.`\
+https://www.nytimes.com/2026/07/02/us/tesla-autopilot-crash-texas-manslaughter.html
+
+**National Parks Can Continue to Remove Signs That Trump Calls ‘Negative’**\
+`The decision was a win for the Trump administration as it pushes to remove material that the president has called inappropriate or “woke.”`\
+https://www.nytimes.com/2026/07/02/climate/court-national-parks-signs-trump.html
+
+**Iran Prepares to Bury Supreme Leader**\
+`Millions of people are expected at ceremonies in Iran and Iraq to mourn the death of Ayatollah Ali Khamenei months after he was killed in U.S.-Israeli strikes.`\
+https://www.nytimes.com/video/world/middleeast/100000011007509/iran-prepares-to-bury-supreme-leader.html
+
 **What Is the Heat Index? What To Know About the Metric During a Heat Wave**\
 `The metric of how hot the air actually feels has roots in a 1979 journal paper called “The Assessment of Sultriness.”`\
 https://www.nytimes.com/2026/07/02/weather/heat-index-temperature.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/07/02/well/mind/ask-therapist-breakup-avoidant.html
 **‘Caso Leire’: un juez de España investiga a la directora de la Guardia Civil**\
 `El caso contra Mercedes González forma parte de una pesquisa más amplia sobre si los aliados del presidente Sánchez buscaron obstaculizar las investigaciones sobre personas cercanas a él.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/espana-investigacion-guardia-civil.html
-
-**In Tumultuous Term, Chief Justice Roberts Took Charge of Unruly Supreme Court**\
-`The chief justice faced down the president, forged unlikely coalitions and achieved long-sought goals.`\
-https://www.nytimes.com/2026/07/02/us/politics/the-docket-roberts-supreme-court.html
-
-**Taylor Swift and Travis Kelce’s Expected Wedding Draws Mixed Reaction in N.Y.C.**\
-`The expected wedding of the pop star Taylor Swift and the N.F.L. star Travis Kelce at Madison Square Garden drew excitement and annoyance from people near the venue.`\
-https://www.nytimes.com/video/nyregion/100000011006615/taylor-swift-wedding-nyc-reactions.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/07/02/books/review/new-recommended-books.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
