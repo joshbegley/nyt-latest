@@ -1,3 +1,7 @@
+**Robert Kimball, Who Helped Uncover a Trove of Broadway History, Dies at 86**\
+`He excavated a treasure hoard of manuscripts by George Gershwin, Cole Porter, Richard Rodgers and others that were found in a warehouse in Secaucus, N.J.`\
+https://www.nytimes.com/2026/07/02/theater/robert-kimball-dead.html
+
 **Empire State Climbers Charged After ‘Extreme Risk-Taking Behavior’**\
 `Angela Nikolau and Ivan Beerkus, extreme climbers who have illegally scaled buildings around the world, were arrested after getting engaged atop the Manhattan landmark.`\
 https://www.nytimes.com/2026/07/02/nyregion/empire-state-builing-climbers-arraignment.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.htm
 **An American Mosaic**\
 `We explore how people in the U.S. identify their ancestry.`\
 https://www.nytimes.com/2026/07/02/briefing/an-american-mosaic.html
-
-**Ukrainian Charged With Sabotaging Pipelines Between Russia and Germany**\
-`A man identified only as Serhii K. is accused of overseeing an undersea bombing in 2022 that cut off a key source of Russian gas revenues.`\
-https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia-germany.html
 
 **Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
 `(No description)`\
