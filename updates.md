@@ -1,3 +1,15 @@
+**Russia Bombards Ukrainian Capital With Deadly Wave of Attacks**\
+`At least 21 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-attack-on-kyiv.html
+
+**How We’re Covering a Contentious Nation at 250**\
+`History can be a surprisingly newsy beat, according the journalists who are covering the semiquincentennial.`\
+https://www.nytimes.com/2026/07/02/insider/times-coverage-us-250th-birthday.html
+
+**My Avoidant Communication Style Is Ruining My Relationships**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose avoidant communication style is making a breakup more complicated.`\
+https://www.nytimes.com/2026/07/02/well/mind/ask-therapist-breakup-avoidant.html
+
 **‘Caso Leire’: un juez de España investiga a la directora de la Guardia Civil**\
 `El caso contra Mercedes González forma parte de una pesquisa más amplia sobre si los aliados del presidente Sánchez buscaron obstaculizar las investigaciones sobre personas cercanas a él.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/espana-investigacion-guardia-civil.html
