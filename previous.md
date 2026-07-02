@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
 `He gravitated toward the work of artists he knew personally, like Alexander Calder and Robert Indiana, in amassing an unusual, important collection.`\
 https://www.nytimes.com/2026/07/02/arts/design/herbert-c-lust-dead.html
 
-**India’s Modi Deepens Ties With Japan in ‘Uncertain Times’**\
+**India and Japan Expand Defense and Economic Ties**\
 `The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
 https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
 
@@ -102,7 +102,7 @@ https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 `(No description)`\
 https://www.nytimes.com/2026/07/02/business/economy/jobs-report-employment.html
 
-**Labor Market Not a Source of Inflationary Pressure, Latest Report Shows**\
+**Latest Jobs Report Shows Labor Market Is Not a Source of Inflationary Pressure**\
 `The unemployment rate ticked down to 4.2 percent, but average hourly earnings were steady, giving Kevin Warsh, the Federal Reserve chairman, room to focus on fighting inflation.`\
 https://www.nytimes.com/2026/07/02/business/economy/jobs-report-june-fed-interest-rates-warsh.html
 

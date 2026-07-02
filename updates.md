@@ -1,3 +1,11 @@
+**India and Japan Expand Defense and Economic Ties**\
+`The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
+https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
+
+**Latest Jobs Report Shows Labor Market Is Not a Source of Inflationary Pressure**\
+`The unemployment rate ticked down to 4.2 percent, but average hourly earnings were steady, giving Kevin Warsh, the Federal Reserve chairman, room to focus on fighting inflation.`\
+https://www.nytimes.com/2026/07/02/business/economy/jobs-report-june-fed-interest-rates-warsh.html
+
 **Court Investigates Spanish Police Chief, Heaping Pressure on Prime Minister**\
 `The case against Mercedes González is part of a broader examination of whether allies of Prime Minister Pedro Sánchez tried to illegally undermine inquiries into people close to him.`\
 https://www.nytimes.com/2026/07/02/world/europe/spain-police-investigation-sanchez.html
