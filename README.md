@@ -1,3 +1,7 @@
+**How a Nation of Immigrants Traces Its Roots**\
+`Melting pot, tapestry, mosaic, kaleidoscope, salad bowl. Every cliché is true.`\
+https://www.nytimes.com/interactive/2026/07/01/us/america-identity-ancestry-census.html
+
 **For Congo Fans, the Thrill of Victory Was so Close, Until It Wasn’t**\
 `Congo lost 2-1 to England on Wednesday night, after spending most of the game winning.`\
 https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/arts/music/chris-brown-dog-mauling-verdict.ht
 **Trump Administration Sues Over New Gun Bans in Virginia and California**\
 `The Justice Department is challenging a ban on semiautomatic assault rifles in Virginia and a ban on Glocks and Glock-style pistols in California, arguing they are unlawful under the Second Amendment.`\
 https://www.nytimes.com/2026/07/01/us/politics/justice-trump-suit-gun-ban-virginia-california.html
-
-**El Observatorio Vera C. Rubin empieza a explorar nuestro cosmos**\
-`Con la información recopilada se creará un registro nítido de cómo los objetos se desplazan, pulsan y explotan en nuestro sistema solar, la Vía Láctea y más allá.`\
-https://www.nytimes.com/es/2026/07/01/espanol/ciencia-y-tecnologia/video-imagenes-universo-espacio-chile-observatorio.html
 
