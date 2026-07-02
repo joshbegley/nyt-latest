@@ -1,3 +1,11 @@
+**Cuando la tierra se calmó**\
+`Lo que la imagen aérea de un edificio derrumbado nos revela de las secuelas de los terremotos en La Guaira, Venezuela.`\
+https://www.nytimes.com/es/2026/07/02/espanol/america-latina/foto-venezuela-terremotos-drones.html
+
+**What the Supreme Court Has Wrought**\
+`Readers offer their perspectives on the just-completed Supreme Court term. Also: How visiting World Cup fans see America.`\
+https://www.nytimes.com/2026/07/02/opinion/supreme-court-trump.html
+
 **Robert Kimball, Who Helped Uncover a Trove of Broadway History, Dies at 86**\
 `He excavated a treasure hoard of manuscripts by George Gershwin, Cole Porter, Richard Rodgers and others that were found in a warehouse in Secaucus, N.J.`\
 https://www.nytimes.com/2026/07/02/theater/robert-kimball-dead.html

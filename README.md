@@ -1,4 +1,8 @@
-**Cuando la tierra se calmó**\
+**The Pants Debate at Men’s Fashion Weeks**\
+`Pants can be a source of anxiety in male wardrobes. Our men’s fashion reporter, Jacob Gallagher, unpacks the ongoing debate from Men’s Fashion Weeks in Paris and Milan.`\
+https://www.nytimes.com/video/style/100000010955768/the-pants-debate-at-mens-fashion-weeks.html
+
+**El panorama de la devastación en Venezuela**\
 `Lo que la imagen aérea de un edificio derrumbado nos revela de las secuelas de los terremotos en La Guaira, Venezuela.`\
 https://www.nytimes.com/es/2026/07/02/espanol/america-latina/foto-venezuela-terremotos-drones.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 **US Job Market Makes Slower but Steady Gains, June Employment Data Shows**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/2026/07/02/business/economy/jobs-report-employment.html
-
-**Latest Jobs Report Shows Labor Market Is Not a Source of Inflationary Pressure**\
-`The unemployment rate ticked down to 4.2 percent, but average hourly earnings were steady, giving Kevin Warsh, the Federal Reserve chairman, room to focus on fighting inflation.`\
-https://www.nytimes.com/2026/07/02/business/economy/jobs-report-june-fed-interest-rates-warsh.html
 
 **Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
 `(No description)`\
