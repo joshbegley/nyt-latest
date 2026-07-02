@@ -1,3 +1,7 @@
+**How Trump Made ‘Y.M.C.A.’ His Anthem, Despite the Village People and Victor Willis’s Mixed Feelings**\
+`On social media, he said the Village People’s lead singer, Victor Willis, was with him “right from the beginning.” But the president has a more complicated history with the group.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-ymca-anthem-village-people.html
+
 **Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
 `President Volodymyr Zelensky of Ukraine had warned hours earlier that Russia was preparing another “massive strike” on Kyiv.`\
 https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/01/espanol/america-latina/muere-turista-cocod
 **Rosemary M. Collyer, Judge in F.B.I. and Guantánamo Bay Cases, Dies at 80**\
 `From her seat on the Foreign Intelligence Surveillance Court, she criticized the way the F.B.I. had sought to wiretap an aide to President Donald Trump.`\
 https://www.nytimes.com/2026/07/01/us/rosemary-m-collyer-dead.html
-
-**Trump percibió al menos 2 millardos de dólares tras volver a la Casa Blanca**\
-`La publicación de la declaración financiera obligatoria correspondiente a 2025 revela que los activos de la familia Trump, sobre todo los negocios de criptomonedas del presidente, resultaron increíblemente lucrativos.`\
-https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/trump-dolares-declaracion-financiera.html
 

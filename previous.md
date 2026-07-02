@@ -1,4 +1,4 @@
-**Explosions Rock Kyiv**\
+**Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
 `President Volodymyr Zelensky of Ukraine had warned hours earlier that Russia was preparing another “massive strike” on Kyiv.`\
 https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
 
