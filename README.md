@@ -1,3 +1,7 @@
+**Workers Endure Sweltering Conditions as Heat Wave Intensifies**\
+`Some workers dealt with sweltering conditions as others found business opportunities amid a heat wave that was intensifying in the Northeast.`\
+https://www.nytimes.com/video/us/100000011006139/extreme-heat-workers.html
+
 **Word of the Day: penury**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/02/learning/word-of-the-day-penury.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/01/us/america-ancestry-census-data-m
 **U.S.A.I.D. Cuts Killed People. That’s the Truth.**\
 `Musk insists that his demolition of humanitarian aid didn’t cost lives. So I propose he take a trip with me.`\
 https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html
-
-**¿Qué hace Venezuela con sus muertos?**\
-`A medida que aumenta el número de fallecidos, el sistema forense de Venezuela se ha visto desbordado con miles de cuerpos, hasta el punto de que un puerto se ha convertido en una morgue provisional.`\
-https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-muertos-cuerpos.html
 
