@@ -1,3 +1,7 @@
+**The American Death Penalty Turns 50 Today. Here’s How We’re Thinking About It.**\
+`The host of “The Last 12 Weeks” shares insights and stories on capital punishment.`\
+https://www.nytimes.com/2026/07/02/podcasts/serial-death-penalty-50-year-anniversary.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-biochemistry-12781.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/magazine/frictionless-productivity-marketing-
 **How, and Why, We’re Covering Taylor Swift’s (Maybe) Wedding**\
 `About two dozen reporters and editors from several desks are leading The Times’s coverage of the anticipated festivities in Manhattan this week.`\
 https://www.nytimes.com/2026/07/02/insider/taylor-swift-wedding.html
-
-**Potent Art Lets ‘We, the People’ Reflect on America’s Past and Present**\
-`The New York Public Library has filled its top floor with a bold account of contemporary artists coming to terms with the state of our nation.`\
-https://www.nytimes.com/2026/07/02/arts/design/new-york-public-library-250.html
 

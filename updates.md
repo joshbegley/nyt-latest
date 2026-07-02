@@ -1,3 +1,7 @@
+**The American Death Penalty Turns 50 Today. Here’s How We’re Thinking About It.**\
+`The host of “The Last 12 Weeks” shares insights and stories on capital punishment.`\
+https://www.nytimes.com/2026/07/02/podcasts/serial-death-penalty-50-year-anniversary.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-biochemistry-12781.html
