@@ -1,3 +1,7 @@
+**Mamdani Is a Taylor Swift Fan. Here Are His Top 12 Songs.**\
+`Ahead of Taylor Swift’s wedding celebration in Manhattan, Mayor Zohran Mamdani revealed that he is a bigger fan of her music than previously known.`\
+https://www.nytimes.com/2026/07/02/nyregion/mamdani-taylor-swift-songs.html
+
 **Louisiana Attorney General Charged With Bullying New Orleans Officials**\
 `Liz Murrill, a Republican, was indicted on charges of malfeasance and intimidation after sending warning letters to the city’s Democratic leaders over actions they took.`\
 https://www.nytimes.com/2026/07/02/us/louisiana-attorney-general-indicted-new-orleans.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250t
 **The Pants Debate at Men’s Fashion Weeks**\
 `Pants can be a source of anxiety in male wardrobes. Our men’s fashion reporter, Jacob Gallagher, unpacks the ongoing debate from Men’s Fashion Weeks in Paris and Milan.`\
 https://www.nytimes.com/video/style/100000010955768/the-pants-debate-at-mens-fashion-weeks.html
-
-**El panorama de la devastación en Venezuela**\
-`Lo que la imagen aérea de un edificio derrumbado nos revela de las secuelas de los terremotos en La Guaira, Venezuela.`\
-https://www.nytimes.com/es/2026/07/02/espanol/america-latina/foto-venezuela-terremotos-drones.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
