@@ -1,3 +1,15 @@
+**In Tumultuous Term, Chief Justice Roberts Took Charge of Unruly Supreme Court**\
+`The chief justice faced down the president, forged unlikely coalitions and achieved long-sought goals.`\
+https://www.nytimes.com/2026/07/02/us/politics/the-docket-roberts-supreme-court.html
+
+**Taylor Swift and Travis Kelce’s Expected Wedding Draws Mixed Reaction in N.Y.C.**\
+`The expected wedding of the pop star Taylor Swift and the N.F.L. star Travis Kelce at Madison Square Garden drew excitement and annoyance from people near the venue.`\
+https://www.nytimes.com/video/nyregion/100000011006615/taylor-swift-wedding-nyc-reactions.html
+
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/07/02/books/review/new-recommended-books.html
+
 **Kyiv Neighborhood Badly Damaged in Russian Attack**\
 `A large-scale Russian attack damaged several neighborhoods in the Ukrainian capital overnight on Thursday. We visited one that was particularly badly hit.`\
 https://www.nytimes.com/video/world/europe/100000011006992/kyiv-neighborhood-badly-damaged-in-russian-attack.html
@@ -35,7 +47,7 @@ https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
 https://www.nytimes.com/2026/07/02/briefing/today-in-short.html
 
 **Private Credit Can’t Stop the ‘Freak Out’**\
-`On Thursday, Blue Owl reported another quarter of double-digit investor withdrawal requests from some of its private credit funds.`\
+`On Thursday, Blue Owl reported another quarter of significant investor withdrawal requests from some of its private credit funds.`\
 https://www.nytimes.com/2026/07/02/business/private-credit-withdrawals.html
 
 **Bomb Explodes at Damascus Cafe, Killing at Least 4**\
@@ -114,12 +126,12 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-bioche
 `The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
 
-**Live Updates: U.S. Hiring Continues at a Steady but Slower Pace**\
+**U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
-**What to know about the report.**\
-`(No description)`\
+**US Job Market Makes Slower but Steady Gains, June Employment Data Shows**\
+`Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/2026/07/02/business/economy/jobs-report-employment.html
 
 **Latest Jobs Report Shows Labor Market Is Not a Source of Inflationary Pressure**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006577/02vid-hotel-
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006513/02vid-cassie-update-1-30166.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011006508/02vid-cassie-update-68155.html
-
-**Live Updates: Brutal Heat Wave Broils Eastern U.S.**\
-`Much of the Northeast is enduring a hot spell that has already scorched the Midwest.`\
-https://www.nytimes.com/live/2026/07/02/weather/heat-wave
-
-**World Cup 2026: See How a Series of Quick Passes Led to the U.S. Team’s First Goal**\
-`View in 3-D how the U.S. men’s soccer team scored its opening goal in a 2-0 win over Bosnia and Herzegovina, advancing to the round of 16.`\
-https://www.nytimes.com/interactive/2026/07/02/sports/soccer/usa-bosnia-herzegovina-world-cup-goal-balogun.html
 

@@ -1,3 +1,7 @@
+**Kyiv Neighborhood Badly Damaged in Russian Attack**\
+`A large-scale Russian attack damaged several neighborhoods in the Ukrainian capital overnight on Thursday. We visited one that was particularly badly hit.`\
+https://www.nytimes.com/video/world/europe/100000011006992/kyiv-neighborhood-badly-damaged-in-russian-attack.html
+
 **Putin ataca Kiev ante presión de Ucrania**\
 `Ucrania ha llevado la guerra a Rusia, pero hasta ahora la respuesta del presidente Vladimir Putin ha sido seguir atacando, con mortíferos ataques con misiles balísticos y drones en Kiev el jueves.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/putin-ataque-kiev-guerra.html

@@ -1,3 +1,7 @@
+**Kyiv Neighborhood Badly Damaged in Russian Attack**\
+`A large-scale Russian attack damaged several neighborhoods in the Ukrainian capital overnight on Thursday. We visited one that was particularly badly hit.`\
+https://www.nytimes.com/video/world/europe/100000011006992/kyiv-neighborhood-badly-damaged-in-russian-attack.html
+
 **Putin ataca Kiev ante presión de Ucrania**\
 `Ucrania ha llevado la guerra a Rusia, pero hasta ahora la respuesta del presidente Vladimir Putin ha sido seguir atacando, con mortíferos ataques con misiles balísticos y drones en Kiev el jueves.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/putin-ataque-kiev-guerra.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 **World Cup 2026: See How a Series of Quick Passes Led to the U.S. Team’s First Goal**\
 `View in 3-D how the U.S. men’s soccer team scored its opening goal in a 2-0 win over Bosnia and Herzegovina, advancing to the round of 16.`\
 https://www.nytimes.com/interactive/2026/07/02/sports/soccer/usa-bosnia-herzegovina-world-cup-goal-balogun.html
-
-**The Sporting Class: Hydration Breaks, FIFA Trials and a Condo Full of Cats**\
-`How to buy (and sell) the best tournament on Earth.`\
-https://www.nytimes.com/2026/07/02/podcasts/sporting-class-hydration-breaks-fifa-trials.html
 
