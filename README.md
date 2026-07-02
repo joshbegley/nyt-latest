@@ -1,3 +1,7 @@
+**Bombs Bursting in Air Means Hours of Smoke and Terrified Dogs in D.C.**\
+`Organizers want the July 4 fireworks in the nation’s capital to break the world record. Pet owners, zoo keepers and asthma sufferers are not celebrating.`\
+https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
+
 **An Aerial View of Disaster at a Venezuela Housing Project**\
 `What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
 https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
@@ -46,9 +50,9 @@ https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-s
 `The economy added 57,000 jobs in June, the unemployment rate ticked down to 4.2 percent, and wage gains were solid.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
-**A solid job market underpins Warsh’s inflation pledge.**\
-`(No description)`\
-https://www.nytimes.com/2026/07/02/business/economy/a-solid-jobs-market-underpins-warshs-inflation-pledge.html
+**Labor Market Not a Source of Inflationary Pressure, Latest Report Shows**\
+`The unemployment rate ticked down to 4.2 percent, but average hourly earnings were steady, giving Kevin Warsh, the Federal Reserve chairman, room to focus on fighting inflation.`\
+https://www.nytimes.com/2026/07/02/business/economy/jobs-report-june-fed-interest-rates-warsh.html
 
 **China Says Pilot Who Flew Into Skyscraper Had Thoughts of Death**\
 `Beijing authorities said the pilot who hit a building in the city had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/science/spudcell-scientists-reaction.html
 **Is There Life Out Here?**\
 `Doug Aitken’s sprawling, elusive video installation asks a lot of questions about contemporary L.A. and its environs, and it’s smart enough not to answer them.`\
 https://www.nytimes.com/2026/07/02/arts/is-there-life-out-here.html
-
-**In Potato Salad We Trust**\
-`An argument for its place atop the list of great American dishes.`\
-https://www.nytimes.com/2026/07/02/podcasts/cannonball-potato-salad.html
 
