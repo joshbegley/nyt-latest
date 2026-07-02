@@ -1,3 +1,7 @@
+**Court Investigates Spanish Police Chief, Heaping Pressure on Prime Minister**\
+`The case against Mercedes González is part of a broader examination of whether allies of Prime Minister Pedro Sánchez tried to illegally undermine inquiries into people close to him.`\
+https://www.nytimes.com/2026/07/02/world/europe/spain-police-investigation-sanchez.html
+
 **NJ Transit Announces Train Delays and Cancellations Tied to Extreme Heat Wave**\
 `NJ Transit blamed the extreme heat for delays and cancellations on Thursday, having warned commuters that high temperatures could affect the system’s aging infrastructure.`\
 https://www.nytimes.com/2026/07/02/weather/nj-transit-train-heat-delays-cancellations.html
@@ -42,15 +46,15 @@ https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefi
 `In the Netherlands, more than 15,000 children were separated from their mothers from 1956 to 1984, causing “great sorrow and anger,” according to an official report on the practice.`\
 https://www.nytimes.com/2026/07/02/world/europe/dutch-government-forced-adoptions-apology.html
 
-**Bombs Bursting in Air Means Hours of Smoke and Terrified Dogs in D.C.**\
-`Organizers want the July 4 fireworks in the nation’s capital to break the world record. Pet owners, zoo keepers and asthma sufferers are not celebrating.`\
+**Bombs Bursting in Air Means Hours of Smoke and Confused Dogs in D.C.**\
+`Organizers want the July 4 fireworks in the nation’s capital to break the world record. But the fun will also come with air pollution and possibly headaches for pet owners and zoo keepers.`\
 https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
 
 **An Aerial View of Disaster at a Venezuela Housing Project**\
 `What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
 https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
 
-**Tesla Sales Surge on Recovery in Europe**\
+**Tesla Sales Surge 25% on Recovery in Europe**\
 `Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
 https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
 
@@ -167,7 +171,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006513/02vid-cassie
 https://www.nytimes.com/video/embedded/world/europe/100000011006508/02vid-cassie-update-68155.html
 
 **Live Updates: Brutal Heat Wave Broils Eastern U.S.**\
-`(No description)`\
+`Much of the Northeast is enduring a hot spell that has already scorched the Midwest.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 
 **World Cup 2026: See How a Series of Quick Passes Led to the U.S. Team’s First Goal**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/02/us/politics/trump-midterm-electio
 **Amy Coney Barrett Is the Lightning Rod**\
 `The Supreme Court seesaw is swinging hard.`\
 https://www.nytimes.com/2026/07/02/opinion/barrett-roverts-gorsuch-supreme-court-term.html
-
-**The Transgender Sports Decision Was About Something Deeper Than Law**\
-`It’s never just a game.`\
-https://www.nytimes.com/2026/07/02/opinion/trans-athletes-sports-supreme-court.html
 
