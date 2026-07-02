@@ -1,3 +1,11 @@
+**Bomb Explodes at Damascus Cafe, Killing at Least 4**\
+`The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent insecurity.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
+
+**Herbert Lust, Collector Who Befriended Giacometti, Dies at 99**\
+`He gravitated toward the work of artists he knew personally, like Alexander Calder and Robert Indiana, in amassing an unusual, important collection.`\
+https://www.nytimes.com/2026/07/02/arts/design/herbert-c-lust-dead.html
+
 **India’s Modi Deepens Ties With Japan in ‘Uncertain Times’**\
 `The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
 https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
@@ -67,7 +75,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-bioche
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
 
 **Live Updates: U.S. Hiring Continues at a Steady but Slower Pace**\
-`The economy added 57,000 jobs in June, the unemployment rate ticked down to 4.2 percent, and wage gains were solid.`\
+`Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
 **Labor Market Not a Source of Inflationary Pressure, Latest Report Shows**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/02/business/economy/ai-economy-data.html
 **Across a Scorching Ohio, Residents Endure Breathtaking Heat**\
 `The heat wave gripping much of the eastern half of the country over the past few days has been especially intense throughout the state.`\
 https://www.nytimes.com/2026/07/02/us/ohio-heat-dome.html
-
-**13 George Washington Interpreters on Embodying an Icon**\
-`How a coterie of men are trying to bring one of America’s founding fathers into the present.`\
-https://www.nytimes.com/interactive/2026/07/02/opinion/george-washington-interpreters-history.html
-
-**Map: See Taylor Swift's NYC Hotspots Ahead of Her MSG Wedding**\
-`Ahead of the superstar’s Manhattan nuptials, take a little tour of some of her haunts around the city.`\
-https://www.nytimes.com/interactive/2026/07/02/style/taylor-swift-nyc-spots.html
 

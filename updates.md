@@ -1,3 +1,15 @@
+**Bomb Explodes at Damascus Cafe, Killing at Least 4**\
+`The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent insecurity.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
+
+**Herbert Lust, Collector Who Befriended Giacometti, Dies at 99**\
+`He gravitated toward the work of artists he knew personally, like Alexander Calder and Robert Indiana, in amassing an unusual, important collection.`\
+https://www.nytimes.com/2026/07/02/arts/design/herbert-c-lust-dead.html
+
+**Live Updates: U.S. Hiring Continues at a Steady but Slower Pace**\
+`Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
+https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
 **India’s Modi Deepens Ties With Japan in ‘Uncertain Times’**\
 `The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
 https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
