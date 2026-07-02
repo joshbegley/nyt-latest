@@ -1,3 +1,7 @@
+**Putin ataca Kiev ante presión de Ucrania**\
+`Ucrania ha llevado la guerra a Rusia, pero hasta ahora la respuesta del presidente Vladimir Putin ha sido seguir atacando, con mortíferos ataques con misiles balísticos y drones en Kiev el jueves.`\
+https://www.nytimes.com/es/2026/07/02/espanol/mundo/putin-ataque-kiev-guerra.html
+
 **Gary Glitter Is Charged With Assaulting a Young Girl in the 1970s**\
 `British prosecutors have charged the singer with multiple counts of indecent assault of a minor, including one of unlawful sex.`\
 https://www.nytimes.com/2026/07/02/arts/music/gary-glitter-charged.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/02/sports/soccer/usa-bosnia-herzegov
 **The Sporting Class: Hydration Breaks, FIFA Trials and a Condo Full of Cats**\
 `How to buy (and sell) the best tournament on Earth.`\
 https://www.nytimes.com/2026/07/02/podcasts/sporting-class-hydration-breaks-fifa-trials.html
-
-**Consejos para soportar una ‘cúpula de calor’**\
-`Los médicos de las salas de urgencia de EE. UU. se preparan para un doble golpe: el típico aumento de pacientes por el 4 de julio, muchos con lesiones relacionadas con los fuegos artificiales, y una segunda oleada de personas que sufren por el calor extremo.`\
-https://www.nytimes.com/es/2026/07/02/espanol/cupula-calor-extremo-consejos.html
 
