@@ -1,3 +1,15 @@
+**The Best Movies and TV Shows Coming to Netflix in July**\
+`A science-fiction thriller with political overtones and a new version of “Little House on the Prairie” are among this month’s most promising titles.`\
+https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
+
+**Olympian Is Indicted After Arrest at Washington’s Reflecting Pool**\
+`David Hearn, a former canoeist, is accused of vandalizing the algae-challenged pool, which President Trump has said he would repair and beautify with fresh sealant. But the algae returned and the paint peeled.`\
+https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.html
+
+**U.S. Officials Believed Israel Was Plotting to Kill Iranian Negotiators**\
+`Any Israeli attempt to kill Abbas Araghchi, the foreign minister, or Mohammad Ghalibaf, the Parliament speaker, would have derailed peace talks, American officials feared.`\
+https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
+
 **U.S. Officials Believed Israel Was Plotting to Kill Iranian Negotiators**\
 `Any Israeli attempt to kill Abbas Araghchi or Mohammad Ghalibaf would have derailed peace talks, American officials feared.`\
 https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
