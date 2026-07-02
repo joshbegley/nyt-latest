@@ -1,3 +1,15 @@
+**Los ingresos de Trump durante su presidencia no tienen precedente histórico**\
+`La decisión del presidente de poner en marcha nuevos proyectos empresariales, en lugar de eliminar posibles conflictos de intereses, va en contra de una tradición muy arraigada.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ingresos-donald-trump-presidencia.html
+
+**Chanel Is Buying Charvet, the World’s Oldest Shirt Maker**\
+`The French luxury group is acquiring Charvet, a Parisian brand that dates to the 1830s, in a bid to add some men’s wear savoir-faire to its portfolio.`\
+https://www.nytimes.com/2026/07/02/style/chanel-charvet-acquisition.html
+
+**The World Has Failed the Uyghurs**\
+`If the global community can’t stop China’s atrocities against the Uyghurs, it must help us keep our culture alive in exile.`\
+https://www.nytimes.com/2026/07/02/opinion/uyghurs-china.html
+
 **For Congo Fans, the Thrill of Victory Was So Close, Until It Wasn’t**\
 `Congo lost, 2-1, to England on Wednesday, after spending most of the game winning.`\
 https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html

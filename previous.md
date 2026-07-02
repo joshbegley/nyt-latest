@@ -1,3 +1,15 @@
+**Los ingresos de Trump durante su presidencia no tienen precedente histórico**\
+`La decisión del presidente de poner en marcha nuevos proyectos empresariales, en lugar de eliminar posibles conflictos de intereses, va en contra de una tradición muy arraigada.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ingresos-donald-trump-presidencia.html
+
+**Chanel Is Buying Charvet, the World’s Oldest Shirt Maker**\
+`The French luxury group is acquiring Charvet, a Parisian brand that dates to the 1830s, in a bid to add some men’s wear savoir-faire to its portfolio.`\
+https://www.nytimes.com/2026/07/02/style/chanel-charvet-acquisition.html
+
+**The World Has Failed the Uyghurs**\
+`If the global community can’t stop China’s atrocities against the Uyghurs, it must help us keep our culture alive in exile.`\
+https://www.nytimes.com/2026/07/02/opinion/uyghurs-china.html
+
 **Cómo la guerra en Irán enfrentó a Trump y el príncipe heredero saudita**\
 `Mohammed bin Salman había presionado al presidente Trump para que debilitara a Irán. Pero a medida que Irán iba demostrando su poder, el príncipe instó a un alto al fuego y ahora se enfoca en sus prioridades de seguridad.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-principe-heredero-arabia-saudita-iran.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new
 **Robby Hoffman: ‘I Don’t Think Being Offended Is the Worst Thing’**\
 `On “The Interview,” Robby Hoffman discussed the backlash she has received as her career as a comedian has taken off.`\
 https://www.nytimes.com/video/podcasts/100000011005288/robby-hoffman-i-dont-think-being-offended-is-the-worst-thing.html
-
-**Who Can Sell ‘6 7’ Chicken Nuggets? One Company Is Asking a Court to Decide.**\
-`The meat and poultry giant Perdue said in a lawsuit that Soules Foods copied its packaging that is based on a meme popular with children.`\
-https://www.nytimes.com/2026/07/01/us/perdue-chicken-nuggets-lawsuit-6-7.html
-
-**Sea Hawk Helicopter Makes Emergency Landing in Arabian Sea, Navy Says**\
-`Three crew members were rescued, though a fourth remained missing. There is no indication that the landing was caused by “hostile action,” the Navy said.`\
-https://www.nytimes.com/2026/07/01/us/navy-helicopter-rescue-missing-person.html
-
-**Minnesota Pardons Sexual Abuser Who Was Set to Be Deported**\
-`Tou Lue Vang has expressed regret for abusing a 10-year-old two decades ago. The Trump administration accused Gov. Tim Walz, a Democrat, of shielding an immigrant who committed a serious crime.`\
-https://www.nytimes.com/2026/07/01/us/politics/minnesota-pardon-sexual-abuser.html
 
