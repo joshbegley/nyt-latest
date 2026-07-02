@@ -1,3 +1,7 @@
+**Tesla Sales Surge as Sales Recover in Europe**\
+`Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
+https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
+
 **Searching for George Washington**\
 `Portfolio of George Washington Portraits`\
 https://static01.nyt.com/slideshow/2026/07/02/opinion/searching-for-george-washington.html
@@ -42,8 +46,8 @@ https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 `(No description)`\
 https://www.nytimes.com/2026/07/02/business/economy/a-solid-jobs-market-underpins-warshs-inflation-pledge.html
 
-**China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
-`City authorities said the pilot had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
+**China Says Pilot Who Flew Into Skyscraper Had Thoughts of Death**\
+`Beijing authorities said the pilot who hit a building in the city had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
 https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.html
 
 **An American Mosaic**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/podcasts/cannonball-potato-salad.html
 **How to Stay Safe in a ‘Heat Dome’**\
 `Extreme temperatures over the Fourth of July weekend will put a strain on emergency rooms.`\
 https://www.nytimes.com/2026/07/02/well/extreme-heat-dome-health-emergency.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a three-bedroom house in Greenwich, Conn., and a four-bedroom house in East Hampton, N.Y.`\
-https://www.nytimes.com/2026/07/02/realestate/housing-market-near-nyc.html
 

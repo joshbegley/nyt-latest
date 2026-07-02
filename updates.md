@@ -1,3 +1,11 @@
+**Tesla Sales Surge as Sales Recover in Europe**\
+`Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
+https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
+
+**China Says Pilot Who Flew Into Skyscraper Had Thoughts of Death**\
+`Beijing authorities said the pilot who hit a building in the city had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
+https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.html
+
 **Live Updates: U.S. Hiring Continues at a Steady Pace**\
 `The economy added 57,000 jobs in June, the unemployment rate ticked down to 4.2 percent, and wage gains were solid.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
