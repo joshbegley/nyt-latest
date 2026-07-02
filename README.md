@@ -1,3 +1,11 @@
+**El Vaticano excomulga a un grupo disidente, en la primera gran crisis del papa León**\
+`La medida contra la Fraternidad Sacerdotal San Pío X se produjo tras su decisión de desafiar al papa León XIV al consagrar nuevos obispos en contra de su voluntad.`\
+https://www.nytimes.com/es/2026/07/02/espanol/mundo/papa-leon-cisma-excomunion-lefebvrianos-fraternidad.html
+
+**Man Rescued 8 Days After Quake, a Ray of Joy in Stricken Venezuela**\
+`The 44-year-old security guard was pulled alive from a pancaked basement, offering a fleeting moment of hope amid a soaring death toll.`\
+https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-survivor.html
+
 **Supreme Court Allows Reporter to Be Fined for Failing to Disclose Source**\
 `Catherine Herridge, a former Fox News reporter, was held in civil contempt by a lower court after she refused to reveal her sources for articles she wrote about a scientist who was investigated by the F.B.I.`\
 https://www.nytimes.com/2026/07/02/us/politics/supreme-court-herridge-first-amendment.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/02/weather/nj-transit-train-heat-delays-cancella
 **What Private Credit Is, and Why Investors Are So Worried About It**\
 `Some say the industry expanded too quickly and extended loans to companies that won’t be able to pay them back.`\
 https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
-
-**Today, In Short**\
-`U.S. history. Heat wave clothing. And a proposal atop the Empire State Building.`\
-https://www.nytimes.com/2026/07/02/briefing/today-in-short.html
-
-**U.S. Hiring Continues at a Steady but Slower Pace**\
-`Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
-https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
