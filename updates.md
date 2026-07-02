@@ -1,3 +1,11 @@
+**Robert Kimball, Who Helped Uncover a Trove of Broadway History, Dies at 86**\
+`He excavated a treasure hoard of manuscripts by George Gershwin, Cole Porter, Richard Rodgers and others that were found in a warehouse in Secaucus, N.J.`\
+https://www.nytimes.com/2026/07/02/theater/robert-kimball-dead.html
+
+**Empire State Climbers Charged After ‘Extreme Risk-Taking Behavior’**\
+`Angela Nikolau and Ivan Beerkus, extreme climbers who have illegally scaled buildings around the world, were arrested after getting engaged atop the Manhattan landmark.`\
+https://www.nytimes.com/2026/07/02/nyregion/empire-state-builing-climbers-arraignment.html
+
 **Bomb Explodes at Damascus Cafe, Killing at Least 6**\
 `The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent instability as its leaders try to chart a path out of years of dictatorship and war.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html

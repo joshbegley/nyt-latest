@@ -1,3 +1,7 @@
+**What the Supreme Court Has Wrought**\
+`Readers offer their perspectives on the just-completed Supreme Court term. Also: How visiting World Cup fans see America.`\
+https://www.nytimes.com/2026/07/02/opinion/supreme-court-trump.html
+
 **Robert Kimball, Who Helped Uncover a Trove of Broadway History, Dies at 86**\
 `He excavated a treasure hoard of manuscripts by George Gershwin, Cole Porter, Richard Rodgers and others that were found in a warehouse in Secaucus, N.J.`\
 https://www.nytimes.com/2026/07/02/theater/robert-kimball-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/02/business/economy/jobs-report-june-fed-interes
 **China Says Pilot Who Flew Into Skyscraper Had Thoughts of Death**\
 `Beijing authorities said the pilot who hit a building in the city had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
 https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.html
-
-**An American Mosaic**\
-`We explore how people in the U.S. identify their ancestry.`\
-https://www.nytimes.com/2026/07/02/briefing/an-american-mosaic.html
 
 **Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
 `(No description)`\
