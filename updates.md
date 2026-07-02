@@ -1,3 +1,19 @@
+**¿Qué tanto le preocupan a Trump los conflictos de intereses?**\
+`Trump obtuvo al menos 2.2 millardos de dólares en su primer año de vuelta a la Casa Blanca, pero su actitud sobre mezclar negocios y política es clara: “Me di cuenta de que a nadie le importaba”.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-dinero-negocios-conflicto-interes.html
+
+**Less Than 10 Percent of Eligible Children Have Trump Accounts**\
+`More than six million have been signed up for the investment accounts, which open for contributions July 4, but there are barriers to uptake.`\
+https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.html
+
+**Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
+`Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They were each convicted of several misdemeanors, but avoided a conviction on a charge that had a potential 15-year prison sentence.`\
+https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
+
+**This Is the Sandwich of the Summer**\
+`Once you learn about this Italian specialty, you’ll start seeing it everywhere.`\
+https://www.nytimes.com/2026/07/02/dining/sandwich-of-the-summer-piadina.html
+
 **Teenage Boys Who Raped Girls in Fordingbridge, England, Have Sentences Revised**\
 `Two teenagers were given four-year custodial sentences on Thursday after an appeals court determined that their earlier sentencing, which included no time in detention, was too lenient.`\
 https://www.nytimes.com/2026/07/02/world/europe/teenagers-rape-england-sentencing.html
