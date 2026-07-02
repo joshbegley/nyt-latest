@@ -1,3 +1,11 @@
+**Putin ataca Kiev ante presión de Ucrania**\
+`Ucrania ha llevado la guerra a Rusia, pero hasta ahora la respuesta del presidente Vladimir Putin ha sido seguir atacando, con mortíferos ataques con misiles balísticos y drones en Kiev el jueves.`\
+https://www.nytimes.com/es/2026/07/02/espanol/mundo/putin-ataque-kiev-guerra.html
+
+**Gary Glitter Is Charged With Assaulting a Young Girl in the 1970s**\
+`British prosecutors have charged the singer with multiple counts of indecent assault of a minor, including one of unlawful sex.`\
+https://www.nytimes.com/2026/07/02/arts/music/gary-glitter-charged.html
+
 **Tucker Carlson, Who Broke With Trump, Plans to ‘Help Build a Third Party’**\
 `The influential conservative commentator’s relationship with the president and the G.O.P. fractured over the war with Iran. Now, he says he is charting a new course.`\
 https://www.nytimes.com/2026/07/02/us/politics/tucker-carlson-third-party.html
