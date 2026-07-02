@@ -1,3 +1,15 @@
+**Supreme Court Allows Reporter to Be Fined for Failing to Disclose Source**\
+`Catherine Herridge, a former Fox News reporter, was held in civil contempt by a lower court after she refused to reveal her sources for articles she wrote about a scientist who was investigated by the F.B.I.`\
+https://www.nytimes.com/2026/07/02/us/politics/supreme-court-herridge-first-amendment.html
+
+**Kyiv Residents Describe Devastation From Russian Attack**\
+`On Thursday, residents picked through the rubble after Russia bombarded Ukraine’s capital with a deadly wave of attacks. Local officials said that at least 27 people were killed and dozens more were injured as of Thursday evening.`\
+https://www.nytimes.com/video/world/europe/100000011007183/ukraine-kyiv-residents-russia-attack.html
+
+**Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
+`The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
 **NYC Hits 100 Degrees, Its Hottest Day in Nearly 14 Years**\
 `The last time the park recorded 100 degrees was July 18, 2012.`\
 https://www.nytimes.com/2026/07/02/weather/new-york-heat-record-100-degrees-central-park.html
