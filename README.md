@@ -1,3 +1,7 @@
+**Word of the Day: penury**\
+`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/02/learning/word-of-the-day-penury.html
+
 **SpudCell, la célula sintética que podría cambiar la investigación médica**\
 `SpudCell no está viva en sentido estricto, pero reproduce varias funciones esenciales y abre una nueva etapa en la biología sintética.`\
 https://www.nytimes.com/es/2026/07/02/espanol/ciencia-y-tecnologia/spudcell-celula-sintetica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html
 **¿Qué hace Venezuela con sus muertos?**\
 `A medida que aumenta el número de fallecidos, el sistema forense de Venezuela se ha visto desbordado con miles de cuerpos, hasta el punto de que un puerto se ha convertido en una morgue provisional.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremotos-muertos-cuerpos.html
-
-**Ukraine Takes the War to Russia**\
-`Kyiv’s aim is simple: Put enough pressure on President Vladimir Putin that he agrees to end the war. Will it work?`\
-https://www.nytimes.com/2026/07/01/world/ukraine-war-russia-putin-maduro-harry-kane.html
 
