@@ -1,3 +1,7 @@
+**USMNT Advance, at a Cost**\
+`The U.S. dominate Bosnia to reach the last 16 but will face Belgium without talismanic striker Folarin Balogun.`\
+https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
+
 **As Far Right Rises, German Leaders Look to Jump-Start the Economy**\
 `An agreement between Chancellor Friedrich Merz and his center-left partners bets on politically painful compromises in hopes of holding off hard-line rivals.`\
 https://www.nytimes.com/2026/07/02/world/europe/germany-overhaul-merz-economy-pensions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/us/brooke-barbier-revolutionary-era-drinks.ht
 **‘Young Washington’ Review: Not the Campaigns You Had in Mind**\
 `Before the presidency. Before Yorktown. There was … George, the land surveyor.`\
 https://www.nytimes.com/2026/07/02/movies/young-washington-review.html
-
-**America in Video Games: The Oregon Trail and Postapocalyptic Vegas**\
-`Other outstanding efforts reimagine the American Revolution, the pioneers’ westward migration and the Great Depression.`\
-https://www.nytimes.com/2026/07/02/arts/america-in-video-games-oregon-trail-postapocalyptic-vegas.html
 
