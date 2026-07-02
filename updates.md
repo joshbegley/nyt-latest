@@ -1,3 +1,11 @@
+**U.S. Officials Believed Israel Was Plotting to Kill Iranian Negotiators**\
+`Any Israeli attempt to kill Abbas Araghchi or Mohammad Ghalibaf would have derailed peace talks, American officials feared.`\
+https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
+
+**Kyiv Residents Describe Devastation From Russian Attack**\
+`On Thursday, residents picked through the rubble after Russia bombarded Ukraine’s capital with a deadly wave of attacks. Local officials said that at least 21 people were killed and dozens more were injured as of Thursday evening.`\
+https://www.nytimes.com/video/world/europe/100000011007183/ukraine-kyiv-residents-russia-attack.html
+
 **What the Pursuit of Happiness Looks Like, 250 Years In**\
 `We asked dozens of people how they pursue happiness, one of three inalienable rights laid out in the Declaration of Independence. A single theme stood out: To strive is to be American.`\
 https://www.nytimes.com/interactive/2026/07/02/us/america-pursuit-happiness.html

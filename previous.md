@@ -1,3 +1,11 @@
+**U.S. Officials Believed Israel Was Plotting to Kill Iranian Negotiators**\
+`Any Israeli attempt to kill Abbas Araghchi or Mohammad Ghalibaf would have derailed peace talks, American officials feared.`\
+https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
+
+**Kyiv Residents Describe Devastation From Russian Attack**\
+`On Thursday, residents picked through the rubble after Russia bombarded Ukraine’s capital with a deadly wave of attacks. Local officials said that at least 21 people were killed and dozens more were injured as of Thursday evening.`\
+https://www.nytimes.com/video/world/europe/100000011007183/ukraine-kyiv-residents-russia-attack.html
+
 **What the Pursuit of Happiness Looks Like, 250 Years In**\
 `We asked dozens of people how they pursue happiness, one of three inalienable rights laid out in the Declaration of Independence. A single theme stood out: To strive is to be American.`\
 https://www.nytimes.com/interactive/2026/07/02/us/america-pursuit-happiness.html
@@ -177,18 +185,6 @@ https://www.nytimes.com/2026/07/02/world/asia/thailand-buddhist-monks-truck-cras
 **Russia’s Deadly Attack on Ukraine Reminds Europe of Its Own Vulnerabilities**\
 `Governments across the continent have increased military spending, but the strikes are another warning that they need to be prepared if the conflict crosses into NATO territory.`\
 https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html
-
-**Putin Retaliates With New Strikes After Ukraine Takes the War to Russia**\
-`Ukraine is taking the war to Russia, but so far President Vladimir V. Putin’s response has been to keep attacking, including with deadly ballistic missile and drone strikes in Kyiv on Thursday.`\
-https://www.nytimes.com/2026/07/02/world/europe/russia-putin-ukraine-war-pressure.html
-
-**Vatican Excommunicates Society of St. Pius X, in First Major Crisis for Pope Leo**\
-`The move against the Society of St. Pius X followed its defiance of Pope Leo XIV by consecrating new bishops against his wishes.`\
-https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
-
-**Why the Jobs Market Has Wall Street and Washington on Edge**\
-`A rebound in hiring has put more pressure on the Federal Reserve to raise interest rates. New jobs numbers are scheduled for release on Thursday.`\
-https://www.nytimes.com/2026/07/02/business/dealbook/jobs-fed-rates-wall-street.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\

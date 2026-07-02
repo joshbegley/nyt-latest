@@ -1,5 +1,13 @@
+**The Best Movies and TV Shows Coming to Netflix in July**\
+`A science-fiction thriller with political overtones and a new version of “Little House on the Prairie” are among this month’s most promising titles.`\
+https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
+
+**Olympian Is Indicted After Arrest at Washington’s Reflecting Pool**\
+`David Hearn, a former canoeist, is accused of vandalizing the algae-challenged pool, which President Trump has said he would repair and beautify with fresh sealant. But the algae returned and the paint peeled.`\
+https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.html
+
 **U.S. Officials Believed Israel Was Plotting to Kill Iranian Negotiators**\
-`Any Israeli attempt to kill Abbas Araghchi or Mohammad Ghalibaf would have derailed peace talks, American officials feared.`\
+`Any Israeli attempt to kill Abbas Araghchi, the foreign minister, or Mohammad Ghalibaf, the Parliament speaker, would have derailed peace talks, American officials feared.`\
 https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
 
 **Kyiv Residents Describe Devastation From Russian Attack**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.ht
 **Searching for George Washington**\
 `Portfolio of George Washington Portraits`\
 https://static01.nyt.com/slideshow/2026/07/02/opinion/searching-for-george-washington.html
-
-**9 Buddhist Monks Killed After Boy Crashes Truck Into Procession**\
-`Another 11 were injured when the pickup truck hit the monks on a pilgrimage in northeast Thailand.`\
-https://www.nytimes.com/2026/07/02/world/asia/thailand-buddhist-monks-truck-crash.html
-
-**Russia’s Deadly Attack on Ukraine Reminds Europe of Its Own Vulnerabilities**\
-`Governments across the continent have increased military spending, but the strikes are another warning that they need to be prepared if the conflict crosses into NATO territory.`\
-https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
