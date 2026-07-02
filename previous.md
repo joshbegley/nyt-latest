@@ -1,3 +1,7 @@
+**India’s Modi Deepens Ties With Japan in ‘Uncertain Times’**\
+`The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
+https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
+
 **Escalaron el Empire State para comprometerse. Terminaron detenidos**\
 `La pareja de escaladores extremos subió el miércoles a lo alto del emblemático edificio y desplegó una gran pancarta negra a cientos de metros de altura sobre la ciudad.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escaladores.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escala
 https://www.nytimes.com/2026/07/02/world/europe/kyiv-strikes-civilians.html
 
 **Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
-`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts and losing ground, analysts say.`\
+`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts, analysts say.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html
 
 **Dutch and U.K. Governments Apologize for Their Roles in Forced Adoptions**\
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-do
 `What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
 https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
 
-**Tesla Sales Surge as Sales Recover in Europe**\
+**Tesla Sales Surge on Recovery in Europe**\
 `Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
 https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/02/opinion/george-washington-interpr
 **Map: See Taylor Swift's NYC Hotspots Ahead of Her MSG Wedding**\
 `Ahead of the superstar’s Manhattan nuptials, take a little tour of some of her haunts around the city.`\
 https://www.nytimes.com/interactive/2026/07/02/style/taylor-swift-nyc-spots.html
-
-**36 Hours in Philadelphia, Pennsylvania: Things to Do and See.**\
-`Philadelphia may be the birthplace of American democracy, but its world-class museums and thrilling dining scene are just as revolutionary.`\
-https://www.nytimes.com/interactive/2026/07/02/travel/things-to-do-philadelphia.html
 

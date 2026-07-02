@@ -1,3 +1,15 @@
+**India’s Modi Deepens Ties With Japan in ‘Uncertain Times’**\
+`The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
+https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
+
+**Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
+`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts, analysts say.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html
+
+**Tesla Sales Surge on Recovery in Europe**\
+`Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
+https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
+
 **Escalaron el Empire State para comprometerse. Terminaron detenidos**\
 `La pareja de escaladores extremos subió el miércoles a lo alto del emblemático edificio y desplegó una gran pancarta negra a cientos de metros de altura sobre la ciudad.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escaladores.html
