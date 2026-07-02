@@ -1,3 +1,7 @@
+**A Firm Run by Trump Allies is Organizing the 250th. Their Fee? Unclear.**\
+`Event Strategies, Inc., a longtime vendor to President Trump’s campaigns, is organizing the Great American State Fair and the July 4 celebrations.`\
+https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250th.html
+
 **The Pants Debate at Men’s Fashion Weeks**\
 `Pants can be a source of anxiety in male wardrobes. Our men’s fashion reporter, Jacob Gallagher, unpacks the ongoing debate from Men’s Fashion Weeks in Paris and Milan.`\
 https://www.nytimes.com/video/style/100000010955768/the-pants-debate-at-mens-fashion-weeks.html
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/07/02/arts/music/gary-glitter-charged.html
 `The influential conservative commentator’s relationship with the president and the G.O.P. fractured over the war with Iran. Now, he says he is charting a new course.`\
 https://www.nytimes.com/2026/07/02/us/politics/tucker-carlson-third-party.html
 
-**As U.S. Faces Extreme Heat, Data Centers Are Ordered to Use Backup Power to Prevent Blackouts**\
+**To Reduce Electrical Grid Strain Amid Heat Wave, Data Centers Are Ordered to Use Backup Power**\
 `As triple-digit temperatures engulf much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
 https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-s
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
-
-**US Job Market Makes Slower but Steady Gains, June Employment Data Shows**\
-`Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
-https://www.nytimes.com/2026/07/02/business/economy/jobs-report-employment.html
 
 **Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
 `(No description)`\
