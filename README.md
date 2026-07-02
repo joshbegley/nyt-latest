@@ -1,3 +1,7 @@
+**9 Buddhist Monks Killed After Boy Crashes Truck Into Procession**\
+`Another 11 were injured when the pickup truck hit the monks on a pilgrimage in northeast Thailand.`\
+https://www.nytimes.com/2026/07/02/world/asia/thailand-buddhist-monks-truck-crash.html
+
 **Russia’s Deadly Attack on Ukraine Reminds Europe of Its Vulnerabilities**\
 `Governments across the continent have increased military spending, but the strikes are another warning that they need to be prepared if the conflict crosses into NATO territory.`\
 https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/realestate/housing-market-near-nyc.html
 **Fewer Visitors, More Threats: A New Reality for Europe’s Jewish Museums**\
 `Museum directors say they are facing a frustrating misconception: that cultural institutions funded by local taxpayers are somehow associated with Israel.`\
 https://www.nytimes.com/2026/07/02/arts/design/jewish-museums-europe.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Murray Hill, Gramercy Park and Williamsburg.`\
-https://www.nytimes.com/2026/07/02/realestate/housing-market-nyc.html
 
