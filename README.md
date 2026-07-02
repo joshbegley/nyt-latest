@@ -1,3 +1,19 @@
+**The Most Iconic American Artwork Is the Hardest to See**\
+`The Statue of Liberty is caught between the sublime and the souvenir, our critic Jason Farago explains. Look again: She’s much stranger than you think.`\
+https://www.nytimes.com/interactive/2026/07/02/arts/design/statue-of-liberty-history-france-us.html
+
+**Egg Producers to Pay $3.3 Million to Settle Federal Price-Fixing Lawsuit**\
+`The companies also agreed to donate more than 53 million eggs to food banks and nonprofits in 17 states that joined the federal government in the antitrust action.`\
+https://www.nytimes.com/2026/07/02/business/egg-price-fixing-settlement-lawsuit.html
+
+**F.B.I. Assigns Scores of Analysts to Examine Election Records in Georgia**\
+`The expansion of an investigation into Fulton County’s election office reflects President Trump’s desire to prove his baseless claims that the 2020 election in Georgia was rigged.`\
+https://www.nytimes.com/2026/07/02/us/politics/fbi-georgia-fulton-county-2020-election.html
+
+**How the Mood in Little Senegal Went From Euphoria to Despair**\
+`At watch parties in Upper Manhattan, joyous fans were stunned by a sudden twist in the match between Belgium and the underdog Senegal.`\
+https://www.nytimes.com/2026/07/02/nyregion/world-cup-nyc-little-senegal.html
+
 **Judge Demands Answers About Plans for Trump’s East Potomac Golf Course**\
 `In a fiery hearing, Judge Ana C. Reyes hammered the government over denials that the president was forging ahead with plans to renovate the course without approval.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-golf-course-plans-doj.html
@@ -169,22 +185,6 @@ https://www.nytimes.com/2026/07/02/climate/europe-heat-waves-melting-glaciers.ht
 **Did You Recently Buy a Home in New York? We Want to Hear Your Story.**\
 `From the five boroughs up to the Hudson Valley and the Finger Lakes, we’re looking for home buyers to feature in our weekly column, The Hunt.`\
 https://www.nytimes.com/2026/07/02/realestate/the-hunt-new-york-stories.html
-
-**Pick Your Cookout Persona: Grill Master or Bartender**\
-`Good thing we have lots of great veggie-based recipes for each.`\
-https://www.nytimes.com/2026/07/02/dining/pick-your-cookout-persona-grill-master-or-bartender.html
-
-**Russia Bombards Ukrainian Capital With Deadly Wave of Attacks**\
-`At least 27 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
-https://www.nytimes.com/2026/07/02/world/europe/russia-attack-on-kyiv.html
-
-**How We’re Covering a Contentious Nation at 250**\
-`History can be a surprisingly newsy beat, according the journalists who are covering the semiquincentennial.`\
-https://www.nytimes.com/2026/07/02/insider/times-coverage-us-250th-birthday.html
-
-**My Avoidant Communication Style Is Ruining My Relationships**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose avoidant communication style is making a breakup more complicated.`\
-https://www.nytimes.com/2026/07/02/well/mind/ask-therapist-breakup-avoidant.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

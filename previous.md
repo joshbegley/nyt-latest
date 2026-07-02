@@ -1,3 +1,7 @@
+**Judge Demands Answers About Plans for Trump’s East Potomac Golf Course**\
+`In a fiery hearing, Judge Ana C. Reyes hammered the government over denials that the president was forging ahead with plans to renovate the course without approval.`\
+https://www.nytimes.com/2026/07/02/us/politics/trump-golf-course-plans-doj.html
+
 **Tesla Driver Using Autopilot in Texas Crash Is Charged With Manslaughter**\
 `A front-door video camera of the crash, which killed a woman inside her home, showed the Tesla plowing into a house through its driveway.`\
 https://www.nytimes.com/2026/07/02/us/tesla-autopilot-crash-texas-manslaughter.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/insider/times-coverage-us-250th-birthday.html
 **My Avoidant Communication Style Is Ruining My Relationships**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose avoidant communication style is making a breakup more complicated.`\
 https://www.nytimes.com/2026/07/02/well/mind/ask-therapist-breakup-avoidant.html
-
-**‘Caso Leire’: un juez de España investiga a la directora de la Guardia Civil**\
-`El caso contra Mercedes González forma parte de una pesquisa más amplia sobre si los aliados del presidente Sánchez buscaron obstaculizar las investigaciones sobre personas cercanas a él.`\
-https://www.nytimes.com/es/2026/07/02/espanol/mundo/espana-investigacion-guardia-civil.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

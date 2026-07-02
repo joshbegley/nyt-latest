@@ -1,3 +1,7 @@
+**Judge Demands Answers About Plans for Trump’s East Potomac Golf Course**\
+`In a fiery hearing, Judge Ana C. Reyes hammered the government over denials that the president was forging ahead with plans to renovate the course without approval.`\
+https://www.nytimes.com/2026/07/02/us/politics/trump-golf-course-plans-doj.html
+
 **Tesla Driver Using Autopilot in Texas Crash Is Charged With Manslaughter**\
 `A front-door video camera of the crash, which killed a woman inside her home, showed the Tesla plowing into a house through its driveway.`\
 https://www.nytimes.com/2026/07/02/us/tesla-autopilot-crash-texas-manslaughter.html
