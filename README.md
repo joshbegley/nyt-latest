@@ -11,7 +11,7 @@ https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escala
 https://www.nytimes.com/2026/07/02/world/europe/kyiv-strikes-civilians.html
 
 **Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
-`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts and losing ground, analysts say.`\
+`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts, analysts say.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html
 
 **Dutch and U.K. Governments Apologize for Their Roles in Forced Adoptions**\
