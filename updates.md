@@ -1,3 +1,11 @@
+**How a Nation of Immigrants Traces Its Roots**\
+`Melting pot, tapestry, mosaic, kaleidoscope, salad bowl. Every cliché is true.`\
+https://www.nytimes.com/interactive/2026/07/01/us/america-identity-ancestry-census.html
+
+**For Congo Fans, the Thrill of Victory Was so Close, Until It Wasn’t**\
+`Congo lost 2-1 to England on Wednesday night, after spending most of the game winning.`\
+https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html
+
 **Trump Finds His Presidential Alter Ego, the ‘He-Man’ Teddy Roosevelt**\
 `President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, whom he called “a great he-man.”`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-north-dakota-roosevelt-library.html
