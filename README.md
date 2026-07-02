@@ -1,3 +1,7 @@
+**Russia’s Deadly Attack on Ukraine Reminds Europe of Its Vulnerabilities**\
+`Governments across the continent have increased military spending, but the strikes are another warning that they need to be prepared if the conflict crosses into NATO territory.`\
+https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html
+
 **Putin Retaliates With New Strikes After Ukraine Takes the War to Russia**\
 `Ukraine is taking the war to Russia, but so far President Vladimir V. Putin’s response has been to keep attacking, including with deadly ballistic missile and drone strikes in Kyiv on Thursday.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-putin-ukraine-war-pressure.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/arts/design/jewish-museums-europe.html
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are in Murray Hill, Gramercy Park and Williamsburg.`\
 https://www.nytimes.com/2026/07/02/realestate/housing-market-nyc.html
-
-**What’s the Pollen Count? This Man Knows.**\
-`Guy Robinson measures the pollen in New York. This summer actually isn’t bad.`\
-https://www.nytimes.com/2026/07/02/nyregion/pollen-count-nyc.html
 
