@@ -1,3 +1,7 @@
+**Will There Ever Be Another Amendment to the Constitution?**\
+`The United States is celebrating its 250th birthday this summer. Jill Lepore, the Pulitzer Prize-winning historian and author, joined the “Book Review” podcast to discuss the nation’s past, and to imagine its future. She also offered a reading list for the occasion. Video by Patricia Sulbarán/The New York Times`\
+https://www.nytimes.com/video/podcasts/100000010992968/lepore-amendment.html
+
 **The Real Stakes of the American Story**\
 `Bryan Stevenson, the founder and executive director of the Equal Justice Initiative, recounts a pivotal moment in his visit to Nigeria — and what it revealed about America’s relationship with its history — on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-american-story.html
@@ -5,6 +9,10 @@ https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-ame
 **Happy Birthday, America**\
 `On the country’s 250th anniversary, what is actually being celebrated?`\
 https://www.nytimes.com/2026/07/02/world/america-250-anniversary-kyiv-vatican-taylor-swift.html
+
+**JD Vance and Melania Trump Also Had Sharp Earnings Increases in 2025**\
+`But the revenue brought in by the vice president and the first lady paled in comparison to that of President Trump.`\
+https://www.nytimes.com/2026/07/02/us/politics/vance-melania-trump-financial-disclosures.html
 
 **Ukraine escalates military pressure on Russian-held Crimea**\
 `Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
@@ -178,15 +186,7 @@ https://www.nytimes.com/video/world/europe/100000011006992/kyiv-neighborhood-bad
 `Ucrania ha llevado la guerra a Rusia, pero hasta ahora la respuesta del presidente Vladimir Putin ha sido seguir atacando, con mortíferos ataques con misiles balísticos y drones en Kiev el jueves.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/putin-ataque-kiev-guerra.html
 
-**Gary Glitter Is Charged With Assaulting a Young Girl in the 1970s**\
-`British prosecutors have charged the singer with multiple counts of indecent assault of a minor, including one of unlawful sex.`\
-https://www.nytimes.com/2026/07/02/arts/music/gary-glitter-charged.html
-
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
-
-**Immigrant Arrests Surge Amid ICE Enforcement Push**\
-`(No description)`\
-https://www.nytimes.com/live/2026/07/01/us/trump-news
 

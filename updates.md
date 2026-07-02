@@ -1,3 +1,15 @@
+**The Real Stakes of the American Story**\
+`Bryan Stevenson, the founder and executive director of the Equal Justice Initiative, recounts a pivotal moment in his visit to Nigeria — and what it revealed about America’s relationship with its history — on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-american-story.html
+
+**Happy Birthday, America**\
+`On the country’s 250th anniversary, what is actually being celebrated?`\
+https://www.nytimes.com/2026/07/02/world/america-250-anniversary-kyiv-vatican-taylor-swift.html
+
+**Carney Unveils Mega Projects to Boost Canada’s Trade With Asia**\
+`Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
+https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-alberta-british-columbia.html
+
 **Ukraine escalates military pressure on Russian-held Crimea**\
 `Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
