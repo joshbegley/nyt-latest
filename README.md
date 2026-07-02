@@ -1,3 +1,7 @@
+**Man Charged With Killing Postal Worker on Her Route in North Carolina**\
+`William Craig Durham, 56, faces murder and kidnapping charges in the death of Brandi Reynolds, 35, the authorities say.`\
+https://www.nytimes.com/2026/07/01/us/postal-worker-murder-north-carolina.html
+
 **NYT Crossword Answers for July 02, 2026**\
 `David J. Kahn takes us back to history class.`\
 https://www.nytimes.com/2026/07/01/crosswords/daily-puzzle-2026-07-02.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/01/espanol/opinion/venezuela-terremotos-corru
 **Celebrating the World Cup, the English Ask: Who Owns the Flag?**\
 `The national flag of England, a white banner with a bold red cross, has been displayed by soccer fans during the World Cup. But it has caused tension over whom, and what, it is meant to represent.`\
 https://www.nytimes.com/2026/07/01/world/europe/england-world-cup-flags.html
-
-**Trump Flies on New Air Force One Jet Gifted by Qatar**\
-`President Trump took his first flight on the new Air Force One, a luxury Boeing 747, on Wednesday. Mr. Trump’s decision to accept the jet from Qatar has prompted ethical concerns from lawmakers.`\
-https://www.nytimes.com/video/us/politics/100000011004086/trump-qatar-air-force-one.html
 
