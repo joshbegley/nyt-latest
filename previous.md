@@ -1,3 +1,7 @@
+**9 Buddhist Monks Killed After Boy Crashes Truck Into Procession**\
+`Another 11 were injured when the pickup truck hit the monks on a pilgrimage in northeast Thailand.`\
+https://www.nytimes.com/2026/07/02/world/asia/thailand-buddhist-monks-truck-crash.html
+
 **Russia’s Deadly Attack on Ukraine Reminds Europe of Its Vulnerabilities**\
 `Governments across the continent have increased military spending, but the strikes are another warning that they need to be prepared if the conflict crosses into NATO territory.`\
 https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-bioche
 `The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
 
-**Live Updates: Status Check on a Stabilizing Job Market**\
-`Data on hiring and the unemployment rate for June will provide the latest look at a U.S. economy where strong spending is confronting higher costs.`\
+**Live Updates: U.S. Hiring Continues at a Steady Pace**\
+`The economy added 57,000 jobs in June and the unemployment rate ticked down to 4.2 percent, according to a report released on Thursday.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
 **China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/realestate/housing-market-near-nyc.html
 **Fewer Visitors, More Threats: A New Reality for Europe’s Jewish Museums**\
 `Museum directors say they are facing a frustrating misconception: that cultural institutions funded by local taxpayers are somehow associated with Israel.`\
 https://www.nytimes.com/2026/07/02/arts/design/jewish-museums-europe.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Murray Hill, Gramercy Park and Williamsburg.`\
-https://www.nytimes.com/2026/07/02/realestate/housing-market-nyc.html
 

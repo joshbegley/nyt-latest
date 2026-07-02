@@ -1,3 +1,11 @@
+**9 Buddhist Monks Killed After Boy Crashes Truck Into Procession**\
+`Another 11 were injured when the pickup truck hit the monks on a pilgrimage in northeast Thailand.`\
+https://www.nytimes.com/2026/07/02/world/asia/thailand-buddhist-monks-truck-crash.html
+
+**Live Updates: U.S. Hiring Continues at a Steady Pace**\
+`The economy added 57,000 jobs in June and the unemployment rate ticked down to 4.2 percent, according to a report released on Thursday.`\
+https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
 **Russia’s Deadly Attack on Ukraine Reminds Europe of Its Vulnerabilities**\
 `Governments across the continent have increased military spending, but the strikes are another warning that they need to be prepared if the conflict crosses into NATO territory.`\
 https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html

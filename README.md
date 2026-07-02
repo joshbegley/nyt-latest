@@ -1,3 +1,7 @@
+**Searching for George Washington**\
+`Portfolio of George Washington Portraits`\
+https://static01.nyt.com/slideshow/2026/07/02/opinion/searching-for-george-washington.html
+
 **9 Buddhist Monks Killed After Boy Crashes Truck Into Procession**\
 `Another 11 were injured when the pickup truck hit the monks on a pilgrimage in northeast Thailand.`\
 https://www.nytimes.com/2026/07/02/world/asia/thailand-buddhist-monks-truck-crash.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/well/extreme-heat-dome-health-emergency.html
 **Homes for Sale in Connecticut and New York**\
 `This week’s properties are a three-bedroom house in Greenwich, Conn., and a four-bedroom house in East Hampton, N.Y.`\
 https://www.nytimes.com/2026/07/02/realestate/housing-market-near-nyc.html
-
-**Fewer Visitors, More Threats: A New Reality for Europe’s Jewish Museums**\
-`Museum directors say they are facing a frustrating misconception: that cultural institutions funded by local taxpayers are somehow associated with Israel.`\
-https://www.nytimes.com/2026/07/02/arts/design/jewish-museums-europe.html
 
