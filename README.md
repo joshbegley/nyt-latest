@@ -1,8 +1,16 @@
+**The Real Stakes of the American Story**\
+`Bryan Stevenson, the founder and executive director of the Equal Justice Initiative, recounts a pivotal moment in his visit to Nigeria — and what it revealed about America’s relationship with its history — on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-american-story.html
+
+**Happy Birthday, America**\
+`On the country’s 250th anniversary, what is actually being celebrated?`\
+https://www.nytimes.com/2026/07/02/world/america-250-anniversary-kyiv-vatican-taylor-swift.html
+
 **Ukraine escalates military pressure on Russian-held Crimea**\
 `Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
 
-**Carney Unveils Western Canada Mega-Projects to Boost Asia Trade**\
+**Carney Unveils Mega Projects to Boost Canada’s Trade With Asia**\
 `Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
 https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-alberta-british-columbia.html
 
@@ -173,14 +181,6 @@ https://www.nytimes.com/es/2026/07/02/espanol/mundo/putin-ataque-kiev-guerra.htm
 **Gary Glitter Is Charged With Assaulting a Young Girl in the 1970s**\
 `British prosecutors have charged the singer with multiple counts of indecent assault of a minor, including one of unlawful sex.`\
 https://www.nytimes.com/2026/07/02/arts/music/gary-glitter-charged.html
-
-**Tucker Carlson, Who Broke With Trump, Plans to ‘Help Build a Third Party’**\
-`The influential conservative commentator’s relationship with the president and the G.O.P. fractured over the war with Iran. Now, he says he is charting a new course.`\
-https://www.nytimes.com/2026/07/02/us/politics/tucker-carlson-third-party.html
-
-**To Reduce Electrical Grid Strain Amid Heat Wave, Data Centers Are Ordered to Use Backup Power**\
-`As triple-digit temperatures engulf much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
-https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

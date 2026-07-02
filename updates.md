@@ -1,3 +1,15 @@
+**Ukraine escalates military pressure on Russian-held Crimea**\
+`Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
+
+**Carney Unveils Western Canada Mega-Projects to Boost Asia Trade**\
+`Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
+https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-alberta-british-columbia.html
+
+**Immigrant Arrests Surge Amid ICE Enforcement Push**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/01/us/trump-news
+
 **El Vaticano excomulga a un grupo disidente, en la primera gran crisis del papa León**\
 `La medida contra la Fraternidad Sacerdotal San Pío X se produjo tras su decisión de desafiar al papa León XIV al consagrar nuevos obispos en contra de su voluntad.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/papa-leon-cisma-excomunion-lefebvrianos-fraternidad.html
