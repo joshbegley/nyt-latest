@@ -1,3 +1,11 @@
+**Deadly MV Hondius Hantavirus Outbreak Is Over, W.H.O. Says**\
+`The rodent-borne virus, which sickened passengers on the MV Hondius, killed three people, led to a race to find its origin and a global health alert.`\
+https://www.nytimes.com/2026/07/02/world/hantavirus-cruise-outbreak-timeline-events.html
+
+**Rescuers Pull Man Alive From Rubble, 8 Days After Venezuela Quakes**\
+`Rescuers pulled 44-year-old Hernán Gil from a collapsed basement on Thursday, eight days after earthquakes hit Venezuela.`\
+https://www.nytimes.com/video/world/americas/100000011008509/venezuela-earthquake-survivor-rescued.html
+
 **The Most Iconic American Artwork Is the Hardest to See**\
 `The Statue of Liberty is caught between the sublime and the souvenir, our critic Jason Farago explains. Look again: She’s much stranger than you think.`\
 https://www.nytimes.com/interactive/2026/07/02/arts/design/statue-of-liberty-history-france-us.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/07/02/nyregion/heat-wave-nyc-jamaica-queens.html
 **How New Yorkers Dressed for the Heat Wave**\
 `The streets became a backdrop for crop tops, World Cup gear and at least one aloha shirt.`\
 https://www.nytimes.com/2026/07/02/style/heat-wave-fashion-new-york.html
-
-**Court Blocks Firings of Intelligence Officers Who Worked on Diversity**\
-`The C.I.A. and Office of the Director of National Intelligence had tried to fire 19 officers at the beginning of the second Trump administration.`\
-https://www.nytimes.com/2026/07/02/us/politics/cia-odni-intelligence-diversity-court.html
-
-**See How Europe’s Heat Waves Melted the Alps’ Glaciers**\
-`The snowfall from last winter disappeared a month sooner than usual, after two early hot spells. Huge volumes of exposed ice are now starting to vanish.`\
-https://www.nytimes.com/2026/07/02/climate/europe-heat-waves-melting-glaciers.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

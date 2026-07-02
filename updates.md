@@ -1,3 +1,7 @@
+**With Attacks on Crimea, Ukraine Hopes to Pressure Putin to End the War**\
+`Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
+
 **Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
 `Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They avoided a conviction on the most serious charge but were found guilty of misdemeanors.`\
 https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
