@@ -1,3 +1,11 @@
+**Will There Ever Be Another Amendment to the Constitution?**\
+`The United States is celebrating its 250th birthday this summer. Jill Lepore, the Pulitzer Prize-winning historian and author, joined the “Book Review” podcast to discuss the nation’s past, and to imagine its future. She also offered a reading list for the occasion. Video by Patricia Sulbarán/The New York Times`\
+https://www.nytimes.com/video/podcasts/100000010992968/lepore-amendment.html
+
+**JD Vance and Melania Trump Also Had Sharp Earnings Increases in 2025**\
+`But the revenue brought in by the vice president and the first lady paled in comparison to that of President Trump.`\
+https://www.nytimes.com/2026/07/02/us/politics/vance-melania-trump-financial-disclosures.html
+
 **The Real Stakes of the American Story**\
 `Bryan Stevenson, the founder and executive director of the Equal Justice Initiative, recounts a pivotal moment in his visit to Nigeria — and what it revealed about America’s relationship with its history — on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-american-story.html

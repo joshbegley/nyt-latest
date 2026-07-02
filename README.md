@@ -1,3 +1,7 @@
+**How Heat Affects the Brain**\
+`A growing body of research has shown that our brains work differently when temperatures spike.`\
+https://www.nytimes.com/2026/07/02/climate/how-heat-affects-the-brain.html
+
 **Will There Ever Be Another Amendment to the Constitution?**\
 `The United States is celebrating its 250th birthday this summer. Jill Lepore, the Pulitzer Prize-winning historian and author, joined the “Book Review” podcast to discuss the nation’s past, and to imagine its future. She also offered a reading list for the occasion. Video by Patricia Sulbarán/The New York Times`\
 https://www.nytimes.com/video/podcasts/100000010992968/lepore-amendment.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/07/02/us/politics/vance-melania-trump-financial-dis
 `Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
 
-**Carney Unveils Mega Projects to Boost Canada’s Trade With Asia**\
+**Carney Unveils Multibillion Dollar Oil Pipeline Project to Boost Trade With Asia**\
 `Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
 https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-alberta-british-columbia.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/books/review/new-recommended-books.html
 **Kyiv Neighborhood Badly Damaged in Russian Attack**\
 `A large-scale Russian attack damaged several neighborhoods in the Ukrainian capital overnight on Thursday. We visited one that was particularly badly hit.`\
 https://www.nytimes.com/video/world/europe/100000011006992/kyiv-neighborhood-badly-damaged-in-russian-attack.html
-
-**Putin ataca Kiev ante presión de Ucrania**\
-`Ucrania ha llevado la guerra a Rusia, pero hasta ahora la respuesta del presidente Vladimir Putin ha sido seguir atacando, con mortíferos ataques con misiles balísticos y drones en Kiev el jueves.`\
-https://www.nytimes.com/es/2026/07/02/espanol/mundo/putin-ataque-kiev-guerra.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
