@@ -1,3 +1,11 @@
+**Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
+`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts and losing ground, analysts say.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html
+
+**Dutch and U.K. Governments Apologize for Their Roles in Forced Adoptions**\
+`In the Netherlands, more than 15,000 children were separated from their mothers from 1956 to 1984, causing “great sorrow and anger,” according to an official report on the practice.`\
+https://www.nytimes.com/2026/07/02/world/europe/dutch-government-forced-adoptions-apology.html
+
 **Bombs Bursting in Air Means Hours of Smoke and Terrified Dogs in D.C.**\
 `Organizers want the July 4 fireworks in the nation’s capital to break the world record. Pet owners, zoo keepers and asthma sufferers are not celebrating.`\
 https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
