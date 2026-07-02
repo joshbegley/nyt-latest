@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 02, 2026**\
+`David J. Kahn takes us back to history class.`\
+https://www.nytimes.com/2026/07/01/crosswords/daily-puzzle-2026-07-02.html
+
+**Maps: Tracking Tropical Storm Bavi**\
+`See the likely path and wind arrival times for Bavi`\
+https://www.nytimes.com/interactive/2026/07/01/weather/bavi-map-path-tracker.html
+
 **How a Nation of Immigrants Traces Its Roots**\
 `Melting pot, tapestry, mosaic, kaleidoscope, salad bowl. Every cliché is true.`\
 https://www.nytimes.com/interactive/2026/07/01/us/america-identity-ancestry-census.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/01/world/europe/england-world-cup-flags.html
 **Trump Flies on New Air Force One Jet Gifted by Qatar**\
 `President Trump took his first flight on the new Air Force One, a luxury Boeing 747, on Wednesday. Mr. Trump’s decision to accept the jet from Qatar has prompted ethical concerns from lawmakers.`\
 https://www.nytimes.com/video/us/politics/100000011004086/trump-qatar-air-force-one.html
-
-**Chris Brown’s Former Housekeeper Awarded $13 Million in Dog Mauling**\
-`The housekeeper said in her lawsuit that a dog weighing more than 200 pounds had “savagely” bitten her at the singer’s California home in 2020.`\
-https://www.nytimes.com/2026/07/01/arts/music/chris-brown-dog-mauling-verdict.html
-
-**Trump Administration Sues Over New Gun Bans in Virginia and California**\
-`The Justice Department is challenging a ban on semiautomatic assault rifles in Virginia and a ban on Glocks and Glock-style pistols in California, arguing they are unlawful under the Second Amendment.`\
-https://www.nytimes.com/2026/07/01/us/politics/justice-trump-suit-gun-ban-virginia-california.html
 

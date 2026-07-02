@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 02, 2026**\
+`David J. Kahn takes us back to history class.`\
+https://www.nytimes.com/2026/07/01/crosswords/daily-puzzle-2026-07-02.html
+
+**Maps: Tracking Tropical Storm Bavi**\
+`See the likely path and wind arrival times for Bavi`\
+https://www.nytimes.com/interactive/2026/07/01/weather/bavi-map-path-tracker.html
+
 **How a Nation of Immigrants Traces Its Roots**\
 `Melting pot, tapestry, mosaic, kaleidoscope, salad bowl. Every cliché is true.`\
 https://www.nytimes.com/interactive/2026/07/01/us/america-identity-ancestry-census.html
