@@ -1,3 +1,19 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006508/02vid-cassie-update-68155.html
+
+**Live Updates: Brutal Heat Wave Broils Eastern U.S.**\
+`Much of the Northeast is set to endure a hot spell that has already scorched the Midwest.`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
+**World Cup 2026: See How a Series of Quick Passes Led to the U.S. Team’s First Goal**\
+`View in 3-D how the U.S. men’s soccer team scored its opening goal in a 2-0 win over Bosnia and Herzegovina, advancing to the round of 16.`\
+https://www.nytimes.com/interactive/2026/07/02/sports/soccer/usa-bosnia-herzegovina-world-cup-goal-balogun.html
+
+**The Sporting Class: Hydration Breaks, FIFA Trials and a Condo Full of Cats**\
+`How to buy (and sell) the best tournament on Earth.`\
+https://www.nytimes.com/2026/07/02/podcasts/sporting-class-hydration-breaks-fifa-trials.html
+
 **Consejos para soportar una ‘cúpula de calor’**\
 `Los médicos de las salas de urgencia de EE. UU. se preparan para un doble golpe: el típico aumento de pacientes por el 4 de julio, muchos con lesiones relacionadas con los fuegos artificiales, y una segunda oleada de personas que sufren por el calor extremo.`\
 https://www.nytimes.com/es/2026/07/02/espanol/cupula-calor-extremo-consejos.html
