@@ -1,3 +1,79 @@
+**Consejos para soportar una ‘cúpula de calor’**\
+`Los médicos de las salas de urgencia de EE. UU. se preparan para un doble golpe: el típico aumento de pacientes por el 4 de julio, muchos con lesiones relacionadas con los fuegos artificiales, y una segunda oleada de personas que sufren por el calor extremo.`\
+https://www.nytimes.com/es/2026/07/02/espanol/cupula-calor-extremo-consejos.html
+
+**Why This Heat Wave Is Unusual for New York**\
+`Hot summer days are more dangerous when there are several in a row. Meteorologists are looking to earlier heat waves for the blueprint for this week’s.`\
+https://www.nytimes.com/2026/07/02/weather/new-york-heat-wave-forecast.html
+
+**How Trump Is Trying to Change the Electoral Process to Help Republicans**\
+`Here’s how President Trump is using the powers of his office to try to reshape the rules governing the midterms and future elections.`\
+https://www.nytimes.com/interactive/2026/07/02/us/politics/trump-midterm-election-strategies.html
+
+**Amy Coney Barrett Is the Lightning Rod**\
+`The Supreme Court seesaw is swinging hard.`\
+https://www.nytimes.com/2026/07/02/opinion/barrett-roverts-gorsuch-supreme-court-term.html
+
+**The Transgender Sports Decision Was About Something Deeper Than Law**\
+`It’s never just a game.`\
+https://www.nytimes.com/2026/07/02/opinion/trans-athletes-sports-supreme-court.html
+
+**A Mother and Daughter Planned Their Lives Together in Minnesota. What Would $300,000 Buy?**\
+`A former schoolteacher and her adult daughter, who has a disability, looked in and around the lake city of Duluth for a home of their very own.`\
+https://www.nytimes.com/interactive/2026/07/02/realestate/minnesota-duluth-cloquet-homes-sale-prices.html
+
+**Corrections: July 2, 2026**\
+`Corrections that appeared in print on Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/02/corrections/corrections-july-2-2026.html
+
+**Black Soldiers In the Revolutionary War: A New England Journey**\
+`Across New England, a writer traveled down dirt paths and into historic homes to find the forgotten stories of the enslaved men who fought for freedom on two fronts.`\
+https://www.nytimes.com/2026/07/02/travel/revolutionary-war-black-soldiers-history.html
+
+**A.I. Is Reshaping the Economy. Good Luck Measuring How.**\
+`Some data suggest artificial intelligence is already causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
+https://www.nytimes.com/2026/07/02/business/economy/ai-economy-data.html
+
+**Across a Scorching Ohio, Residents Endure Breathtaking Heat**\
+`The heat wave gripping much of the eastern half of the country over the past few days has been especially intense throughout the state.`\
+https://www.nytimes.com/2026/07/02/us/ohio-heat-dome.html
+
+**13 George Washington Interpreters on Embodying an Icon**\
+`How a coterie of men are trying to bring one of America’s founding fathers into the present.`\
+https://www.nytimes.com/interactive/2026/07/02/opinion/george-washington-interpreters-history.html
+
+**Map: See Taylor Swift's NYC Hotspots Ahead of Her MSG Wedding**\
+`Ahead of the superstar’s Manhattan nuptials, take a little tour of some of her haunts around the city.`\
+https://www.nytimes.com/interactive/2026/07/02/style/taylor-swift-nyc-spots.html
+
+**36 Hours in Philadelphia, Pennsylvania: Things to Do and See**\
+`Philadelphia may be the birthplace of American democracy, but its world-class museums and thrilling dining scene are just as revolutionary.`\
+https://www.nytimes.com/interactive/2026/07/02/travel/things-to-do-philadelphia.html
+
+**An Ancient Grain Finds New Fans**\
+`Plus: Shaker-inspired table linens, Faye Toogood’s new furniture and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/07/02/t-magazine/ancient-grain-sorghum-finds-new-fans.html
+
+**Solve the July Bonus Puzzle**\
+`This month’s soccer-themed puzzle was co-constructed by Katie Hale and Adesina O. Koiki.`\
+https://www.nytimes.com/2026/07/02/crosswords/bonus-puzzle-soccer-world-cup.html
+
+**Scientists React to the Lab-Made, Yet Lifelike, SpudCell**\
+`This cell-like structure can grow, feed, divide and compete. Researchers ponder what it means for the future of synthetic biology and our definition of “life.”`\
+https://www.nytimes.com/2026/07/02/science/spudcell-scientists-reaction.html
+
+**Is There Life Out Here?**\
+`Doug Aitken’s sprawling, elusive video installation asks a lot of questions about contemporary L.A. and its environs, and it’s smart enough not to answer them.`\
+https://www.nytimes.com/2026/07/02/arts/is-there-life-out-here.html
+
+**In Potato Salad We Trust**\
+`An argument for its place atop the list of great American dishes.`\
+https://www.nytimes.com/2026/07/02/podcasts/cannonball-potato-salad.html
+
+**How to Stay Safe in a ‘Heat Dome’**\
+`Extreme temperatures over the Fourth of July weekend will put a strain on emergency rooms.`\
+https://www.nytimes.com/2026/07/02/well/extreme-heat-dome-health-emergency.html
+
 **Homes for Sale in Connecticut and New York**\
 `This week’s properties are a three-bedroom house in Greenwich, Conn., and a four-bedroom house in East Hampton, N.Y.`\
 https://www.nytimes.com/2026/07/02/realestate/housing-market-near-nyc.html
@@ -117,80 +193,4 @@ https://www.nytimes.com/2026/07/02/business/jaguar-electric-cars.html
 **Mass Mournings,6 Days and 2 Countries: Iran Prepares to Bury Supreme Leader**\
 `Long-delayed funeral ceremonies for Ayatollah Ali Khamenei, killed during U.S.-Israeli strikes at the war’s outset, are set to begin Friday. For the regime, it is a critical moment to demonstrate that it has endured.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/iran-funeral-ali-khamenei-preparations.html
-
-**U.S. Says Iran May Swap Ideology For Investment. History Shows Otherwise**\
-`Senior U.S. officials have said Iran would be richly rewarded for changing its stance on the United States. Iran’s leaders have rejected such a bargain in the past.`\
-https://www.nytimes.com/2026/07/02/world/middleeast/us-iran-negotiations-economy-opening-up.html
-
-**Drones over Europe raise concerns about Russian activities**\
-`A new study, backed up by analysts and political leaders, says frequent drone flights over NATO military assets mark a Russian campaign to probe defenses and gather information.`\
-https://www.nytimes.com/2026/07/02/world/europe/drone-incursions-europe-russia.html
-
-**Imprisoned Chinese Journalist Seeks Medical Parole for Lung Tumor**\
-`Dong Yuyu is stuck in a dispute with prison authorities in Beijing over where to get treated for a possible cancer, his family said.`\
-https://www.nytimes.com/2026/07/02/world/asia/jailed-chinese-journalist-dong-yuyu-lung-tumor.html
-
-**Live Updates: Russia Hammers Ukraine’s Capital in Deadly Attacks**\
-`(No description)`\
-https://www.nytimes.com/live/2026/07/02/world/ukraine-kyiv-russia-attack
-
-**Workers Endure Sweltering Conditions as Heat Wave Intensifies**\
-`Some workers dealt with sweltering conditions as others found business opportunities amid a heat wave that was intensifying in the Northeast.`\
-https://www.nytimes.com/video/us/100000011006139/extreme-heat-workers.html
-
-**Word of the Day: penury**\
-`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/02/learning/word-of-the-day-penury.html
-
-**SpudCell, la célula sintética que podría cambiar la investigación médica**\
-`SpudCell no está viva en sentido estricto, pero reproduce varias funciones esenciales y abre una nueva etapa en la biología sintética.`\
-https://www.nytimes.com/es/2026/07/02/espanol/ciencia-y-tecnologia/spudcell-celula-sintetica.html
-
-**El verdadero significado del sionismo**\
-`El mal uso de la palabra ha simplificado en exceso su complejidad.`\
-https://www.nytimes.com/es/2026/07/02/espanol/opinion/sionismo-palabra-significado.html
-
-**La bandera de Inglaterra, entre el fútbol y la política**\
-`Mientras avanza la Copa del Mundo, la cruz de San Jorge vuelve a ondear en casas y calles, pero para muchos ya no representa lo mismo.`\
-https://www.nytimes.com/es/2026/07/02/espanol/mundo/mundial-inglaterra-bandera.html
-
-**It’s Too Hot to Cook. But Food Truck Workers Have No Choice.**\
-`The heat wave in New York this week is even hotter for those working, often without air-conditioning, in the carts that line city blocks.`\
-https://www.nytimes.com/2026/07/02/nyregion/food-truck-nyc-hot-weather.html
-
-**A Parade of Tall Ships Is Heading to New York. Here’s What to Know.**\
-`The Hudson River will be filled with dozens of tall ships from at least 20 nations this Fourth of July for Sail4th 250.`\
-https://www.nytimes.com/2026/07/02/nyregion/tall-ships-parade-nyc.html
-
-**NYT Spelling Bee Answers for July 2, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/02/crosswords/spelling-bee-forum.html
-
-**Teenage Cadets Hospitalized in New York State After Bus Air Conditioning Fails**\
-`The authorities said the cadets — it wasn’t clear how many — were removed from a bus in New York State’s Hudson Valley after suffering heat-related illnesses.`\
-https://www.nytimes.com/2026/07/02/nyregion/heat-cadets-bus-new-york.html
-
-**Estos son algunos detalles de la boda de Taylor Swift en el Madison Square Garden**\
-`Según un memorándum interno de la policía de Nueva York, el evento comenzará a las 5:30 p. m. y terminará cerca de las 2 a. m.`\
-https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/taylor-swift-detalles-boda-ny.html
-
-**Los ingresos de Trump durante su presidencia no tienen precedente histórico**\
-`La decisión del presidente de poner en marcha nuevos proyectos empresariales, en lugar de eliminar posibles conflictos de intereses, va en contra de una tradición muy arraigada.`\
-https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ingresos-donald-trump-presidencia.html
-
-**Chanel Is Buying Charvet, the World’s Oldest Shirt Maker**\
-`The French luxury group is acquiring Charvet, a Parisian brand that dates to the 1830s, in a bid to add some men’s wear savoir-faire to its portfolio.`\
-https://www.nytimes.com/2026/07/02/style/chanel-charvet-acquisition.html
-
-**The World Has Failed the Uyghurs**\
-`If the global community can’t stop China’s atrocities against the Uyghurs, it must help us keep our culture alive in exile.`\
-https://www.nytimes.com/2026/07/02/opinion/uyghurs-china.html
-
-**Cómo la guerra en Irán enfrentó a Trump y el príncipe heredero saudita**\
-`Mohammed bin Salman había presionado al presidente Trump para que debilitara a Irán. Pero a medida que Irán iba demostrando su poder, el príncipe instó a un alto al fuego y ahora se enfoca en sus prioridades de seguridad.`\
-https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-principe-heredero-arabia-saudita-iran.html
-
-**Kyiv Takes Shelter From Overnight Strikes by Russia**\
-`Residents of the Ukrainian capital of Kyiv came prepared to spend the night underground as Russia fired attack drones and ballistic missiles.`\
-https://www.nytimes.com/video/world/europe/100000011006135/ukraine-kyiv-russia-attack.html
 

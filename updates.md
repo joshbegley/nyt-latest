@@ -1,3 +1,79 @@
+**Consejos para soportar una ‘cúpula de calor’**\
+`Los médicos de las salas de urgencia de EE. UU. se preparan para un doble golpe: el típico aumento de pacientes por el 4 de julio, muchos con lesiones relacionadas con los fuegos artificiales, y una segunda oleada de personas que sufren por el calor extremo.`\
+https://www.nytimes.com/es/2026/07/02/espanol/cupula-calor-extremo-consejos.html
+
+**Why This Heat Wave Is Unusual for New York**\
+`Hot summer days are more dangerous when there are several in a row. Meteorologists are looking to earlier heat waves for the blueprint for this week’s.`\
+https://www.nytimes.com/2026/07/02/weather/new-york-heat-wave-forecast.html
+
+**How Trump Is Trying to Change the Electoral Process to Help Republicans**\
+`Here’s how President Trump is using the powers of his office to try to reshape the rules governing the midterms and future elections.`\
+https://www.nytimes.com/interactive/2026/07/02/us/politics/trump-midterm-election-strategies.html
+
+**Amy Coney Barrett Is the Lightning Rod**\
+`The Supreme Court seesaw is swinging hard.`\
+https://www.nytimes.com/2026/07/02/opinion/barrett-roverts-gorsuch-supreme-court-term.html
+
+**The Transgender Sports Decision Was About Something Deeper Than Law**\
+`It’s never just a game.`\
+https://www.nytimes.com/2026/07/02/opinion/trans-athletes-sports-supreme-court.html
+
+**A Mother and Daughter Planned Their Lives Together in Minnesota. What Would $300,000 Buy?**\
+`A former schoolteacher and her adult daughter, who has a disability, looked in and around the lake city of Duluth for a home of their very own.`\
+https://www.nytimes.com/interactive/2026/07/02/realestate/minnesota-duluth-cloquet-homes-sale-prices.html
+
+**Corrections: July 2, 2026**\
+`Corrections that appeared in print on Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/02/corrections/corrections-july-2-2026.html
+
+**Black Soldiers In the Revolutionary War: A New England Journey**\
+`Across New England, a writer traveled down dirt paths and into historic homes to find the forgotten stories of the enslaved men who fought for freedom on two fronts.`\
+https://www.nytimes.com/2026/07/02/travel/revolutionary-war-black-soldiers-history.html
+
+**A.I. Is Reshaping the Economy. Good Luck Measuring How.**\
+`Some data suggest artificial intelligence is already causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
+https://www.nytimes.com/2026/07/02/business/economy/ai-economy-data.html
+
+**Across a Scorching Ohio, Residents Endure Breathtaking Heat**\
+`The heat wave gripping much of the eastern half of the country over the past few days has been especially intense throughout the state.`\
+https://www.nytimes.com/2026/07/02/us/ohio-heat-dome.html
+
+**13 George Washington Interpreters on Embodying an Icon**\
+`How a coterie of men are trying to bring one of America’s founding fathers into the present.`\
+https://www.nytimes.com/interactive/2026/07/02/opinion/george-washington-interpreters-history.html
+
+**Map: See Taylor Swift's NYC Hotspots Ahead of Her MSG Wedding**\
+`Ahead of the superstar’s Manhattan nuptials, take a little tour of some of her haunts around the city.`\
+https://www.nytimes.com/interactive/2026/07/02/style/taylor-swift-nyc-spots.html
+
+**36 Hours in Philadelphia, Pennsylvania: Things to Do and See**\
+`Philadelphia may be the birthplace of American democracy, but its world-class museums and thrilling dining scene are just as revolutionary.`\
+https://www.nytimes.com/interactive/2026/07/02/travel/things-to-do-philadelphia.html
+
+**An Ancient Grain Finds New Fans**\
+`Plus: Shaker-inspired table linens, Faye Toogood’s new furniture and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/07/02/t-magazine/ancient-grain-sorghum-finds-new-fans.html
+
+**Solve the July Bonus Puzzle**\
+`This month’s soccer-themed puzzle was co-constructed by Katie Hale and Adesina O. Koiki.`\
+https://www.nytimes.com/2026/07/02/crosswords/bonus-puzzle-soccer-world-cup.html
+
+**Scientists React to the Lab-Made, Yet Lifelike, SpudCell**\
+`This cell-like structure can grow, feed, divide and compete. Researchers ponder what it means for the future of synthetic biology and our definition of “life.”`\
+https://www.nytimes.com/2026/07/02/science/spudcell-scientists-reaction.html
+
+**Is There Life Out Here?**\
+`Doug Aitken’s sprawling, elusive video installation asks a lot of questions about contemporary L.A. and its environs, and it’s smart enough not to answer them.`\
+https://www.nytimes.com/2026/07/02/arts/is-there-life-out-here.html
+
+**In Potato Salad We Trust**\
+`An argument for its place atop the list of great American dishes.`\
+https://www.nytimes.com/2026/07/02/podcasts/cannonball-potato-salad.html
+
+**How to Stay Safe in a ‘Heat Dome’**\
+`Extreme temperatures over the Fourth of July weekend will put a strain on emergency rooms.`\
+https://www.nytimes.com/2026/07/02/well/extreme-heat-dome-health-emergency.html
+
 **Homes for Sale in Connecticut and New York**\
 `This week’s properties are a three-bedroom house in Greenwich, Conn., and a four-bedroom house in East Hampton, N.Y.`\
 https://www.nytimes.com/2026/07/02/realestate/housing-market-near-nyc.html
