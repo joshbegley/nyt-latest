@@ -1,3 +1,7 @@
+**Immigrant Arrests Surge to 10,000 in 5 Days as ICE Clamps Down**\
+`The agency has doubled its daily arrest numbers without the fanfare of last year’s large urban operations, sowing fear in immigrant communities.`\
+https://www.nytimes.com/2026/07/01/us/politics/ice-immigrant-arrests-surge.html
+
 **How Trump Made ‘Y.M.C.A.’ His Anthem, Despite the Village People and Victor Willis’s Mixed Feelings**\
 `On social media, he said the Village People’s lead singer, Victor Willis, was with him “right from the beginning.” But the president has a more complicated history with the group.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-ymca-anthem-village-people.html
