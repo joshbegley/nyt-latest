@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
 `On Thursday, residents picked through the rubble after Russia bombarded Ukraine’s capital with a deadly wave of attacks. Local officials said that at least 27 people were killed and dozens more were injured as of Thursday evening.`\
 https://www.nytimes.com/video/world/europe/100000011007183/ukraine-kyiv-residents-russia-attack.html
 
-**What the Pursuit of Happiness Looks Like, 250 Years In**\
-`We asked dozens of people how they pursue happiness, one of three inalienable rights laid out in the Declaration of Independence. A single theme stood out: To strive is to be American.`\
-https://www.nytimes.com/interactive/2026/07/02/us/america-pursuit-happiness.html
-
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
