@@ -1,3 +1,11 @@
+**Tucker Carlson, Who Broke With Trump, Plans to ‘Help Build a Third Party’**\
+`The influential conservative commentator’s relationship with the president and the G.O.P. fractured over the war with Iran. Now, he says he is charting a new course.`\
+https://www.nytimes.com/2026/07/02/us/politics/tucker-carlson-third-party.html
+
+**As U.S. Faces Extreme Heat, Data Centers Are Ordered to Use Backup Power to Prevent Blackouts**\
+`As triple-digit heat engulfs much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
+https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
+
 **Energy Department Orders Data Centers to Tap Backup Power**\
 `As triple-digit heat engulfs much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
 https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
