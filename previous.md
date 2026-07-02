@@ -1,3 +1,7 @@
+**Cómo la guerra en Irán enfrentó a Trump y el príncipe heredero saudita**\
+`Mohammed bin Salman había presionado al presidente Trump para que debilitara a Irán. Pero a medida que Irán iba demostrando su poder, el príncipe instó a un alto al fuego y ahora se enfoca en sus prioridades de seguridad.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-principe-heredero-arabia-saudita-iran.html
+
 **Kyiv Takes Shelter From Overnight Strikes by Russia**\
 `Residents of the Ukrainian capital of Kyiv came prepared to spend the night underground as Russia fired attack drones and ballistic missiles.`\
 https://www.nytimes.com/video/world/europe/100000011006135/ukraine-kyiv-russia-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/us/navy-helicopter-rescue-missing-person.html
 **Minnesota Pardons Sexual Abuser Who Was Set to Be Deported**\
 `Tou Lue Vang has expressed regret for abusing a 10-year-old two decades ago. The Trump administration accused Gov. Tim Walz, a Democrat, of shielding an immigrant who committed a serious crime.`\
 https://www.nytimes.com/2026/07/01/us/politics/minnesota-pardon-sexual-abuser.html
-
-**Robby Hoffman on Being Outed at 17**\
-`On “The Interview,” the comedian Robby Hoffman talked about what it was like to have her relationship with her girlfriend exposed when she was 17.`\
-https://www.nytimes.com/video/podcasts/100000011005264/robby-hoffman-on-being-outed-at-17.html
 
