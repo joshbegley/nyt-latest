@@ -1,3 +1,11 @@
+**SpudCell, la célula sintética que podría cambiar la investigación médica**\
+`SpudCell no está viva en sentido estricto, pero reproduce varias funciones esenciales y abre una nueva etapa en la biología sintética.`\
+https://www.nytimes.com/es/2026/07/02/espanol/ciencia-y-tecnologia/spudcell-celula-sintetica.html
+
+**El verdadero significado del sionismo**\
+`El mal uso de la palabra ha simplificado en exceso su complejidad.`\
+https://www.nytimes.com/es/2026/07/02/espanol/opinion/sionismo-palabra-significado.html
+
 **La bandera de Inglaterra, entre el fútbol y la política**\
 `Mientras avanza la Copa del Mundo, la cruz de San Jorge vuelve a ondear en casas y calles, pero para muchos ya no representa lo mismo.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/mundial-inglaterra-bandera.html

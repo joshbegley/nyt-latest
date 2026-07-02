@@ -1,3 +1,11 @@
+**SpudCell, la célula sintética que podría cambiar la investigación médica**\
+`SpudCell no está viva en sentido estricto, pero reproduce varias funciones esenciales y abre una nueva etapa en la biología sintética.`\
+https://www.nytimes.com/es/2026/07/02/espanol/ciencia-y-tecnologia/spudcell-celula-sintetica.html
+
+**El verdadero significado del sionismo**\
+`El mal uso de la palabra ha simplificado en exceso su complejidad.`\
+https://www.nytimes.com/es/2026/07/02/espanol/opinion/sionismo-palabra-significado.html
+
 **La bandera de Inglaterra, entre el fútbol y la política**\
 `Mientras avanza la Copa del Mundo, la cruz de San Jorge vuelve a ondear en casas y calles, pero para muchos ya no representa lo mismo.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/mundial-inglaterra-bandera.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/01/espanol/america-latina/venezuela-terremoto
 **Ukraine Takes the War to Russia**\
 `Kyiv’s aim is simple: Put enough pressure on President Vladimir Putin that he agrees to end the war. Will it work?`\
 https://www.nytimes.com/2026/07/01/world/ukraine-war-russia-putin-maduro-harry-kane.html
-
-**Three People Die During Mexico City’s World Cup Celebrations**\
-`A man and two women died from asphyxiation during World Cup celebrations in Mexico City following the National Teams win over Ecuador on Tuesday, local authorities said.`\
-https://www.nytimes.com/video/world/americas/100000011004349/people-dead-mexico-city-world-cup.html
-
-**Crypto Brought Trump a Huge Windfall, Even as Many Investors Lost Big**\
-`President Trump and his family reaped vast financial rewards from a memecoin that generated losses for hundreds of thousands of investors.`\
-https://www.nytimes.com/2026/07/01/us/politics/trump-crypto-memecoin-world-liberty.html
 
