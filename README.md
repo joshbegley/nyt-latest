@@ -1,3 +1,7 @@
+**Boston Suburb Imposes Curfew for Cape Verde’s Next World Cup Match**\
+`The curfew in Brockton, Mass., a city with a large Cape Verdean community, takes effect after Friday’s match against Argentina. Celebrations of the team’s opening games turned chaotic.`\
+https://www.nytimes.com/2026/07/02/sports/world-cup/brockton-curfew-boston-cape-verde.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006585/02ukraine-reporter-updates-F0BE8MBG2T1.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/theater/basura-gloria-and-emily-estefan-inter
 **Gertrude Abercrombie: Good Witch of the American Absurd**\
 `In Milwaukee, two art exhibitions relish the strangeness of this studious eccentric who saw in inanimate objects an odd force of will.`\
 https://www.nytimes.com/2026/07/02/arts/design/gertrude-abercrombie-milwaukee-museum.html
-
-**Plans for Unrealized ‘Trump Castle’ Surface 40 Years Later**\
-`The 800-foot-tall residential development was designed by the architects Philip Johnson and John Burgee, but scrapped before construction. An archivist saved the rough draft.`\
-https://www.nytimes.com/2026/07/02/arts/trump-castle-plans-philip-johnson.html
 

@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006585/02ukraine-reporter-updates-F0BE8MBG2T1.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006577/02vid-hotel-fire-82638.html
 
 ****\
