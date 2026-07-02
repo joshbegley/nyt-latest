@@ -1,3 +1,23 @@
+**La bandera de Inglaterra, entre el fútbol y la política**\
+`Mientras avanza la Copa del Mundo, la cruz de San Jorge vuelve a ondear en casas y calles, pero para muchos ya no representa lo mismo.`\
+https://www.nytimes.com/es/2026/07/02/espanol/mundo/mundial-inglaterra-bandera.html
+
+**It’s Too Hot to Cook. But Food Truck Workers Have No Choice.**\
+`The heat wave in New York this week is even hotter for those working, often without air-conditioning, in the carts that line city blocks.`\
+https://www.nytimes.com/2026/07/02/nyregion/food-truck-nyc-hot-weather.html
+
+**A Parade of Tall Ships Is Heading to New York. Here’s What to Know.**\
+`The Hudson River will be filled with dozens of tall ships from at least 20 nations this Fourth of July for Sail4th 250.`\
+https://www.nytimes.com/2026/07/02/nyregion/tall-ships-parade-nyc.html
+
+**NYT Spelling Bee Answers for July 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/02/crosswords/spelling-bee-forum.html
+
+**Teenage Cadets Hospitalized in New York State After Bus Air Conditioning Fails**\
+`The authorities said the cadets — it wasn’t clear how many — were removed from a bus in New York State’s Hudson Valley after suffering heat-related illnesses.`\
+https://www.nytimes.com/2026/07/02/nyregion/heat-cadets-bus-new-york.html
+
 **Estos son algunos detalles de la boda de Taylor Swift en el Madison Square Garden**\
 `Según un memorándum interno de la policía de Nueva York, el evento comenzará a las 5:30 p. m. y terminará cerca de las 2 a. m.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/taylor-swift-detalles-boda-ny.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011004349/people-dead-mexico-
 **Crypto Brought Trump a Huge Windfall, Even as Many Investors Lost Big**\
 `President Trump and his family reaped vast financial rewards from a memecoin that generated losses for hundreds of thousands of investors.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-crypto-memecoin-world-liberty.html
-
-**JD Vance Defends Iran War in Speech to Military Members**\
-`The vice president, a staunch critic of foreign wars, accused the president’s detractors of trying to prolong a conflict the administration was trying to end.`\
-https://www.nytimes.com/2026/07/01/us/vance-iran-war-military.html
-
-**The Heat Wave Proves That We Need to Adapt to Climate Change**\
-`The world’s infrastructure was built for a climate we no longer have.`\
-https://www.nytimes.com/2026/07/01/opinion/heat-wave-europe-america.html
-
-**The Good List: 7 Things to Add Joy to Your Day**\
-`Old menus, vivid lightning and Richard Grant sniffing things.`\
-https://www.nytimes.com/2026/07/01/briefing/the-good-list-ram-dass-handwriting.html
-
-**U.S. to Overhaul Radiation Safety Rules to Spur Nuclear Expansion**\
-`The Nuclear Regulatory Commission plans to end longstanding guidance that radiation exposure be “as low as reasonably achievable.”`\
-https://www.nytimes.com/2026/07/01/climate/nrc-radiation-regulation-nuclear-overhaul.html
-
-**Two People Arrested After Climbing Empire State Building Spire**\
-`A couple, Angela Nikolau and Ivan Beerkus, climbed the spire of the Empire State Building on Wednesday and displayed a black flag with a quote on it. The police said that they were arrested.`\
-https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new-york-nyc.html
 

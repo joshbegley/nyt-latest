@@ -1,3 +1,23 @@
+**La bandera de Inglaterra, entre el fútbol y la política**\
+`Mientras avanza la Copa del Mundo, la cruz de San Jorge vuelve a ondear en casas y calles, pero para muchos ya no representa lo mismo.`\
+https://www.nytimes.com/es/2026/07/02/espanol/mundo/mundial-inglaterra-bandera.html
+
+**It’s Too Hot to Cook. But Food Truck Workers Have No Choice.**\
+`The heat wave in New York this week is even hotter for those working, often without air-conditioning, in the carts that line city blocks.`\
+https://www.nytimes.com/2026/07/02/nyregion/food-truck-nyc-hot-weather.html
+
+**A Parade of Tall Ships Is Heading to New York. Here’s What to Know.**\
+`The Hudson River will be filled with dozens of tall ships from at least 20 nations this Fourth of July for Sail4th 250.`\
+https://www.nytimes.com/2026/07/02/nyregion/tall-ships-parade-nyc.html
+
+**NYT Spelling Bee Answers for July 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/02/crosswords/spelling-bee-forum.html
+
+**Teenage Cadets Hospitalized in New York State After Bus Air Conditioning Fails**\
+`The authorities said the cadets — it wasn’t clear how many — were removed from a bus in New York State’s Hudson Valley after suffering heat-related illnesses.`\
+https://www.nytimes.com/2026/07/02/nyregion/heat-cadets-bus-new-york.html
+
 **Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
 `At least 13 people were killed in the assault, which began hours after President Volodymyr Zelensky of Ukraine warned that Russia was preparing another “massive strike” on Kyiv.`\
 https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
