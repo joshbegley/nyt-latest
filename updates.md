@@ -1,3 +1,7 @@
+**Trump Finds His Presidential Alter Ego, the ‘He-Man’ Teddy Roosevelt**\
+`President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, whom he called “a great he-man.”`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-north-dakota-roosevelt-library.html
+
 **What America’s 250th Means to Mamdani**\
 `Mayor Zohran Mamdani has not actively pushed New York City’s role in the nation’s anniversary celebrations, in part because of the complexities he sees in the country’s past and present.`\
 https://www.nytimes.com/2026/07/01/nyregion/mamdani-usa-250-birthday-nyc.html
