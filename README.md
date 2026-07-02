@@ -1,3 +1,11 @@
+**¿Qué tanto le preocupan a Trump los conflictos de intereses?**\
+`Trump obtuvo al menos 2.2 millardos de dólares en su primer año de vuelta a la Casa Blanca, pero su actitud sobre mezclar negocios y política es clara: “Me di cuenta de que a nadie le importaba”.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-dinero-negocios-conflicto-interes.html
+
+**Less Than 10 Percent of Eligible Children Have Trump Accounts**\
+`More than six million have been signed up for the investment accounts, which open for contributions July 4, but there are barriers to uptake.`\
+https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.html
+
 **Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
 `Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They were each convicted of several misdemeanors, but avoided a conviction on a charge that had a potential 15-year prison sentence.`\
 https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/07/02/briefing/today-in-short.html
 **Private Credit Can’t Stop the ‘Freak Out’**\
 `On Thursday, Blue Owl reported another quarter of significant investor withdrawal requests from some of its private credit funds.`\
 https://www.nytimes.com/2026/07/02/business/private-credit-withdrawals.html
-
-**Bomb Explodes at Damascus Cafe, Killing at Least 6**\
-`The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent instability as its leaders try to chart a path out of years of dictatorship and war.`\
-https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
-
-**Herbert Lust, Collector Who Befriended Giacometti, Dies at 99**\
-`He gravitated toward the work of artists he knew personally, like Alexander Calder and Robert Indiana, in amassing an unusual, important collection.`\
-https://www.nytimes.com/2026/07/02/arts/design/herbert-c-lust-dead.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
