@@ -1,3 +1,11 @@
+**Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
+`Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They were each convicted of several misdemeanors, but avoided a conviction on a charge that had a potential 15-year prison sentence.`\
+https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
+
+**This Is the Sandwich of the Summer**\
+`Once you learn about this Italian specialty, you’ll start seeing it everywhere.`\
+https://www.nytimes.com/2026/07/02/dining/sandwich-of-the-summer-piadina.html
+
 **Teenage Boys Who Raped Girls in Fordingbridge, England, Have Sentences Revised**\
 `Two teenagers were given four-year custodial sentences on Thursday after an appeals court determined that their earlier sentencing, which included no time in detention, was too lenient.`\
 https://www.nytimes.com/2026/07/02/world/europe/teenagers-rape-england-sentencing.html
@@ -169,18 +177,6 @@ https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
 **Herbert Lust, Collector Who Befriended Giacometti, Dies at 99**\
 `He gravitated toward the work of artists he knew personally, like Alexander Calder and Robert Indiana, in amassing an unusual, important collection.`\
 https://www.nytimes.com/2026/07/02/arts/design/herbert-c-lust-dead.html
-
-**India and Japan Expand Defense and Economic Ties**\
-`The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
-https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
-
-**Escalaron el Empire State para comprometerse. Terminaron detenidos**\
-`La pareja de escaladores extremos subió el miércoles a lo alto del emblemático edificio y desplegó una gran pancarta negra a cientos de metros de altura sobre la ciudad.`\
-https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escaladores.html
-
-**Kyiv Residents Pick Up the Pieces After the Latest Russian Assault**\
-`The latest deadly night in Ukraine, more than four years after Russia’s full-scale invasion, showed how the toll for civilians continues to mount.`\
-https://www.nytimes.com/2026/07/02/world/europe/kyiv-strikes-civilians.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\

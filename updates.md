@@ -1,3 +1,11 @@
+**Teenage Boys Who Raped Girls in Fordingbridge, England, Have Sentences Revised**\
+`Two teenagers were given four-year custodial sentences on Thursday after an appeals court determined that their earlier sentencing, which included no time in detention, was too lenient.`\
+https://www.nytimes.com/2026/07/02/world/europe/teenagers-rape-england-sentencing.html
+
+**Fast-Moving Wildfire Forces Hundreds of Evacuations near Pueblo, Colorado**\
+`The Aspen Acres fire, near Pueblo, Colo., has burned more than 50,000 acres and destroyed hundreds of structures.`\
+https://www.nytimes.com/2026/07/02/us/aspen-acres-wildfire-pueblo-colorado-evacuations.html
+
 **In Potato Salad We Trust**\
 `Wesley takes us into the streets of New York, then to food historian Jessica B. Harris and finally to The Times’ Cooking Studio to make his family’s recipe and to find answers to this nagging question: Is potato salad the national dish?`\
 https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.html
