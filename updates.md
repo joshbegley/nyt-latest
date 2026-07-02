@@ -1,3 +1,7 @@
+**In Potato Salad We Trust**\
+`Wesley takes us into the streets of New York, then to food historian Jessica B. Harris and finally to The Times’ Cooking Studio to make his family’s recipe and to find answers to this nagging question: Is potato salad the national dish?`\
+https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.html
+
 **Three Ways Trump Is Strangling Economic Growth**\
 `Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
 https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html

@@ -1,3 +1,7 @@
+**In Potato Salad We Trust**\
+`Wesley takes us into the streets of New York, then to food historian Jessica B. Harris and finally to The Times’ Cooking Studio to make his family’s recipe and to find answers to this nagging question: Is potato salad the national dish?`\
+https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.html
+
 **Three Ways Trump Is Strangling Economic Growth**\
 `Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
 https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefi
 **Dutch and U.K. Governments Apologize for Their Roles in Forced Adoptions**\
 `In the Netherlands, more than 15,000 children were separated from their mothers from 1956 to 1984, causing “great sorrow and anger,” according to an official report on the practice.`\
 https://www.nytimes.com/2026/07/02/world/europe/dutch-government-forced-adoptions-apology.html
-
-**Bombs Bursting in Air Means Hours of Smoke and Confused Dogs in D.C.**\
-`Organizers want the July 4 fireworks in the nation’s capital to break the world record. But the fun will also come with air pollution and possibly headaches for pet owners and zoo keepers.`\
-https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
