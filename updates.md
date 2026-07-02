@@ -1,3 +1,7 @@
+**‘Caso Leire’: un juez de España investiga a la directora de la Guardia Civil**\
+`El caso contra Mercedes González forma parte de una pesquisa más amplia sobre si los aliados del presidente Sánchez buscaron obstaculizar las investigaciones sobre personas cercanas a él.`\
+https://www.nytimes.com/es/2026/07/02/espanol/mundo/espana-investigacion-guardia-civil.html
+
 **In Tumultuous Term, Chief Justice Roberts Took Charge of Unruly Supreme Court**\
 `The chief justice faced down the president, forged unlikely coalitions and achieved long-sought goals.`\
 https://www.nytimes.com/2026/07/02/us/politics/the-docket-roberts-supreme-court.html
