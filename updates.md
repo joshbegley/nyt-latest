@@ -1,3 +1,11 @@
+**Did You Recently Buy a Home in New York? We Want to Hear Your Story.**\
+`From the five boroughs up to the Hudson Valley and the Finger Lakes, we’re looking for home buyers to feature in our weekly column, The Hunt.`\
+https://www.nytimes.com/2026/07/02/realestate/the-hunt-new-york-stories.html
+
+**Pick Your Cookout Persona: Grill Master or Bartender**\
+`Good thing we have lots of great veggie-based recipes for each.`\
+https://www.nytimes.com/2026/07/02/dining/pick-your-cookout-persona-grill-master-or-bartender.html
+
 **As U.S. Faces Extreme Heat, Data Centers Are Ordered to Use Backup Power to Prevent Blackouts**\
 `As triple-digit temperatures engulf much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
 https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
