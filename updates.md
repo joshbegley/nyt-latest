@@ -1,3 +1,7 @@
+**MAGA Base Stays Quiet After Trump Reports Billions in Personal Gains**\
+`A new mandatory disclosure revealed that the president has earned $2.2 billion during the first year back in the White House.`\
+https://www.nytimes.com/2026/07/02/us/politics/trump-earnings-maga-reaction.html
+
 **Rare Copy of the Declaration of Independence Is Discovered in London**\
 `A volunteer cataloging naval letters came across a copy of the document, printed 250 years ago in New Hampshire. “It was a thrilling find,” he said.`\
 https://www.nytimes.com/2026/07/02/world/europe/declaration-independence-copy-uk-archive.html
