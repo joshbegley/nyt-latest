@@ -1,3 +1,7 @@
+**Energy Department Orders Data Centers to Tap Backup Power**\
+`As triple-digit heat engulfs much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
+https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
+
 **Court Investigates Spanish Police Chief, Heaping Pressure on Prime Minister**\
 `The case against Mercedes González is part of a broader examination of whether allies of Prime Minister Pedro Sánchez tried to illegally undermine inquiries into people close to him.`\
 https://www.nytimes.com/2026/07/02/world/europe/spain-police-investigation-sanchez.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/weather/new-york-heat-wave-forecast.html
 **The Many Ways Trump Is Trying to Tip the Scales for the Midterms**\
 `Here’s how President Trump is using the powers of his office to try to reshape the rules governing the midterms and future elections.`\
 https://www.nytimes.com/interactive/2026/07/02/us/politics/trump-midterm-election-strategies.html
-
-**Amy Coney Barrett Is the Lightning Rod**\
-`The Supreme Court seesaw is swinging hard.`\
-https://www.nytimes.com/2026/07/02/opinion/barrett-roverts-gorsuch-supreme-court-term.html
 

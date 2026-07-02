@@ -1,3 +1,7 @@
+**Energy Department Orders Data Centers to Tap Backup Power**\
+`As triple-digit heat engulfs much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
+https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
+
 **India and Japan Expand Defense and Economic Ties**\
 `The prime minister met with his counterpart, Sanae Takaichi of Japan, and signed agreements covering artificial intelligence, energy and security.`\
 https://www.nytimes.com/2026/07/02/world/asia/03int-india-japan-modi-takaichi-security.html
