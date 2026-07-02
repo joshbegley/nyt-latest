@@ -1,3 +1,19 @@
+**U.S. Resumes Dollar Transfers to Iraq After Monthslong Suspension**\
+`The Trump administration had halted the shipments to Iraq as part of its efforts to pressure the Baghdad government to distance itself from Iran.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/iraq-us-dollar-transfers-resumes.html
+
+**Quote of the Day: Legal Scholars Surprised by Justices’ Close Ruling on Birthright Citizenship**\
+`Quotation of the Day for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/02/pageoneplus/quote-of-the-day-legal-scholars-surprised-by-justices-close-ruling-on-birthright-citizenship.html
+
+**Can the World’s Largest Stadium Explain the Global Economy?**\
+`High growth rates and surging exports in Vietnam mask deep frustrations in one of Asia’s most ambitious countries.`\
+https://www.nytimes.com/2026/07/02/world/asia/vietnam-stadium-corporate-inequality.html
+
+**Can Companies Embrace A.I. Without Layoffs? This One Says It Is Trying to.**\
+`The German software giant SAP says it is betting that employees can reinvent jobs instead of eliminating them. Experts are divided on whether it will work.`\
+https://www.nytimes.com/2026/07/02/world/europe/germany-sap-ai-jobs-skilled-workers.html
+
 **For Congo Fans, the Thrill of Victory Was So Close, Until It Wasn’t**\
 `Congo lost 2-1 to England on Wednesday night, after spending most of the game winning.`\
 https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html

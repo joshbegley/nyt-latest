@@ -1,3 +1,19 @@
+**U.S. Resumes Dollar Transfers to Iraq After Monthslong Suspension**\
+`The Trump administration had halted the shipments to Iraq as part of its efforts to pressure the Baghdad government to distance itself from Iran.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/iraq-us-dollar-transfers-resumes.html
+
+**Quote of the Day: Legal Scholars Surprised by Justices’ Close Ruling on Birthright Citizenship**\
+`Quotation of the Day for Thursday, July 2, 2026.`\
+https://www.nytimes.com/2026/07/02/pageoneplus/quote-of-the-day-legal-scholars-surprised-by-justices-close-ruling-on-birthright-citizenship.html
+
+**Can the World’s Largest Stadium Explain the Global Economy?**\
+`High growth rates and surging exports in Vietnam mask deep frustrations in one of Asia’s most ambitious countries.`\
+https://www.nytimes.com/2026/07/02/world/asia/vietnam-stadium-corporate-inequality.html
+
+**Can Companies Embrace A.I. Without Layoffs? This One Says It Is Trying to.**\
+`The German software giant SAP says it is betting that employees can reinvent jobs instead of eliminating them. Experts are divided on whether it will work.`\
+https://www.nytimes.com/2026/07/02/world/europe/germany-sap-ai-jobs-skilled-workers.html
+
 **Man Charged With Killing Postal Worker on Her Route in North Carolina**\
 `William Craig Durham, 56, faces murder and kidnapping charges in the death of Brandi Reynolds, 35, the authorities say.`\
 https://www.nytimes.com/2026/07/01/us/postal-worker-murder-north-carolina.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011005264/robby-hoffman-on-being-ou
 **How JD Vance Helped bell hooks Back Onto the Best-Seller List**\
 `A grass-roots campaign urged readers to buy copies of the Black feminist writer’s 2002 book “Communion” before Vice President JD Vance’s book of the same name hit shelves.`\
 https://www.nytimes.com/2026/07/01/books/communion-bell-hooks-jd-vance.html
-
-**LeBron James’ Last Act Should Be Cleveland**\
-`James doesn’t need another championship ring or another record. He needs to be loved more.`\
-https://www.nytimes.com/2026/07/01/opinion/lebron-james-cleveland-cavaliers-nba.html
-
-**Toddler Discovered Dead in Back Seat of S.U.V. in Florida**\
-`The child was found by his father, who thought he had been dropped off at a preschool, the authorities and the school said.`\
-https://www.nytimes.com/2026/07/01/us/florida-toddler-dead-car-heat-wave.html
-
-**Estoy en Venezuela. La situación está peor de lo que parece**\
-`La catástrofe natural de Venezuela era inevitable, pero la devastación que ha dejado a su paso no.`\
-https://www.nytimes.com/es/2026/07/01/espanol/opinion/venezuela-terremotos-corrupcion-gobierno.html
-
-**Celebrating the World Cup, the English Ask: Who Owns the Flag?**\
-`The national flag of England, a white banner with a bold red cross, has been displayed by soccer fans during the World Cup. But it has caused tension over whom, and what, it is meant to represent.`\
-https://www.nytimes.com/2026/07/01/world/europe/england-world-cup-flags.html
 

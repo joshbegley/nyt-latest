@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/07/01/us/politics/ice-immigrant-arrests-surge.html
 https://www.nytimes.com/2026/07/01/us/politics/trump-ymca-anthem-village-people.html
 
 **Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
-`President Volodymyr Zelensky of Ukraine had warned hours earlier that Russia was preparing another “massive strike” on Kyiv.`\
+`At least 10 people were killed in the assault, which began hours after President Volodymyr Zelensky of Ukraine warned that Russia was preparing another “massive strike” on Kyiv.`\
 https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
 
 **Federal Inmate Charged With Lending Contraband Phone to Sex Trafficker**\
