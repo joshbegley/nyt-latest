@@ -1,3 +1,15 @@
+**Searching for George Washington**\
+`Portfolio of George Washington Portraits`\
+https://static01.nyt.com/slideshow/2026/07/02/opinion/searching-for-george-washington.html
+
+**Russia’s Deadly Attack on Ukraine Reminds Europe of Its Own Vulnerabilities**\
+`Governments across the continent have increased military spending, but the strikes are another warning that they need to be prepared if the conflict crosses into NATO territory.`\
+https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html
+
+**36 Hours in Philadelphia, Pennsylvania: Things to Do and See.**\
+`Philadelphia may be the birthplace of American democracy, but its world-class museums and thrilling dining scene are just as revolutionary.`\
+https://www.nytimes.com/interactive/2026/07/02/travel/things-to-do-philadelphia.html
+
 **9 Buddhist Monks Killed After Boy Crashes Truck Into Procession**\
 `Another 11 were injured when the pickup truck hit the monks on a pilgrimage in northeast Thailand.`\
 https://www.nytimes.com/2026/07/02/world/asia/thailand-buddhist-monks-truck-crash.html
