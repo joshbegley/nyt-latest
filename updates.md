@@ -1,3 +1,15 @@
+**What the Pursuit of Happiness Looks Like, 250 Years In**\
+`We asked dozens of people how they pursue happiness, one of three inalienable rights laid out in the Declaration of Independence. A single theme stood out: To strive is to be American.`\
+https://www.nytimes.com/interactive/2026/07/02/us/america-pursuit-happiness.html
+
+**Heat Wave Survival Tips From a Death Valley Ranger, Volcano Hiking Guide and Forest Firefighter**\
+`We asked people whose jobs require them to routinely face temperatures over 100 degrees for their coping strategies. Start with water.`\
+https://www.nytimes.com/2026/07/02/travel/heat-wave-tips-experts-jobs.html
+
+**Trump-Linked Firm’s Fees for Organizing Freedom 250 Events Remain Secret**\
+`Event Strategies, Inc., a longtime vendor to President Trump’s campaigns, is organizing the Great American State Fair and the July 4 celebrations.`\
+https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250th.html
+
 **El ICE realiza 10.000 detenciones en 5 días**\
 `La agencia ha duplicado su número de detenciones diarias sin el revuelo de las grandes operaciones urbanas del año pasado, sembrando el miedo entre las comunidades migrantes.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ice-operativos-detenciones.html
