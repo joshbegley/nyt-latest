@@ -2,7 +2,7 @@
 `The rodent-borne virus, which sickened passengers on the MV Hondius, killed three people, led to a race to find its origin and a global health alert.`\
 https://www.nytimes.com/2026/07/02/world/hantavirus-cruise-outbreak-timeline-events.html
 
-**Rescuers Pull Man Alive From Rubble, 8 Days After Venezuela Quakes**\
+**8 Days After Venezuela Earthquakes, Rescuers Pull a Man From the Rubble**\
 `Rescuers pulled 44-year-old Hernán Gil from a collapsed basement on Thursday, eight days after earthquakes hit Venezuela.`\
 https://www.nytimes.com/video/world/americas/100000011008509/venezuela-earthquake-survivor-rescued.html
 
