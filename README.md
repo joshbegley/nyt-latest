@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/07/02/world/america-250-anniversary-kyiv-vatican-ta
 `But the revenue brought in by the vice president and the first lady paled in comparison to that of President Trump.`\
 https://www.nytimes.com/2026/07/02/us/politics/vance-melania-trump-financial-disclosures.html
 
-**Ukraine escalates military pressure on Russian-held Crimea**\
+**With Attacks on Crimea, Ukraine Hopes to Pressure Putin to End the War**\
 `Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
 
@@ -181,10 +181,6 @@ https://www.nytimes.com/2026/07/02/us/politics/cia-odni-intelligence-diversity-c
 **See How Europe’s Heat Waves Melted the Alps’ Glaciers**\
 `The snowfall from last winter disappeared a month sooner than usual, after two early hot spells. Huge volumes of exposed ice are now starting to vanish.`\
 https://www.nytimes.com/2026/07/02/climate/europe-heat-waves-melting-glaciers.html
-
-**Did You Recently Buy a Home in New York? We Want to Hear Your Story.**\
-`From the five boroughs up to the Hudson Valley and the Finger Lakes, we’re looking for home buyers to feature in our weekly column, The Hunt.`\
-https://www.nytimes.com/2026/07/02/realestate/the-hunt-new-york-stories.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

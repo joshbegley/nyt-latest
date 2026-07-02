@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.htm
 https://www.nytimes.com/2026/07/02/weather/new-york-heat-record-100-degrees-central-park.html
 
 **Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
-`Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They were each convicted of several misdemeanors, but avoided a conviction on a charge that had a potential 15-year prison sentence.`\
+`Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They avoided a conviction on the most serious charge but were found guilty of misdemeanors.`\
 https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
 
 **This Is the Sandwich of the Summer**\

@@ -1,3 +1,7 @@
+**Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
+`Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They avoided a conviction on the most serious charge but were found guilty of misdemeanors.`\
+https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
+
 **The Most Iconic American Artwork Is the Hardest to See**\
 `The Statue of Liberty is caught between the sublime and the souvenir, our critic Jason Farago explains. Look again: She’s much stranger than you think.`\
 https://www.nytimes.com/interactive/2026/07/02/arts/design/statue-of-liberty-history-france-us.html
