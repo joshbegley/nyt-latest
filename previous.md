@@ -150,13 +150,13 @@ https://www.nytimes.com/interactive/2026/07/02/realestate/minnesota-duluth-cloqu
 `Corrections that appeared in print on Thursday, July 2, 2026.`\
 https://www.nytimes.com/2026/07/02/corrections/corrections-july-2-2026.html
 
-**A.I. Is Reshaping the Economy. Good Luck Measuring How.**\
-`Some data suggest artificial intelligence is already causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
-https://www.nytimes.com/2026/07/02/business/economy/ai-economy-data.html
-
 **Black Soldiers In the Revolutionary War: A New England Journey**\
 `Across New England, a writer traveled down dirt paths and into historic homes to find the forgotten stories of the enslaved men who fought for freedom on two fronts.`\
 https://www.nytimes.com/2026/07/02/travel/revolutionary-war-black-soldiers-history.html
+
+**A.I. Is Reshaping the Economy. Good Luck Measuring How.**\
+`Some data suggest artificial intelligence is already causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
+https://www.nytimes.com/2026/07/02/business/economy/ai-economy-data.html
 
 **Across a Scorching Ohio, Residents Endure Breathtaking Heat**\
 `The heat wave gripping much of the eastern half of the country over the past few days has been especially intense throughout the state.`\
