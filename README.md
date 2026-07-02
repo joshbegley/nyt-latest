@@ -1,3 +1,7 @@
+**Drones over Europe raise concerns about Russian activities**\
+`A new study, backed up by analysts and political leaders, says frequent drone flights over NATO military assets mark a Russian campaign to probe defenses and gather information.`\
+https://www.nytimes.com/2026/07/02/world/europe/drone-incursions-europe-russia.html
+
 **Imprisoned Chinese Journalist Seeks Medical Parole for Lung Tumor**\
 `Dong Yuyu is stuck in a dispute with prison authorities in Beijing over where to get treated for a possible cancer, his family said.`\
 https://www.nytimes.com/2026/07/02/world/asia/jailed-chinese-journalist-dong-yuyu-lung-tumor.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/01/nyregion/frank-carone-corruption-trial-date.h
 **¿Y Si Sí? The World Cup Delivers Hope to Mexico**\
 `Mexico’s World Cup run has electrified the nation, drawing hundreds of thousands into the streets in celebrations of collective joy, resilience and hope.`\
 https://www.nytimes.com/2026/07/01/world/americas/mexico-world-cup-celebrations.html
-
-**World Cup Success Is Giving Americans ‘Permission to Be Patriotic’**\
-`Heading into the World Cup, many Americans had mixed feelings about the tournament and their nation.`\
-https://www.nytimes.com/2026/07/01/us/world-cup-american-pride.html
 
