@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-biochemistry-12781.html
+
 **Ocasio-Cortez Endorses Abdul El-Sayed in Crucial Michigan Senate Race**\
 `The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/insider/taylor-swift-wedding.html
 **Potent Art Lets ‘We, the People’ Reflect on America’s Past and Present**\
 `The New York Public Library has filled its top floor with a bold account of contemporary artists coming to terms with the state of our nation.`\
 https://www.nytimes.com/2026/07/02/arts/design/new-york-public-library-250.html
-
-**Quiz Yourself on 250 Years of American Home Design**\
-`Test your knowledge of the figures and fads that have defined the look of the American home.`\
-https://www.nytimes.com/2026/07/02/realestate/quiz-yourself-on-250-years-of-american-home-design.html
 

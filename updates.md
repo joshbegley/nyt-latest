@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-biochemistry-12781.html
+
 **Ocasio-Cortez Endorses Abdul El-Sayed in Crucial Michigan Senate Race**\
 `The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
