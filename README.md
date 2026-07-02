@@ -1,3 +1,7 @@
+**Explosions Rock Kyiv**\
+`President Volodymyr Zelensky of Ukraine had warned hours earlier that Russia was preparing another “massive strike” on Kyiv.`\
+https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
+
 **Federal Inmate Charged With Lending Contraband Phone to Sex Trafficker**\
 `David Motovich, an inmate at a Brooklyn detention center, was said to have lent an illegal cellphone to Oren Alexander, who was convicted of sex crimes along with his brothers earlier this year.`\
 https://www.nytimes.com/2026/07/01/nyregion/alexander-brothers-contraband-cellphone.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/us/rosemary-m-collyer-dead.html
 **Trump percibió al menos 2 millardos de dólares tras volver a la Casa Blanca**\
 `La publicación de la declaración financiera obligatoria correspondiente a 2025 revela que los activos de la familia Trump, sobre todo los negocios de criptomonedas del presidente, resultaron increíblemente lucrativos.`\
 https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/trump-dolares-declaracion-financiera.html
-
-**The Democratic Incumbents Most at Risk of Losing to Progressive Primary Challengers in 2026**\
-`A wave of outsider fervor has already knocked out a number of incumbents in primary races. Several more face spirited opposition.`\
-https://www.nytimes.com/2026/07/01/us/politics/democratic-incumbents-progressive-primary-challengers.html
 
