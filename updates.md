@@ -1,3 +1,11 @@
+**How Heat Affects the Brain**\
+`A growing body of research has shown that our brains work differently when temperatures spike.`\
+https://www.nytimes.com/2026/07/02/climate/how-heat-affects-the-brain.html
+
+**Carney Unveils Multibillion Dollar Oil Pipeline Project to Boost Trade With Asia**\
+`Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
+https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-alberta-british-columbia.html
+
 **Will There Ever Be Another Amendment to the Constitution?**\
 `The United States is celebrating its 250th birthday this summer. Jill Lepore, the Pulitzer Prize-winning historian and author, joined the “Book Review” podcast to discuss the nation’s past, and to imagine its future. She also offered a reading list for the occasion. Video by Patricia Sulbarán/The New York Times`\
 https://www.nytimes.com/video/podcasts/100000010992968/lepore-amendment.html
