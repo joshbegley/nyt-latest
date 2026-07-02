@@ -1,3 +1,7 @@
+**Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
+`At least 13 people were killed in the assault, which began hours after President Volodymyr Zelensky of Ukraine warned that Russia was preparing another “massive strike” on Kyiv.`\
+https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
+
 **Estos son algunos detalles de la boda de Taylor Swift en el Madison Square Garden**\
 `Según un memorándum interno de la policía de Nueva York, el evento comenzará a las 5:30 p. m. y terminará cerca de las 2 a. m.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/taylor-swift-detalles-boda-ny.html
