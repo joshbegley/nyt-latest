@@ -1,3 +1,11 @@
+**Ocasio-Cortez Endorses Abdul El-Sayed in Crucial Michigan Senate Race**\
+`The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
+https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
+
+**Live Updates: Status Check on a Stabilizing Job Market**\
+`Data on hiring and the unemployment rate will provide the latest look at a U.S. economy where strong spending is confronting higher costs.`\
+https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
 **China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
 `City authorities said the pilot had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
 https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.html
@@ -185,8 +193,4 @@ https://www.nytimes.com/2026/07/02/arts/design/new-york-public-library-250.html
 **Quiz Yourself on 250 Years of American Home Design**\
 `Test your knowledge of the figures and fads that have defined the look of the American home.`\
 https://www.nytimes.com/2026/07/02/realestate/quiz-yourself-on-250-years-of-american-home-design.html
-
-**Taylor Swift and Donald Trump Are Both Celebrating July 4th Weekend in Their Own Way.**\
-`Fourth of July weekend is shaping up to be a cultural moment of contrasting and comparing two of the most famous Americans, Taylor Swift and Donald Trump.`\
-https://www.nytimes.com/2026/07/02/style/its-the-nations-big-birthday-weekend-taylor-and-trump-are-each-celebrating-in-their-own-way.html
 
