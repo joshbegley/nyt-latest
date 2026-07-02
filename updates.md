@@ -1,5 +1,13 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006577/02vid-hotel-fire-82638.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006513/02vid-cassie-update-1-30166.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006508/02vid-cassie-update-68155.html
 
 **Live Updates: Brutal Heat Wave Broils Eastern U.S.**\

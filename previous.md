@@ -1,5 +1,13 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006577/02vid-hotel-fire-82638.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006513/02vid-cassie-update-1-30166.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006508/02vid-cassie-update-68155.html
 
 **Live Updates: Brutal Heat Wave Broils Eastern U.S.**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/02/arts/trump-castle-plans-philip-johnson.html
 **The Not-So-Simple Logistics Behind Taylor Swift’s N.Y.C. Bash**\
 `The pop star is poised to host a wedding celebration at Madison Square Garden. The logistics in Midtown Manhattan over the July 4 weekend are complex.`\
 https://www.nytimes.com/2026/07/02/style/taylor-swift-wedding-logistics-new-york-msg.html
-
-**A ‘Muslims Only’ Swim Party and the Backlash That Followed**\
-`A Muslim mother’s plan for an Eid swim party near Dallas drew backlash, then threats that upended her quiet life.`\
-https://www.nytimes.com/2026/07/02/us/muslim-swim-party-texas.html
-
-**Swifties Delight in Taylor’s Wedding Day**\
-`Fans see, in the pop star, reflections of their own lives: hope, heartbreak and now, finally, happiness.`\
-https://www.nytimes.com/2026/07/02/arts/music/taylor-swift-wedding-fans-swifties.html
 

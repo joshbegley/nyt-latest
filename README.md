@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011006585/02ukraine-reporter-updates-F0BE8MBG2T1.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006577/02vid-hotel-fire-82638.html
 
 ****\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/arts/design/gertrude-abercrombie-milwaukee-mu
 **Plans for Unrealized ‘Trump Castle’ Surface 40 Years Later**\
 `The 800-foot-tall residential development was designed by the architects Philip Johnson and John Burgee, but scrapped before construction. An archivist saved the rough draft.`\
 https://www.nytimes.com/2026/07/02/arts/trump-castle-plans-philip-johnson.html
-
-**The Not-So-Simple Logistics Behind Taylor Swift’s N.Y.C. Bash**\
-`The pop star is poised to host a wedding celebration at Madison Square Garden. The logistics in Midtown Manhattan over the July 4 weekend are complex.`\
-https://www.nytimes.com/2026/07/02/style/taylor-swift-wedding-logistics-new-york-msg.html
 
