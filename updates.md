@@ -1,3 +1,11 @@
+**Three Ways Trump Is Strangling Economic Growth**\
+`Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
+https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
+
+**Why Am I Dreading Taylor Swift’s Wedding?**\
+`Are you not entertained?`\
+https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
+
 **David Hearn, Olympian Canoeist, Is Indicted After Arrest at Trump’s Reflecting Pool**\
 `David Hearn, a former canoeist, is accused of vandalizing the algae-challenged pool, which President Trump has said he would repair and beautify with fresh sealant. But the algae returned and the paint peeled.`\
 https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.html
