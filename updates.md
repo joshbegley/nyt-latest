@@ -1,3 +1,27 @@
+**In Tumultuous Term, Chief Justice Roberts Took Charge of Unruly Supreme Court**\
+`The chief justice faced down the president, forged unlikely coalitions and achieved long-sought goals.`\
+https://www.nytimes.com/2026/07/02/us/politics/the-docket-roberts-supreme-court.html
+
+**Taylor Swift and Travis Kelce’s Expected Wedding Draws Mixed Reaction in N.Y.C.**\
+`The expected wedding of the pop star Taylor Swift and the N.F.L. star Travis Kelce at Madison Square Garden drew excitement and annoyance from people near the venue.`\
+https://www.nytimes.com/video/nyregion/100000011006615/taylor-swift-wedding-nyc-reactions.html
+
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/07/02/books/review/new-recommended-books.html
+
+**Private Credit Can’t Stop the ‘Freak Out’**\
+`On Thursday, Blue Owl reported another quarter of significant investor withdrawal requests from some of its private credit funds.`\
+https://www.nytimes.com/2026/07/02/business/private-credit-withdrawals.html
+
+**U.S. Hiring Continues at a Steady but Slower Pace**\
+`Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
+https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
+**US Job Market Makes Slower but Steady Gains, June Employment Data Shows**\
+`Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
+https://www.nytimes.com/2026/07/02/business/economy/jobs-report-employment.html
+
 **Kyiv Neighborhood Badly Damaged in Russian Attack**\
 `A large-scale Russian attack damaged several neighborhoods in the Ukrainian capital overnight on Thursday. We visited one that was particularly badly hit.`\
 https://www.nytimes.com/video/world/europe/100000011006992/kyiv-neighborhood-badly-damaged-in-russian-attack.html
