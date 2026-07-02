@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/07/02/world/europe/dutch-government-forced-adoption
 `Organizers want the July 4 fireworks in the nation’s capital to break the world record. But the fun will also come with air pollution and possibly headaches for pet owners and zoo keepers.`\
 https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
 
-**An Aerial View of Disaster at a Venezuela Housing Project**\
-`What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
-https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
-
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
