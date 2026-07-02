@@ -1,3 +1,7 @@
+**Clusters of Severe Stomach Illness Reported Across the U.S.**\
+`Public health experts said there were more cases than usual of the disease caused by cyclospora, which is spread through contaminated food and drink.`\
+https://www.nytimes.com/2026/07/02/well/cyclospora-infection-united-states.html
+
 **Mamdani Is a Taylor Swift Fan. Here Are His Top 12 Songs.**\
 `Ahead of Taylor Swift’s wedding celebration in Manhattan, Mayor Zohran Mamdani revealed that he is a bigger fan of her music than previously known.`\
 https://www.nytimes.com/2026/07/02/nyregion/mamdani-taylor-swift-songs.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ice-operativos-dete
 **Trump-Linked Firm’s Fees for Organizing Freedom 250 Events Remain Secret**\
 `Event Strategies, Inc., a longtime vendor to President Trump’s campaigns, is organizing the Great American State Fair and the July 4 celebrations.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250th.html
-
-**The Pants Debate at Men’s Fashion Weeks**\
-`Pants can be a source of anxiety in male wardrobes. Our men’s fashion reporter, Jacob Gallagher, unpacks the ongoing debate from Men’s Fashion Weeks in Paris and Milan.`\
-https://www.nytimes.com/video/style/100000010955768/the-pants-debate-at-mens-fashion-weeks.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

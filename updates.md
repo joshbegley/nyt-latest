@@ -1,3 +1,7 @@
+**Clusters of Severe Stomach Illness Reported Across the U.S.**\
+`Public health experts said there were more cases than usual of the disease caused by cyclospora, which is spread through contaminated food and drink.`\
+https://www.nytimes.com/2026/07/02/well/cyclospora-infection-united-states.html
+
 **Mamdani Is a Taylor Swift Fan. Here Are His Top 12 Songs.**\
 `Ahead of Taylor Swift’s wedding celebration in Manhattan, Mayor Zohran Mamdani revealed that he is a bigger fan of her music than previously known.`\
 https://www.nytimes.com/2026/07/02/nyregion/mamdani-taylor-swift-songs.html
