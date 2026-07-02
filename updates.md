@@ -1,3 +1,15 @@
+**USMNT Advance, at a Cost**\
+`The U.S. dominate Bosnia to reach the last 16 but will face Belgium without talismanic striker Folarin Balogun.`\
+https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
+
+**As Far Right Rises, German Leaders Look to Jump-Start the Economy**\
+`An agreement between Chancellor Friedrich Merz and his center-left partners bets on politically painful compromises in hopes of holding off hard-line rivals.`\
+https://www.nytimes.com/2026/07/02/world/europe/germany-overhaul-merz-economy-pensions.html
+
+**California Bans ‘Sell By’ Labels, Hoping to Cut Food Waste**\
+`The law standardizes language around expiration dates, aiming to minimize confusion about when food is safe to eat. More than one-third of food sold nationwide is wasted, the U.S.D.A. says.`\
+https://www.nytimes.com/2026/07/02/us/california-food-labels-sell-by.html
+
 **The Fallout of Massive Earthquakes for Venezuela — and the U.S.**\
 `Venezuelans describe the disaster, and our reporter explains the political aftermath.`\
 https://www.nytimes.com/2026/07/02/podcasts/the-daily/earthquake-venezuela.html

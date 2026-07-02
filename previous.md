@@ -1,3 +1,15 @@
+**USMNT Advance, at a Cost**\
+`The U.S. dominate Bosnia to reach the last 16 but will face Belgium without talismanic striker Folarin Balogun.`\
+https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
+
+**As Far Right Rises, German Leaders Look to Jump-Start the Economy**\
+`An agreement between Chancellor Friedrich Merz and his center-left partners bets on politically painful compromises in hopes of holding off hard-line rivals.`\
+https://www.nytimes.com/2026/07/02/world/europe/germany-overhaul-merz-economy-pensions.html
+
+**California Bans ‘Sell By’ Labels, Hoping to Cut Food Waste**\
+`The law standardizes language around expiration dates, aiming to minimize confusion about when food is safe to eat. More than one-third of food sold nationwide is wasted, the U.S.D.A. says.`\
+https://www.nytimes.com/2026/07/02/us/california-food-labels-sell-by.html
+
 **The Fallout of Massive Earthquakes for Venezuela — and the U.S.**\
 `Venezuelans describe the disaster, and our reporter explains the political aftermath.`\
 https://www.nytimes.com/2026/07/02/podcasts/the-daily/earthquake-venezuela.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/02/us/brooke-barbier-revolutionary-era-drinks.ht
 **‘Young Washington’ Review: Not the Campaigns You Had in Mind**\
 `Before the presidency. Before Yorktown. There was … George, the land surveyor.`\
 https://www.nytimes.com/2026/07/02/movies/young-washington-review.html
-
-**America in Video Games: The Oregon Trail and Postapocalyptic Vegas**\
-`Other outstanding efforts reimagine the American Revolution, the pioneers’ westward migration and the Great Depression.`\
-https://www.nytimes.com/2026/07/02/arts/america-in-video-games-oregon-trail-postapocalyptic-vegas.html
-
-**Republican Senate Candidates Start Their Own Super PACs to Gain Cash Advantage**\
-`Most of the party’s top candidates are starting their own super PACs instead of relying on a powerful group run by Washington leaders. The move allows them to seize control of their financial destinies.`\
-https://www.nytimes.com/2026/07/02/us/politics/republican-senate-candidates-super-pac.html
-
-**How to Make a Time Capsule That Will Last 250 Years**\
-`The America250 time capsule will hold dozens of historical treasures. Avoiding dampness and other dangers requires lots of engineering.`\
-https://www.nytimes.com/2026/07/02/science/america250-time-capsule.html
 
