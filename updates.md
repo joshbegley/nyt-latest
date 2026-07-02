@@ -1,3 +1,15 @@
+**El ICE realiza 10.000 detenciones en 5 días**\
+`La agencia ha duplicado su número de detenciones diarias sin el revuelo de las grandes operaciones urbanas del año pasado, sembrando el miedo entre las comunidades migrantes.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ice-operativos-detenciones.html
+
+**Vatican Excommunicates Society of St. Pius X, in First Major Crisis for Pope Leo**\
+`The move against the Society of St. Pius X followed its defiance of Pope Leo XIV by consecrating new bishops against his wishes.`\
+https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
+
+**Live Updates: New York Ties Temperature Record as Heat Wave Stifles Eastern U.S.**\
+`Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
 **A Firm Run by Trump Allies is Organizing the 250th. Their Fee? Unclear.**\
 `Event Strategies, Inc., a longtime vendor to President Trump’s campaigns, is organizing the Great American State Fair and the July 4 celebrations.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250th.html

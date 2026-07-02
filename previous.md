@@ -1,3 +1,7 @@
+**El ICE realiza 10.000 detenciones en 5 días**\
+`La agencia ha duplicado su número de detenciones diarias sin el revuelo de las grandes operaciones urbanas del año pasado, sembrando el miedo entre las comunidades migrantes.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ice-operativos-detenciones.html
+
 **A Firm Run by Trump Allies is Organizing the 250th. Their Fee? Unclear.**\
 `Event Strategies, Inc., a longtime vendor to President Trump’s campaigns, is organizing the Great American State Fair and the July 4 celebrations.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250th.html
@@ -171,7 +175,7 @@ https://www.nytimes.com/2026/07/02/world/europe/nato-russia-attack-ukraine.html
 https://www.nytimes.com/2026/07/02/world/europe/russia-putin-ukraine-war-pressure.html
 
 **Vatican Excommunicates Society of St. Pius X, in First Major Crisis for Pope Leo**\
-`The move against the Society of St. Pius X followed its decision to defy Pope Leo XIV by consecrating new bishops against his wishes.`\
+`The move against the Society of St. Pius X followed its defiance of Pope Leo XIV by consecrating new bishops against his wishes.`\
 https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
 
 **Why the Jobs Market Has Wall Street and Washington on Edge**\
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/07/02/podcasts/serial-death-penalty-50-year-anniver
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-biochemistry-12781.html
 
-**Ocasio-Cortez Endorses Abdul El-Sayed in Crucial Michigan Senate Race**\
-`The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
-https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
-
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
-**Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
-`(No description)`\
+**Live Updates: New York Ties Temperature Record as Heat Wave Stifles Eastern U.S.**\
+`Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 

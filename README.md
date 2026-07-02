@@ -1,8 +1,12 @@
+**Heat Wave Survival Tips From a Death Valley Ranger, Volcano Hiking Guide and Forest Firefighter**\
+`We asked people whose jobs require them to routinely face temperatures over 100 degrees for their coping strategies. Start with water.`\
+https://www.nytimes.com/2026/07/02/travel/heat-wave-tips-experts-jobs.html
+
 **El ICE realiza 10.000 detenciones en 5 días**\
 `La agencia ha duplicado su número de detenciones diarias sin el revuelo de las grandes operaciones urbanas del año pasado, sembrando el miedo entre las comunidades migrantes.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ice-operativos-detenciones.html
 
-**A Firm Run by Trump Allies is Organizing the 250th. Their Fee? Unclear.**\
+**Trump-Linked Firm’s Fees for Organizing Freedom 250 Events Remain Secret**\
 `Event Strategies, Inc., a longtime vendor to President Trump’s campaigns, is organizing the Great American State Fair and the July 4 celebrations.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250th.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/02/business/dealbook/jobs-fed-rates-wall-street.
 **The American Death Penalty Turns 50 Today. Here’s How We’re Thinking About It.**\
 `The host of “The Last 12 Weeks” shares insights and stories on capital punishment.`\
 https://www.nytimes.com/2026/07/02/podcasts/serial-death-penalty-50-year-anniversary.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-biochemistry-12781.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
