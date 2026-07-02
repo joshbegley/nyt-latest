@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/07/02/world/europe/russia-putin-ukraine-war-pressur
 `The move against the Society of St. Pius X followed its defiance of Pope Leo XIV by consecrating new bishops against his wishes.`\
 https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
 
-**Why the Jobs Market Has Wall Street and Washington on Edge**\
-`A rebound in hiring has put more pressure on the Federal Reserve to raise interest rates. New jobs numbers are scheduled for release on Thursday.`\
-https://www.nytimes.com/2026/07/02/business/dealbook/jobs-fed-rates-wall-street.html
-
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
