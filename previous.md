@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/07/02/realestate/the-hunt-new-york-stories.html
 https://www.nytimes.com/2026/07/02/dining/pick-your-cookout-persona-grill-master-or-bartender.html
 
 **Russia Bombards Ukrainian Capital With Deadly Wave of Attacks**\
-`At least 21 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
+`At least 27 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-attack-on-kyiv.html
 
 **How We’re Covering a Contentious Nation at 250**\

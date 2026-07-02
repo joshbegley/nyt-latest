@@ -30,8 +30,8 @@ https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.
 `Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
 https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
 
-**Why Am I Dreading Taylor Swift’s Wedding?**\
-`Are you not entertained?`\
+**Taylor Swift, What Are You Doing?**\
+`Why am I dreading the Swift-Kelce wedding?`\
 https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
 
 **The Best Movies and TV Shows Coming to Netflix in July**\

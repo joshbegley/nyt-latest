@@ -1,3 +1,7 @@
+**Russia Bombards Ukrainian Capital With Deadly Wave of Attacks**\
+`At least 27 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-attack-on-kyiv.html
+
 **¿Qué tanto le preocupan a Trump los conflictos de intereses?**\
 `Trump obtuvo al menos 2.2 millardos de dólares en su primer año de vuelta a la Casa Blanca, pero su actitud sobre mezclar negocios y política es clara: “Me di cuenta de que a nadie le importaba”.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-dinero-negocios-conflicto-interes.html
