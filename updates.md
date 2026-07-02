@@ -1,7 +1,3 @@
-**Bureau of Prisons Will Close Facilities Housing Thousands of Inmates**\
-`The agency pointed to crumbling infrastructure, chronic staffing shortages and budget shortfalls as it moved to cut costs.`\
-https://www.nytimes.com/2026/07/01/us/politics/bureau-of-prisons-closing-facilities.html
-
 **Ruling on Trans Athletes Gave the G.O.P. a Win. Most Democrats Looked the Other Way.**\
 `While Republicans celebrated the ruling, many Democrats stayed quiet on an issue that had proved divisive in the last election.`\
 https://www.nytimes.com/2026/07/01/us/politics/supreme-court-trans-athletes-midterms.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/07/01/opinion/america-250-july4.html
 **Trump Remakes Washington, D.C., Into a Maze of Fences and Guard Members**\
 `President Trump seems to have turned swaths of the city into either a construction zone or an armed camp as he seeks to prove that he alone can improve it.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-washington-dc-construction.html
+
+**As Earthquake Death Toll Mounts, Venezuela Grapples With Recovering and Burying Bodies**\
+`As the death toll mounts, thousands of bodies have overwhelmed Venezuela’s forensic system, turning a seaport into a temporary morgue.`\
+https://www.nytimes.com/2026/07/01/world/americas/venezuela-earthquakes-bodies-morgues.html
 
