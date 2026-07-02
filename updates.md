@@ -1,3 +1,11 @@
+**NYC Hits 100 Degrees, Its Hottest Day in Nearly 14 Years**\
+`The last time the park recorded 100 degrees was July 18, 2012.`\
+https://www.nytimes.com/2026/07/02/weather/new-york-heat-record-100-degrees-central-park.html
+
+**Taylor Swift, What Are You Doing?**\
+`Why am I dreading the Swift-Kelce wedding?`\
+https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
+
 **Russia Bombards Ukrainian Capital With Deadly Wave of Attacks**\
 `At least 27 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-attack-on-kyiv.html

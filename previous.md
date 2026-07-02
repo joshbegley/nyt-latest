@@ -6,6 +6,10 @@ https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-dinero-negoci
 `More than six million have been signed up for the investment accounts, which open for contributions July 4, but there are barriers to uptake.`\
 https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.html
 
+**NYC Hits 100 Degrees, Its Hottest Day in Nearly 14 Years**\
+`The last time the park recorded 100 degrees was July 18, 2012.`\
+https://www.nytimes.com/2026/07/02/weather/new-york-heat-record-100-degrees-central-park.html
+
 **Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
 `Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They were each convicted of several misdemeanors, but avoided a conviction on a charge that had a potential 15-year prison sentence.`\
 https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.
 `Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
 https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
 
-**Why Am I Dreading Taylor Swift’s Wedding?**\
-`Are you not entertained?`\
+**Taylor Swift, What Are You Doing?**\
+`Why am I dreading the Swift-Kelce wedding?`\
 https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
 
 **The Best Movies and TV Shows Coming to Netflix in July**\
