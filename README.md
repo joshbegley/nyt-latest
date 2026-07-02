@@ -1,4 +1,8 @@
-**Energy Department Orders Data Centers to Tap Backup Power**\
+**Tucker Carlson, Who Broke With Trump, Plans to ‘Help Build a Third Party’**\
+`The influential conservative commentator’s relationship with the president and the G.O.P. fractured over the war with Iran. Now, he says he is charting a new course.`\
+https://www.nytimes.com/2026/07/02/us/politics/tucker-carlson-third-party.html
+
+**As U.S. Faces Extreme Heat, Data Centers Are Ordered to Use Backup Power to Prevent Blackouts**\
 `As triple-digit heat engulfs much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
 https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/02/espanol/cupula-calor-extremo-consejos.html
 **Why This Heat Wave Is Unusual for New York**\
 `Hot summer days are more dangerous when there are several in a row. Meteorologists are looking to earlier heat waves for the blueprint for this week’s.`\
 https://www.nytimes.com/2026/07/02/weather/new-york-heat-wave-forecast.html
-
-**The Many Ways Trump Is Trying to Tip the Scales for the Midterms**\
-`Here’s how President Trump is using the powers of his office to try to reshape the rules governing the midterms and future elections.`\
-https://www.nytimes.com/interactive/2026/07/02/us/politics/trump-midterm-election-strategies.html
 
