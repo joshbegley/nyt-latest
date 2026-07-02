@@ -1,3 +1,11 @@
+**Drones over Europe raise concerns about Russian activities**\
+`A new study, backed up by analysts and political leaders, says frequent drone flights over NATO military assets mark a Russian campaign to probe defenses and gather information.`\
+https://www.nytimes.com/2026/07/02/world/europe/drone-incursions-europe-russia.html
+
+**Imprisoned Chinese Journalist Seeks Medical Parole for Lung Tumor**\
+`Dong Yuyu is stuck in a dispute with prison authorities in Beijing over where to get treated for a possible cancer, his family said.`\
+https://www.nytimes.com/2026/07/02/world/asia/jailed-chinese-journalist-dong-yuyu-lung-tumor.html
+
 **Live Updates: Russia Hammers Ukraine’s Capital With Large-Scale Attack**\
 `At least 13 people were killed in the assault on Kyiv, the Ukrainian authorities said. President Volodymyr Zelensky of Ukraine had warned in recent days that Russia was preparing a “massive strike.”`\
 https://www.nytimes.com/live/2026/07/02/world/ukraine-kyiv-russia-attack
