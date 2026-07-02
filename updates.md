@@ -1,3 +1,7 @@
+**Estos son algunos detalles de la boda de Taylor Swift en el Madison Square Garden**\
+`Según un memorándum interno de la policía de Nueva York, el evento comenzará a las 5:30 p. m. y terminará cerca de las 2 a. m.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/taylor-swift-detalles-boda-ny.html
+
 **Los ingresos de Trump durante su presidencia no tienen precedente histórico**\
 `La decisión del presidente de poner en marcha nuevos proyectos empresariales, en lugar de eliminar posibles conflictos de intereses, va en contra de una tradición muy arraigada.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ingresos-donald-trump-presidencia.html

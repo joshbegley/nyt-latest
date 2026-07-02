@@ -1,3 +1,7 @@
+**Estos son algunos detalles de la boda de Taylor Swift en el Madison Square Garden**\
+`Según un memorándum interno de la policía de Nueva York, el evento comenzará a las 5:30 p. m. y terminará cerca de las 2 a. m.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/taylor-swift-detalles-boda-ny.html
+
 **Los ingresos de Trump durante su presidencia no tienen precedente histórico**\
 `La decisión del presidente de poner en marcha nuevos proyectos empresariales, en lugar de eliminar posibles conflictos de intereses, va en contra de una tradición muy arraigada.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ingresos-donald-trump-presidencia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/climate/nrc-radiation-regulation-nuclear-over
 **Two People Arrested After Climbing Empire State Building Spire**\
 `A couple, Angela Nikolau and Ivan Beerkus, climbed the spire of the Empire State Building on Wednesday and displayed a black flag with a quote on it. The police said that they were arrested.`\
 https://www.nytimes.com/video/nyregion/100000011005253/empire-state-building-new-york-nyc.html
-
-**Robby Hoffman: ‘I Don’t Think Being Offended Is the Worst Thing’**\
-`On “The Interview,” Robby Hoffman discussed the backlash she has received as her career as a comedian has taken off.`\
-https://www.nytimes.com/video/podcasts/100000011005288/robby-hoffman-i-dont-think-being-offended-is-the-worst-thing.html
 
