@@ -1,3 +1,11 @@
+**Ukrainian Charged With Sabotaging Pipelines Between Russia and Germany**\
+`A man identified only as Serhii K. is accused of overseeing an undersea bombing in 2022 that cut off a key source of Russian gas revenues.`\
+https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia-germany.html
+
+**The Many Ways Trump Is Trying to Tip the Scales for the Midterms**\
+`Here’s how President Trump is using the powers of his office to try to reshape the rules governing the midterms and future elections.`\
+https://www.nytimes.com/interactive/2026/07/02/us/politics/trump-midterm-election-strategies.html
+
 **USMNT Advance, at a Cost**\
 `The U.S. dominate Bosnia to reach the last 16 but will face Belgium without talismanic striker Folarin Balogun.`\
 https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html

@@ -1,3 +1,7 @@
+**Ukrainian Charged With Sabotaging Pipelines Between Russia and Germany**\
+`A man identified only as Serhii K. is accused of overseeing an undersea bombing in 2022 that cut off a key source of Russian gas revenues.`\
+https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia-germany.html
+
 **USMNT Advance, at a Cost**\
 `The U.S. dominate Bosnia to reach the last 16 but will face Belgium without talismanic striker Folarin Balogun.`\
 https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
@@ -70,7 +74,7 @@ https://www.nytimes.com/es/2026/07/02/espanol/cupula-calor-extremo-consejos.html
 `Hot summer days are more dangerous when there are several in a row. Meteorologists are looking to earlier heat waves for the blueprint for this week’s.`\
 https://www.nytimes.com/2026/07/02/weather/new-york-heat-wave-forecast.html
 
-**How Trump Is Trying to Change the Electoral Process to Help Republicans**\
+**The Many Ways Trump Is Trying to Tip the Scales for the Midterms**\
 `Here’s how President Trump is using the powers of his office to try to reshape the rules governing the midterms and future elections.`\
 https://www.nytimes.com/interactive/2026/07/02/us/politics/trump-midterm-election-strategies.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/opinion/hacking-ai-leaks-shame.html
 **Boston Is Drinking Like It’s 1776. The Founding Fathers Would Be Proud.**\
 `A summer of celebratory drinking is underway in the birthplace of the American Revolution. But however tipsy the tourists get, the founders probably had them beat.`\
 https://www.nytimes.com/2026/07/02/us/brooke-barbier-revolutionary-era-drinks.html
-
-**‘Young Washington’ Review: Not the Campaigns You Had in Mind**\
-`Before the presidency. Before Yorktown. There was … George, the land surveyor.`\
-https://www.nytimes.com/2026/07/02/movies/young-washington-review.html
 
