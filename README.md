@@ -1,3 +1,7 @@
+**Louisiana Attorney General Charged With Bullying New Orleans Officials**\
+`Liz Murrill, a Republican, was indicted on charges of malfeasance and intimidation after sending warning letters to the city’s Democratic leaders over actions they took.`\
+https://www.nytimes.com/2026/07/02/us/louisiana-attorney-general-indicted-new-orleans.html
+
 **UPS Did Not Tell Inspectors to Check Failed Part in Louisville Crash**\
 `Inspectors were not instructed to check a bearing that they had been told was faulty, but the shipping company says Boeing, the plane’s manufacturer, is to blame.`\
 https://www.nytimes.com/2026/07/02/us/politics/ups-louisville-crash.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/style/100000010955768/the-pants-debate-at-mens-fas
 **El panorama de la devastación en Venezuela**\
 `Lo que la imagen aérea de un edificio derrumbado nos revela de las secuelas de los terremotos en La Guaira, Venezuela.`\
 https://www.nytimes.com/es/2026/07/02/espanol/america-latina/foto-venezuela-terremotos-drones.html
-
-**What the Supreme Court Has Wrought**\
-`Readers offer their perspectives on the just-completed Supreme Court term. Also: How visiting World Cup fans see America.`\
-https://www.nytimes.com/2026/07/02/opinion/supreme-court-trump.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

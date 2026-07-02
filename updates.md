@@ -1,3 +1,7 @@
+**UPS Did Not Tell Inspectors to Check Failed Part in Louisville Crash**\
+`Inspectors were not instructed to check a bearing that they had been told was faulty, but the shipping company says Boeing, the plane’s manufacturer, is to blame.`\
+https://www.nytimes.com/2026/07/02/us/politics/ups-louisville-crash.html
+
 **Texas Governor Appoints Former Hard Right Critic to Key Post**\
 `Gov. Greg Abbott appointed a firebrand former opponent, Don Huffines, to be state comptroller, underscoring a G.O.P. push for unity ahead of the midterms.`\
 https://www.nytimes.com/2026/07/02/us/don-huffines-texas-comptroller.html
