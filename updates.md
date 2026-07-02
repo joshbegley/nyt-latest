@@ -1,3 +1,7 @@
+**Man Charged With Killing Postal Worker on Her Route in North Carolina**\
+`William Craig Durham, 56, faces murder and kidnapping charges in the death of Brandi Reynolds, 35, the authorities say.`\
+https://www.nytimes.com/2026/07/01/us/postal-worker-murder-north-carolina.html
+
 **NYT Crossword Answers for July 02, 2026**\
 `David J. Kahn takes us back to history class.`\
 https://www.nytimes.com/2026/07/01/crosswords/daily-puzzle-2026-07-02.html
