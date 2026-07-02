@@ -1,3 +1,19 @@
+**Texas Governor Appoints Former Hard Right Critic to Key Post**\
+`Gov. Greg Abbott appointed a firebrand former opponent, Don Huffines, to be state comptroller, underscoring a G.O.P. push for unity ahead of the midterms.`\
+https://www.nytimes.com/2026/07/02/us/don-huffines-texas-comptroller.html
+
+**Ocho días bajo los escombros: el rescate que emocionó a Venezuela**\
+`Hernán Gil, de 44 años, fue rescatado con vida de los escombros de un edificio colapsado, en un momento de alivio entre la devastación.`\
+https://www.nytimes.com/es/2026/07/02/espanol/america-latina/terremoto-venezuela-rescate-sobreviviente.html
+
+**A Sweltering Fourth of July**\
+`Also, Taylor’s wedding. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/02/briefing/heat-wave-fourth.html
+
+**New York Gallery Surrenders 20 Artifacts Thought Looted From Cambodia**\
+`The Madison Avenue business turned over stone statues and other items that it had purchased from an art dealer accused of trafficking in illicit objects.`\
+https://www.nytimes.com/2026/07/02/arts/new-york-gallery-surrenders-20-artifacts-thought-looted-from-cambodia.html
+
 **Deadly MV Hondius Hantavirus Outbreak Is Over, W.H.O. Says**\
 `The rodent-borne virus, which sickened passengers on the MV Hondius, killed three people, led to a race to find its origin and a global health alert.`\
 https://www.nytimes.com/2026/07/02/world/hantavirus-cruise-outbreak-timeline-events.html
