@@ -1,3 +1,7 @@
+**Did You Recently Buy a Home in New York? We Want to Hear Your Story.**\
+`From the five boroughs up to the Hudson Valley and the Finger Lakes, we’re looking for home buyers to feature in our weekly column, The Hunt.`\
+https://www.nytimes.com/2026/07/02/realestate/the-hunt-new-york-stories.html
+
 **Pick Your Cookout Persona: Grill Master or Bartender**\
 `Good thing we have lots of great veggie-based recipes for each.`\
 https://www.nytimes.com/2026/07/02/dining/pick-your-cookout-persona-grill-master-or-bartender.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/podcasts/the-headlines/ice-arrests-trump-plan
 **NYT Connections Answers for July 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
 https://www.nytimes.com/2026/07/02/crosswords/connections-companion-1118.html
-
-**Today’s Wordle Hints for July 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
-https://www.nytimes.com/2026/07/02/crosswords/wordle-review-1840.html
 
