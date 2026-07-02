@@ -1,3 +1,15 @@
+**Vatican Excommunicates Breakaway Group, in First Major Crisis for Pope Leo**\
+`The move against the Society of St. Pius X followed its decision to defy Pope Leo XIV by consecrating new bishops against his wishes.`\
+https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
+
+**Why the Jobs Market Has Wall Street and Washington on Edge**\
+`A rebound in hiring has put more pressure on the Federal Reserve to raise interest rates. New jobs numbers are scheduled for release on Thursday.`\
+https://www.nytimes.com/2026/07/02/business/dealbook/jobs-fed-rates-wall-street.html
+
+**Live Updates: Brutal Heat Wave Broils Eastern U.S.**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
 **The American Death Penalty Turns 50 Today. Here’s How We’re Thinking About It.**\
 `The host of “The Last 12 Weeks” shares insights and stories on capital punishment.`\
 https://www.nytimes.com/2026/07/02/podcasts/serial-death-penalty-50-year-anniversary.html

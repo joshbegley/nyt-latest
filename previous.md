@@ -1,3 +1,11 @@
+**Vatican Excommunicates Breakaway Group, in First Major Crisis for Pope Leo**\
+`The move against the Society of St. Pius X followed its decision to defy Pope Leo XIV by consecrating new bishops against his wishes.`\
+https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
+
+**Why the Jobs Market Has Wall Street and Washington on Edge**\
+`A rebound in hiring has put more pressure on the Federal Reserve to raise interest rates. New jobs numbers are scheduled for release on Thursday.`\
+https://www.nytimes.com/2026/07/02/business/dealbook/jobs-fed-rates-wall-street.html
+
 **The American Death Penalty Turns 50 Today. Here’s How We’re Thinking About It.**\
 `The host of “The Last 12 Weeks” shares insights and stories on capital punishment.`\
 https://www.nytimes.com/2026/07/02/podcasts/serial-death-penalty-50-year-anniversary.html
@@ -79,7 +87,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006513/02vid-cassie
 https://www.nytimes.com/video/embedded/world/europe/100000011006508/02vid-cassie-update-68155.html
 
 **Live Updates: Brutal Heat Wave Broils Eastern U.S.**\
-`Much of the Northeast is set to endure a hot spell that has already scorched the Midwest.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 
 **World Cup 2026: See How a Series of Quick Passes Led to the U.S. Team’s First Goal**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/02/nyregion/pollen-count-nyc.html
 **Madonna Has Become an Avatar for Our Fear of Aging**\
 `The Material Girl used to mean everything to me.`\
 https://www.nytimes.com/2026/07/02/opinion/madonna-confessions-ii-aging-old.html
-
-**Is a ‘Frictionless’ Society a Trap?**\
-`Eliminating whatever stands between you and a task sounds nice, but it probably has more to offer companies than users.`\
-https://www.nytimes.com/2026/07/02/magazine/frictionless-productivity-marketing-tech.html
-
-**How, and Why, We’re Covering Taylor Swift’s (Maybe) Wedding**\
-`About two dozen reporters and editors from several desks are leading The Times’s coverage of the anticipated festivities in Manhattan this week.`\
-https://www.nytimes.com/2026/07/02/insider/taylor-swift-wedding.html
 
