@@ -1,3 +1,19 @@
+**The Most Iconic American Artwork Is the Hardest to See**\
+`The Statue of Liberty is caught between the sublime and the souvenir, our critic Jason Farago explains. Look again: She’s much stranger than you think.`\
+https://www.nytimes.com/interactive/2026/07/02/arts/design/statue-of-liberty-history-france-us.html
+
+**Egg Producers to Pay $3.3 Million to Settle Federal Price-Fixing Lawsuit**\
+`The companies also agreed to donate more than 53 million eggs to food banks and nonprofits in 17 states that joined the federal government in the antitrust action.`\
+https://www.nytimes.com/2026/07/02/business/egg-price-fixing-settlement-lawsuit.html
+
+**F.B.I. Assigns Scores of Analysts to Examine Election Records in Georgia**\
+`The expansion of an investigation into Fulton County’s election office reflects President Trump’s desire to prove his baseless claims that the 2020 election in Georgia was rigged.`\
+https://www.nytimes.com/2026/07/02/us/politics/fbi-georgia-fulton-county-2020-election.html
+
+**How the Mood in Little Senegal Went From Euphoria to Despair**\
+`At watch parties in Upper Manhattan, joyous fans were stunned by a sudden twist in the match between Belgium and the underdog Senegal.`\
+https://www.nytimes.com/2026/07/02/nyregion/world-cup-nyc-little-senegal.html
+
 **Judge Demands Answers About Plans for Trump’s East Potomac Golf Course**\
 `In a fiery hearing, Judge Ana C. Reyes hammered the government over denials that the president was forging ahead with plans to renovate the course without approval.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-golf-course-plans-doj.html
