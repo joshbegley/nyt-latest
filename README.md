@@ -1,3 +1,11 @@
+**Teenage Boys Who Raped Girls in Fordingbridge, England, Have Sentences Revised**\
+`Two teenagers were given four-year custodial sentences on Thursday after an appeals court determined that their earlier sentencing, which included no time in detention, was too lenient.`\
+https://www.nytimes.com/2026/07/02/world/europe/teenagers-rape-england-sentencing.html
+
+**Fast-Moving Wildfire Forces Hundreds of Evacuations near Pueblo, Colorado**\
+`The Aspen Acres fire, near Pueblo, Colo., has burned more than 50,000 acres and destroyed hundreds of structures.`\
+https://www.nytimes.com/2026/07/02/us/aspen-acres-wildfire-pueblo-colorado-evacuations.html
+
 **In Potato Salad We Trust**\
 `Wesley takes us into the streets of New York, then to food historian Jessica B. Harris and finally to The Times’ Cooking Studio to make his family’s recipe and to find answers to this nagging question: Is potato salad the national dish?`\
 https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escala
 **Kyiv Residents Pick Up the Pieces After the Latest Russian Assault**\
 `The latest deadly night in Ukraine, more than four years after Russia’s full-scale invasion, showed how the toll for civilians continues to mount.`\
 https://www.nytimes.com/2026/07/02/world/europe/kyiv-strikes-civilians.html
-
-**Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
-`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts, analysts say.`\
-https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html
-
-**Dutch and U.K. Governments Apologize for Their Roles in Forced Adoptions**\
-`In the Netherlands, more than 15,000 children were separated from their mothers from 1956 to 1984, causing “great sorrow and anger,” according to an official report on the practice.`\
-https://www.nytimes.com/2026/07/02/world/europe/dutch-government-forced-adoptions-apology.html
 
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
