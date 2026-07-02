@@ -1,3 +1,7 @@
+**Live Updates: Russia Hammers Ukraine’s Capital With Large-Scale Attack**\
+`At least 13 people were killed in the assault on Kyiv, the Ukrainian authorities said. President Volodymyr Zelensky of Ukraine had warned in recent days that Russia was preparing a “massive strike.”`\
+https://www.nytimes.com/live/2026/07/02/world/ukraine-kyiv-russia-attack
+
 **Workers Endure Sweltering Conditions as Heat Wave Intensifies**\
 `Some workers dealt with sweltering conditions as others found business opportunities amid a heat wave that was intensifying in the Northeast.`\
 https://www.nytimes.com/video/us/100000011006139/extreme-heat-workers.html
@@ -106,10 +110,6 @@ https://www.nytimes.com/2026/07/01/us/politics/ice-immigrant-arrests-surge.html
 `On social media, he said the Village People’s lead singer, Victor Willis, was with him “right from the beginning.” But the president has a more complicated history with the group.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-ymca-anthem-village-people.html
 
-**Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
-`At least 13 people were killed in the assault, which began hours after President Volodymyr Zelensky of Ukraine warned that Russia was preparing another “massive strike” on Kyiv.`\
-https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
-
 **Federal Inmate Charged With Lending Contraband Phone to Sex Trafficker**\
 `David Motovich, an inmate at a Brooklyn detention center, was said to have lent an illegal cellphone to Oren Alexander, who was convicted of sex crimes along with his brothers earlier this year.`\
 https://www.nytimes.com/2026/07/01/nyregion/alexander-brothers-contraband-cellphone.html
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/07/01/us/world-cup-american-pride.html
 **An American Mosaic**\
 `This map shows how people in the United States identify their ancestry or family origin. Explore the many ways we describe our heritage and ourselves.`\
 https://www.nytimes.com/interactive/2026/07/01/us/america-ancestry-census-data-map.html
-
-**U.S.A.I.D. Cuts Killed People. That’s the Truth.**\
-`Musk insists that his demolition of humanitarian aid didn’t cost lives. So I propose he take a trip with me.`\
-https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html
 

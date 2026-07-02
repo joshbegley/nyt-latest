@@ -1,3 +1,7 @@
+**Live Updates: Russia Hammers Ukraine’s Capital With Large-Scale Attack**\
+`At least 13 people were killed in the assault on Kyiv, the Ukrainian authorities said. President Volodymyr Zelensky of Ukraine had warned in recent days that Russia was preparing a “massive strike.”`\
+https://www.nytimes.com/live/2026/07/02/world/ukraine-kyiv-russia-attack
+
 **Workers Endure Sweltering Conditions as Heat Wave Intensifies**\
 `Some workers dealt with sweltering conditions as others found business opportunities amid a heat wave that was intensifying in the Northeast.`\
 https://www.nytimes.com/video/us/100000011006139/extreme-heat-workers.html
