@@ -1,3 +1,11 @@
+**Kyiv Takes Shelter From Overnight Strikes by Russia**\
+`Residents of the Ukrainian capital of Kyiv came prepared to spend the night underground as Russia fired attack drones and ballistic missiles.`\
+https://www.nytimes.com/video/world/europe/100000011006135/ukraine-kyiv-russia-attack.html
+
+**Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
+`At least 10 people were killed in the assault, which began hours after President Volodymyr Zelensky of Ukraine warned that Russia was preparing another “massive strike” on Kyiv.`\
+https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
+
 **U.S. Resumes Dollar Transfers to Iraq After Monthslong Suspension**\
 `The Trump administration had halted the shipments to Iraq as part of its efforts to pressure the Baghdad government to distance itself from Iran.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/iraq-us-dollar-transfers-resumes.html
