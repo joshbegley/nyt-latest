@@ -1,3 +1,7 @@
+**MAGA Base Stays Quiet After Trump Reports Billions in Personal Gains**\
+`A new mandatory disclosure revealed that the president has earned $2.2 billion during the first year back in the White House.`\
+https://www.nytimes.com/2026/07/02/us/politics/trump-earnings-maga-reaction.html
+
 **Rare Copy of the Declaration of Independence Is Discovered in London**\
 `A volunteer cataloging naval letters came across a copy of the document, printed 250 years ago in New Hampshire. “It was a thrilling find,” he said.`\
 https://www.nytimes.com/2026/07/02/world/europe/declaration-independence-copy-uk-archive.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/europe/100000011007183/ukraine-kyiv-resident
 **What the Pursuit of Happiness Looks Like, 250 Years In**\
 `We asked dozens of people how they pursue happiness, one of three inalienable rights laid out in the Declaration of Independence. A single theme stood out: To strive is to be American.`\
 https://www.nytimes.com/interactive/2026/07/02/us/america-pursuit-happiness.html
-
-**Heat Wave Survival Tips From a Death Valley Ranger, Volcano Hiking Guide and Forest Firefighter**\
-`We asked people whose jobs require them to routinely face temperatures over 100 degrees for their coping strategies. Start with water.`\
-https://www.nytimes.com/2026/07/02/travel/heat-wave-tips-experts-jobs.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
