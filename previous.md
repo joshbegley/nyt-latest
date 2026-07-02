@@ -1,3 +1,7 @@
+**What Is the Heat Index? What To Know About the Metric During a Heat Wave**\
+`The metric of how hot the air actually feels has roots in a 1979 journal paper called “The Assessment of Sultriness.”`\
+https://www.nytimes.com/2026/07/02/weather/heat-index-temperature.html
+
 **How Heat Affects the Brain**\
 `A growing body of research has shown that our brains work differently when temperatures spike.`\
 https://www.nytimes.com/2026/07/02/climate/how-heat-affects-the-brain.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/nyregion/100000011006615/taylor-swift-wedding-nyc-
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/02/books/review/new-recommended-books.html
-
-**Kyiv Neighborhood Badly Damaged in Russian Attack**\
-`A large-scale Russian attack damaged several neighborhoods in the Ukrainian capital overnight on Thursday. We visited one that was particularly badly hit.`\
-https://www.nytimes.com/video/world/europe/100000011006992/kyiv-neighborhood-badly-damaged-in-russian-attack.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

@@ -1,3 +1,7 @@
+**What Is the Heat Index? What To Know About the Metric During a Heat Wave**\
+`The metric of how hot the air actually feels has roots in a 1979 journal paper called “The Assessment of Sultriness.”`\
+https://www.nytimes.com/2026/07/02/weather/heat-index-temperature.html
+
 **How Heat Affects the Brain**\
 `A growing body of research has shown that our brains work differently when temperatures spike.`\
 https://www.nytimes.com/2026/07/02/climate/how-heat-affects-the-brain.html
