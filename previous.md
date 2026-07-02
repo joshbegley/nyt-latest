@@ -1,3 +1,7 @@
+**Animals Need to Cool Off, Too**\
+`Mammals across the Midwest are doing their best to stay cool during the heat wave, with some help from humans.`\
+https://www.nytimes.com/2026/07/02/weather/animals-heat-wave.html
+
 **Clusters of Severe Stomach Illness Reported Across the U.S.**\
 `Public health experts said there were more cases than usual of the disease caused by cyclospora, which is spread through contaminated food and drink.`\
 https://www.nytimes.com/2026/07/02/well/cyclospora-infection-united-states.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/travel/heat-wave-tips-experts-jobs.html
 **El ICE realiza 10.000 detenciones en 5 días**\
 `La agencia ha duplicado su número de detenciones diarias sin el revuelo de las grandes operaciones urbanas del año pasado, sembrando el miedo entre las comunidades migrantes.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/ice-operativos-detenciones.html
-
-**Trump-Linked Firm’s Fees for Organizing Freedom 250 Events Remain Secret**\
-`Event Strategies, Inc., a longtime vendor to President Trump’s campaigns, is organizing the Great American State Fair and the July 4 celebrations.`\
-https://www.nytimes.com/2026/07/02/us/politics/trump-allies-firm-organizing-250th.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

@@ -1,3 +1,7 @@
+**Animals Need to Cool Off, Too**\
+`Mammals across the Midwest are doing their best to stay cool during the heat wave, with some help from humans.`\
+https://www.nytimes.com/2026/07/02/weather/animals-heat-wave.html
+
 **Clusters of Severe Stomach Illness Reported Across the U.S.**\
 `Public health experts said there were more cases than usual of the disease caused by cyclospora, which is spread through contaminated food and drink.`\
 https://www.nytimes.com/2026/07/02/well/cyclospora-infection-united-states.html
