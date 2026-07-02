@@ -1,3 +1,7 @@
+**Bureau of Prisons Will Close Facilities Housing Thousands of Inmates**\
+`The agency pointed to crumbling infrastructure, chronic staffing shortages and budget shortfalls as it moved to cut costs.`\
+https://www.nytimes.com/2026/07/01/us/politics/bureau-of-prisons-closing-facilities.html
+
 **Ruling on Trans Athletes Gave the G.O.P. a Win. Most Democrats Looked the Other Way.**\
 `While Republicans celebrated the ruling, many Democrats stayed quiet on an issue that had proved divisive in the last election.`\
 https://www.nytimes.com/2026/07/01/us/politics/supreme-court-trans-athletes-midterms.html
