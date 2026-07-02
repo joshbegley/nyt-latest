@@ -1,3 +1,7 @@
+**As U.S. Faces Extreme Heat, Data Centers Are Ordered to Use Backup Power to Prevent Blackouts**\
+`As triple-digit temperatures engulf much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
+https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
+
 **Russia Bombards Ukrainian Capital With Deadly Wave of Attacks**\
 `At least 21 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-attack-on-kyiv.html

@@ -1,3 +1,7 @@
+**Pick Your Cookout Persona: Grill Master or Bartender**\
+`Good thing we have lots of great veggie-based recipes for each.`\
+https://www.nytimes.com/2026/07/02/dining/pick-your-cookout-persona-grill-master-or-bartender.html
+
 **Russia Bombards Ukrainian Capital With Deadly Wave of Attacks**\
 `At least 21 people were killed in drone and missile strikes on Kyiv that damaged several residential buildings across the city, the authorities said.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-attack-on-kyiv.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/crosswords/connections-companion-1118.html
 **Today’s Wordle Hints for July 3, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
 https://www.nytimes.com/2026/07/02/crosswords/wordle-review-1840.html
-
-**NYT Strands Hints for July 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
-https://www.nytimes.com/2026/07/02/crosswords/strands-sidekick-852.html
 

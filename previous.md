@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/07/02/arts/music/gary-glitter-charged.html
 https://www.nytimes.com/2026/07/02/us/politics/tucker-carlson-third-party.html
 
 **As U.S. Faces Extreme Heat, Data Centers Are Ordered to Use Backup Power to Prevent Blackouts**\
-`As triple-digit heat engulfs much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
+`As triple-digit temperatures engulf much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
 https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
 
 **Court Investigates Spanish Police Chief, Heaping Pressure on Prime Minister**\
