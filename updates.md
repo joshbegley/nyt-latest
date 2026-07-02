@@ -1,3 +1,7 @@
+**An Aerial View of Disaster at a Venezuela Housing Project**\
+`What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
+https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
+
 **Live Updates: U.S. Hiring Continues at a Steady but Slower Pace**\
 `The economy added 57,000 jobs in June, the unemployment rate ticked down to 4.2 percent, and wage gains were solid.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy

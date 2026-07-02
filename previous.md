@@ -1,3 +1,7 @@
+**An Aerial View of Disaster at a Venezuela Housing Project**\
+`What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
+https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
+
 **Tesla Sales Surge as Sales Recover in Europe**\
 `Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
 https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/arts/is-there-life-out-here.html
 **In Potato Salad We Trust**\
 `An argument for its place atop the list of great American dishes.`\
 https://www.nytimes.com/2026/07/02/podcasts/cannonball-potato-salad.html
-
-**How to Stay Safe in a ‘Heat Dome’**\
-`Extreme temperatures over the Fourth of July weekend will put a strain on emergency rooms.`\
-https://www.nytimes.com/2026/07/02/well/extreme-heat-dome-health-emergency.html
 
