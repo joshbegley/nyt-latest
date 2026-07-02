@@ -1,3 +1,7 @@
+**Bomb Explodes at Damascus Cafe, Killing at Least 4**\
+`The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent insecurity.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
+
 **Herbert Lust, Collector Who Befriended Giacometti, Dies at 99**\
 `He gravitated toward the work of artists he knew personally, like Alexander Calder and Robert Indiana, in amassing an unusual, important collection.`\
 https://www.nytimes.com/2026/07/02/arts/design/herbert-c-lust-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/business/economy/ai-economy-data.html
 **Across a Scorching Ohio, Residents Endure Breathtaking Heat**\
 `The heat wave gripping much of the eastern half of the country over the past few days has been especially intense throughout the state.`\
 https://www.nytimes.com/2026/07/02/us/ohio-heat-dome.html
-
-**13 George Washington Interpreters on Embodying an Icon**\
-`How a coterie of men are trying to bring one of America’s founding fathers into the present.`\
-https://www.nytimes.com/interactive/2026/07/02/opinion/george-washington-interpreters-history.html
 
