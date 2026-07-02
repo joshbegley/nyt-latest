@@ -1,3 +1,15 @@
+**What Private Credit Is, and Why Investors Are So Worried About It**\
+`Some say the industry expanded too quickly and extended loans to companies that won’t be able to pay them back.`\
+https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
+
+**Today, In Short**\
+`U.S. history. Heat wave clothing. And a proposal atop the Empire State Building.`\
+https://www.nytimes.com/2026/07/02/briefing/today-in-short.html
+
+**Private Credit Can’t Stop the ‘Freak Out’**\
+`On Thursday, Blue Owl reported another quarter of double-digit investor withdrawal requests from some of its private credit funds.`\
+https://www.nytimes.com/2026/07/02/business/private-credit-withdrawals.html
+
 **Bomb Explodes at Damascus Cafe, Killing at Least 4**\
 `The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent insecurity.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
@@ -77,6 +89,10 @@ https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-s
 **Live Updates: U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
+**What to know about the report.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/02/business/economy/jobs-report-employment.html
 
 **Labor Market Not a Source of Inflationary Pressure, Latest Report Shows**\
 `The unemployment rate ticked down to 4.2 percent, but average hourly earnings were steady, giving Kevin Warsh, the Federal Reserve chairman, room to focus on fighting inflation.`\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/02/opinion/trans-athletes-sports-supreme-court.h
 **A Mother and Daughter Planned Their Lives Together in Minnesota. What Would $300,000 Buy?**\
 `A former schoolteacher and her adult daughter, who has a disability, looked in and around the lake city of Duluth for a home of their very own.`\
 https://www.nytimes.com/interactive/2026/07/02/realestate/minnesota-duluth-cloquet-homes-sale-prices.html
-
-**Corrections: July 2, 2026**\
-`Corrections that appeared in print on Thursday, July 2, 2026.`\
-https://www.nytimes.com/2026/07/02/corrections/corrections-july-2-2026.html
-
-**Black Soldiers In the Revolutionary War: A New England Journey**\
-`Across New England, a writer traveled down dirt paths and into historic homes to find the forgotten stories of the enslaved men who fought for freedom on two fronts.`\
-https://www.nytimes.com/2026/07/02/travel/revolutionary-war-black-soldiers-history.html
-
-**A.I. Is Reshaping the Economy. Good Luck Measuring How.**\
-`Some data suggest artificial intelligence is already causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
-https://www.nytimes.com/2026/07/02/business/economy/ai-economy-data.html
-
-**Across a Scorching Ohio, Residents Endure Breathtaking Heat**\
-`The heat wave gripping much of the eastern half of the country over the past few days has been especially intense throughout the state.`\
-https://www.nytimes.com/2026/07/02/us/ohio-heat-dome.html
 
