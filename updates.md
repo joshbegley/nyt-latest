@@ -1,3 +1,11 @@
+**Mass Mournings, 6 Days and2 Countries: Iran Prepares to Bury Supreme Leader**\
+`Long-delayed funeral ceremonies for Ayatollah Ali Khamenei, killed during U.S.-Israeli strikes at the war’s outset, are set to begin Friday. For the regime, it is a critical moment to demonstrate that it has endured.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/iran-funeral-ali-khamenei-preparations.html
+
+**U.S. Says Iran May Swap Ideology For Investment. History Shows Otherwise**\
+`Senior U.S. officials have said Iran would be richly rewarded for changing its stance on the United States. Iran’s leaders have rejected such a bargain in the past.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/us-iran-negotiations-economy-opening-up.html
+
 **Live Updates: Russia Hammers Ukraine’s Capital in Deadly Attacks**\
 `At least 13 people were killed in the assault on Kyiv, the Ukrainian authorities said. President Volodymyr Zelensky of Ukraine had warned in recent days that Russia was preparing a “massive strike.”`\
 https://www.nytimes.com/live/2026/07/02/world/ukraine-kyiv-russia-attack

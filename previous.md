@@ -1,3 +1,11 @@
+**Mass Mournings, 6 Days and2 Countries: Iran Prepares to Bury Supreme Leader**\
+`Long-delayed funeral ceremonies for Ayatollah Ali Khamenei, killed during U.S.-Israeli strikes at the war’s outset, are set to begin Friday. For the regime, it is a critical moment to demonstrate that it has endured.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/iran-funeral-ali-khamenei-preparations.html
+
+**U.S. Says Iran May Swap Ideology For Investment. History Shows Otherwise**\
+`Senior U.S. officials have said Iran would be richly rewarded for changing its stance on the United States. Iran’s leaders have rejected such a bargain in the past.`\
+https://www.nytimes.com/2026/07/02/world/middleeast/us-iran-negotiations-economy-opening-up.html
+
 **Drones over Europe raise concerns about Russian activities**\
 `A new study, backed up by analysts and political leaders, says frequent drone flights over NATO military assets mark a Russian campaign to probe defenses and gather information.`\
 https://www.nytimes.com/2026/07/02/world/europe/drone-incursions-europe-russia.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/01/us/politics/judge-trump-postal-service.html
 **Promising Much to Many, Johnson Loses His Grip on the House**\
 `Republicans are growing frustrated with Mr. Johnson’s approach to governing with a razor-thin majority, saying that he promises more than he can achieve, frustrating the disparate groups in his caucus.`\
 https://www.nytimes.com/2026/07/01/us/politics/mike-johnson-house-majority.html
-
-**August Trial Date Is Set for Brooklyn Power Broker Accused of Bribery**\
-`Lawyers for Frank Carone, who was an aide to former Mayor Eric Adams, said they want his trial to begin as soon as possible.`\
-https://www.nytimes.com/2026/07/01/nyregion/frank-carone-corruption-trial-date.html
-
-**¿Y Si Sí? The World Cup Delivers Hope to Mexico**\
-`Mexico’s World Cup run has electrified the nation, drawing hundreds of thousands into the streets in celebrations of collective joy, resilience and hope.`\
-https://www.nytimes.com/2026/07/01/world/americas/mexico-world-cup-celebrations.html
 

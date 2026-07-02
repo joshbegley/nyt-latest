@@ -1,4 +1,4 @@
-**Mass Mournings, 6 Days and2 Countries: Iran Prepares to Bury Supreme Leader**\
+**Mass Mournings,6 Days and 2 Countries: Iran Prepares to Bury Supreme Leader**\
 `Long-delayed funeral ceremonies for Ayatollah Ali Khamenei, killed during U.S.-Israeli strikes at the war’s outset, are set to begin Friday. For the regime, it is a critical moment to demonstrate that it has endured.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/iran-funeral-ali-khamenei-preparations.html
 
