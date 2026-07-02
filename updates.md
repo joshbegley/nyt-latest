@@ -1,3 +1,11 @@
+**Federal Inmate Charged With Lending Contraband Phone to Sex Trafficker**\
+`David Motovich, an inmate at a Brooklyn detention center, was said to have lent an illegal cellphone to Oren Alexander, who was convicted of sex crimes along with his brothers earlier this year.`\
+https://www.nytimes.com/2026/07/01/nyregion/alexander-brothers-contraband-cellphone.html
+
+**Nine Arrested in Federal Crackdown on L.A.’s Sex-Trafficking Corridor**\
+`Federal officials in Los Angeles described gang members’ yearslong scheme that relied on social media and physical violence to recruit and maintain control of the girls.`\
+https://www.nytimes.com/2026/07/01/us/los-angeles-sex-trafficking-figueroa-raid.html
+
 **Bureau of Prisons Will Close Facilities Housing Thousands of Inmates**\
 `The agency pointed to crumbling infrastructure, chronic staffing shortages and budget shortfalls as it moved to cut costs.`\
 https://www.nytimes.com/2026/07/01/us/politics/bureau-of-prisons-closing-facilities.html

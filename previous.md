@@ -1,3 +1,11 @@
+**Federal Inmate Charged With Lending Contraband Phone to Sex Trafficker**\
+`David Motovich, an inmate at a Brooklyn detention center, was said to have lent an illegal cellphone to Oren Alexander, who was convicted of sex crimes along with his brothers earlier this year.`\
+https://www.nytimes.com/2026/07/01/nyregion/alexander-brothers-contraband-cellphone.html
+
+**Nine Arrested in Federal Crackdown on L.A.’s Sex-Trafficking Corridor**\
+`Federal officials in Los Angeles described gang members’ yearslong scheme that relied on social media and physical violence to recruit and maintain control of the girls.`\
+https://www.nytimes.com/2026/07/01/us/los-angeles-sex-trafficking-figueroa-raid.html
+
 **Bureau of Prisons Will Close Facilities Housing Thousands of Inmates**\
 `The agency pointed to crumbling infrastructure, chronic staffing shortages and budget shortfalls as it moved to cut costs.`\
 https://www.nytimes.com/2026/07/01/us/politics/bureau-of-prisons-closing-facilities.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/01/espanol/estados-unidos/trump-dolares-decla
 **The Democratic Incumbents Most at Risk of Losing to Progressive Primary Challengers in 2026**\
 `A wave of outsider fervor has already knocked out a number of incumbents in primary races. Several more face spirited opposition.`\
 https://www.nytimes.com/2026/07/01/us/politics/democratic-incumbents-progressive-primary-challengers.html
-
-**Dark and Light: Words for the Fourth**\
-`Readers respond to a column by Bret Stephens and a letter about the Fourth of July. Also: Food education, for children and parents.`\
-https://www.nytimes.com/2026/07/01/opinion/america-250-july4.html
-
-**Trump Remakes Washington, D.C., Into a Maze of Fences and Guard Members**\
-`President Trump seems to have turned swaths of the city into either a construction zone or an armed camp as he seeks to prove that he alone can improve it.`\
-https://www.nytimes.com/2026/07/01/us/politics/trump-washington-dc-construction.html
 
