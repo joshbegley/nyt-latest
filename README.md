@@ -14,7 +14,7 @@ https://www.nytimes.com/interactive/2026/07/01/weather/bavi-map-path-tracker.htm
 `Melting pot, tapestry, mosaic, kaleidoscope, salad bowl. Every cliché is true.`\
 https://www.nytimes.com/interactive/2026/07/01/us/america-identity-ancestry-census.html
 
-**For Congo Fans, the Thrill of Victory Was so Close, Until It Wasn’t**\
+**For Congo Fans, the Thrill of Victory Was So Close, Until It Wasn’t**\
 `Congo lost 2-1 to England on Wednesday night, after spending most of the game winning.`\
 https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html
 
