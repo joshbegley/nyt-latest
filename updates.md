@@ -1,3 +1,7 @@
+**For Congo Fans, the Thrill of Victory Was So Close, Until It Wasn’t**\
+`Congo lost 2-1 to England on Wednesday night, after spending most of the game winning.`\
+https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html
+
 **Man Charged With Killing Postal Worker on Her Route in North Carolina**\
 `William Craig Durham, 56, faces murder and kidnapping charges in the death of Brandi Reynolds, 35, the authorities say.`\
 https://www.nytimes.com/2026/07/01/us/postal-worker-murder-north-carolina.html
