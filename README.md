@@ -1,3 +1,7 @@
+**Empire State Climbers Charged After ‘Extreme Risk-Taking Behavior’**\
+`Angela Nikolau and Ivan Beerkus, extreme climbers who have illegally scaled buildings around the world, were arrested after getting engaged atop the Manhattan landmark.`\
+https://www.nytimes.com/2026/07/02/nyregion/empire-state-builing-climbers-arraignment.html
+
 **All New York Suffers in a Heat Wave. It’s Worse in Jamaica, Queens.**\
 `“Heat-vulnerable” parts of the city have few trees, little shade and limited access to air-conditioning. And the risk of death is also higher.`\
 https://www.nytimes.com/2026/07/02/nyregion/heat-wave-nyc-jamaica-queens.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/02/briefing/an-american-mosaic.html
 **Ukrainian Charged With Sabotaging Pipelines Between Russia and Germany**\
 `A man identified only as Serhii K. is accused of overseeing an undersea bombing in 2022 that cut off a key source of Russian gas revenues.`\
 https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia-germany.html
-
-**USMNT Advance, at a Cost**\
-`The U.S. dominate Bosnia to reach the last 16 but will face Belgium without talismanic striker Folarin Balogun.`\
-https://www.nytimes.com/2026/07/02/podcasts/usmnt-last-16-balogun.html
 
 **Live Updates: Scorching Heat Wave Stifles Eastern U.S.**\
 `(No description)`\
