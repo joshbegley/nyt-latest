@@ -1,3 +1,11 @@
+**Bombs Bursting in Air Means Hours of Smoke and Terrified Dogs in D.C.**\
+`Organizers want the July 4 fireworks in the nation’s capital to break the world record. Pet owners, zoo keepers and asthma sufferers are not celebrating.`\
+https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
+
+**Labor Market Not a Source of Inflationary Pressure, Latest Report Shows**\
+`The unemployment rate ticked down to 4.2 percent, but average hourly earnings were steady, giving Kevin Warsh, the Federal Reserve chairman, room to focus on fighting inflation.`\
+https://www.nytimes.com/2026/07/02/business/economy/jobs-report-june-fed-interest-rates-warsh.html
+
 **An Aerial View of Disaster at a Venezuela Housing Project**\
 `What one aerial image of a collapsed building tells us about the aftermath of an earthquake in La Guaira, Venezuela.`\
 https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-oneimage.html
