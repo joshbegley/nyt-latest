@@ -1,3 +1,11 @@
+**El Vaticano excomulga a un grupo disidente, en la primera gran crisis del papa León**\
+`La medida contra la Fraternidad Sacerdotal San Pío X se produjo tras su decisión de desafiar al papa León XIV al consagrar nuevos obispos en contra de su voluntad.`\
+https://www.nytimes.com/es/2026/07/02/espanol/mundo/papa-leon-cisma-excomunion-lefebvrianos-fraternidad.html
+
+**Man Rescued 8 Days After Quake, a Ray of Joy in Stricken Venezuela**\
+`The 44-year-old security guard was pulled alive from a pancaked basement, offering a fleeting moment of hope amid a soaring death toll.`\
+https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-survivor.html
+
 **Supreme Court Allows Reporter to Be Fined for Failing to Disclose Source**\
 `Catherine Herridge, a former Fox News reporter, was held in civil contempt by a lower court after she refused to reveal her sources for articles she wrote about a scientist who was investigated by the F.B.I.`\
 https://www.nytimes.com/2026/07/02/us/politics/supreme-court-herridge-first-amendment.html

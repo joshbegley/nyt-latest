@@ -1,3 +1,7 @@
+**Carney Unveils Western Canada Mega Projects to Boost Asia Trade**\
+`Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
+https://www.nytimes.com/2026/07/02/world/canada/alberta-british-columbia-oil-pipeline.html
+
 **El Vaticano excomulga a un grupo disidente, en la primera gran crisis del papa León**\
 `La medida contra la Fraternidad Sacerdotal San Pío X se produjo tras su decisión de desafiar al papa León XIV al consagrar nuevos obispos en contra de su voluntad.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/papa-leon-cisma-excomunion-lefebvrianos-fraternidad.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/world/europe/spain-police-investigation-sanch
 **NJ Transit Announces Train Delays and Cancellations Tied to Extreme Heat Wave**\
 `NJ Transit blamed the extreme heat for delays and cancellations on Thursday, having warned commuters that high temperatures could affect the system’s aging infrastructure.`\
 https://www.nytimes.com/2026/07/02/weather/nj-transit-train-heat-delays-cancellations.html
-
-**What Private Credit Is, and Why Investors Are So Worried About It**\
-`Some say the industry expanded too quickly and extended loans to companies that won’t be able to pay them back.`\
-https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
