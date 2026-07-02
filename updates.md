@@ -1,3 +1,7 @@
+**Explosions Rock Kyiv**\
+`President Volodymyr Zelensky of Ukraine had warned hours earlier that Russia was preparing another “massive strike” on Kyiv.`\
+https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
+
 **Federal Inmate Charged With Lending Contraband Phone to Sex Trafficker**\
 `David Motovich, an inmate at a Brooklyn detention center, was said to have lent an illegal cellphone to Oren Alexander, who was convicted of sex crimes along with his brothers earlier this year.`\
 https://www.nytimes.com/2026/07/01/nyregion/alexander-brothers-contraband-cellphone.html
