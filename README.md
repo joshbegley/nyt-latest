@@ -1,3 +1,7 @@
+**Supreme Court Allows Reporter to Be Fined for Failing to Disclose Source**\
+`Catherine Herridge, a former Fox News reporter, was held in civil contempt by a lower court after she refused to reveal her sources for articles she wrote about a scientist who was investigated by the F.B.I.`\
+https://www.nytimes.com/2026/07/02/us/politics/supreme-court-herridge-first-amendment.html
+
 **¿Qué tanto le preocupan a Trump los conflictos de intereses?**\
 `Trump obtuvo al menos 2.2 millardos de dólares en su primer año de vuelta a la Casa Blanca, pero su actitud sobre mezclar negocios y política es clara: “Me di cuenta de que a nadie le importaba”.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-dinero-negocios-conflicto-interes.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.htm
 https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
 
 **Kyiv Residents Describe Devastation From Russian Attack**\
-`On Thursday, residents picked through the rubble after Russia bombarded Ukraine’s capital with a deadly wave of attacks. Local officials said that at least 21 people were killed and dozens more were injured as of Thursday evening.`\
+`On Thursday, residents picked through the rubble after Russia bombarded Ukraine’s capital with a deadly wave of attacks. Local officials said that at least 27 people were killed and dozens more were injured as of Thursday evening.`\
 https://www.nytimes.com/video/world/europe/100000011007183/ukraine-kyiv-residents-russia-attack.html
 
 **What the Pursuit of Happiness Looks Like, 250 Years In**\
@@ -178,15 +182,11 @@ https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
 `U.S. history. Heat wave clothing. And a proposal atop the Empire State Building.`\
 https://www.nytimes.com/2026/07/02/briefing/today-in-short.html
 
-**Private Credit Can’t Stop the ‘Freak Out’**\
-`On Thursday, Blue Owl reported another quarter of significant investor withdrawal requests from some of its private credit funds.`\
-https://www.nytimes.com/2026/07/02/business/private-credit-withdrawals.html
-
 **U.S. Hiring Continues at a Steady but Slower Pace**\
 `Employers added fewer jobs in June than a month earlier but the unemployment rate ticked down, a decent showing for the U.S. economy.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
-**Live Updates: New York Ties Temperature Record as Heat Wave Stifles Eastern U.S.**\
-`Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
+**Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
+`The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 
