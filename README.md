@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/07/01/us/politics/supreme-court-trans-athletes-midt
 https://www.nytimes.com/2026/07/01/us/kratom-trump-administration.html
 
 **Trump Finds His Presidential Alter Ego, the ‘He-Man’ Teddy Roosevelt**\
-`President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, who he called “a great he-man.”`\
+`President Trump flew into town on the new Air Force One and spent time touring the library dedicated to Theodore Roosevelt, whom he called “a great he-man.”`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-north-dakota-roosevelt-library.html
 
 **¿Y si sí? México encuentra esperanza en la Copa Mundial**\
