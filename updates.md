@@ -1,3 +1,7 @@
+**All New York Suffers in a Heat Wave. It’s Worse in Jamaica, Queens.**\
+`“Heat-vulnerable” parts of the city have few trees, little shade and limited access to air-conditioning. And the risk of death is also higher.`\
+https://www.nytimes.com/2026/07/02/nyregion/heat-wave-nyc-jamaica-queens.html
+
 **How New Yorkers Dressed for the Heat Wave**\
 `The streets became a backdrop for crop tops, World Cup gear and at least one aloha shirt.`\
 https://www.nytimes.com/2026/07/02/style/heat-wave-fashion-new-york.html
