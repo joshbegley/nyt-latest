@@ -1,3 +1,19 @@
+**Ocasio-Cortez Endorses Abdul El-Sayed in Crucial Michigan Senate Race**\
+`The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
+https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
+
+**Live Updates: Status Check on a Stabilizing Job Market**\
+`Data on hiring and the unemployment rate will provide the latest look at a U.S. economy where strong spending is confronting higher costs.`\
+https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
+**China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
+`City authorities said the pilot had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
+https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.html
+
+**An American Mosaic**\
+`We explore how people in the U.S. identify their ancestry.`\
+https://www.nytimes.com/2026/07/02/briefing/an-american-mosaic.html
+
 **Ukrainian Charged With Sabotaging Pipelines Between Russia and Germany**\
 `A man identified only as Serhii K. is accused of overseeing an undersea bombing in 2022 that cut off a key source of Russian gas revenues.`\
 https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia-germany.html

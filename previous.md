@@ -1,3 +1,19 @@
+**Ocasio-Cortez Endorses Abdul El-Sayed in Crucial Michigan Senate Race**\
+`The endorsement is the first in a contested Senate primary by Representative Alexandria Ocasio-Cortez this year, in a state that Democrats believe they must hold this fall to win a Senate majority.`\
+https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
+
+**Live Updates: Status Check on a Stabilizing Job Market**\
+`Data on hiring and the unemployment rate will provide the latest look at a U.S. economy where strong spending is confronting higher costs.`\
+https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
+
+**China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
+`City authorities said the pilot had suffered from insomnia and anxiety and had expressed a desire to end his life.`\
+https://www.nytimes.com/2026/07/02/world/asia/beijing-skyscraper-crash-pilot.html
+
+**An American Mosaic**\
+`We explore how people in the U.S. identify their ancestry.`\
+https://www.nytimes.com/2026/07/02/briefing/an-american-mosaic.html
+
 **Ukrainian Charged With Sabotaging Pipelines Between Russia and Germany**\
 `A man identified only as Serhii K. is accused of overseeing an undersea bombing in 2022 that cut off a key source of Russian gas revenues.`\
 https://www.nytimes.com/2026/07/02/world/europe/pipeline-sabotage-ukraine-russia-germany.html
@@ -177,24 +193,4 @@ https://www.nytimes.com/2026/07/02/arts/design/new-york-public-library-250.html
 **Quiz Yourself on 250 Years of American Home Design**\
 `Test your knowledge of the figures and fads that have defined the look of the American home.`\
 https://www.nytimes.com/2026/07/02/realestate/quiz-yourself-on-250-years-of-american-home-design.html
-
-**Taylor Swift and Donald Trump Are Both Celebrating July 4th Weekend in Their Own Way.**\
-`Fourth of July weekend is shaping up to be a cultural moment of contrasting and comparing two of the most famous Americans, Taylor Swift and Donald Trump.`\
-https://www.nytimes.com/2026/07/02/style/its-the-nations-big-birthday-weekend-taylor-and-trump-are-each-celebrating-in-their-own-way.html
-
-**Under 35 Years Old and Mortgage-Free**\
-`Why do so many more young people own their homes outright?`\
-https://www.nytimes.com/2026/07/02/realestate/mortgages-home-prices-millennials.html
-
-**‘Lockbox’ Review: A Demonic Combination**\
-`This silly supernatural thriller about a fiendish shape shifter leaves coherence and clarity behind.`\
-https://www.nytimes.com/2026/07/02/movies/lockbox-review.html
-
-**You’re Going to Get Hacked. The Only Solution Is to Abandon Your Shame.**\
-`“So what?” needs to be our response to the salacious, titillating and terrifying hacks that could come our way.`\
-https://www.nytimes.com/2026/07/02/opinion/hacking-ai-leaks-shame.html
-
-**Boston Is Drinking Like It’s 1776. The Founding Fathers Would Be Proud.**\
-`A summer of celebratory drinking is underway in the birthplace of the American Revolution. But however tipsy the tourists get, the founders probably had them beat.`\
-https://www.nytimes.com/2026/07/02/us/brooke-barbier-revolutionary-era-drinks.html
 
