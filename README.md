@@ -1,3 +1,23 @@
+**The Fallout of Massive Earthquakes for Venezuela — and the U.S.**\
+`Venezuelans describe the disaster, and our reporter explains the political aftermath.`\
+https://www.nytimes.com/2026/07/02/podcasts/the-daily/earthquake-venezuela.html
+
+**A Quiet Surge in ICE Arrests, and Trump’s First Flight on Plane Given by Qatar**\
+`Plus, the fight over “Y.M.C.A.”`\
+https://www.nytimes.com/2026/07/02/podcasts/the-headlines/ice-arrests-trump-plane.html
+
+**NYT Connections Answers for July 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/02/crosswords/connections-companion-1118.html
+
+**Today’s Wordle Hints for July 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/02/crosswords/wordle-review-1840.html
+
+**NYT Strands Hints for July 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/02/crosswords/strands-sidekick-852.html
+
 **Boston Suburb Imposes Curfew for Cape Verde’s Next World Cup Match**\
 `The curfew in Brockton, Mass., a city with a large Cape Verdean community, takes effect after Friday’s match against Argentina. Celebrations of the team’s opening games turned chaotic.`\
 https://www.nytimes.com/2026/07/02/sports/world-cup/brockton-curfew-boston-cape-verde.html
@@ -177,20 +197,4 @@ https://www.nytimes.com/2026/07/02/us/politics/republican-senate-candidates-supe
 **How to Make a Time Capsule That Will Last 250 Years**\
 `The America250 time capsule will hold dozens of historical treasures. Avoiding dampness and other dangers requires lots of engineering.`\
 https://www.nytimes.com/2026/07/02/science/america250-time-capsule.html
-
-**Regular Users Can Tolerate Previously ‘Unsurvivable’ Amounts of Fentanyl**\
-`New research shows that tolerance has become so strong that common treatments for opioid addiction are no longer effective for many patients.`\
-https://www.nytimes.com/2026/07/02/health/fentanyl-opioid-research-los-angeles.html
-
-**In These Thrillers, Vacations Go Very, Very Wrong**\
-`The best-selling author Gillian McAllister recommends novels that blend escapist settings with pulse-pounding intrigue and bloody murder.`\
-https://www.nytimes.com/2026/07/02/books/vacation-thriller-books.html
-
-**In ‘Basura,’ Gloria and Emily Estefan Found a New Rhythm**\
-`The mother and daughter spent years composing the songs and the score for the show. “In every mother-daughter relationship, it’s complicated,” Gloria Estefan said.`\
-https://www.nytimes.com/2026/07/02/theater/basura-gloria-and-emily-estefan-interview.html
-
-**Gertrude Abercrombie: Good Witch of the American Absurd**\
-`In Milwaukee, two art exhibitions relish the strangeness of this studious eccentric who saw in inanimate objects an odd force of will.`\
-https://www.nytimes.com/2026/07/02/arts/design/gertrude-abercrombie-milwaukee-museum.html
 

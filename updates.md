@@ -1,3 +1,7 @@
+**Boston Suburb Imposes Curfew for Cape Verde’s Next World Cup Match**\
+`The curfew in Brockton, Mass., a city with a large Cape Verdean community, takes effect after Friday’s match against Argentina. Celebrations of the team’s opening games turned chaotic.`\
+https://www.nytimes.com/2026/07/02/sports/world-cup/brockton-curfew-boston-cape-verde.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011006585/02ukraine-reporter-updates-F0BE8MBG2T1.html
