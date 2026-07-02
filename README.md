@@ -1,3 +1,7 @@
+**NJ Transit Announces Train Delays and Cancellations Tied to Extreme Heat Wave**\
+`NJ Transit blamed the extreme heat for delays and cancellations on Thursday, having warned commuters that high temperatures could affect the system’s aging infrastructure.`\
+https://www.nytimes.com/2026/07/02/weather/nj-transit-train-heat-delays-cancellations.html
+
 **What Private Credit Is, and Why Investors Are So Worried About It**\
 `Some say the industry expanded too quickly and extended loans to companies that won’t be able to pay them back.`\
 https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/02/opinion/barrett-roverts-gorsuch-supreme-court
 **The Transgender Sports Decision Was About Something Deeper Than Law**\
 `It’s never just a game.`\
 https://www.nytimes.com/2026/07/02/opinion/trans-athletes-sports-supreme-court.html
-
-**A Mother and Daughter Planned Their Lives Together in Minnesota. What Would $300,000 Buy?**\
-`A former schoolteacher and her adult daughter, who has a disability, looked in and around the lake city of Duluth for a home of their very own.`\
-https://www.nytimes.com/interactive/2026/07/02/realestate/minnesota-duluth-cloquet-homes-sale-prices.html
 

@@ -1,3 +1,19 @@
+**What Private Credit Is, and Why Investors Are So Worried About It**\
+`Some say the industry expanded too quickly and extended loans to companies that won’t be able to pay them back.`\
+https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
+
+**Today, In Short**\
+`U.S. history. Heat wave clothing. And a proposal atop the Empire State Building.`\
+https://www.nytimes.com/2026/07/02/briefing/today-in-short.html
+
+**Private Credit Can’t Stop the ‘Freak Out’**\
+`On Thursday, Blue Owl reported another quarter of double-digit investor withdrawal requests from some of its private credit funds.`\
+https://www.nytimes.com/2026/07/02/business/private-credit-withdrawals.html
+
+**What to know about the report.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/02/business/economy/jobs-report-employment.html
+
 **Bomb Explodes at Damascus Cafe, Killing at Least 4**\
 `The blast, near the Syrian capital’s main courthouse, underscored the country’s persistent insecurity.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/damascus-cafe-bomb.html
