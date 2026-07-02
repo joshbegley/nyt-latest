@@ -1,3 +1,19 @@
+**Texas Governor Appoints Former Hard Right Critic to Key Post**\
+`Gov. Greg Abbott appointed a firebrand former opponent, Don Huffines, to be state comptroller, underscoring a G.O.P. push for unity ahead of the midterms.`\
+https://www.nytimes.com/2026/07/02/us/don-huffines-texas-comptroller.html
+
+**Ocho días bajo los escombros: el rescate que emocionó a Venezuela**\
+`Hernán Gil, de 44 años, fue rescatado con vida de los escombros de un edificio colapsado, en un momento de alivio entre la devastación.`\
+https://www.nytimes.com/es/2026/07/02/espanol/america-latina/terremoto-venezuela-rescate-sobreviviente.html
+
+**A Sweltering Fourth of July**\
+`Also, Taylor’s wedding. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/02/briefing/heat-wave-fourth.html
+
+**New York Gallery Surrenders 20 Artifacts Thought Looted From Cambodia**\
+`The Madison Avenue business turned over stone statues and other items that it had purchased from an art dealer accused of trafficking in illicit objects.`\
+https://www.nytimes.com/2026/07/02/arts/new-york-gallery-surrenders-20-artifacts-thought-looted-from-cambodia.html
+
 **Deadly MV Hondius Hantavirus Outbreak Is Over, W.H.O. Says**\
 `The rodent-borne virus, which sickened passengers on the MV Hondius, killed three people, led to a race to find its origin and a global health alert.`\
 https://www.nytimes.com/2026/07/02/world/hantavirus-cruise-outbreak-timeline-events.html
@@ -169,18 +185,6 @@ https://www.nytimes.com/2026/07/02/opinion/supreme-court-trump.html
 **Robert Kimball, Who Helped Uncover a Trove of Broadway History, Dies at 86**\
 `He excavated a treasure hoard of manuscripts by George Gershwin, Cole Porter, Richard Rodgers and others that were found in a warehouse in Secaucus, N.J.`\
 https://www.nytimes.com/2026/07/02/theater/robert-kimball-dead.html
-
-**Empire State Climbers Charged After ‘Extreme Risk-Taking Behavior’**\
-`Angela Nikolau and Ivan Beerkus, extreme climbers who have illegally scaled buildings around the world, were arrested after getting engaged atop the Manhattan landmark.`\
-https://www.nytimes.com/2026/07/02/nyregion/empire-state-builing-climbers-arraignment.html
-
-**All New York Suffers in a Heat Wave. It’s Worse in Jamaica, Queens.**\
-`“Heat-vulnerable” parts of the city have few trees, little shade and limited access to air-conditioning. And the risk of death is also higher.`\
-https://www.nytimes.com/2026/07/02/nyregion/heat-wave-nyc-jamaica-queens.html
-
-**How New Yorkers Dressed for the Heat Wave**\
-`The streets became a backdrop for crop tops, World Cup gear and at least one aloha shirt.`\
-https://www.nytimes.com/2026/07/02/style/heat-wave-fashion-new-york.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
