@@ -1,3 +1,7 @@
+**How Trump Made ‘Y.M.C.A.’ His Anthem, Despite the Village People and Victor Willis’s Mixed Feelings**\
+`On social media, he said the Village People’s lead singer, Victor Willis, was with him “right from the beginning.” But the president has a more complicated history with the group.`\
+https://www.nytimes.com/2026/07/01/us/politics/trump-ymca-anthem-village-people.html
+
 **Russia Strikes Ukraine as Explosions Rock Capital of Kyiv**\
 `President Volodymyr Zelensky of Ukraine had warned hours earlier that Russia was preparing another “massive strike” on Kyiv.`\
 https://www.nytimes.com/2026/07/01/world/europe/ukraine-kyiv-russia-attack.html
