@@ -1,6 +1,10 @@
-**Carney Unveils Western Canada Mega Projects to Boost Asia Trade**\
+**Ukraine escalates military pressure on Russian-held Crimea**\
+`Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
+
+**Carney Unveils Western Canada Mega-Projects to Boost Asia Trade**\
 `Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
-https://www.nytimes.com/2026/07/02/world/canada/alberta-british-columbia-oil-pipeline.html
+https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-alberta-british-columbia.html
 
 **El Vaticano excomulga a un grupo disidente, en la primera gran crisis del papa León**\
 `La medida contra la Fraternidad Sacerdotal San Pío X se produjo tras su decisión de desafiar al papa León XIV al consagrar nuevos obispos en contra de su voluntad.`\
@@ -178,15 +182,11 @@ https://www.nytimes.com/2026/07/02/us/politics/tucker-carlson-third-party.html
 `As triple-digit temperatures engulf much of the United States, the Trump administration wants grid managers to require the use of backup power that often goes unused.`\
 https://www.nytimes.com/2026/07/02/business/energy-environment/electric-grid-data-centers-pjm.html
 
-**Court Investigates Spanish Police Chief, Heaping Pressure on Prime Minister**\
-`The case against Mercedes González is part of a broader examination of whether allies of Prime Minister Pedro Sánchez tried to illegally undermine inquiries into people close to him.`\
-https://www.nytimes.com/2026/07/02/world/europe/spain-police-investigation-sanchez.html
-
-**NJ Transit Announces Train Delays and Cancellations Tied to Extreme Heat Wave**\
-`NJ Transit blamed the extreme heat for delays and cancellations on Thursday, having warned commuters that high temperatures could affect the system’s aging infrastructure.`\
-https://www.nytimes.com/2026/07/02/weather/nj-transit-train-heat-delays-cancellations.html
-
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
+**Immigrant Arrests Surge Amid ICE Enforcement Push**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/01/us/trump-news
 
