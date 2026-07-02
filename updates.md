@@ -1,3 +1,7 @@
+**For Congo Fans, the Thrill of Victory Was So Close, Until It Wasn’t**\
+`Congo lost, 2-1, to England on Wednesday, after spending most of the game winning.`\
+https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html
+
 **Cómo la guerra en Irán enfrentó a Trump y el príncipe heredero saudita**\
 `Mohammed bin Salman había presionado al presidente Trump para que debilitara a Irán. Pero a medida que Irán iba demostrando su poder, el príncipe instó a un alto al fuego y ahora se enfoca en sus prioridades de seguridad.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-principe-heredero-arabia-saudita-iran.html

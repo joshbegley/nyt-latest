@@ -39,7 +39,7 @@ https://www.nytimes.com/interactive/2026/07/01/weather/bavi-map-path-tracker.htm
 https://www.nytimes.com/interactive/2026/07/01/us/america-identity-ancestry-census.html
 
 **For Congo Fans, the Thrill of Victory Was So Close, Until It Wasn’t**\
-`Congo lost 2-1 to England on Wednesday night, after spending most of the game winning.`\
+`Congo lost, 2-1, to England on Wednesday, after spending most of the game winning.`\
 https://www.nytimes.com/2026/07/01/world/africa/congo-england-world-cup-kinshasa.html
 
 **What America’s 250th Means to Mamdani**\
