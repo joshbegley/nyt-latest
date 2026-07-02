@@ -1,3 +1,23 @@
+**The Fallout of Massive Earthquakes for Venezuela — and the U.S.**\
+`Venezuelans describe the disaster, and our reporter explains the political aftermath.`\
+https://www.nytimes.com/2026/07/02/podcasts/the-daily/earthquake-venezuela.html
+
+**A Quiet Surge in ICE Arrests, and Trump’s First Flight on Plane Given by Qatar**\
+`Plus, the fight over “Y.M.C.A.”`\
+https://www.nytimes.com/2026/07/02/podcasts/the-headlines/ice-arrests-trump-plane.html
+
+**NYT Connections Answers for July 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/02/crosswords/connections-companion-1118.html
+
+**Today’s Wordle Hints for July 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/02/crosswords/wordle-review-1840.html
+
+**NYT Strands Hints for July 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/02/crosswords/strands-sidekick-852.html
+
 **Boston Suburb Imposes Curfew for Cape Verde’s Next World Cup Match**\
 `The curfew in Brockton, Mass., a city with a large Cape Verdean community, takes effect after Friday’s match against Argentina. Celebrations of the team’s opening games turned chaotic.`\
 https://www.nytimes.com/2026/07/02/sports/world-cup/brockton-curfew-boston-cape-verde.html
