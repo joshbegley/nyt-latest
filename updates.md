@@ -1,3 +1,11 @@
+**Mamdani Is a Taylor Swift Fan. Here Are His Top 12 Songs.**\
+`Ahead of Taylor Swift’s wedding celebration in Manhattan, Mayor Zohran Mamdani revealed that he is a bigger fan of her music than previously known.`\
+https://www.nytimes.com/2026/07/02/nyregion/mamdani-taylor-swift-songs.html
+
+**Louisiana Attorney General Charged With Bullying New Orleans Officials**\
+`Liz Murrill, a Republican, was indicted on charges of malfeasance and intimidation after sending warning letters to the city’s Democratic leaders over actions they took.`\
+https://www.nytimes.com/2026/07/02/us/louisiana-attorney-general-indicted-new-orleans.html
+
 **UPS Did Not Tell Inspectors to Check Failed Part in Louisville Crash**\
 `Inspectors were not instructed to check a bearing that they had been told was faulty, but the shipping company says Boeing, the plane’s manufacturer, is to blame.`\
 https://www.nytimes.com/2026/07/02/us/politics/ups-louisville-crash.html
