@@ -1,3 +1,7 @@
+**Kyiv Takes Shelter From Overnight Strikes by Russia**\
+`Residents of the Ukrainian capital of Kyiv came prepared to spend the night underground as Russia fired attack drones and ballistic missiles.`\
+https://www.nytimes.com/video/world/europe/100000011006135/ukraine-kyiv-russia-attack.html
+
 **U.S. Resumes Dollar Transfers to Iraq After Monthslong Suspension**\
 `The Trump administration had halted the shipments to Iraq as part of its efforts to pressure the Baghdad government to distance itself from Iran.`\
 https://www.nytimes.com/2026/07/02/world/middleeast/iraq-us-dollar-transfers-resumes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/us/politics/minnesota-pardon-sexual-abuser.ht
 **Robby Hoffman on Being Outed at 17**\
 `On “The Interview,” the comedian Robby Hoffman talked about what it was like to have her relationship with her girlfriend exposed when she was 17.`\
 https://www.nytimes.com/video/podcasts/100000011005264/robby-hoffman-on-being-outed-at-17.html
-
-**How JD Vance Helped bell hooks Back Onto the Best-Seller List**\
-`A grass-roots campaign urged readers to buy copies of the Black feminist writer’s 2002 book “Communion” before Vice President JD Vance’s book of the same name hit shelves.`\
-https://www.nytimes.com/2026/07/01/books/communion-bell-hooks-jd-vance.html
 
