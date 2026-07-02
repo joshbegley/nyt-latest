@@ -1,3 +1,11 @@
+**Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
+`Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts and losing ground, analysts say.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html
+
+**Dutch and U.K. Governments Apologize for Their Roles in Forced Adoptions**\
+`In the Netherlands, more than 15,000 children were separated from their mothers from 1956 to 1984, causing “great sorrow and anger,” according to an official report on the practice.`\
+https://www.nytimes.com/2026/07/02/world/europe/dutch-government-forced-adoptions-apology.html
+
 **Bombs Bursting in Air Means Hours of Smoke and Terrified Dogs in D.C.**\
 `Organizers want the July 4 fireworks in the nation’s capital to break the world record. Pet owners, zoo keepers and asthma sufferers are not celebrating.`\
 https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/02/t-magazine/ancient-grain-sorghum-finds-new-fa
 **Solve the July Bonus Puzzle**\
 `This month’s soccer-themed puzzle was co-constructed by Katie Hale and Adesina O. Koiki.`\
 https://www.nytimes.com/2026/07/02/crosswords/bonus-puzzle-soccer-world-cup.html
-
-**Scientists React to the Lab-Made, Yet Lifelike, SpudCell**\
-`This cell-like structure can grow, feed, divide and compete. Researchers ponder what it means for the future of synthetic biology and our definition of “life.”`\
-https://www.nytimes.com/2026/07/02/science/spudcell-scientists-reaction.html
-
-**Is There Life Out Here?**\
-`Doug Aitken’s sprawling, elusive video installation asks a lot of questions about contemporary L.A. and its environs, and it’s smart enough not to answer them.`\
-https://www.nytimes.com/2026/07/02/arts/is-there-life-out-here.html
 
