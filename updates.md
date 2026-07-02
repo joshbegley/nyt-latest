@@ -1,3 +1,11 @@
+**Escalaron el Empire State para comprometerse. Terminaron detenidos**\
+`La pareja de escaladores extremos subió el miércoles a lo alto del emblemático edificio y desplegó una gran pancarta negra a cientos de metros de altura sobre la ciudad.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escaladores.html
+
+**Kyiv Residents Pick Up the Pieces After the Latest Russian Assault**\
+`The latest deadly night in Ukraine, more than four years after Russia’s full-scale invasion, showed how the toll for civilians continues to mount.`\
+https://www.nytimes.com/2026/07/02/world/europe/kyiv-strikes-civilians.html
+
 **Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
 `Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts and losing ground, analysts say.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html

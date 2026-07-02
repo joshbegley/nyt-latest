@@ -1,3 +1,11 @@
+**Escalaron el Empire State para comprometerse. Terminaron detenidos**\
+`La pareja de escaladores extremos subió el miércoles a lo alto del emblemático edificio y desplegó una gran pancarta negra a cientos de metros de altura sobre la ciudad.`\
+https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/empire-state-escaladores.html
+
+**Kyiv Residents Pick Up the Pieces After the Latest Russian Assault**\
+`The latest deadly night in Ukraine, more than four years after Russia’s full-scale invasion, showed how the toll for civilians continues to mount.`\
+https://www.nytimes.com/2026/07/02/world/europe/kyiv-strikes-civilians.html
+
 **Even as It Bombards Kyiv, Russia’s Wider Military Campaign Has Largely Stalled**\
 `Moscow can still inflict serious damage, but its forces are suffering higher casualties than their Ukrainian counterparts and losing ground, analysts say.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-ukraine-military-battlefield.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/07/02/style/taylor-swift-nyc-spots.html
 **36 Hours in Philadelphia, Pennsylvania: Things to Do and See.**\
 `Philadelphia may be the birthplace of American democracy, but its world-class museums and thrilling dining scene are just as revolutionary.`\
 https://www.nytimes.com/interactive/2026/07/02/travel/things-to-do-philadelphia.html
-
-**An Ancient Grain Finds New Fans**\
-`Plus: Shaker-inspired table linens, Faye Toogood’s new furniture and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/07/02/t-magazine/ancient-grain-sorghum-finds-new-fans.html
-
-**Solve the July Bonus Puzzle**\
-`This month’s soccer-themed puzzle was co-constructed by Katie Hale and Adesina O. Koiki.`\
-https://www.nytimes.com/2026/07/02/crosswords/bonus-puzzle-soccer-world-cup.html
 
