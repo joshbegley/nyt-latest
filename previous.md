@@ -1,3 +1,7 @@
+**Putin Retaliates With New Strikes After Ukraine Takes the War to Russia**\
+`Ukraine is taking the war to Russia, but so far President Vladimir V. Putin’s response has been to keep attacking, including with deadly ballistic missile and drone strikes in Kyiv on Thursday.`\
+https://www.nytimes.com/2026/07/02/world/europe/russia-putin-ukraine-war-pressure.html
+
 **Vatican Excommunicates Breakaway Group, in First Major Crisis for Pope Leo**\
 `The move against the Society of St. Pius X followed its decision to defy Pope Leo XIV by consecrating new bishops against his wishes.`\
 https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011006680/02vid-bioche
 https://www.nytimes.com/2026/07/02/us/politics/ocasio-cortez-endorses-abdul-el-sayed-in-crucial-michigan-senate-race.html
 
 **Live Updates: Status Check on a Stabilizing Job Market**\
-`Data on hiring and the unemployment rate will provide the latest look at a U.S. economy where strong spending is confronting higher costs.`\
+`Data on hiring and the unemployment rate for June will provide the latest look at a U.S. economy where strong spending is confronting higher costs.`\
 https://www.nytimes.com/live/2026/07/02/business/jobs-report-economy
 
 **China Releases Details About Pilot Who Crashed Plane Into Beijing Skyscraper**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/02/realestate/housing-market-nyc.html
 **What’s the Pollen Count? This Man Knows.**\
 `Guy Robinson measures the pollen in New York. This summer actually isn’t bad.`\
 https://www.nytimes.com/2026/07/02/nyregion/pollen-count-nyc.html
-
-**Madonna Has Become an Avatar for Our Fear of Aging**\
-`The Material Girl used to mean everything to me.`\
-https://www.nytimes.com/2026/07/02/opinion/madonna-confessions-ii-aging-old.html
 

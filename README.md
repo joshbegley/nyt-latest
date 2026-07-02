@@ -2,7 +2,7 @@
 `Ukraine is taking the war to Russia, but so far President Vladimir V. Putin’s response has been to keep attacking, including with deadly ballistic missile and drone strikes in Kyiv on Thursday.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-putin-ukraine-war-pressure.html
 
-**Vatican Excommunicates Breakaway Group, in First Major Crisis for Pope Leo**\
+**Vatican Excommunicates Society of St. Pius X, in First Major Crisis for Pope Leo**\
 `The move against the Society of St. Pius X followed its decision to defy Pope Leo XIV by consecrating new bishops against his wishes.`\
 https://www.nytimes.com/2026/07/02/world/europe/vatican-society-st-pius-excommunication.html
 
