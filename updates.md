@@ -1,3 +1,23 @@
+**Court Investigates Spanish Police Chief, Heaping Pressure on Prime Minister**\
+`The case against Mercedes González is part of a broader examination of whether allies of Prime Minister Pedro Sánchez tried to illegally undermine inquiries into people close to him.`\
+https://www.nytimes.com/2026/07/02/world/europe/spain-police-investigation-sanchez.html
+
+**NJ Transit Announces Train Delays and Cancellations Tied to Extreme Heat Wave**\
+`NJ Transit blamed the extreme heat for delays and cancellations on Thursday, having warned commuters that high temperatures could affect the system’s aging infrastructure.`\
+https://www.nytimes.com/2026/07/02/weather/nj-transit-train-heat-delays-cancellations.html
+
+**Bombs Bursting in Air Means Hours of Smoke and Confused Dogs in D.C.**\
+`Organizers want the July 4 fireworks in the nation’s capital to break the world record. But the fun will also come with air pollution and possibly headaches for pet owners and zoo keepers.`\
+https://www.nytimes.com/2026/07/02/climate/fireworks-effects-washington-smoke-dogs.html
+
+**Tesla Sales Surge 25% on Recovery in Europe**\
+`Price cuts helped the electric automaker rebound in Europe in the second quarter, offsetting declines in the United States.`\
+https://www.nytimes.com/2026/07/02/business/tesla-electric-vehicle-auto-sales.html
+
+**Live Updates: Brutal Heat Wave Broils Eastern U.S.**\
+`Much of the Northeast is enduring a hot spell that has already scorched the Midwest.`\
+https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
 **What Private Credit Is, and Why Investors Are So Worried About It**\
 `Some say the industry expanded too quickly and extended loans to companies that won’t be able to pay them back.`\
 https://www.nytimes.com/2026/07/02/business/private-credit-investor-worries.html
