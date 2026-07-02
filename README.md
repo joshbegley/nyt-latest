@@ -1,3 +1,7 @@
+**Immigrant Arrests Surge to 10,000 in 5 Days as ICE Clamps Down**\
+`The agency has doubled its daily arrest numbers without the fanfare of last year’s large urban operations, sowing fear in immigrant communities.`\
+https://www.nytimes.com/2026/07/01/us/politics/ice-immigrant-arrests-surge.html
+
 **How Trump Made ‘Y.M.C.A.’ His Anthem, Despite the Village People and Victor Willis’s Mixed Feelings**\
 `On social media, he said the Village People’s lead singer, Victor Willis, was with him “right from the beginning.” But the president has a more complicated history with the group.`\
 https://www.nytimes.com/2026/07/01/us/politics/trump-ymca-anthem-village-people.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/01/us/16-children-ohio-home.html
 **Un turista muere tras ser atacado por un cocodrilo en Puerto Vallarta**\
 `El gobierno de Jalisco, el estado mexicano donde se encuentra esta ciudad turística, dijo que se trataba de un ataque “de carácter inusual y aislado”.`\
 https://www.nytimes.com/es/2026/07/01/espanol/america-latina/muere-turista-cocodrilo-mexico-puerto-vallarta.html
-
-**Rosemary M. Collyer, Judge in F.B.I. and Guantánamo Bay Cases, Dies at 80**\
-`From her seat on the Foreign Intelligence Surveillance Court, she criticized the way the F.B.I. had sought to wiretap an aide to President Donald Trump.`\
-https://www.nytimes.com/2026/07/01/us/rosemary-m-collyer-dead.html
 
