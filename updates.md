@@ -1,3 +1,47 @@
+**The New York Times News Quiz, July 3, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/07/03/briefing/america-250-supreme-court-tom-kean-jr-news-quiz.html
+
+**Fourth of July Weekend Is Busy at the ER. Here’s How to Avoid a Visit.**\
+`Doctors share tips for staying safe.`\
+https://www.nytimes.com/2026/07/03/well/fourth-of-july-er-safety-tips.html
+
+**Microsoft Disclosure Provides Rare Glimpse of Tax Haven Tactics**\
+`Other U.S. companies will soon need to provide similar reports as a new European directive takes effect.`\
+https://www.nytimes.com/2026/07/03/technology/microsoft-europe-disclosure-tax-havens.html
+
+**4 Funny Specials for a Long Hot Holiday Weekend**\
+`Nikki Glaser, Ryan Hamilton, Ali Siddiq and Ophira Eisenberg take very different approaches to their new hours, but all deliver the goods.`\
+https://www.nytimes.com/2026/07/03/arts/television/comedy-specials-4th-of-july-holiday-weekend.html
+
+**Corrections: July 3, 2026**\
+`Corrections that appeared in print on Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/03/pageoneplus/corrections-july-3-2026.html
+
+**The America That’s Still Possible**\
+`On America’s 250th anniversary, Bryan Stevenson, a civil rights lawyer and the founder of the Equal Justice Initiative, looks toward the work that is ahead for the country.`\
+https://www.nytimes.com/2026/07/03/opinion/ezra-klein-podcast-bryan-stevenson.html
+
+**The Most Lavish Celebrity Weddings, From the Royals to Taylor Swift**\
+`We hear the couple has plans this weekend in New York City, as they look for their ever after.`\
+https://www.nytimes.com/2026/07/03/style/lavish-celebrity-weddings-taylor-swift-travis-kelce.html
+
+**¿Por qué ya no como tanto como antes?**\
+`Cambios hormonales. Disminución del olfato y el gusto. Pérdida de masa muscular. Muchos factores pueden influir en la pérdida de apetito en las personas mayores. Esto es lo que los expertos dicen al respecto.`\
+https://www.nytimes.com/es/2026/07/03/espanol/apetito-edad.html
+
+**E Pluribus Algae: Why Green Pond Scum Is as American as Red, White and Blue**\
+`And why the most patriotic approach to the Reflecting Pool may be to let the algae take over.`\
+https://www.nytimes.com/2026/07/03/science/algae-reflecting-pool.html
+
+**Is NYC Summer Tourism Peaking With World Cup, Swift Wedding and America’s 250th?**\
+`A series of major events is unfolding in New York this week, sprinkling the city with soccer tees, fireworks and, perhaps, love — though not record visitor numbers.`\
+https://www.nytimes.com/2026/07/03/travel/tourism-nyc-summer-peak.html
+
+**See Why the Venezuela Earthquakes Were So Deadly**\
+`A series of unlucky factors — two earthquakes in rapid succession, a fault that ruptured toward Caracas, soft ground and the shallow depth of the earthquake — combined to make the Venezuela earthquakes unusually deadly.`\
+https://www.nytimes.com/interactive/2026/07/03/world/americas/venezuela-earthquakes-epicenter-maps.html
+
 **Will Late-Night TV Work on YouTube?**\
 `Julian Shapiro-Barnum, best known for a social media series called “Recess Therapy,” has started an online-only late-night show.`\
 https://www.nytimes.com/2026/07/03/business/media/youtube-julian-shapiro-barnum-late-night.html
