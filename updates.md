@@ -1,3 +1,7 @@
+**Laurie Santos: Americans and the Pursuit of Happiness**\
+`On “The Interview,” Laurie Santos, a cognitive scientist and a professor at Yale, says that Americans think about happiness in unique ways, and they have for a long time.`\
+https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
+
 **Live Updates: Taylor Swift and Travis Kelce Wedding Celebration Begins at M.S.G.**\
 `The pop star and the football player were poised to welcome 1,000 guests into a mega-reception in New York City.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
