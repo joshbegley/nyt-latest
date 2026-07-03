@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011010402/03vid-swift-emma.html
+
+**Parents Will Be Able to Enroll Newborns in Trump Accounts at the Hospital**\
+`The Social Security Administration will introduce a process to sign up babies for the investment program at the same time they are registered for a Social Security number.`\
+https://www.nytimes.com/2026/07/03/your-money/trump-accounts-newborns-social-security-numbers.html
+
 **Celebrating America’s 250th Anniversary Across the Country**\
 `Even as an oppressive heat wave stifled much of the United States, the nationwide party continued.`\
 https://www.nytimes.com/2026/07/03/us/july-4-250-photos-videos.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/07/03/style/prince-william-travis-kelce-new-heights
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
 
-**Boda de Taylor Swift y Travis Kelce en vivo: empiezan los festejos**\
+**En vivo: empezaron los festejos de la boda de Taylor Swift y Travis Kelce en el MSG**\
 `La estrella del pop, el futbolista y unos 1000 amigos cercanos y famosos se preparan para celebrar la unión más esperada de la cultura pop.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
 
@@ -142,13 +150,13 @@ https://www.nytimes.com/2026/07/03/opinion/education-schools.html
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
 
-**Five Science Fiction Movies to Stream Now**\
-`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
-https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
-
 **Mary Beard Looks at Trump and Sees Roman Emperors**\
 `Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
 https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
+https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
 
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
@@ -157,12 +165,4 @@ https://www.nytimes.com/video/opinion/100000011001815/what-does-it-mean-to-love-
 **How Celebrity Wedding Planners Would Decorate MSG for Taylor Swift**\
 `Dua Lipa’s planner envisioned olive trees and thousands of string lights. LeBron James’s planner took inspiration from the Eras Tour.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-travis-kelce-celebrity-wedding-planners.html
-
-**Ayatollah Ali Khamenei Lies In State**\
-`Foreign officials, militia members and religious leaders on Friday visited the site where the slain Ayatollah Ali Khamenei is lying in state, beginning nearly a week of events to mourn and bury Iran’s former supreme leader.`\
-https://www.nytimes.com/video/world/asia/100000011009341/iran-funeral-ali-khamenei.html
-
-**Woman From Ukraine Was Behind Monaco Bomb Attack, Officials Say**\
-`Anastasiia Berezovska, a 39-year-old Ukrainian, tried to kill three people with a parcel bomb on Monday, the authorities said. She remained on the run.`\
-https://www.nytimes.com/2026/07/03/world/europe/monaco-bomb-suspect-ukraine-anastasiia-berezovska.html
 

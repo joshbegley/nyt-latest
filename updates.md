@@ -1,3 +1,7 @@
+**Celebrating America’s 250th Anniversary Across the Country**\
+`Even as an oppressive heat wave stifled much of the United States, the nationwide party continued.`\
+https://www.nytimes.com/2026/07/03/us/july-4-250-photos-videos.html
+
 **America Unites for a Day of Grand 250th Celebrations**\
 `From large events in the biggest cities to small-town gatherings to backyard barbecues, a divided America is finding many ways to salute itself.`\
 https://www.nytimes.com/2026/07/03/us/america-250-fourth-july.html
