@@ -1,3 +1,7 @@
+**‘There Is a Culture of Silence’**\
+`Journalist Alan Shipnuck investigates why Phil Mickelson has basically vanished from the LIV Golf Tour.`\
+https://www.nytimes.com/2026/07/03/podcasts/phil-mickelson-liv-golf.html
+
 **The New York Times News Quiz, July 3, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/07/03/briefing/america-250-supreme-court-tom-kean-jr-news-quiz.html

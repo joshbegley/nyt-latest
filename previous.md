@@ -1,3 +1,7 @@
+**‘There Is a Culture of Silence’**\
+`Journalist Alan Shipnuck investigates why Phil Mickelson has basically vanished from the LIV Golf Tour.`\
+https://www.nytimes.com/2026/07/03/podcasts/phil-mickelson-liv-golf.html
+
 **The New York Times News Quiz, July 3, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/07/03/briefing/america-250-supreme-court-tom-kean-jr-news-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/03/world/asia/tibet-self-immolation-united-natio
 **¿Es necesario un entrenamiento especial para la menopausia?**\
 `La menopausia se ha convertido en un tema habitual en la cultura popular, y el entrenamiento de fuerza se ha erigido en una de las recomendaciones más recurrentes para un envejecimiento saludable.`\
 https://www.nytimes.com/es/2026/07/03/espanol/rutina-ejercicios-menopausia.html
-
-**‘Basura’: Gloria y Emily Estefan encuentran un nuevo ritmo en el teatro**\
-`Madre e hija pasaron años componiendo las canciones y partitura de “Basura”, su nuevo musical. “En toda relación entre madre e hija, las cosas son complicadas”, dijo Gloria Estefan.`\
-https://www.nytimes.com/es/2026/07/03/espanol/cultura/basura-gloria-emily-estefan.html
 
