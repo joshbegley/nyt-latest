@@ -182,11 +182,11 @@ https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
 `David Hearn, a former canoeist, is accused of vandalizing the algae-challenged pool, which President Trump has said he would repair and beautify with fresh sealant. But the algae returned and the paint peeled.`\
 https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.html
 
-**U.S. Officials Believed Israel Was Plotting to Kill Iranian Negotiators**\
-`Any Israeli attempt to kill Abbas Araghchi, the foreign minister, or Mohammad Ghalibaf, the Parliament speaker, would have derailed peace talks, American officials feared.`\
-https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
-
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
+
+**World Cup Updates: In Little Senegal, a Vibrant Party Turns to Shock**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 

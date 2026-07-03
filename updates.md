@@ -1,3 +1,7 @@
+**World Cup Updates: In Little Senegal, a Vibrant Party Turns to Shock**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Trump’s Huge Windfall Has Few Known Global Precedents**\
 `President Trump’s earnings in office are at a level once unimaginable for any leader of a liberal democracy, particularly a sitting American president.`\
 https://www.nytimes.com/2026/07/02/world/europe/trump-world-leaders-corruption-wealth.html
