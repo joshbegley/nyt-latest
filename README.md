@@ -32,7 +32,7 @@ https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques
 
 **Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
 `The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
-https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-knicks-performance.html
+https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-nicks-performance.html
 
 **Air Force Detains Officer Who Called for Trump’s Impeachment at Capitol**\
 `Maj. Jason Watson, who was in uniform, was arrested during a protest that followed a news conference on Wednesday.`\
