@@ -1,3 +1,7 @@
+**U.K. Lawmakers Demand Deportation of ‘Grooming Gang’ Leader**\
+`Shabir Ahmed was handed a lengthy prison sentence in 2012 for his ties to a sexual exploitation ring.`\
+https://www.nytimes.com/2026/07/02/world/europe/uk-deport-leader-grooming-gang.html
+
 **World Cup Updates: In Little Senegal, a Vibrant Party Turns to Shock**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
