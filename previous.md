@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/07/03/style/fans-gather-outside-the-wedding-of-the-
 `¿Cómo están disfrutando sus legiones de fans la que podría ser la última Copa Mundial de su ídolo? Me sumergí en una multitud que ovacionaba su nombre para averiguarlo.`\
 https://www.nytimes.com/es/2026/07/03/espanol/deportes/messi-mundial-argentina.html
 
-**Mamdani Says Blind Patriotism Hides the Nation’s Flaws and Inequality**\
+**Mamdani Says Blind Patriotism Ignores the Nation’s Flaws and Inequality**\
 `In a nearly 13-minute address, Mayor Zohran Mamdani of New York highlighted the nation’s diversity and criticized those who would deprive immigrants of freedom.`\
 https://www.nytimes.com/2026/07/03/nyregion/mamdani-speech-july-4th.html
 
@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/07/03/arts/dance/lincoln-center-contemporary-dance-
 `On “The Interview,” Laurie Santos, a cognitive scientist and a professor at Yale, says that Americans think about happiness in unique ways, and they have for a long time.`\
 https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
 
-**Live Updates: Taylor Swift and Travis Kelce Wedding Celebration Begins at M.S.G.**\
+**Live Updates: Taylor Swift and Travis Kelce’s Starry Guests Begin to Arrive at M.S.G.**\
 `The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 
@@ -181,8 +181,4 @@ https://www.nytimes.com/2026/07/03/us/los-angeles-warehouse-fire-cleanup.html
 **Enraptured by the World Cup, Countries Rewrite Rules for Fans**\
 `From pubs open until dawn to abruptly declared national holidays, it seems regulations everywhere are bending to accommodate the tournament.`\
 https://www.nytimes.com/2026/07/03/world/world-cup-countries-fans-holidays.html
-
-**A Mission to Save NASA’s Swift Telescope Launches to Orbit**\
-`A refrigerator-size spacecraft will try to grab onto Swift and nudge it to a higher orbit, enabling it to continue observing powerful cosmic explosions.`\
-https://www.nytimes.com/2026/07/03/science/nasa-swift-telescope-rescue-mission.html
 

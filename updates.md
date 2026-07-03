@@ -1,3 +1,11 @@
+**Mamdani Says Blind Patriotism Ignores the Nation’s Flaws and Inequality**\
+`In a nearly 13-minute address, Mayor Zohran Mamdani of New York highlighted the nation’s diversity and criticized those who would deprive immigrants of freedom.`\
+https://www.nytimes.com/2026/07/03/nyregion/mamdani-speech-july-4th.html
+
+**Live Updates: Taylor Swift and Travis Kelce’s Starry Guests Begin to Arrive at M.S.G.**\
+`The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **Prince William Goes on Travis Kelce’s ‘New Heights’ Podcast Before His Wedding**\
 `The British royal didn’t offer marriage advice. Instead, he discussed football, soccer and reminisced about when they all met in London during the Eras tour.`\
 https://www.nytimes.com/2026/07/03/style/prince-william-travis-kelce-new-heights.html
