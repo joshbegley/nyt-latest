@@ -1,3 +1,11 @@
+**A U.S. Independence Celebration Damaged a Museum in Belgium**\
+`There were black marks left on a structure in a central Brussels park after a fireworks display, the American ambassador to Belgium confirmed.`\
+https://www.nytimes.com/2026/07/03/world/europe/belgium-building-damaged-america-250-fireworks.html
+
+**A Return to the Familiar at Lincoln Center’s New Dance Festival**\
+`While it was good to see again Rachid Ouramdane’s moving duet from a decade ago, Akram Khan’s new piece was unconvincing.`\
+https://www.nytimes.com/2026/07/03/arts/dance/lincoln-center-contemporary-dance-festival.html
+
 **Laurie Santos: Americans and the Pursuit of Happiness**\
 `On “The Interview,” Laurie Santos, a cognitive scientist and a professor at Yale, says that Americans think about happiness in unique ways, and they have for a long time.`\
 https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
