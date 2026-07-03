@@ -1,3 +1,35 @@
+**Denmark Has a Big Fourth of July Party. This Year, the U.S. Is Uninvited.**\
+`Furious at President Trump over Greenland, Danish officials took the unprecedented step of pressuring organizers to cut American officials from the program.`\
+https://www.nytimes.com/2026/07/03/world/europe/denmark-fourth-of-july-trump-us.html
+
+**Ucrania intensifica la presión sobre Putin con ataques en Crimea**\
+`Los bombardeos con drones, los problemas de abastecimiento y los apagones en la península anexada por Rusia buscan aumentar el costo de la guerra para el Kremlin.`\
+https://www.nytimes.com/es/2026/07/03/espanol/mundo/rusia-ucrania-crimea.html
+
+**Quote of the Day: Crypto Windfall for Trump but Not for Most Investors**\
+`Quotation of the Day for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/03/pageoneplus/quote-of-the-day-crypto-windfall-for-trump-but-not-for-most-investors.html
+
+**What We Found After He Was Gone**\
+`Jeff was Billy’s friend and my lover. Was he also Cupid?`\
+https://www.nytimes.com/2026/07/03/style/what-we-found-after-he-was-gone.html
+
+**A Relationship That Forced Two Magicians to Tip Their Hand**\
+`For Jamie Allan and Natalie Villalonga-Stanton, the daring feats they performed reinforced their mutual reliance and trust.`\
+https://www.nytimes.com/2026/07/03/style/natalie-villalonga-stanton-jamie-allan-wedding.html
+
+**On Military Leave Long Enough to Get Married**\
+`After graduating from the U.S. Naval Academy, Emma Shattuck and Anders Gulbrandson dated face-to-face about 22 percent of the time.`\
+https://www.nytimes.com/2026/07/03/style/emma-shattuck-anders-gulbrandson-wedding.html
+
+**He Wrote Hollywood Love Stories. It Took 12 Years to Finish His Own.**\
+`Michael Elliot, a screenwriter whose rom-com hits include “Brown Sugar” and “Just Wright,” married Adia May, a lawyer, more than a decade after they first met at a Los Angeles airport.`\
+https://www.nytimes.com/2026/07/03/style/adia-may-michael-elliot-wedding.html
+
+**By the Fourth Date, They Created a Shared Google Calendar**\
+`After several dead-end dates, Barry Pump had resigned himself to remaining a bachelor, but then he met Shreyans Goenka and bonded over their shared penchant for meticulous planning.`\
+https://www.nytimes.com/2026/07/03/style/shreyans-goenka-barry-pump-wedding.html
+
 **‘All Different, but All American’: A Chef on Potato Salad Diversity**\
 `Wesley Morris, host of “Cannonball,” talks to the chef Hooni Kim on the streets of New York City about how he has made potato salad his own.`\
 https://www.nytimes.com/video/podcasts/100000011008945/all-different-but-all-american-a-chef-on-potato-salad-diversity.html
@@ -153,38 +185,6 @@ https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-albert
 **El Vaticano excomulga a un grupo disidente, en la primera gran crisis del papa León**\
 `La medida contra la Fraternidad Sacerdotal San Pío X se produjo tras su decisión de desafiar al papa León XIV al consagrar nuevos obispos en contra de su voluntad.`\
 https://www.nytimes.com/es/2026/07/02/espanol/mundo/papa-leon-cisma-excomunion-lefebvrianos-fraternidad.html
-
-**Man Rescued 8 Days After Quake, a Ray of Joy in Stricken Venezuela**\
-`The 44-year-old security guard was pulled alive from a pancaked basement, offering a fleeting moment of hope amid a soaring death toll.`\
-https://www.nytimes.com/2026/07/02/world/americas/venezuela-earthquake-survivor.html
-
-**Supreme Court Allows Reporter to Be Fined for Failing to Disclose Source**\
-`Catherine Herridge, a former Fox News reporter, was held in civil contempt by a lower court after she refused to reveal her sources for articles she wrote about a scientist who was investigated by the F.B.I.`\
-https://www.nytimes.com/2026/07/02/us/politics/supreme-court-herridge-first-amendment.html
-
-**¿Qué tanto le preocupan a Trump los conflictos de intereses?**\
-`Trump obtuvo al menos 2.2 millardos de dólares en su primer año de vuelta a la Casa Blanca, pero su actitud sobre mezclar negocios y política es clara: “Me di cuenta de que a nadie le importaba”.`\
-https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-dinero-negocios-conflicto-interes.html
-
-**Many Children Don’t Have ‘Trump Accounts.’ Some Are Missing Out on $1,000.**\
-`More than six million have been signed up for the investment accounts, which open for contributions July 4, but there are barriers to uptake.`\
-https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.html
-
-**NYC Hits 100 Degrees, Its Hottest Day in Nearly 14 Years**\
-`The last time the park recorded 100 degrees was July 18, 2012.`\
-https://www.nytimes.com/2026/07/02/weather/new-york-heat-record-100-degrees-central-park.html
-
-**Jury Deadlocks on Felony Count for Golden Gate Bridge Protesters**\
-`Seven activists shut down the bridge in 2024 to protest American-backed military attacks in Gaza. They avoided a conviction on the most serious charge but were found guilty of misdemeanors.`\
-https://www.nytimes.com/2026/07/02/us/golden-gate-bridge-protests-verdict.html
-
-**This Is the Sandwich of the Summer**\
-`Once you learn about this Italian specialty, you’ll start seeing it everywhere.`\
-https://www.nytimes.com/2026/07/02/dining/sandwich-of-the-summer-piadina.html
-
-**Teenage Boys Who Raped Girls in Fordingbridge, England, Have Sentences Revised**\
-`Two teenagers were given four-year custodial sentences on Thursday after an appeals court determined that their earlier sentencing, which included no time in detention, was too lenient.`\
-https://www.nytimes.com/2026/07/02/world/europe/teenagers-rape-england-sentencing.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
