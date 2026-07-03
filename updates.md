@@ -1,3 +1,35 @@
+**Denmark Has a Big Fourth of July Party. This Year, the U.S. Is Uninvited.**\
+`Furious at President Trump over Greenland, Danish officials took the unprecedented step of pressuring organizers to cut American officials from the program.`\
+https://www.nytimes.com/2026/07/03/world/europe/denmark-fourth-of-july-trump-us.html
+
+**Ucrania intensifica la presión sobre Putin con ataques en Crimea**\
+`Los bombardeos con drones, los problemas de abastecimiento y los apagones en la península anexada por Rusia buscan aumentar el costo de la guerra para el Kremlin.`\
+https://www.nytimes.com/es/2026/07/03/espanol/mundo/rusia-ucrania-crimea.html
+
+**Quote of the Day: Crypto Windfall for Trump but Not for Most Investors**\
+`Quotation of the Day for Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/03/pageoneplus/quote-of-the-day-crypto-windfall-for-trump-but-not-for-most-investors.html
+
+**What We Found After He Was Gone**\
+`Jeff was Billy’s friend and my lover. Was he also Cupid?`\
+https://www.nytimes.com/2026/07/03/style/what-we-found-after-he-was-gone.html
+
+**A Relationship That Forced Two Magicians to Tip Their Hand**\
+`For Jamie Allan and Natalie Villalonga-Stanton, the daring feats they performed reinforced their mutual reliance and trust.`\
+https://www.nytimes.com/2026/07/03/style/natalie-villalonga-stanton-jamie-allan-wedding.html
+
+**On Military Leave Long Enough to Get Married**\
+`After graduating from the U.S. Naval Academy, Emma Shattuck and Anders Gulbrandson dated face-to-face about 22 percent of the time.`\
+https://www.nytimes.com/2026/07/03/style/emma-shattuck-anders-gulbrandson-wedding.html
+
+**He Wrote Hollywood Love Stories. It Took 12 Years to Finish His Own.**\
+`Michael Elliot, a screenwriter whose rom-com hits include “Brown Sugar” and “Just Wright,” married Adia May, a lawyer, more than a decade after they first met at a Los Angeles airport.`\
+https://www.nytimes.com/2026/07/03/style/adia-may-michael-elliot-wedding.html
+
+**By the Fourth Date, They Created a Shared Google Calendar**\
+`After several dead-end dates, Barry Pump had resigned himself to remaining a bachelor, but then he met Shreyans Goenka and bonded over their shared penchant for meticulous planning.`\
+https://www.nytimes.com/2026/07/03/style/shreyans-goenka-barry-pump-wedding.html
+
 **‘All Different, but All American’: A Chef on Potato Salad Diversity**\
 `Wesley Morris, host of “Cannonball,” talks to the chef Hooni Kim on the streets of New York City about how he has made potato salad his own.`\
 https://www.nytimes.com/video/podcasts/100000011008945/all-different-but-all-american-a-chef-on-potato-salad-diversity.html
