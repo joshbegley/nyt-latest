@@ -1,3 +1,7 @@
+**Blistering Heat Expected to Persist Into the Fourth of July**\
+`While relief could come to the Great Lakes and the far Northeast over the weekend, the Mid-Atlantic and Southeast will stay hot.`\
+https://www.nytimes.com/2026/07/03/weather/us-weather-heat-wave.html
+
 **China Defends Widely Criticized ‘Ethnic Unity’ Law**\
 `Rights groups and Western officials have criticized the law as a threat to Tibetans, Uyghurs and other minorities. Beijing says the measure aims to protect them.`\
 https://www.nytimes.com/2026/07/03/world/asia/china-ethnic-unity-tibetan-uyghurs.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/es/2026/07/03/espanol/cultura/basura-gloria-emily-estefa
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/polemica-aniversario-250-estados-unidos.html
 
 **Record Heat to Persist Through July 4th Weekend**\
-`Triple-digit temperatures were forecast for large swaths of the United States as the nation prepared its 250th Independence Day celebrations.`\
+`Triple-digit temperatures were forecast for large swaths of the United States as the nation prepared its Independence Day celebrations.`\
 https://www.nytimes.com/video/weather/100000011009023/us-heat-july-4th.html
 
 **Denmark Has a Big Fourth of July Party. This Year, the U.S. Is Uninvited.**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/us/politics/fbi-georgia-fulton-county-2020-el
 **How the Mood in Little Senegal Went From Euphoria to Despair**\
 `At watch parties in Upper Manhattan, joyous fans were stunned by a sudden twist in the match between Belgium and the underdog Senegal.`\
 https://www.nytimes.com/2026/07/02/nyregion/world-cup-nyc-little-senegal.html
-
-**Judge Demands Answers About Plans for Trump’s East Potomac Golf Course**\
-`In a fiery hearing, Judge Ana C. Reyes hammered the government over denials that the president was forging ahead with plans to renovate the course without approval.`\
-https://www.nytimes.com/2026/07/02/us/politics/trump-golf-course-plans-doj.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
