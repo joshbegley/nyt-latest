@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
+
 **EE. UU. sospechó que Israel planeaba asesinar a negociadores de Irán**\
 `Esos temores muestran que los objetivos bélicos de Estados Unidos e Israel, que eran muy similares al principio de la guerra, se distanciaron rápidamente de forma radical.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.ht
 **It’s Day 1 of the Supreme Leader’s Funeral, and Allies Gather in Iran**\
 `Foreign dignitaries paid their respects to Ayatollah Ali Khamenei on Friday as days of ceremonies got underway.`\
 https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
-
-**Happy 250th, America**\
-`A special newsletter to mark the semiquincentennial.`\
-https://www.nytimes.com/2026/07/03/briefing/happy-250th-america.html
 
