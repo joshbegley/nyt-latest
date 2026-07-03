@@ -1,3 +1,7 @@
+**Word of the Day: oligarchy**\
+`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/03/learning/word-of-the-day-oligarchy.html
+
 **¿El estadio más grande del mundo puede explicar la economía global?**\
 `Las altas tasas de crecimiento y el auge de las exportaciones en Vietnam ocultan profundas frustraciones en uno de los países más ambiciosos de Asia.`\
 https://www.nytimes.com/es/2026/07/03/espanol/mundo/vietnam-economia-global.html
