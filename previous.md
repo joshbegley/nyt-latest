@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
+
+**EE. UU. sospechó que Israel planeaba asesinar a negociadores de Irán**\
+`Esos temores muestran que los objetivos bélicos de Estados Unidos e Israel, que eran muy similares al principio de la guerra, se distanciaron rápidamente de forma radical.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques.html
+
 **Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
 `The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-knicks-performance.html
@@ -94,13 +102,13 @@ https://www.nytimes.com/2026/07/03/opinion/education-schools.html
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
 
-**Five Science Fiction Movies to Stream Now**\
-`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
-https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
-
 **Mary Beard Looks at Trump and Sees Roman Emperors**\
 `Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
 https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
+https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
 
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.ht
 **It’s Day 1 of the Supreme Leader’s Funeral, and Allies Gather in Iran**\
 `Foreign dignitaries paid their respects to Ayatollah Ali Khamenei on Friday as days of ceremonies got underway.`\
 https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
-
-**Happy 250th, America**\
-`A special newsletter to mark the semiquincentennial.`\
-https://www.nytimes.com/2026/07/03/briefing/happy-250th-america.html
-
-**What’s It Like to Face Messi on the Field?**\
-`The Argentina captain is the greatest player the game has ever seen. Is there any way to stop him?`\
-https://www.nytimes.com/2026/07/03/podcasts/lionel-messi-world-cup.html
 

@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
+
+**EE. UU. sospechó que Israel planeaba asesinar a negociadores de Irán**\
+`Esos temores muestran que los objetivos bélicos de Estados Unidos e Israel, que eran muy similares al principio de la guerra, se distanciaron rápidamente de forma radical.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques.html
+
 **Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
 `The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-knicks-performance.html
