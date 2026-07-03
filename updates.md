@@ -1,3 +1,7 @@
+**China Defends Widely Criticized ‘Ethnic Unity’ Law**\
+`Rights groups and Western officials have criticized the law as a threat to Tibetans, Uyghurs and other minorities. Beijing says the measure aims to protect them.`\
+https://www.nytimes.com/2026/07/03/world/asia/china-ethnic-unity-tibetan-uyghurs.html
+
 **Word of the Day: oligarchy**\
 `This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/03/learning/word-of-the-day-oligarchy.html

@@ -1,3 +1,7 @@
+**China Defends Widely Criticized ‘Ethnic Unity’ Law**\
+`Rights groups and Western officials have criticized the law as a threat to Tibetans, Uyghurs and other minorities. Beijing says the measure aims to protect them.`\
+https://www.nytimes.com/2026/07/03/world/asia/china-ethnic-unity-tibetan-uyghurs.html
+
 **Word of the Day: oligarchy**\
 `This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/03/learning/word-of-the-day-oligarchy.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/nyregion/world-cup-nyc-little-senegal.html
 **Judge Demands Answers About Plans for Trump’s East Potomac Golf Course**\
 `In a fiery hearing, Judge Ana C. Reyes hammered the government over denials that the president was forging ahead with plans to renovate the course without approval.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-golf-course-plans-doj.html
-
-**Tesla Driver Using Autopilot in Texas Crash Is Charged With Manslaughter**\
-`A front-door video camera of the crash, which killed a woman inside her home, showed the Tesla plowing into a house through its driveway.`\
-https://www.nytimes.com/2026/07/02/us/tesla-autopilot-crash-texas-manslaughter.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
