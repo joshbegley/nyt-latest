@@ -1,3 +1,7 @@
+**U.K. Lawmakers Demand Deportation of ‘Grooming Gang’ Leader**\
+`Shabir Ahmed was handed a lengthy prison sentence in 2012 for his ties to a sexual exploitation ring.`\
+https://www.nytimes.com/2026/07/02/world/europe/uk-deport-leader-grooming-gang.html
+
 **Trump’s Huge Windfall Has Few Known Global Precedents**\
 `President Trump’s earnings in office are at a level once unimaginable for any leader of a liberal democracy, particularly a sitting American president.`\
 https://www.nytimes.com/2026/07/02/world/europe/trump-world-leaders-corruption-wealth.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
 **The Best Movies and TV Shows Coming to Netflix in July**\
 `A science-fiction thriller with political overtones and a new version of “Little House on the Prairie” are among this month’s most promising titles.`\
 https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
-
-**David Hearn, Olympian Canoeist, Is Indicted After Arrest at Trump’s Reflecting Pool**\
-`David Hearn, a former canoeist, is accused of vandalizing the algae-challenged pool, which President Trump has said he would repair and beautify with fresh sealant. But the algae returned and the paint peeled.`\
-https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
