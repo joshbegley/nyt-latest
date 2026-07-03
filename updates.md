@@ -1,3 +1,15 @@
+**Without Climate Change, U.S. Heat Wave Called ‘Virtually Impossible’**\
+`Scientists have said the conditions are the result of a climate that is “fundamentally different” from the time before fossil fuel use started rapidly warming the world.`\
+https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.html
+
+**Allies Converge on Iran as Funeral Ceremonies for Supreme Leader Begin**\
+`Foreign dignitaries from China, Russia, Pakistan and elsewhere are set to pay respects to Ayatollah Ali Khamenei on Friday as days of ceremonies get underway.`\
+https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
+
+**Long Lines for Gas Shatter the Illusion of Normalcy in Wartime Russia**\
+`“Are we in the Soviet Union now?” asked one Russian, stunned and frustrated by the waits at the pumps.`\
+https://www.nytimes.com/2026/07/03/world/europe/russia-gas-shortages.html
+
 **Happy 250th, America**\
 `A special newsletter to mark the semiquincentennial.`\
 https://www.nytimes.com/2026/07/03/briefing/happy-250th-america.html
