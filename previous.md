@@ -1,3 +1,11 @@
+**EE. UU. cumple 250 años: esta es la polémica por las celebraciones**\
+`Dos organizaciones nacionales, una de ellas respaldada por el presidente Donald Trump, han organizado un conjunto de actividades para celebrar. Los estados también están organizando numerosos eventos.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/polemica-aniversario-250-estados-unidos.html
+
+**Record Heat to Persist Through July 4th Weekend**\
+`Triple-digit temperatures were forecast for large swaths of the United States as the nation prepared its 250th Independence Day celebrations.`\
+https://www.nytimes.com/video/weather/100000011009023/us-heat-july-4th.html
+
 **Denmark Has a Big Fourth of July Party. This Year, the U.S. Is Uninvited.**\
 `Furious at President Trump over Greenland, Danish officials took the unprecedented step of pressuring organizers to cut American officials from the program.`\
 https://www.nytimes.com/2026/07/03/world/europe/denmark-fourth-of-july-trump-us.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/02/us/politics/vance-melania-trump-financial-dis
 **With Attacks on Crimea, Ukraine Hopes to Pressure Putin to End the War**\
 `Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
 https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
-
-**Carney Unveils Multibillion Dollar Oil Pipeline Project to Boost Trade With Asia**\
-`Multibillion dollar investments, including a new oil pipeline from Alberta to the Pacific Coast, and natural gas facilities, aim to diversify trade away from the United States.`\
-https://www.nytimes.com/2026/07/02/world/canada/carney-trade-oil-pipeline-alberta-british-columbia.html
-
-**El Vaticano excomulga a un grupo disidente, en la primera gran crisis del papa León**\
-`La medida contra la Fraternidad Sacerdotal San Pío X se produjo tras su decisión de desafiar al papa León XIV al consagrar nuevos obispos en contra de su voluntad.`\
-https://www.nytimes.com/es/2026/07/02/espanol/mundo/papa-leon-cisma-excomunion-lefebvrianos-fraternidad.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

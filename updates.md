@@ -1,3 +1,11 @@
+**EE. UU. cumple 250 años: esta es la polémica por las celebraciones**\
+`Dos organizaciones nacionales, una de ellas respaldada por el presidente Donald Trump, han organizado un conjunto de actividades para celebrar. Los estados también están organizando numerosos eventos.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/polemica-aniversario-250-estados-unidos.html
+
+**Record Heat to Persist Through July 4th Weekend**\
+`Triple-digit temperatures were forecast for large swaths of the United States as the nation prepared its 250th Independence Day celebrations.`\
+https://www.nytimes.com/video/weather/100000011009023/us-heat-july-4th.html
+
 **Denmark Has a Big Fourth of July Party. This Year, the U.S. Is Uninvited.**\
 `Furious at President Trump over Greenland, Danish officials took the unprecedented step of pressuring organizers to cut American officials from the program.`\
 https://www.nytimes.com/2026/07/03/world/europe/denmark-fourth-of-july-trump-us.html
