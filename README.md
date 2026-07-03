@@ -1,3 +1,7 @@
+**Mamdani Says Blind Patriotism Hides the Nation’s Flaws and Inequality**\
+`In a nearly 13-minute address, Mayor Zohran Mamdani of New York highlighted the nation’s diversity and criticized those who would deprive immigrants of freedom.`\
+https://www.nytimes.com/2026/07/03/nyregion/mamdani-speech-july-4th.html
+
 **A U.S. Independence Celebration Damaged a Museum in Belgium**\
 `There were black marks left on a structure in a central Brussels park after a fireworks display, the American ambassador to Belgium confirmed.`\
 https://www.nytimes.com/2026/07/03/world/europe/belgium-building-damaged-america-250-fireworks.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/07/03/arts/dance/lincoln-center-contemporary-dance-
 https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
 
 **Live Updates: Taylor Swift and Travis Kelce Wedding Celebration Begins at M.S.G.**\
-`The pop star and the football player were poised to welcome 1,000 guests into a mega-reception in New York City.`\
+`The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 
 **Louisiana Supreme Court Pauses Case Against State Attorney General**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/07/03/briefing/america-250-supreme-cour
 **Fourth of July Weekend Is Busy at the ER. Here’s How to Avoid a Visit.**\
 `Doctors share tips for staying safe.`\
 https://www.nytimes.com/2026/07/03/well/fourth-of-july-er-safety-tips.html
-
-**Microsoft Disclosure Provides Rare Glimpse of Tax Haven Tactics**\
-`Other U.S. companies will soon need to provide similar reports as a new European directive takes effect.`\
-https://www.nytimes.com/2026/07/03/technology/microsoft-europe-disclosure-tax-havens.html
 
