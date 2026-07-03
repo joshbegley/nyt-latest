@@ -167,7 +167,7 @@ https://www.nytimes.com/2026/07/03/us/trump-national-guard-washington.html
 https://www.nytimes.com/2026/07/03/us/skydiving-plane-crash-butler-missouri-ntsb.html
 
 **Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
-`The list includes Emma Stone, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
+`The list includes Reese Witherspoon, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
 
 **Bus Plunges 70 Feet Into a Ravine in Pakistan, Killing 40**\
