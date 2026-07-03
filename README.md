@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/07/02/us/politics/supreme-court-herridge-first-amen
 `Trump obtuvo al menos 2.2 millardos de dólares en su primer año de vuelta a la Casa Blanca, pero su actitud sobre mezclar negocios y política es clara: “Me di cuenta de que a nadie le importaba”.`\
 https://www.nytimes.com/es/2026/07/02/espanol/estados-unidos/trump-dinero-negocios-conflicto-interes.html
 
-**Less Than 10 Percent of Eligible Children Have Trump Accounts**\
+**Many Children Don’t Have ‘Trump Accounts.’ Some Are Missing Out on $1,000.**\
 `More than six million have been signed up for the investment accounts, which open for contributions July 4, but there are barriers to uptake.`\
 https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.html
 

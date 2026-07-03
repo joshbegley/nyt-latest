@@ -1,3 +1,11 @@
+**Is Black Potato Salad a Standard Recipe?**\
+`On “Cannonball,” Wesley Morris talked to Jessica B. Harris, a two-time James Beard Award winner and food historian, about potato salad and how tastes developed in the United States.`\
+https://www.nytimes.com/video/podcasts/100000011000224/is-black-potato-salad-a-standard-recipe.html
+
+**Heat Wave Relief May Not Come at Sunset**\
+`There are steps you can take to cool down after sundown even in conditions with high humidity.`\
+https://www.nytimes.com/2026/07/02/weather/its-still-going-to-be-really-hot-tonight.html
+
 **World Cup Updates: Portugal-Croatia Helps the World Cup Say Farewell to Toronto**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup

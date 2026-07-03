@@ -1,3 +1,11 @@
+**Is Black Potato Salad a Standard Recipe?**\
+`On “Cannonball,” Wesley Morris talked to Jessica B. Harris, a two-time James Beard Award winner and food historian, about potato salad and how tastes developed in the United States.`\
+https://www.nytimes.com/video/podcasts/100000011000224/is-black-potato-salad-a-standard-recipe.html
+
+**Heat Wave Relief May Not Come at Sunset**\
+`There are steps you can take to cool down after sundown even in conditions with high humidity.`\
+https://www.nytimes.com/2026/07/02/weather/its-still-going-to-be-really-hot-tonight.html
+
 **U.K. Lawmakers Demand Deportation of ‘Grooming Gang’ Leader**\
 `Shabir Ahmed was handed a lengthy prison sentence in 2012 for his ties to a sexual exploitation ring.`\
 https://www.nytimes.com/2026/07/02/world/europe/uk-deport-leader-grooming-gang.html
@@ -173,10 +181,6 @@ https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.
 **Three Ways Trump Is Strangling Economic Growth**\
 `Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
 https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
-
-**Taylor Swift, What Are You Doing?**\
-`Why am I dreading the Swift-Kelce wedding?`\
-https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
