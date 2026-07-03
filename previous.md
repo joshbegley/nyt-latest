@@ -167,14 +167,10 @@ https://www.nytimes.com/2026/07/03/us/trump-national-guard-washington.html
 https://www.nytimes.com/2026/07/03/us/skydiving-plane-crash-butler-missouri-ntsb.html
 
 **Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
-`The list includes Emma Stone, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
+`The list includes Reese Witherspoon, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
 
 **Bus Plunges 70 Feet Into a Ravine in Pakistan, Killing 40**\
 `The overloaded bus was carrying 48 passengers on a notoriously hazardous highway linking two provincial capitals.`\
 https://www.nytimes.com/2026/07/03/world/asia/pakistan-bus-crash.html
-
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/07/03/movies/new-movies-this-week-critics.html
 

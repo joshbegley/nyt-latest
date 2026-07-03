@@ -1,3 +1,7 @@
+**Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
+`The list includes Reese Witherspoon, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
+
 **Live Updates: Taylor Swift and Travis Kelce’s Star-Studded Wedding Festivities Underway at M.S.G.**\
 `The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
