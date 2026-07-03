@@ -1,3 +1,11 @@
+**¿Es necesario un entrenamiento especial para la menopausia?**\
+`La menopausia se ha convertido en un tema habitual en la cultura popular, y el entrenamiento de fuerza se ha erigido en una de las recomendaciones más recurrentes para un envejecimiento saludable.`\
+https://www.nytimes.com/es/2026/07/03/espanol/rutina-ejercicios-menopausia.html
+
+**‘Basura’: Gloria y Emily Estefan encuentran un nuevo ritmo en el teatro**\
+`Madre e hija pasaron años componiendo las canciones y partitura de “Basura”, su nuevo musical. “En toda relación entre madre e hija, las cosas son complicadas”, dijo Gloria Estefan.`\
+https://www.nytimes.com/es/2026/07/03/espanol/cultura/basura-gloria-emily-estefan.html
+
 **EE. UU. cumple 250 años: esta es la polémica por las celebraciones**\
 `Dos organizaciones nacionales, una de ellas respaldada por el presidente Donald Trump, han organizado un conjunto de actividades para celebrar. Los estados también están organizando numerosos eventos.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/polemica-aniversario-250-estados-unidos.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-ame
 **Happy Birthday, America**\
 `On the country’s 250th anniversary, what is actually being celebrated?`\
 https://www.nytimes.com/2026/07/02/world/america-250-anniversary-kyiv-vatican-taylor-swift.html
-
-**JD Vance and Melania Trump Also Had Sharp Earnings Increases in 2025**\
-`But the revenue brought in by the vice president and the first lady paled in comparison to that of President Trump.`\
-https://www.nytimes.com/2026/07/02/us/politics/vance-melania-trump-financial-disclosures.html
-
-**With Attacks on Crimea, Ukraine Hopes to Pressure Putin to End the War**\
-`Escalating drone strikes, fuel shortages and power cuts in the region Russia annexed are among the factors turning up the heat on President Vladimir V. Putin.`\
-https://www.nytimes.com/2026/07/02/world/europe/russia-crimea-ukraine.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
