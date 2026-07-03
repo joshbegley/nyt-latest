@@ -1,3 +1,11 @@
+**Ayatollah Ali Khamenei Lies In State**\
+`Foreign officials, militia members and religious leaders on Friday visited the site where the slain Ayatollah Ali Khamenei is lying in state, beginning nearly a week of events to mourn and bury Iran’s former supreme leader.`\
+https://www.nytimes.com/video/world/asia/100000011009341/iran-funeral-ali-khamenei.html
+
+**Woman From Ukraine Was Behind Monaco Bomb Attack, Officials Say**\
+`Anastasiia Berezovska, a 39-year-old Ukrainian, tried to kill three people with a parcel bomb on Monday, the authorities said. She remained on the run.`\
+https://www.nytimes.com/2026/07/03/world/europe/monaco-bomb-suspect-ukraine-anastasiia-berezovska.html
+
 **To Stay Cool, Wear Flowing Robes and Throw Water Around? Yes, Says Science.**\
 `Throughout history, people have come up with surprising ways to beat the heat that actually work.`\
 https://www.nytimes.com/2026/07/03/climate/traditions-stay-cool-heat-wave.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/03/realestate/you-should-know-how-your-house-wor
 **The Electric Pain in Her Tooth Baffled Every Dentist. What Was Wrong?**\
 `X-ray after X-ray showed nothing unusual. But her doctors could see how agonizing her condition was.`\
 https://www.nytimes.com/2026/07/03/well/tooth-pain-trigeminal-neuralgia.html
-
-**Has the MAHA Movement Given Up?**\
-`Robert F. Kennedy Jr. and his allies promised public-health libertarianism. The idea couldn’t survive once they took power.`\
-https://www.nytimes.com/2026/07/03/magazine/maha-movement-survival-rfk.html
-
-**The Great American State Fair Celebrates America, and Trump**\
-`Attendees at President Trump’s two-week-long Great American State Fair talk about what this celebration of the nation’s semiquincentennial says about America and its history.`\
-https://www.nytimes.com/video/us/politics/100000010990815/great-american-state-fair-trump-america.html
 
