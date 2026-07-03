@@ -1,3 +1,7 @@
+**¿El estadio más grande del mundo puede explicar la economía global?**\
+`Las altas tasas de crecimiento y el auge de las exportaciones en Vietnam ocultan profundas frustraciones en uno de los países más ambiciosos de Asia.`\
+https://www.nytimes.com/es/2026/07/03/espanol/mundo/vietnam-economia-global.html
+
 **What to Know About Getting Around Town on Swift’s Wedding Day**\
 `With Taylor Swift’s wedding on Friday, Midtown Manhattan will present some logistical challenges to drivers and pedestrians.`\
 https://www.nytimes.com/2026/07/03/nyregion/manhattan-street-closures-holiday-swift.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/us/tesla-autopilot-crash-texas-manslaughter.h
 **National Parks Can Continue to Remove Signs That Trump Calls ‘Negative’**\
 `The decision was a win for the Trump administration as it pushes to remove material that the president has called inappropriate or “woke.”`\
 https://www.nytimes.com/2026/07/02/climate/court-national-parks-signs-trump.html
-
-**Iran Prepares to Bury Supreme Leader**\
-`Millions of people are expected at ceremonies in Iran and Iraq to mourn the death of Ayatollah Ali Khamenei months after he was killed in U.S.-Israeli strikes.`\
-https://www.nytimes.com/video/world/middleeast/100000011007509/iran-prepares-to-bury-supreme-leader.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

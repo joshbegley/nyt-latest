@@ -1,3 +1,7 @@
+**¿El estadio más grande del mundo puede explicar la economía global?**\
+`Las altas tasas de crecimiento y el auge de las exportaciones en Vietnam ocultan profundas frustraciones en uno de los países más ambiciosos de Asia.`\
+https://www.nytimes.com/es/2026/07/03/espanol/mundo/vietnam-economia-global.html
+
 **What to Know About Getting Around Town on Swift’s Wedding Day**\
 `With Taylor Swift’s wedding on Friday, Midtown Manhattan will present some logistical challenges to drivers and pedestrians.`\
 https://www.nytimes.com/2026/07/03/nyregion/manhattan-street-closures-holiday-swift.html
