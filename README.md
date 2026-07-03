@@ -158,7 +158,3 @@ https://www.nytimes.com/2026/07/03/style/cunningham-bill-exhibit-historical.html
 `Readers respond to “‘No Child Left Behind’ Nostalgia Is Delusional,” an Opinion guest essay by Ross Wiener.`\
 https://www.nytimes.com/2026/07/03/opinion/education-schools.html
 
-**Via Carota’s House Dressing Can Be Your House Dressing**\
-`And more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
-
