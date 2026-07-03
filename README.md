@@ -174,7 +174,3 @@ https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
 `The overloaded bus was carrying 48 passengers on a notoriously hazardous highway linking two provincial capitals.`\
 https://www.nytimes.com/2026/07/03/world/asia/pakistan-bus-crash.html
 
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/07/03/movies/new-movies-this-week-critics.html
-
