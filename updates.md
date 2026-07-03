@@ -1,3 +1,7 @@
+**It’s Day 1 of the Supreme Leader’s Funeral, and Allies Gather in Iran**\
+`Foreign dignitaries paid their respects to Ayatollah Ali Khamenei on Friday as days of ceremonies got underway.`\
+https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
+
 **How to Get School Policy Back on Track**\
 `Readers respond to “‘No Child Left Behind’ Nostalgia Is Delusional,” an Opinion guest essay by Ross Wiener.`\
 https://www.nytimes.com/2026/07/03/opinion/education-schools.html
