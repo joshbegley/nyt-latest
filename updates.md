@@ -1,3 +1,7 @@
+**Fable Ban Reversed + Dr. Dana Suskind on Parenting With A.I. + Prediction Market Drama**\
+`What we learned from the government’s biggest attempt yet to control who can gain access to the most powerful new A.I. models.`\
+https://www.nytimes.com/2026/07/03/podcasts/fable-ban-reversed-dr-dana-suskind-on-parenting-with-ai-prediction-market-drama.html
+
 **Without Climate Change, U.S. Heat Wave Called ‘Virtually Impossible’**\
 `Scientists have said the conditions are the result of a climate that is “fundamentally different” from the time before fossil fuel use started rapidly warming the world.`\
 https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.html
