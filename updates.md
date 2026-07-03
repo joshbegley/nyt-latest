@@ -1,3 +1,7 @@
+**Once the Centerpiece of Celebration, a Faded Declaration Recedes**\
+`Sunlight and abuse have taken a toll on the document, encased in bulletproof glass. But the Trump administration “hasn’t put much emphasis on it,” a former archivist notes.`\
+https://www.nytimes.com/2026/07/03/us/politics/once-the-centerpiece-of-celebration-a-faded-declaration-recedes.html
+
 **Fans Gather Outside the Wedding of the Year at Madison Square Garden**\
 `As temperatures climbed to nearly 100 degrees and police cordoned off streets around the arena, devoted Swift fans from across the country gathered in anticipation of Taylor Swift and Travis Kelce’s celebration.`\
 https://www.nytimes.com/2026/07/03/style/fans-gather-outside-the-wedding-of-the-year-at-madison-square-garden.html
