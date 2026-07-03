@@ -1,3 +1,11 @@
+**Mamdani Says Blind Patriotism Hides the Nation’s Flaws and Inequality**\
+`In a nearly 13-minute address, Mayor Zohran Mamdani of New York highlighted the nation’s diversity and criticized those who would deprive immigrants of freedom.`\
+https://www.nytimes.com/2026/07/03/nyregion/mamdani-speech-july-4th.html
+
+**Live Updates: Taylor Swift and Travis Kelce Wedding Celebration Begins at M.S.G.**\
+`The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **A U.S. Independence Celebration Damaged a Museum in Belgium**\
 `There were black marks left on a structure in a central Brussels park after a fireworks display, the American ambassador to Belgium confirmed.`\
 https://www.nytimes.com/2026/07/03/world/europe/belgium-building-damaged-america-250-fireworks.html
