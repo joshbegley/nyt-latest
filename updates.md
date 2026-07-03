@@ -1,3 +1,7 @@
+**To Stay Cool, Wear Flowing Robes and Throw Water Around? Yes, Says Science.**\
+`Throughout history, people have come up with surprising ways to beat the heat that actually work.`\
+https://www.nytimes.com/2026/07/03/climate/traditions-stay-cool-heat-wave.html
+
 **Making a Cake for America’s 250th Birthday**\
 `In her quest to mark the nation’s 250th with a unifying dessert, Grace Pak had to navigate the pitfalls of a polarized Washington.`\
 https://www.nytimes.com/2026/07/03/dining/america-250-birthday-cake-grace-pak.html
