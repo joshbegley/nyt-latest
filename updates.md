@@ -1,3 +1,7 @@
+**Prince William Goes on Travis Kelce’s ‘New Heights’ Podcast Before His Wedding**\
+`The British royal didn’t offer marriage advice. Instead, he discussed football, soccer and reminisced about when they all met in London during the Eras tour.`\
+https://www.nytimes.com/2026/07/03/style/prince-william-travis-kelce-new-heights.html
+
 **David S. Doty, Judge Who Helped Shape the Modern N.F.L., Dies at 96**\
 `He presided over the 1993 agreement that led to free agency and the salary cap, and for years oversaw the league’s disputes with its players.`\
 https://www.nytimes.com/2026/07/03/sports/football/david-s-doty-dead.html
