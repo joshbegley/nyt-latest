@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 
-**World Cup Updates: In Little Senegal, a Vibrant Party Turns to Shock**\
+**World Cup Updates: Portugal-Croatia Helps the World Cup Say Farewell to Toronto**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 
