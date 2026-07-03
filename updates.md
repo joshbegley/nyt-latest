@@ -1,3 +1,7 @@
+**Lionel Messi, eterno y fugaz**\
+`¿Cómo están disfrutando sus legiones de fans la que podría ser la última Copa Mundial de su ídolo? Me sumergí en una multitud que ovacionaba su nombre para averiguarlo.`\
+https://www.nytimes.com/es/2026/07/03/espanol/deportes/messi-mundial-argentina.html
+
 **Mamdani Says Blind Patriotism Hides the Nation’s Flaws and Inequality**\
 `In a nearly 13-minute address, Mayor Zohran Mamdani of New York highlighted the nation’s diversity and criticized those who would deprive immigrants of freedom.`\
 https://www.nytimes.com/2026/07/03/nyregion/mamdani-speech-july-4th.html
