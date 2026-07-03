@@ -1,3 +1,11 @@
+**Blistering Heat Expected to Persist Into the Fourth of July**\
+`While relief could come to the Great Lakes and the far Northeast over the weekend, the Mid-Atlantic and Southeast will stay hot.`\
+https://www.nytimes.com/2026/07/03/weather/us-weather-heat-wave.html
+
+**Record Heat to Persist Through July 4th Weekend**\
+`Triple-digit temperatures were forecast for large swaths of the United States as the nation prepared its Independence Day celebrations.`\
+https://www.nytimes.com/video/weather/100000011009023/us-heat-july-4th.html
+
 **China Defends Widely Criticized ‘Ethnic Unity’ Law**\
 `Rights groups and Western officials have criticized the law as a threat to Tibetans, Uyghurs and other minorities. Beijing says the measure aims to protect them.`\
 https://www.nytimes.com/2026/07/03/world/asia/china-ethnic-unity-tibetan-uyghurs.html
