@@ -1,3 +1,7 @@
+**Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
+`The list includes Emma Stone, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
+
 **How the Heat Is Upending Plans for America’s 250th Birthday**\
 `A parade in Philadelphia, one of the largest in its history, was canceled on Friday, and the Great American State Fair on the National Mall in Washington closed for several hours.`\
 https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html

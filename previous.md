@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/07/03/us/trump-national-guard-washington.html
 `A preliminary report said that the fuel was clean and that the plane, which had already made two flights that day, met weight and balance requirements.`\
 https://www.nytimes.com/2026/07/03/us/skydiving-plane-crash-butler-missouri-ntsb.html
 
-**Who Is Attending Taylor Swift’s Wedding? What We Know About the Guest List**\
+**Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
 `The list includes Emma Stone, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
 
