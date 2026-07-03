@@ -1,3 +1,35 @@
+**How to Get School Policy Back on Track**\
+`Readers respond to “‘No Child Left Behind’ Nostalgia Is Delusional,” an Opinion guest essay by Ross Wiener.`\
+https://www.nytimes.com/2026/07/03/opinion/education-schools.html
+
+**Via Carota’s House Dressing Can Be Your House Dressing**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
+https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
+
+**Mary Beard Looks at Trump and Sees Roman Emperors**\
+`Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
+https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
+
+**What Does It Mean to Love America?**\
+`America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
+https://www.nytimes.com/video/opinion/100000011001815/what-does-it-mean-to-love-america.html
+
+**How Celebrity Wedding Planners Would Decorate MSG for Taylor Swift**\
+`Dua Lipa’s planner envisioned olive trees and thousands of string lights. LeBron James’s planner took inspiration from the Eras Tour.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-travis-kelce-celebrity-wedding-planners.html
+
+**Ayatollah Ali Khamenei Lies In State**\
+`Foreign officials, militia members and religious leaders on Friday visited the site where the slain Ayatollah Ali Khamenei is lying in state, beginning nearly a week of events to mourn and bury Iran’s former supreme leader.`\
+https://www.nytimes.com/video/world/asia/100000011009341/iran-funeral-ali-khamenei.html
+
+**Woman From Ukraine Was Behind Monaco Bomb Attack, Officials Say**\
+`Anastasiia Berezovska, a 39-year-old Ukrainian, tried to kill three people with a parcel bomb on Monday, the authorities said. She remained on the run.`\
+https://www.nytimes.com/2026/07/03/world/europe/monaco-bomb-suspect-ukraine-anastasiia-berezovska.html
+
 **To Stay Cool, Wear Flowing Robes and Throw Water Around? Yes, Says Science.**\
 `Throughout history, people have come up with surprising ways to beat the heat that actually work.`\
 https://www.nytimes.com/2026/07/03/climate/traditions-stay-cool-heat-wave.html

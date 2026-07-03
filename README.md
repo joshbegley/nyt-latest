@@ -90,8 +90,8 @@ https://www.nytimes.com/2026/07/03/podcasts/fable-ban-reversed-dr-dana-suskind-o
 `Scientists have said the conditions are the result of a climate that is “fundamentally different” from the time before fossil fuel use started rapidly warming the world.`\
 https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.html
 
-**It’s Day 1 of the Supreme Leader’s Funeral, and Allies Descend on Iran**\
-`Foreign dignitaries from China, Russia, Pakistan and elsewhere are set to pay respects to Ayatollah Ali Khamenei on Friday as days of ceremonies get underway.`\
+**It’s Day 1 of the Supreme Leader’s Funeral, and Allies Gather in Iran**\
+`Foreign dignitaries paid their respects to Ayatollah Ali Khamenei on Friday as days of ceremonies got underway.`\
 https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
 
 **Happy 250th, America**\
