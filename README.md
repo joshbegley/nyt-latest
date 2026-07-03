@@ -1,3 +1,7 @@
+**Laurie Santos: Americans and the Pursuit of Happiness**\
+`On “The Interview,” Laurie Santos, a cognitive scientist and a professor at Yale, says that Americans think about happiness in unique ways, and they have for a long time.`\
+https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
+
 **Live Updates: Taylor Swift and Travis Kelce Wedding Celebration Begins at M.S.G.**\
 `The pop star and the football player were poised to welcome 1,000 guests into a mega-reception in New York City.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/07/03/opinion/education-schools.html
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
 
-**Five Science Fiction Movies to Stream Now**\
-`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
-https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
-
 **Mary Beard Looks at Trump and Sees Roman Emperors**\
 `Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
 https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
+https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
 
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/03/arts/television/comedy-specials-4th-of-july-h
 **Corrections: July 3, 2026**\
 `Corrections that appeared in print on Friday, July 3, 2026.`\
 https://www.nytimes.com/2026/07/03/pageoneplus/corrections-july-3-2026.html
-
-**The America That’s Still Possible**\
-`On America’s 250th anniversary, Bryan Stevenson, a civil rights lawyer and the founder of the Equal Justice Initiative, looks toward the work that is ahead for the country.`\
-https://www.nytimes.com/2026/07/03/opinion/ezra-klein-podcast-bryan-stevenson.html
 

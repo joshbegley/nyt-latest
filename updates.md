@@ -1,3 +1,15 @@
+**Live Updates: Taylor Swift and Travis Kelce Wedding Celebration Begins at M.S.G.**\
+`The pop star and the football player were poised to welcome 1,000 guests into a mega-reception in New York City.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
+**Louisiana Supreme Court Pauses Case Against State Attorney General**\
+`Just hours after a New Orleans grand jury indicted Attorney General Liz Murrill on bullying charges, the court intervened, citing potential flaws in the process.`\
+https://www.nytimes.com/2026/07/03/us/louisiana-supreme-court-liz-murrill.html
+
+**Trump Nods at Taylor Swift in Posts on Social Media**\
+`In a pair of posts, the president addressed Taylor Swift on the weekend of her wedding festivities, using her imagery and words.`\
+https://www.nytimes.com/2026/07/03/style/trump-taylor-swift-america-250-eras.html
+
 **As Heat Suffocates Washington DC, Calls to Emergency Medical Services Climb**\
 `Near 100-degree temperatures were expected to continue as medical workers prepared for more heat-related illnesses during celebrations of the nation’s 250th anniversary.`\
 https://www.nytimes.com/2026/07/03/weather/heat-wave-washington-dc-emergency-calls.html
