@@ -1,3 +1,11 @@
+**JD Vance y Melania Trump también registraron fuertes aumentos en sus ingresos en 2025**\
+`Pero cada uno de ellos ganó solo una pequeña parte de los 2,2 millardos de dólares como mínimo que el presidente Trump ingresó.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/melania-trump-jd-vance-ganancias-dolares.html
+
+**Artur Dmitriev, Two-Time Olympic Pairs Skating Champion, Dies at 58**\
+`He won gold medals in 1992 and 1998, and was known for his dynamic power, elegance and charisma.`\
+https://www.nytimes.com/2026/07/03/sports/artur-dmitriev-dead.html
+
 **MAGA guarda silencio ante los millardos de dólares en ganancias de Trump**\
 `Para muchos de sus seguidores, dichas ganancias son muestra de la perspicacia empresarial que siempre le han admirado.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/trump-ganancias-dolares-aprobacion.html

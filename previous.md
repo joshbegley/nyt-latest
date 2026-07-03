@@ -1,3 +1,11 @@
+**JD Vance y Melania Trump también registraron fuertes aumentos en sus ingresos en 2025**\
+`Pero cada uno de ellos ganó solo una pequeña parte de los 2,2 millardos de dólares como mínimo que el presidente Trump ingresó.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/melania-trump-jd-vance-ganancias-dolares.html
+
+**Artur Dmitriev, Two-Time Olympic Pairs Skating Champion, Dies at 58**\
+`He won gold medals in 1992 and 1998, and was known for his dynamic power, elegance and charisma.`\
+https://www.nytimes.com/2026/07/03/sports/artur-dmitriev-dead.html
+
 **MAGA guarda silencio ante los millardos de dólares en ganancias de Trump**\
 `Para muchos de sus seguidores, dichas ganancias son muestra de la perspicacia empresarial que siempre le han admirado.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/trump-ganancias-dolares-aprobacion.html
@@ -185,16 +193,4 @@ https://www.nytimes.com/2026/07/03/travel/tourism-nyc-summer-peak.html
 **See Why the Venezuela Earthquakes Were So Deadly**\
 `A series of unlucky factors — two earthquakes in rapid succession, a fault that ruptured toward Caracas, soft ground and the shallow depth of the earthquake — combined to make the Venezuela earthquakes unusually deadly.`\
 https://www.nytimes.com/interactive/2026/07/03/world/americas/venezuela-earthquakes-epicenter-maps.html
-
-**Will Late-Night TV Work on YouTube?**\
-`Julian Shapiro-Barnum, best known for a social media series called “Recess Therapy,” has started an online-only late-night show.`\
-https://www.nytimes.com/2026/07/03/business/media/youtube-julian-shapiro-barnum-late-night.html
-
-**Long Lines for Gas Shatter the Illusion of Normalcy in Wartime Russia**\
-`“Are we in the Soviet Union now?” asked one Russian, stunned and frustrated by the waits at the pumps.`\
-https://www.nytimes.com/2026/07/03/world/europe/russia-gas-shortages.html
-
-**The Perishable, Never-Ending Genius of Lionel Messi**\
-`How are his legions of fans savoring what could be the last World Cup of their idol? I dove into a sea of screaming Messis to find out.`\
-https://www.nytimes.com/2026/07/03/magazine/messi-argentina-world-cup.html
 
