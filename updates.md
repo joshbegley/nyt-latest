@@ -1,3 +1,19 @@
+**What to Know About Getting Around Town on Swift’s Wedding Day**\
+`With Taylor Swift’s wedding on Friday, Midtown Manhattan will present some logistical challenges to drivers and pedestrians.`\
+https://www.nytimes.com/2026/07/03/nyregion/manhattan-street-closures-holiday-swift.html
+
+**What Does It Cost to Take Over Madison Square Garden?**\
+`It’s not just rent. There’s security, insurance, permits and other costs, not to mention extra police presence.`\
+https://www.nytimes.com/2026/07/03/style/swift-wedding-msg-cost.html
+
+**How Public Pools Create Summer Communities in New York**\
+`Dry Dock Pool in Lower Manhattan is one of New York City’s 51 free outdoor pools where more than one million New Yorkers cool off with swimming, sunblock and community.`\
+https://www.nytimes.com/2026/07/03/nyregion/nyc-pools-summer-heat-wave.html
+
+**NYT Spelling Bee Answers for July 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/03/crosswords/spelling-bee-forum.html
+
 **Tibetan Activist Sets Self on Fire Outside U.N. in Protest Against China**\
 `Lobga Rangzen, a 52-year-old resident of Queens, died after the self-immolation. He said Beijing’s policies were “destroying the Tibetan people.”`\
 https://www.nytimes.com/2026/07/03/world/asia/tibet-self-immolation-united-nations-china.html
