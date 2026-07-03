@@ -1,3 +1,7 @@
+**Swimmer Is Injured at Jones Beach in Possible Shark Attack**\
+`The swimmer was treated for a minor foot injury after being bitten by “unknown marine life,” New York State officials said.`\
+https://www.nytimes.com/2026/07/03/nyregion/jones-beach-shark-attack.html
+
 **Trump Targets Not Just Georgia’s Vote, but Also Trust in Elections**\
 `The president has sent 260 F.B.I. analysts to Georgia, repeating his baseless claims of fraud in 2020. But critics say the intention is to undermine overall confidence in the electoral process.`\
 https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-integrity.html
