@@ -1,3 +1,7 @@
+**‘All Different, but All American’: A Chef on Potato Salad Diversity**\
+`Wesley Morris, host of “Cannonball,” talks to the chef Hooni Kim on the streets of New York City about how he has made potato salad his own.`\
+https://www.nytimes.com/video/podcasts/100000011008945/all-different-but-all-american-a-chef-on-potato-salad-diversity.html
+
 **NYT Crossword Answers for July 03, 2026**\
 `Barbara Lin returns to open our solving weekend.`\
 https://www.nytimes.com/2026/07/02/crosswords/daily-puzzle-2026-07-03.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/dining/sandwich-of-the-summer-piadina.html
 **Teenage Boys Who Raped Girls in Fordingbridge, England, Have Sentences Revised**\
 `Two teenagers were given four-year custodial sentences on Thursday after an appeals court determined that their earlier sentencing, which included no time in detention, was too lenient.`\
 https://www.nytimes.com/2026/07/02/world/europe/teenagers-rape-england-sentencing.html
-
-**Fast-Moving Wildfire Forces Hundreds of Evacuations near Pueblo, Colorado**\
-`The Aspen Acres fire, near Pueblo, Colo., has burned more than 50,000 acres and destroyed hundreds of structures.`\
-https://www.nytimes.com/2026/07/02/us/aspen-acres-wildfire-pueblo-colorado-evacuations.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
