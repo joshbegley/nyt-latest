@@ -1,3 +1,23 @@
+**250 Years Later, Why We’re Still Fighting About Our Founding**\
+`With so many prisms through which to see the past, is there a story about the founding of America that can still be unifying?`\
+https://www.nytimes.com/2026/07/03/podcasts/the-daily/america-250-founding.html
+
+**NYT Connections Answers for July 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/03/crosswords/connections-companion-1119.html
+
+**Today’s Wordle Hints for July 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/03/crosswords/wordle-review-1841.html
+
+**NYT Strands Hints for July 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/03/crosswords/strands-sidekick-853.html
+
+**This Pathetic Groveling Is No Way to Rebuild a Party**\
+`The Democrats’ constant solicitations for cash do not make their supporters feel like they are on a winning team.`\
+https://www.nytimes.com/2026/07/03/opinion/democrats-fund-raising-politics-republicans.html
+
 **‘There Is a Culture of Silence’**\
 `Journalist Alan Shipnuck investigates why Phil Mickelson has basically vanished from the LIV Golf Tour.`\
 https://www.nytimes.com/2026/07/03/podcasts/phil-mickelson-liv-golf.html

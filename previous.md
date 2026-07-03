@@ -1,3 +1,19 @@
+**250 Years Later, Why We’re Still Fighting About Our Founding**\
+`With so many prisms through which to see the past, is there a story about the founding of America that can still be unifying?`\
+https://www.nytimes.com/2026/07/03/podcasts/the-daily/america-250-founding.html
+
+**NYT Connections Answers for July 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/03/crosswords/connections-companion-1119.html
+
+**Today’s Wordle Hints for July 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/03/crosswords/wordle-review-1841.html
+
+**NYT Strands Hints for July 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/03/crosswords/strands-sidekick-853.html
+
 **‘There Is a Culture of Silence’**\
 `Journalist Alan Shipnuck investigates why Phil Mickelson has basically vanished from the LIV Golf Tour.`\
 https://www.nytimes.com/2026/07/03/podcasts/phil-mickelson-liv-golf.html
@@ -146,7 +162,7 @@ https://www.nytimes.com/2026/07/03/world/europe/a-hitler-bunker-faces-demolition
 `Plans include an air show in Texas, 18,500 fireworks in Idaho and a frog-jumping contest in Missouri.`\
 https://www.nytimes.com/2026/07/03/us/july-4-events.html
 
-**Enough With the Pathetic Fund-Raising Pleas, Democrats**\
+**This Pathetic Groveling Is No Way to Rebuild a Party**\
 `The Democrats’ constant solicitations for cash do not make their supporters feel like they are on a winning team.`\
 https://www.nytimes.com/2026/07/03/opinion/democrats-fund-raising-politics-republicans.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/03/nyregion/manhattan-street-closures-holiday-sw
 **What Does It Cost to Take Over Madison Square Garden?**\
 `It’s not just rent. There’s security, insurance, permits and other costs, not to mention extra police presence.`\
 https://www.nytimes.com/2026/07/03/style/swift-wedding-msg-cost.html
-
-**How Public Pools Create Summer Communities in New York**\
-`Dry Dock Pool in Lower Manhattan is one of New York City’s 51 free outdoor pools where more than one million New Yorkers cool off with swimming, sunblock and community.`\
-https://www.nytimes.com/2026/07/03/nyregion/nyc-pools-summer-heat-wave.html
-
-**NYT Spelling Bee Answers for July 3, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/03/crosswords/spelling-bee-forum.html
-
-**Tibetan Activist Sets Self on Fire Outside U.N. in Protest Against China**\
-`Lobga Rangzen, a 52-year-old resident of Queens, died after the self-immolation. He said Beijing’s policies were “destroying the Tibetan people.”`\
-https://www.nytimes.com/2026/07/03/world/asia/tibet-self-immolation-united-nations-china.html
-
-**¿Es necesario un entrenamiento especial para la menopausia?**\
-`La menopausia se ha convertido en un tema habitual en la cultura popular, y el entrenamiento de fuerza se ha erigido en una de las recomendaciones más recurrentes para un envejecimiento saludable.`\
-https://www.nytimes.com/es/2026/07/03/espanol/rutina-ejercicios-menopausia.html
 
