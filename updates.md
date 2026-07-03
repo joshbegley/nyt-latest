@@ -1,3 +1,7 @@
+**Dear Americans, How Well Do You Know Canada?**\
+`The Canada-U.S. relationship has had an interesting year and a half: a quiz to test how much Americans know about their northern neighbor.`\
+https://www.nytimes.com/interactive/2026/07/03/world/canada/america-canada-quiz-fourth-july.html
+
 **¿Cuánto cuesta alquilar el Madison Square Garden?**\
 `La boda de Taylor Swift y Travis Kelce obligaría a cerrar calles, desplegar cientos de agentes y asumir costos públicos y privados de gran escala en Nueva York.`\
 https://www.nytimes.com/es/2026/07/03/espanol/cuanto-cuesta-alquilar-madison-square-garden.html
