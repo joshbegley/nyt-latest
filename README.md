@@ -1,3 +1,7 @@
+**No Engine Problems in Skydiving Plane Crash That Killed 12, N.T.S.B. Says**\
+`A preliminary report said that the fuel was clean and that the plane, which had already made two flights that day, met weight and balance requirements.`\
+https://www.nytimes.com/2026/07/03/us/skydiving-plane-crash-butler-missouri-ntsb.html
+
 **Who Is Attending Taylor Swift’s Wedding? What We Know About the Guest List**\
 `The list includes Emma Stone, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/03/movies/minions-and-monsters-director-pierre-c
 **Jill Lepore on What to Read This Fourth of July**\
 `A Pulitzer Prize-winning historian offers a reading list for America’s 250th birthday. Then we discuss some of the summer’s most anticipated beach reads.`\
 https://www.nytimes.com/2026/07/03/podcasts/lepore-250.html
-
-**We Didn’t Build the Atomic Bomb This Way**\
-`There’s no reason the United States should refrain from building its own frontier A.I. model.`\
-https://www.nytimes.com/2026/07/03/opinion/ai-national-lab-us.html
 
