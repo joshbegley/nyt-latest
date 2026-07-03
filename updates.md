@@ -1,3 +1,7 @@
+**Peanut Butter Date S’mores**\
+`Looking for a twist on the classic s’more? The New York Times Cooking contributor Ali Slagle is here with a peanut-butter-and-date version, and it’s perfection.`\
+https://www.nytimes.com/video/dining/100000011009968/peanut-butter-date-smores.html
+
 **Once the Centerpiece of Celebration, a Faded Declaration Recedes**\
 `Sunlight and abuse have taken a toll on the document, encased in bulletproof glass. But the Trump administration “hasn’t put much emphasis on it,” a former archivist notes.`\
 https://www.nytimes.com/2026/07/03/us/politics/once-the-centerpiece-of-celebration-a-faded-declaration-recedes.html
