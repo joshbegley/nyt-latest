@@ -1,3 +1,11 @@
+**On Eve of Taylor Swift’s Wedding, Rehearsal Dinner Kicks Off Weekend of Events**\
+`A rehearsal dinner at Madison Square Garden kicked off a weekend of events hosted by the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
+https://www.nytimes.com/2026/07/02/style/swift-kelce-wedding-msg-rehearsal-dinner.html
+
+**Heat Wave Relief May Not Come at Sunset**\
+`There are steps you can take to cool down after sundown even in conditions with high humidity.`\
+https://www.nytimes.com/2026/07/02/weather/heat-wave-cool-down-sunset.html
+
 **’Twas the Night Before Taylor and Travis’s Big Wedding Celebration …**\
 `A rehearsal dinner at Madison Square Garden kicked off a weekend of events hosted by the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
 https://www.nytimes.com/2026/07/02/style/swift-kelce-wedding-msg-rehearsal-dinner.html
