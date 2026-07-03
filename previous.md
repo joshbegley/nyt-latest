@@ -1,3 +1,7 @@
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/03/movies/new-movies-this-week-critics.html
+
 **Cape Verde Faces Argentina’s World Cup Juggernaut. Its Fans Aren’t Stressed.**\
 `Cape Verde, a tiny African archipelago, was thrilled to qualify for the World Cup, let alone take on the defending champions. But its fans feel confident.`\
 https://www.nytimes.com/2026/07/03/world/africa/cape-verde-argentina-world-cup-fans.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/07/03/podcasts/fable-ban-reversed-dr-dana-suskind-o
 `Scientists have said the conditions are the result of a climate that is “fundamentally different” from the time before fossil fuel use started rapidly warming the world.`\
 https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.html
 
-**Allies Converge on Iran as Funeral Ceremonies for Supreme Leader Begin**\
+**It’s Day 1 of the Supreme Leader’s Funeral, and Allies Descend on Iran**\
 `Foreign dignitaries from China, Russia, Pakistan and elsewhere are set to pay respects to Ayatollah Ali Khamenei on Friday as days of ceremonies get underway.`\
 https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/03/movies/mary-oliver-saved-by-the-beauty-of-the
 **For the F1 Driver Oliver Bearman, It’s a Journey**\
 `The young Haas driver has had a fast rise in Formula 1. He has dreams of someday driving for Ferrari, but first he wants to make Haas a contender.`\
 https://www.nytimes.com/2026/07/03/sports/f1-oliver-bearman-journey-haas-ferarri.html
-
-**Vicki Gunvalson on Her ‘Real Housewives of Orange County’ Return**\
-`When Vicki Gunvalson signed on for “The Real Housewives of Orange County” 20 years ago, no one knew she’d become a quintessential reality TV star.`\
-https://www.nytimes.com/2026/07/03/arts/television/vicki-gunvalson-real-housewives-season-20.html
 

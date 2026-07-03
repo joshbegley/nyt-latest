@@ -1,3 +1,11 @@
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/03/movies/new-movies-this-week-critics.html
+
+**It’s Day 1 of the Supreme Leader’s Funeral, and Allies Descend on Iran**\
+`Foreign dignitaries from China, Russia, Pakistan and elsewhere are set to pay respects to Ayatollah Ali Khamenei on Friday as days of ceremonies get underway.`\
+https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
+
 **Cape Verde Faces Argentina’s World Cup Juggernaut. Its Fans Aren’t Stressed.**\
 `Cape Verde, a tiny African archipelago, was thrilled to qualify for the World Cup, let alone take on the defending champions. But its fans feel confident.`\
 https://www.nytimes.com/2026/07/03/world/africa/cape-verde-argentina-world-cup-fans.html
