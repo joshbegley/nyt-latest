@@ -1,3 +1,7 @@
+**Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
+`The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-nicks-performance.html
+
 **What Time Is Taylor Swift Getting Married? See the Wedding Schedule at MSG.**\
 `An internal memo for the New York Police Department laid out a schedule of events for a 1,000-person celebration on Friday.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.html
