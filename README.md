@@ -1,3 +1,7 @@
+**To Stay Cool, Wear Flowing Robes and Throw Water Around? Yes, Says Science.**\
+`Throughout history, people have come up with surprising ways to beat the heat that actually work.`\
+https://www.nytimes.com/2026/07/03/climate/traditions-stay-cool-heat-wave.html
+
 **Making a Cake for America’s 250th Birthday**\
 `In her quest to mark the nation’s 250th with a unifying dessert, Grace Pak had to navigate the pitfalls of a polarized Washington.`\
 https://www.nytimes.com/2026/07/03/dining/america-250-birthday-cake-grace-pak.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/03/magazine/maha-movement-survival-rfk.html
 **The Great American State Fair Celebrates America, and Trump**\
 `Attendees at President Trump’s two-week-long Great American State Fair talk about what this celebration of the nation’s semiquincentennial says about America and its history.`\
 https://www.nytimes.com/video/us/politics/100000010990815/great-american-state-fair-trump-america.html
-
-**Pick Your Favorite Home on Croatia’s Coast**\
-`A four-bedroom villa with a tennis court, a three-story stone house with a pool, and an urban duplex apartment. Vote for your favorite.`\
-https://www.nytimes.com/2026/07/03/realestate/pick-your-favorite-home-on-croatias-coast.html
 
