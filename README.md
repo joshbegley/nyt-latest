@@ -1,3 +1,7 @@
+**As Heat Suffocates Washington DC, Calls to Emergency Medical Services Climb**\
+`Near 100-degree temperatures were expected to continue as medical workers prepared for more heat-related illnesses during celebrations of the nation’s 250th anniversary.`\
+https://www.nytimes.com/2026/07/03/weather/heat-wave-washington-dc-emergency-calls.html
+
 **Pilot Was Bitten by Bat After Swarm Invaded Hotel Room, Lawsuit Says**\
 `A pilot, who was treated for possible rabies exposure, sued Marriott International, claiming his Denver hotel failed to offer him a new room after he woke up to a swarm of bats last year.`\
 https://www.nytimes.com/2026/07/03/us/bats-rabies-marriott-lawsuit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/03/espanol/apetito-edad.html
 **E Pluribus Algae: Why Green Pond Scum Is as American as Red, White and Blue**\
 `And why the most patriotic approach to the Reflecting Pool may be to let the algae take over.`\
 https://www.nytimes.com/2026/07/03/science/algae-reflecting-pool.html
-
-**Is NYC Summer Tourism Peaking With World Cup, Swift Wedding and America’s 250th?**\
-`A series of major events is unfolding in New York this week, sprinkling the city with soccer tees, fireworks and, perhaps, love — though not record visitor numbers.`\
-https://www.nytimes.com/2026/07/03/travel/tourism-nyc-summer-peak.html
 
