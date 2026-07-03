@@ -1,3 +1,11 @@
+**Happy 250th, America**\
+`A special newsletter to mark the semiquincentennial.`\
+https://www.nytimes.com/2026/07/03/briefing/happy-250th-america.html
+
+**What’s It Like to Face Messi on the Field?**\
+`The Argentina captain is the greatest player the game has ever seen. Is there any way to stop him?`\
+https://www.nytimes.com/2026/07/03/podcasts/lionel-messi-world-cup.html
+
 **250 Years Later, Why We’re Still Fighting About Our Founding**\
 `With so many prisms through which to see the past, is there a story about the founding of America that can still be unifying?`\
 https://www.nytimes.com/2026/07/03/podcasts/the-daily/america-250-founding.html
