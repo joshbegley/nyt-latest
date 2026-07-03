@@ -1,3 +1,7 @@
+**Trump Targets Not Just Georgia’s Vote, but Also Trust in Elections**\
+`The president has sent 260 F.B.I. analysts to Georgia, repeating his baseless claims of fraud in 2020. But critics say the intention is to undermine overall confidence in the electoral process.`\
+https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-integrity.html
+
 **Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
 `The list includes Reese Witherspoon, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html

@@ -1,3 +1,7 @@
+**Trump Targets Not Just Georgia’s Vote, but Also Trust in Elections**\
+`The president has sent 260 F.B.I. analysts to Georgia, repeating his baseless claims of fraud in 2020. But critics say the intention is to undermine overall confidence in the electoral process.`\
+https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-integrity.html
+
 **What Time Is Taylor Swift Getting Married? See the Wedding Schedule at MSG.**\
 `An internal memo for the New York Police Department laid out a schedule of events for a 1,000-person celebration on Friday.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/07/03/us/skydiving-plane-crash-butler-missouri-ntsb
 **Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
 `The list includes Reese Witherspoon, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
-
-**Bus Plunges 70 Feet Into a Ravine in Pakistan, Killing 40**\
-`The overloaded bus was carrying 48 passengers on a notoriously hazardous highway linking two provincial capitals.`\
-https://www.nytimes.com/2026/07/03/world/asia/pakistan-bus-crash.html
 

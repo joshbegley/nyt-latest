@@ -1,3 +1,7 @@
+**Swimmer Is Injured at Jones Beach in Possible Shark Attack**\
+`The swimmer was treated for a minor foot injury after being bitten by “unknown marine life,” New York State officials said.`\
+https://www.nytimes.com/2026/07/03/nyregion/jones-beach-shark-attack.html
+
 **Trump Targets Not Just Georgia’s Vote, but Also Trust in Elections**\
 `The president has sent 260 F.B.I. analysts to Georgia, repeating his baseless claims of fraud in 2020. But critics say the intention is to undermine overall confidence in the electoral process.`\
 https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-integrity.html
@@ -130,13 +134,13 @@ https://www.nytimes.com/2026/07/03/opinion/education-schools.html
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
 
-**Mary Beard Looks at Trump and Sees Roman Emperors**\
-`Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
-https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
-
 **Five Science Fiction Movies to Stream Now**\
 `This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
 https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
+
+**Mary Beard Looks at Trump and Sees Roman Emperors**\
+`Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
+https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
 
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
@@ -165,12 +169,4 @@ https://www.nytimes.com/2026/07/03/dining/america-250-birthday-cake-grace-pak.ht
 **Trump’s National Guard Deployment in Washington Expands Ahead of Holiday**\
 `Nearly 5,000 Guard troops are in the capital, double the number initially deployed. Many have passed the time washing off graffiti and picking up trash.`\
 https://www.nytimes.com/2026/07/03/us/trump-national-guard-washington.html
-
-**No Engine Problems in Skydiving Plane Crash That Killed 12, N.T.S.B. Says**\
-`A preliminary report said that the fuel was clean and that the plane, which had already made two flights that day, met weight and balance requirements.`\
-https://www.nytimes.com/2026/07/03/us/skydiving-plane-crash-butler-missouri-ntsb.html
-
-**Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
-`The list includes Reese Witherspoon, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
-https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
 
