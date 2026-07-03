@@ -1,3 +1,11 @@
+**Without Climate Change, U.S. Heat Wave Called ‘Virtually Impossible’**\
+`Scientists have said the conditions are the result of a climate that is “fundamentally different” from the time before fossil fuel use started rapidly warming the world.`\
+https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.html
+
+**Allies Converge on Iran as Funeral Ceremonies for Supreme Leader Begin**\
+`Foreign dignitaries from China, Russia, Pakistan and elsewhere are set to pay respects to Ayatollah Ali Khamenei on Friday as days of ceremonies get underway.`\
+https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
+
 **Happy 250th, America**\
 `A special newsletter to mark the semiquincentennial.`\
 https://www.nytimes.com/2026/07/03/briefing/happy-250th-america.html
@@ -75,7 +83,7 @@ https://www.nytimes.com/interactive/2026/07/03/world/americas/venezuela-earthqua
 https://www.nytimes.com/2026/07/03/business/media/youtube-julian-shapiro-barnum-late-night.html
 
 **Long Lines for Gas Shatter the Illusion of Normalcy in Wartime Russia**\
-`“Are we in the Soviet Union now?” said one Russian, stunned and frustrated by long lwaits at the pumps.`\
+`“Are we in the Soviet Union now?” asked one Russian, stunned and frustrated by the waits at the pumps.`\
 https://www.nytimes.com/2026/07/03/world/europe/russia-gas-shortages.html
 
 **The Perishable, Never-Ending Genius of Lionel Messi**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/03/weather/us-weather-heat-wave.html
 **China Defends Widely Criticized ‘Ethnic Unity’ Law**\
 `Rights groups and Western officials have criticized the law as a threat to Tibetans, Uyghurs and other minorities. Beijing says the measure aims to protect them.`\
 https://www.nytimes.com/2026/07/03/world/asia/china-ethnic-unity-tibetan-uyghurs.html
-
-**Word of the Day: oligarchy**\
-`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/03/learning/word-of-the-day-oligarchy.html
-
-**¿El estadio más grande del mundo puede explicar la economía global?**\
-`Las altas tasas de crecimiento y el auge de las exportaciones en Vietnam ocultan profundas frustraciones en uno de los países más ambiciosos de Asia.`\
-https://www.nytimes.com/es/2026/07/03/espanol/mundo/vietnam-economia-global.html
 
