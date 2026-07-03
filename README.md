@@ -1,3 +1,15 @@
+**Why Some Banks Still Charge High Overdraft Fees**\
+`Congress scrapped a rule last year that capped how much banks could charge if you spent more than was in your account. Now, banks’ revenue from the fees is rising.`\
+https://www.nytimes.com/2026/07/03/your-money/banks-overdraft-fees.html
+
+**At the L.A. Warehouse Fire, First It Was the Smoke. Now It’s the Smell.**\
+`Rotting food — millions of pounds of it — remains in an L.A. cold-storage facility damaged in a fire. Residents say the cleanup hasn’t been fast enough.`\
+https://www.nytimes.com/2026/07/03/us/los-angeles-warehouse-fire-cleanup.html
+
+**Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 10 at 9 a.m. Eastern. This week’s winners will be announced by July 22.`\
+https://www.nytimes.com/2026/07/03/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
+
 **Enraptured by the World Cup, Countries Rewrite Rules for Fans**\
 `From pubs open until dawn to abruptly declared national holidays, it seems regulations everywhere are bending to accommodate the tournament.`\
 https://www.nytimes.com/2026/07/03/world/world-cup-countries-fans-holidays.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/03/arts/television/vicki-gunvalson-real-housewiv
 **A Hitler Bunker Faces Demolition In Housing-Challenged Berlin**\
 `Preservation experts say the move to develop the site reflects a tension in Germany between the need to preserve historically significant monuments and the need to build and modernize.`\
 https://www.nytimes.com/2026/07/03/world/europe/a-hitler-bunker-faces-demolition-in-housing-challenged-berlin.html
-
-**How Communities Across the U.S. Are Ringing in America’s 250th**\
-`Plans include an air show in Texas, 18,500 fireworks in Idaho and a frog-jumping contest in Missouri.`\
-https://www.nytimes.com/2026/07/03/us/july-4-events.html
-
-**This Pathetic Groveling Is No Way to Rebuild a Party**\
-`The Democrats’ constant solicitations for cash do not make their supporters feel like they are on a winning team.`\
-https://www.nytimes.com/2026/07/03/opinion/democrats-fund-raising-politics-republicans.html
-
-**John Byrne, an ‘X-Men’ Artist, Returns to Rewrite the Story His Way**\
-`After creative differences led him to step away from the characters that made him famous decades ago, John Byrne calls “Elsewhen” his swan song. He’s not going quietly.`\
-https://www.nytimes.com/2026/07/03/books/review/john-byrne-x-men-elsewhen.html
 
