@@ -1,3 +1,11 @@
+**How the Heat Is Upending Plans for America’s 250th Birthday**\
+`A parade in Philadelphia, one of the largest in its history, was canceled on Friday, and the Great American State Fair on the National Mall in Washington closed for several hours.`\
+https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html
+
+**Victoria Cruz, Veteran of the Trans Rights Movement, Dies at 79**\
+`She was at the Stonewall Inn on the night of its 1969 police raid, and she later became a forceful advocate for survivors of anti-trans violence.`\
+https://www.nytimes.com/2026/07/03/nyregion/victoria-cruz-dead.html
+
 **Boda de Taylor Swift y Travis Kelce en vivo: empiezan los festejos**\
 `La estrella del pop, el futbolista y unos 1000 amigos cercanos y famosos se preparan para celebrar la unión más esperada de la cultura pop.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce

@@ -1,3 +1,11 @@
+**How the Heat Is Upending Plans for America’s 250th Birthday**\
+`A parade in Philadelphia, one of the largest in its history, was canceled on Friday, and the Great American State Fair on the National Mall in Washington closed for several hours.`\
+https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html
+
+**Victoria Cruz, Veteran of the Trans Rights Movement, Dies at 79**\
+`She was at the Stonewall Inn on the night of its 1969 police raid, and she later became a forceful advocate for survivors of anti-trans violence.`\
+https://www.nytimes.com/2026/07/03/nyregion/victoria-cruz-dead.html
+
 **David S. Doty, Judge Who Helped Shape the Modern N.F.L., Dies at 96**\
 `He presided over the 1993 agreement that led to free agency and the salary cap, and for years oversaw the league’s disputes with its players.`\
 https://www.nytimes.com/2026/07/03/sports/football/david-s-doty-dead.html
@@ -169,12 +177,4 @@ https://www.nytimes.com/2026/07/03/movies/new-movies-this-week-critics.html
 **Cape Verde Faces Argentina’s World Cup Juggernaut. Its Fans Aren’t Stressed.**\
 `Cape Verde, a tiny African archipelago, was thrilled to qualify for the World Cup, let alone take on the defending champions. But its fans feel confident.`\
 https://www.nytimes.com/2026/07/03/world/africa/cape-verde-argentina-world-cup-fans.html
-
-**Why Some Banks Still Charge High Overdraft Fees**\
-`Congress scrapped a rule last year that capped how much banks could charge if you spent more than was in your account. Now, banks’ revenue from the fees is rising.`\
-https://www.nytimes.com/2026/07/03/your-money/banks-overdraft-fees.html
-
-**Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 10 at 9 a.m. Eastern. This week’s winners will be announced by July 22.`\
-https://www.nytimes.com/2026/07/03/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
 
