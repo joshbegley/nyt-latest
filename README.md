@@ -1,3 +1,47 @@
+**The New York Times News Quiz, July 3, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/07/03/briefing/america-250-supreme-court-tom-kean-jr-news-quiz.html
+
+**Fourth of July Weekend Is Busy at the ER. Here’s How to Avoid a Visit.**\
+`Doctors share tips for staying safe.`\
+https://www.nytimes.com/2026/07/03/well/fourth-of-july-er-safety-tips.html
+
+**Microsoft Disclosure Provides Rare Glimpse of Tax Haven Tactics**\
+`Other U.S. companies will soon need to provide similar reports as a new European directive takes effect.`\
+https://www.nytimes.com/2026/07/03/technology/microsoft-europe-disclosure-tax-havens.html
+
+**4 Funny Specials for a Long Hot Holiday Weekend**\
+`Nikki Glaser, Ryan Hamilton, Ali Siddiq and Ophira Eisenberg take very different approaches to their new hours, but all deliver the goods.`\
+https://www.nytimes.com/2026/07/03/arts/television/comedy-specials-4th-of-july-holiday-weekend.html
+
+**Corrections: July 3, 2026**\
+`Corrections that appeared in print on Friday, July 3, 2026.`\
+https://www.nytimes.com/2026/07/03/pageoneplus/corrections-july-3-2026.html
+
+**The America That’s Still Possible**\
+`On America’s 250th anniversary, Bryan Stevenson, a civil rights lawyer and the founder of the Equal Justice Initiative, looks toward the work that is ahead for the country.`\
+https://www.nytimes.com/2026/07/03/opinion/ezra-klein-podcast-bryan-stevenson.html
+
+**The Most Lavish Celebrity Weddings, From the Royals to Taylor Swift**\
+`We hear the couple has plans this weekend in New York City, as they look for their ever after.`\
+https://www.nytimes.com/2026/07/03/style/lavish-celebrity-weddings-taylor-swift-travis-kelce.html
+
+**¿Por qué ya no como tanto como antes?**\
+`Cambios hormonales. Disminución del olfato y el gusto. Pérdida de masa muscular. Muchos factores pueden influir en la pérdida de apetito en las personas mayores. Esto es lo que los expertos dicen al respecto.`\
+https://www.nytimes.com/es/2026/07/03/espanol/apetito-edad.html
+
+**E Pluribus Algae: Why Green Pond Scum Is as American as Red, White and Blue**\
+`And why the most patriotic approach to the Reflecting Pool may be to let the algae take over.`\
+https://www.nytimes.com/2026/07/03/science/algae-reflecting-pool.html
+
+**Is NYC Summer Tourism Peaking With World Cup, Swift Wedding and America’s 250th?**\
+`A series of major events is unfolding in New York this week, sprinkling the city with soccer tees, fireworks and, perhaps, love — though not record visitor numbers.`\
+https://www.nytimes.com/2026/07/03/travel/tourism-nyc-summer-peak.html
+
+**See Why the Venezuela Earthquakes Were So Deadly**\
+`A series of unlucky factors — two earthquakes in rapid succession, a fault that ruptured toward Caracas, soft ground and the shallow depth of the earthquake — combined to make the Venezuela earthquakes unusually deadly.`\
+https://www.nytimes.com/interactive/2026/07/03/world/americas/venezuela-earthquakes-epicenter-maps.html
+
 **Will Late-Night TV Work on YouTube?**\
 `Julian Shapiro-Barnum, best known for a social media series called “Recess Therapy,” has started an online-only late-night show.`\
 https://www.nytimes.com/2026/07/03/business/media/youtube-julian-shapiro-barnum-late-night.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/es/2026/07/03/espanol/rutina-ejercicios-menopausia.html
 **‘Basura’: Gloria y Emily Estefan encuentran un nuevo ritmo en el teatro**\
 `Madre e hija pasaron años componiendo las canciones y partitura de “Basura”, su nuevo musical. “En toda relación entre madre e hija, las cosas son complicadas”, dijo Gloria Estefan.`\
 https://www.nytimes.com/es/2026/07/03/espanol/cultura/basura-gloria-emily-estefan.html
-
-**EE. UU. cumple 250 años: esta es la polémica por las celebraciones**\
-`Dos organizaciones nacionales, una de ellas respaldada por el presidente Donald Trump, han organizado un conjunto de actividades para celebrar. Los estados también están organizando numerosos eventos.`\
-https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/polemica-aniversario-250-estados-unidos.html
-
-**Record Heat to Persist Through July 4th Weekend**\
-`Triple-digit temperatures were forecast for large swaths of the United States as the nation prepared its Independence Day celebrations.`\
-https://www.nytimes.com/video/weather/100000011009023/us-heat-july-4th.html
-
-**Denmark Has a Big Fourth of July Party. This Year, the U.S. Is Uninvited.**\
-`Furious at President Trump over Greenland, Danish officials took the unprecedented step of pressuring organizers to cut American officials from the program.`\
-https://www.nytimes.com/2026/07/03/world/europe/denmark-fourth-of-july-trump-us.html
-
-**Ucrania intensifica la presión sobre Putin con ataques en Crimea**\
-`Los bombardeos con drones, los problemas de abastecimiento y los apagones en la península anexada por Rusia buscan aumentar el costo de la guerra para el Kremlin.`\
-https://www.nytimes.com/es/2026/07/03/espanol/mundo/rusia-ucrania-crimea.html
-
-**Quote of the Day: Crypto Windfall for Trump but Not for Most Investors**\
-`Quotation of the Day for Friday, July 3, 2026.`\
-https://www.nytimes.com/2026/07/03/pageoneplus/quote-of-the-day-crypto-windfall-for-trump-but-not-for-most-investors.html
-
-**What We Found After He Was Gone**\
-`Jeff was Billy’s friend and my lover. Was he also Cupid?`\
-https://www.nytimes.com/2026/07/03/style/what-we-found-after-he-was-gone.html
-
-**A Relationship That Forced Two Magicians to Tip Their Hand**\
-`For Jamie Allan and Natalie Villalonga-Stanton, the daring feats they performed reinforced their mutual reliance and trust.`\
-https://www.nytimes.com/2026/07/03/style/natalie-villalonga-stanton-jamie-allan-wedding.html
-
-**On Military Leave Long Enough to Get Married**\
-`After graduating from the U.S. Naval Academy, Emma Shattuck and Anders Gulbrandson dated face-to-face about 22 percent of the time.`\
-https://www.nytimes.com/2026/07/03/style/emma-shattuck-anders-gulbrandson-wedding.html
-
-**He Wrote Hollywood Love Stories. It Took 12 Years to Finish His Own.**\
-`Michael Elliot, a screenwriter whose rom-com hits include “Brown Sugar” and “Just Wright,” married Adia May, a lawyer, more than a decade after they first met at a Los Angeles airport.`\
-https://www.nytimes.com/2026/07/03/style/adia-may-michael-elliot-wedding.html
-
-**By the Fourth Date, They Created a Shared Google Calendar**\
-`After several dead-end dates, Barry Pump had resigned himself to remaining a bachelor, but then he met Shreyans Goenka and bonded over their shared penchant for meticulous planning.`\
-https://www.nytimes.com/2026/07/03/style/shreyans-goenka-barry-pump-wedding.html
-
-**‘All Different, but All American’: A Chef on Potato Salad Diversity**\
-`Wesley Morris, host of “Cannonball,” talks to the chef Hooni Kim on the streets of New York City about how he has made potato salad his own.`\
-https://www.nytimes.com/video/podcasts/100000011008945/all-different-but-all-american-a-chef-on-potato-salad-diversity.html
 
