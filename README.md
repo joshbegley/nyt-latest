@@ -1,3 +1,7 @@
+**Enraptured by the World Cup, Countries Rewrite Rules for Fans**\
+`From pubs open until dawn to abruptly declared national holidays, it seems regulations everywhere are bending to accommodate the tournament.`\
+https://www.nytimes.com/2026/07/03/world/world-cup-countries-fans-holidays.html
+
 **A Mission to Save NASA’s Swift Telescope Launches to Orbit**\
 `A refrigerator-size spacecraft will try to grab onto Swift and nudge it to a higher orbit, enabling it to continue observing powerful cosmic explosions.`\
 https://www.nytimes.com/2026/07/03/science/nasa-swift-telescope-rescue-mission.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/03/opinion/democrats-fund-raising-politics-repub
 **John Byrne, an ‘X-Men’ Artist, Returns to Rewrite the Story His Way**\
 `After creative differences led him to step away from the characters that made him famous decades ago, John Byrne calls “Elsewhen” his swan song. He’s not going quietly.`\
 https://www.nytimes.com/2026/07/03/books/review/john-byrne-x-men-elsewhen.html
-
-**Children’s Picture Books on America at 250**\
-`New works by Christy Mihaly, Carole Boston Weatherford, Howard W. Reeves and Derrick Barnes show that there is still much to celebrate, rebel against and amend.`\
-https://www.nytimes.com/2026/07/03/books/review/america-250-childrens-picture-books.html
 
