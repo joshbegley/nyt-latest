@@ -1,3 +1,7 @@
+**Cape Verde Faces Argentina’s World Cup Juggernaut. Its Fans Aren’t Stressed.**\
+`Cape Verde, a tiny African archipelago, was thrilled to qualify for the World Cup, let alone take on the defending champions. But its fans feel confident.`\
+https://www.nytimes.com/2026/07/03/world/africa/cape-verde-argentina-world-cup-fans.html
+
 **Why Some Banks Still Charge High Overdraft Fees**\
 `Congress scrapped a rule last year that capped how much banks could charge if you spent more than was in your account. Now, banks’ revenue from the fees is rising.`\
 https://www.nytimes.com/2026/07/03/your-money/banks-overdraft-fees.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/03/sports/f1-oliver-bearman-journey-haas-ferarri
 **Vicki Gunvalson on Her ‘Real Housewives of Orange County’ Return**\
 `When Vicki Gunvalson signed on for “The Real Housewives of Orange County” 20 years ago, no one knew she’d become a quintessential reality TV star.`\
 https://www.nytimes.com/2026/07/03/arts/television/vicki-gunvalson-real-housewives-season-20.html
-
-**A Hitler Bunker Faces Demolition In Housing-Challenged Berlin**\
-`Preservation experts say the move to develop the site reflects a tension in Germany between the need to preserve historically significant monuments and the need to build and modernize.`\
-https://www.nytimes.com/2026/07/03/world/europe/a-hitler-bunker-faces-demolition-in-housing-challenged-berlin.html
 

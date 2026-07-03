@@ -1,3 +1,7 @@
+**Cape Verde Faces Argentina’s World Cup Juggernaut. Its Fans Aren’t Stressed.**\
+`Cape Verde, a tiny African archipelago, was thrilled to qualify for the World Cup, let alone take on the defending champions. But its fans feel confident.`\
+https://www.nytimes.com/2026/07/03/world/africa/cape-verde-argentina-world-cup-fans.html
+
 **Why Some Banks Still Charge High Overdraft Fees**\
 `Congress scrapped a rule last year that capped how much banks could charge if you spent more than was in your account. Now, banks’ revenue from the fees is rising.`\
 https://www.nytimes.com/2026/07/03/your-money/banks-overdraft-fees.html
