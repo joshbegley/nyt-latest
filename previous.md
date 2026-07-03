@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/07/03/crosswords/connections-companion-1119.html
 `Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
 https://www.nytimes.com/2026/07/03/crosswords/wordle-review-1841.html
 
-**NYT Strands Hints for July 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
-https://www.nytimes.com/2026/07/03/crosswords/strands-sidekick-853.html
-

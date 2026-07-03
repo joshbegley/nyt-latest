@@ -1,3 +1,7 @@
+**Peanut Butter Date S’mores**\
+`Looking for a twist on the classic s’more? The New York Times Cooking contributor Ali Slagle is here with a peanut-butter-and-date version, and it’s perfection.`\
+https://www.nytimes.com/video/dining/100000011009968/peanut-butter-date-smores.html
+
 **Once the Centerpiece of Celebration, a Faded Declaration Recedes**\
 `Sunlight and abuse have taken a toll on the document, encased in bulletproof glass. But the Trump administration “hasn’t put much emphasis on it,” a former archivist notes.`\
 https://www.nytimes.com/2026/07/03/us/politics/once-the-centerpiece-of-celebration-a-faded-declaration-recedes.html
@@ -142,13 +146,13 @@ https://www.nytimes.com/2026/07/03/world/africa/cape-verde-argentina-world-cup-f
 `Congress scrapped a rule last year that capped how much banks could charge if you spent more than was in your account. Now, banks’ revenue from the fees is rising.`\
 https://www.nytimes.com/2026/07/03/your-money/banks-overdraft-fees.html
 
-**At the L.A. Warehouse Fire, First It Was the Smoke. Now It’s the Smell.**\
-`Rotting food — millions of pounds of it — remains in an L.A. cold-storage facility damaged in a fire. Residents say the cleanup hasn’t been fast enough.`\
-https://www.nytimes.com/2026/07/03/us/los-angeles-warehouse-fire-cleanup.html
-
 **Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 10 at 9 a.m. Eastern. This week’s winners will be announced by July 22.`\
 https://www.nytimes.com/2026/07/03/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
+
+**At the L.A. Warehouse Fire, First It Was the Smoke. Now It’s the Smell.**\
+`Rotting food — millions of pounds of it — remains in an L.A. cold-storage facility damaged in a fire. Residents say the cleanup hasn’t been fast enough.`\
+https://www.nytimes.com/2026/07/03/us/los-angeles-warehouse-fire-cleanup.html
 
 **Enraptured by the World Cup, Countries Rewrite Rules for Fans**\
 `From pubs open until dawn to abruptly declared national holidays, it seems regulations everywhere are bending to accommodate the tournament.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/03/podcasts/the-daily/america-250-founding.html
 **NYT Connections Answers for July 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
 https://www.nytimes.com/2026/07/03/crosswords/connections-companion-1119.html
-
-**Today’s Wordle Hints for July 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
-https://www.nytimes.com/2026/07/03/crosswords/wordle-review-1841.html
 
