@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 03, 2026**\
+`Barbara Lin returns to open our solving weekend.`\
+https://www.nytimes.com/2026/07/02/crosswords/daily-puzzle-2026-07-03.html
+
+**Wesley Morris Makes the People’s Potato Salad**\
+`Wesley Morris, host of “Cannonball,” heads to the NYT Cooking kitchen to make his version of the great American dish: potato salad.`\
+https://www.nytimes.com/video/podcasts/100000011008914/wesley-morris-makes-the-peoples-potato-salad.html
+
 **On Eve of Taylor Swift’s Wedding, Rehearsal Dinner Kicks Off Weekend of Events**\
 `The event for about 100 guests at Madison Square Garden kicked off a weekend of celebration for the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
 https://www.nytimes.com/2026/07/02/style/swift-kelce-wedding-msg-rehearsal-dinner.html
@@ -178,11 +186,7 @@ https://www.nytimes.com/2026/07/02/world/europe/teenagers-rape-england-sentencin
 `The Aspen Acres fire, near Pueblo, Colo., has burned more than 50,000 acres and destroyed hundreds of structures.`\
 https://www.nytimes.com/2026/07/02/us/aspen-acres-wildfire-pueblo-colorado-evacuations.html
 
-**In Potato Salad We Trust**\
-`Wesley takes us into the streets of New York, then to food historian Jessica B. Harris and finally to The Times’ Cooking Studio to make his family’s recipe and to find answers to this nagging question: Is potato salad the national dish?`\
-https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.html
-
-**Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
+**Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 

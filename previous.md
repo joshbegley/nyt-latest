@@ -1,5 +1,5 @@
 **On Eve of Taylor Swift’s Wedding, Rehearsal Dinner Kicks Off Weekend of Events**\
-`A rehearsal dinner at Madison Square Garden kicked off a weekend of events hosted by the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
+`The event for about 100 guests at Madison Square Garden kicked off a weekend of celebration for the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
 https://www.nytimes.com/2026/07/02/style/swift-kelce-wedding-msg-rehearsal-dinner.html
 
 **Is Black Potato Salad a Standard Recipe?**\
