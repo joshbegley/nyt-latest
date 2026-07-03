@@ -1,3 +1,11 @@
+**A U.S. Independence Celebration Damaged a Museum in Belgium**\
+`There were black marks left on a structure in a central Brussels park after a fireworks display, the American ambassador to Belgium confirmed.`\
+https://www.nytimes.com/2026/07/03/world/europe/belgium-building-damaged-america-250-fireworks.html
+
+**A Return to the Familiar at Lincoln Center’s New Dance Festival**\
+`While it was good to see again Rachid Ouramdane’s moving duet from a decade ago, Akram Khan’s new piece was unconvincing.`\
+https://www.nytimes.com/2026/07/03/arts/dance/lincoln-center-contemporary-dance-festival.html
+
 **Laurie Santos: Americans and the Pursuit of Happiness**\
 `On “The Interview,” Laurie Santos, a cognitive scientist and a professor at Yale, says that Americans think about happiness in unique ways, and they have for a long time.`\
 https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/03/well/fourth-of-july-er-safety-tips.html
 **Microsoft Disclosure Provides Rare Glimpse of Tax Haven Tactics**\
 `Other U.S. companies will soon need to provide similar reports as a new European directive takes effect.`\
 https://www.nytimes.com/2026/07/03/technology/microsoft-europe-disclosure-tax-havens.html
-
-**4 Funny Specials for a Long Hot Holiday Weekend**\
-`Nikki Glaser, Ryan Hamilton, Ali Siddiq and Ophira Eisenberg take very different approaches to their new hours, but all deliver the goods.`\
-https://www.nytimes.com/2026/07/03/arts/television/comedy-specials-4th-of-july-holiday-weekend.html
-
-**Corrections: July 3, 2026**\
-`Corrections that appeared in print on Friday, July 3, 2026.`\
-https://www.nytimes.com/2026/07/03/pageoneplus/corrections-july-3-2026.html
 
