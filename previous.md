@@ -178,15 +178,11 @@ https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
 `Why am I dreading the Swift-Kelce wedding?`\
 https://www.nytimes.com/2026/07/02/opinion/taylor-swift-wedding-msg.html
 
-**The Best Movies and TV Shows Coming to Netflix in July**\
-`A science-fiction thriller with political overtones and a new version of “Little House on the Prairie” are among this month’s most promising titles.`\
-https://www.nytimes.com/2026/07/02/arts/television/netflix-new-july.html
-
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
 https://www.nytimes.com/live/2026/07/02/weather/heat-wave
 
-**World Cup Updates: In Little Senegal, a Vibrant Party Turns to Shock**\
+**World Cup Updates: Portugal-Croatia Helps the World Cup Say Farewell to Toronto**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 
