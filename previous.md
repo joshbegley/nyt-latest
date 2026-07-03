@@ -1,3 +1,11 @@
+**Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
+`The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-knicks-performance.html
+
+**Air Force Detains Officer Who Called for Trump’s Impeachment at Capitol**\
+`Maj. Jason Watson, who was in uniform, was arrested during a protest that followed a news conference on Wednesday.`\
+https://www.nytimes.com/2026/07/03/us/politics/air-force-officer-arrested-trump-impeachment.html
+
 **Peanut Butter Date S’mores**\
 `Looking for a twist on the classic s’more? The New York Times Cooking contributor Ali Slagle is here with a peanut-butter-and-date version, and it’s perfection.`\
 https://www.nytimes.com/video/dining/100000011009968/peanut-butter-date-smores.html
@@ -86,13 +94,13 @@ https://www.nytimes.com/2026/07/03/opinion/education-schools.html
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
 
-**Mary Beard Looks at Trump and Sees Roman Emperors**\
-`Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
-https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
-
 **Five Science Fiction Movies to Stream Now**\
 `This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
 https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
+
+**Mary Beard Looks at Trump and Sees Roman Emperors**\
+`Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
+https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
 
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/03/briefing/happy-250th-america.html
 **What’s It Like to Face Messi on the Field?**\
 `The Argentina captain is the greatest player the game has ever seen. Is there any way to stop him?`\
 https://www.nytimes.com/2026/07/03/podcasts/lionel-messi-world-cup.html
-
-**250 Years Later, Why We’re Still Fighting About Our Founding**\
-`With so many prisms through which to see the past, is there a story about the founding of America that can still be unifying?`\
-https://www.nytimes.com/2026/07/03/podcasts/the-daily/america-250-founding.html
-
-**NYT Connections Answers for July 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 4, 2026.`\
-https://www.nytimes.com/2026/07/03/crosswords/connections-companion-1119.html
 
