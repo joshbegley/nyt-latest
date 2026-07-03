@@ -1,3 +1,7 @@
+**Many Children Don’t Have ‘Trump Accounts.’ Some Are Missing Out on $1,000.**\
+`More than six million have been signed up for the investment accounts, which open for contributions July 4, but there are barriers to uptake.`\
+https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.html
+
 **Is Black Potato Salad a Standard Recipe?**\
 `On “Cannonball,” Wesley Morris talked to Jessica B. Harris, a two-time James Beard Award winner and food historian, about potato salad and how tastes developed in the United States.`\
 https://www.nytimes.com/video/podcasts/100000011000224/is-black-potato-salad-a-standard-recipe.html
