@@ -1,3 +1,7 @@
+**Making a Cake for America’s 250th Birthday**\
+`In her quest to mark the nation’s 250th with a unifying dessert, Grace Pak had to navigate the pitfalls of a polarized Washington.`\
+https://www.nytimes.com/2026/07/03/dining/america-250-birthday-cake-grace-pak.html
+
 **Trump’s National Guard Deployment in Washington Expands Ahead of Holiday**\
 `Nearly 5,000 Guard troops are in the capital, double the number initially deployed. Many have passed the time washing off graffiti and picking up trash.`\
 https://www.nytimes.com/2026/07/03/us/trump-national-guard-washington.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000010990815/great-american-state-f
 **Pick Your Favorite Home on Croatia’s Coast**\
 `A four-bedroom villa with a tennis court, a three-story stone house with a pool, and an urban duplex apartment. Vote for your favorite.`\
 https://www.nytimes.com/2026/07/03/realestate/pick-your-favorite-home-on-croatias-coast.html
-
-**How Pierre Coffin Breathed New Life Into the Minions Franchise With ‘Minions & Monsters’**\
-`The director Pierre Coffin, who also voices the yellow chaos agents, wasn’t interested in returning. Then a producer suggested an idea he couldn’t resist.`\
-https://www.nytimes.com/2026/07/03/movies/minions-and-monsters-director-pierre-coffin.html
 
