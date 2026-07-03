@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/07/03/your-money/banks-overdraft-fees.html
 `To participate, submit your response here by July 10 at 9 a.m. Eastern. This week’s winners will be announced by July 22.`\
 https://www.nytimes.com/2026/07/03/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
 
-**At the L.A. Warehouse Fire, First It Was the Smoke. Now It’s the Smell.**\
-`Rotting food — millions of pounds of it — remains in an L.A. cold-storage facility damaged in a fire. Residents say the cleanup hasn’t been fast enough.`\
-https://www.nytimes.com/2026/07/03/us/los-angeles-warehouse-fire-cleanup.html
-
