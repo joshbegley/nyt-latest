@@ -1,3 +1,7 @@
+**What Time Is Taylor Swift Getting Married? See the Wedding Schedule at MSG.**\
+`An internal memo for the New York Police Department laid out a schedule of events for a 1,000-person celebration on Friday.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.html
+
 **Who Is Invited to Taylor Swift’s Wedding? What We Know About the Guest List**\
 `The list includes Emma Stone, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
