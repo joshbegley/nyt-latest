@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, July 4, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/03/upshot/flashback.html
+
+**Good News for Bill Cunningham Fans**\
+`The New York Historical announced a new show, “We All Dress for Bill” with selections from parties, fashion shows and the street, coming in 2027.`\
+https://www.nytimes.com/2026/07/03/style/cunningham-bill-exhibit-historical.html
+
 **How to Get School Policy Back on Track**\
 `Readers respond to “‘No Child Left Behind’ Nostalgia Is Delusional,” an Opinion guest essay by Ross Wiener.`\
 https://www.nytimes.com/2026/07/03/opinion/education-schools.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/03/opinion/nato-ankara-russia-ukraine.html
 **Burger vs. Bratwurst: A Climate Guide to Your July 4 Cookout**\
 `Beef is far worse for greenhouse gas emissions compared with other meat.`\
 https://www.nytimes.com/2026/07/03/upshot/hamburger-beef-july4-climate-guide.html
-
-**The America That’s Still Possible**\
-`On America’s 250th anniversary, Bryan Stevenson, a civil rights lawyer and the founder of the Equal Justice Initiative, looks toward the work that is ahead for the country.`\
-https://www.nytimes.com/video/opinion/100000011001763/the-america-thats-still-possible.html
-
-**A Big Gamble for the Left: Can Socialism Appeal in a Swing State?**\
-`Francesca Hong, a state legislator running for governor of Wisconsin, wants to prove that a democratic socialist can win in a battleground. Some say she would hand the race to Republicans.`\
-https://www.nytimes.com/2026/07/03/us/politics/democratic-socialism-wisconsin-francesca-hong.html
 
