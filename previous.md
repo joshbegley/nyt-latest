@@ -1,3 +1,7 @@
+**¿Cuánto cuesta alquilar el Madison Square Garden?**\
+`La boda de Taylor Swift y Travis Kelce obligaría a cerrar calles, desplegar cientos de agentes y asumir costos públicos y privados de gran escala en Nueva York.`\
+https://www.nytimes.com/es/2026/07/03/espanol/cuanto-cuesta-alquilar-madison-square-garden.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011010402/03vid-swift-emma.html
@@ -157,12 +161,4 @@ https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
 **Five Science Fiction Movies to Stream Now**\
 `This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
 https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
-
-**What Does It Mean to Love America?**\
-`America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
-https://www.nytimes.com/video/opinion/100000011001815/what-does-it-mean-to-love-america.html
-
-**How Celebrity Wedding Planners Would Decorate MSG for Taylor Swift**\
-`Dua Lipa’s planner envisioned olive trees and thousands of string lights. LeBron James’s planner took inspiration from the Eras Tour.`\
-https://www.nytimes.com/2026/07/03/style/taylor-swift-travis-kelce-celebrity-wedding-planners.html
 

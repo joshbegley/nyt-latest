@@ -1,3 +1,7 @@
+**¿Cuánto cuesta alquilar el Madison Square Garden?**\
+`La boda de Taylor Swift y Travis Kelce obligaría a cerrar calles, desplegar cientos de agentes y asumir costos públicos y privados de gran escala en Nueva York.`\
+https://www.nytimes.com/es/2026/07/03/espanol/cuanto-cuesta-alquilar-madison-square-garden.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011010402/03vid-swift-emma.html
