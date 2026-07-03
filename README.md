@@ -1,3 +1,7 @@
+**What Time Is Taylor Swift Getting Married? See the Wedding Schedule at MSG.**\
+`An internal memo for the New York Police Department laid out a schedule of events for a 1,000-person celebration on Friday.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.html
+
 **How the Heat Is Upending Plans for America’s 250th Birthday**\
 `A parade in Philadelphia, one of the largest in its history, was canceled on Friday, and the Great American State Fair on the National Mall in Washington closed for several hours.`\
 https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/07/03/world/asia/pakistan-bus-crash.html
 **5 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/07/03/movies/new-movies-this-week-critics.html
-
-**Cape Verde Faces Argentina’s World Cup Juggernaut. Its Fans Aren’t Stressed.**\
-`Cape Verde, a tiny African archipelago, was thrilled to qualify for the World Cup, let alone take on the defending champions. But its fans feel confident.`\
-https://www.nytimes.com/2026/07/03/world/africa/cape-verde-argentina-world-cup-fans.html
 
