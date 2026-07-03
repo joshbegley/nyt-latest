@@ -1,3 +1,7 @@
+**David S. Doty, Judge Who Helped Shape the Modern N.F.L., Dies at 96**\
+`He presided over the 1993 agreement that led to free agency and the salary cap, and for years oversaw the league’s disputes with its players.`\
+https://www.nytimes.com/2026/07/03/sports/football/david-s-doty-dead.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/07/03/science/nasa-swift-telescope-rescue-mission.h
 **Fable Ban Reversed + Dr. Dana Suskind on Parenting With A.I. + Prediction Market Drama**\
 `What we learned from the government’s biggest attempt yet to control who can gain access to the most powerful new A.I. models.`\
 https://www.nytimes.com/2026/07/03/podcasts/fable-ban-reversed-dr-dana-suskind-on-parenting-with-ai-prediction-market-drama.html
-
-**Without Climate Change, U.S. Heat Wave Called ‘Virtually Impossible’**\
-`Scientists have said the conditions are the result of a climate that is “fundamentally different” from the time before fossil fuel use started rapidly warming the world.`\
-https://www.nytimes.com/2026/07/03/climate/heat-wave-us-canada-climate-change.html
-
-**It’s Day 1 of the Supreme Leader’s Funeral, and Allies Gather in Iran**\
-`Foreign dignitaries paid their respects to Ayatollah Ali Khamenei on Friday as days of ceremonies got underway.`\
-https://www.nytimes.com/2026/07/03/world/middleeast/iran-funeral-supreme-leader.html
 

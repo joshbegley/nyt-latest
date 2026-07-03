@@ -1,3 +1,7 @@
+**David S. Doty, Judge Who Helped Shape the Modern N.F.L., Dies at 96**\
+`He presided over the 1993 agreement that led to free agency and the salary cap, and for years oversaw the league’s disputes with its players.`\
+https://www.nytimes.com/2026/07/03/sports/football/david-s-doty-dead.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
