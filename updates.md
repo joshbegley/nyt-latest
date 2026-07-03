@@ -1,3 +1,7 @@
+**Tibetan Activist Sets Self on Fire Outside U.N. in Protest Against China**\
+`Lobga Rangzen, a 52-year-old resident of Queens, died after the self-immolation. He said Beijing’s policies were “destroying the Tibetan people.”`\
+https://www.nytimes.com/2026/07/03/world/asia/tibet-self-immolation-united-nations-china.html
+
 **¿Es necesario un entrenamiento especial para la menopausia?**\
 `La menopausia se ha convertido en un tema habitual en la cultura popular, y el entrenamiento de fuerza se ha erigido en una de las recomendaciones más recurrentes para un envejecimiento saludable.`\
 https://www.nytimes.com/es/2026/07/03/espanol/rutina-ejercicios-menopausia.html
