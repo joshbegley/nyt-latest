@@ -1,3 +1,7 @@
+**Fans Gather Outside the Wedding of the Year at Madison Square Garden**\
+`As temperatures climbed to nearly 100 degrees and police cordoned off streets around the arena, devoted Swift fans from across the country gathered in anticipation of Taylor Swift and Travis Kelce’s celebration.`\
+https://www.nytimes.com/2026/07/03/style/fans-gather-outside-the-wedding-of-the-year-at-madison-square-garden.html
+
 **Lionel Messi, eterno y fugaz**\
 `¿Cómo están disfrutando sus legiones de fans la que podría ser la última Copa Mundial de su ídolo? Me sumergí en una multitud que ovacionaba su nombre para averiguarlo.`\
 https://www.nytimes.com/es/2026/07/03/espanol/deportes/messi-mundial-argentina.html

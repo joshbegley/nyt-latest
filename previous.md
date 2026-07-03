@@ -1,3 +1,7 @@
+**Fans Gather Outside the Wedding of the Year at Madison Square Garden**\
+`As temperatures climbed to nearly 100 degrees and police cordoned off streets around the arena, devoted Swift fans from across the country gathered in anticipation of Taylor Swift and Travis Kelce’s celebration.`\
+https://www.nytimes.com/2026/07/03/style/fans-gather-outside-the-wedding-of-the-year-at-madison-square-garden.html
+
 **Lionel Messi, eterno y fugaz**\
 `¿Cómo están disfrutando sus legiones de fans la que podría ser la última Copa Mundial de su ídolo? Me sumergí en una multitud que ovacionaba su nombre para averiguarlo.`\
 https://www.nytimes.com/es/2026/07/03/espanol/deportes/messi-mundial-argentina.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/03/crosswords/strands-sidekick-853.html
 **‘There Is a Culture of Silence’**\
 `Journalist Alan Shipnuck investigates why Phil Mickelson has basically vanished from the LIV Golf Tour.`\
 https://www.nytimes.com/2026/07/03/podcasts/phil-mickelson-liv-golf.html
-
-**The New York Times News Quiz, July 3, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/07/03/briefing/america-250-supreme-court-tom-kean-jr-news-quiz.html
 
