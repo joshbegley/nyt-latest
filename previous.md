@@ -1,3 +1,15 @@
+**MAGA guarda silencio ante los millardos de dólares en ganancias de Trump**\
+`Para muchos de sus seguidores, dichas ganancias son muestra de la perspicacia empresarial que siempre le han admirado.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/trump-ganancias-dolares-aprobacion.html
+
+**Trump to Speak at Mount Rushmore at 250th Anniversary Event**\
+`It’s not the first time the president has made a big speech at the monument.`\
+https://www.nytimes.com/2026/07/03/us/trump-mount-rushmore-america-250.html
+
+**Trump Intercedes to Push Robert Smullen Out of N.Y. House Race**\
+`Assemblyman Robert Smullen, who lost a Republican primary, will not run on the Conservative Party line in his bid to replace Representative Elise Stefanik.`\
+https://www.nytimes.com/2026/07/03/nyregion/trump-constantino-smullen-stefanik.html
+
 **Flashback: Your Weekly History Quiz, July 4, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/03/upshot/flashback.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/03/world/europe/russia-gas-shortages.html
 **The Perishable, Never-Ending Genius of Lionel Messi**\
 `How are his legions of fans savoring what could be the last World Cup of their idol? I dove into a sea of screaming Messis to find out.`\
 https://www.nytimes.com/2026/07/03/magazine/messi-argentina-world-cup.html
-
-**Why One Global Shipping Choke Point Isn’t a Blueprint for Another**\
-`The Strait of Malacca may be a model for how Oman and Iran could collect fees in the Strait of Hormuz, but the differences between the waterways are vast.`\
-https://www.nytimes.com/2026/07/03/business/strait-malacca-hormuz.html
-
-**The West Has Let Russia Off the Hook. Time to Tighten the Screws.**\
-`NATO’s upcoming meeting in Ankara should close the sanctions loopholes that fund Russia’s war in Ukraine while oil prices are falling.`\
-https://www.nytimes.com/2026/07/03/opinion/nato-ankara-russia-ukraine.html
-
-**Burger vs. Bratwurst: A Climate Guide to Your July 4 Cookout**\
-`Beef is far worse for greenhouse gas emissions compared with other meat.`\
-https://www.nytimes.com/2026/07/03/upshot/hamburger-beef-july4-climate-guide.html
 

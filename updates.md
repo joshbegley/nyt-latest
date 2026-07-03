@@ -1,3 +1,15 @@
+**MAGA guarda silencio ante los millardos de dólares en ganancias de Trump**\
+`Para muchos de sus seguidores, dichas ganancias son muestra de la perspicacia empresarial que siempre le han admirado.`\
+https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/trump-ganancias-dolares-aprobacion.html
+
+**Trump to Speak at Mount Rushmore at 250th Anniversary Event**\
+`It’s not the first time the president has made a big speech at the monument.`\
+https://www.nytimes.com/2026/07/03/us/trump-mount-rushmore-america-250.html
+
+**Trump Intercedes to Push Robert Smullen Out of N.Y. House Race**\
+`Assemblyman Robert Smullen, who lost a Republican primary, will not run on the Conservative Party line in his bid to replace Representative Elise Stefanik.`\
+https://www.nytimes.com/2026/07/03/nyregion/trump-constantino-smullen-stefanik.html
+
 **Flashback: Your Weekly History Quiz, July 4, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/03/upshot/flashback.html
