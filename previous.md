@@ -1,3 +1,11 @@
+**Who Is Attending Taylor Swift’s Wedding? What We Know About the Guest List**\
+`The list includes Emma Stone, the Haim sisters, and Karlie Kloss and Joshua Kushner, among many other celebrities, athletes and musicians.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-guest-list.html
+
+**Bus Plunges 70 Feet Into a Ravine in Pakistan, Killing 40**\
+`The overloaded bus was carrying 48 passengers on a notoriously hazardous highway linking two provincial capitals.`\
+https://www.nytimes.com/2026/07/03/world/asia/pakistan-bus-crash.html
+
 **5 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/07/03/movies/new-movies-this-week-critics.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/03/podcasts/lepore-250.html
 **We Didn’t Build the Atomic Bomb This Way**\
 `There’s no reason the United States should refrain from building its own frontier A.I. model.`\
 https://www.nytimes.com/2026/07/03/opinion/ai-national-lab-us.html
-
-**A Poet for Everyone, Even Those Who Don’t Read Poetry**\
-`The film “Mary Oliver: Saved by the Beauty of the World” works best when it illuminates her work, whose fans include Stephen Colbert and Oprah Winfrey.`\
-https://www.nytimes.com/2026/07/03/movies/mary-oliver-saved-by-the-beauty-of-the-world-review.html
-
-**For the F1 Driver Oliver Bearman, It’s a Journey**\
-`The young Haas driver has had a fast rise in Formula 1. He has dreams of someday driving for Ferrari, but first he wants to make Haas a contender.`\
-https://www.nytimes.com/2026/07/03/sports/f1-oliver-bearman-journey-haas-ferarri.html
 
