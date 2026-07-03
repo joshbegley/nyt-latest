@@ -1,3 +1,7 @@
+**’Twas the Night Before Taylor and Travis’s Big Wedding Celebration …**\
+`A rehearsal dinner at Madison Square Garden kicked off a weekend of events hosted by the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
+https://www.nytimes.com/2026/07/02/style/swift-kelce-wedding-msg-rehearsal-dinner.html
+
 **Is Black Potato Salad a Standard Recipe?**\
 `On “Cannonball,” Wesley Morris talked to Jessica B. Harris, a two-time James Beard Award winner and food historian, about potato salad and how tastes developed in the United States.`\
 https://www.nytimes.com/video/podcasts/100000011000224/is-black-potato-salad-a-standard-recipe.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/02/us/aspen-acres-wildfire-pueblo-colorado-evacu
 **In Potato Salad We Trust**\
 `Wesley takes us into the streets of New York, then to food historian Jessica B. Harris and finally to The Times’ Cooking Studio to make his family’s recipe and to find answers to this nagging question: Is potato salad the national dish?`\
 https://www.nytimes.com/video/podcasts/100000011000133/in-potato-salad-we-trust.html
-
-**Three Ways Trump Is Strangling Economic Growth**\
-`Despite the jobs numbers, the economy is deteriorating under Trump’s policies.`\
-https://www.nytimes.com/2026/07/02/opinion/trump-us-economy-capital-jobs.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\

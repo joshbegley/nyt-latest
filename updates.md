@@ -1,3 +1,7 @@
+**’Twas the Night Before Taylor and Travis’s Big Wedding Celebration …**\
+`A rehearsal dinner at Madison Square Garden kicked off a weekend of events hosted by the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
+https://www.nytimes.com/2026/07/02/style/swift-kelce-wedding-msg-rehearsal-dinner.html
+
 **Many Children Don’t Have ‘Trump Accounts.’ Some Are Missing Out on $1,000.**\
 `More than six million have been signed up for the investment accounts, which open for contributions July 4, but there are barriers to uptake.`\
 https://www.nytimes.com/2026/07/02/upshot/trump-investment-accounts-children.html
