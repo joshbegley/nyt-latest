@@ -1,3 +1,7 @@
+**Tibetan Activist Sets Self on Fire Outside U.N. in Protest Against China**\
+`Lobga Rangzen, a 52-year-old resident of Queens, died after the self-immolation. He said Beijing’s policies were “destroying the Tibetan people.”`\
+https://www.nytimes.com/2026/07/03/world/asia/tibet-self-immolation-united-nations-china.html
+
 **¿Es necesario un entrenamiento especial para la menopausia?**\
 `La menopausia se ha convertido en un tema habitual en la cultura popular, y el entrenamiento de fuerza se ha erigido en una de las recomendaciones más recurrentes para un envejecimiento saludable.`\
 https://www.nytimes.com/es/2026/07/03/espanol/rutina-ejercicios-menopausia.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/podcasts/100000010992968/lepore-amendment.html
 **The Real Stakes of the American Story**\
 `Bryan Stevenson, the founder and executive director of the Equal Justice Initiative, recounts a pivotal moment in his visit to Nigeria — and what it revealed about America’s relationship with its history — on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-american-story.html
-
-**Happy Birthday, America**\
-`On the country’s 250th anniversary, what is actually being celebrated?`\
-https://www.nytimes.com/2026/07/02/world/america-250-anniversary-kyiv-vatican-taylor-swift.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
