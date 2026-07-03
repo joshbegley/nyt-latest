@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/07/03/arts/dance/lincoln-center-contemporary-dance-
 `On “The Interview,” Laurie Santos, a cognitive scientist and a professor at Yale, says that Americans think about happiness in unique ways, and they have for a long time.`\
 https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
 
-**Live Updates: Taylor Swift and Travis Kelce’s Starry Guests Begin to Arrive at M.S.G.**\
+**Live Updates: Taylor Swift and Travis Kelce’s Star-Studded Wedding Festivities Underway at M.S.G.**\
 `The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 
