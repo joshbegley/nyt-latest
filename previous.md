@@ -1,7 +1,3 @@
-**As Ukraine War Escalates, Witkoff and Kushner Are Focused on Iran**\
-`Steve Witkoff and Jared Kushner are pivotal players at a moment when the posts of U.S. ambassador to Moscow and Kyiv are both vacant.`\
-https://www.nytimes.com/2026/07/02/us/politics/ukraine-russia-witkoff-kushner-trump.html
-
 **MAGA Base Stays Quiet After Trump Reports Billions in Personal Gains**\
 `A new mandatory disclosure revealed that the president has earned $2.2 billion during the first year back in the White House.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-earnings-maga-reaction.html
@@ -30,13 +26,13 @@ https://www.nytimes.com/2026/07/02/us/louisiana-attorney-general-indicted-new-or
 `Inspectors were not instructed to check a bearing that they had been told was faulty, but the shipping company says Boeing, the plane’s manufacturer, is to blame.`\
 https://www.nytimes.com/2026/07/02/us/politics/ups-louisville-crash.html
 
-**Ocho días bajo los escombros: el rescate que emocionó a Venezuela**\
-`Hernán Gil, de 44 años, fue rescatado con vida de los escombros de un edificio colapsado, en un momento de alivio entre la devastación.`\
-https://www.nytimes.com/es/2026/07/02/espanol/america-latina/terremoto-venezuela-rescate-sobreviviente.html
-
 **Texas Governor Appoints Former Hard Right Critic to Key Post**\
 `Gov. Greg Abbott appointed a firebrand former opponent, Don Huffines, to be state comptroller, underscoring a G.O.P. push for unity ahead of the midterms.`\
 https://www.nytimes.com/2026/07/02/us/don-huffines-texas-comptroller.html
+
+**Ocho días bajo los escombros: el rescate que emocionó a Venezuela**\
+`Hernán Gil, de 44 años, fue rescatado con vida de los escombros de un edificio colapsado, en un momento de alivio entre la devastación.`\
+https://www.nytimes.com/es/2026/07/02/espanol/america-latina/terremoto-venezuela-rescate-sobreviviente.html
 
 **A Sweltering Fourth of July**\
 `Also, Taylor’s wedding. Here’s the latest at the end of Thursday.`\
