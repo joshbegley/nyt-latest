@@ -1,3 +1,7 @@
+**Fans Brave N.Y.C. Heat for Taylor Swift and Travis Kelce’s Wedding**\
+`Swifties hung around Madison Square Garden in scorching temperatures to try to catch a glimpse of Taylor Swift and Travis Kelce’s wedding festivities. About 1,000 guests are expected to attend their wedding on Friday.`\
+https://www.nytimes.com/video/nyregion/100000011009843/taylor-swift-wedding-travis-kelce.html
+
 **Dear Americans, How Well Do You Know Canada?**\
 `The Canada-U.S. relationship has had an interesting year and a half: a quiz to test how much Americans know about their northern neighbor.`\
 https://www.nytimes.com/interactive/2026/07/03/world/canada/america-canada-quiz-fourth-july.html
@@ -153,12 +157,4 @@ https://www.nytimes.com/2026/07/03/style/cunningham-bill-exhibit-historical.html
 **How to Get School Policy Back on Track**\
 `Readers respond to “‘No Child Left Behind’ Nostalgia Is Delusional,” an Opinion guest essay by Ross Wiener.`\
 https://www.nytimes.com/2026/07/03/opinion/education-schools.html
-
-**Via Carota’s House Dressing Can Be Your House Dressing**\
-`And more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
-
-**Mary Beard Looks at Trump and Sees Roman Emperors**\
-`Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
-https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
 
