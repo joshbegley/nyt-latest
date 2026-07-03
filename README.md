@@ -1,3 +1,7 @@
+**Trump’s National Guard Deployment in Washington Expands Ahead of Holiday**\
+`Nearly 5,000 Guard troops are in the capital, double the number initially deployed. Many have passed the time washing off graffiti and picking up trash.`\
+https://www.nytimes.com/2026/07/03/us/trump-national-guard-washington.html
+
 **No Engine Problems in Skydiving Plane Crash That Killed 12, N.T.S.B. Says**\
 `A preliminary report said that the fuel was clean and that the plane, which had already made two flights that day, met weight and balance requirements.`\
 https://www.nytimes.com/2026/07/03/us/skydiving-plane-crash-butler-missouri-ntsb.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/03/realestate/pick-your-favorite-home-on-croatia
 **How Pierre Coffin Breathed New Life Into the Minions Franchise With ‘Minions & Monsters’**\
 `The director Pierre Coffin, who also voices the yellow chaos agents, wasn’t interested in returning. Then a producer suggested an idea he couldn’t resist.`\
 https://www.nytimes.com/2026/07/03/movies/minions-and-monsters-director-pierre-coffin.html
-
-**Jill Lepore on What to Read This Fourth of July**\
-`A Pulitzer Prize-winning historian offers a reading list for America’s 250th birthday. Then we discuss some of the summer’s most anticipated beach reads.`\
-https://www.nytimes.com/2026/07/03/podcasts/lepore-250.html
 
