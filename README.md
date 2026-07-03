@@ -1,3 +1,7 @@
+**Trump’s Huge Windfall Has Few Known Global Precedents**\
+`President Trump’s earnings in office are at a level once unimaginable for any leader of a liberal democracy, particularly a sitting American president.`\
+https://www.nytimes.com/2026/07/02/world/europe/trump-world-leaders-corruption-wealth.html
+
 **As Ukraine War Escalates, Witkoff and Kushner Are Focused on Iran**\
 `Steve Witkoff and Jared Kushner are pivotal players at a moment when the posts of U.S. ambassador to Moscow and Kyiv are both vacant.`\
 https://www.nytimes.com/2026/07/02/us/politics/ukraine-russia-witkoff-kushner-trump.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/02/us/reflecting-pool-indictment-david-hearn.htm
 **U.S. Officials Believed Israel Was Plotting to Kill Iranian Negotiators**\
 `Any Israeli attempt to kill Abbas Araghchi, the foreign minister, or Mohammad Ghalibaf, the Parliament speaker, would have derailed peace talks, American officials feared.`\
 https://www.nytimes.com/2026/07/02/us/politics/israel-iran-negotiators-plot.html
-
-**Kyiv Residents Describe Devastation From Russian Attack**\
-`On Thursday, residents picked through the rubble after Russia bombarded Ukraine’s capital with a deadly wave of attacks. Local officials said that at least 27 people were killed and dozens more were injured as of Thursday evening.`\
-https://www.nytimes.com/video/world/europe/100000011007183/ukraine-kyiv-residents-russia-attack.html
 
 **Live Updates: New York Hits 100 Degrees as Heat Wave Stifles Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
