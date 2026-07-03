@@ -10,6 +10,10 @@ https://www.nytimes.com/2026/07/03/style/prince-william-travis-kelce-new-heights
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
 
+**Boda de Taylor Swift y Travis Kelce en vivo: empiezan los festejos**\
+`La estrella del pop, el futbolista y unos 1000 amigos cercanos y famosos se preparan para celebrar la unión más esperada de la cultura pop.`\
+https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
+
 **EE. UU. sospechó que Israel planeaba asesinar a negociadores de Irán**\
 `Esos temores muestran que los objetivos bélicos de Estados Unidos e Israel, que eran muy similares al principio de la guerra, se distanciaron rápidamente de forma radical.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/07/03/learning/summer-reading-contest-week-5-what-g
 **At the L.A. Warehouse Fire, First It Was the Smoke. Now It’s the Smell.**\
 `Rotting food — millions of pounds of it — remains in an L.A. cold-storage facility damaged in a fire. Residents say the cleanup hasn’t been fast enough.`\
 https://www.nytimes.com/2026/07/03/us/los-angeles-warehouse-fire-cleanup.html
-
-**Enraptured by the World Cup, Countries Rewrite Rules for Fans**\
-`From pubs open until dawn to abruptly declared national holidays, it seems regulations everywhere are bending to accommodate the tournament.`\
-https://www.nytimes.com/2026/07/03/world/world-cup-countries-fans-holidays.html
 
