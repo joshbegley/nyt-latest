@@ -1,3 +1,27 @@
+**How to Get School Policy Back on Track**\
+`Readers respond to “‘No Child Left Behind’ Nostalgia Is Delusional,” an Opinion guest essay by Ross Wiener.`\
+https://www.nytimes.com/2026/07/03/opinion/education-schools.html
+
+**Via Carota’s House Dressing Can Be Your House Dressing**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/07/03/dining/via-carotas-house-dressing-can-be-your-house-dressing.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s recommendations include a dreamscape space opera, a dark time-travel diner comedy and an existential alien thriller.`\
+https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-now.html
+
+**Mary Beard Looks at Trump and Sees Roman Emperors**\
+`Arches, gladiatorial fights, portraits on money, flattery. What century is this?`\
+https://www.nytimes.com/2026/07/03/opinion/mary-beard-trump-ancient-rome.html
+
+**What Does It Mean to Love America?**\
+`America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
+https://www.nytimes.com/video/opinion/100000011001815/what-does-it-mean-to-love-america.html
+
+**How Celebrity Wedding Planners Would Decorate MSG for Taylor Swift**\
+`Dua Lipa’s planner envisioned olive trees and thousands of string lights. LeBron James’s planner took inspiration from the Eras Tour.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-travis-kelce-celebrity-wedding-planners.html
+
 **Ayatollah Ali Khamenei Lies In State**\
 `Foreign officials, militia members and religious leaders on Friday visited the site where the slain Ayatollah Ali Khamenei is lying in state, beginning nearly a week of events to mourn and bury Iran’s former supreme leader.`\
 https://www.nytimes.com/video/world/asia/100000011009341/iran-funeral-ali-khamenei.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/opinion/100000011001763/the-america-thats-still-po
 **A Big Gamble for the Left: Can Socialism Appeal in a Swing State?**\
 `Francesca Hong, a state legislator running for governor of Wisconsin, wants to prove that a democratic socialist can win in a battleground. Some say she would hand the race to Republicans.`\
 https://www.nytimes.com/2026/07/03/us/politics/democratic-socialism-wisconsin-francesca-hong.html
-
-**A Hot and Hectic Weekend in New York City**\
-`Fireworks, tall ships, and let’s not forget Taylor Swift’s wedding, all in sizzling hot temperatures.`\
-https://www.nytimes.com/2026/07/03/nyregion/a-hot-and-hectic-weekend-in-new-york-city.html
-
-**Trump Ruined the Fourth of July for Me**\
-`Washington feels as if it is under occupation.`\
-https://www.nytimes.com/2026/07/03/opinion/fourth-of-july-trump-washington-dc.html
-
-**The Hottest Stock Markets Lead to the Biggest Losses**\
-`Investor enthusiasm culminated in some of the worst cases of wealth destruction in the last 100 years, a long-running study shows.`\
-https://www.nytimes.com/2026/07/03/business/stocks-investing-markets.html
-
-**F1: George Russell Works to Get His Groove Back**\
-`He started the season as one of the favorites to win the drivers’ title and even won the first race of the year. Then things got worse, until last Sunday.`\
-https://www.nytimes.com/2026/07/03/sports/george-russell-f1-mercedes-struggles.html
-
-**You Should Know How Your House Works. Here’s a Guide.**\
-`Knowing how to shut off your power and your pipes (and turn them back on) is a matter of safety and practicality. Let’s learn how to do it.`\
-https://www.nytimes.com/2026/07/03/realestate/you-should-know-how-your-house-works-heres-a-guide.html
-
-**The Electric Pain in Her Tooth Baffled Every Dentist. What Was Wrong?**\
-`X-ray after X-ray showed nothing unusual. But her doctors could see how agonizing her condition was.`\
-https://www.nytimes.com/2026/07/03/well/tooth-pain-trigeminal-neuralgia.html
 
