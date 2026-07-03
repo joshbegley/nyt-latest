@@ -1,3 +1,7 @@
+**Celebrating America’s 250th Anniversary Across the Country**\
+`Even as an oppressive heat wave stifled much of the United States, the nationwide party continued.`\
+https://www.nytimes.com/2026/07/03/us/july-4-250-photos-videos.html
+
 **America Unites for a Day of Grand 250th Celebrations**\
 `From large events in the biggest cities to small-town gatherings to backyard barbecues, a divided America is finding many ways to salute itself.`\
 https://www.nytimes.com/2026/07/03/us/america-250-fourth-july.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/video/world/asia/100000011009341/iran-funeral-ali-khamen
 **Woman From Ukraine Was Behind Monaco Bomb Attack, Officials Say**\
 `Anastasiia Berezovska, a 39-year-old Ukrainian, tried to kill three people with a parcel bomb on Monday, the authorities said. She remained on the run.`\
 https://www.nytimes.com/2026/07/03/world/europe/monaco-bomb-suspect-ukraine-anastasiia-berezovska.html
-
-**To Stay Cool, Wear Flowing Robes and Throw Water Around? Yes, Says Science.**\
-`Throughout history, people have come up with surprising ways to beat the heat that actually work.`\
-https://www.nytimes.com/2026/07/03/climate/traditions-stay-cool-heat-wave.html
 

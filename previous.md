@@ -1,3 +1,7 @@
+**America Unites for a Day of Grand 250th Celebrations**\
+`From large events in the biggest cities to small-town gatherings to backyard barbecues, a divided America is finding many ways to salute itself.`\
+https://www.nytimes.com/2026/07/03/us/america-250-fourth-july.html
+
 **Swimmer Is Injured at Jones Beach in Possible Shark Attack**\
 `The swimmer was treated for a minor foot injury after being bitten by “unknown marine life,” New York State officials said.`\
 https://www.nytimes.com/2026/07/03/nyregion/jones-beach-shark-attack.html
@@ -161,12 +165,4 @@ https://www.nytimes.com/2026/07/03/world/europe/monaco-bomb-suspect-ukraine-anas
 **To Stay Cool, Wear Flowing Robes and Throw Water Around? Yes, Says Science.**\
 `Throughout history, people have come up with surprising ways to beat the heat that actually work.`\
 https://www.nytimes.com/2026/07/03/climate/traditions-stay-cool-heat-wave.html
-
-**Making a Cake for America’s 250th Birthday**\
-`In her quest to mark the nation’s 250th with a unifying dessert, Grace Pak had to navigate the pitfalls of a polarized Washington.`\
-https://www.nytimes.com/2026/07/03/dining/america-250-birthday-cake-grace-pak.html
-
-**Trump’s National Guard Deployment in Washington Expands Ahead of Holiday**\
-`Nearly 5,000 Guard troops are in the capital, double the number initially deployed. Many have passed the time washing off graffiti and picking up trash.`\
-https://www.nytimes.com/2026/07/03/us/trump-national-guard-washington.html
 

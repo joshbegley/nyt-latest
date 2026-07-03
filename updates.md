@@ -1,3 +1,7 @@
+**America Unites for a Day of Grand 250th Celebrations**\
+`From large events in the biggest cities to small-town gatherings to backyard barbecues, a divided America is finding many ways to salute itself.`\
+https://www.nytimes.com/2026/07/03/us/america-250-fourth-july.html
+
 **Swimmer Is Injured at Jones Beach in Possible Shark Attack**\
 `The swimmer was treated for a minor foot injury after being bitten by “unknown marine life,” New York State officials said.`\
 https://www.nytimes.com/2026/07/03/nyregion/jones-beach-shark-attack.html
