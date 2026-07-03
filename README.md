@@ -1,3 +1,7 @@
+**Pilot Was Bitten by Bat After Swarm Invaded Hotel Room, Lawsuit Says**\
+`A pilot, who was treated for possible rabies exposure, sued Marriott International, claiming his Denver hotel failed to offer him a new room after he woke up to a swarm of bats last year.`\
+https://www.nytimes.com/2026/07/03/us/bats-rabies-marriott-lawsuit.html
+
 **JD Vance y Melania Trump también registraron fuertes aumentos en sus ingresos en 2025**\
 `Pero cada uno de ellos ganó solo una pequeña parte de los 2,2 millardos de dólares como mínimo que el presidente Trump ingresó.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/melania-trump-jd-vance-ganancias-dolares.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/03/science/algae-reflecting-pool.html
 **Is NYC Summer Tourism Peaking With World Cup, Swift Wedding and America’s 250th?**\
 `A series of major events is unfolding in New York this week, sprinkling the city with soccer tees, fireworks and, perhaps, love — though not record visitor numbers.`\
 https://www.nytimes.com/2026/07/03/travel/tourism-nyc-summer-peak.html
-
-**See Why the Venezuela Earthquakes Were So Deadly**\
-`A series of unlucky factors — two earthquakes in rapid succession, a fault that ruptured toward Caracas, soft ground and the shallow depth of the earthquake — combined to make the Venezuela earthquakes unusually deadly.`\
-https://www.nytimes.com/interactive/2026/07/03/world/americas/venezuela-earthquakes-epicenter-maps.html
 
