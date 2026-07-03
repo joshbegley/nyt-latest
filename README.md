@@ -1,3 +1,19 @@
+**What to Know About Getting Around Town on Swift’s Wedding Day**\
+`With Taylor Swift’s wedding on Friday, Midtown Manhattan will present some logistical challenges to drivers and pedestrians.`\
+https://www.nytimes.com/2026/07/03/nyregion/manhattan-street-closures-holiday-swift.html
+
+**What Does It Cost to Take Over Madison Square Garden?**\
+`It’s not just rent. There’s security, insurance, permits and other costs, not to mention extra police presence.`\
+https://www.nytimes.com/2026/07/03/style/swift-wedding-msg-cost.html
+
+**How Public Pools Create Summer Communities in New York**\
+`Dry Dock Pool in Lower Manhattan is one of New York City’s 51 free outdoor pools where more than one million New Yorkers cool off with swimming, sunblock and community.`\
+https://www.nytimes.com/2026/07/03/nyregion/nyc-pools-summer-heat-wave.html
+
+**NYT Spelling Bee Answers for July 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/03/crosswords/spelling-bee-forum.html
+
 **Tibetan Activist Sets Self on Fire Outside U.N. in Protest Against China**\
 `Lobga Rangzen, a 52-year-old resident of Queens, died after the self-immolation. He said Beijing’s policies were “destroying the Tibetan people.”`\
 https://www.nytimes.com/2026/07/03/world/asia/tibet-self-immolation-united-nations-china.html
@@ -169,22 +185,6 @@ https://www.nytimes.com/2026/07/02/climate/court-national-parks-signs-trump.html
 **Iran Prepares to Bury Supreme Leader**\
 `Millions of people are expected at ceremonies in Iran and Iraq to mourn the death of Ayatollah Ali Khamenei months after he was killed in U.S.-Israeli strikes.`\
 https://www.nytimes.com/video/world/middleeast/100000011007509/iran-prepares-to-bury-supreme-leader.html
-
-**What Is the Heat Index? What To Know About the Metric During a Heat Wave**\
-`The metric of how hot the air actually feels has roots in a 1979 journal paper called “The Assessment of Sultriness.”`\
-https://www.nytimes.com/2026/07/02/weather/heat-index-temperature.html
-
-**How Heat Affects the Brain**\
-`A growing body of research has shown that our brains work differently when temperatures spike.`\
-https://www.nytimes.com/2026/07/02/climate/how-heat-affects-the-brain.html
-
-**Will There Ever Be Another Amendment to the Constitution?**\
-`The United States is celebrating its 250th birthday this summer. Jill Lepore, the Pulitzer Prize-winning historian and author, joined the “Book Review” podcast to discuss the nation’s past, and to imagine its future. She also offered a reading list for the occasion. Video by Patricia Sulbarán/The New York Times`\
-https://www.nytimes.com/video/podcasts/100000010992968/lepore-amendment.html
-
-**The Real Stakes of the American Story**\
-`Bryan Stevenson, the founder and executive director of the Equal Justice Initiative, recounts a pivotal moment in his visit to Nigeria — and what it revealed about America’s relationship with its history — on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011001803/the-real-stakes-of-the-american-story.html
 
 **Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
 `The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
