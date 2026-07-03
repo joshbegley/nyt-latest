@@ -1,3 +1,115 @@
+**Will Late-Night TV Work on YouTube?**\
+`Julian Shapiro-Barnum, best known for a social media series called “Recess Therapy,” has started an online-only late-night show.`\
+https://www.nytimes.com/2026/07/03/business/media/youtube-julian-shapiro-barnum-late-night.html
+
+**Long Lines for Gas Shatter the Illusion of Normalcy in Wartime Russia**\
+`“Are we in the Soviet Union now?” said one Russian, stunned and frustrated by long lwaits at the pumps.`\
+https://www.nytimes.com/2026/07/03/world/europe/russia-gas-shortages.html
+
+**The Perishable, Never-Ending Genius of Lionel Messi**\
+`How are his legions of fans savoring what could be the last World Cup of their idol? I dove into a sea of screaming Messis to find out.`\
+https://www.nytimes.com/2026/07/03/magazine/messi-argentina-world-cup.html
+
+**Why One Global Shipping Choke Point Isn’t a Blueprint for Another**\
+`The Strait of Malacca may be a model for how Oman and Iran could collect fees in the Strait of Hormuz, but the differences between the waterways are vast.`\
+https://www.nytimes.com/2026/07/03/business/strait-malacca-hormuz.html
+
+**The West Has Let Russia Off the Hook. Time to Tighten the Screws.**\
+`NATO’s upcoming meeting in Ankara should close the sanctions loopholes that fund Russia’s war in Ukraine while oil prices are falling.`\
+https://www.nytimes.com/2026/07/03/opinion/nato-ankara-russia-ukraine.html
+
+**Burger vs. Bratwurst: A Climate Guide to Your July 4 Cookout**\
+`Beef is far worse for greenhouse gas emissions compared with other meat.`\
+https://www.nytimes.com/2026/07/03/upshot/hamburger-beef-july4-climate-guide.html
+
+**The America That’s Still Possible**\
+`On America’s 250th anniversary, Bryan Stevenson, a civil rights lawyer and the founder of the Equal Justice Initiative, looks toward the work that is ahead for the country.`\
+https://www.nytimes.com/video/opinion/100000011001763/the-america-thats-still-possible.html
+
+**A Big Gamble for the Left: Can Socialism Appeal in a Swing State?**\
+`Francesca Hong, a state legislator running for governor of Wisconsin, wants to prove that a democratic socialist can win in a battleground. Some say she would hand the race to Republicans.`\
+https://www.nytimes.com/2026/07/03/us/politics/democratic-socialism-wisconsin-francesca-hong.html
+
+**A Hot and Hectic Weekend in New York City**\
+`Fireworks, tall ships, and let’s not forget Taylor Swift’s wedding, all in sizzling hot temperatures.`\
+https://www.nytimes.com/2026/07/03/nyregion/a-hot-and-hectic-weekend-in-new-york-city.html
+
+**Trump Ruined the Fourth of July for Me**\
+`Washington feels as if it is under occupation.`\
+https://www.nytimes.com/2026/07/03/opinion/fourth-of-july-trump-washington-dc.html
+
+**The Hottest Stock Markets Lead to the Biggest Losses**\
+`Investor enthusiasm culminated in some of the worst cases of wealth destruction in the last 100 years, a long-running study shows.`\
+https://www.nytimes.com/2026/07/03/business/stocks-investing-markets.html
+
+**F1: George Russell Works to Get His Groove Back**\
+`He started the season as one of the favorites to win the drivers’ title and even won the first race of the year. Then things got worse, until last Sunday.`\
+https://www.nytimes.com/2026/07/03/sports/george-russell-f1-mercedes-struggles.html
+
+**You Should Know How Your House Works. Here’s a Guide.**\
+`Knowing how to shut off your power and your pipes (and turn them back on) is a matter of safety and practicality. Let’s learn how to do it.`\
+https://www.nytimes.com/2026/07/03/realestate/you-should-know-how-your-house-works-heres-a-guide.html
+
+**The Electric Pain in Her Tooth Baffled Every Dentist. What Was Wrong?**\
+`X-ray after X-ray showed nothing unusual. But her doctors could see how agonizing her condition was.`\
+https://www.nytimes.com/2026/07/03/well/tooth-pain-trigeminal-neuralgia.html
+
+**Has the MAHA Movement Given Up?**\
+`Robert F. Kennedy Jr. and his allies promised public-health libertarianism. The idea couldn’t survive once they took power.`\
+https://www.nytimes.com/2026/07/03/magazine/maha-movement-survival-rfk.html
+
+**The Great American State Fair Celebrates America, and Trump**\
+`Attendees at President Trump’s two-week-long Great American State Fair talk about what this celebration of the nation’s semiquincentennial says about America and its history.`\
+https://www.nytimes.com/video/us/politics/100000010990815/great-american-state-fair-trump-america.html
+
+**Pick Your Favorite Home on Croatia’s Coast**\
+`A four-bedroom villa with a tennis court, a three-story stone house with a pool, and an urban duplex apartment. Vote for your favorite.`\
+https://www.nytimes.com/2026/07/03/realestate/pick-your-favorite-home-on-croatias-coast.html
+
+**How Pierre Coffin Breathed New Life Into the Minions Franchise With ‘Minions & Monsters’**\
+`The director Pierre Coffin, who also voices the yellow chaos agents, wasn’t interested in returning. Then a producer suggested an idea he couldn’t resist.`\
+https://www.nytimes.com/2026/07/03/movies/minions-and-monsters-director-pierre-coffin.html
+
+**Jill Lepore on What to Read This Fourth of July**\
+`A Pulitzer Prize-winning historian offers a reading list for America’s 250th birthday. Then we discuss some of the summer’s most anticipated beach reads.`\
+https://www.nytimes.com/2026/07/03/podcasts/lepore-250.html
+
+**We Didn’t Build the Atomic Bomb This Way**\
+`There’s no reason the United States should refrain from building its own frontier A.I. model.`\
+https://www.nytimes.com/2026/07/03/opinion/ai-national-lab-us.html
+
+**A Poet for Everyone, Even Those Who Don’t Read Poetry**\
+`The film “Mary Oliver: Saved by the Beauty of the World” works best when it illuminates her work, whose fans include Stephen Colbert and Oprah Winfrey.`\
+https://www.nytimes.com/2026/07/03/movies/mary-oliver-saved-by-the-beauty-of-the-world-review.html
+
+**For the F1 Driver Oliver Bearman, It’s a Journey**\
+`The young Haas driver has had a fast rise in Formula 1. He has dreams of someday driving for Ferrari, but first he wants to make Haas a contender.`\
+https://www.nytimes.com/2026/07/03/sports/f1-oliver-bearman-journey-haas-ferarri.html
+
+**Vicki Gunvalson on Her ‘Real Housewives of Orange County’ Return**\
+`When Vicki Gunvalson signed on for “The Real Housewives of Orange County” 20 years ago, no one knew she’d become a quintessential reality TV star.`\
+https://www.nytimes.com/2026/07/03/arts/television/vicki-gunvalson-real-housewives-season-20.html
+
+**A Hitler Bunker Faces Demolition In Housing-Challenged Berlin**\
+`Preservation experts say the move to develop the site reflects a tension in Germany between the need to preserve historically significant monuments and the need to build and modernize.`\
+https://www.nytimes.com/2026/07/03/world/europe/a-hitler-bunker-faces-demolition-in-housing-challenged-berlin.html
+
+**How Communities Across the U.S. Are Ringing in America’s 250th**\
+`Plans include an air show in Texas, 18,500 fireworks in Idaho and a frog-jumping contest in Missouri.`\
+https://www.nytimes.com/2026/07/03/us/july-4-events.html
+
+**Enough With the Pathetic Fund-Raising Pleas, Democrats**\
+`The Democrats’ constant solicitations for cash do not make their supporters feel like they are on a winning team.`\
+https://www.nytimes.com/2026/07/03/opinion/democrats-fund-raising-politics-republicans.html
+
+**John Byrne, an ‘X-Men’ Artist, Returns to Rewrite the Story His Way**\
+`After creative differences led him to step away from the characters that made him famous decades ago, John Byrne calls “Elsewhen” his swan song. He’s not going quietly.`\
+https://www.nytimes.com/2026/07/03/books/review/john-byrne-x-men-elsewhen.html
+
+**Children’s Picture Books on America at 250**\
+`New works by Christy Mihaly, Carole Boston Weatherford, Howard W. Reeves and Derrick Barnes show that there is still much to celebrate, rebel against and amend.`\
+https://www.nytimes.com/2026/07/03/books/review/america-250-childrens-picture-books.html
+
 **Blistering Heat Expected to Persist Into the Fourth of July**\
 `While relief could come to the Great Lakes and the far Northeast over the weekend, the Mid-Atlantic and Southeast will stay hot.`\
 https://www.nytimes.com/2026/07/03/weather/us-weather-heat-wave.html
@@ -85,112 +197,4 @@ https://www.nytimes.com/2026/07/03/style/shreyans-goenka-barry-pump-wedding.html
 **‘All Different, but All American’: A Chef on Potato Salad Diversity**\
 `Wesley Morris, host of “Cannonball,” talks to the chef Hooni Kim on the streets of New York City about how he has made potato salad his own.`\
 https://www.nytimes.com/video/podcasts/100000011008945/all-different-but-all-american-a-chef-on-potato-salad-diversity.html
-
-**NYT Crossword Answers for July 03, 2026**\
-`Barbara Lin returns to open our solving weekend.`\
-https://www.nytimes.com/2026/07/02/crosswords/daily-puzzle-2026-07-03.html
-
-**Wesley Morris Makes the People’s Potato Salad**\
-`Wesley Morris, host of “Cannonball,” heads to the NYT Cooking kitchen to make his version of the great American dish: potato salad.`\
-https://www.nytimes.com/video/podcasts/100000011008914/wesley-morris-makes-the-peoples-potato-salad.html
-
-**On Eve of Taylor Swift’s Wedding, Rehearsal Dinner Kicks Off Weekend of Events**\
-`The event for about 100 guests at Madison Square Garden kicked off a weekend of celebration for the pop star and the athlete, as celebrities arrived in town and reinforcements were delivered.`\
-https://www.nytimes.com/2026/07/02/style/swift-kelce-wedding-msg-rehearsal-dinner.html
-
-**Is Black Potato Salad a Standard Recipe?**\
-`On “Cannonball,” Wesley Morris talked to Jessica B. Harris, a two-time James Beard Award winner and food historian, about potato salad and how tastes developed in the United States.`\
-https://www.nytimes.com/video/podcasts/100000011000224/is-black-potato-salad-a-standard-recipe.html
-
-**Heat Wave Relief May Not Come at Sunset**\
-`There are steps you can take to cool down after sundown even in conditions with high humidity.`\
-https://www.nytimes.com/2026/07/02/weather/heat-wave-cool-down-sunset.html
-
-**U.K. Lawmakers Demand Deportation of ‘Grooming Gang’ Leader**\
-`Shabir Ahmed was handed a lengthy prison sentence in 2012 for his ties to a sexual exploitation ring.`\
-https://www.nytimes.com/2026/07/02/world/europe/uk-deport-leader-grooming-gang.html
-
-**Trump’s Huge Windfall Has Few Known Global Precedents**\
-`President Trump’s earnings in office are at a level once unimaginable for any leader of a liberal democracy, particularly a sitting American president.`\
-https://www.nytimes.com/2026/07/02/world/europe/trump-world-leaders-corruption-wealth.html
-
-**As Ukraine War Escalates, Witkoff and Kushner Are Focused on Iran**\
-`Steve Witkoff and Jared Kushner are pivotal players at a moment when the posts of U.S. ambassador to Moscow and Kyiv are both vacant.`\
-https://www.nytimes.com/2026/07/02/us/politics/ukraine-russia-witkoff-kushner-trump.html
-
-**MAGA Base Stays Quiet After Trump Reports Billions in Personal Gains**\
-`A new mandatory disclosure revealed that the president has earned $2.2 billion during the first year back in the White House.`\
-https://www.nytimes.com/2026/07/02/us/politics/trump-earnings-maga-reaction.html
-
-**Rare Copy of the Declaration of Independence Is Discovered in London**\
-`A volunteer cataloging naval letters came across a copy of the document, printed 250 years ago in New Hampshire. “It was a thrilling find,” he said.`\
-https://www.nytimes.com/2026/07/02/world/europe/declaration-independence-copy-uk-archive.html
-
-**Animals Need to Cool Off, Too**\
-`Mammals across the Midwest are doing their best to stay cool during the heat wave, with some help from humans.`\
-https://www.nytimes.com/2026/07/02/weather/animals-heat-wave.html
-
-**Clusters of Severe Stomach Illness Reported Across the U.S.**\
-`Public health experts said there were more cases than usual of the disease caused by cyclospora, which is spread through contaminated food and drink.`\
-https://www.nytimes.com/2026/07/02/well/cyclospora-infection-united-states.html
-
-**Mamdani Is a Taylor Swift Fan. Here Are His Top 12 Songs.**\
-`Ahead of Taylor Swift’s wedding celebration in Manhattan, Mayor Zohran Mamdani revealed that he is a bigger fan of her music than previously known.`\
-https://www.nytimes.com/2026/07/02/nyregion/mamdani-taylor-swift-songs.html
-
-**Louisiana Attorney General Charged With Bullying New Orleans Officials**\
-`Liz Murrill, a Republican, was indicted on charges of malfeasance and intimidation after sending warning letters to the city’s Democratic leaders over actions they took.`\
-https://www.nytimes.com/2026/07/02/us/louisiana-attorney-general-indicted-new-orleans.html
-
-**UPS Did Not Tell Inspectors to Check Failed Part in Louisville Crash**\
-`Inspectors were not instructed to check a bearing that they had been told was faulty, but the shipping company says Boeing, the plane’s manufacturer, is to blame.`\
-https://www.nytimes.com/2026/07/02/us/politics/ups-louisville-crash.html
-
-**Ocho días bajo los escombros: el rescate que emocionó a Venezuela**\
-`Hernán Gil, de 44 años, fue rescatado con vida de los escombros de un edificio colapsado, en un momento de alivio entre la devastación.`\
-https://www.nytimes.com/es/2026/07/02/espanol/america-latina/terremoto-venezuela-rescate-sobreviviente.html
-
-**Texas Governor Appoints Former Hard Right Critic to Key Post**\
-`Gov. Greg Abbott appointed a firebrand former opponent, Don Huffines, to be state comptroller, underscoring a G.O.P. push for unity ahead of the midterms.`\
-https://www.nytimes.com/2026/07/02/us/don-huffines-texas-comptroller.html
-
-**A Sweltering Fourth of July**\
-`Also, Taylor’s wedding. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/07/02/briefing/heat-wave-fourth.html
-
-**New York Gallery Surrenders 20 Artifacts Thought Looted From Cambodia**\
-`The Madison Avenue business turned over stone statues and other items that it had purchased from an art dealer accused of trafficking in illicit objects.`\
-https://www.nytimes.com/2026/07/02/arts/new-york-gallery-surrenders-20-artifacts-thought-looted-from-cambodia.html
-
-**Deadly MV Hondius Hantavirus Outbreak Is Over, W.H.O. Says**\
-`The rodent-borne virus, which sickened passengers on the MV Hondius, killed three people, led to a race to find its origin and a global health alert.`\
-https://www.nytimes.com/2026/07/02/world/hantavirus-cruise-outbreak-timeline-events.html
-
-**8 Days After Venezuela Earthquakes, Rescuers Pull a Man From the Rubble**\
-`Rescuers pulled 44-year-old Hernán Gil from a collapsed basement on Thursday, eight days after earthquakes hit Venezuela.`\
-https://www.nytimes.com/video/world/americas/100000011008509/venezuela-earthquake-survivor-rescued.html
-
-**The Most Iconic American Artwork Is the Hardest to See**\
-`The Statue of Liberty is caught between the sublime and the souvenir, our critic Jason Farago explains. Look again: She’s much stranger than you think.`\
-https://www.nytimes.com/interactive/2026/07/02/arts/design/statue-of-liberty-history-france-us.html
-
-**Egg Producers to Pay $3.3 Million to Settle Federal Price-Fixing Lawsuit**\
-`The companies also agreed to donate more than 53 million eggs to food banks and nonprofits in 17 states that joined the federal government in the antitrust action.`\
-https://www.nytimes.com/2026/07/02/business/egg-price-fixing-settlement-lawsuit.html
-
-**F.B.I. Assigns Scores of Analysts to Examine Election Records in Georgia**\
-`The expansion of an investigation into Fulton County’s election office reflects President Trump’s desire to prove his baseless claims that the 2020 election in Georgia was rigged.`\
-https://www.nytimes.com/2026/07/02/us/politics/fbi-georgia-fulton-county-2020-election.html
-
-**How the Mood in Little Senegal Went From Euphoria to Despair**\
-`At watch parties in Upper Manhattan, joyous fans were stunned by a sudden twist in the match between Belgium and the underdog Senegal.`\
-https://www.nytimes.com/2026/07/02/nyregion/world-cup-nyc-little-senegal.html
-
-**Heat Wave Updates: New York Hits 100 Degrees as High Temperatures Stifle Eastern U.S.**\
-`The temperature reading in Central Park tied a record for July 2 set in 1966. Some 163 million people, from Missouri to Maine and south to Mississippi, live in areas that are likely to experience dangerous heat on Thursday, forecasters said.`\
-https://www.nytimes.com/live/2026/07/02/weather/heat-wave
-
-**World Cup Updates: Portugal-Croatia Helps the World Cup Say Farewell to Toronto**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
