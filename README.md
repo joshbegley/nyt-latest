@@ -1,3 +1,7 @@
+**Taylor Swift and Travis Kelce Are Married**\
+`The couple shared the news through a digital advertisement outside Madison Square Garden, as well as a news release from Swift’s longtime publicist.`\
+https://www.nytimes.com/2026/07/03/fashion/weddings/taylor-swift-travis-kelce-married-wedding.html
+
 **Trump Takes Stock of Other Presidencies, Shedding Light on His Own**\
 `In his second term, the president has increasingly mused about his predecessors, comparing himself with some and distancing from the failures of others.`\
 https://www.nytimes.com/2026/07/03/us/politics/trump-takes-stock-of-other-presidencies-shedding-light-on-his-own.html
@@ -153,8 +157,4 @@ https://www.nytimes.com/2026/07/03/nyregion/trump-constantino-smullen-stefanik.h
 **Flashback: Your Weekly History Quiz, July 4, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/03/upshot/flashback.html
-
-**Good News for Bill Cunningham Fans**\
-`The New York Historical announced a new show, “We All Dress for Bill” with selections from parties, fashion shows and the street, coming in 2027.`\
-https://www.nytimes.com/2026/07/03/style/cunningham-bill-exhibit-historical.html
 

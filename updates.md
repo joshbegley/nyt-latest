@@ -1,3 +1,11 @@
+**Trump Takes Stock of Other Presidencies, Shedding Light on His Own**\
+`In his second term, the president has increasingly mused about his predecessors, comparing himself with some and distancing from the failures of others.`\
+https://www.nytimes.com/2026/07/03/us/politics/trump-takes-stock-of-other-presidencies-shedding-light-on-his-own.html
+
+**Live Updates: Taylor Swift and Travis Kelce Officially Tie the Knot at Star-Studded M.S.G. Wedding**\
+`The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **Fans Brave N.Y.C. Heat for Taylor Swift and Travis Kelce’s Wedding**\
 `Swifties hung around Madison Square Garden in scorching temperatures to try to catch a glimpse of Taylor Swift and Travis Kelce’s wedding festivities. About 1,000 guests are expected to attend their wedding on Friday.`\
 https://www.nytimes.com/video/nyregion/100000011009843/taylor-swift-wedding-travis-kelce.html

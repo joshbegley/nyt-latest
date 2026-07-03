@@ -1,3 +1,7 @@
+**Trump Takes Stock of Other Presidencies, Shedding Light on His Own**\
+`In his second term, the president has increasingly mused about his predecessors, comparing himself with some and distancing from the failures of others.`\
+https://www.nytimes.com/2026/07/03/us/politics/trump-takes-stock-of-other-presidencies-shedding-light-on-his-own.html
+
 **Fans Brave N.Y.C. Heat for Taylor Swift and Travis Kelce’s Wedding**\
 `Swifties hung around Madison Square Garden in scorching temperatures to try to catch a glimpse of Taylor Swift and Travis Kelce’s wedding festivities. About 1,000 guests are expected to attend their wedding on Friday.`\
 https://www.nytimes.com/video/nyregion/100000011009843/taylor-swift-wedding-travis-kelce.html
@@ -106,7 +110,7 @@ https://www.nytimes.com/2026/07/03/arts/dance/lincoln-center-contemporary-dance-
 `On “The Interview,” Laurie Santos, a cognitive scientist and a professor at Yale, says that Americans think about happiness in unique ways, and they have for a long time.`\
 https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-and-the-pursuit-of-happiness.html
 
-**Live Updates: Taylor Swift and Travis Kelce’s Star-Studded Wedding Festivities Underway at M.S.G.**\
+**Live Updates: Taylor Swift and Travis Kelce Officially Tie the Knot at Star-Studded M.S.G. Wedding**\
 `The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 
@@ -153,8 +157,4 @@ https://www.nytimes.com/interactive/2026/07/03/upshot/flashback.html
 **Good News for Bill Cunningham Fans**\
 `The New York Historical announced a new show, “We All Dress for Bill” with selections from parties, fashion shows and the street, coming in 2027.`\
 https://www.nytimes.com/2026/07/03/style/cunningham-bill-exhibit-historical.html
-
-**How to Get School Policy Back on Track**\
-`Readers respond to “‘No Child Left Behind’ Nostalgia Is Delusional,” an Opinion guest essay by Ross Wiener.`\
-https://www.nytimes.com/2026/07/03/opinion/education-schools.html
 
