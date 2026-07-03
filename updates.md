@@ -1,3 +1,11 @@
+**Trump’s Huge Windfall Has Few Known Global Precedents**\
+`President Trump’s earnings in office are at a level once unimaginable for any leader of a liberal democracy, particularly a sitting American president.`\
+https://www.nytimes.com/2026/07/02/world/europe/trump-world-leaders-corruption-wealth.html
+
+**As Ukraine War Escalates, Witkoff and Kushner Are Focused on Iran**\
+`Steve Witkoff and Jared Kushner are pivotal players at a moment when the posts of U.S. ambassador to Moscow and Kyiv are both vacant.`\
+https://www.nytimes.com/2026/07/02/us/politics/ukraine-russia-witkoff-kushner-trump.html
+
 **MAGA Base Stays Quiet After Trump Reports Billions in Personal Gains**\
 `A new mandatory disclosure revealed that the president has earned $2.2 billion during the first year back in the White House.`\
 https://www.nytimes.com/2026/07/02/us/politics/trump-earnings-maga-reaction.html
