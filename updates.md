@@ -1,3 +1,7 @@
+**Live Updates: Taylor Swift and Travis Kelce’s Star-Studded Wedding Festivities Underway at M.S.G.**\
+`The pop star, football player and 1,000 of their closest and most famous friends are set to celebrate pop culture’s most anticipated union.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
 `The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-nicks-performance.html
