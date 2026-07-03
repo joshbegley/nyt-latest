@@ -162,7 +162,3 @@ https://www.nytimes.com/2026/07/03/movies/five-science-fiction-movies-to-stream-
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
 https://www.nytimes.com/video/opinion/100000011001815/what-does-it-mean-to-love-america.html
 
-**How Celebrity Wedding Planners Would Decorate MSG for Taylor Swift**\
-`Dua Lipa’s planner envisioned olive trees and thousands of string lights. LeBron James’s planner took inspiration from the Eras Tour.`\
-https://www.nytimes.com/2026/07/03/style/taylor-swift-travis-kelce-celebrity-wedding-planners.html
-

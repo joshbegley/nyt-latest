@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011010402/03vid-swift-emma.html
+
+**Parents Will Be Able to Enroll Newborns in Trump Accounts at the Hospital**\
+`The Social Security Administration will introduce a process to sign up babies for the investment program at the same time they are registered for a Social Security number.`\
+https://www.nytimes.com/2026/07/03/your-money/trump-accounts-newborns-social-security-numbers.html
+
+**En vivo: empezaron los festejos de la boda de Taylor Swift y Travis Kelce en el MSG**\
+`La estrella del pop, el futbolista y unos 1000 amigos cercanos y famosos se preparan para celebrar la unión más esperada de la cultura pop.`\
+https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
+
 **Celebrating America’s 250th Anniversary Across the Country**\
 `Even as an oppressive heat wave stifled much of the United States, the nationwide party continued.`\
 https://www.nytimes.com/2026/07/03/us/july-4-250-photos-videos.html
