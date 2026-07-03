@@ -1,3 +1,11 @@
+**¿Es necesario un entrenamiento especial para la menopausia?**\
+`La menopausia se ha convertido en un tema habitual en la cultura popular, y el entrenamiento de fuerza se ha erigido en una de las recomendaciones más recurrentes para un envejecimiento saludable.`\
+https://www.nytimes.com/es/2026/07/03/espanol/rutina-ejercicios-menopausia.html
+
+**‘Basura’: Gloria y Emily Estefan encuentran un nuevo ritmo en el teatro**\
+`Madre e hija pasaron años componiendo las canciones y partitura de “Basura”, su nuevo musical. “En toda relación entre madre e hija, las cosas son complicadas”, dijo Gloria Estefan.`\
+https://www.nytimes.com/es/2026/07/03/espanol/cultura/basura-gloria-emily-estefan.html
+
 **EE. UU. cumple 250 años: esta es la polémica por las celebraciones**\
 `Dos organizaciones nacionales, una de ellas respaldada por el presidente Donald Trump, han organizado un conjunto de actividades para celebrar. Los estados también están organizando numerosos eventos.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/polemica-aniversario-250-estados-unidos.html
