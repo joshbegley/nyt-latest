@@ -64,7 +64,7 @@ https://www.nytimes.com/2026/07/04/us/politics/joyce-beatty-kennedy-center.html
 
 **How Do You Celebrate America’s 250-Year Experiment? However You Want.**\
 `Away from the turmoil in Washington, Americans will mark July 4 in their own patriotic ways. Expect rodeos, line dancing, Tejano music and Led Zeppelin.`\
-https://www.nytimes.com/2026/07/04/us/how-do-you-celebrate-americas-250-year-experiment-however-you-want.html
+https://www.nytimes.com/2026/07/04/us/america-250-us-independence-day-celebrations.html
 
 **Catherine Laga’aia, ‘Moana’ Star, on the Funniest Podcast Episode Ever**\
 `“I would just watch it, replay it, watch it, replay it,” the “Moana” star said.`\

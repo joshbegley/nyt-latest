@@ -1,3 +1,7 @@
+**How Do You Celebrate America’s 250-Year Experiment? However You Want.**\
+`Away from the turmoil in Washington, Americans will mark July 4 in their own patriotic ways. Expect rodeos, line dancing, Tejano music and Led Zeppelin.`\
+https://www.nytimes.com/2026/07/04/us/america-250-us-independence-day-celebrations.html
+
 **Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
 `The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
 https://www.nytimes.com/2026/07/04/world/americas/mexicos-secret-12th-man-in-the-world-cup-baby-jesus.html
