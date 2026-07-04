@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-inte
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.html
 
 **How the Heat Is Upending Plans for America’s 250th Birthday**\
-`A parade in Philadelphia, one of the largest in its history, was canceled on Friday, and the Great American State Fair on the National Mall in Washington closed for several hours.`\
+`Parades in Washington and Philadelphia were canceled, and the Great American State Fair on the National Mall closed for several hours.`\
 https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html
 
 **Victoria Cruz, Veteran of the Trans Rights Movement, Dies at 79**\
