@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
 
-**Live Updates: Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
+**Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 

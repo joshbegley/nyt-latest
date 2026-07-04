@@ -1,3 +1,7 @@
+**Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
+`Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **En busca de la película que define a Estados Unidos**\
 `Diez escritores exploran los filmes que capturan las esperanzas, los sueños, las desilusiones y la hilaridad de un país que cumple 250 años.`\
 https://www.nytimes.com/es/2026/07/04/espanol/cultura/pelicula-define-estados-unidos.html
