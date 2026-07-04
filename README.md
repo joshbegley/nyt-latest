@@ -1,3 +1,7 @@
+**En busca de la película que define a Estados Unidos**\
+`Diez escritores exploran los filmes que capturan las esperanzas, los sueños, las desilusiones y la hilaridad de un país que cumple 250 años.`\
+https://www.nytimes.com/es/2026/07/04/espanol/cultura/pelicula-define-estados-unidos.html
+
 **La guerra llega a las gasolineras de Rusia**\
 `“¿Ahora estamos en la Unión Soviética?”, preguntó una mujer rusa, atónita y frustrada por las esperas para cargar combustible.`\
 https://www.nytimes.com/es/2026/07/04/espanol/mundo/rusia-escasez-combustible.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-inte
 **What Time Is Taylor Swift Getting Married? See the Wedding Schedule at MSG.**\
 `An internal memo for the New York Police Department laid out a schedule of events for a 1,000-person celebration on Friday.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.html
-
-**How the Heat Is Upending Plans for America’s 250th Birthday**\
-`Parades in Washington and Philadelphia were canceled, and the Great American State Fair on the National Mall closed for several hours.`\
-https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html
 
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
