@@ -1,3 +1,11 @@
+**Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
+`As days of public mourning ceremonies began, Iranians were expected to be allowed to view the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
+
+**What to Know About Taylor Swift and Travis Kelce’s Wedding Festivities**\
+`Yes, they got married. Yes, they held a huge event inside Madison Square Garden. No, the guests did not post much about it. (At least they haven’t yet.)`\
+https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-wedding-recap.html
+
 **Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
