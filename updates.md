@@ -1,3 +1,7 @@
+**Los mejores consejos para comer saludable en 2026**\
+`Analizamos las noticias más destacadas del año sobre nutrición para extraer 10 lecciones útiles.`\
+https://www.nytimes.com/es/2026/07/04/espanol/consejos-alimentacion-saludable-2026.html
+
 **Quote of the Day: One Nation, Many Americas**\
 `Quotation of the Day for Saturday, July 4, 2026.`\
 https://www.nytimes.com/2026/07/04/pageoneplus/quote-of-the-day-one-nation-many-americas.html
