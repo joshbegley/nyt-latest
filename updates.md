@@ -1,3 +1,11 @@
+**How Mamdani Sees the World Through Soccer**\
+`Mayor Zohran Mamdani says that the sport embodies his political identity, even as the World Cup has been colored by corporate greed and geopolitical concerns.`\
+https://www.nytimes.com/2026/07/04/nyregion/mamdani-world-cup-fifa.html
+
+**Why Loving Good-Bad Movies Feels All Good**\
+`A pop culture reporter explains why she revels in debating movies that cross the line from bad to sublime.`\
+https://www.nytimes.com/2026/07/04/movies/good-bad-movies-nytimes.html
+
 **Storms Cause Power Outages for 1 Million in Midwest, Northeast and Ontario**\
 `Strong winds from thunderstorms caused widespread cuts as the region sweltered in a heat wave.`\
 https://www.nytimes.com/2026/07/04/us/storms-power-outages-midwest-northeast-ontario.html
