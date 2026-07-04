@@ -168,7 +168,7 @@ https://www.nytimes.com/2026/07/04/movies/catherine-lagaaia-moana-live-action.ht
 
 **To Beat the Heat, the Ultrarich Have Snow Rooms**\
 `Indoors, for a fortunate few, it’s always a winter wonderland.`\
-https://www.nytimes.com/2026/07/04/style/to-beat-the-heat-the-wealthy-are-building-snow-rooms.html
+https://www.nytimes.com/2026/07/04/style/snow-rooms-home-technoalpin.html
 
 **Are the ‘MANGOS’ Stocks Already Turning Soft?**\
 `Wall Street loves an acronym. The latest one stands for Meta, Anthropic, Nvidia and three other companies at the center of the artificial intelligence boom.`\

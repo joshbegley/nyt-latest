@@ -1,3 +1,7 @@
+**How the ‘Beautiful Game’ Is Deflecting America’s Political Turmoil**\
+`Amid protests and rancor, World Cup soccer proves a bright spot in the United States and around the world.`\
+https://www.nytimes.com/2026/07/04/us/world-cup-soccer-us-politics-trump.html
+
 **Atlantic Beach Pie Is the Ultimate Summertime Pie**\
 `The cookbook author and pie connoisseur Stacey Mei Yan Fong deems it so in the Bake Time Questionnaire.`\
 https://www.nytimes.com/2026/07/04/dining/atlantic-beach-pie-is-the-ultimate-summertime-pie.html
