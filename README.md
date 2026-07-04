@@ -1,3 +1,11 @@
+**¿Por qué Adam Sandler ofició la boda de Swift y Kelce?**\
+`El actor desempeñó un papel especial (y para algunos sorprendente) en la unión.`\
+https://www.nytimes.com/es/2026/07/03/espanol/adam-sandler-boda-taylor-swift.html
+
+**Sewage Spills Into Hudson River After Power Failure at Treatment Plant**\
+`The spill, at a plant just north of New York City, continued from Thursday night to Friday afternoon. It was not expected to affect the city’s Fourth of July celebrations.`\
+https://www.nytimes.com/2026/07/03/nyregion/sewage-spill-hudson-river.html
+
 **Photos: See Outside Taylor Swift and Travis Kelce’s Wedding at MSG**\
 `The couple’s private celebration created a public spectacle outside Madison Square Garden.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-photos-msg.html
@@ -141,14 +149,6 @@ https://www.nytimes.com/2026/07/03/us/politics/once-the-centerpiece-of-celebrati
 **Fans Gather Outside the Wedding of the Year at Madison Square Garden**\
 `As temperatures climbed to nearly 100 degrees and police cordoned off streets around the arena, devoted Swift fans from across the country gathered in anticipation of Taylor Swift and Travis Kelce’s celebration.`\
 https://www.nytimes.com/2026/07/03/style/fans-gather-outside-the-wedding-of-the-year-at-madison-square-garden.html
-
-**Lionel Messi, eterno y fugaz**\
-`¿Cómo están disfrutando sus legiones de fans la que podría ser la última Copa Mundial de su ídolo? Me sumergí en una multitud que ovacionaba su nombre para averiguarlo.`\
-https://www.nytimes.com/es/2026/07/03/espanol/deportes/messi-mundial-argentina.html
-
-**Mamdani Says Blind Patriotism Ignores the Nation’s Flaws and Inequality**\
-`In a nearly 13-minute address, Mayor Zohran Mamdani of New York highlighted the nation’s diversity and criticized those who would deprive immigrants of freedom.`\
-https://www.nytimes.com/2026/07/03/nyregion/mamdani-speech-july-4th.html
 
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
