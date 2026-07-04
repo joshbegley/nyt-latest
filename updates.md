@@ -1,3 +1,11 @@
+**Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
+`The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
+https://www.nytimes.com/2026/07/04/world/americas/mexico-world-cup-baby-jesus.html
+
+**Nearly a Million Investors Lost a Total of $3.8 Billion on Trump Crypto Coin**\
+`A report from a cryptocurrency analytics firm details how those who bought the Trump memecoin have fared, with most retail investors having lost money while sophisticated traders did better.`\
+https://www.nytimes.com/2026/07/04/us/politics/trump-coin-crypto-investors-loss.html
+
 **To Beat the Heat, the Ultrarich Have Snow Rooms**\
 `Indoors, for a fortunate few, it’s always a winter wonderland.`\
 https://www.nytimes.com/2026/07/04/style/snow-rooms-home-technoalpin.html
