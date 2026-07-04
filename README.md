@@ -174,10 +174,6 @@ https://www.nytimes.com/2026/07/04/style/snow-rooms-home-technoalpin.html
 `Wall Street loves an acronym. The latest one stands for Meta, Anthropic, Nvidia and three other companies at the center of the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/04/business/mangos-ai-stocks.html
 
-**The Texas Hill Country Flood, One Year Later**\
-`A year after a catastrophic flood killed 139 people in the Texas Hill Country, communities along the Guadalupe River are still rebuilding.`\
-https://www.nytimes.com/2026/07/04/us/texas-floods-2025-guadalupe-river.html
-
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
