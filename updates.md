@@ -1,3 +1,11 @@
+**To Beat the Heat, the Ultrarich Have Snow Rooms**\
+`Indoors, for a fortunate few, it’s always a winter wonderland.`\
+https://www.nytimes.com/2026/07/04/style/snow-rooms-home-technoalpin.html
+
+**The Texas Hill Country Flood, One Year Later**\
+`A year after a catastrophic flood killed 139 people in the Texas Hill Country, communities along the Guadalupe River are still rebuilding.`\
+https://www.nytimes.com/2026/07/04/us/texas-floods-2025-guadalupe-river.html
+
 **How the ‘Beautiful Game’ Is Deflecting America’s Political Turmoil**\
 `Amid protests and rancor, World Cup soccer proves a bright spot in the United States and around the world.`\
 https://www.nytimes.com/2026/07/04/us/world-cup-soccer-us-politics-trump.html

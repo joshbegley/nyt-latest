@@ -96,7 +96,7 @@ https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
 `The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
-https://www.nytimes.com/2026/07/04/world/americas/mexicos-secret-12th-man-in-the-world-cup-baby-jesus.html
+https://www.nytimes.com/2026/07/04/world/americas/mexico-world-cup-baby-jesus.html
 
 **Taylor Swift y Travis Kelce, protagonistas de una boda real en EE. UU.**\
 `Las bodas reales pueden unir linajes o imperios, pero siempre actualizan y reafirman una identidad nacional. El enlace entre la estrella del pop y el futbolista trasciende fronteras y anuncia un poder cultural hegemónico.`\
@@ -116,7 +116,7 @@ https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/modern-love-matrim
 
 **Nearly a Million Investors Lost a Total of $3.8 Billion on Trump Crypto Coin**\
 `A report from a cryptocurrency analytics firm details how those who bought the Trump memecoin have fared, with most retail investors having lost money while sophisticated traders did better.`\
-https://www.nytimes.com/2026/07/04/us/politics/nearly-a-million-investors-lost-a-total-of-3-8-billion-on-trump-crypto-coin.html
+https://www.nytimes.com/2026/07/04/us/politics/trump-coin-crypto-investors-loss.html
 
 **July Fourth Heat Wave Forecast: Latest Updates**\
 `The Midwest gets a break, but much of the East Coast will again climb above 100 degrees. Experts said people should stay indoors as much as possible.`\
