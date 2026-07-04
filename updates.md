@@ -1,3 +1,7 @@
+**July Fourth Heat Wave Forecast: Latest Updates**\
+`The Midwest will get a break but temperatures for much of the East Coast will again climb above 100 degrees. Stay indoors as much as possible, experts said.`\
+https://www.nytimes.com/2026/07/04/weather/july-fourth-heat-wave-updates.html
+
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei

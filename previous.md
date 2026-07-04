@@ -119,7 +119,7 @@ https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/modern-love-matrim
 https://www.nytimes.com/2026/07/04/us/politics/trump-coin-crypto-investors-loss.html
 
 **July Fourth Heat Wave Forecast: Latest Updates**\
-`The Midwest gets a break, but much of the East Coast will again climb above 100 degrees. Experts said people should stay indoors as much as possible.`\
+`The Midwest will get a break but temperatures for much of the East Coast will again climb above 100 degrees. Stay indoors as much as possible, experts said.`\
 https://www.nytimes.com/2026/07/04/weather/july-fourth-heat-wave-updates.html
 
 **In Rwanda, July 4 Is Liberation Day From Genocide**\
@@ -173,10 +173,6 @@ https://www.nytimes.com/2026/07/04/style/snow-rooms-home-technoalpin.html
 **Are the ‘MANGOS’ Stocks Already Turning Soft?**\
 `Wall Street loves an acronym. The latest one stands for Meta, Anthropic, Nvidia and three other companies at the center of the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/04/business/mangos-ai-stocks.html
-
-**The Texas Hill Country Flood, One Year Later**\
-`A year after a catastrophic flood killed 139 people in the Texas Hill Country, communities along the Guadalupe River are still rebuilding.`\
-https://www.nytimes.com/2026/07/04/us/texas-floods-2025-guadalupe-river.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
