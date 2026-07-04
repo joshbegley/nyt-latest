@@ -1,3 +1,7 @@
+**Taylor Swift Wears Dior Dress by Jonathan Anderson for MSG Wedding**\
+`The pop star said “I do” to a gown designed by Jonathan Anderson, the French house’s creative director.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-dress-dior.html
+
 **Taylor Swift and Travis Kelce Are Married**\
 `The couple shared the news through a digital advertisement outside Madison Square Garden, as well as a news release from Swift’s longtime publicist.`\
 https://www.nytimes.com/2026/07/03/fashion/weddings/taylor-swift-travis-kelce-married-wedding.html
@@ -153,8 +157,4 @@ https://www.nytimes.com/2026/07/03/us/trump-mount-rushmore-america-250.html
 **Trump Intercedes to Push Robert Smullen Out of N.Y. House Race**\
 `Assemblyman Robert Smullen, who lost a Republican primary, will not run on the Conservative Party line in his bid to replace Representative Elise Stefanik.`\
 https://www.nytimes.com/2026/07/03/nyregion/trump-constantino-smullen-stefanik.html
-
-**Flashback: Your Weekly History Quiz, July 4, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/07/03/upshot/flashback.html
 
