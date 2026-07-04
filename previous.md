@@ -1,3 +1,15 @@
+**Taylor Swift y Travis Kelce ya están casados**\
+`La pareja dio a conocer la noticia a través de un anuncio digital en el exterior del Madison Square Garden, así como con un comunicado de prensa de su publicista.`\
+https://www.nytimes.com/es/2026/07/03/espanol/taylor-swift-y-travis-kelce-casados.html
+
+**Putin Visits Battlefield and Vows to Take More of Ukraine**\
+`The Russian leader denounced Ukraine’s “imaginary achievements” on the battlefield of late, calling its leaders “play actors.”`\
+https://www.nytimes.com/2026/07/03/world/europe/putin-ukraine-donbas-battlefield-visit.html
+
+**With Its Celebrity Guests, Taylor Swift’s Wedding Rivals the Met Gala**\
+`Top-secret celebrity guest lists! No cell phones! Big fashion moments! SUVs galore! New York usually gets only one party like this a year.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-celebrity-guests.html
+
 **Taylor Swift Wears Dior Dress by Jonathan Anderson for MSG Wedding**\
 `The pop star said “I do” to a gown designed by Jonathan Anderson, the French house’s creative director.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-dress-dior.html
@@ -145,16 +157,4 @@ https://www.nytimes.com/2026/07/03/sports/artur-dmitriev-dead.html
 **Trump Nods at Taylor Swift in Posts on Social Media**\
 `In a pair of posts, the president addressed Taylor Swift on the weekend of her wedding festivities, using her imagery and words.`\
 https://www.nytimes.com/2026/07/03/style/trump-taylor-swift-america-250-eras.html
-
-**MAGA guarda silencio ante los millardos de dólares en ganancias de Trump**\
-`Para muchos de sus seguidores, dichas ganancias son muestra de la perspicacia empresarial que siempre le han admirado.`\
-https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/trump-ganancias-dolares-aprobacion.html
-
-**Trump to Speak at Mount Rushmore at 250th Anniversary Event**\
-`It’s not the first time the president has made a big speech at the monument.`\
-https://www.nytimes.com/2026/07/03/us/trump-mount-rushmore-america-250.html
-
-**Trump Intercedes to Push Robert Smullen Out of N.Y. House Race**\
-`Assemblyman Robert Smullen, who lost a Republican primary, will not run on the Conservative Party line in his bid to replace Representative Elise Stefanik.`\
-https://www.nytimes.com/2026/07/03/nyregion/trump-constantino-smullen-stefanik.html
 

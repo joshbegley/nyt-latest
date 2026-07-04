@@ -1,3 +1,15 @@
+**Taylor Swift y Travis Kelce ya están casados**\
+`La pareja dio a conocer la noticia a través de un anuncio digital en el exterior del Madison Square Garden, así como con un comunicado de prensa de su publicista.`\
+https://www.nytimes.com/es/2026/07/03/espanol/taylor-swift-y-travis-kelce-casados.html
+
+**Putin Visits Battlefield and Vows to Take More of Ukraine**\
+`The Russian leader denounced Ukraine’s “imaginary achievements” on the battlefield of late, calling its leaders “play actors.”`\
+https://www.nytimes.com/2026/07/03/world/europe/putin-ukraine-donbas-battlefield-visit.html
+
+**With Its Celebrity Guests, Taylor Swift’s Wedding Rivals the Met Gala**\
+`Top-secret celebrity guest lists! No cell phones! Big fashion moments! SUVs galore! New York usually gets only one party like this a year.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-celebrity-guests.html
+
 **Taylor Swift y Travis Kelce ya se casaron oficialmente, y ya está en marcha la fiesta en el MSG, repleta de estrellas**\
 `La estrella del pop, el futbolista y unos 1000 amigos cercanos y famosos celebran la unión más esperada de la cultura pop.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
