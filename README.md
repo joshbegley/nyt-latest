@@ -1,3 +1,7 @@
+**Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
+`The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
+https://www.nytimes.com/2026/07/04/world/americas/mexicos-secret-12th-man-in-the-world-cup-baby-jesus.html
+
 **Taylor Swift y Travis Kelce, protagonistas de una boda real en EE. UU.**\
 `Las bodas reales pueden unir linajes o imperios, pero siempre actualizan y reafirman una identidad nacional. El enlace entre la estrella del pop y el futbolista trasciende fronteras y anuncia un poder cultural hegemónico.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/taylor-swift-boda-real-eeuu.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/es/2026/07/03/espanol/boda-taylor-swift-travis-kelce-fot
 **¿Por qué Adam Sandler ofició la boda de Swift y Kelce?**\
 `El actor desempeñó un papel especial (y para algunos sorprendente) en la unión.`\
 https://www.nytimes.com/es/2026/07/03/espanol/adam-sandler-boda-taylor-swift.html
-
-**Sewage Spills Into Hudson River After Power Failure at Treatment Plant**\
-`The spill, at a plant just north of New York City, continued from Thursday night to Friday afternoon. It was not expected to affect the city’s Fourth of July celebrations.`\
-https://www.nytimes.com/2026/07/03/nyregion/sewage-spill-hudson-river.html
 
 **Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
