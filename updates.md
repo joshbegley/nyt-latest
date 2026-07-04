@@ -1,3 +1,11 @@
+**In Backing President Trump’s Policies, Justice Alito Finds His Moment**\
+`This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
+https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
+
+**The Purgatory Job Market of 2026**\
+`(No description)`\
+https://www.nytimes.com/2026/07/04/opinion/purgatory-job-market.html
+
 **For Cape Verde, There’s Victory in Their World Cup Defeat**\
 `The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but there was still plenty to celebrate.`\
 https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
