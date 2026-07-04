@@ -1,3 +1,7 @@
+**Canada Has a New Obsession: Soccer**\
+`A surprising World Cup run ended on Saturday against Morocco, but the Canadian successes, as a team and a host, are likely to endure.`\
+https://www.nytimes.com/2026/07/04/world/canada/world-cup-canada-morocco.html
+
 **Democrats Clash With Trump, as Political Tensions Rise on America’s 250th**\
 `Gavin Newsom and Wes Moore, potential 2028 contenders, cast President Trump’s record as a betrayal of American ideals, while the president disparaged their party as extreme.`\
 https://www.nytimes.com/2026/07/04/us/politics/democrats-clash-trump-america-250th-birthday.html
@@ -153,14 +157,6 @@ https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/taylor-swift-boda-
 **Trump restringió a los visitantes. México ganó turistas**\
 `Aunque los críticos se preguntan si el Mundial beneficiará al turismo a largo plazo, las autoridades mexicanas creen que puede impulsar al país hasta convertirlo en el quinto destino más visitado del mundo.`\
 https://www.nytimes.com/es/2026/07/04/espanol/america-latina/mexico-turismo-mundial.html
-
-**How the ‘Beautiful Game’ Is Deflecting America’s Political Turmoil**\
-`Amid protests and rancor, World Cup soccer proves a bright spot in the United States and around the world.`\
-https://www.nytimes.com/2026/07/04/us/world-cup-soccer-us-politics-trump.html
-
-**Pensaba que el divorcio significaba enterrar el pasado**\
-`Mi matrimonio tuvo muchas cosas buenas que me costaba olvidar. Me alegro de no haber podido hacerlo.`\
-https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/modern-love-matrimonio-divorcio.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
