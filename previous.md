@@ -1,3 +1,11 @@
+**Stanley M. Gartler, Pioneer in Cancer Research, Dies at 102**\
+`He provided the first convincing evidence that cancerous tumors develop from a single mutated cell and later helped expose contamination by cells taken from Henrietta Lacks.`\
+https://www.nytimes.com/2026/07/04/science/stanley-m-gartler-dead.html
+
+**Fireworks Canceled in Some Western Towns Because of Wildfire Danger**\
+`This Fourth of July, fires burning in several states have forced local officials to rethink celebration plans.`\
+https://www.nytimes.com/2026/07/04/us/politics/fireworks-canceled-wildfire-danger.html
+
 **Nathan’s Hot Dog Contest Captivates Coney Island Despite Heat Wave**\
 `Temperatures climbed above 90 degrees on Saturday, as Joey Chestnut and Miki Sudo once again reigned supreme.`\
 https://www.nytimes.com/2026/07/04/nyregion/hot-dog-contest-nyc.html
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/07/04/world/africa/rwanda-july-4-liberation-day.htm
 **Corrections: July 4, 2026**\
 `Corrections that appeared in print on Saturday, July 4, 2026.`\
 https://www.nytimes.com/2026/07/04/pageoneplus/corrections-july-4-2026.html
-
-**Momentary Unity at a Funeral Masks Deep Divisions Among Iran’s Leaders**\
-`Ayatollah Mojtaba Khamenei’s absence has raised questions inside Iranian political circles about who is really running the country and allowed open divisions to fester.`\
-https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-funeral-divisions.html
-
-**‘Human Vapor’ Review: Netflix Remakes a Japanese Sci-Fi Curio**\
-`The director Ishiro Honda took a break from Godzilla with a villain who could turn himself into a cloud of gas. A new series pipes him into the 21st century.`\
-https://www.nytimes.com/2026/07/04/arts/television/human-vapor-review-netflix.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\

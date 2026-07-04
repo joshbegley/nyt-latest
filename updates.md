@@ -1,3 +1,11 @@
+**Stanley M. Gartler, Pioneer in Cancer Research, Dies at 102**\
+`He provided the first convincing evidence that cancerous tumors develop from a single mutated cell and later helped expose contamination by cells taken from Henrietta Lacks.`\
+https://www.nytimes.com/2026/07/04/science/stanley-m-gartler-dead.html
+
+**Fireworks Canceled in Some Western Towns Because of Wildfire Danger**\
+`This Fourth of July, fires burning in several states have forced local officials to rethink celebration plans.`\
+https://www.nytimes.com/2026/07/04/us/politics/fireworks-canceled-wildfire-danger.html
+
 **Nathan’s Hot Dog Contest Captivates Coney Island Despite Heat Wave**\
 `Temperatures climbed above 90 degrees on Saturday, as Joey Chestnut and Miki Sudo once again reigned supreme.`\
 https://www.nytimes.com/2026/07/04/nyregion/hot-dog-contest-nyc.html
