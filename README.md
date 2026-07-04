@@ -1,3 +1,7 @@
+**‘JusT&T Married’: lo que pasó fuera de la boda de Taylor Swift y Travis Kelce**\
+`La celebración privada de la pareja se convirtió en todo un espectáculo público a las puertas del Madison Square Garden.`\
+https://www.nytimes.com/es/2026/07/03/espanol/boda-taylor-swift-travis-kelce-fotos.html
+
 **¿Por qué Adam Sandler ofició la boda de Swift y Kelce?**\
 `El actor desempeñó un papel especial (y para algunos sorprendente) en la unión.`\
 https://www.nytimes.com/es/2026/07/03/espanol/adam-sandler-boda-taylor-swift.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/video/dining/100000011009968/peanut-butter-date-smores.h
 **Once the Centerpiece of Celebration, a Faded Declaration Recedes**\
 `Sunlight and abuse have taken a toll on the document, encased in bulletproof glass. But the Trump administration “hasn’t put much emphasis on it,” a former archivist notes.`\
 https://www.nytimes.com/2026/07/03/us/politics/once-the-centerpiece-of-celebration-a-faded-declaration-recedes.html
-
-**Fans Gather Outside the Wedding of the Year at Madison Square Garden**\
-`As temperatures climbed to nearly 100 degrees and police cordoned off streets around the arena, devoted Swift fans from across the country gathered in anticipation of Taylor Swift and Travis Kelce’s celebration.`\
-https://www.nytimes.com/2026/07/03/style/fans-gather-outside-the-wedding-of-the-year-at-madison-square-garden.html
 
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
