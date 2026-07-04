@@ -2,7 +2,7 @@
 `The president used his clemency power to further undermine environmental laws and to help a political supporter who pleaded guilty in a fraud involving Jack Abramoff.`\
 https://www.nytimes.com/2026/07/03/us/politics/trump-pardon-clean-air-act.html
 
-**In a Star-Filled Night, Adam Sandler Pops Up as the Wedding Officiant**\
+**Why Did Adam Sandler Officiate Taylor Swift and Travis Kelce’s Wedding?**\
 `The actor played a special — and surprising to some — role in the Swift-Kelce nuptials.`\
 https://www.nytimes.com/2026/07/03/style/adam-sandler-officiant-swift-kelce-wedding.html
 
