@@ -150,10 +150,6 @@ https://www.nytimes.com/es/2026/07/03/espanol/deportes/messi-mundial-argentina.h
 `In a nearly 13-minute address, Mayor Zohran Mamdani of New York highlighted the nation’s diversity and criticized those who would deprive immigrants of freedom.`\
 https://www.nytimes.com/2026/07/03/nyregion/mamdani-speech-july-4th.html
 
-**A U.S. Independence Celebration Damaged a Museum in Belgium**\
-`There were black marks left on a structure in a central Brussels park after a fireworks display, the American ambassador to Belgium confirmed.`\
-https://www.nytimes.com/2026/07/03/world/europe/belgium-building-damaged-america-250-fireworks.html
-
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
