@@ -1,3 +1,7 @@
+**For Cape Verde, There’s Victory in Their World Cup Defeat**\
+`The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but that didn’t mean there wasn’t a lot to celebrate.`\
+https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
+
 **What to Know About Ayatollah Ali Khamenei as His Funeral Services Begin in Iran**\
 `Iran’s longstanding supreme leader concentrated power, presided over crackdowns and built an armed proxy network that projected influence across the Middle East.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/iran-funeral-supreme-leader-ali-khamenei.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/04/movies/good-bad-movies-nytimes.html
 **Storms Cause Power Outages for 1 Million in Midwest, Northeast and Ontario**\
 `Strong winds from thunderstorms caused widespread cuts as the region sweltered in a heat wave.`\
 https://www.nytimes.com/2026/07/04/us/storms-power-outages-midwest-northeast-ontario.html
-
-**Trump me arruinó el 4 de julio**\
-`Se ha esfumado esa idea inspiradora de que todo el mundo es bienvenido a la fiesta de Estados Unidos: amigos, familia y también los recién llegados.`\
-https://www.nytimes.com/es/2026/07/04/espanol/opinion/trump-4-julio-estados-unidos.html
 
