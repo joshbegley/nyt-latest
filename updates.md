@@ -1,3 +1,7 @@
+**En busca de la película que define a Estados Unidos**\
+`Diez escritores exploran los filmes que capturan las esperanzas, los sueños, las desilusiones y la hilaridad de un país que cumple 250 años.`\
+https://www.nytimes.com/es/2026/07/04/espanol/cultura/pelicula-define-estados-unidos.html
+
 **La guerra llega a las gasolineras de Rusia**\
 `“¿Ahora estamos en la Unión Soviética?”, preguntó una mujer rusa, atónita y frustrada por las esperas para cargar combustible.`\
 https://www.nytimes.com/es/2026/07/04/espanol/mundo/rusia-escasez-combustible.html
