@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011011920/04vid-fourth-of-july-stadium-19850.html
+
 **The City Where You’ll Nearly Always Want a Jacket on the Fourth of July**\
 `As the East Coast bakes under a heat wave, San Francisco will be 66 degrees. But good luck watching the fireworks through the fog.`\
 https://www.nytimes.com/2026/07/04/weather/san-francisco-july-4-forecast-golden-gate-bridge-fireworks.html
