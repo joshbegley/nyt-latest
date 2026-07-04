@@ -1,3 +1,7 @@
+**Travis Kelce Twins With Taylor in Dior**\
+`Both in couture looks by Jonathan Anderson, the couple showed they were on the same page.`\
+https://www.nytimes.com/2026/07/03/style/travis-kelce-wedding-suit.html
+
 **3 Dead After Boat Capsizes on Wisconsin Lake During Severe Storm**\
 `Seven others were rescued from the waters of Geneva Lake, southwest of Milwaukee, the authorities said.`\
 https://www.nytimes.com/2026/07/03/us/boat-capsized-storm-wisconsin.html
@@ -149,12 +153,4 @@ https://www.nytimes.com/2026/07/03/weather/heat-wave-washington-dc-emergency-cal
 **Pilot Was Bitten by Bat After Swarm Invaded Hotel Room, Lawsuit Says**\
 `A pilot, who was treated for possible rabies exposure, sued Marriott International, claiming his Denver hotel failed to offer him a new room after he woke up to a swarm of bats last year.`\
 https://www.nytimes.com/2026/07/03/us/bats-rabies-marriott-lawsuit.html
-
-**JD Vance y Melania Trump también registraron fuertes aumentos en sus ingresos en 2025**\
-`Pero cada uno de ellos ganó solo una pequeña parte de los 2,2 millardos de dólares como mínimo que el presidente Trump ingresó.`\
-https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/melania-trump-jd-vance-ganancias-dolares.html
-
-**Artur Dmitriev, Two-Time Olympic Pairs Skating Champion, Dies at 58**\
-`He won gold medals in 1992 and 1998, and was known for his dynamic power, elegance and charisma.`\
-https://www.nytimes.com/2026/07/03/sports/artur-dmitriev-dead.html
 

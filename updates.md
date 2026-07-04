@@ -1,3 +1,7 @@
+**Travis Kelce Twins With Taylor in Dior**\
+`Both in couture looks by Jonathan Anderson, the couple showed they were on the same page.`\
+https://www.nytimes.com/2026/07/03/style/travis-kelce-wedding-suit.html
+
 **3 Dead After Boat Capsizes on Wisconsin Lake During Severe Storm**\
 `Seven others were rescued from the waters of Geneva Lake, southwest of Milwaukee, the authorities said.`\
 https://www.nytimes.com/2026/07/03/us/boat-capsized-storm-wisconsin.html
