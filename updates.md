@@ -1,3 +1,7 @@
+**July 4 Live Updates: America Celebrates Its 250th Birthday**\
+`The Times has reporters covering celebrations in places large and small, as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor. Tonight promises to bring a large-scale firework show in Washington, D.C.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **The Funeral of Iran’s Supreme Leader, Ali Khamenei**\
 `Iran’s new leaders are commemorating Ayatollah Ali Khamenei, killed on the first day of the U.S.-Israeli war against the country, with a funeral unlike any other in recent history.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/the-funeral-of-irans-supreme-leader-ali-khamenei.html

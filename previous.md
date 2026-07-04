@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/07/04/crosswords/wordle-review-1842.html
 https://www.nytimes.com/2026/07/04/crosswords/strands-sidekick-854.html
 
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
-`The Times has reporters covering celebrations across the country as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor.`\
+`The Times has reporters covering celebrations in places large and small, as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor. Tonight promises to bring a large-scale firework show in Washington, D.C.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
