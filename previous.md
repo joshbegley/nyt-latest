@@ -1,3 +1,7 @@
+**Defeated at the World Cup, Teams Sometimes Face Abuse and Violence**\
+`Anger and disappointment are not unusual for fans whose teams are knocked out. But some responses have been extreme.`\
+https://www.nytimes.com/2026/07/03/sports/soccer/world-cup-fans-anger.html
+
 **Dior viste de novia a Taylor Swift y se lleva el premio mayor**\
 `La estrella del pop dijo “Sí, acepto” con un vestido diseñado por Jonathan Anderson, el director creativo de la casa francesa.`\
 https://www.nytimes.com/es/2026/07/03/espanol/dior-vestido-novia-taylor-swift.html
@@ -149,8 +153,4 @@ https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 **Louisiana Supreme Court Pauses Case Against State Attorney General**\
 `Just hours after a New Orleans grand jury indicted Attorney General Liz Murrill on bullying charges, the court intervened, citing potential flaws in the process.`\
 https://www.nytimes.com/2026/07/03/us/louisiana-supreme-court-liz-murrill.html
-
-**As Heat Suffocates Washington DC, Calls to Emergency Medical Services Climb**\
-`Near 100-degree temperatures were expected to continue as medical workers prepared for more heat-related illnesses during celebrations of the nation’s 250th anniversary.`\
-https://www.nytimes.com/2026/07/03/weather/heat-wave-washington-dc-emergency-calls.html
 

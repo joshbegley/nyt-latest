@@ -23,7 +23,7 @@ https://www.nytimes.com/es/2026/07/03/espanol/taylor-swift-y-travis-kelce-casado
 https://www.nytimes.com/2026/07/03/world/europe/putin-ukraine-donbas-battlefield-visit.html
 
 **With Its Celebrity Guests, Taylor Swift’s Wedding Rivals the Met Gala**\
-`Top-secret celebrity guest lists! No cell phones! Big fashion moments! SUVs galore! New York usually gets only one party like this a year.`\
+`Top-secret celebrity guest lists! No cell phones! Big fashion moments! S.U.V.s galore! New York usually gets only one party like this a year.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-celebrity-guests.html
 
 **Taylor Swift Wears Dior Dress by Jonathan Anderson for MSG Wedding**\
