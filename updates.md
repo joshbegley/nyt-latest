@@ -1,3 +1,7 @@
+**Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
+`The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
+https://www.nytimes.com/2026/07/04/world/americas/mexicos-secret-12th-man-in-the-world-cup-baby-jesus.html
+
 **Taylor Swift y Travis Kelce, protagonistas de una boda real en EE. UU.**\
 `Las bodas reales pueden unir linajes o imperios, pero siempre actualizan y reafirman una identidad nacional. El enlace entre la estrella del pop y el futbolista trasciende fronteras y anuncia un poder cultural hegemónico.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/taylor-swift-boda-real-eeuu.html
