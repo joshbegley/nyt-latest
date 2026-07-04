@@ -1,3 +1,7 @@
+**Will Iran’s New Supreme Leader, Mojtaba Khamenei, Attend His Father’s Funeral?**\
+`Ayatollah Mojtaba Khamenei has not been seen in public since March, after his father, Ayatollah Ali Khamenei, was killed in an Israeli strike.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei-son.html
+
 **The Unifying Speech We Won’t Get This Independence Day**\
 `America, we need a new beginning.`\
 https://www.nytimes.com/2026/07/04/opinion/250-america-independence-day.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
 **What to Know About Taylor Swift and Travis Kelce’s Wedding Festivities**\
 `Yes, they got married. Yes, they held a huge event inside Madison Square Garden. No, the guests did not post much about it. (At least they haven’t yet.)`\
 https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-wedding-recap.html
-
-**En busca de la película que define a Estados Unidos**\
-`Diez escritores exploran los filmes que capturan las esperanzas, los sueños, las desilusiones y la hilaridad de un país que cumple 250 años.`\
-https://www.nytimes.com/es/2026/07/04/espanol/cultura/pelicula-define-estados-unidos.html
 
