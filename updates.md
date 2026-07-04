@@ -1,3 +1,7 @@
+**For Cape Verde, There’s Victory in Their World Cup Defeat**\
+`The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but that didn’t mean there wasn’t a lot to celebrate.`\
+https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
+
 **Iran Projects Unity to the World While Pursuing a Crackdown at Home**\
 `The country’s security service has continued to target civil society and dissidents, including thousands of arrests since the launch of the U.S.-Israeli war in February.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/iran-dissidents-crackdown.html
