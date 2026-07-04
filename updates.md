@@ -1,3 +1,11 @@
+**Taylor Swift Wears Dior Dress by Jonathan Anderson for MSG Wedding**\
+`The pop star said “I do” to a gown designed by Jonathan Anderson, the French house’s creative director.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-dress-dior.html
+
+**Live Updates: Taylor Swift and Travis Kelce Are Officially Married, With Star-Studded M.S.G. Bash Underway**\
+`The pop star, football player and 1,000 of their closest and most famous friends celebrate pop culture’s most anticipated union.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **Taylor Swift and Travis Kelce Are Married**\
 `The couple shared the news through a digital advertisement outside Madison Square Garden, as well as a news release from Swift’s longtime publicist.`\
 https://www.nytimes.com/2026/07/03/fashion/weddings/taylor-swift-travis-kelce-married-wedding.html
