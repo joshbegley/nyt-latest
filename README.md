@@ -1,3 +1,23 @@
+**My Sister Insists That She Can’t Work. Should I Pay Her Bills?**\
+`I want to help, but I worry financial support may enable her rather than help her.`\
+https://www.nytimes.com/2026/07/04/magazine/sister-money-lending-ethics.html
+
+**A Big Week in the West, Canada vs. Morocco, Trade and a Canada-U.S. Quiz**\
+`Prime Minister Mark Carney further diversified trade away from the U.S. this week by announcing multibillion dollar investments in Alberta and British Columbia.`\
+https://www.nytimes.com/2026/07/04/world/canada/carney-alberta-pipeline-canada-us.html
+
+**NYT Connections Answers for July 5, 2026.**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
+https://www.nytimes.com/2026/07/04/crosswords/connections-companion-1120.html
+
+**Today’s Wordle Hints for July 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
+https://www.nytimes.com/2026/07/04/crosswords/wordle-review-1842.html
+
+**NYT Strands Hints for July 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
+https://www.nytimes.com/2026/07/04/crosswords/strands-sidekick-854.html
+
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `In many places, including the nation’s capital, the punishing heat has forced organizers to adjust plans for some events and to cancel others.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
@@ -165,26 +185,6 @@ https://www.nytimes.com/es/2026/07/04/espanol/opinion/trump-4-julio-estados-unid
 **Los mejores consejos para comer saludable en 2026**\
 `Analizamos las noticias más destacadas del año sobre nutrición para extraer 10 lecciones útiles.`\
 https://www.nytimes.com/es/2026/07/04/espanol/consejos-alimentacion-saludable-2026.html
-
-**Australia Tried to Push Back on China. China Pushed Harder.**\
-`Relations between Beijing and Canberra have improved over the past four years, but China’s ambassador is now warning of a ‘Cold War mentality.”`\
-https://www.nytimes.com/2026/07/04/world/asia/australia-china-politics.html
-
-**Quote of the Day: One Nation, Many Americas**\
-`Quotation of the Day for Saturday, July 4, 2026.`\
-https://www.nytimes.com/2026/07/04/pageoneplus/quote-of-the-day-one-nation-many-americas.html
-
-**Funeral Procession for Khamenei Will Visit 5 Cities in Iran and Iraq**\
-`After lying in state in Tehran, Mr. Khamenei’s body will be taken to some of the holiest sites in Shiite Islam during a four-day procession that is expected to draw millions.`\
-https://www.nytimes.com/2026/07/04/world/middleeast/khamenei-funeral-itineray-iran-iraq-shia.html
-
-**Scenes From Taylor Swift’s NYC Wedding: Fans, Stars and More**\
-`The scene outside Taylor Swift’s wedding in Manhattan had the drama and emotion of one of her albums.`\
-https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-fans-guests.html
-
-**‘JusT&T Married’: lo que pasó fuera de la boda de Taylor Swift y Travis Kelce**\
-`La celebración privada de la pareja se convirtió en todo un espectáculo público a las puertas del Madison Square Garden.`\
-https://www.nytimes.com/es/2026/07/03/espanol/boda-taylor-swift-travis-kelce-fotos.html
 
 **Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
