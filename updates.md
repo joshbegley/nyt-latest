@@ -1,3 +1,7 @@
+**Will Iran’s New Supreme Leader, Mojtaba Khamenei, Attend His Father’s Funeral?**\
+`Ayatollah Mojtaba Khamenei has not been seen in public since March, after his father, Ayatollah Ali Khamenei, was killed in an Israeli strike.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei-son.html
+
 **The Unifying Speech We Won’t Get This Independence Day**\
 `America, we need a new beginning.`\
 https://www.nytimes.com/2026/07/04/opinion/250-america-independence-day.html
