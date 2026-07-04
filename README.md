@@ -108,7 +108,7 @@ https://www.nytimes.com/es/2026/07/04/espanol/america-latina/mexico-turismo-mund
 
 **How the ‘Beautiful Game’ Is Deflecting America’s Political Turmoil**\
 `Amid protests and rancor, World Cup soccer proves a bright spot in the United States and around the world.`\
-https://www.nytimes.com/2026/07/04/us/how-the-beautiful-game-is-deflecting-americas-political-turmoil.html
+https://www.nytimes.com/2026/07/04/us/world-cup-soccer-us-politics-trump.html
 
 **Pensaba que el divorcio significaba enterrar el pasado**\
 `Mi matrimonio tuvo muchas cosas buenas que me costaba olvidar. Me alegro de no haber podido hacerlo.`\
