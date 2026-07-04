@@ -1,3 +1,7 @@
+**Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
+`As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
+
 **Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
 `The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
 https://www.nytimes.com/2026/07/04/world/americas/mexico-world-cup-baby-jesus.html
