@@ -1,3 +1,7 @@
+**Trump me arruinó el 4 de julio**\
+`Se ha esfumado esa idea inspiradora de que todo el mundo es bienvenido a la fiesta de Estados Unidos: amigos, familia y también los recién llegados.`\
+https://www.nytimes.com/es/2026/07/04/espanol/opinion/trump-4-julio-estados-unidos.html
+
 **Los mejores consejos para comer saludable en 2026**\
 `Analizamos las noticias más destacadas del año sobre nutrición para extraer 10 lecciones útiles.`\
 https://www.nytimes.com/es/2026/07/04/espanol/consejos-alimentacion-saludable-2026.html
