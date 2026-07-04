@@ -1,3 +1,7 @@
+**Democrats Clash With Trump, as Political Tensions Rise on America’s 250th**\
+`Gavin Newsom and Wes Moore, potential 2028 contenders, cast President Trump’s record as a betrayal of American ideals, while the president disparaged their party as extreme.`\
+https://www.nytimes.com/2026/07/04/us/politics/democrats-clash-trump-america-250th-birthday.html
+
 **We Hate to Break It to You, but Maybe We’re Not That Polarized**\
 `Americans have been told for at least two decades that they share less and less, while the data show the actual overlap holding roughly steady.`\
 https://www.nytimes.com/2026/07/04/opinion/common-ground-polarization-red-blue-america.html
