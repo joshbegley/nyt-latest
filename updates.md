@@ -1,3 +1,7 @@
+**Prince Harry Will Travel to London, but Without His Family**\
+`The prince’s wife, Meghan, and their children could still join him for other parts of his trip outside the capital, a person close to the family said.`\
+https://www.nytimes.com/2026/07/04/world/europe/prince-harry-london-trip-meghan-children.html
+
 **Stanley M. Gartler, Pioneer in Cancer Research, Dies at 102**\
 `He provided the first convincing evidence that cancerous tumors develop from a single mutated cell and later helped expose contamination by cells taken from Henrietta Lacks.`\
 https://www.nytimes.com/2026/07/04/science/stanley-m-gartler-dead.html

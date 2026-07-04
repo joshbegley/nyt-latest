@@ -1,3 +1,7 @@
+**Prince Harry Will Travel to London, but Without His Family**\
+`The prince’s wife, Meghan, and their children could still join him for other parts of his trip outside the capital, a person close to the family said.`\
+https://www.nytimes.com/2026/07/04/world/europe/prince-harry-london-trip-meghan-children.html
+
 **Stanley M. Gartler, Pioneer in Cancer Research, Dies at 102**\
 `He provided the first convincing evidence that cancerous tumors develop from a single mutated cell and later helped expose contamination by cells taken from Henrietta Lacks.`\
 https://www.nytimes.com/2026/07/04/science/stanley-m-gartler-dead.html
@@ -157,14 +161,6 @@ https://www.nytimes.com/2026/07/04/us/politics/trump-coin-crypto-investors-loss.
 **July Fourth Heat Wave Forecast: Latest Updates**\
 `The Midwest will get a break but temperatures for much of the East Coast will again climb above 100 degrees. Stay indoors as much as possible, experts said.`\
 https://www.nytimes.com/2026/07/04/weather/july-fourth-heat-wave-updates.html
-
-**In Rwanda, July 4 Is Liberation Day From Genocide**\
-`The Central African nation remembers the end of a murderous campaign against ethnic Tutsis that killed hundreds of thousands of people.`\
-https://www.nytimes.com/2026/07/04/world/africa/rwanda-july-4-liberation-day.html
-
-**Corrections: July 4, 2026**\
-`Corrections that appeared in print on Saturday, July 4, 2026.`\
-https://www.nytimes.com/2026/07/04/pageoneplus/corrections-july-4-2026.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
