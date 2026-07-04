@@ -1,3 +1,7 @@
+**Scenes From Taylor Swift’s NYC Wedding: Fans, Stars and More**\
+`The scene outside Taylor Swift’s wedding in Manhattan had the drama and emotion of one of her albums.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-fans-guests.html
+
 **‘JusT&T Married’: lo que pasó fuera de la boda de Taylor Swift y Travis Kelce**\
 `La celebración privada de la pareja se convirtió en todo un espectáculo público a las puertas del Madison Square Garden.`\
 https://www.nytimes.com/es/2026/07/03/espanol/boda-taylor-swift-travis-kelce-fotos.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/2026/07/03/us/politics/air-force-officer-arrested-trump-
 **Peanut Butter Date S’mores**\
 `Looking for a twist on the classic s’more? The New York Times Cooking contributor Ali Slagle is here with a peanut-butter-and-date version, and it’s perfection.`\
 https://www.nytimes.com/video/dining/100000011009968/peanut-butter-date-smores.html
-
-**Once the Centerpiece of Celebration, a Faded Declaration Recedes**\
-`Sunlight and abuse have taken a toll on the document, encased in bulletproof glass. But the Trump administration “hasn’t put much emphasis on it,” a former archivist notes.`\
-https://www.nytimes.com/2026/07/03/us/politics/once-the-centerpiece-of-celebration-a-faded-declaration-recedes.html
 
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\

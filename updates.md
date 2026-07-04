@@ -1,3 +1,7 @@
+**Scenes From Taylor Swift’s NYC Wedding: Fans, Stars and More**\
+`The scene outside Taylor Swift’s wedding in Manhattan had the drama and emotion of one of her albums.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-fans-guests.html
+
 **‘JusT&T Married’: lo que pasó fuera de la boda de Taylor Swift y Travis Kelce**\
 `La celebración privada de la pareja se convirtió en todo un espectáculo público a las puertas del Madison Square Garden.`\
 https://www.nytimes.com/es/2026/07/03/espanol/boda-taylor-swift-travis-kelce-fotos.html
