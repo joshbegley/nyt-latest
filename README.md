@@ -1,3 +1,7 @@
+**Trump me arruinó el 4 de julio**\
+`Se ha esfumado esa idea inspiradora de que todo el mundo es bienvenido a la fiesta de Estados Unidos: amigos, familia y también los recién llegados.`\
+https://www.nytimes.com/es/2026/07/04/espanol/opinion/trump-4-julio-estados-unidos.html
+
 **Los mejores consejos para comer saludable en 2026**\
 `Analizamos las noticias más destacadas del año sobre nutrición para extraer 10 lecciones útiles.`\
 https://www.nytimes.com/es/2026/07/04/espanol/consejos-alimentacion-saludable-2026.html
@@ -141,10 +145,6 @@ https://www.nytimes.com/2026/07/03/sports/football/david-s-doty-dead.html
 **Prince William Goes on Travis Kelce’s ‘New Heights’ Podcast Before His Wedding**\
 `The British royal didn’t offer marriage advice. Instead, he discussed football, soccer and reminisced about when they all met in London during the Eras tour.`\
 https://www.nytimes.com/2026/07/03/style/prince-william-travis-kelce-new-heights.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
 
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
