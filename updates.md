@@ -1,3 +1,7 @@
+**For Cape Verde, There’s Victory in Their World Cup Defeat**\
+`The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but there was still plenty to celebrate.`\
+https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
+
 **Will Iran’s New Supreme Leader, Mojtaba Khamenei, Attend His Father’s Funeral?**\
 `Ayatollah Mojtaba Khamenei has not been seen in public since March, after his father, Ayatollah Ali Khamenei, was killed in an Israeli strike.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei-son.html

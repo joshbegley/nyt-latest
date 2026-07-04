@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-
 https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
 
 **For Cape Verde, There’s Victory in Their World Cup Defeat**\
-`The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but that didn’t mean there wasn’t a lot to celebrate.`\
+`The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but there was still plenty to celebrate.`\
 https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
 
 **What to Know About Ayatollah Ali Khamenei as His Funeral Services Begin in Iran**\
