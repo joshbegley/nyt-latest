@@ -162,10 +162,6 @@ https://www.nytimes.com/2026/07/03/us/america-250-fourth-july.html
 `The swimmer was treated for a minor foot injury after being bitten by “unknown marine life,” New York State officials said.`\
 https://www.nytimes.com/2026/07/03/nyregion/jones-beach-shark-attack.html
 
-**Trump Targets Not Just Georgia’s Vote, but Also Trust in Elections**\
-`The president has sent 260 F.B.I. analysts to Georgia, repeating his baseless claims of fraud in 2020. But critics say the intention is to undermine overall confidence in the electoral process.`\
-https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-integrity.html
-
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
