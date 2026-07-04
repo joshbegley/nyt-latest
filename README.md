@@ -1,3 +1,7 @@
+**Miles de mexicanos le piden al Niño Jesús una alegría en el Mundial**\
+`La tradición de vestir una estatuilla del Niño Jesús empezó en una iglesia de Ciudad de México hace casi 60 años. Se trasladó a la catedral para este Mundial y México aún no ha perdido.`\
+https://www.nytimes.com/es/2026/07/04/espanol/america-latina/nino-jesus-futbol-mexico.html
+
 **White Nationalists March in Washington Amid 250th Anniversary Celebrations**\
 `The group, wearing clothing associated with the organization Patriot Front, assembled near Capitol Hill before leaving the district.`\
 https://www.nytimes.com/2026/07/04/us/white-nationalists-march-in-washington-amid-250th-anniversary-celebrations.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/interactive/2026/07/04/world/europe/ukraine-russia-crime
 **Things That Drive Us Crazy About Money in America**\
 `For all that’s good about our financial lives, there are distinctly American things that are decidedly suboptimal. Please, can the 1040 fit on a postcard?`\
 https://www.nytimes.com/2026/07/04/your-money/american-taxes-tipping-loans-money.html
-
-**Readers Pick the Definitive Films That Capture America**\
-`Though “Idiocracy” and “The Godfather” topped their list, the sheer range of suggestions shows how there are many ways to understand the country.`\
-https://www.nytimes.com/2026/07/04/movies/readers-choose-films-that-capture-america.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
