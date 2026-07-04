@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/07/04/world/middleeast/iran-dissidents-crackdown.ht
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
 
-**What to Know About Taylor Swift and Travis Kelce’s Wedding Festivities**\
-`Yes, they got married. Yes, they held a huge event inside Madison Square Garden. No, the guests did not post much about it. (At least they haven’t yet.)`\
-https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-wedding-recap.html
-
