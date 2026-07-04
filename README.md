@@ -150,10 +150,6 @@ https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
 `Esos temores muestran que los objetivos bélicos de Estados Unidos e Israel, que eran muy similares al principio de la guerra, se distanciaron rápidamente de forma radical.`\
 https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques.html
 
-**Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
-`The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
-https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-nicks-performance.html
-
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
