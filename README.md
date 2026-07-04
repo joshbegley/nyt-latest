@@ -1,3 +1,11 @@
+**In Backing President Trump’s Policies, Justice Alito Finds His Moment**\
+`This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
+https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
+
+**The Purgatory Job Market of 2026**\
+`(No description)`\
+https://www.nytimes.com/2026/07/04/opinion/purgatory-job-market.html
+
 **Will Iran’s New Supreme Leader, Mojtaba Khamenei, Attend His Father’s Funeral?**\
 `Ayatollah Mojtaba Khamenei has not been seen in public since March, after his father, Ayatollah Ali Khamenei, was killed in an Israeli strike.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei-son.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/movies/100000010926526/most-american-movie-there-w
 **Trump’s Travel Crackdown Has a Winner: Mexican Tourism**\
 `While critics question just how much the World Cup will benefit tourism long term, Mexican officials believe it can help boost the country to fifth most visited in the world.`\
 https://www.nytimes.com/2026/07/04/world/americas/world-cup-mexico-tourism-trump.html
-
-**Book Review: ‘American Trickster,’ by Ru Marshall**\
-`In “American Trickster,” Ru Marshall takes on the epic story of Carlos Castaneda.`\
-https://www.nytimes.com/2026/07/04/books/review/american-trickster-ru-marshall.html
-
-**Iran Projects Unity to the World While Pursuing a Crackdown at Home**\
-`The country’s security service has continued to target civil society and dissidents, including thousands of arrests since the launch of the U.S.-Israeli war in February.`\
-https://www.nytimes.com/2026/07/04/world/middleeast/iran-dissidents-crackdown.html
 
 **Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
