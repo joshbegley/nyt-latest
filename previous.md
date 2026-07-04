@@ -10,13 +10,13 @@ https://www.nytimes.com/es/2026/07/04/espanol/opinion/trump-4-julio-estados-unid
 `Analizamos las noticias más destacadas del año sobre nutrición para extraer 10 lecciones útiles.`\
 https://www.nytimes.com/es/2026/07/04/espanol/consejos-alimentacion-saludable-2026.html
 
-**Quote of the Day: One Nation, Many Americas**\
-`Quotation of the Day for Saturday, July 4, 2026.`\
-https://www.nytimes.com/2026/07/04/pageoneplus/quote-of-the-day-one-nation-many-americas.html
-
 **Australia Tried to Push Back on China. China Pushed Harder.**\
 `Relations between Beijing and Canberra have improved over the past four years, but China’s ambassador is now warning of a ‘Cold War mentality.”`\
 https://www.nytimes.com/2026/07/04/world/asia/australia-china-politics.html
+
+**Quote of the Day: One Nation, Many Americas**\
+`Quotation of the Day for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/04/pageoneplus/quote-of-the-day-one-nation-many-americas.html
 
 **Funeral Procession for Khamenei Will Visit 5 Cities in Iran and Iraq**\
 `After lying in state in Tehran, Mr. Khamenei’s body will be taken to some of the holiest sites in Shiite Islam during a four-day procession that is expected to draw millions.`\
