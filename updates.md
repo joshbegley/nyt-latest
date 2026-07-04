@@ -1,3 +1,7 @@
+**The City Where You’ll Nearly Always Want a Jacket on the Fourth of July**\
+`As the East Coast bakes under a heat wave, San Francisco will be 66 degrees. But good luck watching the fireworks through the fog.`\
+https://www.nytimes.com/2026/07/04/weather/san-francisco-july-4-forecast-golden-gate-bridge-fireworks.html
+
 **Justice Department Defends Dropping Charges Against Indian Billionaire**\
 `An agency official said that Gautam Adani’s offer to invest $10 billion in the United States did not affect the decision to abandon a bribery case against him.`\
 https://www.nytimes.com/2026/07/04/nyregion/adani-justice-department.html
