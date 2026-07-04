@@ -1,3 +1,15 @@
+**Quote of the Day: One Nation, Many Americas**\
+`Quotation of the Day for Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/04/pageoneplus/quote-of-the-day-one-nation-many-americas.html
+
+**Australia Tried to Push Back on China. China Pushed Harder.**\
+`Relations between Beijing and Canberra have improved over the past four years, but China’s ambassador is now warning of a ‘Cold War mentality.”`\
+https://www.nytimes.com/2026/07/04/world/asia/australia-china-politics.html
+
+**Funeral Procession for Khamenei Will Visit 5 Cities in Iran and Iraq**\
+`After lying in state in Tehran, Mr. Khamenei’s body will be taken to some of the holiest sites in Shiite Islam during a four-day procession that is expected to draw millions.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/khamenei-funeral-itineray-iran-iraq-shia.html
+
 **Scenes From Taylor Swift’s NYC Wedding: Fans, Stars and More**\
 `The scene outside Taylor Swift’s wedding in Manhattan had the drama and emotion of one of her albums.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-fans-guests.html
@@ -141,14 +153,6 @@ https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques
 **Stevie Nicks Is Expected to Perform With Taylor Swift at MSG Wedding Celebration**\
 `The bride did a sound check with the music legend, according to one person with knowledge of the event. A second person, who appeared to be working the event, was overheard describing a performance by Paul McCartney.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-stevie-nicks-performance.html
-
-**Air Force Detains Officer Who Called for Trump’s Impeachment at Capitol**\
-`Maj. Jason Watson, who was in uniform, was arrested during a protest that followed a news conference on Wednesday.`\
-https://www.nytimes.com/2026/07/03/us/politics/air-force-officer-arrested-trump-impeachment.html
-
-**Peanut Butter Date S’mores**\
-`Looking for a twist on the classic s’more? The New York Times Cooking contributor Ali Slagle is here with a peanut-butter-and-date version, and it’s perfection.`\
-https://www.nytimes.com/video/dining/100000011009968/peanut-butter-date-smores.html
 
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
