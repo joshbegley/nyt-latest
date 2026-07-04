@@ -1,3 +1,7 @@
+**Storms Cause Power Outages for 1 Million in Midwest, Northeast and Ontario**\
+`Strong winds from thunderstorms caused widespread cuts as the region sweltered in a heat wave.`\
+https://www.nytimes.com/2026/07/04/us/storms-power-outages-midwest-northeast-ontario.html
+
 **Trump me arruinó el 4 de julio**\
 `Se ha esfumado esa idea inspiradora de que todo el mundo es bienvenido a la fiesta de Estados Unidos: amigos, familia y también los recién llegados.`\
 https://www.nytimes.com/es/2026/07/04/espanol/opinion/trump-4-julio-estados-unidos.html
@@ -141,10 +145,6 @@ https://www.nytimes.com/2026/07/03/nyregion/victoria-cruz-dead.html
 **David S. Doty, Judge Who Helped Shape the Modern N.F.L., Dies at 96**\
 `He presided over the 1993 agreement that led to free agency and the salary cap, and for years oversaw the league’s disputes with its players.`\
 https://www.nytimes.com/2026/07/03/sports/football/david-s-doty-dead.html
-
-**Prince William Goes on Travis Kelce’s ‘New Heights’ Podcast Before His Wedding**\
-`The British royal didn’t offer marriage advice. Instead, he discussed football, soccer and reminisced about when they all met in London during the Eras tour.`\
-https://www.nytimes.com/2026/07/03/style/prince-william-travis-kelce-new-heights.html
 
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
