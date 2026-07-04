@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei
 `America, we need a new beginning.`\
 https://www.nytimes.com/2026/07/04/opinion/250-america-independence-day.html
 
-**No One Wants to Hear It, but Maybe We’re Not That Polarized**\
+**We Hate to Break It to You, but Maybe We’re Not That Polarized**\
 `Americans have been told for at least two decades that they share less and less, while the data show the actual overlap holding roughly steady.`\
 https://www.nytimes.com/2026/07/04/opinion/common-ground-polarization-red-blue-america.html
 

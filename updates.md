@@ -1,3 +1,7 @@
+**We Hate to Break It to You, but Maybe We’re Not That Polarized**\
+`Americans have been told for at least two decades that they share less and less, while the data show the actual overlap holding roughly steady.`\
+https://www.nytimes.com/2026/07/04/opinion/common-ground-polarization-red-blue-america.html
+
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/iran-ayatollah-funeral.html
