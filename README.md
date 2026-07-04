@@ -178,10 +178,6 @@ https://www.nytimes.com/2026/07/04/business/mangos-ai-stocks.html
 `A year after a catastrophic flood killed 139 people in the Texas Hill Country, communities along the Guadalupe River are still rebuilding.`\
 https://www.nytimes.com/2026/07/04/us/as-the-nation-turns-250-a-texas-town-grieves-instead.html
 
-**Home Swapping: How Does It Work, and Is It Worth Your While?**\
-`Before you go live in someone else’s house, and have them live in yours, make sure everyone is covered.`\
-https://www.nytimes.com/2026/07/04/realestate/home-swapping-how-does-it-work-and-is-it-worth-your-while.html
-
 **Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
