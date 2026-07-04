@@ -1,3 +1,7 @@
+**July 4 Live Updates: America Celebrates Its 250th Birthday**\
+`In many places, including the nation’s capital, the punishing heat has forced organizers to adjust plans for some events and to cancel others.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
 `The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
 https://www.nytimes.com/2026/07/04/world/americas/mexicos-secret-12th-man-in-the-world-cup-baby-jesus.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-fans-guests.html
 **‘JusT&T Married’: lo que pasó fuera de la boda de Taylor Swift y Travis Kelce**\
 `La celebración privada de la pareja se convirtió en todo un espectáculo público a las puertas del Madison Square Garden.`\
 https://www.nytimes.com/es/2026/07/03/espanol/boda-taylor-swift-travis-kelce-fotos.html
-
-**¿Por qué Adam Sandler ofició la boda de Swift y Kelce?**\
-`El actor desempeñó un papel especial (y para algunos sorprendente) en la unión.`\
-https://www.nytimes.com/es/2026/07/03/espanol/adam-sandler-boda-taylor-swift.html
 
 **Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\

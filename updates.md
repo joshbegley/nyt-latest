@@ -1,3 +1,7 @@
+**July 4 Live Updates: America Celebrates Its 250th Birthday**\
+`In many places, including the nation’s capital, the punishing heat has forced organizers to adjust plans for some events and to cancel others.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **How Do You Celebrate America’s 250-Year Experiment? However You Want.**\
 `Away from the turmoil in Washington, Americans will mark July 4 in their own patriotic ways. Expect rodeos, line dancing, Tejano music and Led Zeppelin.`\
 https://www.nytimes.com/2026/07/04/us/america-250-us-independence-day-celebrations.html
