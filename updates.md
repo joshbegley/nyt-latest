@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011011189/04iran-funeral-reporter-updates-F0BF933CQSY.html
+
+**In Britain, July 4 Is Mostly Just a Saturday**\
+`Independence Day does not loom large in Britain’s public imagination, though cultural institutions did note the day and King Charles III issued a statement.`\
+https://www.nytimes.com/2026/07/04/world/europe/in-britain-july-4-is-mostly-just-a-saturday.html
+
+**Justice Alito Gives No Indication He’s Ready to Step Down From the Supreme Court**\
+`This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
+https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
+
 **In Backing President Trump’s Policies, Justice Alito Finds His Moment**\
 `This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
 https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
