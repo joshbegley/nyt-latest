@@ -1,3 +1,11 @@
+**Boxed Sets**\
+`Rich Katz’s latest Sunday puzzle woos us with some lovely triangles.`\
+https://www.nytimes.com/2026/07/04/crosswords/daily-puzzle-2026-07-05.html
+
+**Technology Ruined Our Lazy Days at the Lake**\
+`Living at the lake house taught me about risk taking and other life lessons.`\
+https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-dad.html
+
 **Canada Has a New Obsession: Soccer**\
 `A surprising World Cup run ended on Saturday against Morocco, but the Canadian successes, as a team and a host, are likely to endure.`\
 https://www.nytimes.com/2026/07/04/world/canada/world-cup-canada-morocco.html
