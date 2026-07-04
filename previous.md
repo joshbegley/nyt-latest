@@ -1,3 +1,31 @@
+**The Unifying Speech We Won’t Get This Independence Day**\
+`America, we need a new beginning.`\
+https://www.nytimes.com/2026/07/04/opinion/250-america-independence-day.html
+
+**No One Wants to Hear It, but Maybe We’re Not That Polarized**\
+`Americans have been told for at least two decades that they share less and less, while the data show the actual overlap holding roughly steady.`\
+https://www.nytimes.com/2026/07/04/opinion/common-ground-polarization-red-blue-america.html
+
+**Founding Father vs. Foundering Toddler**\
+`No. 1 puts No. 45/47 to shame.`\
+https://www.nytimes.com/2026/07/04/opinion/founding-father-vs-foundering-toddler.html
+
+**What We Should Learn From Nordic Happiness**\
+`Scandinavia is the land of five-week vacations, virtually free university, one-year parental leaves, easy child care — and very happy citizens.`\
+https://www.nytimes.com/2026/07/04/opinion/norway-nordic-social-democracy.html
+
+**The Unifying Speech We Won’t Get This Independence Day**\
+`America, we need a new beginning.`\
+https://www.nytimes.com/video/opinion/100000010994509/the-unifying-speech-we-wont-get-this-independence-day.html
+
+**The Lake House That Taught Me How to Dad**\
+`Living at the lake house taught me about risk taking and other life lessons.`\
+https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-dad.html
+
+**America at 250**\
+`The truth worth celebrating this summer is that our country is still being made.`\
+https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
+
 **For Cape Verde, There’s Victory in Their World Cup Defeat**\
 `The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but that didn’t mean there wasn’t a lot to celebrate.`\
 https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-wedding-recap
 **En busca de la película que define a Estados Unidos**\
 `Diez escritores exploran los filmes que capturan las esperanzas, los sueños, las desilusiones y la hilaridad de un país que cumple 250 años.`\
 https://www.nytimes.com/es/2026/07/04/espanol/cultura/pelicula-define-estados-unidos.html
-
-**La guerra llega a las gasolineras de Rusia**\
-`“¿Ahora estamos en la Unión Soviética?”, preguntó una mujer rusa, atónita y frustrada por las esperas para cargar combustible.`\
-https://www.nytimes.com/es/2026/07/04/espanol/mundo/rusia-escasez-combustible.html
-
-**A Look at the Many Knicks Murals That Popped Up After the Championship**\
-`To celebrate the team, most Knicks fans bought hats and T-shirts. For New York’s street artists, a different kind of impulse took hold.`\
-https://www.nytimes.com/2026/07/04/nyregion/nyc-knicks-murals.html
-
-**Fourth of July Weekend Presents a Huge Logistical Challenge for New York**\
-`A flurry of major events is expected to draw large crowds, requiring extensive planning and security preparations. Oh, and there’s also a heat wave.`\
-https://www.nytimes.com/2026/07/04/nyregion/nyc-july-4th-security.html
-
-**NYT Spelling Bee Answers for July 4, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/04/crosswords/spelling-bee-forum.html
-
-**How Mamdani Sees the World Through Soccer**\
-`Mayor Zohran Mamdani says that the sport embodies his political identity, even as the World Cup has been colored by corporate greed and geopolitical concerns.`\
-https://www.nytimes.com/2026/07/04/nyregion/mamdani-world-cup-fifa.html
-
-**Why Loving Good-Bad Movies Feels All Good**\
-`A pop culture reporter explains why she revels in debating movies that cross the line from bad to sublime.`\
-https://www.nytimes.com/2026/07/04/movies/good-bad-movies-nytimes.html
-
-**Storms Cause Power Outages for 1 Million in Midwest, Northeast and Ontario**\
-`Strong winds from thunderstorms caused widespread cuts as the region sweltered in a heat wave.`\
-https://www.nytimes.com/2026/07/04/us/storms-power-outages-midwest-northeast-ontario.html
 

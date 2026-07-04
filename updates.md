@@ -1,3 +1,31 @@
+**The Unifying Speech We Won’t Get This Independence Day**\
+`America, we need a new beginning.`\
+https://www.nytimes.com/2026/07/04/opinion/250-america-independence-day.html
+
+**No One Wants to Hear It, but Maybe We’re Not That Polarized**\
+`Americans have been told for at least two decades that they share less and less, while the data show the actual overlap holding roughly steady.`\
+https://www.nytimes.com/2026/07/04/opinion/common-ground-polarization-red-blue-america.html
+
+**Founding Father vs. Foundering Toddler**\
+`No. 1 puts No. 45/47 to shame.`\
+https://www.nytimes.com/2026/07/04/opinion/founding-father-vs-foundering-toddler.html
+
+**What We Should Learn From Nordic Happiness**\
+`Scandinavia is the land of five-week vacations, virtually free university, one-year parental leaves, easy child care — and very happy citizens.`\
+https://www.nytimes.com/2026/07/04/opinion/norway-nordic-social-democracy.html
+
+**The Unifying Speech We Won’t Get This Independence Day**\
+`America, we need a new beginning.`\
+https://www.nytimes.com/video/opinion/100000010994509/the-unifying-speech-we-wont-get-this-independence-day.html
+
+**The Lake House That Taught Me How to Dad**\
+`Living at the lake house taught me about risk taking and other life lessons.`\
+https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-dad.html
+
+**America at 250**\
+`The truth worth celebrating this summer is that our country is still being made.`\
+https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
+
 **For Cape Verde, There’s Victory in Their World Cup Defeat**\
 `The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but that didn’t mean there wasn’t a lot to celebrate.`\
 https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
