@@ -118,13 +118,13 @@ https://www.nytimes.com/2026/07/04/opinion/norway-nordic-social-democracy.html
 `America, we need a new beginning.`\
 https://www.nytimes.com/video/opinion/100000010994509/the-unifying-speech-we-wont-get-this-independence-day.html
 
-**Five Questions That Will Determine America’s Next 50 Years**\
-`The truth worth celebrating this summer is that our country is still being made.`\
-https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
-
 **Technology Ruined Our Lazy Days at the Lake**\
 `Living at the lake house taught me about risk taking and other life lessons.`\
 https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-dad.html
+
+**Five Questions That Will Determine America’s Next 50 Years**\
+`The truth worth celebrating this summer is that our country is still being made.`\
+https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
 
 **For Cape Verde, There’s Victory in Their World Cup Defeat**\
 `The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but there was still plenty to celebrate.`\
