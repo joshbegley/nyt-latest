@@ -1,3 +1,11 @@
+**Mideast Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
+`As days of public mourning ceremonies began, Iranians were expected to be allowed to view the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
+
+**What to Know About Taylor Swift and Travis Kelce’s Wedding Festivities**\
+`Yes, they got married. Yes, they held a huge event inside Madison Square Garden. No, the guests did not post much about it. (At least they haven’t yet.)`\
+https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-wedding-recap.html
+
 **En busca de la película que define a Estados Unidos**\
 `Diez escritores exploran los filmes que capturan las esperanzas, los sueños, las desilusiones y la hilaridad de un país que cumple 250 años.`\
 https://www.nytimes.com/es/2026/07/04/espanol/cultura/pelicula-define-estados-unidos.html
@@ -157,10 +165,6 @@ https://www.nytimes.com/2026/07/03/nyregion/jones-beach-shark-attack.html
 **Trump Targets Not Just Georgia’s Vote, but Also Trust in Elections**\
 `The president has sent 260 F.B.I. analysts to Georgia, repeating his baseless claims of fraud in 2020. But critics say the intention is to undermine overall confidence in the electoral process.`\
 https://www.nytimes.com/2026/07/03/us/politics/trump-georgia-doubt-election-integrity.html
-
-**What Time Is Taylor Swift Getting Married? See the Wedding Schedule at MSG.**\
-`An internal memo for the New York Police Department laid out a schedule of events for a 1,000-person celebration on Friday.`\
-https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.html
 
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
