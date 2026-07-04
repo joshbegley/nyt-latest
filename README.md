@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/07/04/world/europe/uk-july-fourth-us-independence.h
 `This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
 https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
 
-**The Purgatory Job Market of 2026**\
+**The Bureaucratic Hell of Getting a Job in 2026**\
 `(No description)`\
 https://www.nytimes.com/2026/07/04/opinion/purgatory-job-market.html
 
@@ -74,7 +74,7 @@ https://www.nytimes.com/video/opinion/100000010994509/the-unifying-speech-we-won
 `Living at the lake house taught me about risk taking and other life lessons.`\
 https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-dad.html
 
-**America at 250**\
+**Five Questions That Will Determine America’s Next 50 Years**\
 `The truth worth celebrating this summer is that our country is still being made.`\
 https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
 
