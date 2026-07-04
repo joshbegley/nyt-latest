@@ -1,3 +1,11 @@
+**Funeral in Iran for Slain Ayatollah Begins Dayslong Public Mourning**\
+`Tens of thousands of people gathered for the state funeral of Ayatollah Ali Khamenei, who was killed at the start of the U.S.-Israeli war against Iran. The event in Tehran began several of public ceremonies mourning the country’s longtime supreme leader.`\
+https://www.nytimes.com/video/world/middleeast/100000011011023/ali-khamenei-iran-funeral.html
+
+**Taylor Swift and Travis Kelce Unite in Marriage: An Imagined New York Times Wedding Announcement**\
+`This traditional wedding announcement marks the union of the pop star and football player, who exchanged vows on Friday at Madison Square Garden.`\
+https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-wedding-announcement.html
+
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `The Times has reporters covering celebrations in places large and small, as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor. Tonight promises to bring a large-scale firework show in Washington, D.C.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july

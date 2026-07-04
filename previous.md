@@ -1,3 +1,11 @@
+**Funeral in Iran for Slain Ayatollah Begins Dayslong Public Mourning**\
+`Tens of thousands of people gathered for the state funeral of Ayatollah Ali Khamenei, who was killed at the start of the U.S.-Israeli war against Iran. The event in Tehran began several of public ceremonies mourning the country’s longtime supreme leader.`\
+https://www.nytimes.com/video/world/middleeast/100000011011023/ali-khamenei-iran-funeral.html
+
+**Taylor Swift and Travis Kelce Unite in Marriage: An Imagined New York Times Wedding Announcement**\
+`This traditional wedding announcement marks the union of the pop star and football player, who exchanged vows on Friday at Madison Square Garden.`\
+https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-wedding-announcement.html
+
 **The Funeral of Iran’s Supreme Leader, Ali Khamenei**\
 `Iran’s new leaders are commemorating Ayatollah Ali Khamenei, killed on the first day of the U.S.-Israeli war against the country, with a funeral unlike any other in recent history.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/the-funeral-of-irans-supreme-leader-ali-khamenei.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/07/04/us/politics/joyce-beatty-kennedy-center.html
 **How Do You Celebrate America’s 250-Year Experiment? However You Want.**\
 `Away from the turmoil in Washington, Americans will mark July 4 in their own patriotic ways. Expect rodeos, line dancing, Tejano music and Led Zeppelin.`\
 https://www.nytimes.com/2026/07/04/us/america-250-us-independence-day-celebrations.html
-
-**Catherine Laga’aia, ‘Moana’ Star, on the Funniest Podcast Episode Ever**\
-`“I would just watch it, replay it, watch it, replay it,” the “Moana” star said.`\
-https://www.nytimes.com/2026/07/04/movies/catherine-lagaaia-moana-live-action.html
-
-**To Beat the Heat, the Ultrarich Have Snow Rooms**\
-`Indoors, for a fortunate few, it’s always a winter wonderland.`\
-https://www.nytimes.com/2026/07/04/style/snow-rooms-home-technoalpin.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
