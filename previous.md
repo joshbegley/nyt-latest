@@ -170,10 +170,6 @@ https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-american-roya
 `Ukraine is engaged in a campaign in Crimea to take out Russian air defenses, sever vital supply lines, and cripple the peninsula's energy grid and fuel reserves.`\
 https://www.nytimes.com/interactive/2026/07/04/world/europe/ukraine-russia-crimea-war-strikes.html
 
-**Things That Drive Us Crazy About Money in America**\
-`For all that’s good about our financial lives, there are distinctly American things that are decidedly suboptimal. Please, can the 1040 fit on a postcard?`\
-https://www.nytimes.com/2026/07/04/your-money/american-taxes-tipping-loans-money.html
-
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
