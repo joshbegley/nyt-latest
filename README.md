@@ -1,3 +1,11 @@
+**How Mamdani Sees the World Through Soccer**\
+`Mayor Zohran Mamdani says that the sport embodies his political identity, even as the World Cup has been colored by corporate greed and geopolitical concerns.`\
+https://www.nytimes.com/2026/07/04/nyregion/mamdani-world-cup-fifa.html
+
+**Why Loving Good-Bad Movies Feels All Good**\
+`A pop culture reporter explains why she revels in debating movies that cross the line from bad to sublime.`\
+https://www.nytimes.com/2026/07/04/movies/good-bad-movies-nytimes.html
+
 **Storms Cause Power Outages for 1 Million in Midwest, Northeast and Ontario**\
 `Strong winds from thunderstorms caused widespread cuts as the region sweltered in a heat wave.`\
 https://www.nytimes.com/2026/07/04/us/storms-power-outages-midwest-northeast-ontario.html
@@ -141,10 +149,6 @@ https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.htm
 **Victoria Cruz, Veteran of the Trans Rights Movement, Dies at 79**\
 `She was at the Stonewall Inn on the night of its 1969 police raid, and she later became a forceful advocate for survivors of anti-trans violence.`\
 https://www.nytimes.com/2026/07/03/nyregion/victoria-cruz-dead.html
-
-**David S. Doty, Judge Who Helped Shape the Modern N.F.L., Dies at 96**\
-`He presided over the 1993 agreement that led to free agency and the salary cap, and for years oversaw the league’s disputes with its players.`\
-https://www.nytimes.com/2026/07/03/sports/football/david-s-doty-dead.html
 
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
