@@ -1,3 +1,15 @@
+**Miles de mexicanos le piden al Niño Jesús una alegría en el Mundial**\
+`La tradición de vestir una estatuilla del Niño Jesús empezó en una iglesia de Ciudad de México hace casi 60 años. Se trasladó a la catedral para este Mundial y México aún no ha perdido.`\
+https://www.nytimes.com/es/2026/07/04/espanol/america-latina/nino-jesus-futbol-mexico.html
+
+**The Bureaucratic Hell of Getting a Job in 2026**\
+`(No description)`\
+https://www.nytimes.com/2026/07/04/opinion/purgatory-job-market.html
+
+**Five Questions That Will Determine America’s Next 50 Years**\
+`The truth worth celebrating this summer is that our country is still being made.`\
+https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
+
 **White Nationalists March in Washington Amid 250th Anniversary Celebrations**\
 `The group, wearing clothing associated with the organization Patriot Front, assembled near Capitol Hill before leaving the district.`\
 https://www.nytimes.com/2026/07/04/us/white-nationalists-march-in-washington-amid-250th-anniversary-celebrations.html
