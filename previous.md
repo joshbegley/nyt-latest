@@ -1,3 +1,7 @@
+**The Funeral of Iran’s Supreme Leader, Ali Khamenei**\
+`Iran’s new leaders are commemorating Ayatollah Ali Khamenei, killed on the first day of the U.S.-Israeli war against the country, with a funeral unlike any other in recent history.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/the-funeral-of-irans-supreme-leader-ali-khamenei.html
+
 **Atlantic Beach Pie Is the Ultimate Summertime Pie**\
 `The cookbook author and pie connoisseur Stacey Mei Yan Fong deems it so in the Bake Time Questionnaire.`\
 https://www.nytimes.com/2026/07/04/dining/atlantic-beach-pie-is-the-ultimate-summertime-pie.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/07/04/movies/catherine-lagaaia-moana-live-action.ht
 **To Beat the Heat, the Ultrarich Have Snow Rooms**\
 `Indoors, for a fortunate few, it’s always a winter wonderland.`\
 https://www.nytimes.com/2026/07/04/style/snow-rooms-home-technoalpin.html
-
-**Are the ‘MANGOS’ Stocks Already Turning Soft?**\
-`Wall Street loves an acronym. The latest one stands for Meta, Anthropic, Nvidia and three other companies at the center of the artificial intelligence boom.`\
-https://www.nytimes.com/2026/07/04/business/mangos-ai-stocks.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
