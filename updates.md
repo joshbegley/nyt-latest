@@ -1,3 +1,7 @@
+**Canada Has a New Obsession: Soccer**\
+`A surprising World Cup run ended on Saturday against Morocco, but the Canadian successes, as a team and a host, are likely to endure.`\
+https://www.nytimes.com/2026/07/04/world/canada/world-cup-canada-morocco.html
+
 **Democrats Clash With Trump, as Political Tensions Rise on America’s 250th**\
 `Gavin Newsom and Wes Moore, potential 2028 contenders, cast President Trump’s record as a betrayal of American ideals, while the president disparaged their party as extreme.`\
 https://www.nytimes.com/2026/07/04/us/politics/democrats-clash-trump-america-250th-birthday.html
