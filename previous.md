@@ -1,3 +1,7 @@
+**White Nationalists March in Washington Amid 250th Anniversary Celebrations**\
+`The group, wearing clothing associated with the organization Patriot Front, assembled near Capitol Hill before leaving the district.`\
+https://www.nytimes.com/2026/07/04/us/white-nationalists-march-in-washington-amid-250th-anniversary-celebrations.html
+
 **Postales de la boda de Taylor Swift en Nueva York: fans, estrellas y más**\
 `La escena fuera de la boda de Taylor Swift en Manhattan tenía todo el dramatismo y la emoción de uno de sus álbumes.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/boda-taylor-swift.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/07/04/your-money/american-taxes-tipping-loans-money
 **Readers Pick the Definitive Films That Capture America**\
 `Though “Idiocracy” and “The Godfather” topped their list, the sheer range of suggestions shows how there are many ways to understand the country.`\
 https://www.nytimes.com/2026/07/04/movies/readers-choose-films-that-capture-america.html
-
-**Representative Joyce Beatty Still Celebrating Victory in Kennedy Center Legal Battle**\
-`Representative Joyce Beatty, Democrat of Ohio, said her lawsuit challenging the president’s changes to the performing arts center was a fight for justice.`\
-https://www.nytimes.com/2026/07/04/us/politics/joyce-beatty-kennedy-center.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\

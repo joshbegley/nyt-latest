@@ -1,3 +1,7 @@
+**White Nationalists March in Washington Amid 250th Anniversary Celebrations**\
+`The group, wearing clothing associated with the organization Patriot Front, assembled near Capitol Hill before leaving the district.`\
+https://www.nytimes.com/2026/07/04/us/white-nationalists-march-in-washington-amid-250th-anniversary-celebrations.html
+
 **Postales de la boda de Taylor Swift en Nueva York: fans, estrellas y más**\
 `La escena fuera de la boda de Taylor Swift en Manhattan tenía todo el dramatismo y la emoción de uno de sus álbumes.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/boda-taylor-swift.html
