@@ -1,3 +1,7 @@
+**United States Celebrates 250th Birthday**\
+`Americans celebrated the country’s 250th anniversary on Saturday with a series of Fourth of July events.`\
+https://www.nytimes.com/video/us/100000011011512/july-4-250-anniversary.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011011920/04vid-fourth-of-july-stadium-19850.html
