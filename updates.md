@@ -1,3 +1,11 @@
+**¿Cómo evitar accidentes en un feriado?**\
+`Los médicos comparten consejos para que celebres el 4 de julio sin peligros.`\
+https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/feriado-consejos-seguridad.html
+
+**In Britain, July 4 Is Mostly Just a Saturday**\
+`Independence Day does not loom large in Britain’s public imagination, though cultural institutions did note the day and King Charles III issued a statement.`\
+https://www.nytimes.com/2026/07/04/world/europe/uk-july-fourth-us-independence.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011011189/04iran-funeral-reporter-updates-F0BF933CQSY.html
