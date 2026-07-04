@@ -1,3 +1,7 @@
+**Boxed Sets**\
+`Rich Katz’s latest Sunday puzzle woos us with some lovely triangles.`\
+https://www.nytimes.com/2026/07/04/crosswords/daily-puzzle-2026-07-05.html
+
 **Canada Has a New Obsession: Soccer**\
 `A surprising World Cup run ended on Saturday against Morocco, but the Canadian successes, as a team and a host, are likely to endure.`\
 https://www.nytimes.com/2026/07/04/world/canada/world-cup-canada-morocco.html
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/07/04/opinion/norway-nordic-social-democracy.html
 `America, we need a new beginning.`\
 https://www.nytimes.com/video/opinion/100000010994509/the-unifying-speech-we-wont-get-this-independence-day.html
 
-**The Lake House That Taught Me How to Dad**\
+**Technology Ruined Our Lazy Days at the Lake**\
 `Living at the lake house taught me about risk taking and other life lessons.`\
 https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-dad.html
 
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/04/world/americas/mexico-world-cup-baby-jesus.ht
 **Taylor Swift y Travis Kelce, protagonistas de una boda real en EE. UU.**\
 `Las bodas reales pueden unir linajes o imperios, pero siempre actualizan y reafirman una identidad nacional. El enlace entre la estrella del pop y el futbolista trasciende fronteras y anuncia un poder cultural hegemónico.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/taylor-swift-boda-real-eeuu.html
-
-**Trump restringió a los visitantes. México ganó turistas**\
-`Aunque los críticos se preguntan si el Mundial beneficiará al turismo a largo plazo, las autoridades mexicanas creen que puede impulsar al país hasta convertirlo en el quinto destino más visitado del mundo.`\
-https://www.nytimes.com/es/2026/07/04/espanol/america-latina/mexico-turismo-mundial.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
