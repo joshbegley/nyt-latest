@@ -1,3 +1,7 @@
+**In a Star-Filled Night, Adam Sandler Pops Up as the Wedding Officiant**\
+`The actor played a special — and surprising to some — role in the Swift-Kelce nuptials.`\
+https://www.nytimes.com/2026/07/03/style/adam-sandler-officiant-swift-kelce-wedding.html
+
 **With Its Celebrity Guests, Taylor Swift’s Wedding Rivals the Met Gala**\
 `Top-secret celebrity guest lists! No cell phones! Big fashion moments! S.U.V.s galore! New York usually gets only one party like this a year.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-celebrity-guests.html

@@ -1,3 +1,7 @@
+**In a Star-Filled Night, Adam Sandler Pops Up as the Wedding Officiant**\
+`The actor played a special — and surprising to some — role in the Swift-Kelce nuptials.`\
+https://www.nytimes.com/2026/07/03/style/adam-sandler-officiant-swift-kelce-wedding.html
+
 **Defeated at the World Cup, Teams Sometimes Face Abuse and Violence**\
 `Anger and disappointment are not unusual for fans whose teams are knocked out. But some responses have been extreme.`\
 https://www.nytimes.com/2026/07/03/sports/soccer/world-cup-fans-anger.html
@@ -149,8 +153,4 @@ https://www.nytimes.com/video/podcasts/100000011008828/laurie-santos-americans-a
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married, With Star-Studded M.S.G. Bash Underway**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
-
-**Louisiana Supreme Court Pauses Case Against State Attorney General**\
-`Just hours after a New Orleans grand jury indicted Attorney General Liz Murrill on bullying charges, the court intervened, citing potential flaws in the process.`\
-https://www.nytimes.com/2026/07/03/us/louisiana-supreme-court-liz-murrill.html
 
