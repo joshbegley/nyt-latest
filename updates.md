@@ -1,3 +1,11 @@
+**Atlantic Beach Pie Is the Ultimate Summertime Pie**\
+`The cookbook author and pie connoisseur Stacey Mei Yan Fong deems it so in the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/07/04/dining/atlantic-beach-pie-is-the-ultimate-summertime-pie.html
+
+**July 4 Live Updates: America Celebrates Its 250th Birthday**\
+`The Times has reporters in locations across the country, covering events from coast to coast. Now, we are at the tall ship parade in New York, a citizenship ceremony in Virginia and a time capsule burial in Philadelphia.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **The Unifying Speech We Won’t Get This Independence Day**\
 `America, we need a new beginning.`\
 https://www.nytimes.com/video/opinion/100000011002600/the-unifying-speech-we-wont-get-this-independence-day.html

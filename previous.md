@@ -1,3 +1,7 @@
+**Atlantic Beach Pie Is the Ultimate Summertime Pie**\
+`The cookbook author and pie connoisseur Stacey Mei Yan Fong deems it so in the Bake Time Questionnaire.`\
+https://www.nytimes.com/2026/07/04/dining/atlantic-beach-pie-is-the-ultimate-summertime-pie.html
+
 **The Unifying Speech We Won’t Get This Independence Day**\
 `America, we need a new beginning.`\
 https://www.nytimes.com/video/opinion/100000011002600/the-unifying-speech-we-wont-get-this-independence-day.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/2026/07/04/crosswords/wordle-review-1842.html
 https://www.nytimes.com/2026/07/04/crosswords/strands-sidekick-854.html
 
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
-`In many places, including the nation’s capital, the punishing heat has forced organizers to adjust plans for some events and to cancel others.`\
+`The Times has reporters in locations across the country, covering events from coast to coast. Now, we are at the tall ship parade in New York, a citizenship ceremony in Virginia and a time capsule burial in Philadelphia.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/04/us/as-the-nation-turns-250-a-texas-town-griev
 **Home Swapping: How Does It Work, and Is It Worth Your While?**\
 `Before you go live in someone else’s house, and have them live in yours, make sure everyone is covered.`\
 https://www.nytimes.com/2026/07/04/realestate/home-swapping-how-does-it-work-and-is-it-worth-your-while.html
-
-**‘Who Should I Vote for?’ Voters Turn to A.I. Before Casting Their Ballots**\
-`It takes effort to be an informed citizen. Artificial intelligence tools offer an alluring shortcut — but they’re not without risk.`\
-https://www.nytimes.com/2026/07/04/us/politics/voters-ai-chatbots-elections.html
 
 **Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
