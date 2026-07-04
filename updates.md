@@ -1,3 +1,107 @@
+**How the ‘Beautiful Game’ Is Deflecting America’s Political Turmoil**\
+`Amid protests and rancor, World Cup soccer proves a bright spot in the United States and around the world.`\
+https://www.nytimes.com/2026/07/04/us/how-the-beautiful-game-is-deflecting-americas-political-turmoil.html
+
+**Pensaba que el divorcio significaba enterrar el pasado**\
+`Mi matrimonio tuvo muchas cosas buenas que me costaba olvidar. Me alegro de no haber podido hacerlo.`\
+https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/modern-love-matrimonio-divorcio.html
+
+**Nearly a Million Investors Lost a Total of $3.8 Billion on Trump Crypto Coin**\
+`A report from a cryptocurrency analytics firm details how those who bought the Trump memecoin have fared, with most retail investors having lost money while sophisticated traders did better.`\
+https://www.nytimes.com/2026/07/04/us/politics/nearly-a-million-investors-lost-a-total-of-3-8-billion-on-trump-crypto-coin.html
+
+**July Fourth Heat Wave Forecast: Latest Updates**\
+`The Midwest gets a break, but much of the East Coast will again climb above 100 degrees. Experts said people should stay indoors as much as possible.`\
+https://www.nytimes.com/2026/07/04/weather/july-fourth-heat-wave-updates.html
+
+**In Rwanda, July 4 Is Liberation Day From Genocide**\
+`The Central African nation remembers the end of a murderous campaign against ethnic Tutsis that killed hundreds of thousands of people.`\
+https://www.nytimes.com/2026/07/04/world/africa/rwanda-july-4-liberation-day.html
+
+**Corrections: July 4, 2026**\
+`Corrections that appeared in print on Saturday, July 4, 2026.`\
+https://www.nytimes.com/2026/07/04/pageoneplus/corrections-july-4-2026.html
+
+**Momentary Unity at a Funeral Masks Deep Divisions Among Iran’s Leaders**\
+`Ayatollah Mojtaba Khamenei’s absence has raised questions inside Iranian political circles about who is really running the country and allowed open divisions to fester.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-funeral-divisions.html
+
+**‘Human Vapor’ Review: Netflix Remakes a Japanese Sci-Fi Curio**\
+`The director Ishiro Honda took a break from Godzilla with a villain who could turn himself into a cloud of gas. A new series pipes him into the 21st century.`\
+https://www.nytimes.com/2026/07/04/arts/television/human-vapor-review-netflix.html
+
+**Taylor Swift and Travis Kelce’s American Royal Wedding**\
+`A mega-famous popstar and a Super Bowl champion celebrated their love in Midtown Manhattan, announcing both their union and their cultural domination.`\
+https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-american-royal-wedding.html
+
+**Ukraine Is Bringing the War With Russia to Crimea, Strike After Strike**\
+`Ukraine is engaged in a campaign in Crimea to take out Russian air defenses, sever vital supply lines, and cripple the peninsula's energy grid and fuel reserves.`\
+https://www.nytimes.com/interactive/2026/07/04/world/europe/ukraine-russia-crimea-war-strikes.html
+
+**Things That Drive Us Crazy About Money in America**\
+`For all that’s good about our financial lives, there are distinctly American things that are decidedly suboptimal. Please, can the 1040 fit on a postcard?`\
+https://www.nytimes.com/2026/07/04/your-money/american-taxes-tipping-loans-money.html
+
+**Readers Pick the Definitive Films That Capture America**\
+`Though “Idiocracy” and “The Godfather” topped their list, the sheer range of suggestions shows how there are many ways to understand the country.`\
+https://www.nytimes.com/2026/07/04/movies/readers-choose-films-that-capture-america.html
+
+**Representative Joyce Beatty Still Celebrating Victory in Kennedy Center Legal Battle**\
+`Representative Joyce Beatty, Democrat of Ohio, said her lawsuit challenging the president’s changes to the performing arts center was a fight for justice.`\
+https://www.nytimes.com/2026/07/04/us/politics/joyce-beatty-kennedy-center.html
+
+**How Do You Celebrate America’s 250-Year Experiment? However You Want.**\
+`Away from the turmoil in Washington, Americans will mark July 4 in their own patriotic ways. Expect rodeos, line dancing, Tejano music and Led Zeppelin.`\
+https://www.nytimes.com/2026/07/04/us/how-do-you-celebrate-americas-250-year-experiment-however-you-want.html
+
+**Catherine Laga’aia, ‘Moana’ Star, on the Funniest Podcast Episode Ever**\
+`“I would just watch it, replay it, watch it, replay it,” the “Moana” star said.`\
+https://www.nytimes.com/2026/07/04/movies/catherine-lagaaia-moana-live-action.html
+
+**To Beat the Heat, the Ultrarich Have Snow Rooms**\
+`Indoors, for a fortunate few, it’s always a winter wonderland.`\
+https://www.nytimes.com/2026/07/04/style/to-beat-the-heat-the-wealthy-are-building-snow-rooms.html
+
+**Are the ‘MANGOS’ Stocks Already Turning Soft?**\
+`Wall Street loves an acronym. The latest one stands for Meta, Anthropic, Nvidia and three other companies at the center of the artificial intelligence boom.`\
+https://www.nytimes.com/2026/07/04/business/mangos-ai-stocks.html
+
+**The Texas Hill Country Flood, One Year Later**\
+`A year after a catastrophic flood killed 139 people in the Texas Hill Country, communities along the Guadalupe River are still rebuilding.`\
+https://www.nytimes.com/2026/07/04/us/as-the-nation-turns-250-a-texas-town-grieves-instead.html
+
+**Home Swapping: How Does It Work, and Is It Worth Your While?**\
+`Before you go live in someone else’s house, and have them live in yours, make sure everyone is covered.`\
+https://www.nytimes.com/2026/07/04/realestate/home-swapping-how-does-it-work-and-is-it-worth-your-while.html
+
+**‘Who Should I Vote for?’ Voters Turn to A.I. Before Casting Their Ballots**\
+`It takes effort to be an informed citizen. Artificial intelligence tools offer an alluring shortcut — but they’re not without risk.`\
+https://www.nytimes.com/2026/07/04/us/politics/voters-ai-chatbots-elections.html
+
+**What a French Fighter Jet Ride Taught Me About the Fourth of July**\
+`My adrenaline was pumping, and I had more or less learned how to use my ejector seat, but the flight was really a reminder of France’s role in securing American independence 250 years ago.`\
+https://www.nytimes.com/2026/07/04/us/politics/france-jets-america-250.html
+
+**The Rise of Racetrack Country Clubs: ‘Racing Is Golf on Steroids’**\
+`A motorsports club north of Miami, on former orange groves, is being built to cater to enthusiasts and well-heeled novices eager to hit the gas and pull some Gs.`\
+https://www.nytimes.com/2026/07/04/business/racing-car-country-clubs.html
+
+**Perilous and Preposterous, ‘Cliffhanger’ Brought Stallone Back From the Brink**\
+`Renny Harlin’s high-altitude thriller starring Sylvester Stallone and John Lithgow was peak early 1990s action extravagance.`\
+https://www.nytimes.com/2026/07/04/movies/cliffhanger-sylvester-stallone.html
+
+**Why ‘There Will Be Blood’ Is the Most American Movie**\
+`The New York Times Film Critic, Alissa Wilkinson, breaks down how Paul Thomas Anderson’s 2007 epic deconstructs and exemplifies American ideals.`\
+https://www.nytimes.com/video/movies/100000010926526/most-american-movie-there-will-be-blood.html
+
+**Trump’s Travel Crackdown Has a Winner: Mexican Tourism**\
+`While critics question just how much the World Cup will benefit tourism long term, Mexican officials believe it can help boost the country to fifth most visited in the world.`\
+https://www.nytimes.com/2026/07/04/world/americas/world-cup-mexico-tourism-trump.html
+
+**Book Review: ‘American Trickster,’ by Ru Marshall**\
+`In “American Trickster,” Ru Marshall takes on the epic story of Carlos Castaneda.`\
+https://www.nytimes.com/2026/07/04/books/review/american-trickster-ru-marshall.html
+
 **Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians were expected to be allowed to view the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
