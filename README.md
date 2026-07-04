@@ -1,3 +1,7 @@
+**Democrats Clash With Trump, as Political Tensions Rise on America’s 250th**\
+`Gavin Newsom and Wes Moore, potential 2028 contenders, cast President Trump’s record as a betrayal of American ideals, while the president disparaged their party as extreme.`\
+https://www.nytimes.com/2026/07/04/us/politics/democrats-clash-trump-america-250th-birthday.html
+
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/iran-ayatollah-funeral.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/04/us/world-cup-soccer-us-politics-trump.html
 **Pensaba que el divorcio significaba enterrar el pasado**\
 `Mi matrimonio tuvo muchas cosas buenas que me costaba olvidar. Me alegro de no haber podido hacerlo.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/modern-love-matrimonio-divorcio.html
-
-**Nearly a Million Investors Lost a Total of $3.8 Billion on Trump Crypto Coin**\
-`A report from a cryptocurrency analytics firm details how those who bought the Trump memecoin have fared, with most retail investors having lost money while sophisticated traders did better.`\
-https://www.nytimes.com/2026/07/04/us/politics/trump-coin-crypto-investors-loss.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
