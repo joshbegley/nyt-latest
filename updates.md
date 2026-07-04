@@ -1,3 +1,11 @@
+**‘JusT&T Married’: lo que pasó fuera de la boda de Taylor Swift y Travis Kelce**\
+`La celebración privada de la pareja se convirtió en todo un espectáculo público a las puertas del Madison Square Garden.`\
+https://www.nytimes.com/es/2026/07/03/espanol/boda-taylor-swift-travis-kelce-fotos.html
+
+**How the Heat Is Upending Plans for America’s 250th Birthday**\
+`Parades in Washington and Philadelphia were canceled, and the Great American State Fair on the National Mall closed for several hours.`\
+https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html
+
 **¿Por qué Adam Sandler ofició la boda de Swift y Kelce?**\
 `El actor desempeñó un papel especial (y para algunos sorprendente) en la unión.`\
 https://www.nytimes.com/es/2026/07/03/espanol/adam-sandler-boda-taylor-swift.html
