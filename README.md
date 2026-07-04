@@ -176,7 +176,7 @@ https://www.nytimes.com/2026/07/04/business/mangos-ai-stocks.html
 
 **The Texas Hill Country Flood, One Year Later**\
 `A year after a catastrophic flood killed 139 people in the Texas Hill Country, communities along the Guadalupe River are still rebuilding.`\
-https://www.nytimes.com/2026/07/04/us/as-the-nation-turns-250-a-texas-town-grieves-instead.html
+https://www.nytimes.com/2026/07/04/us/texas-floods-2025-guadalupe-river.html
 
 **Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
