@@ -1,3 +1,11 @@
+**¿Por qué Adam Sandler ofició la boda de Swift y Kelce?**\
+`El actor desempeñó un papel especial (y para algunos sorprendente) en la unión.`\
+https://www.nytimes.com/es/2026/07/03/espanol/adam-sandler-boda-taylor-swift.html
+
+**Sewage Spills Into Hudson River After Power Failure at Treatment Plant**\
+`The spill, at a plant just north of New York City, continued from Thursday night to Friday afternoon. It was not expected to affect the city’s Fourth of July celebrations.`\
+https://www.nytimes.com/2026/07/03/nyregion/sewage-spill-hudson-river.html
+
 **Photos: See Outside Taylor Swift and Travis Kelce’s Wedding at MSG**\
 `The couple’s private celebration created a public spectacle outside Madison Square Garden.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-photos-msg.html
