@@ -1,3 +1,15 @@
+**Taylor Swift y Travis Kelce, protagonistas de una boda real en EE. UU.**\
+`Las bodas reales pueden unir linajes o imperios, pero siempre actualizan y reafirman una identidad nacional. El enlace entre la estrella del pop y el futbolista trasciende fronteras y anuncia un poder cultural hegemónico.`\
+https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/taylor-swift-boda-real-eeuu.html
+
+**Trump restringió a los visitantes. México ganó turistas**\
+`Aunque los críticos se preguntan si el Mundial beneficiará al turismo a largo plazo, las autoridades mexicanas creen que puede impulsar al país hasta convertirlo en el quinto destino más visitado del mundo.`\
+https://www.nytimes.com/es/2026/07/04/espanol/america-latina/mexico-turismo-mundial.html
+
+**Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
+`As days of public mourning ceremonies began, Iranians were expected to be allowed to view the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
+
 **How the ‘Beautiful Game’ Is Deflecting America’s Political Turmoil**\
 `Amid protests and rancor, World Cup soccer proves a bright spot in the United States and around the world.`\
 https://www.nytimes.com/2026/07/04/us/how-the-beautiful-game-is-deflecting-americas-political-turmoil.html
