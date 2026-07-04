@@ -1,3 +1,7 @@
+**Los mejores consejos para comer saludable en 2026**\
+`Analizamos las noticias más destacadas del año sobre nutrición para extraer 10 lecciones útiles.`\
+https://www.nytimes.com/es/2026/07/04/espanol/consejos-alimentacion-saludable-2026.html
+
 **Quote of the Day: One Nation, Many Americas**\
 `Quotation of the Day for Saturday, July 4, 2026.`\
 https://www.nytimes.com/2026/07/04/pageoneplus/quote-of-the-day-one-nation-many-americas.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.ht
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
-
-**EE. UU. sospechó que Israel planeaba asesinar a negociadores de Irán**\
-`Esos temores muestran que los objetivos bélicos de Estados Unidos e Israel, que eran muy similares al principio de la guerra, se distanciaron rápidamente de forma radical.`\
-https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/israel-iran-ataques.html
 
 **Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
 `Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
