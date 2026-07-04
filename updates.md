@@ -1,3 +1,7 @@
+**Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
+`Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
+https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
+
 **Travis Kelce Twins With Taylor in Dior**\
 `Both in couture looks by Jonathan Anderson, the couple showed they were on the same page.`\
 https://www.nytimes.com/2026/07/03/style/travis-kelce-wedding-suit.html

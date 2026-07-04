@@ -90,8 +90,8 @@ https://www.nytimes.com/2026/07/03/style/prince-william-travis-kelce-new-heights
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011010025/03vid-swift-silvana.html
 
-**Taylor Swift y Travis Kelce ya se casaron oficialmente, y ya está en marcha la fiesta en el MSG, repleta de estrellas**\
-`La estrella del pop, el futbolista y unos 1000 amigos cercanos y famosos celebran la unión más esperada de la cultura pop.`\
+**Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
+`Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
 
 **EE. UU. sospechó que Israel planeaba asesinar a negociadores de Irán**\

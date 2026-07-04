@@ -1,3 +1,7 @@
+**Dior viste de novia a Taylor Swift y se lleva el premio mayor**\
+`La estrella del pop dijo “Sí, acepto” con un vestido diseñado por Jonathan Anderson, el director creativo de la casa francesa.`\
+https://www.nytimes.com/es/2026/07/03/espanol/dior-vestido-novia-taylor-swift.html
+
 **Travis Kelce Twins With Taylor in Dior**\
 `Both in couture looks by Jonathan Anderson, the couple showed they were on the same page.`\
 https://www.nytimes.com/2026/07/03/style/travis-kelce-wedding-suit.html
@@ -149,8 +153,4 @@ https://www.nytimes.com/2026/07/03/us/louisiana-supreme-court-liz-murrill.html
 **As Heat Suffocates Washington DC, Calls to Emergency Medical Services Climb**\
 `Near 100-degree temperatures were expected to continue as medical workers prepared for more heat-related illnesses during celebrations of the nation’s 250th anniversary.`\
 https://www.nytimes.com/2026/07/03/weather/heat-wave-washington-dc-emergency-calls.html
-
-**Pilot Was Bitten by Bat After Swarm Invaded Hotel Room, Lawsuit Says**\
-`A pilot, who was treated for possible rabies exposure, sued Marriott International, claiming his Denver hotel failed to offer him a new room after he woke up to a swarm of bats last year.`\
-https://www.nytimes.com/2026/07/03/us/bats-rabies-marriott-lawsuit.html
 
