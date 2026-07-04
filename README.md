@@ -1,3 +1,7 @@
+**Maryland Boat Explosion Leaves at Least 10 Injured, Officials Say**\
+`A 32-foot-long boat exploded in Chesapeake City, leaving four people with serious burns, officials said. The cause was under investigation.`\
+https://www.nytimes.com/2026/07/04/us/maryland-boat-explosion.html
+
 **United States Celebrates 250th Birthday**\
 `Americans celebrated the country’s 250th anniversary on Saturday with a series of Fourth of July events.`\
 https://www.nytimes.com/video/us/100000011011512/july-4-250-anniversary.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/04/world/canada/carney-alberta-pipeline-canada-u
 **NYT Connections Answers for July 5, 2026.**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
 https://www.nytimes.com/2026/07/04/crosswords/connections-companion-1120.html
-
-**Today’s Wordle Hints for July 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
-https://www.nytimes.com/2026/07/04/crosswords/wordle-review-1842.html
 
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `The Times has reporters covering celebrations in places large and small, as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor. Tonight promises to bring a large-scale firework show in Washington, D.C.`\
