@@ -1,3 +1,7 @@
+**3 Dead After Boat Capsizes on Wisconsin Lake During Severe Storm**\
+`Seven others were rescued from the waters of Geneva Lake, southwest of Milwaukee, the authorities said.`\
+https://www.nytimes.com/2026/07/03/us/boat-capsized-storm-wisconsin.html
+
 **Taylor Swift y Travis Kelce ya están casados**\
 `La pareja dio a conocer la noticia a través de un anuncio digital en el exterior del Madison Square Garden, así como con un comunicado de prensa de su publicista.`\
 https://www.nytimes.com/es/2026/07/03/espanol/taylor-swift-y-travis-kelce-casados.html
@@ -153,8 +157,4 @@ https://www.nytimes.com/es/2026/07/03/espanol/estados-unidos/melania-trump-jd-va
 **Artur Dmitriev, Two-Time Olympic Pairs Skating Champion, Dies at 58**\
 `He won gold medals in 1992 and 1998, and was known for his dynamic power, elegance and charisma.`\
 https://www.nytimes.com/2026/07/03/sports/artur-dmitriev-dead.html
-
-**Trump Nods at Taylor Swift in Posts on Social Media**\
-`In a pair of posts, the president addressed Taylor Swift on the weekend of her wedding festivities, using her imagery and words.`\
-https://www.nytimes.com/2026/07/03/style/trump-taylor-swift-america-250-eras.html
 
