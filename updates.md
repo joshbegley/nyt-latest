@@ -1,3 +1,15 @@
+**Photos: See Outside Taylor Swift and Travis Kelce’s Wedding at MSG**\
+`The couple’s private celebration created a public spectacle outside Madison Square Garden.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-photos-msg.html
+
+**Steamed**\
+`Kareem Ayas provides an action-packed themeless puzzle.`\
+https://www.nytimes.com/2026/07/03/crosswords/daily-puzzle-2026-07-04.html
+
+**Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
+`Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **Why Did Adam Sandler Officiate Taylor Swift and Travis Kelce’s Wedding?**\
 `The actor played a special — and surprising to some — role in the Swift-Kelce nuptials.`\
 https://www.nytimes.com/2026/07/03/style/adam-sandler-officiant-swift-kelce-wedding.html
