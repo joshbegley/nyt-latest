@@ -1,3 +1,7 @@
+**The Unifying Speech We Won’t Get This Independence Day**\
+`America, we need a new beginning.`\
+https://www.nytimes.com/video/opinion/100000011002600/the-unifying-speech-we-wont-get-this-independence-day.html
+
 **¿Cómo evitar accidentes en un feriado?**\
 `Los médicos comparten consejos para que celebres el 4 de julio sin peligros.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/feriado-consejos-seguridad.html
@@ -177,14 +181,6 @@ https://www.nytimes.com/2026/07/04/realestate/home-swapping-how-does-it-work-and
 **‘Who Should I Vote for?’ Voters Turn to A.I. Before Casting Their Ballots**\
 `It takes effort to be an informed citizen. Artificial intelligence tools offer an alluring shortcut — but they’re not without risk.`\
 https://www.nytimes.com/2026/07/04/us/politics/voters-ai-chatbots-elections.html
-
-**What a French Fighter Jet Ride Taught Me About the Fourth of July**\
-`My adrenaline was pumping, and I had more or less learned how to use my ejector seat, but the flight was really a reminder of France’s role in securing American independence 250 years ago.`\
-https://www.nytimes.com/2026/07/04/us/politics/france-jets-america-250.html
-
-**The Rise of Racetrack Country Clubs: ‘Racing Is Golf on Steroids’**\
-`A motorsports club north of Miami, on former orange groves, is being built to cater to enthusiasts and well-heeled novices eager to hit the gas and pull some Gs.`\
-https://www.nytimes.com/2026/07/04/business/racing-car-country-clubs.html
 
 **Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
