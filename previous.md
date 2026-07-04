@@ -166,10 +166,6 @@ https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-funeral-
 `The director Ishiro Honda took a break from Godzilla with a villain who could turn himself into a cloud of gas. A new series pipes him into the 21st century.`\
 https://www.nytimes.com/2026/07/04/arts/television/human-vapor-review-netflix.html
 
-**Taylor Swift and Travis Kelce’s American Royal Wedding**\
-`A mega-famous popstar and a Super Bowl champion celebrated their love in Midtown Manhattan, announcing both their union and their cultural domination.`\
-https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-american-royal-wedding.html
-
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
