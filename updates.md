@@ -1,3 +1,7 @@
+**July 4 Live Updates: America Celebrates Its 250th Birthday**\
+`The Times has reporters covering celebrations across the country as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **July Fourth Heat Wave Forecast: Latest Updates**\
 `The Midwest will get a break but temperatures for much of the East Coast will again climb above 100 degrees. Stay indoors as much as possible, experts said.`\
 https://www.nytimes.com/2026/07/04/weather/july-fourth-heat-wave-updates.html

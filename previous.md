@@ -91,7 +91,7 @@ https://www.nytimes.com/2026/07/04/crosswords/wordle-review-1842.html
 https://www.nytimes.com/2026/07/04/crosswords/strands-sidekick-854.html
 
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
-`The Times has reporters in locations across the country, covering events from coast to coast. Now, we are at the tall ship parade in New York, a citizenship ceremony in Virginia and a time capsule burial in Philadelphia.`\
+`The Times has reporters covering celebrations across the country as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
