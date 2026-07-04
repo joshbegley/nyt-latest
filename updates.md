@@ -1,3 +1,7 @@
+**With Its Celebrity Guests, Taylor Swift’s Wedding Rivals the Met Gala**\
+`Top-secret celebrity guest lists! No cell phones! Big fashion moments! S.U.V.s galore! New York usually gets only one party like this a year.`\
+https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-celebrity-guests.html
+
 **Defeated at the World Cup, Teams Sometimes Face Abuse and Violence**\
 `Anger and disappointment are not unusual for fans whose teams are knocked out. But some responses have been extreme.`\
 https://www.nytimes.com/2026/07/03/sports/soccer/world-cup-fans-anger.html
