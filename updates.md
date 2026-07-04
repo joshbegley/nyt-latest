@@ -1,3 +1,23 @@
+**My Sister Insists That She Can’t Work. Should I Pay Her Bills?**\
+`I want to help, but I worry financial support may enable her rather than help her.`\
+https://www.nytimes.com/2026/07/04/magazine/sister-money-lending-ethics.html
+
+**A Big Week in the West, Canada vs. Morocco, Trade and a Canada-U.S. Quiz**\
+`Prime Minister Mark Carney further diversified trade away from the U.S. this week by announcing multibillion dollar investments in Alberta and British Columbia.`\
+https://www.nytimes.com/2026/07/04/world/canada/carney-alberta-pipeline-canada-us.html
+
+**NYT Connections Answers for July 5, 2026.**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
+https://www.nytimes.com/2026/07/04/crosswords/connections-companion-1120.html
+
+**Today’s Wordle Hints for July 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
+https://www.nytimes.com/2026/07/04/crosswords/wordle-review-1842.html
+
+**NYT Strands Hints for July 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
+https://www.nytimes.com/2026/07/04/crosswords/strands-sidekick-854.html
+
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `In many places, including the nation’s capital, the punishing heat has forced organizers to adjust plans for some events and to cancel others.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
