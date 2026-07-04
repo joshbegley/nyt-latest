@@ -1,3 +1,7 @@
+**Postales de la boda de Taylor Swift en Nueva York: fans, estrellas y más**\
+`La escena fuera de la boda de Taylor Swift en Manhattan tenía todo el dramatismo y la emoción de uno de sus álbumes.`\
+https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/boda-taylor-swift.html
+
 **Funeral in Iran for Slain Ayatollah Begins Dayslong Public Mourning**\
 `Tens of thousands of people gathered for the state funeral of Ayatollah Ali Khamenei, who was killed at the start of the U.S.-Israeli war against Iran. The event in Tehran began several of public ceremonies mourning the country’s longtime supreme leader.`\
 https://www.nytimes.com/video/world/middleeast/100000011011023/ali-khamenei-iran-funeral.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/07/04/movies/readers-choose-films-that-capture-amer
 **Representative Joyce Beatty Still Celebrating Victory in Kennedy Center Legal Battle**\
 `Representative Joyce Beatty, Democrat of Ohio, said her lawsuit challenging the president’s changes to the performing arts center was a fight for justice.`\
 https://www.nytimes.com/2026/07/04/us/politics/joyce-beatty-kennedy-center.html
-
-**How Do You Celebrate America’s 250-Year Experiment? However You Want.**\
-`Away from the turmoil in Washington, Americans will mark July 4 in their own patriotic ways. Expect rodeos, line dancing, Tejano music and Led Zeppelin.`\
-https://www.nytimes.com/2026/07/04/us/america-250-us-independence-day-celebrations.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\

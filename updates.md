@@ -1,3 +1,7 @@
+**Postales de la boda de Taylor Swift en Nueva York: fans, estrellas y más**\
+`La escena fuera de la boda de Taylor Swift en Manhattan tenía todo el dramatismo y la emoción de uno de sus álbumes.`\
+https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/boda-taylor-swift.html
+
 **Funeral in Iran for Slain Ayatollah Begins Dayslong Public Mourning**\
 `Tens of thousands of people gathered for the state funeral of Ayatollah Ali Khamenei, who was killed at the start of the U.S.-Israeli war against Iran. The event in Tehran began several of public ceremonies mourning the country’s longtime supreme leader.`\
 https://www.nytimes.com/video/world/middleeast/100000011011023/ali-khamenei-iran-funeral.html
