@@ -146,12 +146,12 @@ https://www.nytimes.com/2026/07/04/world/americas/world-cup-mexico-tourism-trump
 `In “American Trickster,” Ru Marshall takes on the epic story of Carlos Castaneda.`\
 https://www.nytimes.com/2026/07/04/books/review/american-trickster-ru-marshall.html
 
-**Iran, projecting unity to the world, pursues a crackdown at home.**\
-`A string of`\
-https://www.nytimes.com/2026/07/04/world/middleeast/iran-projecting-unity-to-the-world-pursues-a-crackdown-at-home.html
+**Iran Projects Unity to the World While Pursuing a Crackdown at Home**\
+`The country’s security service has continued to target civil society and dissidents, including thousands of arrests since the launch of the U.S.-Israeli war in February.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-dissidents-crackdown.html
 
 **Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
-`As days of public mourning ceremonies began, Iranians were expected to be allowed to view the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
+`As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
 
 **What to Know About Taylor Swift and Travis Kelce’s Wedding Festivities**\

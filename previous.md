@@ -1,3 +1,11 @@
+**What to Know About Ayatollah Ali Khamenei as His Funeral Services Begin in Iran**\
+`Iran’s longstanding supreme leader concentrated power, presided over crackdowns and built an armed proxy network that projected influence across the Middle East.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-funeral-supreme-leader-ali-khamenei.html
+
+**Happy Birthday to Us**\
+`A forgotten founder. A tour of Revolutionary taverns. But first, a royal wedding.`\
+https://www.nytimes.com/2026/07/04/briefing/happy-birthday-to-us.html
+
 **My Sister Insists That She Can’t Work. Should I Pay Her Bills?**\
 `I want to help, but I worry financial support may enable her rather than help her.`\
 https://www.nytimes.com/2026/07/04/magazine/sister-money-lending-ethics.html
@@ -138,6 +146,10 @@ https://www.nytimes.com/2026/07/04/world/americas/world-cup-mexico-tourism-trump
 `In “American Trickster,” Ru Marshall takes on the epic story of Carlos Castaneda.`\
 https://www.nytimes.com/2026/07/04/books/review/american-trickster-ru-marshall.html
 
+**Iran, projecting unity to the world, pursues a crackdown at home.**\
+`A string of`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-projecting-unity-to-the-world-pursues-a-crackdown-at-home.html
+
 **Iran Live Updates: Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians were expected to be allowed to view the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
@@ -181,12 +193,4 @@ https://www.nytimes.com/2026/07/04/us/storms-power-outages-midwest-northeast-ont
 **Trump me arruinó el 4 de julio**\
 `Se ha esfumado esa idea inspiradora de que todo el mundo es bienvenido a la fiesta de Estados Unidos: amigos, familia y también los recién llegados.`\
 https://www.nytimes.com/es/2026/07/04/espanol/opinion/trump-4-julio-estados-unidos.html
-
-**Los mejores consejos para comer saludable en 2026**\
-`Analizamos las noticias más destacadas del año sobre nutrición para extraer 10 lecciones útiles.`\
-https://www.nytimes.com/es/2026/07/04/espanol/consejos-alimentacion-saludable-2026.html
-
-**Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
-`Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
-https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 

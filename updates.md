@@ -1,3 +1,15 @@
+**What to Know About Ayatollah Ali Khamenei as His Funeral Services Begin in Iran**\
+`Iran’s longstanding supreme leader concentrated power, presided over crackdowns and built an armed proxy network that projected influence across the Middle East.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-funeral-supreme-leader-ali-khamenei.html
+
+**Happy Birthday to Us**\
+`A forgotten founder. A tour of Revolutionary taverns. But first, a royal wedding.`\
+https://www.nytimes.com/2026/07/04/briefing/happy-birthday-to-us.html
+
+**Iran, projecting unity to the world, pursues a crackdown at home.**\
+`A string of`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-projecting-unity-to-the-world-pursues-a-crackdown-at-home.html
+
 **My Sister Insists That She Can’t Work. Should I Pay Her Bills?**\
 `I want to help, but I worry financial support may enable her rather than help her.`\
 https://www.nytimes.com/2026/07/04/magazine/sister-money-lending-ethics.html
