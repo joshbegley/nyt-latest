@@ -1,3 +1,7 @@
+**Dior viste de novia a Taylor Swift y se lleva el premio mayor**\
+`La estrella del pop dijo “Sí, acepto” con un vestido diseñado por Jonathan Anderson, el director creativo de la casa francesa.`\
+https://www.nytimes.com/es/2026/07/03/espanol/dior-vestido-novia-taylor-swift.html
+
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
