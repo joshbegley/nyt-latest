@@ -1,3 +1,7 @@
+**The Unifying Speech We Won’t Get This Independence Day**\
+`America, we need a new beginning.`\
+https://www.nytimes.com/video/opinion/100000011002600/the-unifying-speech-we-wont-get-this-independence-day.html
+
 **¿Cómo evitar accidentes en un feriado?**\
 `Los médicos comparten consejos para que celebres el 4 de julio sin peligros.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/feriado-consejos-seguridad.html
