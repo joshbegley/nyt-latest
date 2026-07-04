@@ -1,3 +1,11 @@
+**Taylor Swift y Travis Kelce ya se casaron oficialmente, y ya está en marcha la fiesta en el MSG, repleta de estrellas**\
+`La estrella del pop, el futbolista y unos 1000 amigos cercanos y famosos celebran la unión más esperada de la cultura pop.`\
+https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
+
+**Live Updates: Taylor Swift and Travis Kelce Are Officially Married, With Star-Studded M.S.G. Bash Underway**\
+`Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **Taylor Swift Wears Dior Dress by Jonathan Anderson for MSG Wedding**\
 `The pop star said “I do” to a gown designed by Jonathan Anderson, the French house’s creative director.`\
 https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-dress-dior.html
