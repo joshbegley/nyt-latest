@@ -1,3 +1,7 @@
+**The City Where You’ll Nearly Always Want a Jacket on the Fourth of July**\
+`As the East Coast bakes under a heat wave, San Francisco will be 66 degrees. But good luck watching the fireworks through the fog.`\
+https://www.nytimes.com/2026/07/04/weather/san-francisco-july-4-forecast-golden-gate-bridge-fireworks.html
+
 **Justice Department Defends Dropping Charges Against Indian Billionaire**\
 `An agency official said that Gautam Adani’s offer to invest $10 billion in the United States did not affect the decision to abandon a bribery case against him.`\
 https://www.nytimes.com/2026/07/04/nyregion/adani-justice-department.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/04/crosswords/strands-sidekick-854.html
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `The Times has reporters covering celebrations in places large and small, as crowds turn out for parades and flyovers, new citizens are made and tall ships navigate New York Harbor. Tonight promises to bring a large-scale firework show in Washington, D.C.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
-
-**Mexico’s Secret 12th Man in the World Cup: Baby Jesus**\
-`The tradition of dressing up a baby Jesus statue began in a Mexico City church nearly 60 years ago. It moved to the cathedral for this World Cup and Mexico hasn’t lost yet.`\
-https://www.nytimes.com/2026/07/04/world/americas/mexico-world-cup-baby-jesus.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\

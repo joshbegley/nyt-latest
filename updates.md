@@ -1,3 +1,7 @@
+**Justice Department Defends Dropping Charges Against Indian Billionaire**\
+`An agency official said that Gautam Adani’s offer to invest $10 billion in the United States did not affect the decision to abandon a bribery case against him.`\
+https://www.nytimes.com/2026/07/04/nyregion/adani-justice-department.html
+
 **Boxed Sets**\
 `Rich Katz’s latest Sunday puzzle woos us with some lovely triangles.`\
 https://www.nytimes.com/2026/07/04/crosswords/daily-puzzle-2026-07-05.html
