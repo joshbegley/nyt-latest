@@ -1,3 +1,7 @@
+**Nathan’s Hot Dog Contest Captivates Coney Island Despite Heat Wave**\
+`Temperatures climbed above 90 degrees on Saturday, as Joey Chestnut and Miki Sudo once again reigned supreme.`\
+https://www.nytimes.com/2026/07/04/nyregion/hot-dog-contest-nyc.html
+
 **Miles de mexicanos le piden al Niño Jesús una alegría en el Mundial**\
 `La tradición de vestir una estatuilla del Niño Jesús empezó en una iglesia de Ciudad de México hace casi 60 años. Se trasladó a la catedral para este Mundial y México aún no ha perdido.`\
 https://www.nytimes.com/es/2026/07/04/espanol/america-latina/nino-jesus-futbol-mexico.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/07/04/arts/television/human-vapor-review-netflix.ht
 **Taylor Swift and Travis Kelce’s American Royal Wedding**\
 `A mega-famous popstar and a Super Bowl champion celebrated their love in Midtown Manhattan, announcing both their union and their cultural domination.`\
 https://www.nytimes.com/2026/07/04/style/taylor-swift-travis-kelce-american-royal-wedding.html
-
-**Ukraine Is Bringing the War With Russia to Crimea, Strike After Strike**\
-`Ukraine is engaged in a campaign in Crimea to take out Russian air defenses, sever vital supply lines, and cripple the peninsula's energy grid and fuel reserves.`\
-https://www.nytimes.com/interactive/2026/07/04/world/europe/ukraine-russia-crimea-war-strikes.html
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
 `As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\

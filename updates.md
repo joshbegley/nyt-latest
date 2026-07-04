@@ -1,3 +1,7 @@
+**Nathan’s Hot Dog Contest Captivates Coney Island Despite Heat Wave**\
+`Temperatures climbed above 90 degrees on Saturday, as Joey Chestnut and Miki Sudo once again reigned supreme.`\
+https://www.nytimes.com/2026/07/04/nyregion/hot-dog-contest-nyc.html
+
 **Miles de mexicanos le piden al Niño Jesús una alegría en el Mundial**\
 `La tradición de vestir una estatuilla del Niño Jesús empezó en una iglesia de Ciudad de México hace casi 60 años. Se trasladó a la catedral para este Mundial y México aún no ha perdido.`\
 https://www.nytimes.com/es/2026/07/04/espanol/america-latina/nino-jesus-futbol-mexico.html
