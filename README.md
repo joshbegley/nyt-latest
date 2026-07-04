@@ -1,4 +1,4 @@
-**In Backing President Trump’s Policies, Justice Alito Finds His Moment**\
+**Justice Alito Gives No Indication He’s Ready to Step Down From the Supreme Court**\
 `This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
 https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
 
