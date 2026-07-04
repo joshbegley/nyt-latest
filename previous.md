@@ -1,3 +1,19 @@
+**La guerra llega a las gasolineras de Rusia**\
+`“¿Ahora estamos en la Unión Soviética?”, preguntó una mujer rusa, atónita y frustrada por las esperas para cargar combustible.`\
+https://www.nytimes.com/es/2026/07/04/espanol/mundo/rusia-escasez-combustible.html
+
+**A Look at the Many Knicks Murals That Popped Up After the Championship**\
+`To celebrate the team, most Knicks fans bought hats and T-shirts. For New York’s street artists, a different kind of impulse took hold.`\
+https://www.nytimes.com/2026/07/04/nyregion/nyc-knicks-murals.html
+
+**Fourth of July Weekend Presents a Huge Logistical Challenge for New York**\
+`A flurry of major events is expected to draw large crowds, requiring extensive planning and security preparations. Oh, and there’s also a heat wave.`\
+https://www.nytimes.com/2026/07/04/nyregion/nyc-july-4th-security.html
+
+**NYT Spelling Bee Answers for July 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/04/crosswords/spelling-bee-forum.html
+
 **How Mamdani Sees the World Through Soccer**\
 `Mayor Zohran Mamdani says that the sport embodies his political identity, even as the World Cup has been colored by corporate greed and geopolitical concerns.`\
 https://www.nytimes.com/2026/07/04/nyregion/mamdani-world-cup-fifa.html
@@ -146,15 +162,11 @@ https://www.nytimes.com/2026/07/03/style/taylor-swift-wedding-time-msg-schedule.
 `Parades in Washington and Philadelphia were canceled, and the Great American State Fair on the National Mall closed for several hours.`\
 https://www.nytimes.com/2026/07/03/weather/heat-wave-weather-delays-injuries.html
 
-**Victoria Cruz, Veteran of the Trans Rights Movement, Dies at 79**\
-`She was at the Stonewall Inn on the night of its 1969 police raid, and she later became a forceful advocate for survivors of anti-trans violence.`\
-https://www.nytimes.com/2026/07/03/nyregion/victoria-cruz-dead.html
-
 **Taylor Swift y Travis Kelce ya están casados, y la fiesta en el MSG transcurre repleta de estrellas**\
 `Adam Sandler ofició la ceremonia. Tanto la novia como el novio vistieron de Dior. Y hasta 1000 de los amigos más cercanos (y famosos) de la pareja están de fiesta dentro del estadio de Nueva York.`\
 https://www.nytimes.com/live/2026/07/03/espanol/boda-taylor-swift-travis-kelce
 
-**Live Updates: Taylor Swift and Travis Kelce Are Officially Married. The Star-Studded M.S.G. Bash Continues.**\
-`Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends are celebrating inside the New York arena.`\
+**Live Updates: Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
+`Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
 https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
 

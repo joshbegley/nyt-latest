@@ -1,3 +1,23 @@
+**La guerra llega a las gasolineras de Rusia**\
+`“¿Ahora estamos en la Unión Soviética?”, preguntó una mujer rusa, atónita y frustrada por las esperas para cargar combustible.`\
+https://www.nytimes.com/es/2026/07/04/espanol/mundo/rusia-escasez-combustible.html
+
+**A Look at the Many Knicks Murals That Popped Up After the Championship**\
+`To celebrate the team, most Knicks fans bought hats and T-shirts. For New York’s street artists, a different kind of impulse took hold.`\
+https://www.nytimes.com/2026/07/04/nyregion/nyc-knicks-murals.html
+
+**Fourth of July Weekend Presents a Huge Logistical Challenge for New York**\
+`A flurry of major events is expected to draw large crowds, requiring extensive planning and security preparations. Oh, and there’s also a heat wave.`\
+https://www.nytimes.com/2026/07/04/nyregion/nyc-july-4th-security.html
+
+**NYT Spelling Bee Answers for July 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/04/crosswords/spelling-bee-forum.html
+
+**Live Updates: Taylor Swift and Travis Kelce Are Married at Star-Studded M.S.G. Bash**\
+`Adam Sandler officiated the ceremony. The bride and groom both wore Dior. And up to 1,000 of the couple’s closest (and most famous) friends celebrated inside the New York arena.`\
+https://www.nytimes.com/live/2026/07/03/style/taylor-swift-wedding-travis-kelce
+
 **How Mamdani Sees the World Through Soccer**\
 `Mayor Zohran Mamdani says that the sport embodies his political identity, even as the World Cup has been colored by corporate greed and geopolitical concerns.`\
 https://www.nytimes.com/2026/07/04/nyregion/mamdani-world-cup-fifa.html
