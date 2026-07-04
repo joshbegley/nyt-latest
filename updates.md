@@ -1,3 +1,7 @@
+**Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
+`As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/2026/07/04/world/middleeast/iran-ayatollah-funeral.html
+
 **Prince Harry Will Travel to London, but Without His Family**\
 `The prince’s wife, Meghan, and their children could still join him for other parts of his trip outside the capital, a person close to the family said.`\
 https://www.nytimes.com/2026/07/04/world/europe/prince-harry-london-trip-meghan-children.html
