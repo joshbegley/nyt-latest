@@ -1,3 +1,7 @@
+**Ordering Objects at V&A East Storehouse: From a David Bowie Guitar to Beatrix Potter Originals**\
+`Visitors at the V&A East Storehouse can book appointments with artifacts that usually aren’t on show — and can even touch many of them.`\
+https://www.nytimes.com/2026/07/05/arts/design/v-and-a-east-storehouse.html
+
 **Far From Kyiv and Moscow, Soldiers Stalk Ruins and Evade Drones on the Front**\
 `Ukraine’s military has denied a Kremlin claim to have taken a city in the eastern Donetsk region, saying its troops are holding out against infiltrating Russians.`\
 https://www.nytimes.com/2026/07/05/world/europe/ukraine-russia-donetsk-front.html
