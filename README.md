@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/07/05/crosswords/wordle-review-1843.html
 `Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
 https://www.nytimes.com/2026/07/05/crosswords/connections-companion-1121.html
 
-**Maybe You Don’t Need Therapy**\
+**I’m a Therapist. Not Everyone Should Be in Therapy.**\
 `Many patients misunderstand what therapy reliably provides.`\
 https://www.nytimes.com/2026/07/05/opinion/therapy-loneliness-friendship.html
 
