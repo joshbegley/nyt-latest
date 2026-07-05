@@ -1,3 +1,7 @@
+**China Frees Pastor Detained in Crackdown on Religion After Trump’s Urging**\
+`Ezra Jin Mingri was released nearly two months after President Trump raised his case with China’s leader, Xi Jinping, during a visit to Beijing.`\
+https://www.nytimes.com/2026/07/05/world/asia/ezra-jin-mingri-china-christian-xi-trump.html
+
 **China Raises Pressure on Taiwan With Expanded Coast Guard Patrols**\
 `Beijing sent two ships to patrol the waters east of Taiwan, a new campaign to challenge the island’s control of waters crucial to any future invasion.`\
 https://www.nytimes.com/2026/07/05/world/asia/china-taiwan-east-coast-guard-patrols.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/07/04/dining/atlantic-beach-pie-is-the-ultimate-sum
 **Fireworks and Trump Speech Cap Independence Day Celebrations**\
 `People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
-
-**Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
-`As days of public mourning ceremonies began, Iranians viewed the casket of Ayatollah Ali Khamenei, who was killed four months ago at the start of the U.S.-Israeli attacks.`\
-https://www.nytimes.com/live/2026/07/04/world/iran-funeral-ayatollah-khamenei
 

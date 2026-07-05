@@ -1,3 +1,7 @@
+**China Frees Pastor Detained in Crackdown on Religion After Trump’s Urging**\
+`Ezra Jin Mingri was released nearly two months after President Trump raised his case with China’s leader, Xi Jinping, during a visit to Beijing.`\
+https://www.nytimes.com/2026/07/05/world/asia/ezra-jin-mingri-china-christian-xi-trump.html
+
 **China Raises Pressure on Taiwan With Expanded Coast Guard Patrols**\
 `Beijing sent two ships to patrol the waters east of Taiwan, a new campaign to challenge the island’s control of waters crucial to any future invasion.`\
 https://www.nytimes.com/2026/07/05/world/asia/china-taiwan-east-coast-guard-patrols.html
