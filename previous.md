@@ -1,3 +1,7 @@
+**Guam and Northern Mariana Islands Prepare for Typhoon Bavi**\
+`Typhoon Bavi, a tropical cyclone barreling through the Pacific Ocean, was forecast to pass near the U.S. territories on Monday with the force of a Category 5 hurricane.`\
+https://www.nytimes.com/2026/07/05/us/guam-typhoon-bavi-marianas.html
+
 **Searching for What Pretty Means After an Acid Attack**\
 `Nafiah Ikram was steps from her home when a stranger threw acid in her face. Five years later, she is trying to rebuild her life and cope with a stunning twist in her case.`\
 https://www.nytimes.com/2026/07/05/nyregion/nafiah-ikram-acid-attack.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/04/dining/atlantic-beach-pie-is-the-ultimate-sum
 **The Unifying Speech We Won’t Get This Independence Day**\
 `America, we need a new beginning.`\
 https://www.nytimes.com/video/opinion/100000011002600/the-unifying-speech-we-wont-get-this-independence-day.html
-
-**¿Cómo evitar accidentes en un feriado?**\
-`Los médicos comparten consejos para que celebres el 4 de julio sin peligros.`\
-https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/feriado-consejos-seguridad.html
 
 **Fireworks and Trump Speech Cap Independence Day Celebrations**\
 `People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\

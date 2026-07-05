@@ -1,3 +1,7 @@
+**Guam and Northern Mariana Islands Prepare for Typhoon Bavi**\
+`Typhoon Bavi, a tropical cyclone barreling through the Pacific Ocean, was forecast to pass near the U.S. territories on Monday with the force of a Category 5 hurricane.`\
+https://www.nytimes.com/2026/07/05/us/guam-typhoon-bavi-marianas.html
+
 **Israel Is Not Invincible**\
 `There is suddenly daylight between the Trump administration and Netanyahu.`\
 https://www.nytimes.com/2026/07/05/opinion/trump-netanyahu-us-israel.html
