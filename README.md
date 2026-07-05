@@ -1,3 +1,7 @@
+**Israel’s Government Threatens to Ignore a Top Court Ruling**\
+`A resolution by the country’s cabinet escalated a long-running conflict between Prime Minister Benjamin Netanyahu and the country’s judiciary. A senior government official later walked that back.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/israel-court-netanyahu-clash.html
+
 **Shootings in Nine States Mar Fourth of July Celebrations**\
 `Shootings occurred across the country, including in New York, Florida, Texas, Illinois and Tennessee. More than 50 people were shot, and at least five people have died.`\
 https://www.nytimes.com/2026/07/05/us/shootings-fourth-of-july-weekend.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/es/2026/07/05/espanol/estados-unidos/criptomoneda-trump-
 `The movie generated $36.4 million in ticket sales in North America for the holiday weekend, a 62 percent decline from 2024, the last time a “Minions” movie was in theaters.`\
 https://www.nytimes.com/2026/07/05/business/media/minions-box-office-franchise.html
 
-**All Passengers Rescued as Seaplane Crashes in East River**\
-`The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and six passengers.`\
+**Their Seaplane Trip From the Hamptons Ends With a Scary 15 Seconds**\
+`A grandmother and granddaughter were among six passengers on a seaplane that crashed in the East River. The Fire Department and the police rescued them along with the pilot and a crew member.`\
 https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
 
 **Mallory McMorrow Suspends Senate Bid in Democrats’ Heated Michigan Primary**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/05/espanol/cultura/robby-hoffman-hacks-comedi
 **El debate que divide a Francia sobre la crianza de los hijos**\
 `El auge de la crianza positiva ha provocado una fuerte controversia después de que una psicóloga defendió el regreso a una disciplina más estricta.`\
 https://www.nytimes.com/es/2026/07/05/espanol/estilos-crianza-francia.html
-
-**On America’s 250th, Smithsonian Museums Offer Respite and Reflection**\
-`An institution under attack from the Trump administration provided relief from the weather on July 4 — and a chance to ponder what it means to be American.`\
-https://www.nytimes.com/2026/07/05/arts/design/america-250-anniversary-smithsonian.html
 
