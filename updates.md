@@ -1,3 +1,7 @@
+**8 Wounded in Coney Island Shooting on Fourth of July**\
+`The victims included two boys, aged 6 and 7, and one woman who remained in critical condition on Sunday, the police said. No arrests had been made.`\
+https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth-fireworks.html
+
 **The Most American Thing**\
 `What best represents America?`\
 https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
