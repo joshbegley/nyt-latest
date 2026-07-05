@@ -1,3 +1,35 @@
+**Mexico Has Been Waiting for This**\
+`In Mexico City, World Cup euphoria is overshadowing political gloom.`\
+https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
+
+**Obama vs. Trump Is the Election Day We Needed but Never Got**\
+`The proxy battles we got instead have not settled questions we have to settle.`\
+https://www.nytimes.com/2026/07/05/opinion/obama-trump-presidency-election.html
+
+**The Art of Summitry**\
+`The performance is meant to imply that the world is an orderly place, or at least a place on which reasonable people are determined to impose some order.`\
+https://www.nytimes.com/2026/07/05/opinion/nato-summit-ankara-turkey.html
+
+**The Most American Episode of the Daily, Ever.**\
+`What 23 very American things tell us about our country.`\
+https://www.nytimes.com/2026/07/05/podcasts/the-daily/the-most-american-episode-of-the-daily-ever.html
+
+**Today’s Wordle Hints for July 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/05/crosswords/wordle-review-1843.html
+
+**NYT Connections Answers for July 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/05/crosswords/connections-companion-1121.html
+
+**Maybe You Don’t Need Therapy**\
+`Many patients misunderstand what therapy reliably provides.`\
+https://www.nytimes.com/2026/07/05/opinion/therapy-loneliness-friendship.html
+
+**NYT Strands Hints for July 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/05/crosswords/strands-sidekick-855.html
+
 **Mourners Chant ‘Revenge’ at Funeral Prayers for Iran’s Slain Supreme Leader**\
 `On the second day of public mourning for Ayatollah Ali Khamenei, who was killed in February, there was still no sign of his son and successor, Mojtaba Khamenei.`\
 https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-supreme-leader.html
