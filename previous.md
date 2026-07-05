@@ -1,3 +1,11 @@
+**Chinese Dreamcore Takes Over Gen Z Social Media Feeds**\
+`Chinese Dreamcore is taking over the social media feeds of young people in China, who face falling wages and a dire job market. The memes and videos express a desire to return to simpler times.`\
+https://www.nytimes.com/video/world/asia/100000010930078/china-dreamcore.html
+
+**Quote of the Day: Discord in Iran as Hard-Liners Resist U.S. Talks**\
+`Quotation of the Day for Sunday, July 5, 2026.`\
+https://www.nytimes.com/2026/07/05/pageoneplus/quote-of-the-day-discord-in-iran-as-hard-liners-resist-us-talks.html
+
 **The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
 `The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
 https://www.nytimes.com/2026/07/04/nyregion/fire-brooklyn-bridge-fireworks.html
@@ -142,16 +150,8 @@ https://www.nytimes.com/2026/07/04/opinion/norway-nordic-social-democracy.html
 `America, we need a new beginning.`\
 https://www.nytimes.com/video/opinion/100000010994509/the-unifying-speech-we-wont-get-this-independence-day.html
 
-**Technology Ruined Our Lazy Days at the Lake**\
-`Living at the lake house taught me about risk taking and other life lessons.`\
-https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-dad.html
-
-**Five Questions That Will Determine America’s Next 50 Years**\
-`The truth worth celebrating this summer is that our country is still being made.`\
-https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
-
 **July 4 Live Updates: Trump Speaks as America Celebrates Its 250th Birthday**\
-`Americans across the country marked the day with exuberance, patriotic colors and fireworks even as extreme heat and storms disrupted some events. The president is speaking before a huge fireworks show in the capital.`\
+`People across the United States marked Independence Day with exuberance even as extreme heat and storms disrupted some events. The president delivered a weather-delayed speech in the capital ahead of a fireworks show.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\

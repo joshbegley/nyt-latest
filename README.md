@@ -1,3 +1,19 @@
+**Rebel Catholics Defy Vatican’s Calls to Return to Mainstream Church**\
+`The Vatican has excommunicated the priesthood of a rebel Catholic faction. Many of the priests’ followers have refused to renounce them.`\
+https://www.nytimes.com/2026/07/05/world/europe/schism-catholic-pope-society-pius-excommunication.html
+
+**Ordering Objects at V&E East Storehouse: From David Bowie Guitar to Beatrix Potter Originals**\
+`Visitors at the V&A East Storehouse can book appointments with artifacts that usually aren’t on show — and can even touch many of them.`\
+https://www.nytimes.com/2026/07/05/arts/design/v-and-a-east-storehouse.html
+
+**Impeachment Trial of Philippine Vice President Set to Begin**\
+`Sara Duterte, who has said she would run for president, could be barred from politics over allegations of corruption and for making death threats against President Ferdinand Marcos Jr.`\
+https://www.nytimes.com/2026/07/05/world/asia/impeachment-trial-philippines-sara-duterte.html
+
+**As Xi Looks to Extend His Rule, He Leans on a Longtime Ally**\
+`Xi Jinping is preparing to extend his rule as China’s leader and bring fresh blood into the Communist Party elite. Cai Qi is the man he’s tasking to help.`\
+https://www.nytimes.com/2026/07/05/world/asia/china-xi-leadership-cai-qi.html
+
 **Chinese Dreamcore Takes Over Gen Z Social Media Feeds**\
 `Chinese Dreamcore is taking over the social media feeds of young people in China, who face falling wages and a dire job market. The memes and videos express a desire to return to simpler times.`\
 https://www.nytimes.com/video/world/asia/100000010930078/china-dreamcore.html
@@ -133,22 +149,6 @@ https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei
 **The Unifying Speech We Won’t Get This Independence Day**\
 `America, we need a new beginning.`\
 https://www.nytimes.com/2026/07/04/opinion/250-america-independence-day.html
-
-**We Hate to Break It to You, but Maybe We’re Not That Polarized**\
-`Americans have been told for at least two decades that they share less and less, while the data show the actual overlap holding roughly steady.`\
-https://www.nytimes.com/2026/07/04/opinion/common-ground-polarization-red-blue-america.html
-
-**Founding Father vs. Foundering Toddler**\
-`No. 1 puts No. 45/47 to shame.`\
-https://www.nytimes.com/2026/07/04/opinion/founding-father-vs-foundering-toddler.html
-
-**What We Should Learn From Nordic Happiness**\
-`Scandinavia is the land of five-week vacations, virtually free university, one-year parental leaves, easy child care — and very happy citizens.`\
-https://www.nytimes.com/2026/07/04/opinion/norway-nordic-social-democracy.html
-
-**The Unifying Speech We Won’t Get This Independence Day**\
-`America, we need a new beginning.`\
-https://www.nytimes.com/video/opinion/100000010994509/the-unifying-speech-we-wont-get-this-independence-day.html
 
 **July 4 Live Updates: Trump Speaks as America Celebrates Its 250th Birthday**\
 `People across the United States marked Independence Day with exuberance even as extreme heat and storms disrupted some events. The president delivered a weather-delayed speech in the capital ahead of a fireworks show.`\
