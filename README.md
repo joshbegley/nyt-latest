@@ -1,3 +1,7 @@
+**The Main Attraction at Africa’s Most Lucrative Horse Race? Black Wealth.**\
+`In South Africa, where the Black majority was excluded from the economy for generations, the annual Durban July event is a chance to celebrate luxury and high society.`\
+https://www.nytimes.com/2026/07/05/world/africa/durban-july-south-africa-black-wealth.html
+
 **La criptomoneda de Trump ha causado pérdidas de millardos de dólares a sus inversores**\
 `Un informe de una empresa de análisis detalla cómo les ha ido a quienes compraron la memecoin de Trump: la mayoría de los inversores minoristas han perdido dinero, mientras que a los más experimentados les ha ido mejor.`\
 https://www.nytimes.com/es/2026/07/05/espanol/estados-unidos/criptomoneda-trump-perdida-inversores.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/business/philosophy-majors-ai-jobs.html
 **How Meta’s Threads Became as Popular as X**\
 `The social platform that Meta once positioned as a rival to Elon Musk’s X now has 500 million monthly users. It increasingly resembles Reddit.`\
 https://www.nytimes.com/2026/07/05/technology/threads-meta-twitter-x.html
-
-**‘The Face,’ by Fay Bound-Alberti**\
-`In “The Face,” Fay Bound-Alberti examines our relationship to our most public features.`\
-https://www.nytimes.com/2026/07/05/books/review/the-face-fay-bound-alberti.html
 
