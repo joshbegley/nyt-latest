@@ -1,3 +1,7 @@
+**At Trump’s Direction, Federal Agencies Are Abandoning Discrimination Cases**\
+`President Trump has tried to scale back anti-discrimination regulations that date back decades. Federal agencies have heeded his call.`\
+https://www.nytimes.com/2026/07/05/us/politics/trump-dei-order-eeoc-discrimination.html
+
 **México llevaba tiempo esperando esto**\
 `La euforia por el Mundial está eclipsando el pesimismo político.`\
 https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
