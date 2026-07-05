@@ -1,3 +1,7 @@
+**8 Wounded in Coney Island Shooting on Fourth of July**\
+`The victims included two boys, aged 6 and 7, and one woman who remained in critical condition on Sunday, the police said. No arrests had been made.`\
+https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth-fireworks.html
+
 **The Most American Thing**\
 `What best represents America?`\
 https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/nyregion/nafiah-ikram-acid-attack.html
 **NYT Spelling Bee Answers for July 5, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/05/crosswords/spelling-bee-forum.html
-
-**‘Near the End of the Meal, He Mentioned That He Was a Musician’**\
-`More friends of Metropolitan Diary, including the chef Daniel Humm and the writer Jennifer Egan, help mark the column’s 50th anniversary by sharing their New York City stories.`\
-https://www.nytimes.com/2026/07/05/nyregion/metropolitan-diary.html
 
