@@ -178,7 +178,7 @@ https://www.nytimes.com/interactive/2026/07/05/world/asia/china-nostalgia-dream-
 `The Vatican has excommunicated the priesthood of a rebel Catholic faction. Many of the priests’ followers have refused to renounce them.`\
 https://www.nytimes.com/2026/07/05/world/europe/schism-catholic-pope-society-pius-excommunication.html
 
-**Ordering Objects at V&E East Storehouse: From David Bowie Guitar to Beatrix Potter Originals**\
+**Ordering Objects at V&A East Storehouse: From David Bowie’s Guitar to Beatrix Potter Originals**\
 `Visitors at the V&A East Storehouse can book appointments with artifacts that usually aren’t on show — and can even touch many of them.`\
 https://www.nytimes.com/2026/07/05/arts/design/v-and-a-east-storehouse.html
 
