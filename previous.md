@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/07/05/business/how-to-be-underemployed.html
 `Visitors are enduring especially long waits at the popular national park after the Trump administration eliminated a summer reservation system.`\
 https://www.nytimes.com/2026/07/05/us/yosemite-national-park-tourists.html
 
-**The Revenge of the Philosophy Majors**\
+**Philosophers Are the Latest Hiring Target for AI Companies**\
 `A.I. labs are hiring contrarian, chin-stroking, finger-steepling sages. Who’s underemployed now?`\
 https://www.nytimes.com/2026/07/05/business/philosophy-majors-ai-jobs.html
 

@@ -1,3 +1,7 @@
+**Philosophers Are the Latest Hiring Target for AI Companies**\
+`A.I. labs are hiring contrarian, chin-stroking, finger-steepling sages. Who’s underemployed now?`\
+https://www.nytimes.com/2026/07/05/business/philosophy-majors-ai-jobs.html
+
 **OPEC Plus Pledges to Pump More Even as Oil Prices Fall**\
 `The cartel’s decision comes as U.S.-Iran talks to end the war have eased pressure on oil supplies, even as broader market and political volatility persists.`\
 https://www.nytimes.com/2026/07/05/business/opec-production-iran-war.html
