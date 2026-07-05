@@ -154,10 +154,6 @@ https://www.nytimes.com/2026/07/04/briefing/happy-birthday-to-us.html
 `I want to help, but I worry financial support may enable her rather than help her.`\
 https://www.nytimes.com/2026/07/04/magazine/sister-money-lending-ethics.html
 
-**A Big Week in the West, Canada vs. Morocco, Trade and a Canada-U.S. Quiz**\
-`Prime Minister Mark Carney further diversified trade away from the U.S. this week by announcing multibillion dollar investments in Alberta and British Columbia.`\
-https://www.nytimes.com/2026/07/04/world/canada/carney-alberta-pipeline-canada-us.html
-
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `Despite extreme heat in much of the nation, the day was marked with the customary American exuberance. Storm threats forced an evacuation of thousands on the National Mall in Washington, where the president plans to speak before a huge fireworks show.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
