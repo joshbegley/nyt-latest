@@ -1,3 +1,7 @@
+**July 4 Live Updates: America Celebrates Its 250th Birthday**\
+`Despite extreme heat in much of the nation, the day was marked with the customary American exuberance. Storm threats forced an evacuation of thousands on the National Mall in Washington, where the president plans to speak before a huge fireworks show.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **Crowds Evacuated as Storms Menace Washington Ahead of Trump Speech**\
 `Thousands of people stood in security lines for hours in severe heat to reach the National Mall, only to be ordered to leave as events were set to start. Some refused.`\
 https://www.nytimes.com/2026/07/04/us/politics/national-mall-evacuated-storms.html
