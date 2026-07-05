@@ -1,3 +1,19 @@
+**All Passengers Rescued as Seaplane Crashes in East River**\
+`The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and at least six passengers.`\
+https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
+
+**Mallory McMorrow Ends Senate Bid in Democrats’ Heated Michigan Primary**\
+`The state senator sought to carve a middle path between a left-wing candidate and one backed by the party establishment, but she gained little traction.`\
+https://www.nytimes.com/2026/07/05/us/politics/mcmorrow-senate-suspend-campaign-democrats-michigan.html
+
+**More Severe Weather Looms as Over 800,000 Remain Without Power**\
+`Strong storms knocked out power this week to customers from Oklahoma to Connecticut. As they waited on Sunday for the lights to come back on, the forecast called for more severe weather.`\
+https://www.nytimes.com/2026/07/05/us/storms-flood-rain-power-outages-midwest-northeast.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000011012790/seaplane-crashes-in-east-river.html
+
 **Elle Woods vuelve a las pantallas, esta vez en su adolescencia**\
 `Tras una audición insólita y miles de aspirantes, Lexi Minetree consiguió el papel con una mezcla de disciplina, encanto y una fe absoluta en el personaje.`\
 https://www.nytimes.com/es/2026/07/05/espanol/cultura/elle-woods-vuelve-a-las-pantallas-esta-vez-en-su-adolescencia.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/05/fashion/jewelry-secure-vaults-singapore.html
 **Trump Administration Rolls Back Dozens of Gun Regulations**\
 `Critics say the administration is weakening public safety. Proponents say regulations would be where they were before President Joseph R. Biden took office.`\
 https://www.nytimes.com/2026/07/05/us/politics/trump-gun-rights-laws.html
-
-**Book Review: ‘Country People,’ by Daniel Mason**\
-`In Daniel Mason’s charming “Country People,” a stuck father and his happier family are tempted, and changed, during a stint on a bucolic campus.`\
-https://www.nytimes.com/2026/07/05/books/review/country-people-daniel-mason.html
-
-**7 Inspiring Soccer Documentaries to Stream**\
-`In these nonfiction accounts, the sport is a force for hope in sometimes dire situations.`\
-https://www.nytimes.com/2026/07/05/movies/world-cup-soccer-documentaries-streaming.html
-
-**Anabela Chan Turns Fruit and Vegetables Into ‘Gems’**\
-`The London jeweler Anabela Chan has created a way to turn fruits and vegetables into “gems.”`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-fruit-gems-anabela-chan-london.html
-
-**His Jewelry Ranges From the Look of Coral to Dragonflies**\
-`Jonathan Yun has drawn inspiration from his years of scuba diving and Peranakan Chinese heritage.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-jonathan-yun-malaysia.html
 
