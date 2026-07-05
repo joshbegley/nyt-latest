@@ -1,3 +1,39 @@
+**Los mejores consejos sobre relaciones que hemos escuchado este año**\
+`Los expertos nos han dicho muchas veces que las relaciones necesitan atención y cuidado constantes, sin importar cuánto tiempo tenga el vínculo.`\
+https://www.nytimes.com/es/2026/07/05/espanol/consejos-pareja.html
+
+**America Marks Its 250th Birthday With Storms, Sweat and Fire**\
+`Independence Day celebrations were canceled nationwide and the Brooklyn Bridge briefly caught fire. Yet Americans still found countless ways to celebrate.`\
+https://www.nytimes.com/2026/07/05/us/america-250-celebrations.html
+
+**Taylor Swift’s Wedding Became a Marketing Moment for Brands Big and Small**\
+`Some businesses flocked to social media using A.I.-generated content, while others deployed timely digital ads designed to capitalize on the frenzy surrounding this major celebrity event.`\
+https://www.nytimes.com/2026/07/05/style/taylor-swift-wedding-marketing-brands-ai.html
+
+**What We Saw at Ayatollah Khamenei’s Funeral**\
+`Our Middle East correspondent Abdi Latif Dahir attended the first day of funeral ceremonies for Ayatollah Ali Khamenei, the former supreme leader of Iran who was killed by U.S. and Israeli air strikes in February.`\
+https://www.nytimes.com/video/world/middleeast/100000011011151/what-we-saw-at-ayatollah-khameneis-funeral.html
+
+**Years of Warnings About Public Housing Preceded Venezuela’s Earthquakes**\
+`Residents, construction experts and seismologists said for years that Venezuela’s public housing would be vulnerable in a natural disaster.`\
+https://www.nytimes.com/2026/07/05/world/americas/venezuela-earthquake-la-guaira-building-collapse-government.html
+
+**Para Robby Hoffman, el dinero nunca borrará la pobreza**\
+`La comediante y actriz asegura que la experiencia de haber crecido con carencias sigue definiendo su forma de vivir.`\
+https://www.nytimes.com/es/2026/07/05/espanol/cultura/robby-hoffman-hacks-comedia.html
+
+**El debate que divide a Francia sobre la crianza de los hijos**\
+`El auge de la crianza positiva ha provocado una fuerte controversia después de que una psicóloga defendió el regreso a una disciplina más estricta.`\
+https://www.nytimes.com/es/2026/07/05/espanol/estilos-crianza-francia.html
+
+**On America’s 250th, Smithsonian Museums Offer Respite and Reflection**\
+`An institution under attack from the Trump administration provided relief from the weather on July 4 — and a chance to ponder what it means to be American.`\
+https://www.nytimes.com/2026/07/05/arts/design/america-250-anniversary-smithsonian.html
+
+**I Have a Light Workload and I Simply Can’t Handle It**\
+`Plus: When a nurse practitioner in gynecology needs care, should she see one of her own colleagues?`\
+https://www.nytimes.com/2026/07/05/business/how-to-be-underemployed.html
+
 **Yosemite Offers Many Wonders. Crushing Crowds Are Now One of Them.**\
 `Visitors are enduring especially long waits at the popular national park after the Trump administration eliminated a summer reservation system.`\
 https://www.nytimes.com/2026/07/05/us/yosemite-national-park-tourists.html
@@ -157,38 +193,6 @@ https://www.nytimes.com/2026/07/05/pageoneplus/quote-of-the-day-discord-in-iran-
 **The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
 `The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
 https://www.nytimes.com/2026/07/04/nyregion/fire-brooklyn-bridge-fireworks.html
-
-**This California Town Banned Fireworks. Then Came the Dogs.**\
-`People flock to the coastal town of Cambria, which has become known for its fireworks ban, to give their dogs some respite on the Fourth of July.`\
-https://www.nytimes.com/2026/07/04/us/politics/this-california-town-banned-fireworks-then-came-the-dogs.html
-
-**Nancy Pelosi’s Husband Could Face Charge Over Napa County Car Crash**\
-`The police said Paul Pelosi was the driver of a convertible that struck a parked car on Friday. The district attorney will decide whether Mr. Pelosi will be charged.`\
-https://www.nytimes.com/2026/07/04/us/paul-pelosi-hit-run-napa.html
-
-**Crowds Evacuated as Storms Menace Washington Ahead of Trump Speech**\
-`Thousands of people stood in security lines for hours in severe heat to reach the National Mall, only to be ordered to leave as events were set to start. Some refused.`\
-https://www.nytimes.com/2026/07/04/us/politics/national-mall-evacuated-storms.html
-
-**Maryland Boat Explosion Leaves at Least 10 Injured, Officials Say**\
-`A 32-foot-long boat exploded in Chesapeake City, leaving four people with serious burns, officials said. The cause was under investigation.`\
-https://www.nytimes.com/2026/07/04/us/maryland-boat-explosion.html
-
-**United States Celebrates 250th Birthday**\
-`Americans celebrated the country’s 250th anniversary on Saturday with a series of Fourth of July events.`\
-https://www.nytimes.com/video/us/100000011011512/july-4-250-anniversary.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011011920/04vid-fourth-of-july-stadium-19850.html
-
-**The City Where You’ll Nearly Always Want a Jacket on the Fourth of July**\
-`As the East Coast bakes under a heat wave, San Francisco will be 66 degrees. But good luck watching the fireworks through the fog.`\
-https://www.nytimes.com/2026/07/04/weather/san-francisco-july-4-forecast-golden-gate-bridge-fireworks.html
-
-**Justice Department Defends Dropping Charges Against Indian Billionaire**\
-`An agency official said that Gautam Adani’s offer to invest $10 billion in the United States did not affect the decision to abandon a bribery case against him.`\
-https://www.nytimes.com/2026/07/04/nyregion/adani-justice-department.html
 
 **Fireworks and Trump Speech Cap Independence Day Celebrations**\
 `People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
