@@ -1,5 +1,5 @@
 **The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
-`The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
+`The fires appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
 https://www.nytimes.com/2026/07/04/nyregion/fire-brooklyn-bridge-fireworks.html
 
 **This California Town Banned Fireworks. Then Came the Dogs.**\
@@ -151,7 +151,7 @@ https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-
 https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
 
 **July 4 Live Updates: Trump Speaks as America Celebrates Its 250th Birthday**\
-`Americans across the country marked the day with exuberance, patriotic colors and fireworks even as extreme heat and storms disrupted some events. The president is set to speak before a huge fireworks show in the capital.`\
+`Americans across the country marked the day with exuberance, patriotic colors and fireworks even as extreme heat and storms disrupted some events. The president is speaking before a huge fireworks show in the capital.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\
