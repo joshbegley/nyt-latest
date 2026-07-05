@@ -1,3 +1,11 @@
+**It Failed in France. It Would Be a Disaster in California.**\
+`California might bet its future on the notion that billionaires won’t leave. But they are already fleeing the state.`\
+https://www.nytimes.com/2026/07/05/opinion/billionaire-wealth-tax-california.html
+
+**The Growing Daylight Between Netanyahu and Trump**\
+`There is suddenly daylight between the Trump administration and Netanyahu.`\
+https://www.nytimes.com/2026/07/05/opinion/trump-netanyahu-us-israel.html
+
 **In Fourth of July Speech, Trump Celebrates America and Derides Foes**\
 `A centerpiece address for the nation’s 250th anniversary celebration devoted time to American history, but had all the hallmarks of a Trump rally.`\
 https://www.nytimes.com/2026/07/05/us/politics/trump-speech-fourth-july.html

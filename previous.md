@@ -1,3 +1,11 @@
+**It Failed in France. It Would Be a Disaster in California.**\
+`California might bet its future on the notion that billionaires won’t leave. But they are already fleeing the state.`\
+https://www.nytimes.com/2026/07/05/opinion/billionaire-wealth-tax-california.html
+
+**The Growing Daylight Between Netanyahu and Trump**\
+`There is suddenly daylight between the Trump administration and Netanyahu.`\
+https://www.nytimes.com/2026/07/05/opinion/trump-netanyahu-us-israel.html
+
 **In Fourth of July Speech, Trump Celebrates America and Derides Foes**\
 `A centerpiece address for the nation’s 250th anniversary celebration devoted time to American history, but had all the hallmarks of a Trump rally.`\
 https://www.nytimes.com/2026/07/05/us/politics/trump-speech-fourth-july.html
@@ -145,10 +153,6 @@ https://www.nytimes.com/2026/07/04/world/europe/uk-july-fourth-us-independence.h
 **Justice Alito Gives No Indication He’s Ready to Step Down From the Supreme Court**\
 `This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
 https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
-
-**The Bureaucratic Hell of Getting a Job in 2026**\
-`(No description)`\
-https://www.nytimes.com/2026/07/04/opinion/purgatory-job-market.html
 
 **July 4 Live Updates: Trump Speaks as America Celebrates Its 250th Birthday**\
 `People across the United States marked Independence Day with exuberance even as extreme heat and storms disrupted some events. The president delivered a weather-delayed speech in the capital ahead of a fireworks show.`\
