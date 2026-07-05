@@ -154,8 +154,8 @@ https://www.nytimes.com/2026/07/04/world/europe/uk-july-fourth-us-independence.h
 `This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
 https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
 
-**July 4 Live Updates: Trump Speaks as America Celebrates Its 250th Birthday**\
-`People across the United States marked Independence Day with exuberance even as extreme heat and storms disrupted some events. The president delivered a weather-delayed speech in the capital ahead of a fireworks show.`\
+**July 4 Live Updates: Fireworks and Trump Speech Cap Independence Day Celebrations**\
+`People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\

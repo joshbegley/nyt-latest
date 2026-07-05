@@ -1,3 +1,7 @@
+**July 4 Live Updates: Fireworks and Trump Speech Cap Independence Day Celebrations**\
+`People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **It Failed in France. It Would Be a Disaster in California.**\
 `California might bet its future on the notion that billionaires won’t leave. But they are already fleeing the state.`\
 https://www.nytimes.com/2026/07/05/opinion/billionaire-wealth-tax-california.html
