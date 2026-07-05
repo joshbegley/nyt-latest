@@ -1,3 +1,7 @@
+**Inside ‘Chinese Dreamcore,’ Where Gen Z Relives a Brighter Past**\
+`Faced with a dire job market, falling wages and endless competition, many young Chinese are recreating scenes from the early 2000s on the internet, when the economy was growing rapidly.`\
+https://www.nytimes.com/interactive/2026/07/05/world/asia/china-nostalgia-dream-core.html
+
 **Rebel Catholics Defy Vatican’s Calls to Return to Mainstream Church**\
 `The Vatican has excommunicated the priesthood of a rebel Catholic faction. Many of the priests’ followers have refused to renounce them.`\
 https://www.nytimes.com/2026/07/05/world/europe/schism-catholic-pope-society-pius-excommunication.html

@@ -1,3 +1,7 @@
+**Inside ‘Chinese Dreamcore,’ Where Gen Z Relives a Brighter Past**\
+`Faced with a dire job market, falling wages and endless competition, many young Chinese are recreating scenes from the early 2000s on the internet, when the economy was growing rapidly.`\
+https://www.nytimes.com/interactive/2026/07/05/world/asia/china-nostalgia-dream-core.html
+
 **Rebel Catholics Defy Vatican’s Calls to Return to Mainstream Church**\
 `The Vatican has excommunicated the priesthood of a rebel Catholic faction. Many of the priests’ followers have refused to renounce them.`\
 https://www.nytimes.com/2026/07/05/world/europe/schism-catholic-pope-society-pius-excommunication.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/2026/07/04/opinion/purgatory-job-market.html
 **Will Iran’s New Supreme Leader, Mojtaba Khamenei, Attend His Father’s Funeral?**\
 `Ayatollah Mojtaba Khamenei has not been seen in public since March, after his father, Ayatollah Ali Khamenei, was killed in an Israeli strike.`\
 https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei-son.html
-
-**The Unifying Speech We Won’t Get This Independence Day**\
-`America, we need a new beginning.`\
-https://www.nytimes.com/2026/07/04/opinion/250-america-independence-day.html
 
 **July 4 Live Updates: Trump Speaks as America Celebrates Its 250th Birthday**\
 `People across the United States marked Independence Day with exuberance even as extreme heat and storms disrupted some events. The president delivered a weather-delayed speech in the capital ahead of a fireworks show.`\
