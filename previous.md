@@ -1,3 +1,11 @@
+**Elle Woods vuelve a las pantallas, esta vez en su adolescencia**\
+`Tras una audición insólita y miles de aspirantes, Lexi Minetree consiguió el papel con una mezcla de disciplina, encanto y una fe absoluta en el personaje.`\
+https://www.nytimes.com/es/2026/07/05/espanol/cultura/elle-woods-vuelve-a-las-pantallas-esta-vez-en-su-adolescencia.html
+
+**White House Criticizes Smithsonian Museum for ‘Extreme Political Activism’**\
+`A scathing report released on the Fourth of July says the National Museum of American History downplays the role of the founders while emphasizing social justice.`\
+https://www.nytimes.com/2026/07/05/arts/design/white-house-smithsonian-american-history-museum.html
+
 **Sparks Flew, But Star Sightings Were Scarce in the Hamptons after Taylor Swift’s New York Wedding**\
 `Restaurant owners, residents and visitors alike were surprised by the relative lack of notable faces in the Hamptons this Fourth of July weekend.`\
 https://www.nytimes.com/2026/07/05/style/hamptons-celebrity-weekend-swift-wedding.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/05/fashion/jewelry-fruit-gems-anabela-chan-londo
 **His Jewelry Ranges From the Look of Coral to Dragonflies**\
 `Jonathan Yun has drawn inspiration from his years of scuba diving and Peranakan Chinese heritage.`\
 https://www.nytimes.com/2026/07/05/fashion/jewelry-jonathan-yun-malaysia.html
-
-**Nikos Koulis Designs Jewelry With Faux Tortoiseshell**\
-`Nikos Koulis, a Greek jewelry designer, has created a collection inspired by the luminous look of his sunglasses.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-tortoiseshell-nikos-koulis-athens.html
-
-**Alexis Bitter Is Selling His Jewelry on TikTok**\
-`Alexis Bittar says he decks the stars of his social media soap opera in new creations “to get people shopping.”`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-social-media-sales.html
 
