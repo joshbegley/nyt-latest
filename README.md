@@ -1,3 +1,7 @@
+**What Does It Mean to Love America?**\
+`America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
+https://www.nytimes.com/video/universal/100000011012535/what-does-it-mean-to-love-america.html
+
 **Bill Archer, Influential Texas Congressman, Is Dead at 98**\
 `Serving for 30 years, he eventually wrote virtually all tax laws considered by the House and was a major influence on budget bills as Ways and Means chairman.`\
 https://www.nytimes.com/2026/07/05/us/politics/bill-archer-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/style/martin-margiela-auction-paris.html
 **At Trump’s Direction, Federal Agencies Are Abandoning Discrimination Cases**\
 `President Trump has tried to scale back anti-discrimination regulations that date back decades. Federal agencies have heeded his call.`\
 https://www.nytimes.com/2026/07/05/us/politics/trump-dei-order-eeoc-discrimination.html
-
-**A Bird’s Brain Holds Clues to the Sounds of Music**\
-`The neurobiologist Erich Jarvis studies the few species capable of speech. He has long hoped to genetically engineer an animal that can make new calls.`\
-https://www.nytimes.com/2026/07/05/science/bird-brain-music-communication.html
 
