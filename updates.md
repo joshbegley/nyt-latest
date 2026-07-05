@@ -1,3 +1,7 @@
+**Trump Asked FIFA to Review U.S. Player’s Suspension. Now He’s Eligible to Play.**\
+`The reversal of Folarin Balogun’s World Cup suspension is highly unusual. It was the first time since 1962 that FIFA has nullified a suspension for a red card received during the World Cup.`\
+https://www.nytimes.com/2026/07/05/us/trump-fifa-balogun-world-cup.html
+
 **Trump Asked FIFA to Review U.S. Top Scorer’s Suspension. He Is Now Eligible to Play.**\
 `The reversal is highly unusual and the first time since 1962 that FIFA has allowed a player to appear in a game when they would have been suspended.`\
 https://www.nytimes.com/2026/07/05/us/trump-fifa-balogun-world-cup.html
