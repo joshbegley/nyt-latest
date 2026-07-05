@@ -1,3 +1,15 @@
+**Searching for What Pretty Means After an Acid Attack**\
+`Nafiah Ikram was steps from her home when a stranger threw acid in her face. Five years later, she is trying to rebuild her life and cope with a stunning twist in her case.`\
+https://www.nytimes.com/2026/07/05/nyregion/nafiah-ikram-acid-attack.html
+
+**NYT Spelling Bee Answers for July 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/05/crosswords/spelling-bee-forum.html
+
+**‘Near the End of the Meal, He Mentioned That He Was a Musician’**\
+`More friends of Metropolitan Diary, including the chef Daniel Humm and the writer Jennifer Egan, help mark the column’s 50th anniversary by sharing their New York City stories.`\
+https://www.nytimes.com/2026/07/05/nyregion/metropolitan-diary.html
+
 **En su ‘Lux Tour’, Rosalía es un camaleón de la danza**\
 `Nadie confundiría a Rosalía con una bailarina de ballet profesional. Sin embargo, en el espectáculo de la ‘Lux Tour’, se acerca al ballet con lo que parece un interés y un respeto genuinos.`\
 https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-critica.html
@@ -145,18 +157,6 @@ https://www.nytimes.com/video/opinion/100000011002600/the-unifying-speech-we-won
 **¿Cómo evitar accidentes en un feriado?**\
 `Los médicos comparten consejos para que celebres el 4 de julio sin peligros.`\
 https://www.nytimes.com/es/2026/07/04/espanol/estilos-de-vida/feriado-consejos-seguridad.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000011011189/04iran-funeral-reporter-updates-F0BF933CQSY.html
-
-**In Britain, July 4 Is Mostly Just a Saturday**\
-`Independence Day does not loom large in Britain’s public imagination, though cultural institutions did note the day and King Charles III issued a statement.`\
-https://www.nytimes.com/2026/07/04/world/europe/uk-july-fourth-us-independence.html
-
-**Justice Alito Gives No Indication He’s Ready to Step Down From the Supreme Court**\
-`This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
-https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
 
 **Fireworks and Trump Speech Cap Independence Day Celebrations**\
 `People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\

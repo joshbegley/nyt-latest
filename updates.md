@@ -1,3 +1,15 @@
+**Searching for What Pretty Means After an Acid Attack**\
+`Nafiah Ikram was steps from her home when a stranger threw acid in her face. Five years later, she is trying to rebuild her life and cope with a stunning twist in her case.`\
+https://www.nytimes.com/2026/07/05/nyregion/nafiah-ikram-acid-attack.html
+
+**NYT Spelling Bee Answers for July 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/05/crosswords/spelling-bee-forum.html
+
+**‘Near the End of the Meal, He Mentioned That He Was a Musician’**\
+`More friends of Metropolitan Diary, including the chef Daniel Humm and the writer Jennifer Egan, help mark the column’s 50th anniversary by sharing their New York City stories.`\
+https://www.nytimes.com/2026/07/05/nyregion/metropolitan-diary.html
+
 **En su ‘Lux Tour’, Rosalía es un camaleón de la danza**\
 `Nadie confundiría a Rosalía con una bailarina de ballet profesional. Sin embargo, en el espectáculo de la ‘Lux Tour’, se acerca al ballet con lo que parece un interés y un respeto genuinos.`\
 https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-critica.html
