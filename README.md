@@ -1,3 +1,7 @@
+**This Olive Oil Zucchini Bread Is Just Sweet Enough**\
+`Cinnamon, nutmeg and lemon zest give it an inimitable perfume.`\
+https://www.nytimes.com/2026/07/05/dining/this-olive-oil-zucchini-bread-is-just-sweet-enough.html
+
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
 https://www.nytimes.com/video/universal/100000011012535/what-does-it-mean-to-love-america.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/business/media/wikipedia-ai-elon-musk.html
 **Martin Margiela, One of Fashion’s Most Influential Designers, Auctions Off His Personal Archive**\
 `How Martin Margiela, one of the most influential living designers, came to auction off his personal archive, and what it means.`\
 https://www.nytimes.com/2026/07/05/style/martin-margiela-auction-paris.html
-
-**At Trump’s Direction, Federal Agencies Are Abandoning Discrimination Cases**\
-`President Trump has tried to scale back anti-discrimination regulations that date back decades. Federal agencies have heeded his call.`\
-https://www.nytimes.com/2026/07/05/us/politics/trump-dei-order-eeoc-discrimination.html
 
