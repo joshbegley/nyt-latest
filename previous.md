@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 6, 2026**\
+`Alex Eaton-Salners proves himself a key figure in the crossword scene.`\
+https://www.nytimes.com/2026/07/05/crosswords/daily-puzzle-2026-07-06.html
+
+**All Passengers Rescued After Seaplane Crashes in East River**\
+`A seaplane flying from the Hamptons with eight people aboard crashed into the East River near the Manhattan waterfront on Sunday, according to officials. The Fire Department rescued everyone on board.`\
+https://www.nytimes.com/video/nyregion/100000011012787/sea-plane-crash-nyc.html
+
 **Israel’s Government Threatens to Ignore a Top Court Ruling**\
 `A resolution by the country’s cabinet escalated a long-running conflict between Prime Minister Benjamin Netanyahu and the country’s judiciary. A senior government official later walked that back.`\
 https://www.nytimes.com/2026/07/05/world/middleeast/israel-court-netanyahu-clash.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/es/2026/07/05/espanol/estados-unidos/criptomoneda-trump-
 https://www.nytimes.com/2026/07/05/business/media/minions-box-office-franchise.html
 
 **Their Seaplane Trip From the Hamptons Ends With a Scary 15 Seconds**\
-`A grandmother and granddaughter were among six passengers on a seaplane that crashed in the East River. The Fire Department and the police rescued them along with the pilot and a crew member.`\
+`A teenager traveling with her grandmother filmed a video as the seaplane they were flying in crashed in the East River. They were rescued along with four other passengers, the pilot and a crew member.`\
 https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
 
 **Mallory McMorrow Suspends Senate Bid in Democrats’ Heated Michigan Primary**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011011151/what-we-saw-at-ay
 **Years of Warnings About Public Housing Preceded Venezuela’s Earthquakes**\
 `Residents, construction experts and seismologists said for years that Venezuela’s public housing would be vulnerable in a natural disaster.`\
 https://www.nytimes.com/2026/07/05/world/americas/venezuela-earthquake-la-guaira-building-collapse-government.html
-
-**Para Robby Hoffman, el dinero nunca borrará la pobreza**\
-`La comediante y actriz asegura que la experiencia de haber crecido con carencias sigue definiendo su forma de vivir.`\
-https://www.nytimes.com/es/2026/07/05/espanol/cultura/robby-hoffman-hacks-comedia.html
-
-**El debate que divide a Francia sobre la crianza de los hijos**\
-`El auge de la crianza positiva ha provocado una fuerte controversia después de que una psicóloga defendió el regreso a una disciplina más estricta.`\
-https://www.nytimes.com/es/2026/07/05/espanol/estilos-crianza-francia.html
 
