@@ -1,3 +1,15 @@
+**Andy Baraghani’s Chicken Salad Is Full of Crunch**\
+`And, since it swaps cashew butter for the mayo, it can also stand the summer heat.`\
+https://www.nytimes.com/2026/07/05/dining/andy-baraghanis-chicken-salad-is-full-of-crunch.html
+
+**The New, Unsustainable Art World**\
+`Readers respond to a guest essay by a former global art director about the struggles that galleries face.`\
+https://www.nytimes.com/2026/07/05/opinion/art-galleries-globalization.html
+
+**Stop Stressing About Sleep**\
+`The evidence for needing eight hours of sleep a night is shakier than we might assume.`\
+https://www.nytimes.com/2026/07/05/opinion/sleep-health-8-hours.html
+
 **OPEC Plus Pledges to Pump More Even as Oil Prices Fall**\
 `The cartel’s decision comes as U.S.-Iran talks to end the war have eased pressure on oil supplies, even as broader market and political volatility persists.`\
 https://www.nytimes.com/2026/07/05/business/opec-production-iran-war.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/05/science/bird-brain-music-communication.html
 **China Frees Pastor Detained in Crackdown on Religion After Trump’s Urging**\
 `Ezra Jin Mingri was released nearly two months after President Trump raised his case with China’s leader, Xi Jinping, during a visit to Beijing.`\
 https://www.nytimes.com/2026/07/05/world/asia/ezra-jin-mingri-china-christian-xi-trump.html
-
-**China Raises Pressure on Taiwan With Expanded Coast Guard Patrols**\
-`Beijing sent two ships to patrol the waters east of Taiwan, a new campaign to challenge the island’s control of waters crucial to any future invasion.`\
-https://www.nytimes.com/2026/07/05/world/asia/china-taiwan-east-coast-guard-patrols.html
-
-**Guam and Northern Mariana Islands Prepare for Typhoon Bavi**\
-`Typhoon Bavi, a tropical cyclone barreling through the Pacific Ocean, was forecast to pass near the U.S. territories on Monday with the force of a Category 5 hurricane.`\
-https://www.nytimes.com/2026/07/05/us/guam-typhoon-bavi-marianas.html
-
-**Searching for What Pretty Means After an Acid Attack**\
-`Nafiah Ikram was steps from her home when a stranger threw acid in her face. Five years later, she is trying to rebuild her life and cope with a stunning twist in her case.`\
-https://www.nytimes.com/2026/07/05/nyregion/nafiah-ikram-acid-attack.html
 

@@ -1,3 +1,15 @@
+**Andy Baraghani’s Chicken Salad Is Full of Crunch**\
+`And, since it swaps cashew butter for the mayo, it can also stand the summer heat.`\
+https://www.nytimes.com/2026/07/05/dining/andy-baraghanis-chicken-salad-is-full-of-crunch.html
+
+**The New, Unsustainable Art World**\
+`Readers respond to a guest essay by a former global art director about the struggles that galleries face.`\
+https://www.nytimes.com/2026/07/05/opinion/art-galleries-globalization.html
+
+**Stop Stressing About Sleep**\
+`The evidence for needing eight hours of sleep a night is shakier than we might assume.`\
+https://www.nytimes.com/2026/07/05/opinion/sleep-health-8-hours.html
+
 **Philosophers Are the Latest Hiring Target for AI Companies**\
 `A.I. labs are hiring contrarian, chin-stroking, finger-steepling sages. Who’s underemployed now?`\
 https://www.nytimes.com/2026/07/05/business/philosophy-majors-ai-jobs.html
