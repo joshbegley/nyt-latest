@@ -1,3 +1,11 @@
+**En su ‘Lux Tour’, Rosalía es un camaleón de la danza**\
+`Nadie confundiría a Rosalía con una bailarina de ballet profesional. Sin embargo, en el espectáculo de la ‘Lux Tour’, se acerca al ballet con lo que parece un interés y un respeto genuinos.`\
+https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-critica.html
+
+**Fireworks and Trump Speech Cap Independence Day Celebrations**\
+`People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **July 4 Live Updates: Fireworks and Trump Speech Cap Independence Day Celebrations**\
 `People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july

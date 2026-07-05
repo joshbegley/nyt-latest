@@ -1,3 +1,7 @@
+**En su ‘Lux Tour’, Rosalía es un camaleón de la danza**\
+`Nadie confundiría a Rosalía con una bailarina de ballet profesional. Sin embargo, en el espectáculo de la ‘Lux Tour’, se acerca al ballet con lo que parece un interés y un respeto genuinos.`\
+https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-critica.html
+
 **It Failed in France. It Would Be a Disaster in California.**\
 `California might bet its future on the notion that billionaires won’t leave. But they are already fleeing the state.`\
 https://www.nytimes.com/2026/07/05/opinion/billionaire-wealth-tax-california.html
@@ -154,7 +158,7 @@ https://www.nytimes.com/2026/07/04/world/europe/uk-july-fourth-us-independence.h
 `This term, Justice Alito delivered major wins for conservatives on voting rights, immigration and guns. He’s given no indication that he’s ready to step down.`\
 https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-court.html
 
-**July 4 Live Updates: Fireworks and Trump Speech Cap Independence Day Celebrations**\
+**Fireworks and Trump Speech Cap Independence Day Celebrations**\
 `People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
