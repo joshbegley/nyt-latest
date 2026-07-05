@@ -1,3 +1,19 @@
+**Rebel Catholics Defy Vatican’s Calls to Return to Mainstream Church**\
+`The Vatican has excommunicated the priesthood of a rebel Catholic faction. Many of the priests’ followers have refused to renounce them.`\
+https://www.nytimes.com/2026/07/05/world/europe/schism-catholic-pope-society-pius-excommunication.html
+
+**Ordering Objects at V&E East Storehouse: From David Bowie Guitar to Beatrix Potter Originals**\
+`Visitors at the V&A East Storehouse can book appointments with artifacts that usually aren’t on show — and can even touch many of them.`\
+https://www.nytimes.com/2026/07/05/arts/design/v-and-a-east-storehouse.html
+
+**Impeachment Trial of Philippine Vice President Set to Begin**\
+`Sara Duterte, who has said she would run for president, could be barred from politics over allegations of corruption and for making death threats against President Ferdinand Marcos Jr.`\
+https://www.nytimes.com/2026/07/05/world/asia/impeachment-trial-philippines-sara-duterte.html
+
+**As Xi Looks to Extend His Rule, He Leans on a Longtime Ally**\
+`Xi Jinping is preparing to extend his rule as China’s leader and bring fresh blood into the Communist Party elite. Cai Qi is the man he’s tasking to help.`\
+https://www.nytimes.com/2026/07/05/world/asia/china-xi-leadership-cai-qi.html
+
 **Chinese Dreamcore Takes Over Gen Z Social Media Feeds**\
 `Chinese Dreamcore is taking over the social media feeds of young people in China, who face falling wages and a dire job market. The memes and videos express a desire to return to simpler times.`\
 https://www.nytimes.com/video/world/asia/100000010930078/china-dreamcore.html
