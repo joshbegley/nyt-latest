@@ -1,3 +1,7 @@
+**Mexico’s World Cup Moment is Pure, Fragile Magic**\
+`In Mexico City, World Cup euphoria is overshadowing political gloom.`\
+https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
+
 **Andy Baraghani’s Chicken Salad Is Full of Crunch**\
 `And, since it swaps cashew butter for the mayo, it can also stand the summer heat.`\
 https://www.nytimes.com/2026/07/05/dining/andy-baraghanis-chicken-salad-is-full-of-crunch.html

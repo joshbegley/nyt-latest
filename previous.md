@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
 `La euforia por el Mundial está eclipsando el pesimismo político.`\
 https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
 
-**Mexico Has Been Waiting for This**\
+**Mexico’s World Cup Moment is Pure, Fragile Magic**\
 `In Mexico City, World Cup euphoria is overshadowing political gloom.`\
 https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
 
