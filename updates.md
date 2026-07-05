@@ -1,3 +1,7 @@
+**This Olive Oil Zucchini Bread Is Just Sweet Enough**\
+`Cinnamon, nutmeg and lemon zest give it an inimitable perfume.`\
+https://www.nytimes.com/2026/07/05/dining/this-olive-oil-zucchini-bread-is-just-sweet-enough.html
+
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
 https://www.nytimes.com/video/universal/100000011012535/what-does-it-mean-to-love-america.html
