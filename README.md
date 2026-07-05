@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000011012790/seaplane-crashes-in-east-river.html
+
 **Elle Woods vuelve a las pantallas, esta vez en su adolescencia**\
 `Tras una audición insólita y miles de aspirantes, Lexi Minetree consiguió el papel con una mezcla de disciplina, encanto y una fe absoluta en el personaje.`\
 https://www.nytimes.com/es/2026/07/05/espanol/cultura/elle-woods-vuelve-a-las-pantallas-esta-vez-en-su-adolescencia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/movies/world-cup-soccer-documentaries-streami
 **Anabela Chan Turns Fruit and Vegetables Into ‘Gems’**\
 `The London jeweler Anabela Chan has created a way to turn fruits and vegetables into “gems.”`\
 https://www.nytimes.com/2026/07/05/fashion/jewelry-fruit-gems-anabela-chan-london.html
-
-**His Jewelry Ranges From the Look of Coral to Dragonflies**\
-`Jonathan Yun has drawn inspiration from his years of scuba diving and Peranakan Chinese heritage.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-jonathan-yun-malaysia.html
 
