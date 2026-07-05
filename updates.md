@@ -1,3 +1,7 @@
+**The Main Attraction at Africa’s Most Lucrative Horse Race? Black Wealth.**\
+`In South Africa, where the Black majority was excluded from the economy for generations, the annual Durban July event is a chance to celebrate luxury and high society.`\
+https://www.nytimes.com/2026/07/05/world/africa/durban-july-south-africa-black-wealth.html
+
 **All Passengers Rescued as Seaplane Crashes in East River**\
 `The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and six passengers.`\
 https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
