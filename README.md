@@ -1,5 +1,5 @@
 **Nancy Pelosi’s Husband Could Face Charge Over Napa County Car Crash**\
-`The police said Paul Pelosi was the driver of a convertible that struck a parked car on Friday. The district attorney will decide whether Mr. Pelosi will be charged.`\
+`The police said Paul Pelosi was the driver of a convertible that struck a qparked car on Friday. The district attorney will decide whether Mr. Pelosi will be charged.`\
 https://www.nytimes.com/2026/07/04/us/paul-pelosi-hit-run-napa.html
 
 **Crowds Evacuated as Storms Menace Washington Ahead of Trump Speech**\
