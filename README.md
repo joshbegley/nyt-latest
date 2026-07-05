@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-
 `The truth worth celebrating this summer is that our country is still being made.`\
 https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
 
-**July 4 Live Updates: America Celebrates Its 250th Birthday**\
-`Despite extreme heat in much of the nation, the day was marked with the customary American exuberance. Storm threats forced an evacuation of thousands on the National Mall in Washington, where the president plans to speak before a huge fireworks show.`\
+**July 4 Live Updates: Trump to Speak as America Celebrates Its 250th Birthday**\
+`Americans across the country marked the day with exuberance, patriotic colors and fireworks even as extreme heat and storms disrupted some events. The president is set to speak before a huge fireworks show in the capital.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
 **Huge Crowds Mass in Tehran for Ayatollah’s State Funeral**\

@@ -1,3 +1,7 @@
+**The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
+`The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
+https://www.nytimes.com/2026/07/04/us/politics/fire-brooklyn-bridge-fireworks.html
+
 **This California Town Banned Fireworks. Then Came the Dogs.**\
 `People flock to the coastal town of Cambria, which has become known for its fireworks ban, to give their dogs some respite on the Fourth of July.`\
 https://www.nytimes.com/2026/07/04/us/politics/this-california-town-banned-fireworks-then-came-the-dogs.html
@@ -145,14 +149,6 @@ https://www.nytimes.com/2026/07/04/opinion/the-lake-house-that-taught-me-how-to-
 **Five Questions That Will Determine America’s Next 50 Years**\
 `The truth worth celebrating this summer is that our country is still being made.`\
 https://www.nytimes.com/2026/07/04/opinion/america-at-250.html
-
-**For Cape Verde, There’s Victory in Their World Cup Defeat**\
-`The tiny African nation was eliminated from the World Cup by one of soccer’s biggest powers, Argentina, but there was still plenty to celebrate.`\
-https://www.nytimes.com/2026/07/04/world/africa/cape-verde-world-cup.html
-
-**What to Know About Ayatollah Ali Khamenei as His Funeral Services Begin in Iran**\
-`Iran’s longstanding supreme leader concentrated power, presided over crackdowns and built an armed proxy network that projected influence across the Middle East.`\
-https://www.nytimes.com/2026/07/04/world/middleeast/iran-funeral-supreme-leader-ali-khamenei.html
 
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `Despite extreme heat in much of the nation, the day was marked with the customary American exuberance. Storm threats forced an evacuation of thousands on the National Mall in Washington, where the president plans to speak before a huge fireworks show.`\

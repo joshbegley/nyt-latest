@@ -1,3 +1,7 @@
+**The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
+`The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
+https://www.nytimes.com/2026/07/04/us/politics/fire-brooklyn-bridge-fireworks.html
+
 **This California Town Banned Fireworks. Then Came the Dogs.**\
 `People flock to the coastal town of Cambria, which has become known for its fireworks ban, to give their dogs some respite on the Fourth of July.`\
 https://www.nytimes.com/2026/07/04/us/politics/this-california-town-banned-fireworks-then-came-the-dogs.html
