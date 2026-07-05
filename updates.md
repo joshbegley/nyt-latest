@@ -1,3 +1,7 @@
+**A Bird’s Brain Holds Clues to the Sounds of Music**\
+`The neurobiologist Erich Jarvis studies the few species capable of speech. He has long hoped to genetically engineer an animal that can make new calls.`\
+https://www.nytimes.com/2026/07/05/science/bird-brain-music-communication.html
+
 **At Trump’s Direction, Federal Agencies Are Abandoning Discrimination Cases**\
 `President Trump has tried to scale back anti-discrimination regulations that date back decades. Federal agencies have heeded his call.`\
 https://www.nytimes.com/2026/07/05/us/politics/trump-dei-order-eeoc-discrimination.html
