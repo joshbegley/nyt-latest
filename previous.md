@@ -1,3 +1,7 @@
+**Klaus Mäkelä Plants His Flag in Opera With Strauss’s ‘Frau’**\
+`“Die Frau Ohne Schatten” is a difficult opera for any conductor. Klaus Mäkelä chose it for his first new production, in front of a global audience.`\
+https://www.nytimes.com/2026/07/05/arts/music/review-die-frau-ohne-schatten-klaus-makela-aix-festival.html
+
 **At Site Where Iran’s Slain Leader Lies, Some See a Symbol of His Failures**\
 `The complex where mourners are paying their respects to Ayatollah Ali Khamenei this weekend is unfinished after nearly 40 years. Critics say it is emblematic of the unfulfilled promises of his rule.`\
 https://www.nytimes.com/2026/07/05/world/middleeast/iran-grand-mosalla-khamenei.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/fashion/jewelry-designers-showrooms-brent-nea
 **Jewelry That Climbs the Ear**\
 `Ear cuffs have a history that stretches back millenniums, but in recent years they have become a fixture of high jewelry collections and red carpets.`\
 https://www.nytimes.com/2026/07/05/fashion/jewelry-that-climbs-the-ear.html
-
-**Vram Minassian Prepares for a Jewelry Debut in Paris**\
-`Vram Minassian’s presentation in July will mark the 10th anniversary of his brand and the midpoint of what he has planned as a 10-part collection.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-vram-minassian-los-angeles.html
 
