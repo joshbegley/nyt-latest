@@ -1,3 +1,7 @@
+**In Fourth of July Speech, Trump Celebrates America and Derides Foes**\
+`A centerpiece address for the nation’s 250th anniversary celebration devoted time to American history, but had all the hallmarks of a Trump rally.`\
+https://www.nytimes.com/2026/07/05/us/politics/trump-speech-fourth-july.html
+
 **Inside ‘Chinese Dreamcore,’ Where Gen Z Relives a Brighter Past**\
 `Faced with a dire job market, falling wages and endless competition, many young Chinese are recreating scenes from the early 2000s on the internet, when the economy was growing rapidly.`\
 https://www.nytimes.com/interactive/2026/07/05/world/asia/china-nostalgia-dream-core.html
@@ -145,10 +149,6 @@ https://www.nytimes.com/2026/07/04/us/politics/justice-alito-influence-supreme-c
 **The Bureaucratic Hell of Getting a Job in 2026**\
 `(No description)`\
 https://www.nytimes.com/2026/07/04/opinion/purgatory-job-market.html
-
-**Will Iran’s New Supreme Leader, Mojtaba Khamenei, Attend His Father’s Funeral?**\
-`Ayatollah Mojtaba Khamenei has not been seen in public since March, after his father, Ayatollah Ali Khamenei, was killed in an Israeli strike.`\
-https://www.nytimes.com/2026/07/04/world/middleeast/iran-supreme-leader-khamenei-son.html
 
 **July 4 Live Updates: Trump Speaks as America Celebrates Its 250th Birthday**\
 `People across the United States marked Independence Day with exuberance even as extreme heat and storms disrupted some events. The president delivered a weather-delayed speech in the capital ahead of a fireworks show.`\
