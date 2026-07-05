@@ -1,3 +1,15 @@
+**Sparks Flew, But Star Sightings Were Scarce in the Hamptons after Taylor Swift’s New York Wedding**\
+`Restaurant owners, residents and visitors alike were surprised by the relative lack of notable faces in the Hamptons this Fourth of July weekend.`\
+https://www.nytimes.com/2026/07/05/style/hamptons-celebrity-weekend-swift-wedding.html
+
+**Navy Ends Search for Missing Crew Member After Arabian Sea Helicopter Crash**\
+`The cause of the crash was still under investigation, but the military said it was not the result of hostile fire. A total of 14 U.S. service members have been killed in the war against Iran.`\
+https://www.nytimes.com/2026/07/05/us/politics/navy-helicopter-crash-arabian-sea.html
+
+**Taylor Swift Wedding: What Her Lyrics Say About Marriage**\
+`While many details of her wedding remain unknown, the songs from her 20-year-career tell us plenty about her thoughts on the institution.`\
+https://www.nytimes.com/2026/07/05/arts/music/taylor-swift-wedding-marriage-lyrics.html
+
 **Klaus Mäkelä Plants His Flag in Opera With Strauss’s ‘Frau’**\
 `“Die Frau Ohne Schatten” is a difficult opera for any conductor. Klaus Mäkelä chose it for his first new production, in front of a global audience.`\
 https://www.nytimes.com/2026/07/05/arts/music/review-die-frau-ohne-schatten-klaus-makela-aix-festival.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/05/fashion/jewelry-tortoiseshell-nikos-koulis-at
 **Alexis Bitter Is Selling His Jewelry on TikTok**\
 `Alexis Bittar says he decks the stars of his social media soap opera in new creations “to get people shopping.”`\
 https://www.nytimes.com/2026/07/05/fashion/jewelry-social-media-sales.html
-
-**Australian Opals Flash Their Stuff**\
-`Designers are again showcasing the colorful gems, most of which are mined Down Under.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-opals-australia.html
-
-**Jewelry Designers Invite Clients Into Their Worlds**\
-`New showroom looks try to turn shopping into an intimate experience.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-designers-showrooms-brent-neale.html
-
-**Jewelry That Climbs the Ear**\
-`Ear cuffs have a history that stretches back millenniums, but in recent years they have become a fixture of high jewelry collections and red carpets.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-that-climbs-the-ear.html
 

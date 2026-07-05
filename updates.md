@@ -1,3 +1,15 @@
+**Sparks Flew, But Star Sightings Were Scarce in the Hamptons after Taylor Swift’s New York Wedding**\
+`Restaurant owners, residents and visitors alike were surprised by the relative lack of notable faces in the Hamptons this Fourth of July weekend.`\
+https://www.nytimes.com/2026/07/05/style/hamptons-celebrity-weekend-swift-wedding.html
+
+**Navy Ends Search for Missing Crew Member After Arabian Sea Helicopter Crash**\
+`The cause of the crash was still under investigation, but the military said it was not the result of hostile fire. A total of 14 U.S. service members have been killed in the war against Iran.`\
+https://www.nytimes.com/2026/07/05/us/politics/navy-helicopter-crash-arabian-sea.html
+
+**Taylor Swift Wedding: What Her Lyrics Say About Marriage**\
+`While many details of her wedding remain unknown, the songs from her 20-year-career tell us plenty about her thoughts on the institution.`\
+https://www.nytimes.com/2026/07/05/arts/music/taylor-swift-wedding-marriage-lyrics.html
+
 **Klaus Mäkelä Plants His Flag in Opera With Strauss’s ‘Frau’**\
 `“Die Frau Ohne Schatten” is a difficult opera for any conductor. Klaus Mäkelä chose it for his first new production, in front of a global audience.`\
 https://www.nytimes.com/2026/07/05/arts/music/review-die-frau-ohne-schatten-klaus-makela-aix-festival.html
