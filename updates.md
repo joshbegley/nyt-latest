@@ -1,3 +1,7 @@
+**The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
+`The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
+https://www.nytimes.com/2026/07/04/nyregion/fire-brooklyn-bridge-fireworks.html
+
 **July 4 Live Updates: Trump to Speak as America Celebrates Its 250th Birthday**\
 `Americans across the country marked the day with exuberance, patriotic colors and fireworks even as extreme heat and storms disrupted some events. The president is set to speak before a huge fireworks show in the capital.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
