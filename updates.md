@@ -1,3 +1,7 @@
+**July 4 Live Updates: America Celebrates Its 250th Birthday**\
+`Despite extreme heat in much of the nation, the day was marked with the customary American exuberance. Storm threats forced an evacuation of thousands on the National Mall in Washington, where the president plans to speak tonight before a huge fireworks show.`\
+https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
+
 **Maryland Boat Explosion Leaves at Least 10 Injured, Officials Say**\
 `A 32-foot-long boat exploded in Chesapeake City, leaving four people with serious burns, officials said. The cause was under investigation.`\
 https://www.nytimes.com/2026/07/04/us/maryland-boat-explosion.html
