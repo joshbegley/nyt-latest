@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/07/05/us/yosemite-national-park-tourists.html
 https://www.nytimes.com/2026/07/05/business/philosophy-majors-ai-jobs.html
 
 **How Meta’s Threads Became as Popular as X**\
-`The social platform that Meta once positioned as a rival to Elon Musk’s X now has 500 million users. It increasingly resembles Reddit.`\
+`The social platform that Meta once positioned as a rival to Elon Musk’s X now has 500 million monthly users. It increasingly resembles Reddit.`\
 https://www.nytimes.com/2026/07/05/technology/threads-meta-twitter-x.html
 
 **‘The Face,’ by Fay Bound-Alberti**\
