@@ -1,3 +1,7 @@
+**Crowds Evacuated as Storms Menace Washington Ahead of Trump Speech**\
+`Thousands of people stood in security lines for hours in severe heat to reach the National Mall, only to be ordered to leave as events were set to start. Some refused.`\
+https://www.nytimes.com/2026/07/04/us/politics/national-mall-evacuated-storms.html
+
 **Maryland Boat Explosion Leaves at Least 10 Injured, Officials Say**\
 `A 32-foot-long boat exploded in Chesapeake City, leaving four people with serious burns, officials said. The cause was under investigation.`\
 https://www.nytimes.com/2026/07/04/us/maryland-boat-explosion.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/04/magazine/sister-money-lending-ethics.html
 **A Big Week in the West, Canada vs. Morocco, Trade and a Canada-U.S. Quiz**\
 `Prime Minister Mark Carney further diversified trade away from the U.S. this week by announcing multibillion dollar investments in Alberta and British Columbia.`\
 https://www.nytimes.com/2026/07/04/world/canada/carney-alberta-pipeline-canada-us.html
-
-**NYT Connections Answers for July 5, 2026.**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 5, 2026.`\
-https://www.nytimes.com/2026/07/04/crosswords/connections-companion-1120.html
 
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `Despite extreme heat in much of the nation, the day was marked with the customary American exuberance. Storm threats forced an evacuation of thousands on the National Mall in Washington, where the president plans to speak tonight before a huge fireworks show.`\
