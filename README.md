@@ -1,3 +1,11 @@
+**Far From Kyiv and Moscow, Soldiers Stalk Ruins and Evade Drones on the Front**\
+`Ukraine’s military has denied a Kremlin claim to have taken a city in the eastern Donetsk region, saying its troops are holding out against infiltrating Russians.`\
+https://www.nytimes.com/2026/07/05/world/europe/ukraine-russia-donetsk-front.html
+
+**Los venezolanos advirtieron que las viviendas públicas eran vulnerables a sismos**\
+`La devastación ha suscitado dudas sobre el papel del gobierno en la pérdida de tantas vidas en estructuras sobre las que los expertos en construcción habían advertido que no podrían resistir un terremoto de gran magnitud.`\
+https://www.nytimes.com/es/2026/07/05/espanol/america-latina/venezuela-terremotos-mision-vivienda.html
+
 **Los mejores consejos sobre relaciones que hemos escuchado este año**\
 `Los expertos nos han dicho muchas veces que las relaciones necesitan atención y cuidado constantes, sin importar cuánto tiempo tenga el vínculo.`\
 https://www.nytimes.com/es/2026/07/05/espanol/consejos-pareja.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/asia/100000010930078/china-dreamcore.html
 **Quote of the Day: Discord in Iran as Hard-Liners Resist U.S. Talks**\
 `Quotation of the Day for Sunday, July 5, 2026.`\
 https://www.nytimes.com/2026/07/05/pageoneplus/quote-of-the-day-discord-in-iran-as-hard-liners-resist-us-talks.html
-
-**The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
-`The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
-https://www.nytimes.com/2026/07/04/nyregion/fire-brooklyn-bridge-fireworks.html
-
-**Fireworks and Trump Speech Cap Independence Day Celebrations**\
-`People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
-https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
 
