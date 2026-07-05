@@ -1,3 +1,11 @@
+**Can Iran Keep Its Edge?**\
+`Closing the Strait of Hormuz was a huge source of leverage during the war. But playing the same card over and over is risky.`\
+https://www.nytimes.com/2026/07/05/world/iran-strait-hormuz-ali-khamenei.html
+
+**Bertrand Grébaut, Influential French Chef, Is Dead at 44**\
+`He ventured to the Right Bank to create Septime, a restaurant focused on vegetable-oriented cuisine “that changed the trajectory of French cooking.”`\
+https://www.nytimes.com/2026/07/05/dining/bertrand-grebaut-dead.html
+
 **Trump Asked FIFA to Review U.S. Player’s Suspension. Now He’s Eligible to Play.**\
 `The reversal of Folarin Balogun’s World Cup suspension is highly unusual. It was the first time since 1962 that FIFA has nullified a suspension for a red card received during the World Cup.`\
 https://www.nytimes.com/2026/07/05/us/trump-fifa-balogun-world-cup.html
