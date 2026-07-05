@@ -1,3 +1,7 @@
+**Mourners Chant ‘Revenge’ at Funeral Prayers for Iran’s Slain Supreme Leader**\
+`On the second day of public mourning for Ayatollah Ali Khamenei, who was killed in February, there was still no sign of his son and successor, Mojtaba Khamenei.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-supreme-leader.html
+
 **Far From Kyiv and Moscow, Soldiers Stalk Ruins and Evade Drones on the Front**\
 `Ukraine’s military has denied a Kremlin claim to have taken a city in the eastern Donetsk region, saying its troops are holding out against infiltrating Russians.`\
 https://www.nytimes.com/2026/07/05/world/europe/ukraine-russia-donetsk-front.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/world/asia/china-xi-leadership-cai-qi.html
 **Chinese Dreamcore Takes Over Gen Z Social Media Feeds**\
 `Chinese Dreamcore is taking over the social media feeds of young people in China, who face falling wages and a dire job market. The memes and videos express a desire to return to simpler times.`\
 https://www.nytimes.com/video/world/asia/100000010930078/china-dreamcore.html
-
-**Quote of the Day: Discord in Iran as Hard-Liners Resist U.S. Talks**\
-`Quotation of the Day for Sunday, July 5, 2026.`\
-https://www.nytimes.com/2026/07/05/pageoneplus/quote-of-the-day-discord-in-iran-as-hard-liners-resist-us-talks.html
 

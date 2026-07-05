@@ -1,3 +1,7 @@
+**Mourners Chant ‘Revenge’ at Funeral Prayers for Iran’s Slain Supreme Leader**\
+`On the second day of public mourning for Ayatollah Ali Khamenei, who was killed in February, there was still no sign of his son and successor, Mojtaba Khamenei.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-supreme-leader.html
+
 **Ordering Objects at V&A East Storehouse: From a David Bowie Guitar to Beatrix Potter Originals**\
 `Visitors at the V&A East Storehouse can book appointments with artifacts that usually aren’t on show — and can even touch many of them.`\
 https://www.nytimes.com/2026/07/05/arts/design/v-and-a-east-storehouse.html
