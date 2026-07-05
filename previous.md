@@ -1,3 +1,7 @@
+**México llevaba tiempo esperando esto**\
+`La euforia por el Mundial está eclipsando el pesimismo político.`\
+https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
+
 **Mexico Has Been Waiting for This**\
 `In Mexico City, World Cup euphoria is overshadowing political gloom.`\
 https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/nyregion/metropolitan-diary.html
 **En su ‘Lux Tour’, Rosalía es un camaleón de la danza**\
 `Nadie confundiría a Rosalía con una bailarina de ballet profesional. Sin embargo, en el espectáculo de la ‘Lux Tour’, se acerca al ballet con lo que parece un interés y un respeto genuinos.`\
 https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-critica.html
-
-**It Failed in France. It Would Be a Disaster in California.**\
-`California might bet its future on the notion that billionaires won’t leave. But they are already fleeing the state.`\
-https://www.nytimes.com/2026/07/05/opinion/billionaire-wealth-tax-california.html
 
