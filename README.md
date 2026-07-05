@@ -1,3 +1,7 @@
+**Shootings in Nine States Mar Fourth of July Celebrations**\
+`Shootings occurred across the country, including in New York, Florida, Texas, Illinois and Tennessee. More than 50 people were shot, and at least five people have died.`\
+https://www.nytimes.com/2026/07/05/us/shootings-fourth-of-july-weekend.html
+
 **Can Iran Keep Its Edge?**\
 `Closing the Strait of Hormuz was a huge source of leverage during the war. But playing the same card over and over is risky.`\
 https://www.nytimes.com/2026/07/05/world/iran-strait-hormuz-ali-khamenei.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/05/espanol/estilos-crianza-francia.html
 **On America’s 250th, Smithsonian Museums Offer Respite and Reflection**\
 `An institution under attack from the Trump administration provided relief from the weather on July 4 — and a chance to ponder what it means to be American.`\
 https://www.nytimes.com/2026/07/05/arts/design/america-250-anniversary-smithsonian.html
-
-**I Have a Light Workload and I Simply Can’t Handle It**\
-`Plus: When a nurse practitioner in gynecology needs care, should she see one of her own colleagues?`\
-https://www.nytimes.com/2026/07/05/business/how-to-be-underemployed.html
 
