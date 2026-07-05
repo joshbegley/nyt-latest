@@ -1,3 +1,7 @@
+**Israel Is Not Invincible**\
+`There is suddenly daylight between the Trump administration and Netanyahu.`\
+https://www.nytimes.com/2026/07/05/opinion/trump-netanyahu-us-israel.html
+
 **Searching for What Pretty Means After an Acid Attack**\
 `Nafiah Ikram was steps from her home when a stranger threw acid in her face. Five years later, she is trying to rebuild her life and cope with a stunning twist in her case.`\
 https://www.nytimes.com/2026/07/05/nyregion/nafiah-ikram-acid-attack.html

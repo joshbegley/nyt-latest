@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-cr
 `California might bet its future on the notion that billionaires won’t leave. But they are already fleeing the state.`\
 https://www.nytimes.com/2026/07/05/opinion/billionaire-wealth-tax-california.html
 
-**The Growing Daylight Between Netanyahu and Trump**\
+**Israel Is Not Invincible**\
 `There is suddenly daylight between the Trump administration and Netanyahu.`\
 https://www.nytimes.com/2026/07/05/opinion/trump-netanyahu-us-israel.html
 
