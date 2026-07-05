@@ -1,3 +1,7 @@
+**How Meta’s Threads Became as Popular as X**\
+`The social platform that Meta once positioned as a rival to Elon Musk’s X now has 500 million monthly users. It increasingly resembles Reddit.`\
+https://www.nytimes.com/2026/07/05/technology/threads-meta-twitter-x.html
+
 **Bill Archer, Influential Texas Congressman, Is Dead at 98**\
 `Serving for 30 years, he eventually wrote virtually all tax laws considered by the House and was a major influence on budget bills as Ways and Means chairman.`\
 https://www.nytimes.com/2026/07/05/us/politics/bill-archer-dead.html
