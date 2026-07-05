@@ -1,3 +1,7 @@
+**The Most American Thing**\
+`What best represents America?`\
+https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
+
 **México llevaba tiempo esperando esto**\
 `La euforia por el Mundial está eclipsando el pesimismo político.`\
 https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/crosswords/spelling-bee-forum.html
 **‘Near the End of the Meal, He Mentioned That He Was a Musician’**\
 `More friends of Metropolitan Diary, including the chef Daniel Humm and the writer Jennifer Egan, help mark the column’s 50th anniversary by sharing their New York City stories.`\
 https://www.nytimes.com/2026/07/05/nyregion/metropolitan-diary.html
-
-**En su ‘Lux Tour’, Rosalía es un camaleón de la danza**\
-`Nadie confundiría a Rosalía con una bailarina de ballet profesional. Sin embargo, en el espectáculo de la ‘Lux Tour’, se acerca al ballet con lo que parece un interés y un respeto genuinos.`\
-https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-critica.html
 

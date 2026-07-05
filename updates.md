@@ -1,3 +1,7 @@
+**The Most American Thing**\
+`What best represents America?`\
+https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
+
 **A Bird’s Brain Holds Clues to the Sounds of Music**\
 `The neurobiologist Erich Jarvis studies the few species capable of speech. He has long hoped to genetically engineer an animal that can make new calls.`\
 https://www.nytimes.com/2026/07/05/science/bird-brain-music-communication.html
