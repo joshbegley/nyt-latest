@@ -1,3 +1,7 @@
+**In Fourth of July Speech, Trump Celebrates America and Derides Foes**\
+`A centerpiece address for the nation’s 250th anniversary celebration devoted time to American history, but had all the hallmarks of a Trump rally.`\
+https://www.nytimes.com/2026/07/05/us/politics/trump-speech-fourth-july.html
+
 **Inside ‘Chinese Dreamcore,’ Where Gen Z Relives a Brighter Past**\
 `Faced with a dire job market, falling wages and endless competition, many young Chinese are recreating scenes from the early 2000s on the internet, when the economy was growing rapidly.`\
 https://www.nytimes.com/interactive/2026/07/05/world/asia/china-nostalgia-dream-core.html
