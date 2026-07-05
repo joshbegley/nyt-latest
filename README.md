@@ -1,3 +1,35 @@
+**Mexico Has Been Waiting for This**\
+`In Mexico City, World Cup euphoria is overshadowing political gloom.`\
+https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
+
+**Obama vs. Trump Is the Election Day We Needed but Never Got**\
+`The proxy battles we got instead have not settled questions we have to settle.`\
+https://www.nytimes.com/2026/07/05/opinion/obama-trump-presidency-election.html
+
+**The Art of Summitry**\
+`The performance is meant to imply that the world is an orderly place, or at least a place on which reasonable people are determined to impose some order.`\
+https://www.nytimes.com/2026/07/05/opinion/nato-summit-ankara-turkey.html
+
+**The Most American Episode of the Daily, Ever.**\
+`What 23 very American things tell us about our country.`\
+https://www.nytimes.com/2026/07/05/podcasts/the-daily/the-most-american-episode-of-the-daily-ever.html
+
+**Today’s Wordle Hints for July 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/05/crosswords/wordle-review-1843.html
+
+**NYT Connections Answers for July 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/05/crosswords/connections-companion-1121.html
+
+**Maybe You Don’t Need Therapy**\
+`Many patients misunderstand what therapy reliably provides.`\
+https://www.nytimes.com/2026/07/05/opinion/therapy-loneliness-friendship.html
+
+**NYT Strands Hints for July 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/05/crosswords/strands-sidekick-855.html
+
 **Mourners Chant ‘Revenge’ at Funeral Prayers for Iran’s Slain Supreme Leader**\
 `On the second day of public mourning for Ayatollah Ali Khamenei, who was killed in February, there was still no sign of his son and successor, Mojtaba Khamenei.`\
 https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-supreme-leader.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/es/2026/07/05/espanol/cultura/rosalia-lux-tour-ballet-cr
 **It Failed in France. It Would Be a Disaster in California.**\
 `California might bet its future on the notion that billionaires won’t leave. But they are already fleeing the state.`\
 https://www.nytimes.com/2026/07/05/opinion/billionaire-wealth-tax-california.html
-
-**Israel Is Not Invincible**\
-`There is suddenly daylight between the Trump administration and Netanyahu.`\
-https://www.nytimes.com/2026/07/05/opinion/trump-netanyahu-us-israel.html
-
-**In Fourth of July Speech, Trump Celebrates America and Derides Foes**\
-`A centerpiece address for the nation’s 250th anniversary celebration devoted time to American history, but had all the hallmarks of a Trump rally.`\
-https://www.nytimes.com/2026/07/05/us/politics/trump-speech-fourth-july.html
-
-**Inside ‘Chinese Dreamcore,’ Where Gen Z Relives a Brighter Past**\
-`Faced with a dire job market, falling wages and endless competition, many young Chinese are recreating scenes from the early 2000s on the internet, when the economy was growing rapidly.`\
-https://www.nytimes.com/interactive/2026/07/05/world/asia/china-nostalgia-dream-core.html
-
-**Rebel Catholics Defy Vatican’s Calls to Return to Mainstream Church**\
-`The Vatican has excommunicated the priesthood of a rebel Catholic faction. Many of the priests’ followers have refused to renounce them.`\
-https://www.nytimes.com/2026/07/05/world/europe/schism-catholic-pope-society-pius-excommunication.html
-
-**Ordering Objects at V&A East Storehouse: From a David Bowie Guitar to Beatrix Potter Originals**\
-`Visitors at the V&A East Storehouse can book appointments with artifacts that usually aren’t on show — and can even touch many of them.`\
-https://www.nytimes.com/2026/07/05/arts/design/v-and-a-east-storehouse.html
-
-**Impeachment Trial of Philippine Vice President Set to Begin**\
-`Sara Duterte, who has said she would run for president, could be barred from politics over allegations of corruption and for making death threats against President Ferdinand Marcos Jr.`\
-https://www.nytimes.com/2026/07/05/world/asia/impeachment-trial-philippines-sara-duterte.html
-
-**As Xi Looks to Extend His Rule, He Leans on a Longtime Ally**\
-`Xi Jinping is preparing to extend his rule as China’s leader and bring fresh blood into the Communist Party elite. Cai Qi is the man he’s tasking to help.`\
-https://www.nytimes.com/2026/07/05/world/asia/china-xi-leadership-cai-qi.html
-
-**Chinese Dreamcore Takes Over Gen Z Social Media Feeds**\
-`Chinese Dreamcore is taking over the social media feeds of young people in China, who face falling wages and a dire job market. The memes and videos express a desire to return to simpler times.`\
-https://www.nytimes.com/video/world/asia/100000010930078/china-dreamcore.html
 
