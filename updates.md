@@ -1,3 +1,15 @@
+**Israel’s Government Threatens to Ignore a Top Court Ruling**\
+`A resolution by the country’s cabinet escalated a long-running conflict between Prime Minister Benjamin Netanyahu and the country’s judiciary. A senior government official later walked that back.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/israel-court-netanyahu-clash.html
+
+**Shootings in Nine States Mar Fourth of July Celebrations**\
+`Shootings occurred across the country, including in New York, Florida, Texas, Illinois and Tennessee. More than 50 people were shot, and at least five people have died.`\
+https://www.nytimes.com/2026/07/05/us/shootings-fourth-of-july-weekend.html
+
+**Their Seaplane Trip From the Hamptons Ends With a Scary 15 Seconds**\
+`A grandmother and granddaughter were among six passengers on a seaplane that crashed in the East River. The Fire Department and the police rescued them along with the pilot and a crew member.`\
+https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
+
 **Can Iran Keep Its Edge?**\
 `Closing the Strait of Hormuz was a huge source of leverage during the war. But playing the same card over and over is risky.`\
 https://www.nytimes.com/2026/07/05/world/iran-strait-hormuz-ali-khamenei.html
