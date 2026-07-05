@@ -1,5 +1,5 @@
 **The Brooklyn Bridge Briefly Catches Fire During a Fireworks Display**\
-`The fire appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
+`The fires appeared to have been extinguished by shortly after 10 p.m., the police said. No injuries were reported.`\
 https://www.nytimes.com/2026/07/04/nyregion/fire-brooklyn-bridge-fireworks.html
 
 **This California Town Banned Fireworks. Then Came the Dogs.**\
