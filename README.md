@@ -1,3 +1,11 @@
+**Can Iran Keep Its Edge?**\
+`Closing the Strait of Hormuz was a huge source of leverage during the war. But playing the same card over and over is risky.`\
+https://www.nytimes.com/2026/07/05/world/iran-strait-hormuz-ali-khamenei.html
+
+**Bertrand Grébaut, Influential French Chef, Is Dead at 44**\
+`He ventured to the Right Bank to create Septime, a restaurant focused on vegetable-oriented cuisine “that changed the trajectory of French cooking.”`\
+https://www.nytimes.com/2026/07/05/dining/bertrand-grebaut-dead.html
+
 **Trump Asked FIFA to Review U.S. Player’s Suspension. Now He’s Eligible to Play.**\
 `The reversal of Folarin Balogun’s World Cup suspension is highly unusual. It was the first time since 1962 that FIFA has nullified a suspension for a red card received during the World Cup.`\
 https://www.nytimes.com/2026/07/05/us/trump-fifa-balogun-world-cup.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/05/arts/design/america-250-anniversary-smithsoni
 **I Have a Light Workload and I Simply Can’t Handle It**\
 `Plus: When a nurse practitioner in gynecology needs care, should she see one of her own colleagues?`\
 https://www.nytimes.com/2026/07/05/business/how-to-be-underemployed.html
-
-**Yosemite Offers Many Wonders. Crushing Crowds Are Now One of Them.**\
-`Visitors are enduring especially long waits at the popular national park after the Trump administration eliminated a summer reservation system.`\
-https://www.nytimes.com/2026/07/05/us/yosemite-national-park-tourists.html
-
-**Philosophers Are the Latest Hiring Target for AI Companies**\
-`A.I. labs are hiring contrarian, chin-stroking, finger-steepling sages. Who’s underemployed now?`\
-https://www.nytimes.com/2026/07/05/business/philosophy-majors-ai-jobs.html
 
