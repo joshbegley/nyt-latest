@@ -1,3 +1,7 @@
+**Bill Archer, Influential Texas Congressman, Is Dead at 98**\
+`Serving for 30 years, he eventually wrote virtually all tax laws considered by the House and was a major influence on budget bills as Ways and Means chairman.`\
+https://www.nytimes.com/2026/07/05/us/politics/bill-archer-dead.html
+
 **Mexico’s World Cup Moment is Pure, Fragile Magic**\
 `In Mexico City, World Cup euphoria is overshadowing political gloom.`\
 https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html

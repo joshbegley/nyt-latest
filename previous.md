@@ -1,3 +1,7 @@
+**Bill Archer, Influential Texas Congressman, Is Dead at 98**\
+`Serving for 30 years, he eventually wrote virtually all tax laws considered by the House and was a major influence on budget bills as Ways and Means chairman.`\
+https://www.nytimes.com/2026/07/05/us/politics/bill-archer-dead.html
+
 **Andy Baraghani’s Chicken Salad Is Full of Crunch**\
 `And, since it swaps cashew butter for the mayo, it can also stand the summer heat.`\
 https://www.nytimes.com/2026/07/05/dining/andy-baraghanis-chicken-salad-is-full-of-crunch.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/us/politics/trump-dei-order-eeoc-discriminati
 **A Bird’s Brain Holds Clues to the Sounds of Music**\
 `The neurobiologist Erich Jarvis studies the few species capable of speech. He has long hoped to genetically engineer an animal that can make new calls.`\
 https://www.nytimes.com/2026/07/05/science/bird-brain-music-communication.html
-
-**China Frees Pastor Detained in Crackdown on Religion After Trump’s Urging**\
-`Ezra Jin Mingri was released nearly two months after President Trump raised his case with China’s leader, Xi Jinping, during a visit to Beijing.`\
-https://www.nytimes.com/2026/07/05/world/asia/ezra-jin-mingri-china-christian-xi-trump.html
 
