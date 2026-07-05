@@ -7,7 +7,7 @@ https://www.nytimes.com/es/2026/07/05/espanol/estados-unidos/criptomoneda-trump-
 https://www.nytimes.com/2026/07/05/business/media/minions-box-office-franchise.html
 
 **All Passengers Rescued as Seaplane Crashes in East River**\
-`The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and at least six passengers.`\
+`The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and six passengers.`\
 https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
 
 **Mallory McMorrow Suspends Senate Bid in Democrats’ Heated Michigan Primary**\
