@@ -1,3 +1,7 @@
+**What Does It Mean to Love America?**\
+`America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
+https://www.nytimes.com/video/universal/100000011012535/what-does-it-mean-to-love-america.html
+
 **How Meta’s Threads Became as Popular as X**\
 `The social platform that Meta once positioned as a rival to Elon Musk’s X now has 500 million monthly users. It increasingly resembles Reddit.`\
 https://www.nytimes.com/2026/07/05/technology/threads-meta-twitter-x.html
