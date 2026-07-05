@@ -1,8 +1,16 @@
+**La criptomoneda de Trump ha causado pérdidas de millardos de dólares a sus inversores**\
+`Un informe de una empresa de análisis detalla cómo les ha ido a quienes compraron la memecoin de Trump: la mayoría de los inversores minoristas han perdido dinero, mientras que a los más experimentados les ha ido mejor.`\
+https://www.nytimes.com/es/2026/07/05/espanol/estados-unidos/criptomoneda-trump-perdida-inversores.html
+
+**‘Minions’ Opens at No. 1 but Falls Far Short of Earlier Films in the Franchise**\
+`The movie generated $36.4 million in ticket sales in North America for the holiday weekend, a 62 percent decline from 2024, the last time a “Minions” movie was in theaters.`\
+https://www.nytimes.com/2026/07/05/business/media/minions-box-office-franchise.html
+
 **All Passengers Rescued as Seaplane Crashes in East River**\
 `The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and at least six passengers.`\
 https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
 
-**Mallory McMorrow Ends Senate Bid in Democrats’ Heated Michigan Primary**\
+**Mallory McMorrow Suspends Senate Bid in Democrats’ Heated Michigan Primary**\
 `The state senator sought to carve a middle path between a left-wing candidate and one backed by the party establishment, but she gained little traction.`\
 https://www.nytimes.com/2026/07/05/us/politics/mcmorrow-senate-suspend-campaign-democrats-michigan.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/05/technology/threads-meta-twitter-x.html
 **‘The Face,’ by Fay Bound-Alberti**\
 `In “The Face,” Fay Bound-Alberti examines our relationship to our most public features.`\
 https://www.nytimes.com/2026/07/05/books/review/the-face-fay-bound-alberti.html
-
-**Vault Businesses Now Let You Store Diamonds and Dine Too**\
-`From London to Singapore, secure operations offer 24/7 services to a new generation of watch, jewelry and gold bullion buyers.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-secure-vaults-singapore.html
-
-**Trump Administration Rolls Back Dozens of Gun Regulations**\
-`Critics say the administration is weakening public safety. Proponents say regulations would be where they were before President Joseph R. Biden took office.`\
-https://www.nytimes.com/2026/07/05/us/politics/trump-gun-rights-laws.html
 
