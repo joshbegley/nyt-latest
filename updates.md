@@ -1,3 +1,11 @@
+**Exhausted by Iran War, Tehran Transforms for Khamenei’s Funeral**\
+`Throughout the capital, the government is using Ayatollah Ali Khamenei’s funeral to project strength at a time of great uncertainty for Iran.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-khamenei-tehran.html
+
+**Mike Wallace, Who Wrote a Radical History of New York, Dies at 83**\
+`His 1998 book, “Gotham,” which told the city’s story to 1898, focused on social and economic conflict. It won a Pulitzer Prize and inspired two sequels.`\
+https://www.nytimes.com/2026/07/05/books/mike-wallace-dead.html
+
 **This Olive Oil Zucchini Bread Is Just Sweet Enough**\
 `Cinnamon, nutmeg and lemon zest give it an inimitable perfume.`\
 https://www.nytimes.com/2026/07/05/dining/this-olive-oil-zucchini-bread-is-just-sweet-enough.html

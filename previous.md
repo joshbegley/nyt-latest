@@ -1,3 +1,11 @@
+**Exhausted by Iran War, Tehran Transforms for Khamenei’s Funeral**\
+`Throughout the capital, the government is using Ayatollah Ali Khamenei’s funeral to project strength at a time of great uncertainty for Iran.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-khamenei-tehran.html
+
+**Mike Wallace, Who Wrote a Radical History of New York, Dies at 83**\
+`His 1998 book, “Gotham,” which told the city’s story to 1898, focused on social and economic conflict. It won a Pulitzer Prize and inspired two sequels.`\
+https://www.nytimes.com/2026/07/05/books/mike-wallace-dead.html
+
 **This Olive Oil Zucchini Bread Is Just Sweet Enough**\
 `Cinnamon, nutmeg and lemon zest give it an inimitable perfume.`\
 https://www.nytimes.com/2026/07/05/dining/this-olive-oil-zucchini-bread-is-just-sweet-enough.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/05/fashion/couture-week-paris-jewelry.html
 **The Modern Allure of a Traditional Korean Ornament**\
 `BTS, Blackpink and “KPop Demon Hunters” have amped up interest in the norigae.`\
 https://www.nytimes.com/2026/07/05/fashion/jewelry-norigae-bts-blackpink-seoul.html
-
-**Wikipedia Is Battling for the Soul of the Internet**\
-`The internet’s largest stockpile of free knowledge is under threat from MAGA, A.I. and foreign autocrats. A bibliophile ex-ambassador is here to help.`\
-https://www.nytimes.com/2026/07/05/business/media/wikipedia-ai-elon-musk.html
-
-**Martin Margiela, One of Fashion’s Most Influential Designers, Auctions Off His Personal Archive**\
-`How Martin Margiela, one of the most influential living designers, came to auction off his personal archive, and what it means.`\
-https://www.nytimes.com/2026/07/05/style/martin-margiela-auction-paris.html
 
