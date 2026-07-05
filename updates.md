@@ -1,3 +1,7 @@
+**Trump Asked FIFA to Review Balogun’s Suspension. He Is Now Eligible to Play.**\
+`The reversal is highly unusual and the first time since 1962 that FIFA has allowed a player to appear in a game when they would have been suspended.`\
+https://www.nytimes.com/2026/07/05/us/trump-fifa-balogun-world-cup.html
+
 **The Main Attraction at Africa’s Most Lucrative Horse Race? Black Wealth.**\
 `In South Africa, where the Black majority was excluded from the economy for generations, the annual Durban July event is a chance to celebrate luxury and high society.`\
 https://www.nytimes.com/2026/07/05/world/africa/durban-july-south-africa-black-wealth.html

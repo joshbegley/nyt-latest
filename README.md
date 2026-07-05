@@ -1,4 +1,4 @@
-**Trump Asked FIFA to Review Balogun’s Suspension. He Is Now Eligible to Play.**\
+**Trump Asked FIFA to Review U.S. Top Scorer’s Suspension. He Is Now Eligible to Play.**\
 `The reversal is highly unusual and the first time since 1962 that FIFA has allowed a player to appear in a game when they would have been suspended.`\
 https://www.nytimes.com/2026/07/05/us/trump-fifa-balogun-world-cup.html
 
