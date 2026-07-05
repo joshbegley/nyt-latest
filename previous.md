@@ -90,7 +90,7 @@ https://www.nytimes.com/es/2026/07/05/espanol/opinion/madonna-envejecimiento-nue
 `Throughout the capital, the government is using Ayatollah Ali Khamenei’s funeral to project strength at a time of great uncertainty for Iran.`\
 https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-khamenei-tehran.html
 
-**Mike Wallace, Who Wrote a Radical History of New York, Dies at 83**\
+**Mike Wallace, Who Wrote an Acclaimed History of New York, Dies at 83**\
 `His 1998 book, “Gotham,” which told the city’s story to 1898, focused on social and economic conflict. It won a Pulitzer Prize and inspired two sequels.`\
 https://www.nytimes.com/2026/07/05/books/mike-wallace-dead.html
 
@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/07/05/opinion/sleep-health-8-hours.html
 https://www.nytimes.com/2026/07/05/business/opec-production-iran-war.html
 
 **8 Wounded in Coney Island Shooting on Fourth of July**\
-`The victims included two boys, aged 6 and 7, and one woman who remained in critical condition on Sunday, the police said. No arrests had been made.`\
+`The victims included two young boys and a woman who remained in critical condition, the police said. In a separate incident, a detective was shot but was protected by his bulletproof vest.`\
 https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth-fireworks.html
 
 **The Most American Thing**\

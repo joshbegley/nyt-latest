@@ -1,3 +1,11 @@
+**Mike Wallace, Who Wrote an Acclaimed History of New York, Dies at 83**\
+`His 1998 book, “Gotham,” which told the city’s story to 1898, focused on social and economic conflict. It won a Pulitzer Prize and inspired two sequels.`\
+https://www.nytimes.com/2026/07/05/books/mike-wallace-dead.html
+
+**8 Wounded in Coney Island Shooting on Fourth of July**\
+`The victims included two young boys and a woman who remained in critical condition, the police said. In a separate incident, a detective was shot but was protected by his bulletproof vest.`\
+https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth-fireworks.html
+
 **NYT Crossword Answers for July 6, 2026**\
 `Alex Eaton-Salners proves himself a key figure in the crossword scene.`\
 https://www.nytimes.com/2026/07/05/crosswords/daily-puzzle-2026-07-06.html
