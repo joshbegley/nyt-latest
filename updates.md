@@ -1,3 +1,7 @@
+**All Passengers Rescued as Seaplane Crashes in East River**\
+`The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and six passengers.`\
+https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
+
 **La criptomoneda de Trump ha causado pérdidas de millardos de dólares a sus inversores**\
 `Un informe de una empresa de análisis detalla cómo les ha ido a quienes compraron la memecoin de Trump: la mayoría de los inversores minoristas han perdido dinero, mientras que a los más experimentados les ha ido mejor.`\
 https://www.nytimes.com/es/2026/07/05/espanol/estados-unidos/criptomoneda-trump-perdida-inversores.html
