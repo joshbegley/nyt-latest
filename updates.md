@@ -1,3 +1,7 @@
+**This California Town Banned Fireworks. Then Came the Dogs.**\
+`People flock to the coastal town of Cambria, which has become known for its fireworks ban, to give their dogs some respite on the Fourth of July.`\
+https://www.nytimes.com/2026/07/04/us/politics/this-california-town-banned-fireworks-then-came-the-dogs.html
+
 **Nancy Pelosi’s Husband Could Face Charge Over Napa County Car Crash**\
 `The police said Paul Pelosi was the driver of a convertible that struck a parked car on Friday. The district attorney will decide whether Mr. Pelosi will be charged.`\
 https://www.nytimes.com/2026/07/04/us/paul-pelosi-hit-run-napa.html
