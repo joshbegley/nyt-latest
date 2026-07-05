@@ -1,3 +1,7 @@
+**Nancy Pelosi’s Husband Could Face Charge Over Napa County Car Crash**\
+`The police said Paul Pelosi was the driver of a convertible that struck a parked car on Friday. The district attorney will decide whether Mr. Pelosi will be charged.`\
+https://www.nytimes.com/2026/07/04/us/paul-pelosi-hit-run-napa.html
+
 **July 4 Live Updates: America Celebrates Its 250th Birthday**\
 `Despite extreme heat in much of the nation, the day was marked with the customary American exuberance. Storm threats forced an evacuation of thousands on the National Mall in Washington, where the president plans to speak before a huge fireworks show.`\
 https://www.nytimes.com/live/2026/07/04/us/america-250-celebrations-fourth-july
