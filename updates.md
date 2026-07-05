@@ -1,3 +1,11 @@
+**At Site Where Iran’s Slain Leader Lies, Some See a Symbol of His Failures**\
+`The complex where mourners are paying their respects to Ayatollah Ali Khamenei this weekend is unfinished after nearly 40 years. Critics say it is emblematic of the unfulfilled promises of his rule.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/iran-grand-mosalla-khamenei.html
+
+**Madonna se ha convertido en un símbolo de nuestro miedo a envejecer**\
+`Si ella no puede resistirse a las fuerzas que exigen que las mujeres sigan aparentando juventud, ¿qué posibilidades tenemos las demás?`\
+https://www.nytimes.com/es/2026/07/05/espanol/opinion/madonna-envejecimiento-nuevo-album.html
+
 **Exhausted by Iran War, Tehran Transforms for Khamenei’s Funeral**\
 `Throughout the capital, the government is using Ayatollah Ali Khamenei’s funeral to project strength at a time of great uncertainty for Iran.`\
 https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-khamenei-tehran.html

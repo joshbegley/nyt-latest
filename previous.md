@@ -1,3 +1,11 @@
+**At Site Where Iran’s Slain Leader Lies, Some See a Symbol of His Failures**\
+`The complex where mourners are paying their respects to Ayatollah Ali Khamenei this weekend is unfinished after nearly 40 years. Critics say it is emblematic of the unfulfilled promises of his rule.`\
+https://www.nytimes.com/2026/07/05/world/middleeast/iran-grand-mosalla-khamenei.html
+
+**Madonna se ha convertido en un símbolo de nuestro miedo a envejecer**\
+`Si ella no puede resistirse a las fuerzas que exigen que las mujeres sigan aparentando juventud, ¿qué posibilidades tenemos las demás?`\
+https://www.nytimes.com/es/2026/07/05/espanol/opinion/madonna-envejecimiento-nuevo-album.html
+
 **Exhausted by Iran War, Tehran Transforms for Khamenei’s Funeral**\
 `Throughout the capital, the government is using Ayatollah Ali Khamenei’s funeral to project strength at a time of great uncertainty for Iran.`\
 https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-khamenei-tehran.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/05/fashion/jewelry-that-climbs-the-ear.html
 **Vram Minassian Prepares for a Jewelry Debut in Paris**\
 `Vram Minassian’s presentation in July will mark the 10th anniversary of his brand and the midpoint of what he has planned as a 10-part collection.`\
 https://www.nytimes.com/2026/07/05/fashion/jewelry-vram-minassian-los-angeles.html
-
-**Couture Week in Paris Features Jewelry From Hermès, Boucheron**\
-`Some debuts began in March, but Hermès and Boucheron are among those who plan to introduce creations during Couture Week in Paris.`\
-https://www.nytimes.com/2026/07/05/fashion/couture-week-paris-jewelry.html
-
-**The Modern Allure of a Traditional Korean Ornament**\
-`BTS, Blackpink and “KPop Demon Hunters” have amped up interest in the norigae.`\
-https://www.nytimes.com/2026/07/05/fashion/jewelry-norigae-bts-blackpink-seoul.html
 
