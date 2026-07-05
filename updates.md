@@ -1,3 +1,7 @@
+**China Raises Pressure on Taiwan With Expanded Coast Guard Patrols**\
+`Beijing sent two ships to patrol the waters east of Taiwan, a new campaign to challenge the island’s control of waters crucial to any future invasion.`\
+https://www.nytimes.com/2026/07/05/world/asia/china-taiwan-east-coast-guard-patrols.html
+
 **Guam and Northern Mariana Islands Prepare for Typhoon Bavi**\
 `Typhoon Bavi, a tropical cyclone barreling through the Pacific Ocean, was forecast to pass near the U.S. territories on Monday with the force of a Category 5 hurricane.`\
 https://www.nytimes.com/2026/07/05/us/guam-typhoon-bavi-marianas.html

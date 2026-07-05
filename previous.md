@@ -1,3 +1,7 @@
+**China Raises Pressure on Taiwan With Expanded Coast Guard Patrols**\
+`Beijing sent two ships to patrol the waters east of Taiwan, a new campaign to challenge the island’s control of waters crucial to any future invasion.`\
+https://www.nytimes.com/2026/07/05/world/asia/china-taiwan-east-coast-guard-patrols.html
+
 **Guam and Northern Mariana Islands Prepare for Typhoon Bavi**\
 `Typhoon Bavi, a tropical cyclone barreling through the Pacific Ocean, was forecast to pass near the U.S. territories on Monday with the force of a Category 5 hurricane.`\
 https://www.nytimes.com/2026/07/05/us/guam-typhoon-bavi-marianas.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/04/world/middleeast/the-funeral-of-irans-supreme
 **Atlantic Beach Pie Is the Ultimate Summertime Pie**\
 `The cookbook author and pie connoisseur Stacey Mei Yan Fong deems it so in the Bake Time Questionnaire.`\
 https://www.nytimes.com/2026/07/04/dining/atlantic-beach-pie-is-the-ultimate-summertime-pie.html
-
-**The Unifying Speech We Won’t Get This Independence Day**\
-`America, we need a new beginning.`\
-https://www.nytimes.com/video/opinion/100000011002600/the-unifying-speech-we-wont-get-this-independence-day.html
 
 **Fireworks and Trump Speech Cap Independence Day Celebrations**\
 `People across the United States marked the country’s 250th birthday even as extreme heat and storms disrupted some events. President Trump delivered a weather-delayed speech in the capital ahead of a huge fireworks show.`\
