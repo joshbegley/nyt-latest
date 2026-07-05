@@ -1,3 +1,7 @@
+**OPEC Plus Pledges to Pump More Even as Oil Prices Fall**\
+`The cartel’s decision comes as U.S.-Iran talks to end the war have eased pressure on oil supplies, even as broader market and political volatility persists.`\
+https://www.nytimes.com/2026/07/05/business/opec-production-iran-war.html
+
 **I’m a Therapist. Not Everyone Should Be in Therapy.**\
 `Many patients misunderstand what therapy reliably provides.`\
 https://www.nytimes.com/2026/07/05/opinion/therapy-loneliness-friendship.html

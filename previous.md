@@ -1,3 +1,7 @@
+**OPEC Plus Pledges to Pump More Even as Oil Prices Fall**\
+`The cartel’s decision comes as U.S.-Iran talks to end the war have eased pressure on oil supplies, even as broader market and political volatility persists.`\
+https://www.nytimes.com/2026/07/05/business/opec-production-iran-war.html
+
 **8 Wounded in Coney Island Shooting on Fourth of July**\
 `The victims included two boys, aged 6 and 7, and one woman who remained in critical condition on Sunday, the police said. No arrests had been made.`\
 https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth-fireworks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/us/guam-typhoon-bavi-marianas.html
 **Searching for What Pretty Means After an Acid Attack**\
 `Nafiah Ikram was steps from her home when a stranger threw acid in her face. Five years later, she is trying to rebuild her life and cope with a stunning twist in her case.`\
 https://www.nytimes.com/2026/07/05/nyregion/nafiah-ikram-acid-attack.html
-
-**NYT Spelling Bee Answers for July 5, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/05/crosswords/spelling-bee-forum.html
 
