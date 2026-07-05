@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/05/business/media/minions-box-office-franchise.h
 `The plane, coming from the Hamptons, made a hard landing near the Manhattan waterfront on Sunday. The Fire Department rescued the pilot, a crew member and at least six passengers.`\
 https://www.nytimes.com/2026/07/05/nyregion/sea-plane-crash-nyc.html
 
-**Mallory McMorrow Ends Senate Bid in Democrats’ Heated Michigan Primary**\
+**Mallory McMorrow Suspends Senate Bid in Democrats’ Heated Michigan Primary**\
 `The state senator sought to carve a middle path between a left-wing candidate and one backed by the party establishment, but she gained little traction.`\
 https://www.nytimes.com/2026/07/05/us/politics/mcmorrow-senate-suspend-campaign-democrats-michigan.html
 
