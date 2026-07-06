@@ -1,3 +1,7 @@
+**‘The Five-Star Weekend’ and 6 More Shows to Watch on TV This Week**\
+`The adaptation of Elin Hilderbrand’s book airs and the new iteration of “Little House on the Prairie” begins.`\
+https://www.nytimes.com/2026/07/06/arts/television/the-five-star-weekend-what-to-watch-on-tv.html
+
 **Andy Burnham, the UK’s Likely Next Prime Minister, Made His Name in Manchester. Here’s How.**\
 `Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
 https://www.nytimes.com/2026/07/06/world/europe/andy-burnham-manchesterism-uk.html
