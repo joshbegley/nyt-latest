@@ -1,3 +1,11 @@
+**Inside Bath & Body Works’ Fragrance Factory**\
+`“Japanese Cherry Blossom” has brought in $1.5 billion over the last 20 years. Can the company’s close-knit network of suppliers come up with the next big thing and improve sales?`\
+https://www.nytimes.com/2026/07/06/business/bath-body-works-fragrance-factory.html
+
+**China prueba un misil de largo alcance en el Pacífico y enfurece a sus vecinos**\
+`El lanzamiento se produjo justo cuando Australia cerraba acuerdos de defensa con socios insulares del Pacífico. Varios países expresaron su preocupación por la prueba.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/china-misil-largo-alcance.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011014045/06visualUploader-89868.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011013549/06vid-khamenei
 **Cumbre de la OTAN en Turquía: lo que hay que saber**\
 `La relación cada vez más tensa entre Estados Unidos y sus aliados de la OTAN se cierne sobre esta reunión de dos días.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/otan-cumbre-turquia.html
-
-**Una enfermedad estomacal grave tiene brotes en todo EE. UU.**\
-`Los expertos en salud pública dijeron que se han registrado más casos de lo habitual de la enfermedad causada por la Cyclospora, que se transmite a través de alimentos y bebidas contaminados.`\
-https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/cyclospora-enfermedad-estomacal.html
-
-**What It Was Like Inside Taylor Swift and Travis Kelce’s Wedding**\
-`From garden themes to meatballs on the (rehearsal dinner) menu, carefully planned details are emerging from the top-secret event.`\
-https://www.nytimes.com/article/taylor-swift-travis-kelce-msg-wedding-details.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
