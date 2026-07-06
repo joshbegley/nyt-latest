@@ -1,3 +1,15 @@
+**Efforts to Help Smokers Quit Stall Under Trump**\
+`The C.D.C.’s tobacco control office has been shut for more than a year. After its most prominent antismoking campaign went off the air, calls to 1-800-QUIT-NOW lines have plummeted.`\
+https://www.nytimes.com/2026/07/06/us/trump-anti-smoking-cuts.html
+
+**Families of Iranians Killed by Government Dismayed by Leader’s Funeral Pageantry**\
+`Critics of Ayatollah Ali Khamenei’s brutal rule have been angered by the scale of the commemorations being held to honor his life.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/iran-dissidents-funeral-anger.html
+
+**Live Updates: Prosecutors Begin Detailing Case Against Man Accused of Killing Charlie Kirk**\
+`A Utah judge will determine whether there is enough evidence to send the man, Tyler Robinson, to trial. Mr. Kirk’s widow and parents are expected to attended the hearing.`\
+https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011013919/06visualUploader-82435.html

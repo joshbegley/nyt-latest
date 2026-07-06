@@ -1,3 +1,19 @@
+****\
+`Waving flags during the funeral procession.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011014029/04int-iran-funeral-photos-56614.html
+
+****\
+`The commemoration filled the streets of Tehran.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011014031/04int-iran-funeral-photos-83667.html
+
+**Turkey Hosts NATO Summit While Cracking Down on Critics**\
+`In the weeks leading up to the two-day event, the Turkish authorities blocked websites, jailed scores of people over allegations of terrorism and arrested a prominent comedian.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/turkey-hosts-nato-summit-while-cracking-down-on-critics.html
+
+**A Timeline of Trump’s Pressure Campaign Against the Smithsonian**\
+`Since returning to the White House in 2025, President Trump has repeatedly denounced the Smithsonian’s museums. The latest salvo came on the nation’s 250th birthday.`\
+https://www.nytimes.com/2026/07/06/arts/design/president-trump-smithsonian-timeline.html
+
 **Efforts to Help Smokers Quit Stall Under Trump**\
 `The C.D.C.’s tobacco control office has been shut for more than a year. After its most prominent antismoking campaign went off the air, calls to 1-800-QUIT-NOW lines have plummeted.`\
 https://www.nytimes.com/2026/07/06/us/trump-anti-smoking-cuts.html
@@ -42,9 +58,9 @@ https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everyt
 `Irvine Welsh brings back his beloved Edinburgh ensemble for his new novel, “Men in Love.”`\
 https://www.nytimes.com/2026/07/06/books/review/irvine-welsh-men-in-love.html
 
-**Live Updates: Prosecutors Begin Detailing Case Against Man Accused of Killing Charlie Kirk**\
-`A Utah judge will determine whether there is enough evidence to send the man, Tyler Robinson, to trial. Mr. Kirk’s widow and parents are expected to attended the hearing.`\
-https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
+**Who Was Charlie Kirk?**\
+`Mr. Kirk, an influential right-wing activist, has become a modern-day martyr for conservative evangelical Christians.`\
+https://www.nytimes.com/2026/07/06/us/who-was-charlie-kirk.html
 
 **Wildfires Force Evacuation of Thousands in Southwest France**\
 `The blaze in the Pyrenees, a region bordering Spain, has scorched more than 11,000 acres so far.`\
@@ -170,23 +186,7 @@ https://www.nytimes.com/2026/07/06/world/europe/nato-leaders-are-meeting-this-we
 `The bling and brutality of American “diplomacy.”`\
 https://www.nytimes.com/2026/07/06/opinion/trump-ufc-promotion.html
 
-**A Sag Harbor Whaler’s Cottage Conceals a Thoroughly Modern Renovation**\
-`When a weekend getaway became a primary home, it was time for an addition that wouldn’t sacrifice the home’s beachy charm.`\
-https://www.nytimes.com/2026/07/06/realestate/sag-harbor-whalers-cottage-renovation.html
-
-**The Ocean Can Be Treacherous. Here’s How to Stay Safe.**\
-`A 6-year-old girl died over the weekend when she was swept away by a current on Long Island. An expert has suggestions for beach safety.`\
-https://www.nytimes.com/2026/07/06/nyregion/beach-safety-drownings-long-island.html
-
-**How a Museum Security Guard and Artist Lives on $51,000 in Parkchester**\
-`Ryan Compton works for one of the most famous museums in the world, but struggles to afford the life of an artist.`\
-https://www.nytimes.com/interactive/2026/07/06/nyregion/nyc-budgeting-affordability-compton.html
-
-**In Trump’s Second Midterm, Democrats Are Looking for Fighters**\
-`Attitudes in the party have shifted, Democrats say, with a growing appetite for outsider candidates vowing to overhaul the system. Some worry that the trend could be costly in November.`\
-https://www.nytimes.com/2026/07/06/us/politics/democrats-midterms-trump-mood-fighters.html
-
-**Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
+**Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
 

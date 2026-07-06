@@ -1,3 +1,11 @@
+**Efforts to Help Smokers Quit Stall Under Trump**\
+`The C.D.C.’s tobacco control office has been shut for more than a year. After its most prominent antismoking campaign went off the air, calls to 1-800-QUIT-NOW lines have plummeted.`\
+https://www.nytimes.com/2026/07/06/us/trump-anti-smoking-cuts.html
+
+**Families of Iranians Killed by Government Dismayed by Leader’s Funeral Pageantry**\
+`Critics of Ayatollah Ali Khamenei’s brutal rule have been angered by the scale of the commemorations being held to honor his life.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/iran-dissidents-funeral-anger.html
+
 **Key Moments in the Case of Charlie Kirk’s Assassination**\
 `The case against the defendant, Tyler Robinson, has played out since last September.`\
 https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everyt
 `Irvine Welsh brings back his beloved Edinburgh ensemble for his new novel, “Men in Love.”`\
 https://www.nytimes.com/2026/07/06/books/review/irvine-welsh-men-in-love.html
 
-**Live Updates: Prosecutors to Detail Case Against Man Accused of Assassinating Charlie Kirk**\
+**Live Updates: Prosecutors Begin Detailing Case Against Man Accused of Killing Charlie Kirk**\
 `A Utah judge will determine whether there is enough evidence to send the man, Tyler Robinson, to trial. Mr. Kirk’s widow and parents are expected to attended the hearing.`\
 https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
 
@@ -177,18 +185,6 @@ https://www.nytimes.com/interactive/2026/07/06/nyregion/nyc-budgeting-affordabil
 **In Trump’s Second Midterm, Democrats Are Looking for Fighters**\
 `Attitudes in the party have shifted, Democrats say, with a growing appetite for outsider candidates vowing to overhaul the system. Some worry that the trend could be costly in November.`\
 https://www.nytimes.com/2026/07/06/us/politics/democrats-midterms-trump-mood-fighters.html
-
-**As Trump Cools on NATO, Turkey Hosts Summit Meeting**\
-`As President Trump cools on the alliance, its members see Turkey’s large military and vibrant defense sector as assets.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/nato-summit-turkey-erdogan-trump.html
-
-**Natural Bedfellows: Frida Kahlo’s and Tracey Emin’s Parallel Blockbusters**\
-`In concurrent hit shows at Tate Modern, the artists’ shared preoccupations become clear.`\
-https://www.nytimes.com/2026/07/06/arts/design/frida-kahlo-tracey-emin-tate-modern.html
-
-**With $8 Billion in Venezuelan Oil Money, U.S. Gives $300 Million in Quake Aid**\
-`In 2010, there was a huge U.S. aid effort after a quake in Haiti. Today, U.S. officials say they oversee billions in Venezuelan oil revenue, but aid is less.`\
-https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-aid.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
