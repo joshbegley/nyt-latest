@@ -1,3 +1,7 @@
+**Ukraine Rewrote Air Defense Tactics. Against Russia, It’s Still Not Enough.**\
+`Ukraine has changed how militaries use Patriot systems. But recent attacks prove that clever adaptations cannot overcome a shortage of interceptors.`\
+https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html
+
 **Balogun Back for USMNT’s Clash With Belgium**\
 `The U.S. receive an unexpected boost ahead of their last 16 encounter with the Red Devils.`\
 https://www.nytimes.com/2026/07/06/podcasts/balogun-usmnt-belgium-ronaldo-yamal.html
