@@ -1,4 +1,4 @@
-**China Test Fires Long Range Ballistic Missile in the Pacific, Angering Neighbors**\
+**China Test Fires Long-Range Ballistic Missile in the Pacific, Angering Neighbors**\
 `China’s firing of a submarine-launched missile came as Australia secured more defense deals with Pacific Island nations. Countries expressed concern about the test.`\
 https://www.nytimes.com/2026/07/06/world/asia/china-pacific-nuclear-missile-launch.html
 
