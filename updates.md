@@ -1,3 +1,11 @@
+**Russia Attacks Ukraine’s Capital for Second Time in Less Than a Week**\
+`Russia launched its second major attack on Kyiv, Ukraine’s capital, in less than a week. The deadly strikes occurred a day before a NATO summit expected to focus on the alliance’s response to the war.`\
+https://www.nytimes.com/video/world/europe/100000011013564/russia-ukraine-kyiv-attack.html
+
+**Sites That Report Venezuela’s Missing Rise Far From Quake Zone**\
+`Despite problems like duplicate submissions, tallies gathered by the websites have been cited by news organizations and critics of the Venezuelan government’s disaster response.`\
+https://www.nytimes.com/2026/07/06/world/americas/venezuela-earthquake-missing.html
+
 **With $8 Billion in Venezuelan Oil Money, U.S. Gives $300 Million in Quake Aid**\
 `In 2010, there was a huge U.S. aid effort after a quake in Haiti. Today, U.S. officials say they oversee billions in Venezuelan oil revenue, but aid is less.`\
 https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-aid.html
