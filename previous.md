@@ -1,3 +1,7 @@
+**Wildfires Force Evacuation of Thousands in Southwest France**\
+`The blaze in the Pyrenees, a region bordering Spain, has scorched more than 11,000 acres so far.`\
+https://www.nytimes.com/2026/07/06/world/europe/france-wildfires-evacuation.html
+
 **Former Syrian Officials Found Guilty in Torture of Pro-Democracy Protesters**\
 `The case against the two men, who have been living in Austria since 2015, was one of the first that the country has brought under the principle of universal jurisdiction.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/syrian-torture-verdict-vienna.html
@@ -158,7 +162,7 @@ https://www.nytimes.com/2026/07/06/world/europe/nato-turkey-erdogan-trump-hakan-
 `The veteran comedy actress steals scenes in this “Legally Blonde” prequel series, playing the glamorous mother to the title character.`\
 https://www.nytimes.com/2026/07/06/arts/television/june-diane-raphael-elle.html
 
-**Prosecutors to Detail Case Against Man Accused of Killing Charlie Kirk**\
+**Here’s the latest.**\
 `A judge will determine whether there is enough evidence to go to trial. Mr. Kirk’s widow and parents are expected to be in court.`\
 https://www.nytimes.com/2026/07/06/us/charlie-kirk-hearing.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/us/politics/congress-interns-tiktok-videos-oo
 **The Chinese Company That Could Start a Trade War With Europe**\
 `Nuctech’s rise from a Chinese state-backed start-up to a global border-security supplier has made it a lightning rod in trade and subsidy disputes.`\
 https://www.nytimes.com/2026/07/06/business/china-europe-nuctech.html
-
-**What Does Dressing Up Mean Today?**\
-`A reader wonders if the rising casualness of the world is a good or a bad thing.`\
-https://www.nytimes.com/2026/07/06/fashion/dressing-up-casual-clothing.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\

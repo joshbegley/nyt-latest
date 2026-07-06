@@ -1,3 +1,11 @@
+**Wildfires Force Evacuation of Thousands in Southwest France**\
+`The blaze in the Pyrenees, a region bordering Spain, has scorched more than 11,000 acres so far.`\
+https://www.nytimes.com/2026/07/06/world/europe/france-wildfires-evacuation.html
+
+**Here’s the latest.**\
+`A judge will determine whether there is enough evidence to go to trial. Mr. Kirk’s widow and parents are expected to be in court.`\
+https://www.nytimes.com/2026/07/06/us/charlie-kirk-hearing.html
+
 **Former Syrian Officials Found Guilty in Torture of Pro-Democracy Protesters**\
 `The case against the two men, who have been living in Austria since 2015, was one of the first that the country has brought under the principle of universal jurisdiction.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/syrian-torture-verdict-vienna.html
