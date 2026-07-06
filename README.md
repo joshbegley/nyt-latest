@@ -1,3 +1,7 @@
+**Former Syrian Officials Found Guilty in Torture of Pro-Democracy Protesters**\
+`The case against the two men, who have been living in Austria since 2015, was one of the first that the country has brought under the principle of universal jurisdiction.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/syrian-torture-verdict-vienna.html
+
 **Try This Quiz on Literary Quotations About American Life**\
 `Test your knowledge of novels, essays and poems that made insightful observations.`\
 https://www.nytimes.com/interactive/2026/07/06/books/review/american-life-quotes.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/business/china-europe-nuctech.html
 **What Does Dressing Up Mean Today?**\
 `A reader wonders if the rising casualness of the world is a good or a bad thing.`\
 https://www.nytimes.com/2026/07/06/fashion/dressing-up-casual-clothing.html
-
-**For the Young (and Old), World Cup Memories Last a Lifetime**\
-`A Times reporter reflects on her childhood experience at the World Cup and how attending a game can shape the children of today.`\
-https://www.nytimes.com/2026/07/06/us/world-cup-9-year-olds.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
