@@ -1,3 +1,11 @@
+**Michigan Senate Primary Gives Democrats Stark Choice Between Progressive and Moderate Candidate**\
+`The state’s important Senate primary just became a head-to-head battle between Abdul El-Sayed, an outspoken left-wing candidate, and Haley Stevens, a moderate backed by party leaders.`\
+https://www.nytimes.com/2026/07/06/us/politics/michigan-primary-democrats-stevens-el-sayed.html
+
+**Supreme Court Allows Texas Age-Verification Law for App Stores, for Now**\
+`The law would require Apple and Google to verify the age of app store users to give parents more control over the content their children download.`\
+https://www.nytimes.com/2026/07/06/us/politics/supreme-court-texas-age-apps.html
+
 **An Email. A Knock at the Door. A Suit Alleges a Threat to Free Speech.**\
 `A man sent a scathing note to an immigration official after two demonstrators were killed. A lawsuit says agents who came to his house were trying to intimidate him.`\
 https://www.nytimes.com/2026/07/06/nyregion/ice-email-lawsuit.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/es/2026/07/06/espanol/america-latina/terremoto-venezuela
 **Who is Ahead in Florida's 25th Congressional District?**\
 `Track the latest polls in Florida's 25th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-25-polls-2026.html
-
-**Russia Attacks Ukraine’s Capital for Second Time in Less Than a Week**\
-`Russia launched its second major attack on Kyiv, Ukraine’s capital, in less than a week. The deadly strikes occurred a day before a NATO summit expected to focus on the alliance’s response to the war.`\
-https://www.nytimes.com/video/world/europe/100000011013564/russia-ukraine-kyiv-attack.html
-
-**Sites That Report Venezuela’s Missing Rise Far From Quake Zone**\
-`Despite problems like duplicate submissions, tallies gathered by the websites have been cited by news organizations and critics of the Venezuelan government’s disaster response.`\
-https://www.nytimes.com/2026/07/06/world/americas/venezuela-earthquake-missing.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\

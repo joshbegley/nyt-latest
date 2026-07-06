@@ -1,3 +1,7 @@
+**Trump Defends Asking FIFA to Review Folarin Balogun’s World Cup Ban**\
+`The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
+
 **An Email. A Knock at the Door. A Suit Alleges a Threat to Free Speech.**\
 `A man sent a scathing note to an immigration official after two demonstrators were killed. A lawsuit says agents who came to his house were trying to intimidate him.`\
 https://www.nytimes.com/2026/07/06/nyregion/ice-email-lawsuit.html
