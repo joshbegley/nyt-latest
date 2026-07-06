@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-resi
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013677/06vid-khamenei-sprinklers-update-14793.html
 
-**Trump’s World Cup Intervention Adds New Stress to Europe Ties**\
+**Trump’s Intervention in Balogun’s World Cup Suspension Adds to Conflict With Europe**\
 `The decision to reverse a one-game ban landed badly in Europe, at a moment of already-heightened geopolitical tension with the United States.`\
 https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
 
