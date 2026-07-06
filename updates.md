@@ -1,3 +1,11 @@
+**Ships Are Still Getting Out of the Persian Gulf, Easing Oil Prices**\
+`A recovery in oil flows from the Persian Gulf and a pledge by OPEC Plus to pump more crude have put downward pressure on energy prices.`\
+https://www.nytimes.com/2026/07/06/business/hormuz-strait-shipping-oil.html
+
+**Ukraine Remade Air Defense, but Russia Has Changed Its Attacks**\
+`Ukraine has changed how militaries use Patriot systems. But recent attacks prove that clever adaptations cannot overcome a shortage of interceptors.`\
+https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html
+
 **Comcast Adds Heft With Sky’s Deal for British Broadcaster ITV**\
 `The $2.1 billion purchase would combine two major British media outlets and help the Comcast-owned Sky compete with streaming giants.`\
 https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
