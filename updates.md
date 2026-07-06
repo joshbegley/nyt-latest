@@ -1,3 +1,7 @@
+**‘Confessions II’ Review: Madonna Returns to the Dance Floor**\
+`On “Confessions II,” a successor to her hit 2005 album “Confessions on a Dance Floor,” the pop superstar gives new energy to her origin story and shines light on the troubles she’s danced away.`\
+https://www.nytimes.com/2026/07/06/arts/music/madonna-confessions-ii-album-review.html
+
 **Iranians Mourn a Slain Leader, and Call for Vengeance**\
 `Million of people filled the streets of Iran to bid farewell to Ayatollah Ali Khamenei, who was killed in the war with the United States and Israel.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/iran-khamenei-funeral.html
