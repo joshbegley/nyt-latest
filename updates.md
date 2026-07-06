@@ -1,3 +1,7 @@
+**Erika Kirk Attends Hearing for Man Accused of Killing Her Husband**\
+`Mrs. Kirk is at the center of conspiracy theories, atop a political organization in transition and facing a personal test.`\
+https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html
+
 **Heat waves are taking a big toll on chickens**\
 `The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
 https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html

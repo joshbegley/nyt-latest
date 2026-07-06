@@ -1,3 +1,7 @@
+**Erika Kirk Attends Hearing for Man Accused of Killing Her Husband**\
+`Mrs. Kirk is at the center of conspiracy theories, atop a political organization in transition and facing a personal test.`\
+https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html
+
 **Heat waves are taking a big toll on chickens**\
 `The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
 https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/06/technology/microsoft-xbox-layoffs-ai.html
 **Khamenei’s Burial Was Delayed, Breaking With Islamic Custom**\
 `Ayatollah Ali Khamenei’s remains were preserved for months, according to Iran’s government. Some Islamic scholars say it was a political and security calculation.`\
 https://www.nytimes.com/2026/07/06/world/europe/khamenei-delayed-burial-islamic-custom.html
-
-**De Haití a Venezuela: el cambio de la ayuda internacional de EE. UU.**\
-`La respuesta humanitaria que Estados Unidos envió a Haití tras un terremoto en 2010 ensombrece lo que ha prometido para Venezuela, un país devastado por sus propios temblores.`\
-https://www.nytimes.com/es/2026/07/06/espanol/america-latina/terremoto-venezuela-haiti-ayuda-eeuu.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
