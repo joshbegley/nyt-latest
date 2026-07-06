@@ -1,3 +1,7 @@
+**Former Syrian Officials Found Guilty in Torture of Pro-Democracy Protesters**\
+`The case against the two men, who have been living in Austria since 2015, was one of the first that the country has brought under the principle of universal jurisdiction.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/syrian-torture-verdict-vienna.html
+
 **Try This Quiz on Literary Quotations About American Life**\
 `Test your knowledge of novels, essays and poems that made insightful observations.`\
 https://www.nytimes.com/interactive/2026/07/06/books/review/american-life-quotes.html
