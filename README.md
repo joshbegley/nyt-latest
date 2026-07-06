@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/07/06/pageoneplus/quote-of-the-day-wartime-sign-for
 https://www.nytimes.com/2026/07/05/weather/super-typhoon-bavi-guam-saipan.html
 
 **Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
-`Ballistic missiles were fired into the capital of Ukraine, as Russia launched its second major attack in less than a week. At least 12 people were killed, officials said.`\
+`Ballistic missiles were fired into the capital of Ukraine as Russia launched its second major attack in less than a week. At least 12 people were killed, officials said.`\
 https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
 
 **‘House of the Dragon’ Season 3 Episode 3 Recap: The Rat Banquet**\
