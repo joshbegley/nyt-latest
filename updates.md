@@ -1,3 +1,7 @@
+**Iran Live Updates: Huge Crowds Pack Tehran for Ayatollah’s Funeral Procession**\
+`Tens of thousands of Iranians came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011013549/06vid-khamenei-abdi-update-36635.html
