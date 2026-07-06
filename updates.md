@@ -1,3 +1,15 @@
+**George E. Johnson Dies at 99; Broke Market Barriers With Afro Sheen**\
+`Mr. Johnson’s hair-product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
+https://www.nytimes.com/2026/07/06/business/george-e-johnson-dead.html
+
+**New Books About the World Cup**\
+`Three authors chronicle the history of the World Cup and of U.S. men’s soccer.`\
+https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
+
+**Canada Bets on NATO Partners for Its Expanded Submarine Fleet**\
+`In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
+https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
+
 **Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
 `Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
 https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html

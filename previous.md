@@ -1,3 +1,15 @@
+**George E. Johnson Dies at 99; Broke Market Barriers With Afro Sheen**\
+`Mr. Johnson’s hair-product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
+https://www.nytimes.com/2026/07/06/business/george-e-johnson-dead.html
+
+**New Books About the World Cup**\
+`Three authors chronicle the history of the World Cup and of U.S. men’s soccer.`\
+https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
+
+**Canada Bets on NATO Partners for Its Expanded Submarine Fleet**\
+`In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
+https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
+
 **Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
 `Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
 https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/06/world/middleeast/iran-dissidents-funeral-ange
 **Key Moments in the Case of Charlie Kirk’s Assassination**\
 `The case against the defendant, Tyler Robinson, has played out since last September.`\
 https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
-
-**Gas Stations Gain When Oil Prices Start to Drop**\
-`President Trump is berating gasoline retailers for keeping prices high. Evidence suggests the business has grown more profitable.`\
-https://www.nytimes.com/2026/07/06/business/economy/gas-station-prices.html
-
-**The Simple Meal I’m Making Before Vacation**\
-`White fish, poached in a punchy tomato sauce, is just the light meal I’m looking for.`\
-https://www.nytimes.com/2026/07/06/dining/the-simple-meal-im-making-before-vacation.html
-
-**El Mundial les dio una ilusión a los mexicanos**\
-`El éxito inicial de la selección mexicana unió y emocionó a todo el país, y les dio a los aficionados un motivo para salir a las calles a celebrar en lugar de protestar.`\
-https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
