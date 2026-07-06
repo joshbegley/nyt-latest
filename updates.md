@@ -1,3 +1,7 @@
+**Michelle Obama and Cardi B Celebrate Black Women on America’s 250th**\
+`The Essence Festival drew attendees from around the country to New Orleans for parties, panels, concerts and unity.`\
+https://www.nytimes.com/2026/07/06/style/essence-festival-michelle-obama-cardi-b-black-women.html
+
 **Alibaba’s A.I. Is a Hit, but Hard to Turn Into a Moneymaker**\
 `The Chinese company’s models have won over developers worldwide, but they are open source — so they can be used and modified freely.`\
 https://www.nytimes.com/2026/07/06/business/alibaba-ai-qwen.html
