@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/07/06/nyregion/ice-email-lawsuit.html
 `Is it fair that players live in one reality and referees live in another? Is it fair that Donald Trump, uh, trumps them all?`\
 https://www.nytimes.com/2026/07/06/opinion/trump-fifa-balogun-red-card.html
 
-**Trump Defends Asking FIFA to Review U.S. Soccer Star’s Ban**\
+**Trump Defends Asking FIFA to Review Folarin Balogun’s World Cup Ban**\
 `The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
 
