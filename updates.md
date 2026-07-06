@@ -1,3 +1,7 @@
+**With $8 Billion in Venezuelan Oil Money, U.S. Gives $300 Million in Quake Aid**\
+`In 2010, there was a huge U.S. aid effort after a quake in Haiti. Today, U.S. officials say they oversee billions in Venezuelan oil revenue, but aid is less.`\
+https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-aid.html
+
 **Trump’s World Cup Intervention Roils the Soccer World, and Beyond**\
 `The U.S.-Belgium soccer game is turning out to be a huge deal even before it kicks off on Monday, thrusting politics into the spotlight.`\
 https://www.nytimes.com/2026/07/06/business/dealbook/trump-world-cup-infantino.html
