@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/07/06/world/middleeast/iran-dissidents-funeral-ange
 `The case against the defendant, Tyler Robinson, has played out since last September.`\
 https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
 
-**Gas Stations Gain When Prices Start to Drop**\
+**Gas Stations Gain When Oil Prices Start to Drop**\
 `President Trump is berating gasoline retailers for keeping prices high. Evidence suggests the business has grown more profitable.`\
 https://www.nytimes.com/2026/07/06/business/economy/gas-station-prices.html
 
