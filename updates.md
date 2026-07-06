@@ -1,5 +1,13 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
+
+**Iran Live Updates: Huge Crowds Pack Tehran for Ayatollah’s Funeral Procession**\
+`Hundreds of thousands of Iranians came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013677/06vid-khamenei-sprinklers-update-14793.html
 
 **Belgium Expresses Shock After FIFA Lifts U.S. Player’s Suspension**\

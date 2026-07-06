@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013677/06vid-khamenei-sprinklers-update-14793.html
 
 **Belgium Expresses Shock After FIFA Lifts U.S. Player’s Suspension**\
@@ -187,10 +191,6 @@ https://static01.nyt.com/slideshow/2026/07/06/world/britains-likely-next-prime-m
 https://www.nytimes.com/2026/07/06/world/americas/world-cup-mexico-city.html
 
 **Iran Live Updates: Huge Crowds Pack Tehran for Ayatollah’s Funeral Procession**\
-`Tens of thousands of Iranians came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
+`Hundreds of thousands of Iranians came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
-
-**A News Site Published a Video of a School Lockdown. Then It Was Gone.**\
-`A New Jersey judge ordered New Brunswick Today to remove the video and barred it from writing about the episode, alarming First Amendment advocates.`\
-https://www.nytimes.com/2026/07/06/nyregion/news-site-video-school-arrest.html
 
