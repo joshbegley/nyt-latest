@@ -1,3 +1,7 @@
+**Fatigue, Tension, Joy: England Pulls a World Cup All-Nighter**\
+`The game against Mexico started at 2 a.m. in Britain. Pubs were allowed to stay open unusually late for fans to share the drama together.`\
+https://www.nytimes.com/2026/07/06/world/europe/england-mexico-world-cup-london.html
+
 **Ships Are Still Getting Out of the Persian Gulf, Easing Oil Prices**\
 `A recovery in oil flows from the Persian Gulf and a pledge by OPEC Plus to pump more crude have put downward pressure on energy prices.`\
 https://www.nytimes.com/2026/07/06/business/hormuz-strait-shipping-oil.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/06/well/mind/vestibular-migraine-symptoms-diagno
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011013518/06vid-khamenei-route-update-43001.html
-
-**Word of the Day: perfidious**\
-`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/06/learning/word-of-the-day-perfidious.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
