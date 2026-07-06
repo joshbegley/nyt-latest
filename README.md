@@ -18,6 +18,10 @@ https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
 `The city of three million people is home to a gold-domed shrine that Shiite Muslims revere as Iran’s most sacred site. The final ceremony will take place there on Thursday.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/mashhad-iran-khamenei-buried.html
 
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011013919/06visualUploader-82435.html
+
 **Riot in Sri Lanka’s Negombo prison leaves at least 23 dead**\
 `The country has faced criticism from human rights activists for the conditions in its prisons, including overcrowding and failing to protect inmates.`\
 https://www.nytimes.com/2026/07/06/world/asia/sri-lanka-prison-riot-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/arts/design/frida-kahlo-tracey-emin-tate-mode
 **With $8 Billion in Venezuelan Oil Money, U.S. Gives $300 Million in Quake Aid**\
 `In 2010, there was a huge U.S. aid effort after a quake in Haiti. Today, U.S. officials say they oversee billions in Venezuelan oil revenue, but aid is less.`\
 https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-aid.html
-
-**Zyn’s Popularity Has Tobacco Companies Racing to Cash In**\
-`The makers of nicotine pouches are building new plants and expanding to meet demand. While influencers claim health benefits, experts warn the products can be highly addictive.`\
-https://www.nytimes.com/2026/07/06/business/zyn-nicotine-pouches-tobacco.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\

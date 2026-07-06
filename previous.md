@@ -1,3 +1,15 @@
+**Key Moments in the Case of Charlie Kirk’s Assassination**\
+`The case against the defendant, Tyler Robinson, has played out since last September.`\
+https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
+
+**Gas Stations Gain When Prices Start to Drop**\
+`President Trump is berating gasoline retailers for keeping prices high. Evidence suggests the business has grown more profitable.`\
+https://www.nytimes.com/2026/07/06/business/economy/gas-station-prices.html
+
+**The Simple Meal I’m Making Before Vacation**\
+`White fish, poached in a punchy tomato sauce, is just the light meal I’m looking for.`\
+https://www.nytimes.com/2026/07/06/dining/the-simple-meal-im-making-before-vacation.html
+
 **El Mundial les dio una ilusión a los mexicanos**\
 `El éxito inicial de la selección mexicana unió y emocionó a todo el país, y les dio a los aficionados un motivo para salir a las calles a celebrar en lugar de protestar.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
@@ -177,14 +189,6 @@ https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-
 **Zyn’s Popularity Has Tobacco Companies Racing to Cash In**\
 `The makers of nicotine pouches are building new plants and expanding to meet demand. While influencers claim health benefits, experts warn the products can be highly addictive.`\
 https://www.nytimes.com/2026/07/06/business/zyn-nicotine-pouches-tobacco.html
-
-**Erdogan-Trump Friendship Can Help NATO, Turkey’s Foreign Minister Says**\
-`In an interview, Turkey’s top diplomat, Hakan Fidan, said the relationship between President Recep Tayyip Erdogan and President Trump could ease NATO tensions.`\
-https://www.nytimes.com/2026/07/06/world/europe/nato-turkey-erdogan-trump-hakan-fidan.html
-
-**June Diane Raphael Lends a Hand on ‘Elle’**\
-`The veteran comedy actress steals scenes in this “Legally Blonde” prequel series, playing the glamorous mother to the title character.`\
-https://www.nytimes.com/2026/07/06/arts/television/june-diane-raphael-elle.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\

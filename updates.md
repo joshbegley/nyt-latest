@@ -1,3 +1,15 @@
+**Key Moments in the Case of Charlie Kirk’s Assassination**\
+`The case against the defendant, Tyler Robinson, has played out since last September.`\
+https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
+
+**Gas Stations Gain When Prices Start to Drop**\
+`President Trump is berating gasoline retailers for keeping prices high. Evidence suggests the business has grown more profitable.`\
+https://www.nytimes.com/2026/07/06/business/economy/gas-station-prices.html
+
+**The Simple Meal I’m Making Before Vacation**\
+`White fish, poached in a punchy tomato sauce, is just the light meal I’m looking for.`\
+https://www.nytimes.com/2026/07/06/dining/the-simple-meal-im-making-before-vacation.html
+
 **El Mundial les dio una ilusión a los mexicanos**\
 `El éxito inicial de la selección mexicana unió y emocionó a todo el país, y les dio a los aficionados un motivo para salir a las calles a celebrar en lugar de protestar.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
