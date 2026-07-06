@@ -1,3 +1,7 @@
+**Intense Storms Cause Flash Flooding Across Northeast**\
+`Over the weekend, sporadic and dangerous storms hit Connecticut, New York, New Jersey and Pennsylvania with torrential rain and winds up to 90 miles per hour. The inclement weather continued on Monday, leading to flash flooding.`\
+https://www.nytimes.com/video/weather/100000011015052/tri-state-rain-flooding-storm.html
+
 **Trump Wanted a U.S. Soccer Star to Play in the World Cup. FIFA Found a Way.**\
 `There was nothing unusual about a call from President Trump or the reversal of Folarin Balogun’s suspension, said the president of FIFA, Gianni Infantino.`\
 https://www.nytimes.com/2026/07/06/world/europe/fifa-trump-infantino-world-cup-red-card.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/07/06/espanol/america-latina/venezuela-terremoto
 **Mapa: un terremoto de magnitud 5,1 sacude Chile**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/07/06/espanol/terremoto-chile.html
-
-**What Are Safe A.I. Use Cases for Toddlers?**\
-`“Use it to enhance, not replace,” advises Dr. Dana Suskind, an early learning specialist who appeared on the “Hard Fork” podcast to share her advice on using A.I. to parent young children.`\
-https://www.nytimes.com/video/podcasts/100000011014461/what-are-safe-ai-use-cases-for-toddlers.html
 
 **Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
