@@ -1,4 +1,4 @@
-**Erika Kirk to Attend Hearing for Man Accused of Killing Her Husband**\
+**Erika Kirk Attends Hearing for Man Accused of Killing Her Husband**\
 `Mrs. Kirk is at the center of conspiracy theories, atop a political organization in transition and facing a personal test.`\
 https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html
 
