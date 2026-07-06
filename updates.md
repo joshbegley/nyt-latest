@@ -1,3 +1,19 @@
+**Trump tiene un nuevo roce con Europa, ahora por el fútbol**\
+`La decisión de la FIFA de revocar la suspensión de un partido de un jugador de la selección de Estados Unidos cayó muy mal en Europa, en un momento en el que la tensión geopolítica ya era alta.`\
+https://www.nytimes.com/es/2026/07/06/espanol/deportes/trump-fifa-balogun-europa-belgica.html
+
+**What Polls Say About the Fight for the Senate**\
+`Two of our political reporters dig into a revealing week of surveys.`\
+https://www.nytimes.com/2026/07/06/us/politics/senate-polls-platner.html
+
+**Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
+`The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee Beach.`\
+https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html
+
+**Live Updates: Calls Mount for Platner to End Campaign After Sexual Assault Accusation**\
+`After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of sexual assault, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
+https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
+
 **Inside Trump’s Ideological Fight With the Smithsonian**\
 `Publicly and behind the scenes, the president continues to try to impose his own views of American history and culture, presenting an ongoing challenge to Lonnie Bunch, the institution’s leader.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-smithsonian-ideological-fight.html
