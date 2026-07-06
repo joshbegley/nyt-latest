@@ -1,6 +1,10 @@
+**George E. Johnson Dies at 99; Broke Market Barriers With Afro Sheen**\
+`Mr. Johnson’s hair-product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
+https://www.nytimes.com/2026/07/06/business/george-e-johnson-dead.html
+
 **New Books About the World Cup**\
 `Three authors chronicle the history of the World Cup and of U.S. men’s soccer.`\
-https://www.nytimes.com/2026/07/06/books/review/the-power-and-the-glory-jonathan-wilson-world-cup-fever-simon-kuper-the-long-game-leander-schaerlaeckens.html
+https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
 
 **Canada Bets on NATO Partners for Its Expanded Submarine Fleet**\
 `In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/world/middleeast/iran-dissidents-funeral-ange
 **Key Moments in the Case of Charlie Kirk’s Assassination**\
 `The case against the defendant, Tyler Robinson, has played out since last September.`\
 https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
-
-**Gas Stations Gain When Oil Prices Start to Drop**\
-`President Trump is berating gasoline retailers for keeping prices high. Evidence suggests the business has grown more profitable.`\
-https://www.nytimes.com/2026/07/06/business/economy/gas-station-prices.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
