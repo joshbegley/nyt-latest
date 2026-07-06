@@ -1,3 +1,7 @@
+**Typhoon Bavi Pounds Guam and Northern Mariana Islands**\
+`There was an island-wide power outage on Saipan, the capital of the Northern Mariana Islands, as the Category 5 storm approached.`\
+https://www.nytimes.com/2026/07/05/weather/super-typhoon-bavi-guam-saipan.html
+
 **México necesitaba esto**\
 `La euforia por el Mundial había eclipsado el pesimismo político.`\
 https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
