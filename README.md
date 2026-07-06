@@ -151,7 +151,7 @@ https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth
 https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
 
 **México necesitaba esto**\
-`La euforia por el Mundial está eclipsando el pesimismo político.`\
+`La euforia por el Mundial había eclipsado el pesimismo político.`\
 https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
 
 **Mexico’s World Cup Moment Is Pure, Fragile Magic**\
