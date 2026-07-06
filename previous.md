@@ -78,13 +78,13 @@ https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-
 `The makers of nicotine pouches are building new plants and expanding to meet demand. While influencers claim health benefits, experts warn the products can be highly addictive.`\
 https://www.nytimes.com/2026/07/06/business/zyn-nicotine-pouches-tobacco.html
 
-**June Diane Raphael Lends a Hand on ‘Elle’**\
-`The veteran comedy actress steals scenes in this “Legally Blonde” prequel series, playing the glamorous mother to the title character.`\
-https://www.nytimes.com/2026/07/06/arts/television/june-diane-raphael-elle.html
-
 **Erdogan-Trump Friendship Can Help NATO, Turkey’s Foreign Minister Says**\
 `In an interview, Turkey’s top diplomat, Hakan Fidan, said the relationship between President Recep Tayyip Erdogan and President Trump could ease NATO tensions.`\
 https://www.nytimes.com/2026/07/06/world/europe/nato-turkey-erdogan-trump-hakan-fidan.html
+
+**June Diane Raphael Lends a Hand on ‘Elle’**\
+`The veteran comedy actress steals scenes in this “Legally Blonde” prequel series, playing the glamorous mother to the title character.`\
+https://www.nytimes.com/2026/07/06/arts/television/june-diane-raphael-elle.html
 
 **Prosecutors to Detail Case Against Man Accused of Killing Charlie Kirk**\
 `A judge will determine whether there is enough evidence to go to trial. Mr. Kirk’s widow and parents are expected to be in court.`\
