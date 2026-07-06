@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011013518/06vid-khamenei-route-update-43001.html
+
+**Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
+`Ballistic missiles were fired into the capital of Ukraine as Russia launched its second major attack in less than a week. At least 12 people were killed, officials said.`\
+https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
+
 **Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
 `Ballistic missiles were fired into the capital of Ukraine, as Russia launched its second major attack in less than a week. At least 12 people were killed, officials said.`\
 https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
