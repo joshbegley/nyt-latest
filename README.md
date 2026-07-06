@@ -138,8 +138,8 @@ https://www.nytimes.com/2026/07/06/world/europe/prince-harry-uk-meghan-king-char
 `In the 1990s, he took 80 of the art institution’s paintings on tour — going against the founder’s wishes — to raise money for a renovation.`\
 https://www.nytimes.com/2026/07/06/arts/design/richard-h-glanton-dead.html
 
-**What We Know About Senator Mitch McConnell’s Condition**\
-`The Kentucky Republican and former Senate majority leader was hospitalized on June 14. Scant details about his condition have emerged since.`\
+**McConnell Has Been Hospitalized for 3 Weeks, and Aides Won’t Say Why**\
+`Senator Mitch McConnell was admitted to the hospital on June 14, and his office has provided few updates about his condition. Here’s what we know.`\
 https://www.nytimes.com/2026/07/06/us/politics/mitch-mcconell-health-hospitalization.html
 
 **El funeral del líder supremo de Irán, el ayatolá Alí Jameneí**\

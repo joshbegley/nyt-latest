@@ -1,3 +1,7 @@
+**The World Cup Revived Seattle’s Downtown. Will the Energy Last?**\
+`The city struggled for years after the pandemic shutdown and the rush to remote work. But downtown has been full of soccer fans for the past month.`\
+https://www.nytimes.com/2026/07/06/us/world-cup-downtown-seattle-revitalization.html
+
 **Intense Storms Cause Flash Flooding Across Northeast**\
 `Over the weekend, sporadic and dangerous storms hit Connecticut, New York, New Jersey and Pennsylvania with torrential rain and winds up to 90 miles per hour. The inclement weather continued on Monday, leading to flash flooding.`\
 https://www.nytimes.com/video/weather/100000011015052/tri-state-rain-flooding-storm.html
