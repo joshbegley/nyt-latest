@@ -1,3 +1,11 @@
+**Trump Cashes In While Others Lose Out**\
+`Readers react to President Trump’s windfall. Also: Mr. Trump’s intervention in the World Cup; Taylor Swift, feminist bride; rich political donors.`\
+https://www.nytimes.com/2026/07/06/opinion/trump-windfall.html
+
+**Trump Administration Live Updates: President Says He Instigated Review of U.S. Player’s World Cup Ban**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/06/us/trump-news
+
 **Michelle Obama and Cardi B Celebrate Black Women on America’s 250th**\
 `The Essence Festival drew attendees from around the country to New Orleans for parties, panels, concerts and unity.`\
 https://www.nytimes.com/2026/07/06/style/essence-festival-michelle-obama-cardi-b-black-women.html
