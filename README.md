@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/07/06/technology/microsoft-xbox-layoffs-ai.html
 `Ayatollah Ali Khamenei’s remains were preserved for months, according to Iran’s government. Some Islamic scholars say it was a political and security calculation.`\
 https://www.nytimes.com/2026/07/06/world/europe/khameneis-burial-was-delayed-breaking-with-islamic-custom.html
 
-**aDe Haití a Venezuela: el cambio de la ayuda internacional de EE. UU.**\
+**De Haití a Venezuela: el cambio de la ayuda internacional de EE. UU.**\
 `La respuesta humanitaria que Estados Unidos envió a Haití tras un terremoto en 2010 ensombrece lo que ha prometido para Venezuela, un país devastado por sus propios temblores.`\
 https://www.nytimes.com/es/2026/07/06/espanol/america-latina/terremoto-venezuela-haiti-ayuda-eeuu.html
 
