@@ -1,3 +1,15 @@
+**Preliminary Hearing for Man Accused of Killing Charlie Kirk Starts in Utah**\
+`Prosecutors on Monday began laying out their case against the man accused of murdering Charlie Kirk. It was the first day of a weeklong preliminary hearing that will determine whether or not there is enough evidence against the accused killer to stand trial.`\
+https://www.nytimes.com/video/us/100000011014130/charlie-kirk-tyler-robinson-hearing-utah.html
+
+**Trump Passports Debut, Delighting Some and Dismaying Others**\
+`The Washington Passport Agency started issuing the limited-release documents with President Trump’s image on Monday, catching a few applicants by surprise.`\
+https://www.nytimes.com/2026/07/06/travel/trump-passports-traveler-reactions.html
+
+**Historians Reject Trump Administration’s Criticism of Smithsonian Museum**\
+`The nation’s largest group of scholars of U.S. history denounced a White House report attacking the Smithsonian’s National Museum of American History.`\
+https://www.nytimes.com/2026/07/06/arts/smithsonian-trump-activism-american-history.html
+
 **Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
 `The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee beach`\
 https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html

@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/07/06/us/politics/supreme-court-texas-age-apps.html
 https://www.nytimes.com/2026/07/06/nyregion/ice-email-lawsuit.html
 
 **Trump Wins the FIFA Appease Prize**\
-`Is it fair that players live in one reality and referees live in another? Is it fair that Donald Trump, uh, trumps them all?`\
+`Is it fair that players live in one reality and referees live in another? Is it fair that President Trump trumps them all?`\
 https://www.nytimes.com/2026/07/06/opinion/trump-fifa-balogun-red-card.html
 
 **Trump Defends Asking FIFA to Review Folarin Balogun’s World Cup Ban**\

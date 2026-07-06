@@ -1,3 +1,15 @@
+**Preliminary Hearing for Man Accused of Killing Charlie Kirk Starts in Utah**\
+`Prosecutors on Monday began laying out their case against the man accused of murdering Charlie Kirk. It was the first day of a weeklong preliminary hearing that will determine whether or not there is enough evidence against the accused killer to stand trial.`\
+https://www.nytimes.com/video/us/100000011014130/charlie-kirk-tyler-robinson-hearing-utah.html
+
+**Trump Passports Debut, Delighting Some and Dismaying Others**\
+`The Washington Passport Agency started issuing the limited-release documents with President Trump’s image on Monday, catching a few applicants by surprise.`\
+https://www.nytimes.com/2026/07/06/travel/trump-passports-traveler-reactions.html
+
+**Historians Reject Trump Administration’s Criticism of Smithsonian Museum**\
+`The nation’s largest group of scholars of U.S. history denounced a White House report attacking the Smithsonian’s National Museum of American History.`\
+https://www.nytimes.com/2026/07/06/arts/smithsonian-trump-activism-american-history.html
+
 **Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
 `The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee beach`\
 https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/embedded/us/100000011014045/06visualUploader-89868
 **Nancy Ward, the Cherokee Leader, Stokes Division Even 250 Years Later**\
 `In 1776, Cherokee leaders looked for ways to navigate a foreboding future. Nanyehi, a.k.a. Nancy Ward, is venerated and reviled for her choice.`\
 https://www.nytimes.com/2026/07/06/travel/nancy-ward-cherokee-tennessee-american-revolution.html
-
-****\
-`Waving flags during the funeral procession.`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000011014029/04int-iran-funeral-photos-56614.html
-
-****\
-`The commemoration filled the streets of Tehran.`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000011014031/04int-iran-funeral-photos-83667.html
-
-**Turkey Hosts NATO Summit While Cracking Down on Critics**\
-`In the weeks leading up to the two-day event, the Turkish authorities blocked websites, jailed scores of people over allegations of terrorism and arrested a prominent comedian.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/turkey-hosts-nato-summit-while-cracking-down-on-critics.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
