@@ -1,3 +1,7 @@
+**Book Review: ‘The Coast of Everything,’ by Guillermo Stitch**\
+`“The Coast of Everything,” by Guillermo Stitch, is structured like a nesting doll, with one story hidden within another.`\
+https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everything.html
+
 **Book Review: ‘Men in Love,’ by Irvine Welsh**\
 `Irvine Welsh brings back his beloved Edinburgh ensemble for his new novel, “Men in Love.”`\
 https://www.nytimes.com/2026/07/06/books/review/irvine-welsh-men-in-love.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/06/opinion/trump-nato-ankara-europe.html
 **Research Universities Are Admitting Fewer Ph.D.s, a Bad Sign for Science**\
 `Some of the nation’s top research universities are shrinking doctoral programs because of uncertain federal funding.`\
 https://www.nytimes.com/2026/07/06/us/research-universities-fewer-phds-science.html
-
-**How Revolutionary Was the American Revolution?**\
-`Many historians have recently seen it as a tame, even disappointing affair. But in the Trump era, the old question of its radicalism is taking on a fresh charge.`\
-https://www.nytimes.com/2026/07/06/arts/american-revolution-250-radical.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
