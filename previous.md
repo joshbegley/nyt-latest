@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth
 `What best represents America?`\
 https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
 
-**México llevaba tiempo esperando esto**\
+**México necesitaba esto**\
 `La euforia por el Mundial está eclipsando el pesimismo político.`\
 https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
 

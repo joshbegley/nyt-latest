@@ -1,3 +1,7 @@
+**México necesitaba esto**\
+`La euforia por el Mundial está eclipsando el pesimismo político.`\
+https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
+
 **Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
 `Ballistic missiles were fired into the capital of Ukraine, as Russia launched its second major attack in less than a week. At least seven people were killed, officials said.`\
 https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
