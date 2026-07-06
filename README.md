@@ -1,3 +1,7 @@
+**Try This Quiz on Literary Quotations About American Life**\
+`Test your knowledge of novels, essays and poems that made insightful observations.`\
+https://www.nytimes.com/interactive/2026/07/06/books/review/american-life-quotes.html
+
 **Microsoft Lays Off Thousands of Xbox Employees, Closes Game Studios**\
 `The layoffs were part of wider cuts at Microsoft, as the company prioritizes spending on artificial intelligence.`\
 https://www.nytimes.com/2026/07/06/technology/microsoft-xbox-layoffs-ai.html
@@ -44,7 +48,7 @@ https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-kh
 
 **As Mourners for Khamenei Descend on Tehran, Many Residents Take Flight**\
 `Some residents have escaped the city and posted photos of their getaways on social media — a reminder that not all Iranians are mourning the death of Ayatollah Khamenei.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/as-mourners-for-khamenei-descend-on-tehran-many-residents-take-flight.html
+https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-residents-exodus.html
 
 ****\
 `(No description)`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/fashion/dressing-up-casual-clothing.html
 **For the Young (and Old), World Cup Memories Last a Lifetime**\
 `A Times reporter reflects on her childhood experience at the World Cup and how attending a game can shape the children of today.`\
 https://www.nytimes.com/2026/07/06/us/world-cup-9-year-olds.html
-
-**Bring Back the SAT, California**\
-`Under the test-blind policy, more students are thrown into classes for which they are unprepared.`\
-https://www.nytimes.com/2026/07/06/opinion/university-california-sat-testing-admissions.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
