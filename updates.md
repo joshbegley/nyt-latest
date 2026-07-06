@@ -1,3 +1,11 @@
+**‘Excited but Shocked’: U.S. Soccer Fans Struggle With Trump’s FIFA Call**\
+`Americans wrestled with definitions of fairness, after the president intervened in the World Cup to reinstate a star player.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-folarin-balogun-fans-reaction.html
+
+**Es posible que no necesites dormir 8 horas**\
+`Dormir bien, o no hacerlo, es una de las preocupaciones de salud más recurrentes, pero la ansiedad por los parámetros del sueño puede mermar la calidad del mismo.`\
+https://www.nytimes.com/es/2026/07/06/espanol/opinion/dormir-8-horas-sueno-salud.html
+
 **Erika Kirk Attends Hearing for Man Accused of Killing Her Husband**\
 `Mrs. Kirk is at the center of conspiracy theories, atop a political organization in transition and facing a personal test.`\
 https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html

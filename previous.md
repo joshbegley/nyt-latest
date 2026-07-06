@@ -1,3 +1,11 @@
+**‘Excited but Shocked’: U.S. Soccer Fans Struggle With Trump’s FIFA Call**\
+`Americans wrestled with definitions of fairness, after the president intervened in the World Cup to reinstate a star player.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-folarin-balogun-fans-reaction.html
+
+**Es posible que no necesites dormir 8 horas**\
+`Dormir bien, o no hacerlo, es una de las preocupaciones de salud más recurrentes, pero la ansiedad por los parámetros del sueño puede mermar la calidad del mismo.`\
+https://www.nytimes.com/es/2026/07/06/espanol/opinion/dormir-8-horas-sueno-salud.html
+
 **Erika Kirk Attends Hearing for Man Accused of Killing Her Husband**\
 `Mrs. Kirk is at the center of conspiracy theories, atop a political organization in transition and facing a personal test.`\
 https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/06/world/middleeast/syrian-torture-verdict-vienn
 **Try This Quiz on Literary Quotations About American Life**\
 `Test your knowledge of novels, essays and poems that made insightful observations.`\
 https://www.nytimes.com/interactive/2026/07/06/books/review/american-life-quotes.html
-
-**Microsoft Lays Off Thousands of Xbox Employees, Closes Game Studios**\
-`The layoffs were part of wider cuts at Microsoft, as the company prioritizes spending on artificial intelligence.`\
-https://www.nytimes.com/2026/07/06/technology/microsoft-xbox-layoffs-ai.html
-
-**Khamenei’s Burial Was Delayed, Breaking With Islamic Custom**\
-`Ayatollah Ali Khamenei’s remains were preserved for months, according to Iran’s government. Some Islamic scholars say it was a political and security calculation.`\
-https://www.nytimes.com/2026/07/06/world/europe/khamenei-delayed-burial-islamic-custom.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
