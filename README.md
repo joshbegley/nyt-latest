@@ -1,3 +1,11 @@
+**Four Dead, Including a Police Officer, in Ohio Shooting**\
+`Law enforcement officers were investigating a break-in and gunfire in Rittman. A suspect, his former partner and her teenage daughter were also dead.`\
+https://www.nytimes.com/2026/07/06/us/shooting-rittman-ohio-officer-dead.html
+
+**Will Prince Harry’s Trip to Britain Repair or Deepen the Royal Rift?**\
+`Harry arrived in London Monday night for a visit that has already been overshadowed by drama and confusion over his plans.`\
+https://www.nytimes.com/2026/07/06/world/europe/prince-harry-uk-meghan-king-charles.html
+
 **Richard H. Glanton, Combative Head of Barnes Foundation, Dies at 79**\
 `In the 1990s, he took 80 of the art institution’s paintings on tour — going against the founder’s wishes — to raise money for a renovation.`\
 https://www.nytimes.com/2026/07/06/arts/design/richard-h-glanton-dead.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000011013919/06visualUploa
 **Riot in Sri Lanka’s Negombo prison leaves at least 23 dead**\
 `The country has faced criticism from human rights activists for the conditions in its prisons, including overcrowding and failing to protect inmates.`\
 https://www.nytimes.com/2026/07/06/world/asia/sri-lanka-prison-riot-dead.html
-
-**Book Review: ‘The Coast of Everything,’ by Guillermo Stitch**\
-`“The Coast of Everything,” by Guillermo Stitch, is structured like a nesting doll, with one story hidden within another.`\
-https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everything.html
-
-**Book Review: ‘Men in Love,’ by Irvine Welsh**\
-`Irvine Welsh brings back his beloved Edinburgh ensemble for his new novel, “Men in Love.”`\
-https://www.nytimes.com/2026/07/06/books/review/irvine-welsh-men-in-love.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
