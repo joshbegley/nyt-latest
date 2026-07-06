@@ -1,3 +1,7 @@
+**El funeral del líder supremo de Irán, el ayatolá Alí Jameneí**\
+`Los nuevos líderes de Irán están rindiendo homenaje al ayatolá Jameneí, que murió el primer día de la guerra de EE. UU. e Israel contra el país.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/iran-funeral-ayatollah-ali-jamenei.html
+
 **‘Excited but Shocked’: U.S. Soccer Fans Struggle With Trump’s FIFA Call**\
 `Americans wrestled with definitions of fairness, after the president intervened in the World Cup to reinstate a star player.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-folarin-balogun-fans-reaction.html

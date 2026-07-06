@@ -1,3 +1,7 @@
+**El funeral del líder supremo de Irán, el ayatolá Alí Jameneí**\
+`Los nuevos líderes de Irán están rindiendo homenaje al ayatolá Jameneí, que murió el primer día de la guerra de EE. UU. e Israel contra el país.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/iran-funeral-ayatollah-ali-jamenei.html
+
 **‘Excited but Shocked’: U.S. Soccer Fans Struggle With Trump’s FIFA Call**\
 `Americans wrestled with definitions of fairness, after the president intervened in the World Cup to reinstate a star player.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-folarin-balogun-fans-reaction.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/06/world/europe/france-wildfires-evacuation.html
 **Former Syrian Officials Found Guilty in Torture of Pro-Democracy Protesters**\
 `The case against the two men, who have been living in Austria since 2015, was one of the first that the country has brought under the principle of universal jurisdiction.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/syrian-torture-verdict-vienna.html
-
-**Try This Quiz on Literary Quotations About American Life**\
-`Test your knowledge of novels, essays and poems that made insightful observations.`\
-https://www.nytimes.com/interactive/2026/07/06/books/review/american-life-quotes.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
