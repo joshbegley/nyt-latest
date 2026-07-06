@@ -1,3 +1,19 @@
+**Four Dead, Including a Police Officer, in Ohio Shooting**\
+`Law enforcement officers were investigating a break-in and gunfire in Rittman. A suspect, his former partner and her teenage daughter were also dead.`\
+https://www.nytimes.com/2026/07/06/us/shooting-rittman-ohio-officer-dead.html
+
+**Will Prince Harry’s Trip to Britain Repair or Deepen the Royal Rift?**\
+`Harry arrived in London Monday night for a visit that has already been overshadowed by drama and confusion over his plans.`\
+https://www.nytimes.com/2026/07/06/world/europe/prince-harry-uk-meghan-king-charles.html
+
+**Richard H. Glanton, Combative Head of Barnes Foundation, Dies at 79**\
+`In the 1990s, he took 80 of the art institution’s paintings on tour — going against the founder’s wishes — to raise money for a renovation.`\
+https://www.nytimes.com/2026/07/06/arts/design/richard-h-glanton-dead.html
+
+**What We Know About Senator Mitch McConnell’s Condition**\
+`The Kentucky Republican and former Senate majority leader was hospitalized on June 14. Scant details about his condition have emerged since.`\
+https://www.nytimes.com/2026/07/06/us/politics/mitch-mcconell-health-hospitalization.html
+
 **El funeral del líder supremo de Irán, el ayatolá Alí Jameneí**\
 `Los nuevos líderes de Irán están rindiendo homenaje al ayatolá Jameneí, que murió el primer día de la guerra de EE. UU. e Israel contra el país.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/iran-funeral-ayatollah-ali-jamenei.html
@@ -174,25 +190,9 @@ https://www.nytimes.com/video/embedded/us/politics/100000011013919/06visualUploa
 `The country has faced criticism from human rights activists for the conditions in its prisons, including overcrowding and failing to protect inmates.`\
 https://www.nytimes.com/2026/07/06/world/asia/sri-lanka-prison-riot-dead.html
 
-**Book Review: ‘The Coast of Everything,’ by Guillermo Stitch**\
-`“The Coast of Everything,” by Guillermo Stitch, is structured like a nesting doll, with one story hidden within another.`\
-https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everything.html
-
-**Book Review: ‘Men in Love,’ by Irvine Welsh**\
-`Irvine Welsh brings back his beloved Edinburgh ensemble for his new novel, “Men in Love.”`\
-https://www.nytimes.com/2026/07/06/books/review/irvine-welsh-men-in-love.html
-
-**Who Was Charlie Kirk?**\
-`Mr. Kirk, an influential right-wing activist, has become a modern-day martyr for conservative evangelical Christians.`\
-https://www.nytimes.com/2026/07/06/us/who-was-charlie-kirk.html
-
-**Wildfires Force Evacuation of Thousands in Southwest France**\
-`The blaze in the Pyrenees, a region bordering Spain, has scorched more than 11,000 acres so far.`\
-https://www.nytimes.com/2026/07/06/world/europe/france-wildfires-evacuation.html
-
-**Former Syrian Officials Found Guilty in Torture of Pro-Democracy Protesters**\
-`The case against the two men, who have been living in Austria since 2015, was one of the first that the country has brought under the principle of universal jurisdiction.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/syrian-torture-verdict-vienna.html
+**Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
+`Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
+https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\

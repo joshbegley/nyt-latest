@@ -1,3 +1,23 @@
+**Four Dead, Including a Police Officer, in Ohio Shooting**\
+`Law enforcement officers were investigating a break-in and gunfire in Rittman. A suspect, his former partner and her teenage daughter were also dead.`\
+https://www.nytimes.com/2026/07/06/us/shooting-rittman-ohio-officer-dead.html
+
+**Will Prince Harry’s Trip to Britain Repair or Deepen the Royal Rift?**\
+`Harry arrived in London Monday night for a visit that has already been overshadowed by drama and confusion over his plans.`\
+https://www.nytimes.com/2026/07/06/world/europe/prince-harry-uk-meghan-king-charles.html
+
+**Richard H. Glanton, Combative Head of Barnes Foundation, Dies at 79**\
+`In the 1990s, he took 80 of the art institution’s paintings on tour — going against the founder’s wishes — to raise money for a renovation.`\
+https://www.nytimes.com/2026/07/06/arts/design/richard-h-glanton-dead.html
+
+**What We Know About Senator Mitch McConnell’s Condition**\
+`The Kentucky Republican and former Senate majority leader was hospitalized on June 14. Scant details about his condition have emerged since.`\
+https://www.nytimes.com/2026/07/06/us/politics/mitch-mcconell-health-hospitalization.html
+
+**Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
+`Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
+https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
+
 **El funeral del líder supremo de Irán, el ayatolá Alí Jameneí**\
 `Los nuevos líderes de Irán están rindiendo homenaje al ayatolá Jameneí, que murió el primer día de la guerra de EE. UU. e Israel contra el país.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/iran-funeral-ayatollah-ali-jamenei.html
