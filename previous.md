@@ -1,3 +1,11 @@
+**Dating Your Co-Workers Is Fun. It’s Sexy. Go Ahead, Do It.**\
+`Meeting a partner at work used to be common. Now? Not so much. But office romance can be sexy — plus, it’s got a better success rate than the apps.`\
+https://www.nytimes.com/2026/07/06/opinion/date-coworkers-office-romance.html
+
+**Extreme Dizziness, No Headache: The Migraine Many Doctors Miss**\
+`One expert calls it “the most common disease you’ve never heard of.”`\
+https://www.nytimes.com/2026/07/06/well/mind/vestibular-migraine-symptoms-diagnosis.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011013518/06vid-khamenei-route-update-43001.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/05/dining/this-olive-oil-zucchini-bread-is-just-
 **What Does It Mean to Love America?**\
 `America celebrates its 250th birthday this year. The Opinion columnist Ezra Klein asks the civil rights lawyer Bryan Stevenson what he thinks American greatness is really about.`\
 https://www.nytimes.com/video/universal/100000011012535/what-does-it-mean-to-love-america.html
-
-**Bill Archer, Influential Texas Congressman, Is Dead at 98**\
-`Serving for 30 years, he eventually wrote virtually all tax laws considered by the House and was a major influence on budget bills as Ways and Means chairman.`\
-https://www.nytimes.com/2026/07/05/us/politics/bill-archer-dead.html
-
-**Andy Baraghani’s Chicken Salad Is Full of Crunch**\
-`And, since it swaps cashew butter for the mayo, it can also stand the summer heat.`\
-https://www.nytimes.com/2026/07/05/dining/andy-baraghanis-chicken-salad-is-full-of-crunch.html
 
