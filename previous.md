@@ -1,3 +1,11 @@
+**First American Woman Rows Solo From California to Hawaii**\
+`Kelsey Pfendler, a Grand Canyon river-rafting guide, completed the journey of more than 2,300 miles in a rowboat named Lily in just under 44 days, according to data from the Ocean Rowing Society International.`\
+https://www.nytimes.com/2026/07/05/us/rowing-record-pacific-kelsey-pfendler.html
+
+**New York Braces for Heavy Rain: Latest Forecast**\
+`Emergency officials warned that flash flooding was possible on Monday as powerful storms were expected to move through the region.`\
+https://www.nytimes.com/2026/07/05/weather/new-york-city-rain-forecast.html
+
 **NYT Crossword Answers for July 6, 2026**\
 `Alex Eaton-Salners proves himself a key figure in the crossword scene.`\
 https://www.nytimes.com/2026/07/05/crosswords/daily-puzzle-2026-07-06.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/05/us/america-250-celebrations.html
 **Taylor Swift’s Wedding Became a Marketing Moment for Brands Big and Small**\
 `Some businesses flocked to social media using A.I.-generated content, while others deployed timely digital ads designed to capitalize on the frenzy surrounding this major celebrity event.`\
 https://www.nytimes.com/2026/07/05/style/taylor-swift-wedding-marketing-brands-ai.html
-
-**What We Saw at Ayatollah Khamenei’s Funeral**\
-`Our Middle East correspondent Abdi Latif Dahir attended the first day of funeral ceremonies for Ayatollah Ali Khamenei, the former supreme leader of Iran who was killed by U.S. and Israeli air strikes in February.`\
-https://www.nytimes.com/video/world/middleeast/100000011011151/what-we-saw-at-ayatollah-khameneis-funeral.html
-
-**Years of Warnings About Public Housing Preceded Venezuela’s Earthquakes**\
-`Residents, construction experts and seismologists said for years that Venezuela’s public housing would be vulnerable in a natural disaster.`\
-https://www.nytimes.com/2026/07/05/world/americas/venezuela-earthquake-la-guaira-building-collapse-government.html
 
