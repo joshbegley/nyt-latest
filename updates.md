@@ -1,3 +1,11 @@
+**The World Cup Gave Mexicans a Fantasy They Won’t Soon Forget**\
+`The Mexican team’s early success united and electrified the nation, giving fans a reason to fill the streets in celebration instead of protest.`\
+https://www.nytimes.com/2026/07/06/world/americas/world-cup-mexico-city.html
+
+**Iran Live Updates: Crowds Gather in Tehran for Ayatollah’s Funeral Procession**\
+`Tens of thousands of Iranians have viewed the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
+
 **A News Site Published a Video of a School Lockdown. Then It Was Gone.**\
 `A New Jersey judge ordered New Brunswick Today to remove the video and barred it from writing about the episode, alarming First Amendment advocates.`\
 https://www.nytimes.com/2026/07/06/nyregion/news-site-video-school-arrest.html
