@@ -1,3 +1,7 @@
+**Trump’s World Cup Intervention Roils the Soccer World, and Beyond**\
+`The U.S.-Belgium soccer game is turning out to be a huge deal even before it kicks off on Monday, thrusting politics into the spotlight.`\
+https://www.nytimes.com/2026/07/06/business/dealbook/trump-world-cup-infantino.html
+
 **Fatigue, Tension, Joy: England Pulls a World Cup All-Nighter**\
 `The game against Mexico started at 2 a.m. in Britain. Pubs were allowed to stay open unusually late for fans to share the drama together.`\
 https://www.nytimes.com/2026/07/06/world/europe/england-mexico-world-cup-london.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/2026/07/06/us/emil-bove-judge-trump.html
 **Dating Your Co-Workers Is Fun. It’s Sexy. Go Ahead, Do It.**\
 `Meeting a partner at work used to be common. Now? Not so much. But office romance can be sexy — plus, it’s got a better success rate than the apps.`\
 https://www.nytimes.com/2026/07/06/opinion/date-coworkers-office-romance.html
-
-**Extreme Dizziness, No Headache: The Migraine Many Doctors Miss**\
-`One expert calls it “the most common disease you’ve never heard of.”`\
-https://www.nytimes.com/2026/07/06/well/mind/vestibular-migraine-symptoms-diagnosis.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011013518/06vid-khamenei-route-update-43001.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\

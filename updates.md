@@ -1,3 +1,7 @@
+**Trump’s World Cup Intervention Roils the Soccer World, and Beyond**\
+`The U.S.-Belgium soccer game is turning out to be a huge deal even before it kicks off on Monday, thrusting politics into the spotlight.`\
+https://www.nytimes.com/2026/07/06/business/dealbook/trump-world-cup-infantino.html
+
 **Fatigue, Tension, Joy: England Pulls a World Cup All-Nighter**\
 `The game against Mexico started at 2 a.m. in Britain. Pubs were allowed to stay open unusually late for fans to share the drama together.`\
 https://www.nytimes.com/2026/07/06/world/europe/england-mexico-world-cup-london.html
