@@ -1,3 +1,7 @@
+**Trump Expected to Tell Turkey He Is Ready to Restore Access to F-35 Jets**\
+`The president, who is headed to a NATO summit in Ankara this week, had imposed the ban himself amid concerns that giving Turkey the jets could allow Russia to learn about their stealth technology.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-turkey-f35.html
+
 **Platner Faces Growing Democratic Calls to Drop Out**\
 `Even supporters like Representative Ro Khanna of California called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
 https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/podcasts/100000011014461/what-are-safe-ai-use-case
 **Understanding the World Cup in 3 Books**\
 `Miguel Salazar of the New York Times Books Review recommends three titles that can help you understand the history of the World Cup.`\
 https://www.nytimes.com/video/books/100000010953525/understanding-the-world-cup-in-3-books.html
-
-**Bill Frist Wants to Take Politics Out of Climate Change**\
-`Bill Frist, a surgeon who also served as Senate majority leader, has emerged as an outspoken advocate for environmental health. “A healthier planet means healthier people,” he said.`\
-https://www.nytimes.com/2026/07/06/climate/bill-frist-climate-change-republican-politics.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

@@ -1,3 +1,7 @@
+**Trump Expected to Tell Turkey He Is Ready to Restore Access to F-35 Jets**\
+`The president, who is headed to a NATO summit in Ankara this week, had imposed the ban himself amid concerns that giving Turkey the jets could allow Russia to learn about their stealth technology.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-turkey-f35.html
+
 **Platner Faces Growing Democratic Calls to Drop Out**\
 `Even supporters like Representative Ro Khanna of California called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
 https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
