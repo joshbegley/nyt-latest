@@ -1,3 +1,11 @@
+**Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
+`The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee beach`\
+https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html
+
+**Why Some Fans Want Better U.S. World Cup Chants**\
+`Critics say cheers like “U-S-A!” and “I believe we can win” are unoriginal. We asked experts on soccer chants to explain why.`\
+https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
+
 **NATO Needs Turkey**\
 `The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
 https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
@@ -10,8 +18,8 @@ https://www.nytimes.com/es/2026/07/06/espanol/estilos-de-vida/boda-taylor-swift-
 `A White House correspondent and a sports reporter confirmed that President Trump had called Gianni Infantino of FIFA to review the suspension of a top U.S. goal scorer.`\
 https://www.nytimes.com/2026/07/06/insider/trump-fifa-world-cup-balogun.html
 
-**George E. Johnson Dies at 99; Broke Market Barriers With Afro Sheen**\
-`Mr. Johnson’s hair-product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
+**George E. Johnson, Who Built a Black Hair-Care Empire, Dies at 99**\
+`Mr. Johnson’s hair product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
 https://www.nytimes.com/2026/07/06/business/george-e-johnson-dead.html
 
 **Want to Truly Understand the World Cup? Check Out These Books.**\
@@ -186,15 +194,7 @@ https://www.nytimes.com/video/embedded/world/middleeast/100000011014031/04int-ir
 `In the weeks leading up to the two-day event, the Turkish authorities blocked websites, jailed scores of people over allegations of terrorism and arrested a prominent comedian.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/turkey-hosts-nato-summit-while-cracking-down-on-critics.html
 
-**A Timeline of Trump’s Pressure Campaign Against the Smithsonian**\
-`Since returning to the White House in 2025, President Trump has repeatedly denounced the Smithsonian’s museums. The latest salvo came on the nation’s 250th birthday.`\
-https://www.nytimes.com/2026/07/06/arts/design/president-trump-smithsonian-timeline.html
-
-**Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
+**Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
 https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
-
-**Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
-`Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
-https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
 

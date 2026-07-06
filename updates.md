@@ -1,3 +1,19 @@
+**Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
+`The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee beach`\
+https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html
+
+**Why Some Fans Want Better U.S. World Cup Chants**\
+`Critics say cheers like “U-S-A!” and “I believe we can win” are unoriginal. We asked experts on soccer chants to explain why.`\
+https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
+
+**George E. Johnson, Who Built a Black Hair-Care Empire, Dies at 99**\
+`Mr. Johnson’s hair product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
+https://www.nytimes.com/2026/07/06/business/george-e-johnson-dead.html
+
+**Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
+`Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
+https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
+
 **NATO Needs Turkey**\
 `The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
 https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
