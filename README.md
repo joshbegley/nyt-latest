@@ -1,3 +1,7 @@
+**Riot in Sri Lanka’s Negombo prison leaves at least 23 dead**\
+`The country has faced criticism from human rights activists for the conditions in its prisons, including overcrowding and failing to protect inmates.`\
+https://www.nytimes.com/2026/07/06/world/asia/sri-lanka-prison-riot-dead.html
+
 **Book Review: ‘The Coast of Everything,’ by Guillermo Stitch**\
 `“The Coast of Everything,” by Guillermo Stitch, is structured like a nesting doll, with one story hidden within another.`\
 https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everything.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/06/arts/dance/contemporary-chinese-choreographer
 **If Europe Wants to Save NATO, It’s Doing All the Wrong Things**\
 `It’s time for the rest of the alliance to get its act together.`\
 https://www.nytimes.com/2026/07/06/opinion/trump-nato-ankara-europe.html
-
-**Research Universities Are Admitting Fewer Ph.D.s, a Bad Sign for Science**\
-`Some of the nation’s top research universities are shrinking doctoral programs because of uncertain federal funding.`\
-https://www.nytimes.com/2026/07/06/us/research-universities-fewer-phds-science.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\

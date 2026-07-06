@@ -1,3 +1,15 @@
+**Book Review: ‘The Coast of Everything,’ by Guillermo Stitch**\
+`“The Coast of Everything,” by Guillermo Stitch, is structured like a nesting doll, with one story hidden within another.`\
+https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everything.html
+
+**Book Review: ‘Men in Love,’ by Irvine Welsh**\
+`Irvine Welsh brings back his beloved Edinburgh ensemble for his new novel, “Men in Love.”`\
+https://www.nytimes.com/2026/07/06/books/review/irvine-welsh-men-in-love.html
+
+**Live Updates: Prosecutors to Detail Case Against Man Accused of Assassinating Charlie Kirk**\
+`A Utah judge will determine whether there is enough evidence to send the man, Tyler Robinson, to trial. Mr. Kirk’s widow and parents are expected to attended the hearing.`\
+https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
+
 **Wildfires Force Evacuation of Thousands in Southwest France**\
 `The blaze in the Pyrenees, a region bordering Spain, has scorched more than 11,000 acres so far.`\
 https://www.nytimes.com/2026/07/06/world/europe/france-wildfires-evacuation.html
