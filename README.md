@@ -1,3 +1,11 @@
+**Trump tiene un nuevo roce con Europa, ahora por el fútbol**\
+`La decisión de la FIFA de revocar la suspensión de un partido de un jugador de la selección de Estados Unidos cayó muy mal en Europa, en un momento en el que la tensión geopolítica ya era alta.`\
+https://www.nytimes.com/es/2026/07/06/espanol/deportes/trump-fifa-balogun-europa-belgica.html
+
+**What Polls Say About the Fight for the Senate**\
+`Two of our political reporters dig into a revealing week of surveys.`\
+https://www.nytimes.com/2026/07/06/us/politics/senate-polls-platner.html
+
 **Inside Trump’s Ideological Fight With the Smithsonian**\
 `Publicly and behind the scenes, the president continues to try to impose his own views of American history and culture, presenting an ongoing challenge to Lonnie Bunch, the institution’s leader.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-smithsonian-ideological-fight.html
@@ -43,7 +51,7 @@ https://www.nytimes.com/2026/07/06/travel/trump-passports-traveler-reactions.htm
 https://www.nytimes.com/2026/07/06/arts/smithsonian-trump-activism-american-history.html
 
 **Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
-`The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee beach`\
+`The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee Beach.`\
 https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html
 
 **Why Some Fans Want Better U.S. World Cup Chants**\
@@ -54,8 +62,8 @@ https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
 `The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
 https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
 
-**Live Updates: Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
-`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
+**Live Updates: Calls Mount for Platner to End Campaign After Sexual Assault Accusation**\
+`After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of sexual assault, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
 https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
 
 **¿Qué sabemos de la boda de Taylor Swift y Travis Kelce?**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/trump-fifa-tarjeta-
 **Inside Khamenei’s Tehran Procession**\
 `Our reporters visited Tehran under the watchful eye of the Iranian government to witness hundreds of thousands of people line the streets for the procession honoring the country’s slain supreme leader, Ayatollah Ali Khamenei.`\
 https://www.nytimes.com/video/world/middleeast/100000011013627/iran-supreme-leader-khamenei-funeral.html
-
-**President Rings Stock Market Opening Bell to Celebrate Trump Accounts**\
-`The government-funded savings accounts for children became available on Saturday.`\
-https://www.nytimes.com/2026/07/06/us/politics/trump-accounts-white-house-opening-bell-ceremony.html
-
-**Trump Cashes In While Others Lose Out**\
-`Readers react to President Trump’s windfall. Also: Mr. Trump’s intervention in the World Cup; Taylor Swift, feminist bride; rich political donors.`\
-https://www.nytimes.com/2026/07/06/opinion/trump-windfall.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
