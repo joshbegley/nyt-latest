@@ -1,3 +1,15 @@
+**El Mundial les dio una ilusión a los mexicanos**\
+`El éxito inicial de la selección mexicana unió y emocionó a todo el país, y les dio a los aficionados un motivo para salir a las calles a celebrar en lugar de protestar.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
+
+**Iran to Bury Ayatollah Ali Khamenei in Holy City of Mashhad**\
+`The city of three million people is home to a gold-domed shrine that Shiite Muslims revere as Iran’s most sacred site. The final ceremony will take place there on Thursday.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/mashhad-iran-khamenei-buried.html
+
+**Khamenei’s Burial Was Delayed, Breaking With Islamic Custom**\
+`Ayatollah Ali Khamenei’s remains were preserved for months, according to Iran’s government. Some Islamic scholars say it was a political and security calculation.`\
+https://www.nytimes.com/2026/07/06/world/europe/khamenei-delayed-burial-islamic-custom.html
+
 **Riot in Sri Lanka’s Negombo prison leaves at least 23 dead**\
 `The country has faced criticism from human rights activists for the conditions in its prisons, including overcrowding and failing to protect inmates.`\
 https://www.nytimes.com/2026/07/06/world/asia/sri-lanka-prison-riot-dead.html
