@@ -1,3 +1,11 @@
+**Bill Frist Wants to Take Politics Out of Climate Change**\
+`Bill Frist, a surgeon who also served as Senate majority leader, has emerged as an outspoken advocate for environmental health. “A healthier planet means healthier people,” he said.`\
+https://www.nytimes.com/2026/07/06/climate/bill-frist-climate-change-republican-politics.html
+
+**President Rings Stock Market Opening Bell to Celebrate Trump Accounts**\
+`The government-funded savings accounts for children became available on Saturday.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-accounts-white-house-opening-bell-ceremony.html
+
 **Wildfire Forces Thousands to Evacuate in Southwest France**\
 `A blaze in the French Pyrenees region has burned more than 11,000 acres as of Monday morning, French authorities said.`\
 https://www.nytimes.com/video/world/europe/100000011013746/france-wildfires-pyrenees-evacuations.html
