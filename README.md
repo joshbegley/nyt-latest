@@ -1,3 +1,7 @@
+**How Trump Put Himself in the Middle of America’s 250th**\
+`The president placed his image and initiatives front and center, blurring the line, critics said, between loyalty to nation and loyalty to him.`\
+https://www.nytimes.com/2026/07/05/us/politics/trump-america-250th-anniversary.html
+
 **First American Woman Rows Solo From California to Hawaii**\
 `Kelsey Pfendler, a Grand Canyon river-rafting guide, completed the journey of more than 2,300 miles in a rowboat named Lily in just under 44 days, according to data from the Ocean Rowing Society International.`\
 https://www.nytimes.com/2026/07/05/us/rowing-record-pacific-kelsey-pfendler.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/05/espanol/consejos-pareja.html
 **America Marks Its 250th Birthday With Storms, Sweat and Fire**\
 `Independence Day celebrations were canceled nationwide and the Brooklyn Bridge briefly caught fire. Yet Americans still found countless ways to celebrate.`\
 https://www.nytimes.com/2026/07/05/us/america-250-celebrations.html
-
-**Taylor Swift’s Wedding Became a Marketing Moment for Brands Big and Small**\
-`Some businesses flocked to social media using A.I.-generated content, while others deployed timely digital ads designed to capitalize on the frenzy surrounding this major celebrity event.`\
-https://www.nytimes.com/2026/07/05/style/taylor-swift-wedding-marketing-brands-ai.html
 
