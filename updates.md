@@ -1,3 +1,7 @@
+**Riot in Sri Lanka’s Negombo prison leaves at least 23 dead**\
+`The country has faced criticism from human rights activists for the conditions in its prisons, including overcrowding and failing to protect inmates.`\
+https://www.nytimes.com/2026/07/06/world/asia/sri-lanka-prison-riot-dead.html
+
 **Book Review: ‘The Coast of Everything,’ by Guillermo Stitch**\
 `“The Coast of Everything,” by Guillermo Stitch, is structured like a nesting doll, with one story hidden within another.`\
 https://www.nytimes.com/2026/07/06/books/review/guillermo-stitch-coast-of-everything.html
