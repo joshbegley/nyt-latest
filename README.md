@@ -1,3 +1,7 @@
+**Typhoon Bavi Pounds Guam and Northern Mariana Islands**\
+`There was an island-wide power outage on Saipan, the capital of the Northern Mariana Islands, as the Category 5 storm approached.`\
+https://www.nytimes.com/2026/07/05/weather/super-typhoon-bavi-guam-saipan.html
+
 **Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
 `Ballistic missiles were fired into the capital of Ukraine, as Russia launched its second major attack in less than a week. At least seven people were killed, officials said.`\
 https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-supreme-leader.
 **Far From Kyiv and Moscow, Soldiers Stalk Ruins and Evade Drones on the Front**\
 `Ukraine’s military has denied a Kremlin claim to have taken a city in the eastern Donetsk region, saying its troops are holding out against infiltrating Russians.`\
 https://www.nytimes.com/2026/07/05/world/europe/ukraine-russia-donetsk-front.html
-
-**Los venezolanos advirtieron que las viviendas públicas eran vulnerables a sismos**\
-`La devastación ha suscitado dudas sobre el papel del gobierno en la pérdida de tantas vidas en estructuras sobre las que los expertos en construcción habían advertido que no podrían resistir un terremoto de gran magnitud.`\
-https://www.nytimes.com/es/2026/07/05/espanol/america-latina/venezuela-terremotos-mision-vivienda.html
 
