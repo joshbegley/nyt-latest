@@ -1,3 +1,7 @@
+**Trump Defends Asking FIFA to Review U.S. Soccer Star’s Ban**\
+`The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
+
 **Food and Beverages Have Gone Bananas**\
 `America’s most-eaten fresh fruit has hit cafe menus, snack-aisle shelves and drink fridges with unexpected force. Is it the next pumpkin spice?`\
 https://www.nytimes.com/2026/07/06/dining/food-drink-banana-flavor.html

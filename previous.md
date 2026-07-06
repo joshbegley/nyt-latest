@@ -1,3 +1,7 @@
+**Trump Defends Asking FIFA to Review U.S. Soccer Star’s Ban**\
+`The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
+
 **Food and Beverages Have Gone Bananas**\
 `America’s most-eaten fresh fruit has hit cafe menus, snack-aisle shelves and drink fridges with unexpected force. Is it the next pumpkin spice?`\
 https://www.nytimes.com/2026/07/06/dining/food-drink-banana-flavor.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/world/americas/venezuela-earthquake-missing.h
 **Trump’s World Cup Intervention Roils the Soccer World, and Beyond**\
 `The U.S.-Belgium soccer game is turning out to be a huge deal even before it kicks off on Monday, thrusting politics into the spotlight.`\
 https://www.nytimes.com/2026/07/06/business/dealbook/trump-world-cup-infantino.html
-
-**Fatigue, Tension, Joy: England Pulls a World Cup All-Nighter**\
-`The game against Mexico started at 2 a.m. in Britain. Pubs were allowed to stay open unusually late for fans to share the drama together.`\
-https://www.nytimes.com/2026/07/06/world/europe/england-mexico-world-cup-london.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
