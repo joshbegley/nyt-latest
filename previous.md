@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
 `In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
 https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
 
-**Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
+**Draft**\
 `Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
 https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
 

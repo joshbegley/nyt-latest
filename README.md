@@ -1,3 +1,7 @@
+**Timeline: How FIFA’s Reversal on Balogun Unfolded**\
+`Folarin Balogun’s red-card suspension was overturned by FIFA. President Trump said he asked for the review that ultimately led to the reversal.`\
+https://www.nytimes.com/interactive/2026/07/06/us/trump-world-cup-balogun-timeline.html
+
 **Judge Appointed Last Year Is Overseeing Hearing in Killing of Charlie Kirk**\
 `Judge Tony Graf previously served as a prosecutor in Utah, including in the county where Mr. Kirk was shot and killed last year.`\
 https://www.nytimes.com/2026/07/06/us/who-is-judge-tony-graf.html
@@ -30,6 +34,10 @@ https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
 `The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
 https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
 
+**Live Updates: Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
+https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
+
 **¿Qué sabemos de la boda de Taylor Swift y Travis Kelce?**\
 `Desde la decoración inspirada en un jardín hasta las albóndigas (de la cena de ensayo), poco a poco se van conociendo detalles cuidadosamente planificados de este evento ultrasecreto.`\
 https://www.nytimes.com/es/2026/07/06/espanol/estilos-de-vida/boda-taylor-swift-travis-kelce.html
@@ -50,7 +58,7 @@ https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
 `In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
 https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
 
-**Draft**\
+**Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
 `Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
 https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/es/2026/07/06/espanol/mundo/cisma-catolico-fraternidad-p
 **Extreme Heat Hits Europe for the Third Time This Year**\
 `It is continent’s third spell of scorching weather since May. Europe is the world’s fastest-warming continent.`\
 https://www.nytimes.com/2026/07/06/weather/europe-heat-wave-latest-wildfire.html
-
-**Inside Bath & Body Works’ Fragrance Factory**\
-`“Japanese Cherry Blossom” has brought in $1.5 billion over the last 20 years. Can the company’s close-knit network of suppliers come up with the next big thing and improve sales?`\
-https://www.nytimes.com/2026/07/06/business/bath-body-works-fragrance-factory.html
-
-**China prueba un misil de largo alcance en el Pacífico y enfurece a sus vecinos**\
-`El lanzamiento se produjo justo cuando Australia cerraba acuerdos de defensa con socios insulares del Pacífico. Varios países expresaron su preocupación por la prueba.`\
-https://www.nytimes.com/es/2026/07/06/espanol/mundo/china-misil-largo-alcance.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

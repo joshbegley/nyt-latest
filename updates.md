@@ -1,3 +1,7 @@
+**Draft**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
+https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
+
 **Judge Appointed Last Year Is Overseeing Hearing in Killing of Charlie Kirk**\
 `Judge Tony Graf previously served as a prosecutor in Utah, including in the county where Mr. Kirk was shot and killed last year.`\
 https://www.nytimes.com/2026/07/06/us/who-is-judge-tony-graf.html
