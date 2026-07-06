@@ -1,3 +1,11 @@
+**Word of the Day: perfidious**\
+`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/06/learning/word-of-the-day-perfidious.html
+
+**Britain’s Likely Next Prime Minister Made His Name in Manchester. Here’s How.**\
+`Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
+https://static01.nyt.com/slideshow/2026/07/06/world/britains-likely-next-prime-minister-made-his-name-in-manchester-heres-how.html
+
 **The World Cup Gave Mexicans a Fantasy They Won’t Soon Forget**\
 `The Mexican team’s early success united and electrified the nation, giving fans a reason to fill the streets in celebration instead of protest.`\
 https://www.nytimes.com/2026/07/06/world/americas/world-cup-mexico-city.html
