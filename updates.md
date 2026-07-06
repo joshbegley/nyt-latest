@@ -1,3 +1,7 @@
+**Understanding the World Cup in 3 Books**\
+`Miguel Salazar of the New York Times Books Review recommends three titles that can help you understand the history of the World Cup.`\
+https://www.nytimes.com/video/books/100000010953525/understanding-the-world-cup-in-3-books.html
+
 **Bill Frist Wants to Take Politics Out of Climate Change**\
 `Bill Frist, a surgeon who also served as Senate majority leader, has emerged as an outspoken advocate for environmental health. “A healthier planet means healthier people,” he said.`\
 https://www.nytimes.com/2026/07/06/climate/bill-frist-climate-change-republican-politics.html
