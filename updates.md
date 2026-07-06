@@ -1,3 +1,31 @@
+****\
+`Waving flags during the funeral procession.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011014029/04int-iran-funeral-photos-56614.html
+
+****\
+`The commemoration filled the streets of Tehran.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011014031/04int-iran-funeral-photos-83667.html
+
+**Turkey Hosts NATO Summit While Cracking Down on Critics**\
+`In the weeks leading up to the two-day event, the Turkish authorities blocked websites, jailed scores of people over allegations of terrorism and arrested a prominent comedian.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/turkey-hosts-nato-summit-while-cracking-down-on-critics.html
+
+**A Timeline of Trump’s Pressure Campaign Against the Smithsonian**\
+`Since returning to the White House in 2025, President Trump has repeatedly denounced the Smithsonian’s museums. The latest salvo came on the nation’s 250th birthday.`\
+https://www.nytimes.com/2026/07/06/arts/design/president-trump-smithsonian-timeline.html
+
+**Gas Stations Gain When Oil Prices Start to Drop**\
+`President Trump is berating gasoline retailers for keeping prices high. Evidence suggests the business has grown more profitable.`\
+https://www.nytimes.com/2026/07/06/business/economy/gas-station-prices.html
+
+**Who Was Charlie Kirk?**\
+`Mr. Kirk, an influential right-wing activist, has become a modern-day martyr for conservative evangelical Christians.`\
+https://www.nytimes.com/2026/07/06/us/who-was-charlie-kirk.html
+
+**Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
+`Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
+https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
+
 **Efforts to Help Smokers Quit Stall Under Trump**\
 `The C.D.C.’s tobacco control office has been shut for more than a year. After its most prominent antismoking campaign went off the air, calls to 1-800-QUIT-NOW lines have plummeted.`\
 https://www.nytimes.com/2026/07/06/us/trump-anti-smoking-cuts.html
