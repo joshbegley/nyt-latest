@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011013919/06visualUploader-82435.html
+
 **Key Moments in the Case of Charlie Kirk’s Assassination**\
 `The case against the defendant, Tyler Robinson, has played out since last September.`\
 https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
