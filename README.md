@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011013518/06vid-khamenei-route-update-43001.html
+
 **Word of the Day: perfidious**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/06/learning/word-of-the-day-perfidious.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/us/politics/bill-archer-dead.html
 **Andy Baraghani’s Chicken Salad Is Full of Crunch**\
 `And, since it swaps cashew butter for the mayo, it can also stand the summer heat.`\
 https://www.nytimes.com/2026/07/05/dining/andy-baraghanis-chicken-salad-is-full-of-crunch.html
-
-**The New, Unsustainable Art World**\
-`Readers respond to a guest essay by a former global art director about the struggles that galleries face.`\
-https://www.nytimes.com/2026/07/05/opinion/art-galleries-globalization.html
 
