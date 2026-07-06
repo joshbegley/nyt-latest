@@ -1,3 +1,15 @@
+**Timeline: How FIFA’s Reversal on Balogun Unfolded**\
+`Folarin Balogun’s red-card suspension was overturned by FIFA. President Trump said he asked for the review that ultimately led to the reversal.`\
+https://www.nytimes.com/interactive/2026/07/06/us/trump-world-cup-balogun-timeline.html
+
+**Live Updates: Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
+https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
+
+**Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
+https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
+
 **Draft**\
 `Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
 https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
