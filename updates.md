@@ -1,3 +1,7 @@
+**How Trump Put Himself in the Middle of America’s 250th**\
+`The president placed his image and initiatives front and center, blurring the line, critics said, between loyalty to nation and loyalty to him.`\
+https://www.nytimes.com/2026/07/05/us/politics/trump-america-250th-anniversary.html
+
 **First American Woman Rows Solo From California to Hawaii**\
 `Kelsey Pfendler, a Grand Canyon river-rafting guide, completed the journey of more than 2,300 miles in a rowboat named Lily in just under 44 days, according to data from the Ocean Rowing Society International.`\
 https://www.nytimes.com/2026/07/05/us/rowing-record-pacific-kelsey-pfendler.html
