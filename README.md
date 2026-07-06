@@ -158,6 +158,10 @@ https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
 
+**Trump Administration Live Updates: President Says He Instigated Review of U.S. Player’s World Cup Ban**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/06/us/trump-news
+
 **As Mourners for Khamenei Descend on Tehran, Many Residents Take Flight**\
 `Some residents have escaped the city and posted photos of their getaways on social media — a reminder that not all Iranians are mourning the death of Ayatollah Khamenei.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-residents-exodus.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defen
 **Balogun Back for USMNT’s Clash With Belgium**\
 `The U.S. receive an unexpected boost ahead of their last 16 encounter with the Red Devils.`\
 https://www.nytimes.com/2026/07/06/podcasts/balogun-usmnt-belgium-ronaldo-yamal.html
-
-**The Landmark Housing Bill That Trump Refuses to Sign**\
-`President Trump abruptly canceled plans to sign a major housing bill.`\
-https://www.nytimes.com/2026/07/06/podcasts/the-daily/housing-bill-trump.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
