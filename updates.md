@@ -1,3 +1,11 @@
+**Wildfire Forces Thousands to Evacuate in Southwest France**\
+`A blaze in the French Pyrenees region has burned more than 11,000 acres as of Monday morning, French authorities said.`\
+https://www.nytimes.com/video/world/europe/100000011013746/france-wildfires-pyrenees-evacuations.html
+
+**Map: 5.1-Magnitude Earthquake Shakes Chile**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/06/world/quake-tracker-chile.html
+
 **La FIFA revoca la sanción impuesta a Folarin Balogun tras llamada de Trump**\
 `La revocación de la suspensión de Folarin Balogun en el Mundial es muy inusual. Es la primera vez desde 1962 que la FIFA anula una suspensión por una tarjeta roja impuesta durante el Mundial.`\
 https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/trump-fifa-tarjeta-roja-folarin-balogun.html
