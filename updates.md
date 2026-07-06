@@ -1,3 +1,19 @@
+**Microsoft Lays Off Thousands of Xbox Employees, Closes Game Studios**\
+`The layoffs were part of wider cuts at Microsoft, as the company prioritizes spending on artificial intelligence.`\
+https://www.nytimes.com/2026/07/06/technology/microsoft-xbox-layoffs-ai.html
+
+**Khamenei’s Burial Was Delayed, Breaking With Islamic Custom**\
+`Ayatollah Ali Khamenei’s remains were preserved for months, according to Iran’s government. Some Islamic scholars say it was a political and security calculation.`\
+https://www.nytimes.com/2026/07/06/world/europe/khameneis-burial-was-delayed-breaking-with-islamic-custom.html
+
+**aDe Haití a Venezuela: el cambio de la ayuda internacional de EE. UU.**\
+`La respuesta humanitaria que Estados Unidos envió a Haití tras un terremoto en 2010 ensombrece lo que ha prometido para Venezuela, un país devastado por sus propios temblores.`\
+https://www.nytimes.com/es/2026/07/06/espanol/america-latina/terremoto-venezuela-haiti-ayuda-eeuu.html
+
+**Who is Ahead in Florida's 25th Congressional District?**\
+`Track the latest polls in Florida's 25th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-25-polls-2026.html
+
 **Russia Attacks Ukraine’s Capital for Second Time in Less Than a Week**\
 `Russia launched its second major attack on Kyiv, Ukraine’s capital, in less than a week. The deadly strikes occurred a day before a NATO summit expected to focus on the alliance’s response to the war.`\
 https://www.nytimes.com/video/world/europe/100000011013564/russia-ukraine-kyiv-attack.html
