@@ -190,10 +190,6 @@ https://www.nytimes.com/2026/07/06/us/emil-bove-judge-trump.html
 `Meeting a partner at work used to be common. Now? Not so much. But office romance can be sexy — plus, it’s got a better success rate than the apps.`\
 https://www.nytimes.com/2026/07/06/opinion/date-coworkers-office-romance.html
 
-**Extreme Dizziness, No Headache: The Migraine Many Doctors Miss**\
-`One expert calls it “the most common disease you’ve never heard of.”`\
-https://www.nytimes.com/2026/07/06/well/mind/vestibular-migraine-symptoms-diagnosis.html
-
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
