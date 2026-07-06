@@ -1,3 +1,27 @@
+**Balogun Back for USMNT’s Clash With Belgium**\
+`The U.S. receive an unexpected boost ahead of their last 16 encounter with the Red Devils.`\
+https://www.nytimes.com/2026/07/06/podcasts/balogun-usmnt-belgium-ronaldo-yamal.html
+
+**The Landmark Housing Bill That Trump Refuses to Sign**\
+`President Trump abruptly canceled plans to sign a major housing bill.`\
+https://www.nytimes.com/2026/07/06/podcasts/the-daily/housing-bill-trump.html
+
+**Huge Crowds Gather for Ayatollah’s Funeral, and China Tests Long-Range Ballistic Missile**\
+`Plus, an unusual World Cup reversal.`\
+https://www.nytimes.com/2026/07/06/podcasts/the-headlines/huge-crowds-gather-for-ayatollahs-funeral-and-china-tests-long-range-ballistic-missile.html
+
+**NYT Connections Answers for July 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/06/crosswords/connections-companion-1122.html
+
+**NYT Strands Hints for July 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/06/crosswords/strands-sidekick-856.html
+
+**Today’s Wordle Hints for July 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/06/crosswords/wordle-review-1844.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/asia/100000011013549/06vid-khamenei-abdi-update-36635.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/06/arts/television/the-five-star-weekend-what-to
 **Andy Burnham, the UK’s Likely Next Prime Minister, Made His Name in Manchester. Here’s How.**\
 `Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
 https://www.nytimes.com/2026/07/06/world/europe/andy-burnham-manchesterism-uk.html
-
-****\
-`As mayor, Mr. Burnham brought Manchester’s trams and privatized bus services into a single tightly regulated public system, the Bee Network.`\
-https://www.nytimes.com/video/embedded/world/europe/100000011001283/00int-uk-manchester-79123.html
-
-**How Manchester’s Bee Buses and Trams Helped Fuel Andy Burnham’s Rise**\
-`Andy Burnham brought Greater Manchester’s public transit back under public control, making buses more frequent and capping fares.`\
-https://www.nytimes.com/2026/07/06/world/europe/buses-andy-burnham-greater-manchester-bee.html
-
-**10-Minute Challenge: The Ceiling at Grand Central**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://www.nytimes.com/interactive/2026/07/06/upshot/ten-minute-challenge-grand-central.html
-
-**No Corrections: July 6, 2026**\
-`No corrections appeared in print on Monday, July 6, 2026.`\
-https://www.nytimes.com/2026/07/06/corrections/no-corrections-july-6-2026.html
-
-**Quote of the Day: Wartime Sign for Russians: ‘Out of Gas’**\
-`Quotation of the Day for Monday, July 6, 2026.`\
-https://www.nytimes.com/2026/07/06/pageoneplus/quote-of-the-day-wartime-sign-for-russians-out-of-gas.html
-
-**Typhoon Bavi Pounds Guam and Northern Mariana Islands**\
-`There was an island-wide power outage on Saipan, the capital of the Northern Mariana Islands, as the Category 5 storm approached.`\
-https://www.nytimes.com/2026/07/05/weather/super-typhoon-bavi-guam-saipan.html
 
