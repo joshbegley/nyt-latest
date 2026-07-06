@@ -1,3 +1,7 @@
+**China Test Fires Missile in the Pacific for the First Time Since 2024**\
+`China’s firing of a submarine-launched missile came as Australia secured more defense deals with Pacific Island nations. Countries expressed concern about the test.`\
+https://www.nytimes.com/2026/07/06/world/asia/china-pacific-nuclear-missile-launch.html
+
 **‘The Five-Star Weekend’ and 6 More Shows to Watch on TV This Week**\
 `The adaptation of Elin Hilderbrand’s book airs and the new iteration of “Little House on the Prairie” begins.`\
 https://www.nytimes.com/2026/07/06/arts/television/the-five-star-weekend-what-to-watch-on-tv.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
 **Obama vs. Trump Is the Election Day We Needed but Never Got**\
 `The proxy battles we got instead have not settled questions we have to settle.`\
 https://www.nytimes.com/2026/07/05/opinion/obama-trump-presidency-election.html
-
-**The Art of Summitry**\
-`The performance is meant to imply that the world is an orderly place, or at least a place on which reasonable people are determined to impose some order.`\
-https://www.nytimes.com/2026/07/05/opinion/nato-summit-ankara-turkey.html
 
