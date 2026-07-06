@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3 Episode 3 Recap: The Rat Banquet**\
+`Rhaenyra’s advent to power starts off rough and doesn’t get much better.`\
+https://www.nytimes.com/2026/07/05/arts/television/house-of-the-dragon-season-3-episode-3-recap.html
+
 **How Trump Put Himself in the Middle of America’s 250th**\
 `The president placed his image and initiatives front and center, blurring the line, critics said, between loyalty to nation and loyalty to him.`\
 https://www.nytimes.com/2026/07/05/us/politics/trump-america-250th-anniversary.html

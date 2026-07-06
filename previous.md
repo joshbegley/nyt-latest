@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3 Episode 3 Recap: The Rat Banquet**\
+`Rhaenyra’s advent to power starts off rough and doesn’t get much better.`\
+https://www.nytimes.com/2026/07/05/arts/television/house-of-the-dragon-season-3-episode-3-recap.html
+
 **How Trump Put Himself in the Middle of America’s 250th**\
 `The president placed his image and initiatives front and center, blurring the line, critics said, between loyalty to nation and loyalty to him.`\
 https://www.nytimes.com/2026/07/05/us/politics/trump-america-250th-anniversary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/05/espanol/america-latina/venezuela-terremoto
 **Los mejores consejos sobre relaciones que hemos escuchado este año**\
 `Los expertos nos han dicho muchas veces que las relaciones necesitan atención y cuidado constantes, sin importar cuánto tiempo tenga el vínculo.`\
 https://www.nytimes.com/es/2026/07/05/espanol/consejos-pareja.html
-
-**America Marks Its 250th Birthday With Storms, Sweat and Fire**\
-`Independence Day celebrations were canceled nationwide and the Brooklyn Bridge briefly caught fire. Yet Americans still found countless ways to celebrate.`\
-https://www.nytimes.com/2026/07/05/us/america-250-celebrations.html
 
