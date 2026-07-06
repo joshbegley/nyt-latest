@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: los sitios para rastrear a desaparecidos**\
+`Medios de comunicación y figuras de la oposición venezolana empezaron a citar las cifras de estos sitios como prueba de la gravedad del desastre y de las deficiencias en la respuesta del gobierno.`\
+https://www.nytimes.com/es/2026/07/06/espanol/america-latina/venezuela-terremotos-desaparecidos.html
+
 **Mapa: un terremoto de magnitud 5,1 sacude Chile**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/07/06/espanol/terremoto-chile.html
