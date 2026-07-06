@@ -1,3 +1,7 @@
+**Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
+`Ballistic missiles were fired into the capital of Ukraine, as Russia launched its second major attack in less than a week. At least seven people were killed, officials said.`\
+https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
+
 **‘House of the Dragon’ Season 3 Episode 3 Recap: The Rat Banquet**\
 `Rhaenyra’s advent to power starts off rough and doesn’t get much better.`\
 https://www.nytimes.com/2026/07/05/arts/television/house-of-the-dragon-season-3-episode-3-recap.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/world/europe/ukraine-russia-donetsk-front.htm
 **Los venezolanos advirtieron que las viviendas públicas eran vulnerables a sismos**\
 `La devastación ha suscitado dudas sobre el papel del gobierno en la pérdida de tantas vidas en estructuras sobre las que los expertos en construcción habían advertido que no podrían resistir un terremoto de gran magnitud.`\
 https://www.nytimes.com/es/2026/07/05/espanol/america-latina/venezuela-terremotos-mision-vivienda.html
-
-**Los mejores consejos sobre relaciones que hemos escuchado este año**\
-`Los expertos nos han dicho muchas veces que las relaciones necesitan atención y cuidado constantes, sin importar cuánto tiempo tenga el vínculo.`\
-https://www.nytimes.com/es/2026/07/05/espanol/consejos-pareja.html
 
