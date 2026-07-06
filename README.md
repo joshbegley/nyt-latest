@@ -1,3 +1,7 @@
+**Russia Attacks Ukraine’s Capital for Second Time in Less Than a Week**\
+`Russia launched its second major attack on Kyiv, Ukraine’s capital, in less than a week. The deadly strikes occurred a day before a NATO summit expected to focus on the alliance’s response to the war.`\
+https://www.nytimes.com/video/world/europe/100000011013564/russia-ukraine-kyiv-attack.html
+
 **Sites That Report Venezuela’s Missing Rise Far From Quake Zone**\
 `Despite problems like duplicate submissions, tallies gathered by the websites have been cited by news organizations and critics of the Venezuelan government’s disaster response.`\
 https://www.nytimes.com/2026/07/06/world/americas/venezuela-earthquake-missing.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/opinion/ai-four-day-work-week-office.html
 **Book Review: ‘The Simp,’ by Roshan Sethi**\
 `“The Simp,” by Roshan Sethi, is a satire of the unending demands, learned helplessness and stubborn racism of Hollywood elites.`\
 https://www.nytimes.com/2026/07/06/books/review/roshan-sethi-the-simp.html
-
-**Emil Bove Defended Trump in Court. Then Trump Made Him a Judge.**\
-`President Trump is appointing his former personal lawyers to judgeships, part of a larger effort to put his stamp on the federal courts.`\
-https://www.nytimes.com/2026/07/06/us/emil-bove-judge-trump.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
