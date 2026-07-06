@@ -1,3 +1,19 @@
+**Inside Bath & Body Works’ Fragrance Factory**\
+`“Japanese Cherry Blossom” has brought in $1.5 billion over the last 20 years. Can the company’s close-knit network of suppliers come up with the next big thing and improve sales?`\
+https://www.nytimes.com/2026/07/06/business/bath-body-works-fragrance-factory.html
+
+**China prueba un misil de largo alcance en el Pacífico y enfurece a sus vecinos**\
+`El lanzamiento se produjo justo cuando Australia cerraba acuerdos de defensa con socios insulares del Pacífico. Varios países expresaron su preocupación por la prueba.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/china-misil-largo-alcance.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011014045/06visualUploader-89868.html
+
+**Nancy Ward, the Cherokee Leader, Stokes Division Even 250 Years Later**\
+`In 1776, Cherokee leaders looked for ways to navigate a foreboding future. Nanyehi, a.k.a. Nancy Ward, is venerated and reviled for her choice.`\
+https://www.nytimes.com/2026/07/06/travel/nancy-ward-cherokee-tennessee-american-revolution.html
+
 ****\
 `Waving flags during the funeral procession.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011014029/04int-iran-funeral-photos-56614.html
@@ -169,22 +185,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011013549/06vid-khamenei
 **Cumbre de la OTAN en Turquía: lo que hay que saber**\
 `La relación cada vez más tensa entre Estados Unidos y sus aliados de la OTAN se cierne sobre esta reunión de dos días.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/otan-cumbre-turquia.html
-
-**Una enfermedad estomacal grave tiene brotes en todo EE. UU.**\
-`Los expertos en salud pública dijeron que se han registrado más casos de lo habitual de la enfermedad causada por la Cyclospora, que se transmite a través de alimentos y bebidas contaminados.`\
-https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/cyclospora-enfermedad-estomacal.html
-
-**What It Was Like Inside Taylor Swift and Travis Kelce’s Wedding**\
-`From garden themes to meatballs on the (rehearsal dinner) menu, carefully planned details are emerging from the top-secret event.`\
-https://www.nytimes.com/article/taylor-swift-travis-kelce-msg-wedding-details.html
-
-**NATO Leaders Are Meeting This Week. Here’s What to Know.**\
-`As member states gather in Turkey, here’s a guide to the summit, and the decades-old alliance.`\
-https://www.nytimes.com/2026/07/06/world/europe/nato-leaders-are-meeting-this-week-heres-what-to-know.html
-
-**Trump’s International U.F.C. Diplomacy**\
-`The bling and brutality of American “diplomacy.”`\
-https://www.nytimes.com/2026/07/06/opinion/trump-ufc-promotion.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
