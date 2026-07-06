@@ -1,3 +1,7 @@
+**Trump Wins the FIFA Appease Prize**\
+`Is it fair that players live in one reality and referees live in another? Is it fair that President Trump trumps them all?`\
+https://www.nytimes.com/2026/07/06/opinion/trump-fifa-balogun-red-card.html
+
 **Preliminary Hearing for Man Accused of Killing Charlie Kirk Starts in Utah**\
 `Prosecutors on Monday began laying out their case against the man accused of murdering Charlie Kirk. It was the first day of a weeklong preliminary hearing that will determine whether or not there is enough evidence against the accused killer to stand trial.`\
 https://www.nytimes.com/video/us/100000011014130/charlie-kirk-tyler-robinson-hearing-utah.html
