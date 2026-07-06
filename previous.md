@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011013549/06vid-khamenei-abdi-update-36635.html
+
+**Cumbre de la OTAN en Turquía: lo que hay que saber**\
+`La relación cada vez más tensa entre Estados Unidos y sus aliados de la OTAN se cierne sobre esta reunión de dos días.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/otan-cumbre-turquia.html
+
 **Una enfermedad estomacal grave tiene brotes en todo EE. UU.**\
 `Los expertos en salud pública dijeron que se han registrado más casos de lo habitual de la enfermedad causada por la Cyclospora, que se transmite a través de alimentos y bebidas contaminados.`\
 https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/cyclospora-enfermedad-estomacal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/06/pageoneplus/quote-of-the-day-wartime-sign-for
 **Typhoon Bavi Pounds Guam and Northern Mariana Islands**\
 `There was an island-wide power outage on Saipan, the capital of the Northern Mariana Islands, as the Category 5 storm approached.`\
 https://www.nytimes.com/2026/07/05/weather/super-typhoon-bavi-guam-saipan.html
-
-**Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
-`Ballistic missiles were fired into the capital of Ukraine as Russia launched its second major attack in less than a week. At least 12 people were killed, officials said.`\
-https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
-
-**‘House of the Dragon’ Season 3 Episode 3 Recap: The Rat Banquet**\
-`Rhaenyra’s advent to power starts off rough and doesn’t get much better.`\
-https://www.nytimes.com/2026/07/05/arts/television/house-of-the-dragon-season-3-episode-3-recap.html
 

@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011013549/06vid-khamenei-abdi-update-36635.html
+
+**Cumbre de la OTAN en Turquía: lo que hay que saber**\
+`La relación cada vez más tensa entre Estados Unidos y sus aliados de la OTAN se cierne sobre esta reunión de dos días.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/otan-cumbre-turquia.html
+
 **Una enfermedad estomacal grave tiene brotes en todo EE. UU.**\
 `Los expertos en salud pública dijeron que se han registrado más casos de lo habitual de la enfermedad causada por la Cyclospora, que se transmite a través de alimentos y bebidas contaminados.`\
 https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/cyclospora-enfermedad-estomacal.html
