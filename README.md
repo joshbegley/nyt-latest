@@ -1,3 +1,7 @@
+**Ships Are Still Getting Out of the Persian Gulf, Easing Oil Prices**\
+`A recovery in oil flows from the Persian Gulf and a pledge by OPEC Plus to pump more crude have put downward pressure on energy prices.`\
+https://www.nytimes.com/2026/07/06/business/hormuz-strait-shipping-oil.html
+
 **Comcast Adds Heft With Sky’s Deal for British Broadcaster ITV**\
 `The $2.1 billion purchase would combine two major British media outlets and help the Comcast-owned Sky compete with streaming giants.`\
 https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.ht
 `Catch up after the long weekend.`\
 https://www.nytimes.com/2026/07/06/briefing/the-latest-news.html
 
-**Ukraine Rewrote Air Defense Tactics. Against Russia, It’s Still Not Enough.**\
+**Ukraine Remade Air Defense, but Russia Has Changed Its Attacks**\
 `Ukraine has changed how militaries use Patriot systems. But recent attacks prove that clever adaptations cannot overcome a shortage of interceptors.`\
 https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011013518/06vid-khamenei
 **Word of the Day: perfidious**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/06/learning/word-of-the-day-perfidious.html
-
-**Britain’s Likely Next Prime Minister Made His Name in Manchester. Here’s How.**\
-`Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
-https://static01.nyt.com/slideshow/2026/07/06/world/britains-likely-next-prime-minister-made-his-name-in-manchester-heres-how.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
