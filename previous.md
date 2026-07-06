@@ -1,3 +1,23 @@
+**Inside Trump’s Ideological Fight With the Smithsonian**\
+`Publicly and behind the scenes, the president continues to try to impose his own views of American history and culture, presenting an ongoing challenge to Lonnie Bunch, the institution’s leader.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-smithsonian-ideological-fight.html
+
+**Trump Fuels a Furious World Cup Debate**\
+`Also, Platner says he will take time to “reflect” after a new accusation. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/06/briefing/trump-world-cup-graham-platner-campaign.html
+
+**Lemon-Garlic Grilled Chicken Breasts**\
+`This smoky beauty of a recipe, linked below, with its juicy swirl of lemon and olive oil, its fragrant charred garlic and parsley, is mouthwatering in the primal way of fried drumsticks and saucy wings.`\
+https://www.nytimes.com/video/dining/100000011015307/lemon-garlic-grilled-chicken-breasts.html
+
+**Indio Solari, Argentine Rocker Who Packed Stadiums, Dies at 77**\
+`A counterculture icon with broad appeal, he compared himself to Bob Dylan and developed an especially fervent following among working-class youth.`\
+https://www.nytimes.com/2026/07/06/arts/music/indio-solari-dead.html
+
+**Key Health Care Panel Is Again Blocked From Meeting Under RFK Jr.**\
+`The United States Preventive Services Task Force has been stymied under Health Secretary Robert F. Kennedy Jr.`\
+https://www.nytimes.com/2026/07/06/us/politics/uspstf-meeting-rfk-jr.html
+
 **Timeline: How FIFA’s Reversal on Balogun Unfolded**\
 `Folarin Balogun’s red-card suspension was overturned by FIFA. President Trump said he asked for the review that ultimately led to the reversal.`\
 https://www.nytimes.com/interactive/2026/07/06/us/trump-world-cup-balogun-timeline.html
@@ -57,10 +77,6 @@ https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
 **Canada Bets on NATO Partners for Its Expanded Submarine Fleet**\
 `In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
 https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
-
-**Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
-`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
-https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
 
 **‘Confessions II’ Review: Madonna Returns to the Dance Floor**\
 `On “Confessions II,” a successor to her hit 2005 album “Confessions on a Dance Floor,” the pop superstar gives new energy to her origin story and shines light on the troubles she’s danced away.`\
@@ -173,26 +189,6 @@ https://www.nytimes.com/2026/07/06/us/politics/trump-accounts-white-house-openin
 **Trump Cashes In While Others Lose Out**\
 `Readers react to President Trump’s windfall. Also: Mr. Trump’s intervention in the World Cup; Taylor Swift, feminist bride; rich political donors.`\
 https://www.nytimes.com/2026/07/06/opinion/trump-windfall.html
-
-**Michelle Obama and Cardi B Celebrate Black Women on America’s 250th**\
-`The Essence Festival drew attendees from around the country to New Orleans for parties, panels, concerts and unity.`\
-https://www.nytimes.com/2026/07/06/style/essence-festival-michelle-obama-cardi-b-black-women.html
-
-**Alibaba’s A.I. Is a Hit, but Hard to Turn Into a Moneymaker**\
-`The Chinese company’s models have won over developers worldwide, but they are open source — so they can be used and modified freely.`\
-https://www.nytimes.com/2026/07/06/business/alibaba-ai-qwen.html
-
-**Why A.I. Distillation Has Become a Hot Topic in the Race with China**\
-`U.S. companies complain that competitors in China are unfairly copying their A.I. systems using a technique that has been around for years.`\
-https://www.nytimes.com/2026/07/06/technology/ai-distillation-china.html
-
-**Los católicos que desafían al Vaticano y permanecen con una facción rebelde**\
-`El Vaticano excomulgó a los sacerdotes de una facción católica disidente, pero muchos de sus fieles se niegan a romper con ella.`\
-https://www.nytimes.com/es/2026/07/06/espanol/mundo/cisma-catolico-fraternidad-pio-excomulga-papa.html
-
-**Extreme Heat Hits Europe for the Third Time This Year**\
-`It is continent’s third spell of scorching weather since May. Europe is the world’s fastest-warming continent.`\
-https://www.nytimes.com/2026/07/06/weather/europe-heat-wave-latest-wildfire.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

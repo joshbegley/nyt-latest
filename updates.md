@@ -1,3 +1,23 @@
+**Inside Trump’s Ideological Fight With the Smithsonian**\
+`Publicly and behind the scenes, the president continues to try to impose his own views of American history and culture, presenting an ongoing challenge to Lonnie Bunch, the institution’s leader.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-smithsonian-ideological-fight.html
+
+**Trump Fuels a Furious World Cup Debate**\
+`Also, Platner says he will take time to “reflect” after a new accusation. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/06/briefing/trump-world-cup-graham-platner-campaign.html
+
+**Lemon-Garlic Grilled Chicken Breasts**\
+`This smoky beauty of a recipe, linked below, with its juicy swirl of lemon and olive oil, its fragrant charred garlic and parsley, is mouthwatering in the primal way of fried drumsticks and saucy wings.`\
+https://www.nytimes.com/video/dining/100000011015307/lemon-garlic-grilled-chicken-breasts.html
+
+**Indio Solari, Argentine Rocker Who Packed Stadiums, Dies at 77**\
+`A counterculture icon with broad appeal, he compared himself to Bob Dylan and developed an especially fervent following among working-class youth.`\
+https://www.nytimes.com/2026/07/06/arts/music/indio-solari-dead.html
+
+**Key Health Care Panel Is Again Blocked From Meeting Under RFK Jr.**\
+`The United States Preventive Services Task Force has been stymied under Health Secretary Robert F. Kennedy Jr.`\
+https://www.nytimes.com/2026/07/06/us/politics/uspstf-meeting-rfk-jr.html
+
 **Timeline: How FIFA’s Reversal on Balogun Unfolded**\
 `Folarin Balogun’s red-card suspension was overturned by FIFA. President Trump said he asked for the review that ultimately led to the reversal.`\
 https://www.nytimes.com/interactive/2026/07/06/us/trump-world-cup-balogun-timeline.html
