@@ -1,3 +1,7 @@
+**‘Confessions II’ Review: Madonna Returns to the Dance Floor**\
+`On “Confessions II,” a successor to her hit 2005 album “Confessions on a Dance Floor,” the pop superstar gives new energy to her origin story and shines light on the troubles she’s danced away.`\
+https://www.nytimes.com/2026/07/06/arts/music/madonna-confessions-ii-album-review.html
+
 **Iranians Mourn a Slain Leader, and Call for Vengeance**\
 `Million of people filled the streets of Iran to bid farewell to Ayatollah Ali Khamenei, who was killed in the war with the United States and Israel.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/iran-khamenei-funeral.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
 **Iran to Bury Ayatollah Ali Khamenei in Holy City of Mashhad**\
 `The city of three million people is home to a gold-domed shrine that Shiite Muslims revere as Iran’s most sacred site. The final ceremony will take place there on Thursday.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/mashhad-iran-khamenei-buried.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011013919/06visualUploader-82435.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
