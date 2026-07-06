@@ -1,3 +1,7 @@
+**Mapa: un terremoto de magnitud 5,1 sacude Chile**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/07/06/espanol/terremoto-chile.html
+
 **What Are Safe A.I. Use Cases for Toddlers?**\
 `“Use it to enhance, not replace,” advises Dr. Dana Suskind, an early learning specialist who appeared on the “Hard Fork” podcast to share her advice on using A.I. to parent young children.`\
 https://www.nytimes.com/video/podcasts/100000011014461/what-are-safe-ai-use-cases-for-toddlers.html
