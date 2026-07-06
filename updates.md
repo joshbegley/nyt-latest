@@ -1,3 +1,15 @@
+**Heat waves are taking a big toll on chickens**\
+`The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
+https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
+
+**Michigan Senate Primary Gives Democrats Stark Choice Between Progressive and Moderate Candidate**\
+`The state’s important Senate primary just became a head-to-head battle between Abdul El-Sayed, an outspoken left-wing candidate, and Haley Stevens, a moderate backed by party leaders.`\
+https://www.nytimes.com/2026/07/06/us/politics/michigan-primary-democrats-stevens-el-sayed.html
+
+**Supreme Court Allows Texas Age-Verification Law for App Stores, for Now**\
+`The law would require Apple and Google to verify the age of app store users to give parents more control over the content their children download.`\
+https://www.nytimes.com/2026/07/06/us/politics/supreme-court-texas-age-apps.html
+
 **Trump Defends Asking FIFA to Review Folarin Balogun’s World Cup Ban**\
 `The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
