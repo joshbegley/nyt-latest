@@ -1,3 +1,7 @@
+**As Mourners for Khamenei Descend on Tehran, Many Residents Take Flight**\
+`Some residents have escaped the city and posted photos of their getaways on social media — a reminder that not all Iranians are mourning the death of Ayatollah Khamenei.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/as-mourners-for-khamenei-descend-on-tehran-many-residents-take-flight.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
