@@ -1,3 +1,11 @@
+**Judge Appointed Last Year Is Overseeing Hearing in Killing of Charlie Kirk**\
+`Judge Tony Graf previously served as a prosecutor in Utah, including in the county where Mr. Kirk was shot and killed last year.`\
+https://www.nytimes.com/2026/07/06/us/who-is-judge-tony-graf.html
+
+**President Trump Introduces Savings Accounts for Children**\
+`President Trump on Monday celebrated the start of his savings accounts for children, commonly referred to as Trump accounts. But children are not automatically enrolled in the program and only a quarter of eligible recipients have signed up so far.`\
+https://www.nytimes.com/video/us/100000011014722/president-trump-introduces-savings-accounts-for-children.html
+
 **Trump Wins the FIFA Appease Prize**\
 `Is it fair that players live in one reality and referees live in another? Is it fair that President Trump trumps them all?`\
 https://www.nytimes.com/2026/07/06/opinion/trump-fifa-balogun-red-card.html

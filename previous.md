@@ -1,3 +1,11 @@
+**Judge Appointed Last Year Is Overseeing Hearing in Killing of Charlie Kirk**\
+`Judge Tony Graf previously served as a prosecutor in Utah, including in the county where Mr. Kirk was shot and killed last year.`\
+https://www.nytimes.com/2026/07/06/us/who-is-judge-tony-graf.html
+
+**President Trump Introduces Savings Accounts for Children**\
+`President Trump on Monday celebrated the start of his savings accounts for children, commonly referred to as Trump accounts. But children are not automatically enrolled in the program and only a quarter of eligible recipients have signed up so far.`\
+https://www.nytimes.com/video/us/100000011014722/president-trump-introduces-savings-accounts-for-children.html
+
 **Preliminary Hearing for Man Accused of Killing Charlie Kirk Starts in Utah**\
 `Prosecutors on Monday began laying out their case against the man accused of murdering Charlie Kirk. It was the first day of a weeklong preliminary hearing that will determine whether or not there is enough evidence against the accused killer to stand trial.`\
 https://www.nytimes.com/video/us/100000011014130/charlie-kirk-tyler-robinson-hearing-utah.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/06/business/bath-body-works-fragrance-factory.ht
 **China prueba un misil de largo alcance en el Pacífico y enfurece a sus vecinos**\
 `El lanzamiento se produjo justo cuando Australia cerraba acuerdos de defensa con socios insulares del Pacífico. Varios países expresaron su preocupación por la prueba.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/china-misil-largo-alcance.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011014045/06visualUploader-89868.html
-
-**Nancy Ward, the Cherokee Leader, Stokes Division Even 250 Years Later**\
-`In 1776, Cherokee leaders looked for ways to navigate a foreboding future. Nanyehi, a.k.a. Nancy Ward, is venerated and reviled for her choice.`\
-https://www.nytimes.com/2026/07/06/travel/nancy-ward-cherokee-tennessee-american-revolution.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
