@@ -2,7 +2,7 @@
 `The game against Mexico started at 2 a.m. in Britain. Pubs were allowed to stay open unusually late for fans to share the drama together.`\
 https://www.nytimes.com/2026/07/06/world/europe/england-mexico-world-cup-london.html
 
-**Ships Are Still Getting Out of the Persian Gulf, Easing Oil Prices**\
+**Ships Are Moving In and Out of the Persian Gulf, Easing Oil Prices**\
 `A recovery in oil flows from the Persian Gulf and a pledge by OPEC Plus to pump more crude have put downward pressure on energy prices.`\
 https://www.nytimes.com/2026/07/06/business/hormuz-strait-shipping-oil.html
 
