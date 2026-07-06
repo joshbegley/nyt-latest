@@ -1,3 +1,7 @@
+**Trump’s Intervention in Balogun’s World Cup Suspension Adds to Conflict With Europe**\
+`The decision to reverse a one-game ban landed badly in Europe, at a moment of already-heightened geopolitical tension with the United States.`\
+https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
+
 **Los católicos que desafían al Vaticano y permanecen con una facción rebelde**\
 `El Vaticano excomulgó a los sacerdotes de una facción católica disidente, pero muchos de sus fieles se niegan a romper con ella.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/cisma-catolico-fraternidad-pio-excomulga-papa.html

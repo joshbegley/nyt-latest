@@ -1,3 +1,11 @@
+**Alibaba’s A.I. Is a Hit, but Hard to Turn Into a Moneymaker**\
+`The Chinese company’s models have won over developers worldwide, but they are open source — so they can be used and modified freely.`\
+https://www.nytimes.com/2026/07/06/business/alibaba-ai-qwen.html
+
+**Why A.I. Distillation Has Become a Hot Topic in the Race with China**\
+`U.S. companies complain that competitors in China are unfairly copying their A.I. systems using a technique that has been around for years.`\
+https://www.nytimes.com/2026/07/06/technology/ai-distillation-china.html
+
 **Los católicos que desafían al Vaticano y permanecen con una facción rebelde**\
 `El Vaticano excomulgó a los sacerdotes de una facción católica disidente, pero muchos de sus fieles se niegan a romper con ella.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/cisma-catolico-fraternidad-pio-excomulga-papa.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/06/podcasts/the-headlines/huge-crowds-gather-for
 **NYT Connections Answers for July 7, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
 https://www.nytimes.com/2026/07/06/crosswords/connections-companion-1122.html
-
-**NYT Strands Hints for July 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
-https://www.nytimes.com/2026/07/06/crosswords/strands-sidekick-856.html
-
-**Today’s Wordle Hints for July 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
-https://www.nytimes.com/2026/07/06/crosswords/wordle-review-1844.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
