@@ -1,3 +1,7 @@
+**Key Health Care Panel Is Again Blocked From Meeting Under RFK Jr.**\
+`The United States Preventive Services Task Force has been stymied under Health Secretary Robert F. Kennedy Jr.`\
+https://www.nytimes.com/2026/07/06/us/politics/uspstf-meeting-rfk-jr.html
+
 **Timeline: How FIFA’s Reversal on Balogun Unfolded**\
 `Folarin Balogun’s red-card suspension was overturned by FIFA. President Trump said he asked for the review that ultimately led to the reversal.`\
 https://www.nytimes.com/interactive/2026/07/06/us/trump-world-cup-balogun-timeline.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/06/technology/ai-distillation-china.html
 **Los católicos que desafían al Vaticano y permanecen con una facción rebelde**\
 `El Vaticano excomulgó a los sacerdotes de una facción católica disidente, pero muchos de sus fieles se niegan a romper con ella.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mundo/cisma-catolico-fraternidad-pio-excomulga-papa.html
-
-**Extreme Heat Hits Europe for the Third Time This Year**\
-`It is continent’s third spell of scorching weather since May. Europe is the world’s fastest-warming continent.`\
-https://www.nytimes.com/2026/07/06/weather/europe-heat-wave-latest-wildfire.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
