@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: los sitios para rastrear a desaparecidos**\
+`Medios de comunicación y figuras de la oposición venezolana empezaron a citar las cifras de estos sitios como prueba de la gravedad del desastre y de las deficiencias en la respuesta del gobierno.`\
+https://www.nytimes.com/es/2026/07/06/espanol/america-latina/venezuela-terremotos-desaparecidos.html
+
 **Mapa: un terremoto de magnitud 5,1 sacude Chile**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/07/06/espanol/terremoto-chile.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/world/europe/england-mexico-world-cup-london.
 **Ships Are Moving In and Out of the Persian Gulf, Easing Oil Prices**\
 `A recovery in oil flows from the Persian Gulf and a pledge by OPEC Plus to pump more crude have put downward pressure on energy prices.`\
 https://www.nytimes.com/2026/07/06/business/hormuz-strait-shipping-oil.html
-
-**Comcast Adds Heft With Sky’s Deal for British Broadcaster ITV**\
-`The $2.1 billion purchase would combine two major British media outlets and help the Comcast-owned Sky compete with streaming giants.`\
-https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
