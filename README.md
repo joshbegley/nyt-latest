@@ -110,8 +110,8 @@ https://www.nytimes.com/2026/07/06/world/middleeast/nato-summit-turkey-erdogan-t
 `In concurrent hit shows at Tate Modern, the artists’ shared preoccupations become clear.`\
 https://www.nytimes.com/2026/07/06/arts/design/frida-kahlo-tracey-emin-tate-modern.html
 
-**From Haiti to Venezuela, Earthquakes Reveal Shift in U.S. Relief Efforts**\
-`Haiti exemplified how disaster aid can go awry. Still, the crisis in Venezuela shows the U.S. isn’t abandoning foreign aid, just adapting it to new priorities.`\
+**With $8 Billion in Venezuelan Oil Money, U.S. Gives $300 Million in Quake Aid**\
+`In 2010, there was a huge U.S. aid effort after a quake in Haiti. Today, U.S. officials say they oversee billions in Venezuelan oil revenue, but aid is less.`\
 https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-aid.html
 
 **Zyn’s Popularity Has Tobacco Companies Racing to Cash In**\
