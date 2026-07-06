@@ -1,3 +1,15 @@
+**A News Site Published a Video of a School Lockdown. Then It Was Gone.**\
+`A New Jersey judge ordered New Brunswick Today to remove the video and barred it from writing about the episode, alarming First Amendment advocates.`\
+https://www.nytimes.com/2026/07/06/nyregion/news-site-video-school-arrest.html
+
+**NYT Spelling Bee Answers for July 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/06/crosswords/spelling-bee-forum.html
+
+**FIFA Reverses Suspension of Top U.S. Scorer After Trump Call**\
+`FIFA reversed a suspension against Folarin Balogun, the top scorer on the U.S. men’s soccer team this World Cup, after President Trump called FIFA’s president, Gianni Infantino, to ask for a review.`\
+https://www.nytimes.com/video/sports/soccer/100000011013262/balogun-red-card-cleared-fifa-trump.html
+
 **China Test Fires Long-Range Ballistic Missile in the Pacific**\
 `China’s firing of a submarine-launched missile came as Australia secured more defense deals with Pacific Island nations. Countries expressed concern about the test.`\
 https://www.nytimes.com/2026/07/06/world/asia/china-pacific-nuclear-missile-launch.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/05/us/brooklyn-coney-island-shooting-july-fourth
 **The Most American Thing**\
 `What best represents America?`\
 https://www.nytimes.com/2026/07/05/briefing/the-most-american-thing.html
-
-**México necesitaba esto**\
-`La euforia por el Mundial había eclipsado el pesimismo político.`\
-https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
-
-**Mexico’s World Cup Moment Is Pure, Fragile Magic**\
-`In Mexico City, World Cup euphoria is overshadowing political gloom.`\
-https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
-
-**Obama vs. Trump Is the Election Day We Needed but Never Got**\
-`The proxy battles we got instead have not settled questions we have to settle.`\
-https://www.nytimes.com/2026/07/05/opinion/obama-trump-presidency-election.html
 
