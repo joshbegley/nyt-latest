@@ -1,3 +1,11 @@
+**Wildfire Forces Thousands to Evacuate in Southwest France**\
+`A blaze in the French Pyrenees region has burned more than 11,000 acres as of Monday morning, French authorities said.`\
+https://www.nytimes.com/video/world/europe/100000011013746/france-wildfires-pyrenees-evacuations.html
+
+**Map: 5.1-Magnitude Earthquake Shakes Chile**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/06/world/quake-tracker-chile.html
+
 **La FIFA revoca la sanción impuesta a Folarin Balogun tras llamada de Trump**\
 `La revocación de la suspensión de Folarin Balogun en el Mundial es muy inusual. Es la primera vez desde 1962 que la FIFA anula una suspensión por una tarjeta roja impuesta durante el Mundial.`\
 https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/trump-fifa-tarjeta-roja-folarin-balogun.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-resi
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013677/06vid-khamenei-sprinklers-update-14793.html
-
-**Trump’s Intervention in Balogun’s World Cup Suspension Adds to Conflict With Europe**\
-`The decision to reverse a one-game ban landed badly in Europe, at a moment of already-heightened geopolitical tension with the United States.`\
-https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
-
-**The Latest News**\
-`Catch up after the long weekend.`\
-https://www.nytimes.com/2026/07/06/briefing/the-latest-news.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
