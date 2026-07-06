@@ -1,3 +1,11 @@
+**Alibaba’s A.I. Is a Hit, but Hard to Turn Into a Moneymaker**\
+`The Chinese company’s models have won over developers worldwide, but they are open source — so they can be used and modified freely.`\
+https://www.nytimes.com/2026/07/06/business/alibaba-ai-qwen.html
+
+**Why A.I. Distillation Has Become a Hot Topic in the Race with China**\
+`U.S. companies complain that competitors in China are unfairly copying their A.I. systems using a technique that has been around for years.`\
+https://www.nytimes.com/2026/07/06/technology/ai-distillation-china.html
+
 **Trump’s Intervention in Balogun’s World Cup Suspension Adds to Conflict With Europe**\
 `The decision to reverse a one-game ban landed badly in Europe, at a moment of already-heightened geopolitical tension with the United States.`\
 https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
