@@ -1,3 +1,11 @@
+**Platner Faces Growing Democratic Calls to Drop Out**\
+`Even supporters like Representative Ro Khanna of California called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
+https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
+
+**Trump Tries to Take Credit for Walmart Price Cuts of Beef and Other Products**\
+`The retailer said it will lower prices for beef, produce, drinks, pools, toys, grills and summer clothing.`\
+https://www.nytimes.com/2026/07/06/us/politics/walmart-price-cuts-beef-trump.html
+
 **Who Might Replace Graham Platner if He Drops Out of the Maine Senate Race?**\
 `Graham Platner can be replaced on the ballot if he withdraws in the next week. If he does, Maine Democrats would face an uncertain two-week race to choose a replacement.`\
 https://www.nytimes.com/2026/07/06/us/politics/who-would-replace-graham-platner-maine.html
@@ -70,8 +78,8 @@ https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
 `The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
 https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
 
-**Live Updates: Calls Mount for Platner to End Campaign After Sexual Assault Accusation**\
-`After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of sexual assault, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
+**Live Updates: Calls Mount for Platner to End Campaign After Rape Accusation**\
+`After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
 https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
 
 **¿Qué sabemos de la boda de Taylor Swift y Travis Kelce?**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/books/100000010953525/understanding-the-world-cup-
 **Bill Frist Wants to Take Politics Out of Climate Change**\
 `Bill Frist, a surgeon who also served as Senate majority leader, has emerged as an outspoken advocate for environmental health. “A healthier planet means healthier people,” he said.`\
 https://www.nytimes.com/2026/07/06/climate/bill-frist-climate-change-republican-politics.html
-
-**Wildfire Forces Thousands to Evacuate in Southwest France**\
-`A blaze in the French Pyrenees region has burned more than 11,000 acres as of Monday morning, French authorities said.`\
-https://www.nytimes.com/video/world/europe/100000011013746/france-wildfires-pyrenees-evacuations.html
-
-**Map: 5.1-Magnitude Earthquake Shakes Chile**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/06/world/quake-tracker-chile.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

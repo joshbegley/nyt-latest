@@ -1,3 +1,15 @@
+**Platner Faces Growing Democratic Calls to Drop Out**\
+`Even supporters like Representative Ro Khanna of California called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
+https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
+
+**Trump Tries to Take Credit for Walmart Price Cuts of Beef and Other Products**\
+`The retailer said it will lower prices for beef, produce, drinks, pools, toys, grills and summer clothing.`\
+https://www.nytimes.com/2026/07/06/us/politics/walmart-price-cuts-beef-trump.html
+
+**Live Updates: Calls Mount for Platner to End Campaign After Rape Accusation**\
+`After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
+https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
+
 **Who Might Replace Graham Platner if He Drops Out of the Maine Senate Race?**\
 `Graham Platner can be replaced on the ballot if he withdraws in the next week. If he does, Maine Democrats would face an uncertain two-week race to choose a replacement.`\
 https://www.nytimes.com/2026/07/06/us/politics/who-would-replace-graham-platner-maine.html
