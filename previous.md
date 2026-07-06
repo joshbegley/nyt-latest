@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 5,1 sacude Chile**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/07/06/espanol/terremoto-chile.html
+
+**What Are Safe A.I. Use Cases for Toddlers?**\
+`“Use it to enhance, not replace,” advises Dr. Dana Suskind, an early learning specialist who appeared on the “Hard Fork” podcast to share her advice on using A.I. to parent young children.`\
+https://www.nytimes.com/video/podcasts/100000011014461/what-are-safe-ai-use-cases-for-toddlers.html
+
 **Understanding the World Cup in 3 Books**\
 `Miguel Salazar of the New York Times Books Review recommends three titles that can help you understand the history of the World Cup.`\
 https://www.nytimes.com/video/books/100000010953525/understanding-the-world-cup-in-3-books.html
@@ -181,10 +189,6 @@ https://www.nytimes.com/2026/07/06/business/hormuz-strait-shipping-oil.html
 **Comcast Adds Heft With Sky’s Deal for British Broadcaster ITV**\
 `The $2.1 billion purchase would combine two major British media outlets and help the Comcast-owned Sky compete with streaming giants.`\
 https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
