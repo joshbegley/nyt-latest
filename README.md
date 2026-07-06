@@ -1,3 +1,7 @@
+**El Mundial les dio una ilusión a los mexicanos**\
+`El éxito inicial de la selección mexicana unió y emocionó a todo el país, y les dio a los aficionados un motivo para salir a las calles a celebrar en lugar de protestar.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
+
 **Iran to Bury Ayatollah Ali Khamenei in Holy City of Mashhad**\
 `The city of three million people is home to a gold-domed shrine that Shiite Muslims revere as Iran’s most sacred site. The final ceremony will take place there on Thursday.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/mashhad-iran-khamenei-buried.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/06/world/europe/nato-turkey-erdogan-trump-hakan-
 **June Diane Raphael Lends a Hand on ‘Elle’**\
 `The veteran comedy actress steals scenes in this “Legally Blonde” prequel series, playing the glamorous mother to the title character.`\
 https://www.nytimes.com/2026/07/06/arts/television/june-diane-raphael-elle.html
-
-**How to Reinvent a Dance Tradition? Be Light as a Feather.**\
-`Across generations, Lai Hung-Chung and Shen Wei are grappling with the possibilities of Chinese contemporary dance as they present their work in New York.`\
-https://www.nytimes.com/2026/07/06/arts/dance/contemporary-chinese-choreographers-shen-wei-lai-hung-chung.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
