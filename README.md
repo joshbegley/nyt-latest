@@ -1,3 +1,7 @@
+**NATO Needs Turkey**\
+`The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
+https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
+
 **¿Qué sabemos de la boda de Taylor Swift y Travis Kelce?**\
 `Desde la decoración inspirada en un jardín hasta las albóndigas (de la cena de ensayo), poco a poco se van conociendo detalles cuidadosamente planificados de este evento ultrasecreto.`\
 https://www.nytimes.com/es/2026/07/06/espanol/estilos-de-vida/boda-taylor-swift-travis-kelce.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/world/middleeast/turkey-hosts-nato-summit-whi
 **A Timeline of Trump’s Pressure Campaign Against the Smithsonian**\
 `Since returning to the White House in 2025, President Trump has repeatedly denounced the Smithsonian’s museums. The latest salvo came on the nation’s 250th birthday.`\
 https://www.nytimes.com/2026/07/06/arts/design/president-trump-smithsonian-timeline.html
-
-**Efforts to Help Smokers Quit Stall Under Trump**\
-`The C.D.C.’s tobacco control office has been shut for more than a year. After its most prominent antismoking campaign went off the air, calls to 1-800-QUIT-NOW lines have plummeted.`\
-https://www.nytimes.com/2026/07/06/us/trump-anti-smoking-cuts.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

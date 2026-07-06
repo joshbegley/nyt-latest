@@ -1,8 +1,16 @@
+**¿Qué sabemos de la boda de Taylor Swift y Travis Kelce?**\
+`Desde la decoración inspirada en un jardín hasta las albóndigas (de la cena de ensayo), poco a poco se van conociendo detalles cuidadosamente planificados de este evento ultrasecreto.`\
+https://www.nytimes.com/es/2026/07/06/espanol/estilos-de-vida/boda-taylor-swift-travis-kelce.html
+
+**Inside Trump’s Call With FIFA and How The New York Times Reported the Story**\
+`A White House correspondent and a sports reporter confirmed that President Trump had called Gianni Infantino of FIFA to review the suspension of a top U.S. goal scorer.`\
+https://www.nytimes.com/2026/07/06/insider/trump-fifa-world-cup-balogun.html
+
 **George E. Johnson Dies at 99; Broke Market Barriers With Afro Sheen**\
 `Mr. Johnson’s hair-product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
 https://www.nytimes.com/2026/07/06/business/george-e-johnson-dead.html
 
-**New Books About the World Cup**\
+**Want to Truly Understand the World Cup? Check Out These Books.**\
 `Three authors chronicle the history of the World Cup and of U.S. men’s soccer.`\
 https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/06/arts/design/president-trump-smithsonian-timel
 **Efforts to Help Smokers Quit Stall Under Trump**\
 `The C.D.C.’s tobacco control office has been shut for more than a year. After its most prominent antismoking campaign went off the air, calls to 1-800-QUIT-NOW lines have plummeted.`\
 https://www.nytimes.com/2026/07/06/us/trump-anti-smoking-cuts.html
-
-**Families of Iranians Killed by Government Dismayed by Leader’s Funeral Pageantry**\
-`Critics of Ayatollah Ali Khamenei’s brutal rule have been angered by the scale of the commemorations being held to honor his life.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/iran-dissidents-funeral-anger.html
-
-**Key Moments in the Case of Charlie Kirk’s Assassination**\
-`The case against the defendant, Tyler Robinson, has played out since last September.`\
-https://www.nytimes.com/2026/07/06/us/charlie-kirk-shooting-trial-timeline.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
