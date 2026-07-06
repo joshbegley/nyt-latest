@@ -194,7 +194,3 @@ https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
 `A New Jersey judge ordered New Brunswick Today to remove the video and barred it from writing about the episode, alarming First Amendment advocates.`\
 https://www.nytimes.com/2026/07/06/nyregion/news-site-video-school-arrest.html
 
-**NYT Spelling Bee Answers for July 6, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/06/crosswords/spelling-bee-forum.html
-
