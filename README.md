@@ -1,3 +1,7 @@
+**Heat waves are taking a big toll on chickens**\
+`The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
+https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
+
 **Michigan Senate Primary Gives Democrats Stark Choice Between Progressive and Moderate Candidate**\
 `The state’s important Senate primary just became a head-to-head battle between Abdul El-Sayed, an outspoken left-wing candidate, and Haley Stevens, a moderate backed by party leaders.`\
 https://www.nytimes.com/2026/07/06/us/politics/michigan-primary-democrats-stevens-el-sayed.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/06/world/europe/khamenei-delayed-burial-islamic-
 **De Haití a Venezuela: el cambio de la ayuda internacional de EE. UU.**\
 `La respuesta humanitaria que Estados Unidos envió a Haití tras un terremoto en 2010 ensombrece lo que ha prometido para Venezuela, un país devastado por sus propios temblores.`\
 https://www.nytimes.com/es/2026/07/06/espanol/america-latina/terremoto-venezuela-haiti-ayuda-eeuu.html
-
-**Who is Ahead in Florida's 25th Congressional District?**\
-`Track the latest polls in Florida's 25th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-25-polls-2026.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
