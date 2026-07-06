@@ -1,3 +1,7 @@
+**McConnell Has Been Hospitalized for 3 Weeks, and Aides Won’t Say Why**\
+`Senator Mitch McConnell was admitted to the hospital on June 14, and his office has provided few updates about his condition. Here’s what we know.`\
+https://www.nytimes.com/2026/07/06/us/politics/mitch-mcconell-health-hospitalization.html
+
 **The World Cup Revived Seattle’s Downtown. Will the Energy Last?**\
 `The city struggled for years after the pandemic shutdown and the rush to remote work. But downtown has been full of soccer fans for the past month.`\
 https://www.nytimes.com/2026/07/06/us/world-cup-downtown-seattle-revitalization.html
