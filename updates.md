@@ -1,3 +1,27 @@
+**Balogun Back for USMNT’s Clash With Belgium**\
+`The U.S. receive an unexpected boost ahead of their last 16 encounter with the Red Devils.`\
+https://www.nytimes.com/2026/07/06/podcasts/balogun-usmnt-belgium-ronaldo-yamal.html
+
+**The Landmark Housing Bill That Trump Refuses to Sign**\
+`President Trump abruptly canceled plans to sign a major housing bill.`\
+https://www.nytimes.com/2026/07/06/podcasts/the-daily/housing-bill-trump.html
+
+**Huge Crowds Gather for Ayatollah’s Funeral, and China Tests Long-Range Ballistic Missile**\
+`Plus, an unusual World Cup reversal.`\
+https://www.nytimes.com/2026/07/06/podcasts/the-headlines/huge-crowds-gather-for-ayatollahs-funeral-and-china-tests-long-range-ballistic-missile.html
+
+**NYT Connections Answers for July 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/06/crosswords/connections-companion-1122.html
+
+**NYT Strands Hints for July 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/06/crosswords/strands-sidekick-856.html
+
+**Today’s Wordle Hints for July 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/06/crosswords/wordle-review-1844.html
+
 **Iran Live Updates: Huge Crowds Pack Tehran for Ayatollah’s Funeral Procession**\
 `Tens of thousands of Iranians came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
