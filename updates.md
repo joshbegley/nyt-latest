@@ -1,3 +1,7 @@
+**Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit**\
+`Ballistic missiles were fired into the capital of Ukraine, as Russia launched its second major attack in less than a week. At least 12 people were killed, officials said.`\
+https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html
+
 **Word of the Day: perfidious**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/06/learning/word-of-the-day-perfidious.html
