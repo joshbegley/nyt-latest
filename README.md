@@ -1,3 +1,7 @@
+**Trump Wins the FIFA Appease Prize**\
+`Is it fair that players live in one reality and referees live in another? Is it fair that Donald Trump, uh, trumps them all?`\
+https://www.nytimes.com/2026/07/06/opinion/trump-fifa-balogun-red-card.html
+
 **Trump Defends Asking FIFA to Review U.S. Soccer Star’s Ban**\
 `The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/europe/100000011013564/russia-ukraine-kyiv-a
 **Sites That Report Venezuela’s Missing Rise Far From Quake Zone**\
 `Despite problems like duplicate submissions, tallies gathered by the websites have been cited by news organizations and critics of the Venezuelan government’s disaster response.`\
 https://www.nytimes.com/2026/07/06/world/americas/venezuela-earthquake-missing.html
-
-**Trump’s World Cup Intervention Roils the Soccer World, and Beyond**\
-`The U.S.-Belgium soccer game is turning out to be a huge deal even before it kicks off on Monday, thrusting politics into the spotlight.`\
-https://www.nytimes.com/2026/07/06/business/dealbook/trump-world-cup-infantino.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
