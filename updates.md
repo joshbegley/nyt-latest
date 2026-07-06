@@ -1,3 +1,7 @@
+**Comcast Adds Heft With Sky’s Deal for British Broadcaster ITV**\
+`The $2.1 billion purchase would combine two major British media outlets and help the Comcast-owned Sky compete with streaming giants.`\
+https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
+
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
 https://www.nytimes.com/live/2026/07/06/world/iran-funeral-khamenei
