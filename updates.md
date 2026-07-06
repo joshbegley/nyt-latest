@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011013677/06vid-khamenei-sprinklers-update-14793.html
+
+**Belgium Expresses Shock After FIFA Lifts U.S. Player’s Suspension**\
+`The American striker Folarin Balogun is eligible to play in a World Cup match against Belgium on Monday night after soccer officials reversed his one-game ban.`\
+https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
+
+**The Latest News**\
+`Catch up after the long weekend.`\
+https://www.nytimes.com/2026/07/06/briefing/the-latest-news.html
+
 **Ukraine Rewrote Air Defense Tactics. Against Russia, It’s Still Not Enough.**\
 `Ukraine has changed how militaries use Patriot systems. But recent attacks prove that clever adaptations cannot overcome a shortage of interceptors.`\
 https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html

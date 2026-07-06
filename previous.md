@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011013677/06vid-khamenei-sprinklers-update-14793.html
+
+**Belgium Expresses Shock After FIFA Lifts U.S. Player’s Suspension**\
+`The American striker Folarin Balogun is eligible to play in a World Cup match against Belgium on Monday night after soccer officials reversed his one-game ban.`\
+https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
+
+**The Latest News**\
+`Catch up after the long weekend.`\
+https://www.nytimes.com/2026/07/06/briefing/the-latest-news.html
+
 **Ukraine Rewrote Air Defense Tactics. Against Russia, It’s Still Not Enough.**\
 `Ukraine has changed how militaries use Patriot systems. But recent attacks prove that clever adaptations cannot overcome a shortage of interceptors.`\
 https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/06/nyregion/news-site-video-school-arrest.html
 **NYT Spelling Bee Answers for July 6, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/06/crosswords/spelling-bee-forum.html
-
-**FIFA Reverses Suspension of Top U.S. Scorer After Trump Call**\
-`FIFA reversed a suspension against Folarin Balogun, the top scorer on the U.S. men’s soccer team this World Cup, after President Trump called FIFA’s president, Gianni Infantino, to ask for a review.`\
-https://www.nytimes.com/video/sports/soccer/100000011013262/balogun-red-card-cleared-fifa-trump.html
-
-**China Test Fires Long-Range Ballistic Missile in the Pacific**\
-`China’s firing of a submarine-launched missile came as Australia secured more defense deals with Pacific Island nations. Countries expressed concern about the test.`\
-https://www.nytimes.com/2026/07/06/world/asia/china-pacific-nuclear-missile-launch.html
-
-**‘The Five-Star Weekend’ and 6 More Shows to Watch on TV This Week**\
-`The adaptation of Elin Hilderbrand’s book airs and the new iteration of “Little House on the Prairie” begins.`\
-https://www.nytimes.com/2026/07/06/arts/television/the-five-star-weekend-what-to-watch-on-tv.html
 
