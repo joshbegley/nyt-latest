@@ -1,3 +1,11 @@
+**Who Might Replace Graham Platner if He Drops Out of the Maine Senate Race?**\
+`Graham Platner can be replaced on the ballot if he withdraws in the next week. If he does, Maine Democrats would face an uncertain two-week race to choose a replacement.`\
+https://www.nytimes.com/2026/07/06/us/politics/who-would-replace-graham-platner-maine.html
+
+**Detective Struck by Friendly Fire in Brooklyn Shooting, Police Say**\
+`The police had first said the detective, who was wearing a bulletproof vest, was shot by a man in the street early Sunday. On Monday, they said that in fact another officer accidentally shot him.`\
+https://www.nytimes.com/2026/07/06/nyregion/nypd-brooklyn-shooting.html
+
 **Trump tiene un nuevo roce con Europa, ahora por el fútbol**\
 `La decisión de la FIFA de revocar la suspensión de un partido de un jugador de la selección de Estados Unidos cayó muy mal en Europa, en un momento en el que la tensión geopolítica ya era alta.`\
 https://www.nytimes.com/es/2026/07/06/espanol/deportes/trump-fifa-balogun-europa-belgica.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/world/europe/100000011013746/france-wildfires-pyre
 **Map: 5.1-Magnitude Earthquake Shakes Chile**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/06/world/quake-tracker-chile.html
-
-**La FIFA revoca la sanción impuesta a Folarin Balogun tras llamada de Trump**\
-`La revocación de la suspensión de Folarin Balogun en el Mundial es muy inusual. Es la primera vez desde 1962 que la FIFA anula una suspensión por una tarjeta roja impuesta durante el Mundial.`\
-https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/trump-fifa-tarjeta-roja-folarin-balogun.html
-
-**Inside Khamenei’s Tehran Procession**\
-`Our reporters visited Tehran under the watchful eye of the Iranian government to witness hundreds of thousands of people line the streets for the procession honoring the country’s slain supreme leader, Ayatollah Ali Khamenei.`\
-https://www.nytimes.com/video/world/middleeast/100000011013627/iran-supreme-leader-khamenei-funeral.html
 
 **Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

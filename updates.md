@@ -1,3 +1,11 @@
+**Who Might Replace Graham Platner if He Drops Out of the Maine Senate Race?**\
+`Graham Platner can be replaced on the ballot if he withdraws in the next week. If he does, Maine Democrats would face an uncertain two-week race to choose a replacement.`\
+https://www.nytimes.com/2026/07/06/us/politics/who-would-replace-graham-platner-maine.html
+
+**Detective Struck by Friendly Fire in Brooklyn Shooting, Police Say**\
+`The police had first said the detective, who was wearing a bulletproof vest, was shot by a man in the street early Sunday. On Monday, they said that in fact another officer accidentally shot him.`\
+https://www.nytimes.com/2026/07/06/nyregion/nypd-brooklyn-shooting.html
+
 **Trump tiene un nuevo roce con Europa, ahora por el fútbol**\
 `La decisión de la FIFA de revocar la suspensión de un partido de un jugador de la selección de Estados Unidos cayó muy mal en Europa, en un momento en el que la tensión geopolítica ya era alta.`\
 https://www.nytimes.com/es/2026/07/06/espanol/deportes/trump-fifa-balogun-europa-belgica.html
