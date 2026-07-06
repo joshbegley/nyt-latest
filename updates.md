@@ -1,3 +1,15 @@
+**Los católicos que desafían al Vaticano y permanecen con una facción rebelde**\
+`El Vaticano excomulgó a los sacerdotes de una facción católica disidente, pero muchos de sus fieles se niegan a romper con ella.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/cisma-catolico-fraternidad-pio-excomulga-papa.html
+
+**Extreme Heat Hits Europe for the Third Time This Year**\
+`It is continent’s third spell of scorching weather since May. Europe is the world’s fastest-warming continent.`\
+https://www.nytimes.com/2026/07/06/weather/europe-heat-wave-latest-wildfire.html
+
+**Trump’s World Cup Intervention Adds New Stress to Europe Ties**\
+`The decision to reverse a one-game ban landed badly in Europe, at a moment of already-heightened geopolitical tension with the United States.`\
+https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
+
 **Inside Bath & Body Works’ Fragrance Factory**\
 `“Japanese Cherry Blossom” has brought in $1.5 billion over the last 20 years. Can the company’s close-knit network of suppliers come up with the next big thing and improve sales?`\
 https://www.nytimes.com/2026/07/06/business/bath-body-works-fragrance-factory.html

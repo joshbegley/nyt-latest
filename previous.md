@@ -1,3 +1,11 @@
+**Los católicos que desafían al Vaticano y permanecen con una facción rebelde**\
+`El Vaticano excomulgó a los sacerdotes de una facción católica disidente, pero muchos de sus fieles se niegan a romper con ella.`\
+https://www.nytimes.com/es/2026/07/06/espanol/mundo/cisma-catolico-fraternidad-pio-excomulga-papa.html
+
+**Extreme Heat Hits Europe for the Third Time This Year**\
+`It is continent’s third spell of scorching weather since May. Europe is the world’s fastest-warming continent.`\
+https://www.nytimes.com/2026/07/06/weather/europe-heat-wave-latest-wildfire.html
+
 **Inside Bath & Body Works’ Fragrance Factory**\
 `“Japanese Cherry Blossom” has brought in $1.5 billion over the last 20 years. Can the company’s close-knit network of suppliers come up with the next big thing and improve sales?`\
 https://www.nytimes.com/2026/07/06/business/bath-body-works-fragrance-factory.html
@@ -142,8 +150,8 @@ https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-resi
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013677/06vid-khamenei-sprinklers-update-14793.html
 
-**Belgium Expresses Shock After FIFA Lifts U.S. Player’s Suspension**\
-`The American striker Folarin Balogun is eligible to play in a World Cup match against Belgium on Monday night after soccer officials reversed his one-game ban.`\
+**Trump’s World Cup Intervention Adds New Stress to Europe Ties**\
+`The decision to reverse a one-game ban landed badly in Europe, at a moment of already-heightened geopolitical tension with the United States.`\
 https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html
 
 **The Latest News**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/06/crosswords/strands-sidekick-856.html
 **Today’s Wordle Hints for July 7, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, July 7, 2026.`\
 https://www.nytimes.com/2026/07/06/crosswords/wordle-review-1844.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/asia/100000011013549/06vid-khamenei-abdi-update-36635.html
-
-**Cumbre de la OTAN en Turquía: lo que hay que saber**\
-`La relación cada vez más tensa entre Estados Unidos y sus aliados de la OTAN se cierne sobre esta reunión de dos días.`\
-https://www.nytimes.com/es/2026/07/06/espanol/mundo/otan-cumbre-turquia.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
