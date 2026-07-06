@@ -1,3 +1,7 @@
+**Food and Beverages Have Gone Bananas**\
+`America’s most-eaten fresh fruit has hit cafe menus, snack-aisle shelves and drink fridges with unexpected force. Is it the next pumpkin spice?`\
+https://www.nytimes.com/2026/07/06/dining/food-drink-banana-flavor.html
+
 **Terremotos en Venezuela: los sitios para rastrear a desaparecidos**\
 `Medios de comunicación y figuras de la oposición venezolana empezaron a citar las cifras de estos sitios como prueba de la gravedad del desastre y de las deficiencias en la respuesta del gobierno.`\
 https://www.nytimes.com/es/2026/07/06/espanol/america-latina/venezuela-terremotos-desaparecidos.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/business/dealbook/trump-world-cup-infantino.h
 **Fatigue, Tension, Joy: England Pulls a World Cup All-Nighter**\
 `The game against Mexico started at 2 a.m. in Britain. Pubs were allowed to stay open unusually late for fans to share the drama together.`\
 https://www.nytimes.com/2026/07/06/world/europe/england-mexico-world-cup-london.html
-
-**Ships Are Moving In and Out of the Persian Gulf, Easing Oil Prices**\
-`A recovery in oil flows from the Persian Gulf and a pledge by OPEC Plus to pump more crude have put downward pressure on energy prices.`\
-https://www.nytimes.com/2026/07/06/business/hormuz-strait-shipping-oil.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
