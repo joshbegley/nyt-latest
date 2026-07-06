@@ -1,3 +1,11 @@
+**Try This Quiz on Literary Quotations About American Life**\
+`Test your knowledge of novels, essays and poems that made insightful observations.`\
+https://www.nytimes.com/interactive/2026/07/06/books/review/american-life-quotes.html
+
+**As Mourners for Khamenei Descend on Tehran, Many Residents Take Flight**\
+`Some residents have escaped the city and posted photos of their getaways on social media — a reminder that not all Iranians are mourning the death of Ayatollah Khamenei.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-residents-exodus.html
+
 **De Haití a Venezuela: el cambio de la ayuda internacional de EE. UU.**\
 `La respuesta humanitaria que Estados Unidos envió a Haití tras un terremoto en 2010 ensombrece lo que ha prometido para Venezuela, un país devastado por sus propios temblores.`\
 https://www.nytimes.com/es/2026/07/06/espanol/america-latina/terremoto-venezuela-haiti-ayuda-eeuu.html
