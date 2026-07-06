@@ -1,3 +1,7 @@
+**Iranians Mourn a Slain Leader, and Call for Vengeance**\
+`Million of people filled the streets of Iran to bid farewell to Ayatollah Ali Khamenei, who was killed in the war with the United States and Israel.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/iran-khamenei-funeral.html
+
 **Four Dead, Including a Police Officer, in Ohio Shooting**\
 `Law enforcement officers were investigating a break-in and gunfire in Rittman. A suspect, his former partner and her teenage daughter were also dead.`\
 https://www.nytimes.com/2026/07/06/us/shooting-rittman-ohio-officer-dead.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/es/2026/07/06/espanol/opinion/dormir-8-horas-sueno-salud
 `Mrs. Kirk is at the center of conspiracy theories, atop a political organization in transition and facing a personal test.`\
 https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html
 
-**Heat waves are taking a big toll on chickens**\
+**Heat Waves Are Taking a Big Toll on Chickens**\
 `The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
 https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/world/middleeast/mashhad-iran-khamenei-buried
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011013919/06visualUploader-82435.html
-
-**Riot in Sri Lanka’s Negombo prison leaves at least 23 dead**\
-`The country has faced criticism from human rights activists for the conditions in its prisons, including overcrowding and failing to protect inmates.`\
-https://www.nytimes.com/2026/07/06/world/asia/sri-lanka-prison-riot-dead.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

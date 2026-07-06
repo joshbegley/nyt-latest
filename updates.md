@@ -1,3 +1,11 @@
+**Iranians Mourn a Slain Leader, and Call for Vengeance**\
+`Million of people filled the streets of Iran to bid farewell to Ayatollah Ali Khamenei, who was killed in the war with the United States and Israel.`\
+https://www.nytimes.com/2026/07/06/world/middleeast/iran-khamenei-funeral.html
+
+**Heat Waves Are Taking a Big Toll on Chickens**\
+`The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
+https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
+
 **Four Dead, Including a Police Officer, in Ohio Shooting**\
 `Law enforcement officers were investigating a break-in and gunfire in Rittman. A suspect, his former partner and her teenage daughter were also dead.`\
 https://www.nytimes.com/2026/07/06/us/shooting-rittman-ohio-officer-dead.html
