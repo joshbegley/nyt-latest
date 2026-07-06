@@ -1,3 +1,7 @@
+**The World Cup Revived Seattle’s Downtown. Will the Energy Last?**\
+`The city struggled for years after the pandemic shutdown and the rush to remote work. But downtown has been full of soccer fans for the past month.`\
+https://www.nytimes.com/2026/07/06/us/world-cup-downtown-seattle-revitalization.html
+
 **Intense Storms Cause Flash Flooding Across Northeast**\
 `Over the weekend, sporadic and dangerous storms hit Connecticut, New York, New Jersey and Pennsylvania with torrential rain and winds up to 90 miles per hour. The inclement weather continued on Monday, leading to flash flooding.`\
 https://www.nytimes.com/video/weather/100000011015052/tri-state-rain-flooding-storm.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/dining/food-drink-banana-flavor.html
 **Terremotos en Venezuela: los sitios para rastrear a desaparecidos**\
 `Medios de comunicación y figuras de la oposición venezolana empezaron a citar las cifras de estos sitios como prueba de la gravedad del desastre y de las deficiencias en la respuesta del gobierno.`\
 https://www.nytimes.com/es/2026/07/06/espanol/america-latina/venezuela-terremotos-desaparecidos.html
-
-**Mapa: un terremoto de magnitud 5,1 sacude Chile**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/07/06/espanol/terremoto-chile.html
 
 **Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

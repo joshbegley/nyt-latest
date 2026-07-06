@@ -1,3 +1,7 @@
+**Intense Storms Cause Flash Flooding Across Northeast**\
+`Over the weekend, sporadic and dangerous storms hit Connecticut, New York, New Jersey and Pennsylvania with torrential rain and winds up to 90 miles per hour. The inclement weather continued on Monday, leading to flash flooding.`\
+https://www.nytimes.com/video/weather/100000011015052/tri-state-rain-flooding-storm.html
+
 **Trump Wanted a U.S. Soccer Star to Play in the World Cup. FIFA Found a Way.**\
 `There was nothing unusual about a call from President Trump or the reversal of Folarin Balogun’s suspension, said the president of FIFA, Gianni Infantino.`\
 https://www.nytimes.com/2026/07/06/world/europe/fifa-trump-infantino-world-cup-red-card.html
