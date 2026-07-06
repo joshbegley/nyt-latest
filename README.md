@@ -1,3 +1,7 @@
+**Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
+https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
+
 **‘Confessions II’ Review: Madonna Returns to the Dance Floor**\
 `On “Confessions II,” a successor to her hit 2005 album “Confessions on a Dance Floor,” the pop superstar gives new energy to her origin story and shines light on the troubles she’s danced away.`\
 https://www.nytimes.com/2026/07/06/arts/music/madonna-confessions-ii-album-review.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/dining/the-simple-meal-im-making-before-vacat
 **El Mundial les dio una ilusión a los mexicanos**\
 `El éxito inicial de la selección mexicana unió y emocionó a todo el país, y les dio a los aficionados un motivo para salir a las calles a celebrar en lugar de protestar.`\
 https://www.nytimes.com/es/2026/07/06/espanol/mexico-eliminado-mundial.html
-
-**Iran to Bury Ayatollah Ali Khamenei in Holy City of Mashhad**\
-`The city of three million people is home to a gold-domed shrine that Shiite Muslims revere as Iran’s most sacred site. The final ceremony will take place there on Thursday.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/mashhad-iran-khamenei-buried.html
 
 **Live Updates: Officer Tells of Charlie Kirk’s Death and the Hunt for a Killer**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
