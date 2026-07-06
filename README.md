@@ -1,3 +1,11 @@
+**aDe Haití a Venezuela: el cambio de la ayuda internacional de EE. UU.**\
+`La respuesta humanitaria que Estados Unidos envió a Haití tras un terremoto en 2010 ensombrece lo que ha prometido para Venezuela, un país devastado por sus propios temblores.`\
+https://www.nytimes.com/es/2026/07/06/espanol/america-latina/terremoto-venezuela-haiti-ayuda-eeuu.html
+
+**Who is Ahead in Florida's 25th Congressional District?**\
+`Track the latest polls in Florida's 25th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-25-polls-2026.html
+
 **Russia Attacks Ukraine’s Capital for Second Time in Less Than a Week**\
 `Russia launched its second major attack on Kyiv, Ukraine’s capital, in less than a week. The deadly strikes occurred a day before a NATO summit expected to focus on the alliance’s response to the war.`\
 https://www.nytimes.com/video/world/europe/100000011013564/russia-ukraine-kyiv-attack.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/06/opinion/jewish-america-identity.html
 **For Families With Nonspeaking Autistic Children, a Fierce Debate Over Assisted Spelling**\
 `Popular communication methods for nonspeaking autistic people have ignited a fierce debate over what counts as evidence of hidden cognitive abilities.`\
 https://www.nytimes.com/2026/07/06/science/autism-assisted-spelling-nonspeaking.html
-
-**Why A.I. Won’t Give Us a Four-Day Workweek**\
-`The very leaders rhapsodizing about a shorter workweek are demanding more time, not less, from their employees.`\
-https://www.nytimes.com/2026/07/06/opinion/ai-four-day-work-week-office.html
-
-**Book Review: ‘The Simp,’ by Roshan Sethi**\
-`“The Simp,” by Roshan Sethi, is a satire of the unending demands, learned helplessness and stubborn racism of Hollywood elites.`\
-https://www.nytimes.com/2026/07/06/books/review/roshan-sethi-the-simp.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
