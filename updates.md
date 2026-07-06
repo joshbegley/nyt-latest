@@ -1,3 +1,7 @@
+**NATO Needs Turkey**\
+`The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
+https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
+
 **¿Qué sabemos de la boda de Taylor Swift y Travis Kelce?**\
 `Desde la decoración inspirada en un jardín hasta las albóndigas (de la cena de ensayo), poco a poco se van conociendo detalles cuidadosamente planificados de este evento ultrasecreto.`\
 https://www.nytimes.com/es/2026/07/06/espanol/estilos-de-vida/boda-taylor-swift-travis-kelce.html
