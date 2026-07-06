@@ -1,3 +1,7 @@
+**Comcast Adds Heft With Sky’s Deal for British Broadcaster ITV**\
+`The $2.1 billion purchase would combine two major British media outlets and help the Comcast-owned Sky compete with streaming giants.`\
+https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/06/learning/word-of-the-day-perfidious.html
 **Britain’s Likely Next Prime Minister Made His Name in Manchester. Here’s How.**\
 `Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
 https://static01.nyt.com/slideshow/2026/07/06/world/britains-likely-next-prime-minister-made-his-name-in-manchester-heres-how.html
-
-**The World Cup Gave Mexicans a Fantasy They Won’t Soon Forget**\
-`The Mexican team’s early success united and electrified the nation, giving fans a reason to fill the streets in celebration instead of protest.`\
-https://www.nytimes.com/2026/07/06/world/americas/world-cup-mexico-city.html
 
 **Iran Live Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
