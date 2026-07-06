@@ -1,3 +1,7 @@
+**Trump Wanted a U.S. Soccer Star to Play in the World Cup. FIFA Found a Way.**\
+`There was nothing unusual about a call from President Trump or the reversal of Folarin Balogun’s suspension, said the president of FIFA, Gianni Infantino.`\
+https://www.nytimes.com/2026/07/06/world/europe/fifa-trump-infantino-world-cup-red-card.html
+
 **Trump Expected to Tell Turkey He Is Ready to Restore Access to F-35 Jets**\
 `The president, who is headed to a NATO summit in Ankara this week, had imposed the ban himself amid concerns that giving Turkey the jets could allow Russia to learn about their stealth technology.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-turkey-f35.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/es/interactive/2026/07/06/espanol/terremoto-chile.html
 `“Use it to enhance, not replace,” advises Dr. Dana Suskind, an early learning specialist who appeared on the “Hard Fork” podcast to share her advice on using A.I. to parent young children.`\
 https://www.nytimes.com/video/podcasts/100000011014461/what-are-safe-ai-use-cases-for-toddlers.html
 
-**Understanding the World Cup in 3 Books**\
-`Miguel Salazar of the New York Times Books Review recommends three titles that can help you understand the history of the World Cup.`\
-https://www.nytimes.com/video/books/100000010953525/understanding-the-world-cup-in-3-books.html
-
-**Live Updates: Prosecutors Deploy Videos in Charlie Kirk’s Assassination Hearing**\
+**Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
 https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
 
