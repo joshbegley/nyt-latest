@@ -1,3 +1,7 @@
+**Platner Will Take Time to ‘Reflect’ on Campaign After Sexual Assault Accusation**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation “false.” He did not say if he would continue his campaign.`\
+https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
+
 **‘Confessions II’ Review: Madonna Returns to the Dance Floor**\
 `On “Confessions II,” a successor to her hit 2005 album “Confessions on a Dance Floor,” the pop superstar gives new energy to her origin story and shines light on the troubles she’s danced away.`\
 https://www.nytimes.com/2026/07/06/arts/music/madonna-confessions-ii-album-review.html
