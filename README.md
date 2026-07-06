@@ -1,3 +1,15 @@
+**La FIFA revoca la sanción impuesta a Folarin Balogun tras llamada de Trump**\
+`La revocación de la suspensión de Folarin Balogun en el Mundial es muy inusual. Es la primera vez desde 1962 que la FIFA anula una suspensión por una tarjeta roja impuesta durante el Mundial.`\
+https://www.nytimes.com/es/2026/07/06/espanol/estados-unidos/trump-fifa-tarjeta-roja-folarin-balogun.html
+
+**Inside Khamenei’s Tehran Procession**\
+`Our reporters visited Tehran under the watchful eye of the Iranian government to witness hundreds of thousands of people line the streets for the procession honoring the country’s slain supreme leader, Ayatollah Ali Khamenei.`\
+https://www.nytimes.com/video/world/middleeast/100000011013627/iran-supreme-leader-khamenei-funeral.html
+
+**Trump rings stock market’s opening bell to celebrate Trump accounts.**\
+`The government-funded savings accounts for children became available on Saturday.`\
+https://www.nytimes.com/2026/07/06/us/politics/trump-accounts-white-house-opening-bell-ceremony.html
+
 **Trump Cashes In While Others Lose Out**\
 `Readers react to President Trump’s windfall. Also: Mr. Trump’s intervention in the World Cup; Taylor Swift, feminist bride; rich political donors.`\
 https://www.nytimes.com/2026/07/06/opinion/trump-windfall.html
@@ -158,10 +170,6 @@ https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
 
-**Trump Administration Live Updates: President Says He Instigated Review of U.S. Player’s World Cup Ban**\
-`(No description)`\
-https://www.nytimes.com/live/2026/07/06/us/trump-news
-
 **As Mourners for Khamenei Descend on Tehran, Many Residents Take Flight**\
 `Some residents have escaped the city and posted photos of their getaways on social media — a reminder that not all Iranians are mourning the death of Ayatollah Khamenei.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-residents-exodus.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.ht
 **The Latest News**\
 `Catch up after the long weekend.`\
 https://www.nytimes.com/2026/07/06/briefing/the-latest-news.html
-
-**Ukraine Remade Air Defense, but Russia Has Changed Its Attacks**\
-`Ukraine has changed how militaries use Patriot systems. But recent attacks prove that clever adaptations cannot overcome a shortage of interceptors.`\
-https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html
-
-**Balogun Back for USMNT’s Clash With Belgium**\
-`The U.S. receive an unexpected boost ahead of their last 16 encounter with the Red Devils.`\
-https://www.nytimes.com/2026/07/06/podcasts/balogun-usmnt-belgium-ronaldo-yamal.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
