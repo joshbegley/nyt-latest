@@ -1,3 +1,7 @@
+**Mexico’s World Cup Moment Is Pure, Fragile Magic**\
+`In Mexico City, World Cup euphoria is overshadowing political gloom.`\
+https://www.nytimes.com/2026/07/05/opinion/mexico-world-cup-soccer.html
+
 **NYT Crossword Answers for July 6, 2026**\
 `Alex Eaton-Salners proves himself a key figure in the crossword scene.`\
 https://www.nytimes.com/2026/07/05/crosswords/daily-puzzle-2026-07-06.html
