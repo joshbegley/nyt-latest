@@ -1,3 +1,7 @@
+**Understanding the World Cup in 3 Books**\
+`Miguel Salazar of the New York Times Books Review recommends three titles that can help you understand the history of the World Cup.`\
+https://www.nytimes.com/video/books/100000010953525/understanding-the-world-cup-in-3-books.html
+
 **Bill Frist Wants to Take Politics Out of Climate Change**\
 `Bill Frist, a surgeon who also served as Senate majority leader, has emerged as an outspoken advocate for environmental health. “A healthier planet means healthier people,” he said.`\
 https://www.nytimes.com/2026/07/06/climate/bill-frist-climate-change-republican-politics.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/06/business/media/comcast-sky-itv.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011013691/06vid-khamenei-destruction-update-80649.html
-
-**As Mourners for Khamenei Descend on Tehran, Many Residents Take Flight**\
-`Some residents have escaped the city and posted photos of their getaways on social media — a reminder that not all Iranians are mourning the death of Ayatollah Khamenei.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/khamenei-funeral-tehran-residents-exodus.html
 
 **Iran Updates: Hundreds of Thousands Attend Ayatollah’s Funeral Procession**\
 `Huge crowds of mourners came to view the casket of Ayatollah Ali Khamenei, who was exalted by some and despised by others. He was killed four months ago at the start of the U.S.-Israeli attacks.`\
