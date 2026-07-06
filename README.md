@@ -1,3 +1,7 @@
+**Word of the Day: perfidious**\
+`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/06/learning/word-of-the-day-perfidious.html
+
 **Britain’s Likely Next Prime Minister Made His Name in Manchester. Here’s How.**\
 `Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
 https://static01.nyt.com/slideshow/2026/07/06/world/britains-likely-next-prime-minister-made-his-name-in-manchester-heres-how.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/05/dining/andy-baraghanis-chicken-salad-is-full-
 **The New, Unsustainable Art World**\
 `Readers respond to a guest essay by a former global art director about the struggles that galleries face.`\
 https://www.nytimes.com/2026/07/05/opinion/art-galleries-globalization.html
-
-**Stop Stressing About Sleep**\
-`The evidence for needing eight hours of sleep a night is shakier than we might assume.`\
-https://www.nytimes.com/2026/07/05/opinion/sleep-health-8-hours.html
 
