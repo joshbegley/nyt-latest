@@ -1,3 +1,27 @@
+**Andy Burnham, the UK’s Likely Next Prime Minister, Made His Name in Manchester. Here’s How.**\
+`Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
+https://www.nytimes.com/2026/07/06/world/europe/andy-burnham-manchesterism-uk.html
+
+****\
+`As mayor, Mr. Burnham brought Manchester’s trams and privatized bus services into a single tightly regulated public system, the Bee Network.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011001283/00int-uk-manchester-79123.html
+
+**How Manchester’s Bee Buses and Trams Helped Fuel Andy Burnham’s Rise**\
+`Andy Burnham brought Greater Manchester’s public transit back under public control, making buses more frequent and capping fares.`\
+https://www.nytimes.com/2026/07/06/world/europe/buses-andy-burnham-greater-manchester-bee.html
+
+**10-Minute Challenge: The Ceiling at Grand Central**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/07/06/upshot/ten-minute-challenge-grand-central.html
+
+**No Corrections: July 6, 2026**\
+`No corrections appeared in print on Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/06/corrections/no-corrections-july-6-2026.html
+
+**Quote of the Day: Wartime Sign for Russians: ‘Out of Gas’**\
+`Quotation of the Day for Monday, July 6, 2026.`\
+https://www.nytimes.com/2026/07/06/pageoneplus/quote-of-the-day-wartime-sign-for-russians-out-of-gas.html
+
 **Typhoon Bavi Pounds Guam and Northern Mariana Islands**\
 `There was an island-wide power outage on Saipan, the capital of the Northern Mariana Islands, as the Category 5 storm approached.`\
 https://www.nytimes.com/2026/07/05/weather/super-typhoon-bavi-guam-saipan.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/05/opinion/nato-summit-ankara-turkey.html
 **The Most American Episode of the Daily, Ever.**\
 `What 23 very American things tell us about our country.`\
 https://www.nytimes.com/2026/07/05/podcasts/the-daily/the-most-american-episode-of-the-daily-ever.html
-
-**Today’s Wordle Hints for July 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
-https://www.nytimes.com/2026/07/05/crosswords/wordle-review-1843.html
-
-**NYT Connections Answers for July 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
-https://www.nytimes.com/2026/07/05/crosswords/connections-companion-1121.html
-
-**I’m a Therapist. Not Everyone Should Be in Therapy.**\
-`Many patients misunderstand what therapy reliably provides.`\
-https://www.nytimes.com/2026/07/05/opinion/therapy-loneliness-friendship.html
-
-**NYT Strands Hints for July 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 6, 2026.`\
-https://www.nytimes.com/2026/07/05/crosswords/strands-sidekick-855.html
-
-**Mourners Chant ‘Revenge’ at Funeral Prayers for Iran’s Slain Supreme Leader**\
-`On the second day of public mourning for Ayatollah Ali Khamenei, who was killed in February, there was still no sign of his son and successor, Mojtaba Khamenei.`\
-https://www.nytimes.com/2026/07/05/world/middleeast/iran-funeral-supreme-leader.html
-
-**Far From Kyiv and Moscow, Soldiers Stalk Ruins and Evade Drones on the Front**\
-`Ukraine’s military has denied a Kremlin claim to have taken a city in the eastern Donetsk region, saying its troops are holding out against infiltrating Russians.`\
-https://www.nytimes.com/2026/07/05/world/europe/ukraine-russia-donetsk-front.html
 
