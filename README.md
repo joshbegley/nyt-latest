@@ -1,3 +1,7 @@
+**Ukraine Rewrote Air Defense Tactics. Against Russia, It’s Still Not Enough.**\
+`Ukraine has changed how militaries use Patriot systems. But recent attacks prove that clever adaptations cannot overcome a shortage of interceptors.`\
+https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html
+
 **Balogun Back for USMNT’s Clash With Belgium**\
 `The U.S. receive an unexpected boost ahead of their last 16 encounter with the Red Devils.`\
 https://www.nytimes.com/2026/07/06/podcasts/balogun-usmnt-belgium-ronaldo-yamal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/06/world/asia/china-pacific-nuclear-missile-laun
 **‘The Five-Star Weekend’ and 6 More Shows to Watch on TV This Week**\
 `The adaptation of Elin Hilderbrand’s book airs and the new iteration of “Little House on the Prairie” begins.`\
 https://www.nytimes.com/2026/07/06/arts/television/the-five-star-weekend-what-to-watch-on-tv.html
-
-**Andy Burnham, the UK’s Likely Next Prime Minister, Made His Name in Manchester. Here’s How.**\
-`Andy Burnham was mayor of Greater Manchester for nine years. His time there came to define his identity — and his pitch to lead Britain.`\
-https://www.nytimes.com/2026/07/06/world/europe/andy-burnham-manchesterism-uk.html
 
