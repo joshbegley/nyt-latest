@@ -1,4 +1,8 @@
 **México necesitaba esto**\
+`La euforia por el Mundial había eclipsado el pesimismo político.`\
+https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
+
+**México necesitaba esto**\
 `La euforia por el Mundial está eclipsando el pesimismo político.`\
 https://www.nytimes.com/es/2026/07/05/espanol/opinion/mexico-inglaterra-mundial.html
 
