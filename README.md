@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011016827/07-vid-mamdani-conference-building.html
+
+**Mariska Hargitay to Host the Emmys**\
+`The “Law & Order: SVU” star is a departure from the comedians and sitcom actors who have typically hosted the annual awards show.`\
+https://www.nytimes.com/2026/07/07/business/media/mariska-hargitay-emmys-host.html
+
 **Jungsik Yim Charts an Eight-Course Tour of Asia at MŪJE**\
 `Cipriani Dolci reopens after a renovation, Maison Madison leans on Parisian glamour and more restaurant news.`\
 https://www.nytimes.com/2026/07/07/dining/nyc-restaurant-news.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/opinion/ezra-klein-podcast-may-pundak-rula-ha
 **Estonia ganó la guerra contra el fentanilo. Lo que vino después fue peor**\
 `A pesar de su éxito contra el fentanilo, se están produciendo sustancias extremadamente potentes a tal velocidad que las agencias creadas en Estonia para detenerlas están desconcertadas.`\
 https://www.nytimes.com/es/2026/07/07/espanol/mundo/estonia-fentanil-drogas-sobredosis.html
-
-**A Supreme Court Case on AR-15s Could Hinge on Their ‘Common Use’**\
-`Last week, the Supreme Court took up challenges to two assault weapons bans. Its decision could seriously limit the government’s ability to ban certain guns.`\
-https://www.nytimes.com/2026/07/07/us/supreme-court-assault-weapons-bans.html
-
-**Abandoned by Allies, Graham Platner Faces Pressure to End Maine Senate Campaign**\
-`After Graham Platner, the Democratic nominee in Maine, was accused of rape, much of the party and several key supporters turned against him.`\
-https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate.html
 
