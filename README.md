@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/07/07/well/americans-taking-weight-loss-drugs.html
 https://www.nytimes.com/2026/07/07/learning/word-of-the-day-deficit.html
 
 **Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
-`Typhoon Maysak has been lashing Southern China for days, bursting dam walls and inundating homes and farms.`\
+`Typhoon Maysak has been lashing southern China for days, bursting dam walls and inundating homes and farms.`\
 https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
 
 **Las empresas de IA ahora contratan a filósofos**\
