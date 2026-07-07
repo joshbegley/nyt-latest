@@ -1,3 +1,11 @@
+**What to Know About Manhattan Office Conversions**\
+`The city has encouraged more complex office-to-residential conversions to fight the housing crisis.`\
+https://www.nytimes.com/2026/07/07/nyregion/office-residential-explainer-faq.html
+
+**‘Beams Started Bending’: Midtown Manhattan Building Sags Dangerously**\
+`Offices and hotels around East 42nd Street were evacuated after structural damage affected an office conversion project. Traffic was halted in the area. No injuries were reported.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-housing-project.html
+
 **Maryland Moves Toward Redistricting Ahead of 2028**\
 `Lawmakers at a special legislative session next month will try to pass an amendment to the state constitution that should ensure new congressional maps survive a legal challenge.`\
 https://www.nytimes.com/2026/07/07/us/politics/maryland-redistricting.html

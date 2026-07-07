@@ -1,3 +1,11 @@
+**What to Know About Manhattan Office Conversions**\
+`The city has encouraged more complex office-to-residential conversions to fight the housing crisis.`\
+https://www.nytimes.com/2026/07/07/nyregion/office-residential-explainer-faq.html
+
+**‘Beams Started Bending’: Midtown Manhattan Building Sags Dangerously**\
+`Offices and hotels around East 42nd Street were evacuated after structural damage affected an office conversion project. Traffic was halted in the area. No injuries were reported.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-housing-project.html
+
 **Maryland Moves Toward Redistricting Ahead of 2028**\
 `Lawmakers at a special legislative session next month will try to pass an amendment to the state constitution that should ensure new congressional maps survive a legal challenge.`\
 https://www.nytimes.com/2026/07/07/us/politics/maryland-redistricting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/us/100000011016891/07visualUploader-60479
 **Los terremotos en Venezuela fueron mortales. ¿Por qué?**\
 `Una serie de factores desafortunados —dos terremotos seguidos muy de cerca, una falla que se rompió en dirección a Caracas, un terreno blando y la poca profundidad del terremoto— se combinaron para que los terremotos de Venezuela fueran inusualmente letales.`\
 https://www.nytimes.com/es/interactive/2026/07/07/espanol/america-latina/venezuela-terremoto-causas.html
-
-**Kung Pao Tofu**\
-`Fiery from dried chiles, tingling with Sichuan peppercorns and studded with peanuts, this kung pao tofu recipe, linked below, is a vegetarian take on kung pao chicken, the classic Chinese American restaurant staple.`\
-https://www.nytimes.com/video/dining/100000011016675/kung-pao-tofu.html
-
-**Venezuelans Criticize Own Government Response After Twin Earthquakes**\
-`Venezuelans are publicly expressing their anger over their government’s disaster response, despite the risk of imprisonment.`\
-https://www.nytimes.com/2026/07/07/world/americas/venezuela-earthquakes-delcy-rodriguez-trump.html
 
