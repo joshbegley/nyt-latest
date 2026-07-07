@@ -1,3 +1,7 @@
+**Muere el ‘Indio’ Solari, leyenda del rock argentino**\
+`Un icono de la contracultura con gran atractivo, se comparaba a sí mismo con Bob Dylan y se ganó un público especialmente fiel entre la juventud de clase trabajadora.`\
+https://www.nytimes.com/es/2026/07/06/espanol/cultura/muere-indio-solari.html
+
 **NYT Crossword Answers for July 7, 2026**\
 `Brad Lively gets sentimental.`\
 https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-07.html
@@ -118,7 +122,7 @@ https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
 `The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
 https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
 
-**Live Updates: Calls Mount for Platner to End Campaign After Rape Accusation**\
+**Calls Mount for Platner to End Campaign After Rape Accusation**\
 `After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
 https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
 
@@ -141,6 +145,10 @@ https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
 **Canada Bets on NATO Partners for Its Expanded Submarine Fleet**\
 `In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
 https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
+
+**Platner’s Democratic Support Evaporates After Sexual Assault Allegation**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation false but said he would “reflect” on his political path forward, as many allies rescinded their endorsements.`\
+https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
 
 **‘Confessions II’ Review: Madonna Returns to the Dance Floor**\
 `On “Confessions II,” a successor to her hit 2005 album “Confessions on a Dance Floor,” the pop superstar gives new energy to her origin story and shines light on the troubles she’s danced away.`\
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html
 **Heat Waves Are Taking a Big Toll on Chickens**\
 `The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
 https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
-
-**Michigan Senate Primary Gives Democrats Stark Choice Between Progressive and Moderate Candidate**\
-`The state’s important Senate primary just became a head-to-head battle between Abdul El-Sayed, an outspoken left-wing candidate, and Haley Stevens, a moderate backed by party leaders.`\
-https://www.nytimes.com/2026/07/06/us/politics/michigan-primary-democrats-stevens-el-sayed.html
 
 **Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

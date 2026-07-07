@@ -1,3 +1,15 @@
+**Muere el ‘Indio’ Solari, leyenda del rock argentino**\
+`Un icono de la contracultura con gran atractivo, se comparaba a sí mismo con Bob Dylan y se ganó un público especialmente fiel entre la juventud de clase trabajadora.`\
+https://www.nytimes.com/es/2026/07/06/espanol/cultura/muere-indio-solari.html
+
+**Calls Mount for Platner to End Campaign After Rape Accusation**\
+`After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
+https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
+
+**Platner’s Democratic Support Evaporates After Sexual Assault Allegation**\
+`Graham Platner, the Democratic Senate candidate in Maine, called the allegation false but said he would “reflect” on his political path forward, as many allies rescinded their endorsements.`\
+https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
+
 **NYT Crossword Answers for July 7, 2026**\
 `Brad Lively gets sentimental.`\
 https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-07.html
