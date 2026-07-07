@@ -1,3 +1,7 @@
+**Trump and the U.S. Loss in the World Cup**\
+`Readers react to the U.S. loss in the World Cup and President Trump’s meddling. Also: Effects of Supreme Court rulings; hanging out without phones.`\
+https://www.nytimes.com/2026/07/07/opinion/world-cup-trump.html
+
 **El papa León se enfrenta a la primera crisis de su pontificado**\
 `Un enfrentamiento inminente entre el papa León y los católicos ultratradicionalistas amenaza con poner fin a la luna de miel del pontífice.`\
 https://www.nytimes.com/es/2026/07/07/espanol/opinion/papa-leon-iglesia-catolica-crisis.html
