@@ -1,3 +1,7 @@
+**‘This Has Not Given Us Safety’**\
+`The Israeli activist May Pundak advocated the two-state solution for many years, but her confidence faded as she saw the idea lose relevance. On “The Ezra Klein Show,” Pundak explains why there’s a need for a new way of thinking — and a new plan for the future of the region.`\
+https://www.nytimes.com/video/opinion/100000011002639/this-has-not-given-us-safety.html
+
 **U.S. Strikes Iran and Reimposes Sanctions After Tanker Attacks**\
 `The military operation came hours after the U.S. Treasury revoked a waiver allowing global sales of Iranian oil.`\
 https://www.nytimes.com/2026/07/07/us/politics/us-strikes-iran-tanker-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theo
 **What to Know About the Building at Risk of Collapse in Manhattan**\
 `The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
-
-**Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
-`The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-apartment-conversions.html
 
