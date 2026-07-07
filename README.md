@@ -1,3 +1,31 @@
+**Joining a Human Tide of Mourners Flowing Through Tehran’s Streets**\
+`After days of public mourning ceremonies in the Iranian capital, Ayatollah Ali Khamenei’s coffin arrived in Tehran’s Azadi Square. This is what I saw covering the miles-long procession on Monday.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/joining-a-human-tide-of-mourners-flowing-through-tehrans-streets.html
+
+**Quote of the Day: Ankara Moves to Stifle Critics Amid Summit**\
+`Quotation of the Day for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/07/pageoneplus/quote-of-the-day-ankara-moves-to-stifle-critics-amid-summit.html
+
+**In NATO’s Next Act, Can Europe Play the Leading Role?**\
+`The focus at a leaders’ summit in Turkey this week will be on building a new model for the alliance, as President Trump pushes to do less and pressures others do more.`\
+https://www.nytimes.com/2026/07/07/world/europe/nato-trump-rutte-ankara-turkey.html
+
+**A Long-Awaited Verdict for Marine Le Pen Could Reshape France’s Politics**\
+`A court will decide on Tuesday whether to uphold Ms. Le Pen’s embezzlement conviction. If it does, the far-right leader will probably be barred from running for the presidency next year.`\
+https://www.nytimes.com/2026/07/07/world/europe/marine-le-pen-verdict-election-ban-appeal.html
+
+**Fans Celebrate Taylor Swift and Travis Kelce’s Wedding With Charitable Donations**\
+`Inspired by Taylor Swift and Travis Kelce’s $26 million charitable gifts ahead of their wedding, Swifties are expressing their own generosity through donations to causes the couple supports.`\
+https://www.nytimes.com/2026/07/07/style/taylor-swift-travis-kelce-wedding-fans-charity-donations.html
+
+**Trump’s Tenuous Relationship With NATO Allies**\
+`At this year’s NATO summit in Turkey, President Trump is arriving with his own priorities — and, as Tyler Pager, The Times’s White House correspondent, explains, they do not necessarily align with those of other NATO leaders.`\
+https://www.nytimes.com/video/us/100000011005338/trumps-tenuous-relationship-with-nato-allies.html
+
+**Samsung Made More Profit Last Quarter Than the Last Two Years Combined**\
+`The A.I. boom has propelled the South Korean tech giant’s earnings, but its shares sank as investors had even loftier expectations.`\
+https://www.nytimes.com/2026/07/06/business/samsung-earnings-chips.html
+
 **Muere el ‘Indio’ Solari, leyenda del rock argentino**\
 `Un icono de la contracultura con gran atractivo, se comparaba a sí mismo con Bob Dylan y se ganó un público especialmente fiel entre la juventud de clase trabajadora.`\
 https://www.nytimes.com/es/2026/07/06/espanol/cultura/muere-indio-solari.html
@@ -165,34 +193,6 @@ https://www.nytimes.com/2026/07/06/us/shooting-rittman-ohio-officer-dead.html
 **Will Prince Harry’s Trip to Britain Repair or Deepen the Royal Rift?**\
 `Harry arrived in London Monday night for a visit that has already been overshadowed by drama and confusion over his plans.`\
 https://www.nytimes.com/2026/07/06/world/europe/prince-harry-uk-meghan-king-charles.html
-
-**Richard H. Glanton, Combative Head of Barnes Foundation, Dies at 79**\
-`In the 1990s, he took 80 of the art institution’s paintings on tour — going against the founder’s wishes — to raise money for a renovation.`\
-https://www.nytimes.com/2026/07/06/arts/design/richard-h-glanton-dead.html
-
-**McConnell Has Been Hospitalized for 3 Weeks, and Aides Won’t Say Why**\
-`Senator Mitch McConnell was admitted to the hospital on June 14, and his office has provided few updates about his condition. Here’s what we know.`\
-https://www.nytimes.com/2026/07/06/us/politics/mitch-mcconell-health-hospitalization.html
-
-**El funeral del líder supremo de Irán, el ayatolá Alí Jameneí**\
-`Los nuevos líderes de Irán están rindiendo homenaje al ayatolá Jameneí, que murió el primer día de la guerra de EE. UU. e Israel contra el país.`\
-https://www.nytimes.com/es/2026/07/06/espanol/mundo/iran-funeral-ayatollah-ali-jamenei.html
-
-**‘Excited but Shocked’: U.S. Soccer Fans Struggle With Trump’s FIFA Call**\
-`Americans wrestled with definitions of fairness, after the president intervened in the World Cup to reinstate a star player.`\
-https://www.nytimes.com/2026/07/06/us/politics/trump-folarin-balogun-fans-reaction.html
-
-**Es posible que no necesites dormir 8 horas**\
-`Dormir bien, o no hacerlo, es una de las preocupaciones de salud más recurrentes, pero la ansiedad por los parámetros del sueño puede mermar la calidad del mismo.`\
-https://www.nytimes.com/es/2026/07/06/espanol/opinion/dormir-8-horas-sueno-salud.html
-
-**Erika Kirk Attends Hearing for Man Accused of Killing Her Husband**\
-`Mrs. Kirk is at the center of conspiracy theories, atop a political organization in transition and facing a personal test.`\
-https://www.nytimes.com/2026/07/06/us/who-is-erika-kirk-charlie-kirk-widow.html
-
-**Heat Waves Are Taking a Big Toll on Chickens**\
-`The birds are particularly vulnerable to high temperatures, and France’s torrid June took a heavy toll.`\
-https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
 
 **Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
