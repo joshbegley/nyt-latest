@@ -1,3 +1,7 @@
+**Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
+`Typhoon Maysak has been lashing Southern China for days, bursting dam walls and inundating homes and farms.`\
+https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
+
 **Las empresas de IA ahora contratan a filósofos**\
 `Los laboratorios de IA están contratando a sabios inconformistas, de esos que se frotan la barbilla y juntan los dedos en forma de pirámide. ¿Cuál desempleo?`\
 https://www.nytimes.com/es/2026/07/07/espanol/negocios/empresas-ia-contratan-filosofos.html
