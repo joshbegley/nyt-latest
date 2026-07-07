@@ -1,3 +1,11 @@
+**Is ‘The View’ a News Show? ABC Says That’s Already Settled.**\
+`In a new filing, ABC said that the F.C.C. had ruled in 2002 that “The View” was a “bona fide news program.”`\
+https://www.nytimes.com/2026/07/07/business/media/the-view-abc-fcc-investigation.html
+
+**Bernie Sanders Calls on Graham Platner to Drop Senate Bid After Rape Allegation**\
+`Mr. Sanders was one of the last remaining prominent allies of Graham Platner, the Maine Senate Democratic nominee, to call for him to drop out after a rape allegation.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-bernie-sanders-maine.html
+
 **Yale Law School Fights to Stop Trump Deal**\
 `The university has been in talks to resolve investigations into its admissions practices. The law school’s dean and some faculty have argued a deal could compromise its independence.`\
 https://www.nytimes.com/2026/07/07/us/yale-law-school-dean-trump-deal.html
@@ -14,13 +22,13 @@ https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-fronti
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 
-**What to Know About the Building at Risk of Collapse in Manhattan**\
-`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
-
 **The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
 `Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
 https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
+
+**What to Know About the Building at Risk of Collapse in Manhattan**\
+`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
 
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
 **Dolly Parton Musical Heads to Broadway in December**\
 `The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
 https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
-
-**Belgium’s World Cup Win Over U.S. Fuels Triumph and Snark in Europe**\
-`President Trump had pushed to allow an American player to take the field despite a red card suspension, and the trouncing of the U.S. team was painted as a sign of justice.`\
-https://www.nytimes.com/2026/07/07/world/europe/belgium-us-world-cup-balogun-trump.html
-
-**Caribbean Disparity**\
-`We look at U.S. relief efforts in Haiti in 2010 and in Venezuela now.`\
-https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.html
 
