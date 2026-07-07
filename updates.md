@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Widens in May**\
+`Imports rose and exports fell in the month, pushing the trade deficit to its highest level in over a year`\
+https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-widens-in-may.html
+
 **Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
 `The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
 https://www.nytimes.com/2026/07/07/todayspaper/monaco-bombing-suspect-dead-ukraine.html

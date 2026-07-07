@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Widens in May**\
+`Imports rose and exports fell in the month, pushing the trade deficit to its highest level in over a year`\
+https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-widens-in-may.html
+
 **Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
 `The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
 https://www.nytimes.com/2026/07/07/todayspaper/monaco-bombing-suspect-dead-ukraine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorc
 **A Flower-Filled Party on a Farm in New Jersey**\
 `To celebrate a milestone anniversary, the beauty brand founder Yael Alkalay invited friends for floral distillation, scent-making and tea.`\
 https://www.nytimes.com/2026/07/07/t-magazine/red-flower-new-jersey.html
-
-**On a Hot Night in Bangkok, a Dinner on the Sidewalk**\
-`While visiting her hometown, the chef Rose Chalalai Singh partnered with friends on a meal that celebrated Thai ingredients and traditions.`\
-https://www.nytimes.com/2026/07/07/t-magazine/bangkok-sidewalk-rose-singh.html
 
