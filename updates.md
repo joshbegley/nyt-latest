@@ -1,3 +1,15 @@
+**¿Qué significa hoy en día ‘arreglarse’?**\
+`Una lectora se pregunta si es bueno o malo que la gente vaya cada vez más informal.`\
+https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/arreglarse-casual-elegante.html
+
+**Behind the Scenes of NATO, Europe Is Falling Apart**\
+`The greatest dangers lie within.`\
+https://www.nytimes.com/2026/07/07/opinion/european-union-nato-trump.html
+
+**Welcome to JD Vance’s Clash of Civilizations**\
+`The vice president’s theology comes in book form.`\
+https://www.nytimes.com/2026/07/07/opinion/jd-vance-communion-clash-civilizations.html
+
 **Joining a Human Tide of Mourners Flowing Through Tehran’s Streets**\
 `After days of public mourning ceremonies in the Iranian capital, Ayatollah Ali Khamenei’s coffin arrived in Tehran’s Azadi Square. This is what I saw covering the miles-long procession on Monday.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/joining-a-human-tide-of-mourners-flowing-through-tehrans-streets.html

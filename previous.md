@@ -1,3 +1,15 @@
+**¿Qué significa hoy en día ‘arreglarse’?**\
+`Una lectora se pregunta si es bueno o malo que la gente vaya cada vez más informal.`\
+https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/arreglarse-casual-elegante.html
+
+**Behind the Scenes of NATO, Europe Is Falling Apart**\
+`The greatest dangers lie within.`\
+https://www.nytimes.com/2026/07/07/opinion/european-union-nato-trump.html
+
+**Welcome to JD Vance’s Clash of Civilizations**\
+`The vice president’s theology comes in book form.`\
+https://www.nytimes.com/2026/07/07/opinion/jd-vance-communion-clash-civilizations.html
+
 **Joining a Human Tide of Mourners Flowing Through Tehran’s Streets**\
 `After days of public mourning ceremonies in the Iranian capital, Ayatollah Ali Khamenei’s coffin arrived in Tehran’s Azadi Square. This is what I saw covering the miles-long procession on Monday.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/joining-a-human-tide-of-mourners-flowing-through-tehrans-streets.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/06/arts/music/madonna-confessions-ii-album-revie
 **Iranians Mourn a Slain Leader, and Call for Vengeance**\
 `Million of people filled the streets of Iran to bid farewell to Ayatollah Ali Khamenei, who was killed in the war with the United States and Israel.`\
 https://www.nytimes.com/2026/07/06/world/middleeast/iran-khamenei-funeral.html
-
-**Four Dead, Including a Police Officer, in Ohio Shooting**\
-`Law enforcement officers were investigating a break-in and gunfire in Rittman. A suspect, his former partner and her teenage daughter were also dead.`\
-https://www.nytimes.com/2026/07/06/us/shooting-rittman-ohio-officer-dead.html
-
-**Will Prince Harry’s Trip to Britain Repair or Deepen the Royal Rift?**\
-`Harry arrived in London Monday night for a visit that has already been overshadowed by drama and confusion over his plans.`\
-https://www.nytimes.com/2026/07/06/world/europe/prince-harry-uk-meghan-king-charles.html
-
-**Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
-`Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
-https://www.nytimes.com/live/2026/07/06/us/charlie-kirk-trial
 
