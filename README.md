@@ -1,3 +1,87 @@
+**Why Are Berries Everywhere, in Every Season? Driscoll’s.**\
+`The California giant has helped turn a local, seasonal treat into a worldwide refrigerator staple and marketing juggernaut.`\
+https://www.nytimes.com/2026/07/07/dining/driscolls-berries.html
+
+**NATO Allies Will Try to Show Trump They Are Paying Up for Defense**\
+`Some are making significant progress on raising their military spending. A few are pushing boundaries in finding ways to try to meet their targets.`\
+https://www.nytimes.com/2026/07/07/world/europe/nato-defense-spending-trump-rutte.html
+
+**Book Review: ‘You Won’t Get Free of It,’ by Rachel Aviv**\
+`Rachel Aviv’s essay collection, “You Won’t Get Free of It,” shows the breadth and complexity of matrilineal relationships.`\
+https://www.nytimes.com/2026/07/07/books/review/rachel-aviv-you-wont-get-free-of-it.html
+
+**I Wanted an Ecologically Responsible Garden. It Was Harder Than I Thought.**\
+`The native plant movement says that we can combat environmental disaster from our own backyards. Is it really so simple?`\
+https://www.nytimes.com/2026/07/07/magazine/native-plants-garden.html
+
+**New York City Travel Guide: What to See, Visit and Do**\
+`From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
+https://www.nytimes.com/interactive/2026/travel/new-york-city-guide.html
+
+**The 39-ish Most Stylish People of 2026, So Far**\
+`On red carpets, on set, onstage and even up in space, they captured our attention with their looks.`\
+https://www.nytimes.com/2026/07/07/style/most-stylish-people-of-2026-so-far.html
+
+**Four Seasons Sets Sail, Offering Luxury and Curated Cruise Experiences**\
+`Luxury hotel brands are getting into the cruise business. A Mediterranean itinerary offered a taste of what at times seemed like a mega-yacht experience.`\
+https://www.nytimes.com/2026/07/07/travel/four-seasons-luxury-cruise-mediterranean.html
+
+**How a Four-Generation Cuban Family Survives on $60 a Month**\
+`The U.S. oil blockade has deepened a humanitarian crisis, forcing Cubans to lean on the island’s long tradition of community solidarity to provide a cushion.`\
+https://www.nytimes.com/2026/07/07/world/americas/cuba-power-crisis-oil-blockade.html
+
+**Few Composers Can Sell Out Arenas. He’s One of Them.**\
+`Joe Hisaishi got famous writing the soundtracks to Hayao Miyazaki’s Studio Ghibli films. Now he is focusing on his first love: classical music.`\
+https://www.nytimes.com/2026/07/07/arts/music/joe-hisaishi-composer-studio-ghibli.html
+
+**After Courting Black Voters, Trump Downplays Black Unemployment**\
+`The president has glossed over persistently high unemployment among African Americans, a group he needed to secure a second term.`\
+https://www.nytimes.com/2026/07/07/us/politics/trump-black-voters-unemployment.html
+
+**How to Cook With Flowers: 3 Recipes With Edible Blossoms**\
+`A trio of Philadelphia-based chefs share recipes for foods in which blossoms are more than mere garnish.`\
+https://www.nytimes.com/2026/07/07/t-magazine/food/chefs-edible-flowers-tips.html
+
+**How to Make a Floral Arrangement That Will Last All Summer**\
+`The artist Sourabh Gupta gives a step-by-step guide to crafting Icelandic poppies out of crepe paper.`\
+https://www.nytimes.com/2026/07/07/t-magazine/paper-flowers-sourabh-gupta.html
+
+**How to Be a Good Guest at a Dinner Party**\
+`Tips for endearing yourself to your host and fellow attendees — and all but guaranteeing you’ll be asked back.`\
+https://www.nytimes.com/2026/07/07/t-magazine/good-guest-dinner-party-tips.html
+
+**Rashid Johnson**\
+`Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
+https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html
+
+**A Flower-Filled Party on a Farm in New Jersey**\
+`To celebrate a milestone anniversary, the beauty brand founder Yael Alkalay invited friends for floral distillation, scent-making and tea.`\
+https://www.nytimes.com/2026/07/07/t-magazine/red-flower-new-jersey.html
+
+**On a Hot Night in Bangkok, a Dinner on the Sidewalk**\
+`While visiting her hometown, the chef Rose Chalalai Singh partnered with friends on a meal that celebrated Thai ingredients and traditions.`\
+https://www.nytimes.com/2026/07/07/t-magazine/bangkok-sidewalk-rose-singh.html
+
+**‘You Don’t Need a Special Occasion to Throw a Party’**\
+`So says Isabel Castillo, a Mexico City restaurateur who combines opulent details with a laid-back attitude when she entertains at home.`\
+https://www.nytimes.com/2026/07/07/t-magazine/mexico-city-castillo.html
+
+**New York’s Best Burgers**\
+`The best of New York’s dynamic dining scene (mostly) between two buns.`\
+https://www.nytimes.com/article/nyc-best-burgers.html
+
+**Estonia Won the War on Fentanyl. What Came Next Was Even Worse.**\
+`By 2018, fentanyl overdoses in Estonia had plummeted. But powerful new drugs are appearing fast, with the authorities racing to respond.`\
+https://www.nytimes.com/2026/07/07/world/europe/estonia-won-the-war-on-fentanyl-what-came-next-was-even-worse.html
+
+**Inside the United States’ Billion-Dollar Blind Spot: Hail**\
+`Scientists have never quite understood how hail works. Meet the storm chasers trying to change that.`\
+https://www.nytimes.com/2026/07/07/weather/hail-damage-cost.html
+
+**As Messi Dominates the World Cup, a War Is Waged Over Maradona’s Image**\
+`A multimillion-dollar battle for a soccer god’s brand is being waged across continents, burning investors and tearing his family apart.`\
+https://www.nytimes.com/2026/07/07/world/americas/world-cup-argentina-maradona-trademark.html
+
 **Explosions Hit Damascus as Macron Visits**\
 `Blasts occurred near the hotel where President Emmanuel Macron of France was staying. French officials said that he was not hurt and that his schedule in Syria would continue as planned.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-damascus-visit.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/07/06/business/samsung-earnings-chips.html
 **Muere el ‘Indio’ Solari, leyenda del rock argentino**\
 `Un icono de la contracultura con gran atractivo, se comparaba a sí mismo con Bob Dylan y se ganó un público especialmente fiel entre la juventud de clase trabajadora.`\
 https://www.nytimes.com/es/2026/07/06/espanol/cultura/muere-indio-solari.html
-
-**NYT Crossword Answers for July 7, 2026**\
-`Brad Lively gets sentimental.`\
-https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-07.html
-
-**NYT Crossword Answers for July 8, 2026**\
-`Mason Hyunjin Lee makes his New York Times Crossword debut.`\
-https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-08.html
-
-**U.S. Loss Is a Gut Punch, but a Bright Future Remains for Soccer Here**\
-`While the team failed to meet the hopes of many fans, this World Cup highlighted the game’s decades-long climb into the national consciousness. What comes next?`\
-https://www.nytimes.com/2026/07/06/us/world-cup-usmnt-soccer.html
-
-**Lessons From the Graham Platner Disaster**\
-`Many Democrats want representatives as furious as they are. That makes it easier for unfit candidates to escape proper vetting.`\
-https://www.nytimes.com/2026/07/06/opinion/graham-platner-rape-accusation.html
-
-**In CNN Interview, Woman Details Alleged Sexual Assault by Graham Platner**\
-`“This is something that I tried for many years to forget,” the woman, Jenny Racicot, said on CNN.`\
-https://www.nytimes.com/2026/07/06/us/politics/jenny-racicot-cnn-interview-graham-platner.html
-
-**Death Toll From Oppressive Heat in New Jersey May Be as High as 29**\
-`In New York City, emergency rooms last week logged the highest number of patients treated for heat-related illnesses in years.`\
-https://www.nytimes.com/2026/07/06/nyregion/new-jersey-nyc-heat-deaths.html
-
-**The World Cup Revived Seattle’s Downtown. Will the Energy Last?**\
-`The city struggled for years after the pandemic shutdown and the rush to remote work. But downtown has been full of soccer fans for the past month.`\
-https://www.nytimes.com/2026/07/06/us/world-cup-downtown-seattle-revitalization.html
-
-**Intense Storms Cause Flash Flooding Across Northeast**\
-`Over the weekend, sporadic and dangerous storms hit Connecticut, New York, New Jersey and Pennsylvania with torrential rain and winds up to 90 miles per hour. The inclement weather continued on Monday, leading to flash flooding.`\
-https://www.nytimes.com/video/weather/100000011015052/tri-state-rain-flooding-storm.html
-
-**Trump Wanted a U.S. Soccer Star to Play in the World Cup. FIFA Found a Way.**\
-`There was nothing unusual about a call from President Trump or the reversal of Folarin Balogun’s suspension, said the president of FIFA, Gianni Infantino.`\
-https://www.nytimes.com/2026/07/06/world/europe/fifa-trump-infantino-world-cup-red-card.html
-
-**Trump Expected to Tell Turkey He Is Ready to Restore Access to F-35 Jets**\
-`The president, who is headed to a NATO summit in Ankara this week, had imposed the ban himself amid concerns that giving Turkey the jets could allow Russia to learn about their stealth technology.`\
-https://www.nytimes.com/2026/07/06/us/politics/trump-turkey-f35.html
-
-**Platner Faces Growing Democratic Calls to Drop Out**\
-`Even supporters like Representative Ro Khanna of California and Senator Elizabeth Warren of Massachusetts called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
-https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
-
-**Trump Tries to Take Credit for Walmart Price Cuts of Beef and Other Products**\
-`The retailer said it will lower prices for beef, produce, drinks, pools, toys, grills and summer clothing.`\
-https://www.nytimes.com/2026/07/06/us/politics/walmart-price-cuts-beef-trump.html
-
-**Who Might Replace Graham Platner if He Drops Out of the Maine Senate Race?**\
-`Graham Platner can be replaced on the ballot if he withdraws in the next week. If he does, Maine Democrats would face an uncertain two-week race to choose a replacement.`\
-https://www.nytimes.com/2026/07/06/us/politics/who-would-replace-graham-platner-maine.html
-
-**Detective Struck by Friendly Fire in Brooklyn Shooting, Police Say**\
-`The police had first said the detective, who was wearing a bulletproof vest, was shot by a man in the street early Sunday. On Monday, they said that in fact another officer accidentally shot him.`\
-https://www.nytimes.com/2026/07/06/nyregion/nypd-brooklyn-shooting.html
-
-**Trump tiene un nuevo roce con Europa, ahora por el fútbol**\
-`La decisión de la FIFA de revocar la suspensión de un partido de un jugador de la selección de Estados Unidos cayó muy mal en Europa, en un momento en el que la tensión geopolítica ya era alta.`\
-https://www.nytimes.com/es/2026/07/06/espanol/deportes/trump-fifa-balogun-europa-belgica.html
-
-**What Polls Say About the Fight for the Senate**\
-`Two of our political reporters dig into a revealing week of surveys.`\
-https://www.nytimes.com/2026/07/06/us/politics/senate-polls-platner.html
-
-**Inside Trump’s Ideological Fight With the Smithsonian**\
-`Publicly and behind the scenes, the president continues to try to impose his own views of American history and culture, presenting an ongoing challenge to Lonnie Bunch, the institution’s leader.`\
-https://www.nytimes.com/2026/07/06/us/politics/trump-smithsonian-ideological-fight.html
-
-**Trump Fuels a Furious World Cup Debate**\
-`Also, Platner says he will take time to “reflect” after a new accusation. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/07/06/briefing/trump-world-cup-graham-platner-campaign.html
-
-**Lemon-Garlic Grilled Chicken Breasts**\
-`This smoky beauty of a recipe, linked below, with its juicy swirl of lemon and olive oil, its fragrant charred garlic and parsley, is mouthwatering in the primal way of fried drumsticks and saucy wings.`\
-https://www.nytimes.com/video/dining/100000011015307/lemon-garlic-grilled-chicken-breasts.html
-
-**Indio Solari, Argentine Rocker Who Packed Stadiums, Dies at 77**\
-`A counterculture icon with broad appeal, he compared himself to Bob Dylan and developed an especially fervent following among working-class youth.`\
-https://www.nytimes.com/2026/07/06/arts/music/indio-solari-dead.html
-
-**Key Health Care Panel Is Again Blocked From Meeting Under RFK Jr.**\
-`The United States Preventive Services Task Force has been stymied under Health Secretary Robert F. Kennedy Jr.`\
-https://www.nytimes.com/2026/07/06/us/politics/uspstf-meeting-rfk-jr.html
 
