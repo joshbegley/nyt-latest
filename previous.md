@@ -1,3 +1,11 @@
+**Las empresas de IA ahora contratan a filósofos**\
+`Los laboratorios de IA están contratando a sabios inconformistas, de esos que se frotan la barbilla y juntan los dedos en forma de pirámide. ¿Cuál desempleo?`\
+https://www.nytimes.com/es/2026/07/07/espanol/negocios/empresas-ia-contratan-filosofos.html
+
+**Wikipedia lucha por el alma de internet**\
+`La popular enciclopedia gratuita enfrenta ataques de la derecha, el avance de la inteligencia artificial y la presión de gobiernos que buscan controlar la información.`\
+https://www.nytimes.com/es/2026/07/07/espanol/negocios/wikipedia-gratis-internet.html
+
 **Dior and the Taylor Swift Wedding Effect**\
 `Were there clues to the dress in the brand’s couture show?`\
 https://www.nytimes.com/2026/07/07/style/dior-couture-taylor-swift-wedding.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/us/100000011014130/charlie-kirk-tyler-robinson-hea
 **Trump Passports Debut, Delighting Some and Dismaying Others**\
 `The Washington Passport Agency started issuing the limited-release documents with President Trump’s image on Monday, catching a few applicants by surprise.`\
 https://www.nytimes.com/2026/07/06/travel/trump-passports-traveler-reactions.html
-
-**Historians Reject Trump Administration’s Criticism of Smithsonian Museum**\
-`The nation’s largest group of scholars of U.S. history denounced a White House report attacking the Smithsonian’s National Museum of American History.`\
-https://www.nytimes.com/2026/07/06/arts/smithsonian-trump-activism-american-history.html
-
-**Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
-`The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee Beach.`\
-https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html
 
 **Calls Mount for Platner to End Campaign After Rape Accusation**\
 `After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\

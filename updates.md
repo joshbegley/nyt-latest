@@ -1,3 +1,11 @@
+**Las empresas de IA ahora contratan a filósofos**\
+`Los laboratorios de IA están contratando a sabios inconformistas, de esos que se frotan la barbilla y juntan los dedos en forma de pirámide. ¿Cuál desempleo?`\
+https://www.nytimes.com/es/2026/07/07/espanol/negocios/empresas-ia-contratan-filosofos.html
+
+**Wikipedia lucha por el alma de internet**\
+`La popular enciclopedia gratuita enfrenta ataques de la derecha, el avance de la inteligencia artificial y la presión de gobiernos que buscan controlar la información.`\
+https://www.nytimes.com/es/2026/07/07/espanol/negocios/wikipedia-gratis-internet.html
+
 **Dior and the Taylor Swift Wedding Effect**\
 `Were there clues to the dress in the brand’s couture show?`\
 https://www.nytimes.com/2026/07/07/style/dior-couture-taylor-swift-wedding.html
