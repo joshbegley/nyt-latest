@@ -1,3 +1,11 @@
+**Live Updates: Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
+`The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found that support columns were buckling and upper floors were sagging.`\
+https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
+
+**Mitch McConnell está hospitalizado: esto es lo que sabemos**\
+`El senador republicano por Kentucky ingresó al hospital el 14 de junio, y su oficina apenas ha dado información sobre su estado. Esto es lo que sabemos.`\
+https://www.nytimes.com/es/2026/07/07/espanol/estados-unidos/mitch-mcconnell-senador-hospitalizado.html
+
 **Louise Lasser, Star of TV’s ‘Mary Hartman,’ Is Dead at 87**\
 `She began her screen career in Woody Allen movies (he was also her husband), but she was best known for her portrayal of the Ohio housewife in the pigtails and puffed sleeves.`\
 https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
@@ -7,8 +15,8 @@ https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
 https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justice.html
 
 **Scott Bessent’s New Rules of Trade**\
-`The U.S. is changing the rules of trade in its favor.`\
-https://www.nytimes.com/2026/07/07/opinion/the-bessent-doctrine-the-days-of-america-being-played-are-over.html
+`The United States is changing the rules of trade in its favor.`\
+https://www.nytimes.com/2026/07/07/opinion/scott-bessent-trade-economy.html
 
 **Businesses Fear Politicization as Trump Gains More Power Over U.S. Agencies**\
 `A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
@@ -21,10 +29,6 @@ https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-dere
 **Cosmic Conjoined Twins, Caught on Camera**\
 `A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
 https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
-
-**Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
-`The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
-https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html
 
 **As Ice Melts in the Arctic, Some Deep-Sea Creatures Are Thriving**\
 `A new study suggests that deep-sea life reaps the benefits of icebergs’ castoffs — a rare silver lining as a warming planet destabilizes glacial ice.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/well/eat/health-benefits-psyllium-husk.html
 **NATO Allies Will Try to Show Trump They Are Paying Up for Defense**\
 `Some are making significant progress on raising their military spending. A few are pushing boundaries in finding ways to try to meet their targets.`\
 https://www.nytimes.com/2026/07/07/world/europe/nato-defense-spending-trump-rutte.html
-
-**Why Are Berries Everywhere, in Every Season? Driscoll’s.**\
-`The California giant has helped turn a local, seasonal treat into a worldwide refrigerator staple and marketing juggernaut.`\
-https://www.nytimes.com/2026/07/07/dining/driscolls-berries.html
 

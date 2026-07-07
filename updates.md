@@ -1,3 +1,15 @@
+**Live Updates: Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
+`The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found that support columns were buckling and upper floors were sagging.`\
+https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
+
+**Mitch McConnell está hospitalizado: esto es lo que sabemos**\
+`El senador republicano por Kentucky ingresó al hospital el 14 de junio, y su oficina apenas ha dado información sobre su estado. Esto es lo que sabemos.`\
+https://www.nytimes.com/es/2026/07/07/espanol/estados-unidos/mitch-mcconnell-senador-hospitalizado.html
+
+**Scott Bessent’s New Rules of Trade**\
+`The United States is changing the rules of trade in its favor.`\
+https://www.nytimes.com/2026/07/07/opinion/scott-bessent-trade-economy.html
+
 **Louise Lasser, Star of TV’s ‘Mary Hartman,’ Is Dead at 87**\
 `She began her screen career in Woody Allen movies (he was also her husband), but she was best known for her portrayal of the Ohio housewife in the pigtails and puffed sleeves.`\
 https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
