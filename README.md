@@ -14,7 +14,7 @@ https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/arreglarse-casual-
 `The greatest dangers lie within.`\
 https://www.nytimes.com/2026/07/07/opinion/european-union-nato-trump.html
 
-**Welcome to JD Vance’s Clash of Civilizations**\
+**JD Vance Is Worried**\
 `The vice president’s theology comes in book form.`\
 https://www.nytimes.com/2026/07/07/opinion/jd-vance-communion-clash-civilizations.html
 
