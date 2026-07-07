@@ -1,3 +1,23 @@
+**The Onion’s Latest Joke: Taking Over Infowars**\
+`The satirical news outlet wants to convert the right-wing Infowars site into a parody of itself.`\
+https://www.nytimes.com/2026/07/07/podcasts/the-daily/the-onions-infowars.html
+
+**What to Watch at the NATO Summit, and Platner’s Allies Rescind Endorsements**\
+`Plus, the museum that wants you to touch the art.`\
+https://www.nytimes.com/2026/07/07/podcasts/the-headlines/what-to-watch-at-the-nato-summit-and-platners-allies-rescind-endorsements.html
+
+**NYT Connections Answers for July 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/07/crosswords/connections-companion-1123.html
+
+**NYT Strands Hints for July 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/07/crosswords/strands-sidekick-857.html
+
+**Today’s Wordle Hints for July 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/07/crosswords/wordle-review-1845.html
+
 **Why China Fired a Long-Range Missile Into the Pacific**\
 `Beijing had long tested nuclear missiles only within its borders. A rare launch over an ocean shows it is determined to narrow the gap with the United States.`\
 https://www.nytimes.com/2026/07/07/world/asia/china-missile-test-submarine-pacific.html

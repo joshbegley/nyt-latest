@@ -1,3 +1,23 @@
+**The Onion’s Latest Joke: Taking Over Infowars**\
+`The satirical news outlet wants to convert the right-wing Infowars site into a parody of itself.`\
+https://www.nytimes.com/2026/07/07/podcasts/the-daily/the-onions-infowars.html
+
+**What to Watch at the NATO Summit, and Platner’s Allies Rescind Endorsements**\
+`Plus, the museum that wants you to touch the art.`\
+https://www.nytimes.com/2026/07/07/podcasts/the-headlines/what-to-watch-at-the-nato-summit-and-platners-allies-rescind-endorsements.html
+
+**NYT Connections Answers for July 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/07/crosswords/connections-companion-1123.html
+
+**NYT Strands Hints for July 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/07/crosswords/strands-sidekick-857.html
+
+**Today’s Wordle Hints for July 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/07/crosswords/wordle-review-1845.html
+
 **Why China Fired a Long-Range Missile Into the Pacific**\
 `Beijing had long tested nuclear missiles only within its borders. A rare launch over an ocean shows it is determined to narrow the gap with the United States.`\
 https://www.nytimes.com/2026/07/07/world/asia/china-missile-test-submarine-pacific.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-dama
 **Mysterious Spheres Found in Australia Are Likely Space Debris**\
 `The discovery bemused residents of a small town in northeastern Australia. The objects appear to be junk from a space launch, the country’s space agency said.`\
 https://www.nytimes.com/2026/07/07/world/australia/queensland-australia-space-balls-debris.html
-
-**South Korea Strengthens Law to Curb Spread of Fake News**\
-`An amendment to South Korea’s communications act will clamp down on purveyors of false information online. Critics worry it could threaten freedom of speech.`\
-https://www.nytimes.com/2026/07/07/world/asia/south-korea-law-fake-news.html
-
-**More Americans Than Ever Are Taking Weight-Loss Drugs**\
-`The number of U.S. adults taking an obesity medication has nearly quadrupled from just two years ago.`\
-https://www.nytimes.com/2026/07/07/well/americans-taking-weight-loss-drugs.html
-
-**Word of the Day: deficit**\
-`This word has appeared in 972 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/07/learning/word-of-the-day-deficit.html
-
-**Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
-`Typhoon Maysak has been lashing southern China for days, bursting dam walls and inundating homes and farms.`\
-https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
-
-**Las empresas de IA ahora contratan a filósofos**\
-`Los laboratorios de IA están contratando a sabios inconformistas, de esos que se frotan la barbilla y juntan los dedos en forma de pirámide. ¿Cuál desempleo?`\
-https://www.nytimes.com/es/2026/07/07/espanol/negocios/empresas-ia-contratan-filosofos.html
 

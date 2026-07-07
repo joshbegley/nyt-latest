@@ -1,3 +1,7 @@
+**USMNT Elimination Reaction and World Cup Conspiracy Theories**\
+`Breaking down the good, the bad and the downright ugly from America’s elimination against Belgium.`\
+https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup-conspiracy-theories.html
+
 **The Onion’s Latest Joke: Taking Over Infowars**\
 `The satirical news outlet wants to convert the right-wing Infowars site into a parody of itself.`\
 https://www.nytimes.com/2026/07/07/podcasts/the-daily/the-onions-infowars.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/world/americas/world-cup-argentina-maradona-t
 **Explosions Hit Damascus During Macron Visit**\
 `Blasts occurred near the hotel where President Emmanuel Macron of France was staying. French officials said that he was not hurt and that his schedule in Syria would continue as planned.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-damascus-visit.html
-
-**Mysterious Spheres Found in Australia Are Likely Space Debris**\
-`The discovery bemused residents of a small town in northeastern Australia. The objects appear to be junk from a space launch, the country’s space agency said.`\
-https://www.nytimes.com/2026/07/07/world/australia/queensland-australia-space-balls-debris.html
 
