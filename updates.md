@@ -1,3 +1,11 @@
+**Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
+`The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
+https://www.nytimes.com/2026/07/07/todayspaper/monaco-bombing-suspect-dead-ukraine.html
+
+**Abandoned by Allies, Graham Platner Faces Pressure to End Maine Senate Campaign**\
+`After Graham Platner, the Democratic nominee in Maine, was accused of rape, much of the party and several key supporters turned against him.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate.html
+
 **Why Index Funds Haven’t Boosted SpaceX**\
 `Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
 https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html

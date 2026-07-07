@@ -1,3 +1,7 @@
+**Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
+`The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
+https://www.nytimes.com/2026/07/07/todayspaper/monaco-bombing-suspect-dead-ukraine.html
+
 **Why Index Funds Haven’t Boosted SpaceX**\
 `Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
 https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
@@ -70,7 +74,7 @@ https://www.nytimes.com/es/2026/07/07/espanol/mundo/estonia-fentanil-drogas-sobr
 `Last week, the Supreme Court took up challenges to two assault weapons bans. Its decision could seriously limit the government’s ability to ban certain guns.`\
 https://www.nytimes.com/2026/07/07/us/supreme-court-assault-weapons-bans.html
 
-**Abandoned by Allies, Platner Faces Pressure to End Senate Campaign**\
+**Abandoned by Allies, Graham Platner Faces Pressure to End Maine Senate Campaign**\
 `After Graham Platner, the Democratic nominee in Maine, was accused of rape, much of the party and several key supporters turned against him.`\
 https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/t-magazine/red-flower-new-jersey.html
 **On a Hot Night in Bangkok, a Dinner on the Sidewalk**\
 `While visiting her hometown, the chef Rose Chalalai Singh partnered with friends on a meal that celebrated Thai ingredients and traditions.`\
 https://www.nytimes.com/2026/07/07/t-magazine/bangkok-sidewalk-rose-singh.html
-
-**‘You Don’t Need a Special Occasion to Throw a Party’**\
-`So says Isabel Castillo, a Mexico City restaurateur who combines opulent details with a laid-back attitude when she entertains at home.`\
-https://www.nytimes.com/2026/07/07/t-magazine/mexico-city-castillo.html
 
