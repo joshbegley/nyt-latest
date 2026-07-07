@@ -1,3 +1,7 @@
+**Dolly Parton to Celebrate Turning 81 With a Musical About Her Life**\
+`The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
+https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
+
 **Belgium’s World Cup Win Over U.S. Fuels Triumph and Snark in Europe**\
 `President Trump had pushed to allow an American player to take the field despite a red card suspension, and the trouncing of the U.S. team was painted as a sign of justice.`\
 https://www.nytimes.com/2026/07/07/world/europe/belgium-us-world-cup-balogun-trump.html
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/07/07/t-magazine/paper-flowers-sourabh-gupta.html
 `Tips for endearing yourself to your host and fellow attendees — and all but guaranteeing you’ll be asked back.`\
 https://www.nytimes.com/2026/07/07/t-magazine/good-guest-dinner-party-tips.html
 
-**A Flower-Filled Party on a Farm in New Jersey**\
-`To celebrate a milestone anniversary, the beauty brand founder Yael Alkalay invited friends for floral distillation, scent-making and tea.`\
-https://www.nytimes.com/2026/07/07/t-magazine/red-flower-new-jersey.html
-
 **Rashid Johnson and Sheree Hovsepian’s Art World Party in a Secret Garden on Minorca**\
 `Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
 https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html
+
+**A Flower-Filled Party on a Farm in New Jersey**\
+`To celebrate a milestone anniversary, the beauty brand founder Yael Alkalay invited friends for floral distillation, scent-making and tea.`\
+https://www.nytimes.com/2026/07/07/t-magazine/red-flower-new-jersey.html
 
 **On a Hot Night in Bangkok, a Dinner on the Sidewalk**\
 `While visiting her hometown, the chef Rose Chalalai Singh partnered with friends on a meal that celebrated Thai ingredients and traditions.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/t-magazine/mexico-city-castillo.html
 **New York’s Best Burgers**\
 `The best of New York’s dynamic dining scene (mostly) between two buns.`\
 https://www.nytimes.com/article/nyc-best-burgers.html
-
-**Estonia Won the War on Fentanyl. What Came Next Was Even Worse.**\
-`By 2018, fentanyl overdoses in Estonia had plummeted. But powerful new drugs are appearing fast, with the authorities racing to respond.`\
-https://www.nytimes.com/2026/07/07/world/europe/estonia-fentanyl-new-drugs.html
 

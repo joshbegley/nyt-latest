@@ -1,3 +1,7 @@
+**Dolly Parton to Celebrate Turning 81 With a Musical About Her Life**\
+`The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
+https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
+
 **Rashid Johnson and Sheree Hovsepian’s Art World Party in a Secret Garden on Minorca**\
 `Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
 https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html

@@ -1,3 +1,7 @@
+**Why Index Funds Haven’t Boosted SpaceX**\
+`Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
+https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
+
 **Dolly Parton to Celebrate Turning 81 With a Musical About Her Life**\
 `The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
 https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/t-magazine/bangkok-sidewalk-rose-singh.html
 **‘You Don’t Need a Special Occasion to Throw a Party’**\
 `So says Isabel Castillo, a Mexico City restaurateur who combines opulent details with a laid-back attitude when she entertains at home.`\
 https://www.nytimes.com/2026/07/07/t-magazine/mexico-city-castillo.html
-
-**New York’s Best Burgers**\
-`The best of New York’s dynamic dining scene (mostly) between two buns.`\
-https://www.nytimes.com/article/nyc-best-burgers.html
 
