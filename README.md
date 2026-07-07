@@ -1,3 +1,15 @@
+**Say This to a Grieving Parent**\
+`Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
+https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-parent.html
+
+**Trump’s Top Air Pollution Regulator Will Resign**\
+`Aaron Szabo will step down as the head of the Environmental Protection Agency’s air office this month, he told employees, after overseeing rollbacks of a range of pollution limits.`\
+https://www.nytimes.com/2026/07/07/climate/aaron-szabo-epa-resign.html
+
+**Democrats Begin to Clash Over Who Replaces Platner Even Before He Exits**\
+`Progressives and moderates are gearing up for a fight over an as-yet-undecided process in Maine to name a Senate nominee to replace Graham Platner after a rape accusation. He still wants a say, too.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-replacements-democrats.html
+
 **Man Arrested for Painting ‘Pam the Bird’ Graffiti on Bridge Tower in Melbourne**\
 `An hourslong standoff with police ended after the man descended the 140-foot tower and surrendered. The graffiti resembled the “Pam the Bird” symbol which began appearing across the city in 2023.`\
 https://www.nytimes.com/2026/07/07/world/australia/pam-bird-graffiti-melbourne-bridge.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/07/arts/design/anthea-hartig-smithsonian-america
 **Corrections: July 7, 2026**\
 `Corrections that appeared in print on Tuesday, July 7, 2026.`\
 https://www.nytimes.com/2026/07/07/pageoneplus/corrections-july-7-2026.html
-
-**Whose Land? Our Land, Not Trump’s.**\
-`On a day celebrating harmony, Trump sang a tune of “This land belongs to me and mine.”`\
-https://www.nytimes.com/2026/07/07/opinion/trump-250th-july-4th.html
-
-**Two Cases Raise Concerns About Civil Liberties in the U.S.**\
-`A man wrote an angry email to a government official, and federal agents came to his home. A reporter was barred from covering a lockdown at a New Jersey school.`\
-https://www.nytimes.com/2026/07/07/nyregion/two-cases-raise-concerns-about-civil-liberties-in-the-us.html
-
-**A Cool Houston Home With a Big Bank of Windows**\
-`A couple bought a piece of land for $46,000. Next, they found an architect willing to work within their budget.`\
-https://www.nytimes.com/2026/07/07/realestate/a-houston-home-with-11-windows-for-1800-square-feet.html
 

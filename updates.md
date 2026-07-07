@@ -1,3 +1,11 @@
+**Man Arrested for Painting ‘Pam the Bird’ Graffiti on Bridge Tower in Melbourne**\
+`An hourslong standoff with police ended after the man descended the 140-foot tower and surrendered. The graffiti resembled the “Pam the Bird” symbol which began appearing across the city in 2023.`\
+https://www.nytimes.com/2026/07/07/world/australia/pam-bird-graffiti-melbourne-bridge.html
+
+**New Museum’s Next Director Will Be Massimiliano Gioni**\
+`The expanded museum is promoting its longtime artistic director to help rebuild attendance after a two-year closure and hold onto its “edgy” character.`\
+https://www.nytimes.com/2026/07/07/arts/design/new-museum-director-massimiliano-gioni.html
+
 **Una llamada de Trump, una tarjeta roja cuestionada y un Mundial en apuros**\
 `Según el presidente de la FIFA, Gianni Infantino, no hubo nada inusual en la llamada del presidente Trump, ni en la revocación de la suspensión de Folarin Balogun.`\
 https://www.nytimes.com/es/2026/07/07/espanol/mundo/trump-infantino-tarjeta-roja.html
