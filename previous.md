@@ -1,3 +1,19 @@
+**Lawsuit Alleges Trump Administration Gave Iran Details on Asylum Seekers**\
+`A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
+https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
+
+**What to Know About the Building at Risk of Collapse in Manhattan**\
+`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
+
+**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
+`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
+https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
+
+**Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
+`The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-apartment-conversions.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011016891/07visualUploader-60479.html
@@ -75,7 +91,7 @@ https://www.nytimes.com/2026/07/07/arts/design/new-museum-director-massimiliano-
 https://www.nytimes.com/es/2026/07/07/espanol/mundo/trump-infantino-tarjeta-roja.html
 
 **Nation’s 250th Celebration Fireworks Sent D.C. Air Pollution Spiking**\
-`Trump promised a record display of some 850,000 pyrotechnics for the country’s 250th birthday. The Park Service warned it could get dirty.`\
+`The president promised a record display of some 850,000 pyrotechnics for the country’s 250th birthday. The Park Service warned it could get dirty.`\
 https://www.nytimes.com/2026/07/07/climate/washington-dc-fireworks-air-pollution.html
 
 **A Supreme Leader’s Final Crowds**\
@@ -87,7 +103,7 @@ https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
 https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
 
 **Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
-`Mayor Zohran Mamdani said people should avoid the area around the compromised building, which sits several blocks east of Grand Central Terminal. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
+`Mayor Zohran Mamdani said people should avoid the area around the compromised building, a construction site several blocks east of Grand Central Terminal. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
 https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
 
 **Mitch McConnell está hospitalizado: esto es lo que sabemos**\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup
 **The Onion’s Latest Joke: Taking Over Infowars**\
 `The satirical news outlet wants to convert the right-wing Infowars site into a parody of itself.`\
 https://www.nytimes.com/2026/07/07/podcasts/the-daily/the-onions-infowars.html
-
-**What to Watch at the NATO Summit, and Platner’s Allies Rescind Endorsements**\
-`Plus, the museum that wants you to touch the art.`\
-https://www.nytimes.com/2026/07/07/podcasts/the-headlines/what-to-watch-at-the-nato-summit-and-platners-allies-rescind-endorsements.html
-
-**NYT Connections Answers for July 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
-https://www.nytimes.com/2026/07/07/crosswords/connections-companion-1123.html
-
-**NYT Strands Hints for July 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
-https://www.nytimes.com/2026/07/07/crosswords/strands-sidekick-857.html
-
-**Today’s Wordle Hints for July 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
-https://www.nytimes.com/2026/07/07/crosswords/wordle-review-1845.html
 

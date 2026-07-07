@@ -1,3 +1,27 @@
+**Lawsuit Alleges Trump Administration Gave Iran Details on Asylum Seekers**\
+`A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
+https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
+
+**What to Know About the Building at Risk of Collapse in Manhattan**\
+`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
+
+**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
+`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
+https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
+
+**Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
+`The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-apartment-conversions.html
+
+**Nation’s 250th Celebration Fireworks Sent D.C. Air Pollution Spiking**\
+`The president promised a record display of some 850,000 pyrotechnics for the country’s 250th birthday. The Park Service warned it could get dirty.`\
+https://www.nytimes.com/2026/07/07/climate/washington-dc-fireworks-air-pollution.html
+
+**Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
+`Mayor Zohran Mamdani said people should avoid the area around the compromised building, a construction site several blocks east of Grand Central Terminal. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
+https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011016891/07visualUploader-60479.html
