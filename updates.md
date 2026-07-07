@@ -1,3 +1,7 @@
+**Farage Resigns and Says He Will Run Again in Special Election**\
+`Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
+https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
+
 **Live Updates: Charlie Kirk Assassination Hearing Enters Its Second Day**\
 `A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing.`\
 https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
