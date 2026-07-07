@@ -1,3 +1,11 @@
+**Prince Harry Loses Privacy Lawsuit Against Daily Mail Publisher**\
+`The case brought by Harry and other celebrities against Associated Newspapers was one of several legal battles that the prince has fought against British tabloids in recent years.`\
+https://www.nytimes.com/2026/07/07/world/europe/prince-harry-lawsuit-daily-mail-uk-associated-newspapers.html
+
+**U.S. Trade Deficit Widens in May on Record Goods Imports**\
+`Imports of foreign goods hit a record high in the month, pushing the trade deficit to its highest level in over a year.`\
+https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
+
 **U.S. Trade Deficit Widens in May**\
 `Imports rose and exports fell in the month, pushing the trade deficit to its highest level in over a year`\
 https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
