@@ -1,3 +1,15 @@
+**Is ‘The View’ a News Show? ABC Says That’s Already Settled.**\
+`In a new filing, ABC said that the F.C.C. had ruled in 2002 that “The View” was a “bona fide news program.”`\
+https://www.nytimes.com/2026/07/07/business/media/the-view-abc-fcc-investigation.html
+
+**Bernie Sanders Calls on Graham Platner to Drop Senate Bid After Rape Allegation**\
+`Mr. Sanders was one of the last remaining prominent allies of Graham Platner, the Maine Senate Democratic nominee, to call for him to drop out after a rape allegation.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-bernie-sanders-maine.html
+
+**Say This to a Grieving Parent**\
+`The writer Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
+https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-parent.html
+
 **Yale Law School Fights to Stop Trump Deal**\
 `The university has been in talks to resolve investigations into its admissions practices. The law school’s dean and some faculty have argued a deal could compromise its independence.`\
 https://www.nytimes.com/2026/07/07/us/yale-law-school-dean-trump-deal.html

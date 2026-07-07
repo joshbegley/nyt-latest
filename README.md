@@ -1,3 +1,7 @@
+**Doctors Warn of a Dangerous Trend: Microwaving a Popular Squishy Toy**\
+`Hospitals are seeing cases of children suffering serious burns amid a social media trend involving popping NeeDoh cubes into microwaves.`\
+https://www.nytimes.com/2026/07/07/well/squishy-needoh-toys-burns.html
+
 **Is ‘The View’ a News Show? ABC Says That’s Already Settled.**\
 `In a new filing, ABC said that the F.C.C. had ruled in 2002 that “The View” was a “bona fide news program.”`\
 https://www.nytimes.com/2026/07/07/business/media/the-view-abc-fcc-investigation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/world/europe/monaco-bombing-suspect-dead-ukra
 **Why Index Funds Haven’t Boosted SpaceX**\
 `Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
 https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
-
-**Dolly Parton Musical Heads to Broadway in December**\
-`The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
-https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
 

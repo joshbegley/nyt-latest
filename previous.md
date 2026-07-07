@@ -1,3 +1,11 @@
+**Is ‘The View’ a News Show? ABC Says That’s Already Settled.**\
+`In a new filing, ABC said that the F.C.C. had ruled in 2002 that “The View” was a “bona fide news program.”`\
+https://www.nytimes.com/2026/07/07/business/media/the-view-abc-fcc-investigation.html
+
+**Bernie Sanders Calls on Graham Platner to Drop Senate Bid After Rape Allegation**\
+`Mr. Sanders was one of the last remaining prominent allies of Graham Platner, the Maine Senate Democratic nominee, to call for him to drop out after a rape allegation.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-bernie-sanders-maine.html
+
 **Yale Law School Fights to Stop Trump Deal**\
 `The university has been in talks to resolve investigations into its admissions practices. The law school’s dean and some faculty have argued a deal could compromise its independence.`\
 https://www.nytimes.com/2026/07/07/us/yale-law-school-dean-trump-deal.html
@@ -79,7 +87,7 @@ https://www.nytimes.com/es/2026/07/07/espanol/opinion/papa-leon-iglesia-catolica
 https://www.nytimes.com/interactive/polls/alabama-us-house-2-polls-2026.html
 
 **Say This to a Grieving Parent**\
-`Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
+`The writer Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
 https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-parent.html
 
 **Trump’s Top Air Pollution Regulator Will Resign**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
 **Dolly Parton Musical Heads to Broadway in December**\
 `The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
 https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
-
-**Belgium’s World Cup Win Over U.S. Fuels Triumph and Snark in Europe**\
-`President Trump had pushed to allow an American player to take the field despite a red card suspension, and the trouncing of the U.S. team was painted as a sign of justice.`\
-https://www.nytimes.com/2026/07/07/world/europe/belgium-us-world-cup-balogun-trump.html
-
-**Caribbean Disparity**\
-`We look at U.S. relief efforts in Haiti in 2010 and in Venezuela now.`\
-https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.html
 
