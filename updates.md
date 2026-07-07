@@ -1,3 +1,7 @@
+**La guerra global por los derechos de marca de Maradona**\
+`De un continente a otro, se lleva a cabo un disputa multimillonaria por los derechos de marca del dios del fútbol. El conflicto está destrozando a su familia y arruinando a inversores.`\
+https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-derechos-marca-argentina.html
+
 **Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
 `The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html
