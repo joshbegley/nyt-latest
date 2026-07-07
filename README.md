@@ -1,3 +1,7 @@
+**How the ‘Swift-Kelce Effect’ May Be Coming to a Wedding Near You**\
+`Trends are likely to emerge from the spectacle that was the July 3 celebration at Madison Square Garden.`\
+https://www.nytimes.com/2026/07/07/style/swift-kelce-wedding-effect.html
+
 **Farage Says He Will Resign From UK’s Parliament to Trigger a By-Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
 https://www.nytimes.com/2026/07/07/world/europe/nigel-farage-reform-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/politics/trump-black-voters-unemployment.h
 **How to Cook With Flowers: 3 Recipes With Edible Blossoms**\
 `A trio of Philadelphia-based chefs share recipes for foods in which blossoms are more than mere garnish.`\
 https://www.nytimes.com/2026/07/07/t-magazine/food/chefs-edible-flowers-tips.html
-
-**How to Make a Floral Arrangement That Will Last All Summer**\
-`The artist Sourabh Gupta gives a step-by-step guide to crafting Icelandic poppies out of crepe paper.`\
-https://www.nytimes.com/2026/07/07/t-magazine/paper-flowers-sourabh-gupta.html
 

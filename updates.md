@@ -1,3 +1,11 @@
+**Farage Says He Will Resign From UK’s Parliament to Trigger a By-Election**\
+`Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
+https://www.nytimes.com/2026/07/07/world/europe/nigel-farage-reform-uk.html
+
+**Trump Promised a Foreign Investment Boom. It’s Getting Harder to Deliver.**\
+`The threat of tariffs may have helped push more capital into the United States, but other factors are pushing it away.`\
+https://www.nytimes.com/2026/07/07/business/economy/trump-foreign-investment.html
+
 **Prince Harry Loses Privacy Lawsuit Against Daily Mail Publisher**\
 `The case brought by Harry and other celebrities against Associated Newspapers was one of several legal battles that the prince has fought against British tabloids in recent years.`\
 https://www.nytimes.com/2026/07/07/world/europe/prince-harry-lawsuit-daily-mail-uk-associated-newspapers.html
