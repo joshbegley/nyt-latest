@@ -1,3 +1,7 @@
+**Dior and the Taylor Swift Wedding Effect**\
+`Were there clues to the dress in the brand’s couture show?`\
+https://www.nytimes.com/2026/07/07/style/dior-couture-taylor-swift-wedding.html
+
 **Soy psicólogo. No todo el mundo debería ir a terapia**\
 `La terapia parece haberse convertido en la receta por defecto para todo tipo de infelicidad.`\
 https://www.nytimes.com/es/2026/07/07/espanol/opinion/felicidad-psicologia-terapia-consulta.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/06/arts/smithsonian-trump-activism-american-hist
 **Spate of Shark Attacks Means More Drones for Australia’s Beaches**\
 `The country is stepping up measures to keep swimmers and surfers safe after a teacher was mauled by a great white shark at Coogee Beach.`\
 https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-more-drones-for-australias-beaches.html
-
-**Why Some Fans Want Better U.S. World Cup Chants**\
-`Critics say cheers like “U-S-A!” and “I believe we can win” are unoriginal. We asked experts on soccer chants to explain why.`\
-https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
 
 **Calls Mount for Platner to End Campaign After Rape Accusation**\
 `After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\

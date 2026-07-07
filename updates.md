@@ -1,3 +1,7 @@
+**Dior and the Taylor Swift Wedding Effect**\
+`Were there clues to the dress in the brand’s couture show?`\
+https://www.nytimes.com/2026/07/07/style/dior-couture-taylor-swift-wedding.html
+
 **Soy psicólogo. No todo el mundo debería ir a terapia**\
 `La terapia parece haberse convertido en la receta por defecto para todo tipo de infelicidad.`\
 https://www.nytimes.com/es/2026/07/07/espanol/opinion/felicidad-psicologia-terapia-consulta.html
