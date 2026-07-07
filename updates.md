@@ -1,3 +1,11 @@
+**Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
+`The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html
+
+**I Wanted an Ecologically Responsible Garden. It Was Harder Than I Thought.**\
+`The native plant movement gets a lot right, but there’s so much more to consider.`\
+https://www.nytimes.com/2026/07/07/magazine/native-plants-garden.html
+
 **Cosmic Conjoined Twins, Caught on Camera**\
 `A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
 https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
