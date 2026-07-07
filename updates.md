@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011017183/07-vid-emergency-responders.html
+
 **Doctors Warn of a Dangerous Trend: Microwaving a Popular Squishy Toy**\
 `Hospitals are seeing cases of children suffering serious burns amid a social media trend involving popping NeeDoh cubes into microwaves.`\
 https://www.nytimes.com/2026/07/07/well/squishy-needoh-toys-burns.html

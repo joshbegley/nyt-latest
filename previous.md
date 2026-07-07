@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011017183/07-vid-emergency-responders.html
+
 **Doctors Warn of a Dangerous Trend: Microwaving a Popular Squishy Toy**\
 `Hospitals are seeing cases of children suffering serious burns amid a social media trend involving popping NeeDoh cubes into microwaves.`\
 https://www.nytimes.com/2026/07/07/well/squishy-needoh-toys-burns.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
 **Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
 `The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
 https://www.nytimes.com/2026/07/07/world/europe/monaco-bombing-suspect-dead-ukraine.html
-
-**Why Index Funds Haven’t Boosted SpaceX**\
-`Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
-https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
 

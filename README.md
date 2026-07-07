@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 5,3 sacude Costa Rica**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/07/07/espanol/terremoto-costa-rica.html
+
+**Map: 5.3-Magnitude Earthquake Shakes Costa Rica**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/07/world/quake-tracker-costa-rica.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011017183/07-vid-emergency-responders.html
@@ -30,13 +38,13 @@ https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-fronti
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 
-**What to Know About the Building at Risk of Collapse in Manhattan**\
-`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
-
 **The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
 `Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
 https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
+
+**What to Know About the Building at Risk of Collapse in Manhattan**\
+`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
 
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
@@ -130,8 +138,8 @@ https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
 `Jake Roxander, a virtuosic wonder at American Ballet Theater, was promoted onstage after a recent performance. The news hasn’t quite sunk in.`\
 https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
 
-**Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
-`Mayor Zohran Mamdani said people should avoid the area around the compromised building, a construction site several blocks east of Grand Central Terminal. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
+**Live Updates: Mamdani Warns That Midtown Manhattan Building ‘Remains Unstable’**\
+`City officials set up a multiblock “frozen zone” around the building, a construction site near Grand Central Terminal. Beams were being brought in to stabilize the structure, the buildings commissioner said.`\
 https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
 
 **Mitch McConnell está hospitalizado: esto es lo que sabemos**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/business/economy/trump-foreign-investment.htm
 **Prince Harry Loses Privacy Lawsuit Against Daily Mail Publisher**\
 `The case brought by Harry and other celebrities against Associated Newspapers was one of several legal battles that the prince has fought against British tabloids in recent years.`\
 https://www.nytimes.com/2026/07/07/world/europe/prince-harry-lawsuit-daily-mail-uk-associated-newspapers.html
-
-**U.S. Trade Deficit Widens in May on Record Goods Imports**\
-`Imports of foreign goods, including pharmaceuticals and equipment for data centers, hit a record high, pushing the monthly trade deficit to its highest level in over a year.`\
-https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
-
-**Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
-`The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
-https://www.nytimes.com/2026/07/07/world/europe/monaco-bombing-suspect-dead-ukraine.html
 
