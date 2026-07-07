@@ -1,3 +1,7 @@
+**Los terremotos en Venezuela fueron mortales. ¿Por qué?**\
+`Una serie de factores desafortunados —dos terremotos seguidos muy de cerca, una falla que se rompió en dirección a Caracas, un terreno blando y la poca profundidad del terremoto— se combinaron para que los terremotos de Venezuela fueran inusualmente letales.`\
+https://www.nytimes.com/es/interactive/2026/07/07/espanol/america-latina/venezuela-terremoto-causas.html
+
 **Kung Pao Tofu**\
 `Fiery from dried chiles, tingling with Sichuan peppercorns and studded with peanuts, this kung pao tofu recipe, linked below, is a vegetarian take on kung pao chicken, the classic Chinese American restaurant staple.`\
 https://www.nytimes.com/video/dining/100000011016675/kung-pao-tofu.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/crosswords/wordle-review-1845.html
 **Why China Fired a Long-Range Missile Into the Pacific**\
 `Beijing had long tested nuclear missiles only within its borders. A rare launch over an ocean shows it is determined to narrow the gap with the United States.`\
 https://www.nytimes.com/2026/07/07/world/asia/china-missile-test-submarine-pacific.html
-
-**Mass Mournings In Qom, Where Khamenei Ruled Supreme Over Iran’s Clerics**\
-`The ceremony for Ayatollah Ali Khamenei, held at a site considered sacred by many Shiites, was the latest step in a weeklong funeral organized by Iran’s government.`\
-https://www.nytimes.com/2026/07/07/world/middleeast/iran-khamenei-qom-funeral.html
 
