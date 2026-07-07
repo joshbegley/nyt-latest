@@ -1,3 +1,7 @@
+**I.O.C. Lifts Russia’s Olympic Suspension, Clearing the Way for 2028**\
+`The International Olympic Committee “provisionally” removed the ban imposed in relation to Russia’s invasion of Ukraine. A previous ban for systematic doping had already ended.`\
+https://www.nytimes.com/2026/07/07/world/europe/russia-olympic-suspension-lifted.html
+
 **Mapa: un terremoto de magnitud 5,3 sacude Costa Rica**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/07/07/espanol/terremoto-costa-rica.html
