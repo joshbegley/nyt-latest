@@ -1,3 +1,7 @@
+**Maryland Moves Toward Redistricting Ahead of 2028**\
+`Lawmakers at a special legislative session next month will try to pass an amendment to the state constitution that should ensure new congressional maps survive a legal challenge.`\
+https://www.nytimes.com/2026/07/07/us/politics/maryland-redistricting.html
+
 **Officials Warn of Partial Collapse in ‘Unstable’ Manhattan Building**\
 `City officials evacuated a construction site near Grand Central Terminal on Tuesday after structural issues were discovered.`\
 https://www.nytimes.com/video/nyregion/100000011017065/midtown-manhattan-building-collapse-risk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011016675/kung-pao-tofu.html
 **Venezuelans Criticize Own Government Response After Twin Earthquakes**\
 `Venezuelans are publicly expressing their anger over their government’s disaster response, despite the risk of imprisonment.`\
 https://www.nytimes.com/2026/07/07/world/americas/venezuela-earthquakes-delcy-rodriguez-trump.html
-
-**Con ‘Confessions II’, Madonna vuelve a la pista de baile**\
-`En la continuación de su exitoso “Confessions on a Dance Floor”, de 2005, la superestrella del pop renueva su mito fundacional y revela los problemas que ha superado bailando.`\
-https://www.nytimes.com/es/2026/07/07/espanol/cultura/madonna-confessions-ii-resena.html
 
