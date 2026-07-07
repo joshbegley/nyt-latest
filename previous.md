@@ -1,6 +1,10 @@
-**Plaintiff for Anti-Vaccine Group’s Suit Is Charged With Murder of Her Twins**\
+**Restaurant Review: Salt Hank in the East Village**\
+`Salt Hank’s in the East Village quickly became one of the most talked-about sandwiches in the city. Our critic gives it a go.`\
+https://www.nytimes.com/2026/07/07/dining/restaurant-review-salt-hanks.html
+
+**Andrea Shaw, Plaintiff in Anti-Vaccine Suit, Is Charged With Murder of Her Twins**\
 `A lawsuit filed by Children’s Health Defense, an organization founded by Robert F. Kennedy Jr., claims that vaccines caused the twins’ deaths. But a grand jury in Idaho has indicted her on charges of suffocating them.`\
-https://www.nytimes.com/2026/07/07/us/idaho-twins-death-vaccines-murder.html
+https://www.nytimes.com/2026/07/07/us/idaho-twins-death-shaw-vaccines-murder.html
 
 **Authorities Arrest Members of India-Based Gangs in Sweeping Crackdown**\
 `The actions were announced in Los Angeles, and most of the new arrests were in California. One of the gangs is accused of assassinating a prominent Sikh separatist leader in British Columbia.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
 **Trump Administration Guts Efforts to Prevent Gun Violence, Suppressing Reports**\
 `As the administration works to expand gun rights, hospitals and community groups have lost funding, and reports on preventing firearm injuries have vanished from government websites.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justice.html
-
-**America Was Being Played. The Bessent Doctrine Says Those Days Are Over.**\
-`The United States is changing the rules of trade in its favor.`\
-https://www.nytimes.com/2026/07/07/opinion/scott-bessent-trade-economy.html
 
 **Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
 `A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
