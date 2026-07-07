@@ -1,3 +1,7 @@
+**Republican Leaders Say They’ve Spoken With Mitch McConnell Since Hospitalization**\
+`The top two G.O.P. senators each said they had lengthy phone conversations with Senator Mitch McConnell, who has been hospitalized for three weeks, as questions mount about his condition.`\
+https://www.nytimes.com/2026/07/07/us/politics/mitch-mcconnell-hospital-thune-barrasso.html
+
 **The Symbols We Saw at Khamenei’s Funeral**\
 `Abdi Latif Dahir, a Middle East correspondent for The Times, explains the messages behind recurring symbols at the dayslong funeral for Ayatollah Ali Khamenei.`\
 https://www.nytimes.com/video/world/middleeast/100000011012446/the-symbols-we-saw-at-khameneis-funeral.html
