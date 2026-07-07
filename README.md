@@ -1,5 +1,5 @@
 **A Plan to Stop the Far Right**\
-`The German chancellor and his center-left coalition partners are trying to hold off far-right challengers. And they have a blueprint.`\
+`The German chancellor and his center-left coalition partners are trying to hold off populist challengers. And they have a road map.`\
 https://www.nytimes.com/2026/07/07/world/germany-afd-centrist-far-right-le-pen-farage.html
 
 **Marine Le Pen Announces 2027 French Presidential Bid**\
@@ -114,13 +114,13 @@ https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-fronti
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 
-**What to Know About the Building at Risk of Collapse in Manhattan**\
-`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
-
 **The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
 `Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
 https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
+
+**What to Know About the Building at Risk of Collapse in Manhattan**\
+`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
 
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
