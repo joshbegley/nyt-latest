@@ -1,3 +1,7 @@
+**La crisis en Cuba a través de una familia que sobrevive con 60 dólares al mes**\
+`El bloqueo petrolero estadounidense ha agravado la crisis humanitaria, lo que ha obligado a los cubanos a recurrir a la larga tradición de solidaridad comunitaria de la isla para salir adelante.`\
+https://www.nytimes.com/es/2026/07/07/espanol/america-latina/cuba-crisis-dolares-sobrevivir.html
+
 **A Radical Vision for Israelis and Palestinians**\
 `The old solutions to the Israeli-Palestinian conflict don’t seem to fit the present reality. A Land for All proposes an alternative.`\
 https://www.nytimes.com/2026/07/07/opinion/ezra-klein-podcast-may-pundak-rula-hardal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/style/dior-couture-taylor-swift-wedding.html
 **Soy psicólogo. No todo el mundo debería ir a terapia**\
 `La terapia parece haberse convertido en la receta por defecto para todo tipo de infelicidad.`\
 https://www.nytimes.com/es/2026/07/07/espanol/opinion/felicidad-psicologia-terapia-consulta.html
-
-**Gotham F.C., the Women’s Soccer Team, Is Leaving New Jersey for Queens**\
-`After years of sharing a stadium with the Red Bulls in New Jersey, Gotham announces a partnership with the New York City Football Club at their new stadium in Willets Point, Queens.`\
-https://www.nytimes.com/2026/07/07/nyregion/gotham-fc-etihad-park-queens.html
 
