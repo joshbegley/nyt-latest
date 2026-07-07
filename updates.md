@@ -1,3 +1,19 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011016827/07-vid-mamdani-conference-building.html
+
+**Mariska Hargitay to Host the Emmys**\
+`The “Law & Order: SVU” star is a departure from the comedians and sitcom actors who have typically hosted the annual awards show.`\
+https://www.nytimes.com/2026/07/07/business/media/mariska-hargitay-emmys-host.html
+
+**Jungsik Yim Charts an Eight-Course Tour of Asia at MŪJE**\
+`Cipriani Dolci reopens after a renovation, Maison Madison leans on Parisian glamour and more restaurant news.`\
+https://www.nytimes.com/2026/07/07/dining/nyc-restaurant-news.html
+
+**Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
+`A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
+https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
+
 **Los pasaportes de Trump comienzan a emitirse en Washington**\
 `La Agencia de Pasaportes de Washington empezó el lunes a expedir estos documentos de edición limitada con la imagen del presidente Trump, lo que tomó por sorpresa a algunos solicitantes.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/pasaporte-trump.html

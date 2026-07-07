@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
 https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
 
 **Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
-`Mayor Zohran Mamdani said people should avoid the area around the building, which is being converted from offices to housing. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
+`Mayor Zohran Mamdani said people should avoid the area around the compromised building, which sits several blocks east of Grand Central Terminal. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
 https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
 
 **Mitch McConnell está hospitalizado: esto es lo que sabemos**\
