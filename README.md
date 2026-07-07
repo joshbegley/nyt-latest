@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/07/07/crosswords/wordle-review-1845.html
 `Beijing had long tested nuclear missiles only within its borders. A rare launch over an ocean shows it is determined to narrow the gap with the United States.`\
 https://www.nytimes.com/2026/07/07/world/asia/china-missile-test-submarine-pacific.html
 
-**Ayatollah Ali Khamenei, Iran’s Slain Leader, Is Mourned in Qom**\
+**Mass Mournings In Qom, Where Khamenei Ruled Supreme Over Iran’s Clerics**\
 `The ceremony for Ayatollah Ali Khamenei, held at a site considered sacred by many Shiites, was the latest step in a weeklong funeral organized by Iran’s government.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/iran-khamenei-qom-funeral.html
 

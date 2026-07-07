@@ -1,3 +1,15 @@
+**Trump Administration Guts Efforts to Prevent Gun Violence, Suppressing Reports**\
+`As the administration works to expand gun rights, hospitals and community groups have lost funding, and reports on preventing firearm injuries have vanished from government websites.`\
+https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justice.html
+
+**Scott Bessent’s New Rules of Trade**\
+`The U.S. is changing the rules of trade in its favor.`\
+https://www.nytimes.com/2026/07/07/opinion/the-bessent-doctrine-the-days-of-america-being-played-are-over.html
+
+**Businesses Fear Politicization as Trump Gains More Power Over U.S. Agencies**\
+`A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
+https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulation.html
+
 **Companies Brace for Fresh Political Uncertainty at U.S. Agencies**\
 `A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
 https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulation.html
