@@ -1,3 +1,19 @@
+**Plaintiff for Anti-Vaccine Group’s Suit Is Charged With Murder of Her Twins**\
+`A lawsuit filed by Children’s Health Defense, an organization founded by Robert F. Kennedy Jr., claims that vaccines caused the twins’ deaths. But a grand jury in Idaho has indicted her on charges of suffocating them.`\
+https://www.nytimes.com/2026/07/07/us/idaho-twins-death-vaccines-murder.html
+
+**Authorities Arrest Members of India-Based Gangs in Sweeping Crackdown**\
+`The actions were announced in Los Angeles, and most of the new arrests were in California. One of the gangs is accused of assassinating a prominent Sikh separatist leader in British Columbia.`\
+https://www.nytimes.com/2026/07/07/us/india-gang-arrests.html
+
+**Meta Unveils an A.I. Image Generator**\
+`Muse Image, which can create realistic images for users on Instagram and WhatsApp, is the company’s latest attempt to catch up in the global artificial intelligence race.`\
+https://www.nytimes.com/2026/07/07/technology/meta-ai-muse-image.html
+
+**Platner Supporters Struggle to Come to Terms With Campaign’s Death Knell**\
+`Many voters said they expected Graham Platner, the state’s Democratic nominee for Senate, to exit the race after a former girlfriend publicly accused him of sexual assault.`\
+https://www.nytimes.com/2026/07/07/us/maine-voters-platner.html
+
 **Here’s How Much Rain Fell Across the New York Area This Week**\
 `After a blistering heat wave, a dousing of heavy rain this week caused flooding across the region. Experts said it could have been worse.`\
 https://www.nytimes.com/2026/07/07/weather/how-much-rain-fell-new-york-connecticut.html
@@ -162,10 +178,6 @@ https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
 `Jake Roxander, a virtuosic wonder at American Ballet Theater, was promoted onstage after a recent performance. The news hasn’t quite sunk in.`\
 https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
 
-**Live Updates: Evacuated Manhattan Building Remains Unstable as Officials Warn of Partial Collapse**\
-`City officials set up a multiblock “frozen zone” around the building, a construction site near Grand Central Terminal. Beams were being brought in to stabilize the structure, the buildings commissioner said.`\
-https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
-
 **Mitch McConnell está hospitalizado: esto es lo que sabemos**\
 `El senador republicano por Kentucky ingresó al hospital el 14 de junio, y su oficina apenas ha dado información sobre su estado. Esto es lo que sabemos.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estados-unidos/mitch-mcconnell-senador-hospitalizado.html
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justic
 `The United States is changing the rules of trade in its favor.`\
 https://www.nytimes.com/2026/07/07/opinion/scott-bessent-trade-economy.html
 
-**Businesses Fear Politicization as Trump Gains More Power Over U.S. Agencies**\
-`A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
-https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulation.html
-
-**La guerra global por los derechos de marca de Maradona**\
-`De un continente a otro, se lleva a cabo un disputa multimillonaria por los derechos de marca del dios del fútbol. El conflicto está destrozando a su familia y arruinando a inversores.`\
-https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-derechos-marca-argentina.html
-
 **Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
 `A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
 https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
-
-**Cosmic Conjoined Twins, Caught on Camera**\
-`A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
-https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
 

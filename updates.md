@@ -1,3 +1,19 @@
+**Plaintiff for Anti-Vaccine Group’s Suit Is Charged With Murder of Her Twins**\
+`A lawsuit filed by Children’s Health Defense, an organization founded by Robert F. Kennedy Jr., claims that vaccines caused the twins’ deaths. But a grand jury in Idaho has indicted her on charges of suffocating them.`\
+https://www.nytimes.com/2026/07/07/us/idaho-twins-death-vaccines-murder.html
+
+**Authorities Arrest Members of India-Based Gangs in Sweeping Crackdown**\
+`The actions were announced in Los Angeles, and most of the new arrests were in California. One of the gangs is accused of assassinating a prominent Sikh separatist leader in British Columbia.`\
+https://www.nytimes.com/2026/07/07/us/india-gang-arrests.html
+
+**Meta Unveils an A.I. Image Generator**\
+`Muse Image, which can create realistic images for users on Instagram and WhatsApp, is the company’s latest attempt to catch up in the global artificial intelligence race.`\
+https://www.nytimes.com/2026/07/07/technology/meta-ai-muse-image.html
+
+**Platner Supporters Struggle to Come to Terms With Campaign’s Death Knell**\
+`Many voters said they expected Graham Platner, the state’s Democratic nominee for Senate, to exit the race after a former girlfriend publicly accused him of sexual assault.`\
+https://www.nytimes.com/2026/07/07/us/maine-voters-platner.html
+
 **Here’s How Much Rain Fell Across the New York Area This Week**\
 `After a blistering heat wave, a dousing of heavy rain this week caused flooding across the region. Experts said it could have been worse.`\
 https://www.nytimes.com/2026/07/07/weather/how-much-rain-fell-new-york-connecticut.html
