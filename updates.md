@@ -1,3 +1,11 @@
+**New Strikes on Ships in Strait of Hormuz Test U.S.-Iran Cease-Fire**\
+`A U.S. official said Iranian missiles struck two commercial ships. There was no immediate comment from Iranian officials on the reported attacks.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/iran-war-oman-hormuz-tanker.html
+
+**Joining a Human Tide of Mourners Flowing Through Tehran’s Streets**\
+`After days of public mourning ceremonies in the Iranian capital, Ayatollah Ali Khamenei’s coffin arrived in Tehran’s Azadi Square. This is what I saw covering the miles-long procession on Monday.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/tehran-khamenei-funeral-procession.html
+
 **JD Vance Is Worried**\
 `The vice president’s theology comes in book form.`\
 https://www.nytimes.com/2026/07/07/opinion/jd-vance-communion-clash-civilizations.html
