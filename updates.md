@@ -1,3 +1,7 @@
+**U.K. Live Updates: Farage Says He Will Resign as Lawmaker, Forcing Special Election**\
+`Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
+https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
+
 **Explosions Rock Damascus During Macron Visit**\
 `President Emmanuel Macron of France was uninjured after two blasts occurred near the hotel where he was staying during his official visit to Syria.`\
 https://www.nytimes.com/video/world/middleeast/100000011015998/syria-macron-explosions-damascus-al-sharaa.html
