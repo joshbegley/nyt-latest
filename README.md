@@ -1,3 +1,7 @@
+**Trump Promised a Foreign Investment Boom. It’s Getting Harder to Deliver.**\
+`The threat of tariffs may have helped push more capital into the United States, but other factors are pushing it away.`\
+https://www.nytimes.com/2026/07/07/business/economy/trump-foreign-investment.html
+
 **Prince Harry Loses Privacy Lawsuit Against Daily Mail Publisher**\
 `The case brought by Harry and other celebrities against Associated Newspapers was one of several legal battles that the prince has fought against British tabloids in recent years.`\
 https://www.nytimes.com/2026/07/07/world/europe/prince-harry-lawsuit-daily-mail-uk-associated-newspapers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/t-magazine/paper-flowers-sourabh-gupta.html
 **How to Be a Good Guest at a Dinner Party**\
 `Tips for endearing yourself to your host and fellow attendees — and all but guaranteeing you’ll be asked back.`\
 https://www.nytimes.com/2026/07/07/t-magazine/good-guest-dinner-party-tips.html
-
-**Rashid Johnson and Sheree Hovsepian’s Art World Party in a Secret Garden on Minorca**\
-`Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
-https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html
 
