@@ -126,13 +126,13 @@ https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-fronti
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 
-**What to Know About the Building at Risk of Collapse in Manhattan**\
-`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
-
 **The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
 `Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
 https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
+
+**What to Know About the Building at Risk of Collapse in Manhattan**\
+`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
 
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
@@ -194,7 +194,7 @@ https://www.nytimes.com/interactive/polls/alabama-us-house-2-polls-2026.html
 `The writer Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
 https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-parent.html
 
-**Trump’s Top Air Pollution Regulator Will Resign**\
-`Aaron Szabo will step down as the head of the Environmental Protection Agency’s air office this month, he told employees, after overseeing rollbacks of a range of pollution limits.`\
-https://www.nytimes.com/2026/07/07/climate/aaron-szabo-epa-resign.html
+**Live Updates: Evacuated Manhattan Building Remains Unstable as Officials Warn of Partial Collapse**\
+`City officials set up a multiblock “frozen zone” around the building, a construction site near Grand Central Terminal. Beams were being brought in to stabilize the structure, the buildings commissioner said.`\
+https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
 
