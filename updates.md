@@ -1,3 +1,7 @@
+**Companies Brace for Fresh Political Uncertainty at U.S. Agencies**\
+`A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
+https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulation.html
+
 **La guerra global por los derechos de marca de Maradona**\
 `De un continente a otro, se lleva a cabo un disputa multimillonaria por los derechos de marca del dios del fútbol. El conflicto está destrozando a su familia y arruinando a inversores.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-derechos-marca-argentina.html

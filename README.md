@@ -1,3 +1,7 @@
+**Scott Bessent’s New Rules of Trade**\
+`The U.S. is changing the rules of trade in its favor.`\
+https://www.nytimes.com/2026/07/07/opinion/the-bessent-doctrine-the-days-of-america-being-played-are-over.html
+
 **Companies Brace for Fresh Political Uncertainty at U.S. Agencies**\
 `A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
 https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulation.html
@@ -178,13 +182,13 @@ https://www.nytimes.com/2026/07/07/business/soldiers-ai-disinformation.html
 `The supplement is said to help with weight loss, blood sugar, cholesterol and more. Is that too good to be true?`\
 https://www.nytimes.com/2026/07/07/well/eat/health-benefits-psyllium-husk.html
 
-**Why Are Berries Everywhere, in Every Season? Driscoll’s.**\
-`The California giant has helped turn a local, seasonal treat into a worldwide refrigerator staple and marketing juggernaut.`\
-https://www.nytimes.com/2026/07/07/dining/driscolls-berries.html
-
 **NATO Allies Will Try to Show Trump They Are Paying Up for Defense**\
 `Some are making significant progress on raising their military spending. A few are pushing boundaries in finding ways to try to meet their targets.`\
 https://www.nytimes.com/2026/07/07/world/europe/nato-defense-spending-trump-rutte.html
+
+**Why Are Berries Everywhere, in Every Season? Driscoll’s.**\
+`The California giant has helped turn a local, seasonal treat into a worldwide refrigerator staple and marketing juggernaut.`\
+https://www.nytimes.com/2026/07/07/dining/driscolls-berries.html
 
 **Book Review: ‘You Won’t Get Free of It,’ by Rachel Aviv**\
 `Rachel Aviv’s essay collection, “You Won’t Get Free of It,” shows the breadth and complexity of matrilineal relationships.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/books/review/rachel-aviv-you-wont-get-free-of
 **I Wanted an Ecologically Responsible Garden. It Was Harder Than I Thought.**\
 `The native plant movement gets a lot right, but there’s so much more to consider.`\
 https://www.nytimes.com/2026/07/07/magazine/native-plants-garden.html
-
-**New York City Travel Guide: What to See, Visit and Do**\
-`From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
-https://www.nytimes.com/interactive/2026/travel/new-york-city-guide.html
 
