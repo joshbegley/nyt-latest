@@ -1,3 +1,7 @@
+**Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
+`Mayor Zohran Mamdani said people should avoid the area around the compromised building, which sits several blocks east of Grand Central Terminal. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
+https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011016827/07-vid-mamdani-conference-building.html
