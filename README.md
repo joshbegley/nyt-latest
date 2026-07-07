@@ -51,7 +51,7 @@ https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuel
 https://www.nytimes.com/video/world/middleeast/100000011012446/the-symbols-we-saw-at-khameneis-funeral.html
 
 **Republican Leaders Say They’ve Spoken With Mitch McConnell Since Hospitalization**\
-`The top two G.O.P. senators each said they had lengthy phone conversations with Senator Mitch McConnell, who has been hospitalized for three weeks, as questions mount about his condition.`\
+`Two top Republican senators said they had talked to Senator Mitch McConnell, who has been hospitalized since June 14, but did not offer updates on his status or a timeline for his return.`\
 https://www.nytimes.com/2026/07/07/us/politics/mitch-mcconnell-hospital-thune-barrasso.html
 
 **Hachette Book Group Employees Vote to Unionize**\
