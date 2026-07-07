@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/07/06/world/europe/fifa-trump-infantino-world-cup-r
 https://www.nytimes.com/2026/07/06/us/politics/trump-turkey-f35.html
 
 **Platner Faces Growing Democratic Calls to Drop Out**\
-`Even supporters like Representative Ro Khanna of California called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
+`Even supporters like Representative Ro Khanna of California and Senator Elizabeth Warren of Massachusetts called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
 https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
 
 **Trump Tries to Take Credit for Walmart Price Cuts of Beef and Other Products**\

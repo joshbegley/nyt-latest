@@ -1,3 +1,7 @@
+**Platner Faces Growing Democratic Calls to Drop Out**\
+`Even supporters like Representative Ro Khanna of California and Senator Elizabeth Warren of Massachusetts called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
+https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
+
 **In CNN Interview, Woman Details Alleged Sexual Assault by Graham Platner**\
 `“This is something that I tried for many years to forget,” the woman, Jenny Racicot, said on CNN.`\
 https://www.nytimes.com/2026/07/06/us/politics/jenny-racicot-cnn-interview-graham-platner.html
