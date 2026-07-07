@@ -1,3 +1,7 @@
+**USMNT Elimination Reaction and World Cup Conspiracy Theories**\
+`Breaking down the good, the bad and the downright ugly from America’s elimination against Belgium.`\
+https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup-conspiracy-theories.html
+
 **The Onion’s Latest Joke: Taking Over Infowars**\
 `The satirical news outlet wants to convert the right-wing Infowars site into a parody of itself.`\
 https://www.nytimes.com/2026/07/07/podcasts/the-daily/the-onions-infowars.html
