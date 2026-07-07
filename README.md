@@ -196,5 +196,5 @@ https://www.nytimes.com/article/nyc-best-burgers.html
 
 **Estonia Won the War on Fentanyl. What Came Next Was Even Worse.**\
 `By 2018, fentanyl overdoses in Estonia had plummeted. But powerful new drugs are appearing fast, with the authorities racing to respond.`\
-https://www.nytimes.com/2026/07/07/world/europe/estonia-won-the-war-on-fentanyl-what-came-next-was-even-worse.html
+https://www.nytimes.com/2026/07/07/world/europe/estonia-fentanyl-new-drugs.html
 
