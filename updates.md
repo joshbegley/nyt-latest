@@ -1,3 +1,11 @@
+**Louise Lasser, Star of TV’s ‘Mary Hartman,’ Is Dead at 87**\
+`She began her screen career in Woody Allen movies (he was also her husband), but she was best known for her portrayal of the Ohio housewife in the pigtails and puffed sleeves.`\
+https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
+
+**Mass Mournings In Qom, Where Khamenei Ruled Supreme Over Iran’s Clerics**\
+`The ceremony for Ayatollah Ali Khamenei, held at a site considered sacred by many Shiites, was the latest step in a weeklong funeral organized by Iran’s government.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/iran-khamenei-qom-funeral.html
+
 **Trump Administration Guts Efforts to Prevent Gun Violence, Suppressing Reports**\
 `As the administration works to expand gun rights, hospitals and community groups have lost funding, and reports on preventing firearm injuries have vanished from government websites.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justice.html
