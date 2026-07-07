@@ -1,4 +1,4 @@
-**Oppressive Heat Suspected in 29 Deaths in New Jersey**\
+**Death Toll From Oppressive Heat in New Jersey May Be as High as 29**\
 `In New York City, emergency rooms last week logged the highest number of patients treated for heat-related illnesses in years.`\
 https://www.nytimes.com/2026/07/06/nyregion/new-jersey-nyc-heat-deaths.html
 
