@@ -1,3 +1,7 @@
+**Jungsik Yim Charts an Eight-Course Tour of Asia at MŪJE**\
+`Cipriani Dolci reopens after a renovation, Maison Madison leans on Parisian glamour and more restaurant news.`\
+https://www.nytimes.com/2026/07/07/dining/nyc-restaurant-news.html
+
 **Los pasaportes de Trump comienzan a emitirse en Washington**\
 `La Agencia de Pasaportes de Washington empezó el lunes a expedir estos documentos de edición limitada con la imagen del presidente Trump, lo que tomó por sorpresa a algunos solicitantes.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/pasaporte-trump.html
@@ -78,8 +82,8 @@ https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulati
 `De un continente a otro, se lleva a cabo un disputa multimillonaria por los derechos de marca del dios del fútbol. El conflicto está destrozando a su familia y arruinando a inversores.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-derechos-marca-argentina.html
 
-**Live Updates: Video at Kirk Hearing Shows Man on Roof Near Shooting Site**\
-`A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the conservative activist.`\
+**Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
+`A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
 https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
 
 **Cosmic Conjoined Twins, Caught on Camera**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/supreme-court-assault-weapons-bans.html
 **Abandoned by Allies, Graham Platner Faces Pressure to End Maine Senate Campaign**\
 `After Graham Platner, the Democratic nominee in Maine, was accused of rape, much of the party and several key supporters turned against him.`\
 https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate.html
-
-**Mareos intensos sin dolor de cabeza: la migraña que los médicos pasan por alto**\
-`Pese a su frecuencia en EE. UU., la migraña vestibular es un trastorno que no muchos médicos identifican.`\
-https://www.nytimes.com/es/2026/07/07/espanol/migrana-vestibular-mareo-dolor-cabeza.html
 

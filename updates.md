@@ -1,3 +1,15 @@
+**Los pasaportes de Trump comienzan a emitirse en Washington**\
+`La Agencia de Pasaportes de Washington empezó el lunes a expedir estos documentos de edición limitada con la imagen del presidente Trump, lo que tomó por sorpresa a algunos solicitantes.`\
+https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/pasaporte-trump.html
+
+**Trump and the U.S. Loss in the World Cup**\
+`Readers react to Belgium’s victory and President Trump’s meddling. Also: Effects of Supreme Court rulings; hanging out without phones.`\
+https://www.nytimes.com/2026/07/07/opinion/world-cup-trump.html
+
+**Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
+`Mayor Zohran Mamdani said people should avoid the area around the building, which is being converted from offices to housing. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
+https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
+
 **Trump and the U.S. Loss in the World Cup**\
 `Readers react to the U.S. loss in the World Cup and President Trump’s meddling. Also: Effects of Supreme Court rulings; hanging out without phones.`\
 https://www.nytimes.com/2026/07/07/opinion/world-cup-trump.html

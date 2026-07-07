@@ -1,5 +1,9 @@
+**Los pasaportes de Trump comienzan a emitirse en Washington**\
+`La Agencia de Pasaportes de Washington empezó el lunes a expedir estos documentos de edición limitada con la imagen del presidente Trump, lo que tomó por sorpresa a algunos solicitantes.`\
+https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/pasaporte-trump.html
+
 **Trump and the U.S. Loss in the World Cup**\
-`Readers react to the U.S. loss in the World Cup and President Trump’s meddling. Also: Effects of Supreme Court rulings; hanging out without phones.`\
+`Readers react to Belgium’s victory and President Trump’s meddling. Also: Effects of Supreme Court rulings; hanging out without phones.`\
 https://www.nytimes.com/2026/07/07/opinion/world-cup-trump.html
 
 **El papa León se enfrenta a la primera crisis de su pontificado**\
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
 `Jake Roxander, a virtuosic wonder at American Ballet Theater, was promoted onstage after a recent performance. The news hasn’t quite sunk in.`\
 https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
 
-**Live Updates: Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
-`The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found that support columns were buckling and upper floors were sagging.`\
+**Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
+`Mayor Zohran Mamdani said people should avoid the area around the building, which is being converted from offices to housing. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
 https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
 
 **Mitch McConnell está hospitalizado: esto es lo que sabemos**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate.html
 **Mareos intensos sin dolor de cabeza: la migraña que los médicos pasan por alto**\
 `Pese a su frecuencia en EE. UU., la migraña vestibular es un trastorno que no muchos médicos identifican.`\
 https://www.nytimes.com/es/2026/07/07/espanol/migrana-vestibular-mareo-dolor-cabeza.html
-
-**The History at the Smithsonian That the White House Finds Unpatriotic**\
-`The administration’s report criticizing the National Museum of American History echoes themes of President Trump’s push to reshape the American story.`\
-https://www.nytimes.com/2026/07/07/arts/smithsonian-trump-george-washington.html
 
