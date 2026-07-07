@@ -1,3 +1,7 @@
+**Oppressive Heat Suspected in 29 Deaths in New Jersey**\
+`In New York City, emergency rooms last week logged the highest number of patients treated for heat-related illnesses in years.`\
+https://www.nytimes.com/2026/07/06/nyregion/new-jersey-nyc-heat-deaths.html
+
 **The World Cup Revived Seattle’s Downtown. Will the Energy Last?**\
 `The city struggled for years after the pandemic shutdown and the rush to remote work. But downtown has been full of soccer fans for the past month.`\
 https://www.nytimes.com/2026/07/06/us/world-cup-downtown-seattle-revitalization.html

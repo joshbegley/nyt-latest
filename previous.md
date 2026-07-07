@@ -1,3 +1,7 @@
+**Oppressive Heat Suspected in 29 Deaths in New Jersey**\
+`In New York City, emergency rooms last week logged the highest number of patients treated for heat-related illnesses in years.`\
+https://www.nytimes.com/2026/07/06/nyregion/new-jersey-nyc-heat-deaths.html
+
 **The World Cup Revived Seattle’s Downtown. Will the Energy Last?**\
 `The city struggled for years after the pandemic shutdown and the rush to remote work. But downtown has been full of soccer fans for the past month.`\
 https://www.nytimes.com/2026/07/06/us/world-cup-downtown-seattle-revitalization.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
 **Food and Beverages Have Gone Bananas**\
 `America’s most-eaten fresh fruit has hit cafe menus, snack-aisle shelves and drink fridges with unexpected force. Is it the next pumpkin spice?`\
 https://www.nytimes.com/2026/07/06/dining/food-drink-banana-flavor.html
-
-**Terremotos en Venezuela: los sitios para rastrear a desaparecidos**\
-`Medios de comunicación y figuras de la oposición venezolana empezaron a citar las cifras de estos sitios como prueba de la gravedad del desastre y de las deficiencias en la respuesta del gobierno.`\
-https://www.nytimes.com/es/2026/07/06/espanol/america-latina/venezuela-terremotos-desaparecidos.html
 
 **Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\
