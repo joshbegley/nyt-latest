@@ -1,3 +1,19 @@
+**Kung Pao Tofu**\
+`Fiery from dried chiles, tingling with Sichuan peppercorns and studded with peanuts, this kung pao tofu recipe, linked below, is a vegetarian take on kung pao chicken, the classic Chinese American restaurant staple.`\
+https://www.nytimes.com/video/dining/100000011016675/kung-pao-tofu.html
+
+**Repression Turns to Rage After Quakes in Venezuela**\
+`Venezuelans are publicly expressing their anger over their government’s disaster response, despite the risk of imprisonment.`\
+https://www.nytimes.com/2026/07/07/world/americas/venezuela-earthquakes-delcy-rodriguez-trump.html
+
+**Con ‘Confessions II’, Madonna vuelve a la pista de baile**\
+`En la continuación de su exitoso “Confessions on a Dance Floor”, de 2005, la superestrella del pop renueva su mito fundacional y revela los problemas que ha superado bailando.`\
+https://www.nytimes.com/es/2026/07/07/espanol/cultura/madonna-confessions-ii-resena.html
+
+**The World Cup Stood as a Break From U.S. Politics. Then Trump Got Involved.**\
+`The president’s call to the head of FIFA underscores that he has yet to find an area of American, or even global, life where he is unwilling to assert himself.`\
+https://www.nytimes.com/2026/07/07/us/politics/trump-world-cup-fifa.html
+
 **Live Updates: Mamdani Warns That Midtown Manhattan Building Remains Unstable**\
 `Mayor Zohran Mamdani said people should avoid the area around the compromised building, which sits several blocks east of Grand Central Terminal. The city is bringing beams to stabilize the structure, the buildings commissioner said.`\
 https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
