@@ -1,3 +1,7 @@
+**Belgium’s World Cup Win Over U.S. Fuels Triumph and Snark in Europe**\
+`President Trump had pushed to allow an American player to take the field despite a red card suspension, and the trouncing of the U.S. team was painted as a sign of justice.`\
+https://www.nytimes.com/2026/07/07/world/europe/belgium-us-world-cup-balogun-trump.html
+
 **Caribbean Disparity**\
 `We look at U.S. relief efforts in Haiti in 2010 and in Venezuela now.`\
 https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/article/nyc-best-burgers.html
 **Estonia Won the War on Fentanyl. What Came Next Was Even Worse.**\
 `By 2018, fentanyl overdoses in Estonia had plummeted. But powerful new drugs are appearing fast, with the authorities racing to respond.`\
 https://www.nytimes.com/2026/07/07/world/europe/estonia-won-the-war-on-fentanyl-what-came-next-was-even-worse.html
-
-**Inside the United States’ Billion-Dollar Blind Spot: Hail**\
-`Scientists have never quite understood how hail works. Meet the storm chasers trying to change that.`\
-https://www.nytimes.com/2026/07/07/weather/hail-damage-cost.html
 
