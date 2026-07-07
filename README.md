@@ -78,7 +78,7 @@ https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-pa
 `Aaron Szabo will step down as the head of the Environmental Protection Agency’s air office this month, he told employees, after overseeing rollbacks of a range of pollution limits.`\
 https://www.nytimes.com/2026/07/07/climate/aaron-szabo-epa-resign.html
 
-**Democrats Begin to Clash Over Who Replaces Platner Even Before He Exits**\
+**Democrats Clash Over Who Replaces Platner Even Before He Exits**\
 `Progressives and moderates are gearing up for a fight over an as-yet-undecided process in Maine to name a Senate nominee to replace Graham Platner after a rape accusation. He still wants a say, too.`\
 https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-replacements-democrats.html
 
