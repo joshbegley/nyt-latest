@@ -1,3 +1,11 @@
+**Kung Pao Tofu**\
+`Fiery from dried chiles, tingling with Sichuan peppercorns and studded with peanuts, this kung pao tofu recipe, linked below, is a vegetarian take on kung pao chicken, the classic Chinese American restaurant staple.`\
+https://www.nytimes.com/video/dining/100000011016675/kung-pao-tofu.html
+
+**Repression Turns to Rage After Quakes in Venezuela**\
+`Venezuelans are publicly expressing their anger over their government’s disaster response, despite the risk of imprisonment.`\
+https://www.nytimes.com/2026/07/07/world/americas/venezuela-earthquakes-delcy-rodriguez-trump.html
+
 **Con ‘Confessions II’, Madonna vuelve a la pista de baile**\
 `En la continuación de su exitoso “Confessions on a Dance Floor”, de 2005, la superestrella del pop renueva su mito fundacional y revela los problemas que ha superado bailando.`\
 https://www.nytimes.com/es/2026/07/07/espanol/cultura/madonna-confessions-ii-resena.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/world/asia/china-missile-test-submarine-pacif
 **Mass Mournings In Qom, Where Khamenei Ruled Supreme Over Iran’s Clerics**\
 `The ceremony for Ayatollah Ali Khamenei, held at a site considered sacred by many Shiites, was the latest step in a weeklong funeral organized by Iran’s government.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/iran-khamenei-qom-funeral.html
-
-**World Cup 2026: See How a Series of U.S. Mistakes Led to Belgium’s Third Goal**\
-`View in 3-D how the U.S. men’s soccer team failed to stop Belgium from scoring a crucial goal in a match that ultimately knocked the United States out of the World Cup.`\
-https://www.nytimes.com/interactive/2026/07/07/sports/soccer/usa-belgium-world-cup-goal.html
-
-**La crisis en Cuba a través de una familia que sobrevive con 60 dólares al mes**\
-`El bloqueo petrolero estadounidense ha agravado la crisis humanitaria, lo que ha obligado a los cubanos a recurrir a la larga tradición de solidaridad comunitaria de la isla para salir adelante.`\
-https://www.nytimes.com/es/2026/07/07/espanol/america-latina/cuba-crisis-dolares-sobrevivir.html
 
