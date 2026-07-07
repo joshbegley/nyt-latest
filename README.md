@@ -1,3 +1,7 @@
+**New Strikes on Ships in Strait of Hormuz Test U.S.-Iran Cease-Fire**\
+`A U.S. official said Iranian missiles struck two commercial ships. There was no immediate comment from Iranian officials on the reported attacks.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/iran-war-oman-hormuz-tanker.html
+
 **‘Kimmel’ Guest Host Tiffany Haddish Roasts Trump’s Fourth of July Party**\
 `The comedian and actress joked that “there was more people at my bat mitzvah” than at America’s 250th birthday party.`\
 https://www.nytimes.com/2026/07/07/arts/television/kimmel-tiffany-haddish-trump.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/07/07/opinion/jd-vance-communion-clash-civilization
 
 **Joining a Human Tide of Mourners Flowing Through Tehran’s Streets**\
 `After days of public mourning ceremonies in the Iranian capital, Ayatollah Ali Khamenei’s coffin arrived in Tehran’s Azadi Square. This is what I saw covering the miles-long procession on Monday.`\
-https://www.nytimes.com/2026/07/07/world/middleeast/joining-a-human-tide-of-mourners-flowing-through-tehrans-streets.html
+https://www.nytimes.com/2026/07/07/world/middleeast/tehran-khamenei-funeral-procession.html
 
 **Quote of the Day: Ankara Moves to Stifle Critics Amid Summit**\
 `Quotation of the Day for Tuesday, July 7, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
 **Canada Bets on NATO Partners for Its Expanded Submarine Fleet**\
 `In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
 https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
-
-**Platner’s Democratic Support Evaporates After Sexual Assault Allegation**\
-`Graham Platner, the Democratic Senate candidate in Maine, called the allegation false but said he would “reflect” on his political path forward, as many allies rescinded their endorsements.`\
-https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
 
