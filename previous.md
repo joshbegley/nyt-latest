@@ -174,13 +174,13 @@ https://www.nytimes.com/2026/07/07/t-magazine/paper-flowers-sourabh-gupta.html
 `Tips for endearing yourself to your host and fellow attendees — and all but guaranteeing you’ll be asked back.`\
 https://www.nytimes.com/2026/07/07/t-magazine/good-guest-dinner-party-tips.html
 
-**Rashid Johnson**\
-`Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
-https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html
-
 **A Flower-Filled Party on a Farm in New Jersey**\
 `To celebrate a milestone anniversary, the beauty brand founder Yael Alkalay invited friends for floral distillation, scent-making and tea.`\
 https://www.nytimes.com/2026/07/07/t-magazine/red-flower-new-jersey.html
+
+**Rashid Johnson and Sheree Hovsepian’s Art World Party in a Secret Garden on Minorca**\
+`Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
+https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html
 
 **On a Hot Night in Bangkok, a Dinner on the Sidewalk**\
 `While visiting her hometown, the chef Rose Chalalai Singh partnered with friends on a meal that celebrated Thai ingredients and traditions.`\

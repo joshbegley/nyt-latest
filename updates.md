@@ -1,3 +1,7 @@
+**Rashid Johnson and Sheree Hovsepian’s Art World Party in a Secret Garden on Minorca**\
+`Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
+https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html
+
 **Estonia Won the War on Fentanyl. What Came Next Was Even Worse.**\
 `By 2018, fentanyl overdoses in Estonia had plummeted. But powerful new drugs are appearing fast, with the authorities racing to respond.`\
 https://www.nytimes.com/2026/07/07/world/europe/estonia-fentanyl-new-drugs.html
