@@ -1,3 +1,11 @@
+**Democratic Socialists Are on the Rise. We’ve Seen This Movie Before.**\
+`Mainstream party leaders can’t dodge a fight with their left.`\
+https://www.nytimes.com/2026/07/07/opinion/democratic-socialist-liberal-progressive.html
+
+**Is Haiti Safe for Haitian Deportees?**\
+`Stephen Miller said that Haiti is safe for Haitian deportees. Our White House correspondent Zolan Kanno-Youngs analyzed federal reports that say otherwise.`\
+https://www.nytimes.com/video/us/100000011005438/is-haiti-safe-for-haitian-deportees.html
+
 **A Plan to Stop the Far Right**\
 `The German chancellor and his center-left coalition partners are trying to hold off populist challengers. And they have a road map.`\
 https://www.nytimes.com/2026/07/07/world/germany-afd-centrist-far-right-le-pen-farage.html
