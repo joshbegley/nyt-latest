@@ -1,3 +1,23 @@
+**El papa León se enfrenta a la primera crisis de su pontificado**\
+`Un enfrentamiento inminente entre el papa León y los católicos ultratradicionalistas amenaza con poner fin a la luna de miel del pontífice.`\
+https://www.nytimes.com/es/2026/07/07/espanol/opinion/papa-leon-iglesia-catolica-crisis.html
+
+**Who is Ahead in Alabama's 2nd Congressional District?**\
+`Track the latest polls in Alabama's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/alabama-us-house-2-polls-2026.html
+
+**Say This to a Grieving Parent**\
+`Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
+https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-parent.html
+
+**Trump’s Top Air Pollution Regulator Will Resign**\
+`Aaron Szabo will step down as the head of the Environmental Protection Agency’s air office this month, he told employees, after overseeing rollbacks of a range of pollution limits.`\
+https://www.nytimes.com/2026/07/07/climate/aaron-szabo-epa-resign.html
+
+**Democrats Begin to Clash Over Who Replaces Platner Even Before He Exits**\
+`Progressives and moderates are gearing up for a fight over an as-yet-undecided process in Maine to name a Senate nominee to replace Graham Platner after a rape accusation. He still wants a say, too.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-replacements-democrats.html
+
 **Man Arrested for Painting ‘Pam the Bird’ Graffiti on Bridge Tower in Melbourne**\
 `An hourslong standoff with police ended after the man descended the 140-foot tower and surrendered. The graffiti resembled the “Pam the Bird” symbol which began appearing across the city in 2023.`\
 https://www.nytimes.com/2026/07/07/world/australia/pam-bird-graffiti-melbourne-bridge.html
