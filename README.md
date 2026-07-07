@@ -1,3 +1,7 @@
+**Companies Brace for Fresh Political Uncertainty at U.S. Agencies**\
+`A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
+https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulation.html
+
 **La guerra global por los derechos de marca de Maradona**\
 `De un continente a otro, se lleva a cabo un disputa multimillonaria por los derechos de marca del dios del fútbol. El conflicto está destrozando a su familia y arruinando a inversores.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-derechos-marca-argentina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/magazine/native-plants-garden.html
 **New York City Travel Guide: What to See, Visit and Do**\
 `From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
 https://www.nytimes.com/interactive/2026/travel/new-york-city-guide.html
-
-**The 39-ish Most Stylish People of 2026, So Far**\
-`On red carpets, on set, onstage and even up in space, they captured our attention with their looks.`\
-https://www.nytimes.com/2026/07/07/style/most-stylish-people-of-2026-so-far.html
 
