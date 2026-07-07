@@ -1,3 +1,11 @@
+**A Plan to Stop the Far Right**\
+`The German chancellor and his center-left coalition partners are trying to hold off far-right challengers. And they have a blueprint.`\
+https://www.nytimes.com/2026/07/07/world/germany-afd-centrist-far-right-le-pen-farage.html
+
+**Marine Le Pen Announces 2027 French Presidential Bid**\
+`The far-right French leader said on Tuesday that she will seek the presidency for the fourth time, despite an embezzlement conviction and a previous ban on her eligibility for office.`\
+https://www.nytimes.com/video/world/europe/100000011016495/marine-le-pen-2027-presidential-bid.html
+
 **Marine Le Pen’s Court Battle Is Latest Clash Between Populists and Watchdogs**\
 `The far-right leader’s battle with the French judiciary evokes legal standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
 https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/world/australia/pam-bird-graffiti-melbourne-b
 **New Museum’s Next Director Will Be Massimiliano Gioni**\
 `The expanded museum is promoting its longtime artistic director to help rebuild attendance after a two-year closure and hold onto its “edgy” character.`\
 https://www.nytimes.com/2026/07/07/arts/design/new-museum-director-massimiliano-gioni.html
-
-**Una llamada de Trump, una tarjeta roja cuestionada y un Mundial en apuros**\
-`Según el presidente de la FIFA, Gianni Infantino, no hubo nada inusual en la llamada del presidente Trump, ni en la revocación de la suspensión de Folarin Balogun.`\
-https://www.nytimes.com/es/2026/07/07/espanol/mundo/trump-infantino-tarjeta-roja.html
-
-**Nation’s 250th Celebration Fireworks Sent D.C. Air Pollution Spiking**\
-`The president promised a record display of some 850,000 pyrotechnics for the country’s 250th birthday. The Park Service warned it could get dirty.`\
-https://www.nytimes.com/2026/07/07/climate/washington-dc-fireworks-air-pollution.html
 

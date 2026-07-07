@@ -1,3 +1,7 @@
+**Marine Le Pen’s Court Battle Is Latest Clash Between Populists and Watchdogs**\
+`The far-right leader’s battle with the French judiciary evokes legal standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
+https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
+
 **Anthropic Expands in Manhattan, Part of an A.I. Boom in New York**\
 `Anthropic, the artificial intelligence company, plans to lease a 16-story building in Hudson Square and to double its work force in New York City to 1,000 people this year.`\
 https://www.nytimes.com/2026/07/07/nyregion/anthropic-ai-boom-nyc.html
@@ -51,7 +55,7 @@ https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuel
 https://www.nytimes.com/video/world/middleeast/100000011012446/the-symbols-we-saw-at-khameneis-funeral.html
 
 **Republican Leaders Say They’ve Spoken With Mitch McConnell Since Hospitalization**\
-`The top two G.O.P. senators each said they had lengthy phone conversations with Senator Mitch McConnell, who has been hospitalized for three weeks, as questions mount about his condition.`\
+`Two top Republican senators said they had talked to Senator Mitch McConnell, who has been hospitalized since June 14, but did not offer updates on his status or a timeline for his return.`\
 https://www.nytimes.com/2026/07/07/us/politics/mitch-mcconnell-hospital-thune-barrasso.html
 
 **Hachette Book Group Employees Vote to Unionize**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/07/espanol/mundo/trump-infantino-tarjeta-roja
 **Nation’s 250th Celebration Fireworks Sent D.C. Air Pollution Spiking**\
 `The president promised a record display of some 850,000 pyrotechnics for the country’s 250th birthday. The Park Service warned it could get dirty.`\
 https://www.nytimes.com/2026/07/07/climate/washington-dc-fireworks-air-pollution.html
-
-**A Supreme Leader’s Final Crowds**\
-`What you could see when Ayatollah Ali Khamenei’s coffin was being driven to a public space in Tehran.`\
-https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
 

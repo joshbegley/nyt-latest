@@ -1,3 +1,11 @@
+**Marine Le Pen’s Court Battle Is Latest Clash Between Populists and Watchdogs**\
+`The far-right leader’s battle with the French judiciary evokes legal standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
+https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
+
+**Republican Leaders Say They’ve Spoken With Mitch McConnell Since Hospitalization**\
+`Two top Republican senators said they had talked to Senator Mitch McConnell, who has been hospitalized since June 14, but did not offer updates on his status or a timeline for his return.`\
+https://www.nytimes.com/2026/07/07/us/politics/mitch-mcconnell-hospital-thune-barrasso.html
+
 **Anthropic Expands in Manhattan, Part of an A.I. Boom in New York**\
 `Anthropic, the artificial intelligence company, plans to lease a 16-story building in Hudson Square and to double its work force in New York City to 1,000 people this year.`\
 https://www.nytimes.com/2026/07/07/nyregion/anthropic-ai-boom-nyc.html
