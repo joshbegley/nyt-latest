@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/07/07/world/germany-afd-centrist-far-right-le-pen-f
 https://www.nytimes.com/video/world/europe/100000011016495/marine-le-pen-2027-presidential-bid.html
 
 **Marine Le Pen’s Court Battle Is Latest Clash Between Populists and Watchdogs**\
-`The far-right leader’s battle with the French judiciary evokes legal standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
+`The far-right leader’s battle with the French judiciary evokes standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
 https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
 
 **Anthropic Expands in Manhattan, Part of an A.I. Boom in New York**\

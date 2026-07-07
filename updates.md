@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011017727/07visualUploader-33442.html
+
+**Midtown Evacuations Scramble Plans for Hotel Guests**\
+`At least two hotels near the unstable building were evacuated, stranding travelers and forcing guests to clamber for alternative accommodation.`\
+https://www.nytimes.com/2026/07/07/travel/midtown-hotels-building-collapse.html
+
 **Justice Department Threatens Top Election Officials Over Noncitizen Voting**\
 `The letters come amid President Trump’s effort to tighten election rules to prevent a problem that doesn’t exist: widespread noncitizen voting.`\
 https://www.nytimes.com/2026/07/07/us/politics/justice-department-elections-noncitizen-voting.html
