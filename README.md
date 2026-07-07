@@ -1,3 +1,7 @@
+**‘We Palestinians Are Not Going to Give Up’**\
+`The Palestinian advocate Rula Hardal is a co-executive director of A Land for All, a joint Israeli-Palestinian initiative to imagine a new future for the region. She shares her motivation to find new solutions on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011002960/we-palestinians-are-not-going-to-give-up.html
+
 **‘This Has Not Given Us Safety’**\
 `The Israeli activist May Pundak advocated the two-state solution for many years, but her confidence faded as she saw the idea lose relevance. On “The Ezra Klein Show,” Pundak explains why there’s a need for a new way of thinking — and a new plan for the future of the region.`\
 https://www.nytimes.com/video/opinion/100000011002639/this-has-not-given-us-safety.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 **The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
 `Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
 https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
-
-**What to Know About the Building at Risk of Collapse in Manhattan**\
-`The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
 
