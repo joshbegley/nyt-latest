@@ -1,3 +1,7 @@
+**JD Vance Is Worried**\
+`The vice president’s theology comes in book form.`\
+https://www.nytimes.com/2026/07/07/opinion/jd-vance-communion-clash-civilizations.html
+
 **‘Kimmel’ Guest Host Tiffany Haddish Roasts Trump’s Fourth of July Party**\
 `The comedian and actress joked that “there was more people at my bat mitzvah” than at America’s 250th birthday party.`\
 https://www.nytimes.com/2026/07/07/arts/television/kimmel-tiffany-haddish-trump.html
