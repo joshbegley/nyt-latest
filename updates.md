@@ -1,3 +1,7 @@
+**Los terremotos en Venezuela fueron mortales. ¿Por qué?**\
+`Una serie de factores desafortunados —dos terremotos seguidos muy de cerca, una falla que se rompió en dirección a Caracas, un terreno blando y la poca profundidad del terremoto— se combinaron para que los terremotos de Venezuela fueran inusualmente letales.`\
+https://www.nytimes.com/es/interactive/2026/07/07/espanol/america-latina/venezuela-terremoto-causas.html
+
 **Kung Pao Tofu**\
 `Fiery from dried chiles, tingling with Sichuan peppercorns and studded with peanuts, this kung pao tofu recipe, linked below, is a vegetarian take on kung pao chicken, the classic Chinese American restaurant staple.`\
 https://www.nytimes.com/video/dining/100000011016675/kung-pao-tofu.html

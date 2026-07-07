@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011016891/07visualUploader-60479.html
+
 **Los terremotos en Venezuela fueron mortales. ¿Por qué?**\
 `Una serie de factores desafortunados —dos terremotos seguidos muy de cerca, una falla que se rompió en dirección a Caracas, un terreno blando y la poca profundidad del terremoto— se combinaron para que los terremotos de Venezuela fueran inusualmente letales.`\
 https://www.nytimes.com/es/interactive/2026/07/07/espanol/america-latina/venezuela-terremoto-causas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/crosswords/strands-sidekick-857.html
 **Today’s Wordle Hints for July 8, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 8, 2026.`\
 https://www.nytimes.com/2026/07/07/crosswords/wordle-review-1845.html
-
-**Why China Fired a Long-Range Missile Into the Pacific**\
-`Beijing had long tested nuclear missiles only within its borders. A rare launch over an ocean shows it is determined to narrow the gap with the United States.`\
-https://www.nytimes.com/2026/07/07/world/asia/china-missile-test-submarine-pacific.html
 
