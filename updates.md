@@ -1,3 +1,11 @@
+**More Americans Than Ever Are Taking Weight-Loss Drugs**\
+`The number of U.S. adults taking an obesity medication has nearly quadrupled from just two years ago.`\
+https://www.nytimes.com/2026/07/07/well/americans-taking-weight-loss-drugs.html
+
+**Word of the Day: deficit**\
+`This word has appeared in 972 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/07/learning/word-of-the-day-deficit.html
+
 **Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
 `Typhoon Maysak has been lashing Southern China for days, bursting dam walls and inundating homes and farms.`\
 https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
