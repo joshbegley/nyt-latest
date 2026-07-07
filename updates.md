@@ -1,3 +1,31 @@
+**Joining a Human Tide of Mourners Flowing Through Tehran’s Streets**\
+`After days of public mourning ceremonies in the Iranian capital, Ayatollah Ali Khamenei’s coffin arrived in Tehran’s Azadi Square. This is what I saw covering the miles-long procession on Monday.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/joining-a-human-tide-of-mourners-flowing-through-tehrans-streets.html
+
+**Quote of the Day: Ankara Moves to Stifle Critics Amid Summit**\
+`Quotation of the Day for Tuesday, July 7, 2026.`\
+https://www.nytimes.com/2026/07/07/pageoneplus/quote-of-the-day-ankara-moves-to-stifle-critics-amid-summit.html
+
+**In NATO’s Next Act, Can Europe Play the Leading Role?**\
+`The focus at a leaders’ summit in Turkey this week will be on building a new model for the alliance, as President Trump pushes to do less and pressures others do more.`\
+https://www.nytimes.com/2026/07/07/world/europe/nato-trump-rutte-ankara-turkey.html
+
+**A Long-Awaited Verdict for Marine Le Pen Could Reshape France’s Politics**\
+`A court will decide on Tuesday whether to uphold Ms. Le Pen’s embezzlement conviction. If it does, the far-right leader will probably be barred from running for the presidency next year.`\
+https://www.nytimes.com/2026/07/07/world/europe/marine-le-pen-verdict-election-ban-appeal.html
+
+**Fans Celebrate Taylor Swift and Travis Kelce’s Wedding With Charitable Donations**\
+`Inspired by Taylor Swift and Travis Kelce’s $26 million charitable gifts ahead of their wedding, Swifties are expressing their own generosity through donations to causes the couple supports.`\
+https://www.nytimes.com/2026/07/07/style/taylor-swift-travis-kelce-wedding-fans-charity-donations.html
+
+**Trump’s Tenuous Relationship With NATO Allies**\
+`At this year’s NATO summit in Turkey, President Trump is arriving with his own priorities — and, as Tyler Pager, The Times’s White House correspondent, explains, they do not necessarily align with those of other NATO leaders.`\
+https://www.nytimes.com/video/us/100000011005338/trumps-tenuous-relationship-with-nato-allies.html
+
+**Samsung Made More Profit Last Quarter Than the Last Two Years Combined**\
+`The A.I. boom has propelled the South Korean tech giant’s earnings, but its shares sank as investors had even loftier expectations.`\
+https://www.nytimes.com/2026/07/06/business/samsung-earnings-chips.html
+
 **Muere el ‘Indio’ Solari, leyenda del rock argentino**\
 `Un icono de la contracultura con gran atractivo, se comparaba a sí mismo con Bob Dylan y se ganó un público especialmente fiel entre la juventud de clase trabajadora.`\
 https://www.nytimes.com/es/2026/07/06/espanol/cultura/muere-indio-solari.html
