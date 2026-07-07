@@ -1,3 +1,15 @@
+**Explosions Hit Damascus as Macron Visits**\
+`Blasts occurred near the hotel where President Emmanuel Macron of France was staying. French officials said that he was not hurt and that his schedule in Syria would continue as planned.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-damascus-visit.html
+
+**Cut the Alien Jokes, These Mysterious Spheres Are Likely Space Debris**\
+`The discovery bemused residents of a small town in northeastern Australia. The objects appear to be junk from a space launch, the country’s space agency said.`\
+https://www.nytimes.com/2026/07/07/world/australia/queensland-australia-space-balls-debris.html
+
+**South Korea Strengthens Law to Curb Spread of Fake News**\
+`An amendment to South Korea’s communications act will clamp down on purveyors of false information online. Critics worry it could threaten freedom of speech.`\
+https://www.nytimes.com/2026/07/07/world/asia/south-korea-law-fake-news.html
+
 **More Americans Than Ever Are Taking Weight-Loss Drugs**\
 `The number of U.S. adults taking an obesity medication has nearly quadrupled from just two years ago.`\
 https://www.nytimes.com/2026/07/07/well/americans-taking-weight-loss-drugs.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/06/arts/music/indio-solari-dead.html
 **Key Health Care Panel Is Again Blocked From Meeting Under RFK Jr.**\
 `The United States Preventive Services Task Force has been stymied under Health Secretary Robert F. Kennedy Jr.`\
 https://www.nytimes.com/2026/07/06/us/politics/uspstf-meeting-rfk-jr.html
-
-**Timeline: How FIFA’s Reversal on Balogun Unfolded**\
-`Folarin Balogun’s red-card suspension was overturned by FIFA. President Trump said he asked for the review that ultimately led to the reversal.`\
-https://www.nytimes.com/interactive/2026/07/06/us/trump-world-cup-balogun-timeline.html
-
-**Judge Appointed Last Year Is Overseeing Hearing in Killing of Charlie Kirk**\
-`Judge Tony Graf previously served as a prosecutor in Utah, including in the county where Mr. Kirk was shot and killed last year.`\
-https://www.nytimes.com/2026/07/06/us/who-is-judge-tony-graf.html
-
-**Calls Mount for Platner to End Campaign After Rape Accusation**\
-`After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
-https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
 

@@ -1,3 +1,15 @@
+**Explosions Hit Damascus as Macron Visits**\
+`Blasts occurred near the hotel where President Emmanuel Macron of France was staying. French officials said that he was not hurt and that his schedule in Syria would continue as planned.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-damascus-visit.html
+
+**Cut the Alien Jokes, These Mysterious Spheres Are Likely Space Debris**\
+`The discovery bemused residents of a small town in northeastern Australia. The objects appear to be junk from a space launch, the country’s space agency said.`\
+https://www.nytimes.com/2026/07/07/world/australia/queensland-australia-space-balls-debris.html
+
+**South Korea Strengthens Law to Curb Spread of Fake News**\
+`An amendment to South Korea’s communications act will clamp down on purveyors of false information online. Critics worry it could threaten freedom of speech.`\
+https://www.nytimes.com/2026/07/07/world/asia/south-korea-law-fake-news.html
+
 **Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
 `Typhoon Maysak has been lashing southern China for days, bursting dam walls and inundating homes and farms.`\
 https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
