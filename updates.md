@@ -1,3 +1,11 @@
+**‘Kimmel’ Guest Host Tiffany Haddish Roasts Trump’s Fourth of July Party**\
+`The comedian and actress joked that “there was more people at my bat mitzvah” than at America’s 250th birthday party.`\
+https://www.nytimes.com/2026/07/07/arts/television/kimmel-tiffany-haddish-trump.html
+
+**At Least 15 Dead in China After Severe Flooding During Typhoon Maysak**\
+`Videos showed inundated roads, farmland and buildings, and floodwaters rushing toward homes, while the region braced for a potential super typhoon this week.`\
+https://www.nytimes.com/2026/07/07/world/asia/china-flooding-typhoon-maysak.html
+
 **¿Qué significa hoy en día ‘arreglarse’?**\
 `Una lectora se pregunta si es bueno o malo que la gente vaya cada vez más informal.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/arreglarse-casual-elegante.html
