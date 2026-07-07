@@ -1,3 +1,15 @@
+**India Calls Out Meta Over Reported Child Sexual Abuse Imagery in Ads**\
+`The tech giant that owns Instagram, Facebook and WhatsApp says it is in touch with the Indian authorities about reports that exploitative content is being hawked on one of its platforms.`\
+https://www.nytimes.com/2026/07/07/world/asia/india-meta-child-abuse-imagery.html
+
+**Why Israelis and Palestinians Need New Narratives**\
+`A Land for All is a joint Israeli-Palestinian initiative advocating options beyond the two-state or one-state solution — namely, a confederacy model in which Israel and Palestine would exist as separate political entities but with free movement across borders. On “The Ezra Klein Show,” the executive directors May Pundak and Rula Hardal explain their long-term vision for the region, and why both Israelis and Palestinians need new national narratives.`\
+https://www.nytimes.com/video/opinion/100000011017692/why-israelis-and-palestinians-need-new-narratives.html
+
+**As Israel Loses Support in the U.S., Rahm Emanuel Criticizes Netanyahu**\
+`The former Chicago mayor, a Democrat exploring a 2028 presidential run, is in Tel Aviv calling for an end to unconditional U.S. support of Israel.`\
+https://www.nytimes.com/2026/07/07/us/politics/rahm-emanuel-speech-israel.html
+
 **‘We Palestinians Are Not Going to Give Up’**\
 `The Palestinian advocate Rula Hardal is a co-executive director of A Land for All, a joint Israeli-Palestinian initiative to imagine a new future for the region. She shares her motivation to find new solutions on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011002960/we-palestinians-are-not-going-to-give-up.html

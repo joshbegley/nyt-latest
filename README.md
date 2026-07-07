@@ -1,3 +1,7 @@
+**A Neighborhood Has to Cope as Midtown Building Remains Unstable**\
+`Travelers were shut out of major hotels, and work ground to a halt for some on Tuesday after a building partially buckled in Manhattan.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-building-east-42nd.html
+
 **India Calls Out Meta Over Reported Child Sexual Abuse Imagery in Ads**\
 `The tech giant that owns Instagram, Facebook and WhatsApp says it is in touch with the Indian authorities about reports that exploitative content is being hawked on one of its platforms.`\
 https://www.nytimes.com/2026/07/07/world/asia/india-meta-child-abuse-imagery.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/politics/graham-platner-bernie-sanders-mai
 **Yale Law School Fights to Stop Trump Deal**\
 `The university has been in talks to resolve investigations into its admissions practices. The law school’s dean and some faculty have argued a deal could compromise its independence.`\
 https://www.nytimes.com/2026/07/07/us/yale-law-school-dean-trump-deal.html
-
-**Madonna’s Retro Reverie and 5 More New Songs You Should Hear**\
-`Listen to new music from the queen of pop reinvention, Billy Strings, Ciara and more.`\
-https://www.nytimes.com/2026/07/07/arts/music/amplifier-newsletter-madonna-ciara-billy-strings.html
 
