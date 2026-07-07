@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000011017523/07vid-Bethlehem-Feleke-standup-11983.html
+
+**U.S. Revokes Iran Oil Sanctions Waiver After Attack on Tankers**\
+`A 60-day exemption allowing the sale of Iranian oil was cut short after three tankers were attacked in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/07/us/politics/iran-oil-sanctions-tankers-attack.html
+
 **Restaurant Review: Salt Hank in the West Village**\
 `Salt Hank’s in the West Village quickly became one of the most talked-about sandwiches in the city. Our critic gives it a go.`\
 https://www.nytimes.com/2026/07/07/dining/restaurant-review-salt-hanks.html

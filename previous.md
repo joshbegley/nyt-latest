@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/nyregion/100000011017523/07vid-Bethlehem-Feleke-standup-11983.html
+
+**U.S. Revokes Iran Oil Sanctions Waiver After Attack on Tankers**\
+`A 60-day exemption allowing the sale of Iranian oil was cut short after three tankers were attacked in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/07/us/politics/iran-oil-sanctions-tankers-attack.html
+
 **What to Know About the ‘Frozen Zone’ in Midtown Manhattan**\
 `A building at risk of partial collapse prompted the city to restrict pedestrian and vehicle traffic in the area. Some buses were diverted or delayed, but subway lines remained uninterrupted.`\
 https://www.nytimes.com/2026/07/07/nyregion/frozen-zone-midtown-manhattan-building-collapse.html
@@ -86,13 +94,13 @@ https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-fronti
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 
-**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
-`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
-https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
-
 **What to Know About the Building at Risk of Collapse in Manhattan**\
 `The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
+
+**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
+`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
+https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
 
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
 **Jake Roxander, a Ballet Theater Dancer Raised on Superheroes**\
 `Jake Roxander, a virtuosic wonder at American Ballet Theater, was promoted onstage after a recent performance. The news hasn’t quite sunk in.`\
 https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
-
-**Mitch McConnell está hospitalizado: esto es lo que sabemos**\
-`El senador republicano por Kentucky ingresó al hospital el 14 de junio, y su oficina apenas ha dado información sobre su estado. Esto es lo que sabemos.`\
-https://www.nytimes.com/es/2026/07/07/espanol/estados-unidos/mitch-mcconnell-senador-hospitalizado.html
-
-**Louise Lasser, Star of TV’s ‘Mary Hartman,’ Is Dead at 87**\
-`She began her screen career in Woody Allen movies (he was also her husband), but she was best known for her portrayal of the Ohio housewife in the pigtails and puffed sleeves.`\
-https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
 
 **Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
 `A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\

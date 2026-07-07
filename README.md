@@ -1,3 +1,11 @@
+**Anthropic Expands in Manhattan, Part of an A.I. Boom in New York**\
+`Anthropic, the artificial intelligence company, plans to lease a 16-story building in Hudson Square and to double its work force in New York City to 1,000 people this year.`\
+https://www.nytimes.com/2026/07/07/nyregion/anthropic-ai-boom-nyc.html
+
+**New Rules Require Election Changes for States to Get Terrorism Grants**\
+`Federal officials said they would withhold some money unless states pursue paper ballot systems, verify citizenship and conduct costly audits.`\
+https://www.nytimes.com/2026/07/07/climate/fema-grants-states-election-changes.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000011017523/07vid-Bethlehem-Feleke-standup-11983.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/climate/washington-dc-fireworks-air-pollution
 **A Supreme Leader’s Final Crowds**\
 `What you could see when Ayatollah Ali Khamenei’s coffin was being driven to a public space in Tehran.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
-
-**Jake Roxander, a Ballet Theater Dancer Raised on Superheroes**\
-`Jake Roxander, a virtuosic wonder at American Ballet Theater, was promoted onstage after a recent performance. The news hasn’t quite sunk in.`\
-https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
-
-**Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
-`A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
-https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
 
