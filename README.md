@@ -1,3 +1,7 @@
+**Here’s How Much Rain Fell Across the New York Area This Week**\
+`After a blistering heat wave, a dousing of heavy rain this week caused flooding across the region. Experts said it could have been worse.`\
+https://www.nytimes.com/2026/07/07/weather/how-much-rain-fell-new-york-connecticut.html
+
 **Terremotos en Venezuela: de la represión a la indignación**\
 `Los venezolanos critican abiertamente al partido gobernante y a su líder, Delcy Rodríguez, algo que habría sido impensable hace tan solo un año. También dirigen su enojo hacia Trump.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuela-represion-indignacion.html
@@ -58,13 +62,13 @@ https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-fronti
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 
-**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
-`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
-https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
-
 **What to Know About the Building at Risk of Collapse in Manhattan**\
 `The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
+
+**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
+`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
+https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
 
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
 **Cosmic Conjoined Twins, Caught on Camera**\
 `A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
 https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
-
-**As Ice Melts in the Arctic, Some Deep-Sea Creatures Are Thriving**\
-`A new study suggests that deep-sea life reaps the benefits of icebergs’ castoffs — a rare silver lining as a warming planet destabilizes glacial ice.`\
-https://www.nytimes.com/2026/07/07/science/arctic-icebergs-deepsea-life.html
 
