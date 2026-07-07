@@ -1,3 +1,15 @@
+**The Symbols We Saw at Khamenei’s Funeral**\
+`Abdi Latif Dahir, a Middle East correspondent for The Times, explains the messages behind recurring symbols at the dayslong funeral for Ayatollah Ali Khamenei.`\
+https://www.nytimes.com/video/world/middleeast/100000011012446/the-symbols-we-saw-at-khameneis-funeral.html
+
+**Republican Leaders Say They’ve Spoken With McConnell Since Hospitalization**\
+`The top two G.O.P. senators each said they had lengthy phone conversations with Senator Mitch McConnell, who has been hospitalized for three weeks, as questions mount about his condition.`\
+https://www.nytimes.com/2026/07/07/us/politics/mitch-mcconnell-hospital-thune-barrasso.html
+
+**Hachette Book Group Employees Vote to Unionize**\
+`Workers at a major publishing house have established what organizers are calling the largest union in trade book publishing history.`\
+https://www.nytimes.com/2026/07/07/books/hachette-book-publishing-union.html
+
 **I.O.C. Lifts Russia’s Olympic Suspension, Clearing the Way for 2028**\
 `The International Olympic Committee “provisionally” removed the ban imposed in relation to Russia’s invasion of Ukraine. A previous ban for systematic doping had already ended.`\
 https://www.nytimes.com/2026/07/07/world/europe/russia-olympic-suspension-lifted.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/07/science/arctic-icebergs-deepsea-life.html
 **Explosions Rock Damascus During Macron Visit**\
 `President Emmanuel Macron of France was uninjured after two blasts occurred near the hotel where he was staying during his official visit to Syria.`\
 https://www.nytimes.com/video/world/middleeast/100000011015998/syria-macron-explosions-damascus-al-sharaa.html
-
-**Farage Resigns and Says He Will Run Again in Special Election**\
-`Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
-https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
-
-**How the ‘Swift-Kelce Effect’ May Be Coming to a Wedding Near You**\
-`Trends are likely to emerge from the spectacle that was the July 3 celebration at Madison Square Garden.`\
-https://www.nytimes.com/2026/07/07/style/swift-kelce-wedding-effect.html
-
-**Trump Promised a Foreign Investment Boom. It’s Getting Harder to Deliver.**\
-`The threat of tariffs may have helped push more capital into the United States, but other factors are pushing it away.`\
-https://www.nytimes.com/2026/07/07/business/economy/trump-foreign-investment.html
 
