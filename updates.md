@@ -1,3 +1,7 @@
+**Officials Warn of Partial Collapse in ‘Unstable’ Manhattan Building**\
+`City officials evacuated a construction site near Grand Central Terminal on Tuesday after structural issues were discovered.`\
+https://www.nytimes.com/video/nyregion/100000011017065/midtown-manhattan-building-collapse-risk.html
+
 **Judge Quashes Justice Dept. Subpoena in 2020 Election Inquiry**\
 `The ruling cast serious doubts on the department’s efforts to reinvestigate the race, finding that it was too late to bring criminal charges in the case.`\
 https://www.nytimes.com/2026/07/07/us/politics/2020-election-inquiry-trump-georgia.html
