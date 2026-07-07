@@ -1,3 +1,15 @@
+**Mapa: un terremoto de magnitud 5,3 sacude Costa Rica**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/07/07/espanol/terremoto-costa-rica.html
+
+**Map: 5.3-Magnitude Earthquake Shakes Costa Rica**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/07/world/quake-tracker-costa-rica.html
+
+**Live Updates: Evacuated Manhattan Building Remains Unstable as Officials Warn of Partial Collapse**\
+`City officials set up a multiblock “frozen zone” around the building, a construction site near Grand Central Terminal. Beams were being brought in to stabilize the structure, the buildings commissioner said.`\
+https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011017183/07-vid-emergency-responders.html
