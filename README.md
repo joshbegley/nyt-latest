@@ -1,3 +1,15 @@
+**ICE Officer Kills a Mexican Man in Houston**\
+`The agency said the man was an “illegal alien” who had tried to run over the agent, though no evidence was immediately offered.`\
+https://www.nytimes.com/2026/07/07/us/immigration-ice-shooting-houston.html
+
+**Penelope Keith, Effortlessly Posh Star of British Sitcoms, Dies at 86**\
+`A veteran stage actress, she starred in two of Britain’s most beloved TV comedies of the 1970s, “The Good Life” and “To the Manor Born.”`\
+https://www.nytimes.com/2026/07/07/arts/television/penelope-keith-dead.html
+
+**Las misteriosas esferas encontradas en Australia probablemente sean basura espacial**\
+`El hallazgo desconcertó —y después divirtió— a los vecinos de un pueblo del noreste de Australia. La agencia espacial del país dijo que los objetos parecen ser restos de un lanzamiento espacial.`\
+https://www.nytimes.com/es/2026/07/07/espanol/esferas-espacio-australia-basura-espacial.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011017727/07visualUploader-33442.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/07/dining/nyc-restaurant-news.html
 **Los pasaportes de Trump comienzan a emitirse en Washington**\
 `La Agencia de Pasaportes de Washington empezó el lunes a expedir estos documentos de edición limitada con la imagen del presidente Trump, lo que tomó por sorpresa a algunos solicitantes.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/pasaporte-trump.html
-
-**Trump and the U.S. Loss in the World Cup**\
-`Readers react to Belgium’s victory and President Trump’s meddling. Also: Effects of Supreme Court rulings; hanging out without phones.`\
-https://www.nytimes.com/2026/07/07/opinion/world-cup-trump.html
-
-**El papa León se enfrenta a la primera crisis de su pontificado**\
-`Un enfrentamiento inminente entre el papa León y los católicos ultratradicionalistas amenaza con poner fin a la luna de miel del pontífice.`\
-https://www.nytimes.com/es/2026/07/07/espanol/opinion/papa-leon-iglesia-catolica-crisis.html
-
-**Who is Ahead in Alabama's 2nd Congressional District?**\
-`Track the latest polls in Alabama's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/alabama-us-house-2-polls-2026.html
 
