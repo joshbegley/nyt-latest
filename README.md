@@ -1,5 +1,9 @@
-**U.S. Trade Deficit Widens in May**\
-`Imports rose and exports fell in the month, pushing the trade deficit to its highest level in over a year`\
+**Prince Harry Loses Privacy Lawsuit Against Daily Mail Publisher**\
+`The case brought by Harry and other celebrities against Associated Newspapers was one of several legal battles that the prince has fought against British tabloids in recent years.`\
+https://www.nytimes.com/2026/07/07/world/europe/prince-harry-lawsuit-daily-mail-uk-associated-newspapers.html
+
+**U.S. Trade Deficit Widens in May on Record Goods Imports**\
+`Imports of foreign goods hit a record high in the month, pushing the trade deficit to its highest level in over a year.`\
 https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
 
 **Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/t-magazine/good-guest-dinner-party-tips.html
 **Rashid Johnson and Sheree Hovsepian’s Art World Party in a Secret Garden on Minorca**\
 `Just before the opening of an exhibition Rashid Johnson organized on the island, he and Sheree Hovsepian threw a soiree at their new residency.`\
 https://www.nytimes.com/2026/07/07/t-magazine/rashid-johnson-garden-party-minorca.html
-
-**A Flower-Filled Party on a Farm in New Jersey**\
-`To celebrate a milestone anniversary, the beauty brand founder Yael Alkalay invited friends for floral distillation, scent-making and tea.`\
-https://www.nytimes.com/2026/07/07/t-magazine/red-flower-new-jersey.html
 
