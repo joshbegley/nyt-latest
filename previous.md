@@ -1,6 +1,10 @@
-**Farage Says He Will Resign From UK’s Parliament to Trigger a By-Election**\
+**U.K. Live Updates: Farage Says He Will Resign as Lawmaker, Setting Off Special Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
-https://www.nytimes.com/2026/07/07/world/europe/nigel-farage-reform-uk.html
+https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
+
+**How the ‘Swift-Kelce Effect’ May Be Coming to a Wedding Near You**\
+`Trends are likely to emerge from the spectacle that was the July 3 celebration at Madison Square Garden.`\
+https://www.nytimes.com/2026/07/07/style/swift-kelce-wedding-effect.html
 
 **Trump Promised a Foreign Investment Boom. It’s Getting Harder to Deliver.**\
 `The threat of tariffs may have helped push more capital into the United States, but other factors are pushing it away.`\
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/07/07/business/economy/trump-foreign-investment.htm
 https://www.nytimes.com/2026/07/07/world/europe/prince-harry-lawsuit-daily-mail-uk-associated-newspapers.html
 
 **U.S. Trade Deficit Widens in May on Record Goods Imports**\
-`Imports of foreign goods hit a record high in the month, pushing the trade deficit to its highest level in over a year.`\
+`Imports of foreign goods, including pharmaceuticals and equipment for data centers, hit a record high, pushing the monthly trade deficit to its highest level in over a year.`\
 https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
 
 **Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/politics/trump-black-voters-unemployment.h
 **How to Cook With Flowers: 3 Recipes With Edible Blossoms**\
 `A trio of Philadelphia-based chefs share recipes for foods in which blossoms are more than mere garnish.`\
 https://www.nytimes.com/2026/07/07/t-magazine/food/chefs-edible-flowers-tips.html
-
-**How to Make a Floral Arrangement That Will Last All Summer**\
-`The artist Sourabh Gupta gives a step-by-step guide to crafting Icelandic poppies out of crepe paper.`\
-https://www.nytimes.com/2026/07/07/t-magazine/paper-flowers-sourabh-gupta.html
 

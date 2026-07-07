@@ -1,3 +1,15 @@
+**U.K. Live Updates: Farage Says He Will Resign as Lawmaker, Setting Off Special Election**\
+`Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
+https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
+
+**How the ‘Swift-Kelce Effect’ May Be Coming to a Wedding Near You**\
+`Trends are likely to emerge from the spectacle that was the July 3 celebration at Madison Square Garden.`\
+https://www.nytimes.com/2026/07/07/style/swift-kelce-wedding-effect.html
+
+**U.S. Trade Deficit Widens in May on Record Goods Imports**\
+`Imports of foreign goods, including pharmaceuticals and equipment for data centers, hit a record high, pushing the monthly trade deficit to its highest level in over a year.`\
+https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
+
 **Farage Says He Will Resign From UK’s Parliament to Trigger a By-Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
 https://www.nytimes.com/2026/07/07/world/europe/nigel-farage-reform-uk.html

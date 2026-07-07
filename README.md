@@ -1,3 +1,7 @@
+**Explosions Rock Damascus During Macron Visit**\
+`President Emmanuel Macron of France was uninjured after two blasts occurred near the hotel where he was staying during his official visit to Syria.`\
+https://www.nytimes.com/video/world/middleeast/100000011015998/syria-macron-explosions-damascus-al-sharaa.html
+
 **U.K. Live Updates: Farage Says He Will Resign as Lawmaker, Setting Off Special Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
 https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/arts/music/joe-hisaishi-composer-studio-ghibl
 **After Courting Black Voters, Trump Downplays Black Unemployment**\
 `The president has glossed over persistently high unemployment among African Americans, a group he needed to secure a second term.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-black-voters-unemployment.html
-
-**How to Cook With Flowers: 3 Recipes With Edible Blossoms**\
-`A trio of Philadelphia-based chefs share recipes for foods in which blossoms are more than mere garnish.`\
-https://www.nytimes.com/2026/07/07/t-magazine/food/chefs-edible-flowers-tips.html
 
