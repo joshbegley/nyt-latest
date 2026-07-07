@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/100000011017727/07visualUploader-33442.html
+
+**Midtown Evacuations Scramble Plans for Hotel Guests**\
+`At least two hotels near the unstable building were evacuated, stranding travelers and forcing guests to clamber for alternative accommodation.`\
+https://www.nytimes.com/2026/07/07/travel/midtown-hotels-building-collapse.html
+
 **Justice Department Threatens Top Election Officials Over Noncitizen Voting**\
 `The letters come amid President Trump’s effort to tighten election rules to prevent a problem that doesn’t exist: widespread noncitizen voting.`\
 https://www.nytimes.com/2026/07/07/us/politics/justice-department-elections-noncitizen-voting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/07/espanol/opinion/papa-leon-iglesia-catolica
 **Who is Ahead in Alabama's 2nd Congressional District?**\
 `Track the latest polls in Alabama's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/alabama-us-house-2-polls-2026.html
-
-**Say This to a Grieving Parent**\
-`The writer Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
-https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-parent.html
-
-**Live Updates: Evacuated Manhattan Building Remains Unstable as Officials Warn of Partial Collapse**\
-`City officials set up a multiblock “frozen zone” around the building, a construction site near Grand Central Terminal. Beams were being brought in to stabilize the structure, the buildings commissioner said.`\
-https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse
 
