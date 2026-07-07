@@ -1,3 +1,7 @@
+**Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
+`Typhoon Maysak has been lashing southern China for days, bursting dam walls and inundating homes and farms.`\
+https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
+
 **More Americans Than Ever Are Taking Weight-Loss Drugs**\
 `The number of U.S. adults taking an obesity medication has nearly quadrupled from just two years ago.`\
 https://www.nytimes.com/2026/07/07/well/americans-taking-weight-loss-drugs.html
