@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
 
 **Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
-`The complex, which was once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
+`The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html
 
 **As Ice Melts in the Arctic, Some Deep-Sea Creatures Are Thriving**\
@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/07/07/world/europe/nato-defense-spending-trump-rutt
 https://www.nytimes.com/2026/07/07/books/review/rachel-aviv-you-wont-get-free-of-it.html
 
 **I Wanted an Ecologically Responsible Garden. It Was Harder Than I Thought.**\
-`The native plant movement says that we can combat environmental disaster from our own backyards. Is it really so simple?`\
+`The native plant movement gets a lot right, but there’s so much more to consider.`\
 https://www.nytimes.com/2026/07/07/magazine/native-plants-garden.html
 
 **New York City Travel Guide: What to See, Visit and Do**\

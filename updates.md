@@ -1,3 +1,11 @@
+**Cosmic Conjoined Twins, Caught on Camera**\
+`A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
+https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
+
+**Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
+`The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
+https://www.nytimes.com/2026/07/07/world/europe/monaco-bombing-suspect-dead-ukraine.html
+
 **Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
 `The complex, which was once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html

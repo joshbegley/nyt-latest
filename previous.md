@@ -1,3 +1,7 @@
+**Cosmic Conjoined Twins, Caught on Camera**\
+`A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
+https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
+
 **Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
 `The complex, which was once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html
@@ -32,7 +36,7 @@ https://www.nytimes.com/2026/07/07/business/economy/us-trade-deficit-may.html
 
 **Suspect in Monaco Bombing Attack Is Found Dead in Ukraine**\
 `The Ukrainian authorities said that Anastasiia Berezovska, who officials said was behind the explosion last week, had been shot.`\
-https://www.nytimes.com/2026/07/07/todayspaper/monaco-bombing-suspect-dead-ukraine.html
+https://www.nytimes.com/2026/07/07/world/europe/monaco-bombing-suspect-dead-ukraine.html
 
 **Why Index Funds Haven’t Boosted SpaceX**\
 `Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/style/most-stylish-people-of-2026-so-far.html
 **Four Seasons Sets Sail, Offering Luxury and Curated Cruise Experiences**\
 `Luxury hotel brands are getting into the cruise business. A Mediterranean itinerary offered a taste of what at times seemed like a mega-yacht experience.`\
 https://www.nytimes.com/2026/07/07/travel/four-seasons-luxury-cruise-mediterranean.html
-
-**How a Four-Generation Cuban Family Survives on $60 a Month**\
-`The U.S. oil blockade has deepened a humanitarian crisis, forcing Cubans to lean on the island’s long tradition of community solidarity to provide a cushion.`\
-https://www.nytimes.com/2026/07/07/world/americas/cuba-power-crisis-oil-blockade.html
 
