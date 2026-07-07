@@ -1,3 +1,11 @@
+**‘Kimmel’ Guest Host Tiffany Haddish Roasts Trump’s Fourth of July Party**\
+`The comedian and actress joked that “there was more people at my bat mitzvah” than at America’s 250th birthday party.`\
+https://www.nytimes.com/2026/07/07/arts/television/kimmel-tiffany-haddish-trump.html
+
+**At Least 15 Dead in China After Severe Flooding During Typhoon Maysak**\
+`Videos showed inundated roads, farmland and buildings, and floodwaters rushing toward homes, while the region braced for a potential super typhoon this week.`\
+https://www.nytimes.com/2026/07/07/world/asia/china-flooding-typhoon-maysak.html
+
 **¿Qué significa hoy en día ‘arreglarse’?**\
 `Una lectora se pregunta si es bueno o malo que la gente vaya cada vez más informal.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/arreglarse-casual-elegante.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-milita
 **Platner’s Democratic Support Evaporates After Sexual Assault Allegation**\
 `Graham Platner, the Democratic Senate candidate in Maine, called the allegation false but said he would “reflect” on his political path forward, as many allies rescinded their endorsements.`\
 https://www.nytimes.com/2026/07/06/us/politics/graham-platner-maine-assault.html
-
-**‘Confessions II’ Review: Madonna Returns to the Dance Floor**\
-`On “Confessions II,” a successor to her hit 2005 album “Confessions on a Dance Floor,” the pop superstar gives new energy to her origin story and shines light on the troubles she’s danced away.`\
-https://www.nytimes.com/2026/07/06/arts/music/madonna-confessions-ii-album-review.html
-
-**Iranians Mourn a Slain Leader, and Call for Vengeance**\
-`Million of people filled the streets of Iran to bid farewell to Ayatollah Ali Khamenei, who was killed in the war with the United States and Israel.`\
-https://www.nytimes.com/2026/07/06/world/middleeast/iran-khamenei-funeral.html
 
