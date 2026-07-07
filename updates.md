@@ -1,3 +1,11 @@
+**U.S. Strikes Iran and Reimposes Sanctions After Tanker Attacks**\
+`The military operation came hours after the U.S. Treasury revoked a waiver allowing global sales of Iranian oil.`\
+https://www.nytimes.com/2026/07/07/us/politics/us-strikes-iran-tanker-attacks.html
+
+**These Maine Democrats Might Replace Graham Platner in the Senate Race**\
+`Mr. Platner has not yet withdrawn from the race after a rape allegation, but Democrats in the state and nationally are already exploring potential alternatives.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-replacements-maine-democrats.html
+
 **What to Know About Manhattan Office Conversions**\
 `The city has encouraged more complex office-to-residential conversions to fight the housing crisis.`\
 https://www.nytimes.com/2026/07/07/nyregion/office-residential-explainer-faq.html
