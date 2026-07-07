@@ -1,3 +1,11 @@
+**Anthropic Expands in Manhattan, Part of an A.I. Boom in New York**\
+`Anthropic, the artificial intelligence company, plans to lease a 16-story building in Hudson Square and to double its work force in New York City to 1,000 people this year.`\
+https://www.nytimes.com/2026/07/07/nyregion/anthropic-ai-boom-nyc.html
+
+**New Rules Require Election Changes for States to Get Terrorism Grants**\
+`Federal officials said they would withhold some money unless states pursue paper ballot systems, verify citizenship and conduct costly audits.`\
+https://www.nytimes.com/2026/07/07/climate/fema-grants-states-election-changes.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/nyregion/100000011017523/07vid-Bethlehem-Feleke-standup-11983.html
