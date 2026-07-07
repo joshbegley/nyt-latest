@@ -1,3 +1,7 @@
+**La guerra global por los derechos de marca de Maradona**\
+`De un continente a otro, se lleva a cabo un disputa multimillonaria por los derechos de marca del dios del fútbol. El conflicto está destrozando a su familia y arruinando a inversores.`\
+https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-derechos-marca-argentina.html
+
 **Cosmic Conjoined Twins, Caught on Camera**\
 `A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
 https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/travel/new-york-city-guide.html
 **The 39-ish Most Stylish People of 2026, So Far**\
 `On red carpets, on set, onstage and even up in space, they captured our attention with their looks.`\
 https://www.nytimes.com/2026/07/07/style/most-stylish-people-of-2026-so-far.html
-
-**Four Seasons Sets Sail, Offering Luxury and Curated Cruise Experiences**\
-`Luxury hotel brands are getting into the cruise business. A Mediterranean itinerary offered a taste of what at times seemed like a mega-yacht experience.`\
-https://www.nytimes.com/2026/07/07/travel/four-seasons-luxury-cruise-mediterranean.html
 
