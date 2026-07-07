@@ -1,3 +1,7 @@
+**A Cool Houston Home With a Big Bank of Windows**\
+`A couple bought a piece of land for $46,000. Next, they found an architect willing to work within their budget.`\
+https://www.nytimes.com/2026/07/07/realestate/a-houston-home-with-11-windows-for-1800-square-feet.html
+
 **USMNT Elimination Reaction and World Cup Conspiracy Theories**\
 `Breaking down the good, the bad and the downright ugly from America’s elimination against Belgium.`\
 https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup-conspiracy-theories.html

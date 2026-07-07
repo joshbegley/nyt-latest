@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/07/07/opinion/trump-250th-july-4th.html
 `A man wrote an angry email to a government official, and federal agents came to his home. A reporter was barred from covering a lockdown at a New Jersey school.`\
 https://www.nytimes.com/2026/07/07/nyregion/two-cases-raise-concerns-about-civil-liberties-in-the-us.html
 
-**A Houston Home With 11 Windows for 1,800 Square Feet**\
+**A Cool Houston Home With a Big Bank of Windows**\
 `A couple bought a piece of land for $46,000. Next, they found an architect willing to work within their budget.`\
 https://www.nytimes.com/2026/07/07/realestate/a-houston-home-with-11-windows-for-1800-square-feet.html
 
