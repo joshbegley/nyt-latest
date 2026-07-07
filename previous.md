@@ -1,3 +1,7 @@
+**In CNN Interview, Woman Details Alleged Sexual Assault by Graham Platner**\
+`“This is something that I tried for many years to forget,” the woman, Jenny Racicot, said on CNN.`\
+https://www.nytimes.com/2026/07/06/us/politics/jenny-racicot-cnn-interview-graham-platner.html
+
 **Death Toll From Oppressive Heat in New Jersey May Be as High as 29**\
 `In New York City, emergency rooms last week logged the highest number of patients treated for heat-related illnesses in years.`\
 https://www.nytimes.com/2026/07/06/nyregion/new-jersey-nyc-heat-deaths.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/06/opinion/trump-fifa-balogun-red-card.html
 **Trump Defends Asking FIFA to Review Folarin Balogun’s World Cup Ban**\
 `The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
 https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
-
-**Food and Beverages Have Gone Bananas**\
-`America’s most-eaten fresh fruit has hit cafe menus, snack-aisle shelves and drink fridges with unexpected force. Is it the next pumpkin spice?`\
-https://www.nytimes.com/2026/07/06/dining/food-drink-banana-flavor.html
 
 **Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

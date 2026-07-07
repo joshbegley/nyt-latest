@@ -1,3 +1,7 @@
+**In CNN Interview, Woman Details Alleged Sexual Assault by Graham Platner**\
+`“This is something that I tried for many years to forget,” the woman, Jenny Racicot, said on CNN.`\
+https://www.nytimes.com/2026/07/06/us/politics/jenny-racicot-cnn-interview-graham-platner.html
+
 **Death Toll From Oppressive Heat in New Jersey May Be as High as 29**\
 `In New York City, emergency rooms last week logged the highest number of patients treated for heat-related illnesses in years.`\
 https://www.nytimes.com/2026/07/06/nyregion/new-jersey-nyc-heat-deaths.html
