@@ -1,3 +1,7 @@
+**La OTAN necesita a Turquía**\
+`La guerra en Ucrania y el desdén de Trump hacia la alianza han cambiado la percepción sobre lo que Turquía aporta.`\
+https://www.nytimes.com/es/2026/07/07/espanol/mundo/otan-turquia.html
+
 **USMNT Elimination Reaction and World Cup Conspiracy Theories**\
 `Breaking down the good, the bad and the downright ugly from America’s elimination against Belgium.`\
 https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup-conspiracy-theories.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/weather/hail-damage-cost.html
 **As Messi Dominates the World Cup, a War Is Waged Over Maradona’s Image**\
 `A multimillion-dollar battle for a soccer god’s brand is being waged across continents, burning investors and tearing his family apart.`\
 https://www.nytimes.com/2026/07/07/world/americas/world-cup-argentina-maradona-trademark.html
-
-**Explosions Hit Damascus During Macron Visit**\
-`Blasts occurred near the hotel where President Emmanuel Macron of France was staying. French officials said that he was not hurt and that his schedule in Syria would continue as planned.`\
-https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-damascus-visit.html
 

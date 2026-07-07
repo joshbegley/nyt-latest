@@ -1,3 +1,7 @@
+**La OTAN necesita a Turquía**\
+`La guerra en Ucrania y el desdén de Trump hacia la alianza han cambiado la percepción sobre lo que Turquía aporta.`\
+https://www.nytimes.com/es/2026/07/07/espanol/mundo/otan-turquia.html
+
 **A Cool Houston Home With a Big Bank of Windows**\
 `A couple bought a piece of land for $46,000. Next, they found an architect willing to work within their budget.`\
 https://www.nytimes.com/2026/07/07/realestate/a-houston-home-with-11-windows-for-1800-square-feet.html
