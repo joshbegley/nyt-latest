@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/07/07/science/arctic-icebergs-deepsea-life.html
 `President Emmanuel Macron of France was uninjured after two blasts occurred near the hotel where he was staying during his official visit to Syria.`\
 https://www.nytimes.com/video/world/middleeast/100000011015998/syria-macron-explosions-damascus-al-sharaa.html
 
-**U.K. Live Updates: Farage Resigns and Says He Will Run Again in Special Election**\
+**Farage Resigns and Says He Will Run Again in Special Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
 https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
 
