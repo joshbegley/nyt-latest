@@ -1,3 +1,11 @@
+**Part of Florida’s ‘Stop WOKE’ Law Ruled Illegal by Appeals Court**\
+`The law limits teaching on race, gender and other topics. Part of the law related to colleges was struck down. It remains in effect in K-12 schools.`\
+https://www.nytimes.com/2026/07/07/us/florida-stop-woke-law-appeals-court.html
+
+**Suspect in Charlie Kirk Shooting Talked to Turning Point USA Members, Agent Testifies**\
+`Prosecutors questioned the lead investigator about Tyler Robinson’s interactions with members of Charlie Kirk’s Turning Point USA during the second day of a preliminary hearing.`\
+https://www.nytimes.com/video/us/100000011017023/charlie-kirk-tyler-robinson-hearing.html
+
 **A Neighborhood Has to Cope as a Midtown Building Remains Unstable**\
 `Travelers were shut out of major hotels, and work ground to a halt for some on Tuesday after a building partially buckled in Manhattan.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-building-east-42nd.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/well/squishy-needoh-toys-burns.html
 **Is ‘The View’ a News Show? ABC Says That’s Already Settled.**\
 `In a new filing, ABC said that the F.C.C. had ruled in 2002 that “The View” was a “bona fide news program.”`\
 https://www.nytimes.com/2026/07/07/business/media/the-view-abc-fcc-investigation.html
-
-**Bernie Sanders Calls on Graham Platner to Drop Senate Bid After Rape Allegation**\
-`Mr. Sanders was one of the last remaining prominent allies of Graham Platner, the Maine Senate Democratic nominee, to call for him to drop out after a rape allegation.`\
-https://www.nytimes.com/2026/07/07/us/politics/graham-platner-bernie-sanders-maine.html
-
-**Yale Law School Fights to Stop Trump Deal**\
-`The university has been in talks to resolve investigations into its admissions practices. The law school’s dean and some faculty have argued a deal could compromise its independence.`\
-https://www.nytimes.com/2026/07/07/us/yale-law-school-dean-trump-deal.html
 

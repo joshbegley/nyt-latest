@@ -1,4 +1,4 @@
-**A Neighborhood Has to Cope as Midtown Building Remains Unstable**\
+**A Neighborhood Has to Cope as a Midtown Building Remains Unstable**\
 `Travelers were shut out of major hotels, and work ground to a halt for some on Tuesday after a building partially buckled in Manhattan.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-building-east-42nd.html
 
