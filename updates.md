@@ -1,3 +1,15 @@
+**Democrats Clash Over a Replacement for Platner**\
+`Also, U.S. forces carry out strikes in Iran. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/07/07/briefing/democrats-platner-maine-us-iran-strikes.html
+
+**Zimbabwe’s President Signs Law Extending His Term**\
+`The measure will allow the president, Emmerson Mnangagwa, to stay in office until 2030. Critics say the move tightens his autocratic grip on power and erodes the nation’s democracy.`\
+https://www.nytimes.com/2026/07/07/world/africa/zimbabwe-president-mnangagwa-extension.html
+
+**Utah Moves to Close Teen Treatment Center Accused of Abusing Girls**\
+`Paris Hilton helped lead a campaign to shut down the Provo Canyon School, where she said she was beaten and spat on when she was 17.`\
+https://www.nytimes.com/2026/07/07/us/utah-boarding-school-abuse-paris-hilton.html
+
 **ICE Officer Kills a Mexican Man in Houston**\
 `The agency said the man was an “illegal alien” who had tried to run over the agent, though no evidence was immediately offered.`\
 https://www.nytimes.com/2026/07/07/us/immigration-ice-shooting-houston.html
