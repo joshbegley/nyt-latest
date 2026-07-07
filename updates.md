@@ -1,3 +1,7 @@
+**Judge Quashes Justice Dept. Subpoena in 2020 Election Inquiry**\
+`The ruling cast serious doubts on the department’s efforts to reinvestigate the race, finding that it was too late to bring criminal charges in the case.`\
+https://www.nytimes.com/2026/07/07/us/politics/2020-election-inquiry-trump-georgia.html
+
 **Democrats Clash Over a Replacement for Platner**\
 `Also, U.S. forces carry out strikes in Iran. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/07/07/briefing/democrats-platner-maine-us-iran-strikes.html
