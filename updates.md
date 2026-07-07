@@ -1,3 +1,19 @@
+**Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
+`The complex, which was once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html
+
+**As Ice Melts in the Arctic, Some Deep-Sea Creatures Are Thriving**\
+`A new study suggests that deep-sea life reaps the benefits of icebergs’ castoffs — a rare silver lining as a warming planet destabilizes glacial ice.`\
+https://www.nytimes.com/2026/07/07/science/arctic-icebergs-deepsea-life.html
+
+**U.K. Live Updates: Farage Resigns and Says He Will Run Again in Special Election**\
+`Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
+https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
+
+**Dolly Parton Musical Heads to Broadway in December**\
+`The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
+https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
+
 **U.K. Live Updates: Farage Says He Will Resign as Lawmaker, Forcing Special Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
 https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
