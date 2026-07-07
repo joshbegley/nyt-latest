@@ -1,3 +1,7 @@
+**Live Updates: Charlie Kirk Assassination Hearing Enters Its Second Day**\
+`A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing.`\
+https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
+
 **Live Updates: Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
 `The complex, which once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found that support columns were buckling and upper floors were sagging.`\
 https://www.nytimes.com/live/2026/07/07/nyregion/pfizer-building-midtown-collapse

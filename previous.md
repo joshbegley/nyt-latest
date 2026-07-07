@@ -26,6 +26,10 @@ https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulati
 `De un continente a otro, se lleva a cabo un disputa multimillonaria por los derechos de marca del dios del fútbol. El conflicto está destrozando a su familia y arruinando a inversores.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/messi-maradona-derechos-marca-argentina.html
 
+**Live Updates: Charlie Kirk Assassination Hearing Enters Its Second Day**\
+`A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing.`\
+https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
+
 **Cosmic Conjoined Twins, Caught on Camera**\
 `A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
 https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/business/soldiers-ai-disinformation.html
 **Should I Be Taking Psyllium Husk?**\
 `The supplement is said to help with weight loss, blood sugar, cholesterol and more. Is that too good to be true?`\
 https://www.nytimes.com/2026/07/07/well/eat/health-benefits-psyllium-husk.html
-
-**NATO Allies Will Try to Show Trump They Are Paying Up for Defense**\
-`Some are making significant progress on raising their military spending. A few are pushing boundaries in finding ways to try to meet their targets.`\
-https://www.nytimes.com/2026/07/07/world/europe/nato-defense-spending-trump-rutte.html
 
