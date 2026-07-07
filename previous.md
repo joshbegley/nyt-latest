@@ -1,3 +1,19 @@
+**NYT Crossword Answers for July 7, 2026**\
+`Brad Lively gets sentimental.`\
+https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-07.html
+
+**NYT Crossword Answers for July 8, 2026**\
+`Mason Hyunjin Lee makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-08.html
+
+**U.S. Loss Is a Gut Punch, but a Bright Future Remains for Soccer Here**\
+`While the team failed to meet the hopes of many fans, this World Cup highlighted the game’s decades-long climb into the national consciousness. What comes next?`\
+https://www.nytimes.com/2026/07/06/us/world-cup-usmnt-soccer.html
+
+**Lessons From the Graham Platner Disaster**\
+`Many Democrats want representatives as furious as they are. That makes it easier for unfit candidates to escape proper vetting.`\
+https://www.nytimes.com/2026/07/06/opinion/graham-platner-rape-accusation.html
+
 **In CNN Interview, Woman Details Alleged Sexual Assault by Graham Platner**\
 `“This is something that I tried for many years to forget,” the woman, Jenny Racicot, said on CNN.`\
 https://www.nytimes.com/2026/07/06/us/politics/jenny-racicot-cnn-interview-graham-platner.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/07/06/climate/dead-chickens-heat-wave-france.html
 **Michigan Senate Primary Gives Democrats Stark Choice Between Progressive and Moderate Candidate**\
 `The state’s important Senate primary just became a head-to-head battle between Abdul El-Sayed, an outspoken left-wing candidate, and Haley Stevens, a moderate backed by party leaders.`\
 https://www.nytimes.com/2026/07/06/us/politics/michigan-primary-democrats-stevens-el-sayed.html
-
-**Supreme Court Allows Texas Age-Verification Law for App Stores, for Now**\
-`The law would require Apple and Google to verify the age of app store users to give parents more control over the content their children download.`\
-https://www.nytimes.com/2026/07/06/us/politics/supreme-court-texas-age-apps.html
-
-**An Email. A Knock at the Door. A Suit Alleges a Threat to Free Speech.**\
-`A man sent a scathing note to an immigration official after two demonstrators were killed. A lawsuit says agents who came to his house were trying to intimidate him.`\
-https://www.nytimes.com/2026/07/06/nyregion/ice-email-lawsuit.html
-
-**Trump Wins the FIFA Appease Prize**\
-`Is it fair that players live in one reality and referees live in another? Is it fair that President Trump trumps them all?`\
-https://www.nytimes.com/2026/07/06/opinion/trump-fifa-balogun-red-card.html
-
-**Trump Defends Asking FIFA to Review Folarin Balogun’s World Cup Ban**\
-`The president said he called the head of FIFA but “didn’t tell him what to do.” The overturning of the ban has roiled soccer and brought renewed scrutiny to the relationship between the two leaders.`\
-https://www.nytimes.com/2026/07/06/us/politics/trump-fifa-world-cup-balogun.html
 
 **Charlie Kirk Hearing Updates: Prosecutors Deploy Videos in on Day 1 of Hearing**\
 `Erika Kirk, the victim’s widow, and Donald Trump Jr. are attending a hearing where a Utah judge is determining whether there is enough evidence to try the man accused of killing Mr. Kirk.`\

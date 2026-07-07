@@ -1,3 +1,19 @@
+**NYT Crossword Answers for July 7, 2026**\
+`Brad Lively gets sentimental.`\
+https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-07.html
+
+**NYT Crossword Answers for July 8, 2026**\
+`Mason Hyunjin Lee makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/07/06/crosswords/daily-puzzle-2026-07-08.html
+
+**U.S. Loss Is a Gut Punch, but a Bright Future Remains for Soccer Here**\
+`While the team failed to meet the hopes of many fans, this World Cup highlighted the game’s decades-long climb into the national consciousness. What comes next?`\
+https://www.nytimes.com/2026/07/06/us/world-cup-usmnt-soccer.html
+
+**Lessons From the Graham Platner Disaster**\
+`Many Democrats want representatives as furious as they are. That makes it easier for unfit candidates to escape proper vetting.`\
+https://www.nytimes.com/2026/07/06/opinion/graham-platner-rape-accusation.html
+
 **Platner Faces Growing Democratic Calls to Drop Out**\
 `Even supporters like Representative Ro Khanna of California and Senator Elizabeth Warren of Massachusetts called on the Democratic nominee to exit the Maine Senate race after a report that he had sexually assaulted a woman.`\
 https://www.nytimes.com/2026/07/06/us/politics/platner-democrats-drop-out.html
