@@ -1,3 +1,11 @@
+**Man Arrested for Painting ‘Pam the Bird’ Graffiti on Bridge Tower in Melbourne**\
+`An hourslong standoff with police ended after the man descended the 140-foot tower and surrendered. The graffiti resembled the “Pam the Bird” symbol which began appearing across the city in 2023.`\
+https://www.nytimes.com/2026/07/07/world/australia/pam-bird-graffiti-melbourne-bridge.html
+
+**New Museum’s Next Director Will Be Massimiliano Gioni**\
+`The expanded museum is promoting its longtime artistic director to help rebuild attendance after a two-year closure and hold onto its “edgy” character.`\
+https://www.nytimes.com/2026/07/07/arts/design/new-museum-director-massimiliano-gioni.html
+
 **Una llamada de Trump, una tarjeta roja cuestionada y un Mundial en apuros**\
 `Según el presidente de la FIFA, Gianni Infantino, no hubo nada inusual en la llamada del presidente Trump, ni en la revocación de la suspensión de Folarin Balogun.`\
 https://www.nytimes.com/es/2026/07/07/espanol/mundo/trump-infantino-tarjeta-roja.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/nyregion/two-cases-raise-concerns-about-civil
 **A Cool Houston Home With a Big Bank of Windows**\
 `A couple bought a piece of land for $46,000. Next, they found an architect willing to work within their budget.`\
 https://www.nytimes.com/2026/07/07/realestate/a-houston-home-with-11-windows-for-1800-square-feet.html
-
-**$24.5 Million Brooklyn Heights Brownstone Breaks 2026 Records**\
-`The eye-watering price of a home in Brooklyn Heights marks a record for the borough that was once an alternative to Manhattan’s luxury market.`\
-https://www.nytimes.com/2026/07/07/realestate/brooklyn-heights-brownstone-record-breaker.html
-
-**A Radical Vision for Israelis and Palestinians**\
-`The old solutions to the Israeli-Palestinian conflict don’t seem to fit the present reality. A Land for All proposes an alternative.`\
-https://www.nytimes.com/video/opinion/100000011002632/a-radical-vision-for-israelis-and-palestinians.html
 
