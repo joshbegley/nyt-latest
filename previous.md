@@ -1,3 +1,7 @@
+**Here’s How Much Rain Fell Across the New York Area This Week**\
+`After a blistering heat wave, a dousing of heavy rain this week caused flooding across the region. Experts said it could have been worse.`\
+https://www.nytimes.com/2026/07/07/weather/how-much-rain-fell-new-york-connecticut.html
+
 **Terremotos en Venezuela: de la represión a la indignación**\
 `Los venezolanos critican abiertamente al partido gobernante y a su líder, Delcy Rodríguez, algo que habría sido impensable hace tan solo un año. También dirigen su enojo hacia Trump.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuela-represion-indignacion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
 **Cosmic Conjoined Twins, Caught on Camera**\
 `A Japanese spacecraft flew by an asteroid and snapped a picture. It turned out to be a “contact binary”: two space rocks that somehow fused together.`\
 https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
-
-**As Ice Melts in the Arctic, Some Deep-Sea Creatures Are Thriving**\
-`A new study suggests that deep-sea life reaps the benefits of icebergs’ castoffs — a rare silver lining as a warming planet destabilizes glacial ice.`\
-https://www.nytimes.com/2026/07/07/science/arctic-icebergs-deepsea-life.html
 

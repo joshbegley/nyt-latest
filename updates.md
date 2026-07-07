@@ -1,3 +1,7 @@
+**Here’s How Much Rain Fell Across the New York Area This Week**\
+`After a blistering heat wave, a dousing of heavy rain this week caused flooding across the region. Experts said it could have been worse.`\
+https://www.nytimes.com/2026/07/07/weather/how-much-rain-fell-new-york-connecticut.html
+
 **Terremotos en Venezuela: de la represión a la indignación**\
 `Los venezolanos critican abiertamente al partido gobernante y a su líder, Delcy Rodríguez, algo que habría sido impensable hace tan solo un año. También dirigen su enojo hacia Trump.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuela-represion-indignacion.html
