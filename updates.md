@@ -1,3 +1,7 @@
+**Why Index Funds Haven’t Boosted SpaceX**\
+`Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
+https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
+
 **Dolly Parton to Celebrate Turning 81 With a Musical About Her Life**\
 `The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
 https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
