@@ -1,3 +1,7 @@
+**Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
+`Typhoon Maysak has been lashing Southern China for days, bursting dam walls and inundating homes and farms.`\
+https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
+
 **Las empresas de IA ahora contratan a filósofos**\
 `Los laboratorios de IA están contratando a sabios inconformistas, de esos que se frotan la barbilla y juntan los dedos en forma de pirámide. ¿Cuál desempleo?`\
 https://www.nytimes.com/es/2026/07/07/espanol/negocios/empresas-ia-contratan-filosofos.html
@@ -50,13 +54,13 @@ https://www.nytimes.com/2026/07/07/world/asia/china-flooding-typhoon-maysak.html
 `Una lectora se pregunta si es bueno o malo que la gente vaya cada vez más informal.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estilos-de-vida/arreglarse-casual-elegante.html
 
-**Behind the Scenes of NATO, Europe Is Falling Apart**\
-`The greatest dangers lie within.`\
-https://www.nytimes.com/2026/07/07/opinion/european-union-nato-trump.html
-
 **JD Vance Is Worried**\
 `The vice president’s theology comes in book form.`\
 https://www.nytimes.com/2026/07/07/opinion/jd-vance-communion-clash-civilizations.html
+
+**Behind the Scenes of NATO, Europe Is Falling Apart**\
+`The greatest dangers lie within.`\
+https://www.nytimes.com/2026/07/07/opinion/european-union-nato-trump.html
 
 **Joining a Human Tide of Mourners Flowing Through Tehran’s Streets**\
 `After days of public mourning ceremonies in the Iranian capital, Ayatollah Ali Khamenei’s coffin arrived in Tehran’s Azadi Square. This is what I saw covering the miles-long procession on Monday.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/100000011014722/president-trump-introduces-savi
 **Preliminary Hearing for Man Accused of Killing Charlie Kirk Starts in Utah**\
 `Prosecutors on Monday began laying out their case against the man accused of murdering Charlie Kirk. It was the first day of a weeklong preliminary hearing that will determine whether or not there is enough evidence against the accused killer to stand trial.`\
 https://www.nytimes.com/video/us/100000011014130/charlie-kirk-tyler-robinson-hearing-utah.html
-
-**Trump Passports Debut, Delighting Some and Dismaying Others**\
-`The Washington Passport Agency started issuing the limited-release documents with President Trump’s image on Monday, catching a few applicants by surprise.`\
-https://www.nytimes.com/2026/07/06/travel/trump-passports-traveler-reactions.html
 
 **Calls Mount for Platner to End Campaign After Rape Accusation**\
 `After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
