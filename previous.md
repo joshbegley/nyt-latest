@@ -1,3 +1,7 @@
+**Why China Fired a Long-Range Missile Into the Pacific**\
+`Beijing had long tested nuclear missiles only within its borders. A rare launch over an ocean shows it is determined to narrow the gap with the United States.`\
+https://www.nytimes.com/2026/07/07/world/asia/china-missile-test-submarine-pacific.html
+
 **Ayatollah Ali Khamenei, Iran’s Slain Leader, Is Mourned in Qom**\
 `The ceremony for Ayatollah Ali Khamenei, held at a site considered sacred by many Shiites, was the latest step in a weeklong funeral organized by Iran’s government.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/iran-khamenei-qom-funeral.html
@@ -166,7 +170,7 @@ https://www.nytimes.com/2026/07/07/weather/hail-damage-cost.html
 `A multimillion-dollar battle for a soccer god’s brand is being waged across continents, burning investors and tearing his family apart.`\
 https://www.nytimes.com/2026/07/07/world/americas/world-cup-argentina-maradona-trademark.html
 
-**Explosions Hit Damascus as Macron Visits**\
+**Explosions Hit Damascus During Macron Visit**\
 `Blasts occurred near the hotel where President Emmanuel Macron of France was staying. French officials said that he was not hurt and that his schedule in Syria would continue as planned.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-damascus-visit.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-fl
 **Las empresas de IA ahora contratan a filósofos**\
 `Los laboratorios de IA están contratando a sabios inconformistas, de esos que se frotan la barbilla y juntan los dedos en forma de pirámide. ¿Cuál desempleo?`\
 https://www.nytimes.com/es/2026/07/07/espanol/negocios/empresas-ia-contratan-filosofos.html
-
-**Wikipedia lucha por el alma de internet**\
-`La popular enciclopedia gratuita enfrenta ataques de la derecha, el avance de la inteligencia artificial y la presión de gobiernos que buscan controlar la información.`\
-https://www.nytimes.com/es/2026/07/07/espanol/negocios/wikipedia-gratis-internet.html
 
