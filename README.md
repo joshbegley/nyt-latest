@@ -1,3 +1,7 @@
+**Farage Says He Will Resign From UK’s Parliament to Trigger a By-Election**\
+`Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
+https://www.nytimes.com/2026/07/07/world/europe/nigel-farage-reform-uk.html
+
 **Trump Promised a Foreign Investment Boom. It’s Getting Harder to Deliver.**\
 `The threat of tariffs may have helped push more capital into the United States, but other factors are pushing it away.`\
 https://www.nytimes.com/2026/07/07/business/economy/trump-foreign-investment.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/t-magazine/food/chefs-edible-flowers-tips.htm
 **How to Make a Floral Arrangement That Will Last All Summer**\
 `The artist Sourabh Gupta gives a step-by-step guide to crafting Icelandic poppies out of crepe paper.`\
 https://www.nytimes.com/2026/07/07/t-magazine/paper-flowers-sourabh-gupta.html
-
-**How to Be a Good Guest at a Dinner Party**\
-`Tips for endearing yourself to your host and fellow attendees — and all but guaranteeing you’ll be asked back.`\
-https://www.nytimes.com/2026/07/07/t-magazine/good-guest-dinner-party-tips.html
 
