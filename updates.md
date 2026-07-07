@@ -1,3 +1,7 @@
+**Doctors Warn of a Dangerous Trend: Microwaving a Popular Squishy Toy**\
+`Hospitals are seeing cases of children suffering serious burns amid a social media trend involving popping NeeDoh cubes into microwaves.`\
+https://www.nytimes.com/2026/07/07/well/squishy-needoh-toys-burns.html
+
 **Is ‘The View’ a News Show? ABC Says That’s Already Settled.**\
 `In a new filing, ABC said that the F.C.C. had ruled in 2002 that “The View” was a “bona fide news program.”`\
 https://www.nytimes.com/2026/07/07/business/media/the-view-abc-fcc-investigation.html
