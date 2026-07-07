@@ -1,3 +1,11 @@
+**Yale Law School Fights to Stop Trump Deal**\
+`The university has been in talks to resolve investigations into its admissions practices. The law school’s dean and some faculty have argued a deal could compromise its independence.`\
+https://www.nytimes.com/2026/07/07/us/yale-law-school-dean-trump-deal.html
+
+**Madonna’s Retro Reverie and 5 More New Songs You Should Hear**\
+`Listen to new music from the queen of pop reinvention, Billy Strings, Ciara and more.`\
+https://www.nytimes.com/2026/07/07/arts/music/amplifier-newsletter-madonna-ciara-billy-strings.html
+
 **Two A.I. Systems: ‘The Frontier and Everything Else’**\
 `On the “Hard Fork” podcast, the host Casey Newton acknowledges the gap between frontier A.I. models and other models, including open source, distilled and Chinese models.`\
 https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-frontier-and-everything-else.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/es/interactive/2026/07/07/espanol/america-latina/venezue
 `Fiery from dried chiles, tingling with Sichuan peppercorns and studded with peanuts, this kung pao tofu recipe, linked below, is a vegetarian take on kung pao chicken, the classic Chinese American restaurant staple.`\
 https://www.nytimes.com/video/dining/100000011016675/kung-pao-tofu.html
 
-**Repression Turns to Rage After Quakes in Venezuela**\
+**Venezuelans Criticize Own Government Response After Twin Earthquakes**\
 `Venezuelans are publicly expressing their anger over their government’s disaster response, despite the risk of imprisonment.`\
 https://www.nytimes.com/2026/07/07/world/americas/venezuela-earthquakes-delcy-rodriguez-trump.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/world/europe/belgium-us-world-cup-balogun-tru
 **Caribbean Disparity**\
 `We look at U.S. relief efforts in Haiti in 2010 and in Venezuela now.`\
 https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.html
-
-**La OTAN necesita a Turquía**\
-`La guerra en Ucrania y el desdén de Trump hacia la alianza han cambiado la percepción sobre lo que Turquía aporta.`\
-https://www.nytimes.com/es/2026/07/07/espanol/mundo/otan-turquia.html
-
-**USMNT Elimination Reaction and World Cup Conspiracy Theories**\
-`Breaking down the good, the bad and the downright ugly from America’s elimination against Belgium.`\
-https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup-conspiracy-theories.html
 
