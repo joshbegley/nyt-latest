@@ -1,3 +1,11 @@
+**More Americans Than Ever Are Taking Weight-Loss Drugs**\
+`The number of U.S. adults taking an obesity medication has nearly quadrupled from just two years ago.`\
+https://www.nytimes.com/2026/07/07/well/americans-taking-weight-loss-drugs.html
+
+**Word of the Day: deficit**\
+`This word has appeared in 972 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/07/learning/word-of-the-day-deficit.html
+
 **Deadly Typhoon Bursts Dam Wall as Heavy Rains Inundate China**\
 `Typhoon Maysak has been lashing Southern China for days, bursting dam walls and inundating homes and farms.`\
 https://www.nytimes.com/video/world/asia/100000011015808/china-typhoon-maysak-flooding.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/07/06/us/trump-world-cup-balogun-timeli
 **Judge Appointed Last Year Is Overseeing Hearing in Killing of Charlie Kirk**\
 `Judge Tony Graf previously served as a prosecutor in Utah, including in the county where Mr. Kirk was shot and killed last year.`\
 https://www.nytimes.com/2026/07/06/us/who-is-judge-tony-graf.html
-
-**President Trump Introduces Savings Accounts for Children**\
-`President Trump on Monday celebrated the start of his savings accounts for children, commonly referred to as Trump accounts. But children are not automatically enrolled in the program and only a quarter of eligible recipients have signed up so far.`\
-https://www.nytimes.com/video/us/100000011014722/president-trump-introduces-savings-accounts-for-children.html
-
-**Preliminary Hearing for Man Accused of Killing Charlie Kirk Starts in Utah**\
-`Prosecutors on Monday began laying out their case against the man accused of murdering Charlie Kirk. It was the first day of a weeklong preliminary hearing that will determine whether or not there is enough evidence against the accused killer to stand trial.`\
-https://www.nytimes.com/video/us/100000011014130/charlie-kirk-tyler-robinson-hearing-utah.html
 
 **Calls Mount for Platner to End Campaign After Rape Accusation**\
 `After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
