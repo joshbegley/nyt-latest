@@ -1,3 +1,7 @@
+**U.S. Revokes Iran Oil Sanctions Waiver After Attack on Tankers**\
+`A 60-day exemption allowing the sale of Iranian oil was cut short after three tankers were attacked in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/07/us/politics/iran-oil-sanctions-tankers-attack.html
+
 **What to Know About the ‘Frozen Zone’ in Midtown Manhattan**\
 `A building at risk of partial collapse prompted the city to restrict pedestrian and vehicle traffic in the area. Some buses were diverted or delayed, but subway lines remained uninterrupted.`\
 https://www.nytimes.com/2026/07/07/nyregion/frozen-zone-midtown-manhattan-building-collapse.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-thea
 **Mitch McConnell está hospitalizado: esto es lo que sabemos**\
 `El senador republicano por Kentucky ingresó al hospital el 14 de junio, y su oficina apenas ha dado información sobre su estado. Esto es lo que sabemos.`\
 https://www.nytimes.com/es/2026/07/07/espanol/estados-unidos/mitch-mcconnell-senador-hospitalizado.html
-
-**Louise Lasser, Star of TV’s ‘Mary Hartman,’ Is Dead at 87**\
-`She began her screen career in Woody Allen movies (he was also her husband), but she was best known for her portrayal of the Ohio housewife in the pigtails and puffed sleeves.`\
-https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
 
 **Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
 `A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
