@@ -1,3 +1,11 @@
+**El papa León se enfrenta a la primera crisis de su pontificado**\
+`Un enfrentamiento inminente entre el papa León y los católicos ultratradicionalistas amenaza con poner fin a la luna de miel del pontífice.`\
+https://www.nytimes.com/es/2026/07/07/espanol/opinion/papa-leon-iglesia-catolica-crisis.html
+
+**Who is Ahead in Alabama's 2nd Congressional District?**\
+`Track the latest polls in Alabama's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/alabama-us-house-2-polls-2026.html
+
 **Say This to a Grieving Parent**\
 `Susie Shaw tells Anna Martin, host of the “Modern Love” podcast, how to support a parent going through the loss of a child.`\
 https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-parent.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/arts/smithsonian-trump-george-washington.html
 **Is This Liberalism’s Last Stand?**\
 `The “death certificates” issued for liberalism, one analyst says, are “premature.”`\
 https://www.nytimes.com/2026/07/07/opinion/liberalism-democratic-socialists-future.html
-
-**Anthea Hartig, Smithsonian Museum Director, Faces the White House’s Wrath**\
-`Historians defended Anthea Hartig, director of the National Museum of American History, after the Trump administration accused her of spreading “radical activist ideology.”`\
-https://www.nytimes.com/2026/07/07/arts/design/anthea-hartig-smithsonian-american-history.html
-
-**Corrections: July 7, 2026**\
-`Corrections that appeared in print on Tuesday, July 7, 2026.`\
-https://www.nytimes.com/2026/07/07/pageoneplus/corrections-july-7-2026.html
 
