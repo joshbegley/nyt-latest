@@ -1,8 +1,16 @@
+**Midtown Manhattan Building Evacuated as Officials Warn of Collapse**\
+`The complex, which was once housed offices for the pharmaceutical company Pfizer, is being converted to residences. Officials inspecting it found support columns were buckling, and upper floors were sagging.`\
+https://www.nytimes.com/2026/07/07/nyregion/pfizer-building-midtown-collapse.html
+
+**As Ice Melts in the Arctic, Some Deep-Sea Creatures Are Thriving**\
+`A new study suggests that deep-sea life reaps the benefits of icebergs’ castoffs — a rare silver lining as a warming planet destabilizes glacial ice.`\
+https://www.nytimes.com/2026/07/07/science/arctic-icebergs-deepsea-life.html
+
 **Explosions Rock Damascus During Macron Visit**\
 `President Emmanuel Macron of France was uninjured after two blasts occurred near the hotel where he was staying during his official visit to Syria.`\
 https://www.nytimes.com/video/world/middleeast/100000011015998/syria-macron-explosions-damascus-al-sharaa.html
 
-**U.K. Live Updates: Farage Says He Will Resign as Lawmaker, Forcing Special Election**\
+**U.K. Live Updates: Farage Resigns and Says He Will Run Again in Special Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
 https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
 
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/07/07/todayspaper/monaco-bombing-suspect-dead-ukrai
 `Some market watchers are puzzled that shares in Elon Musk’s rocket and A.I. company have stalled out despite major interest from Wall Street.`\
 https://www.nytimes.com/2026/07/07/business/dealbook/spacex-index-funds.html
 
-**Dolly Parton to Celebrate Turning 81 With a Musical About Her Life**\
+**Dolly Parton Musical Heads to Broadway in December**\
 `The show about the country music queen, “Dolly: A True Original Musical,” will begin performances on Broadway in December.`\
 https://www.nytimes.com/2026/07/07/theater/dolly-parton-musical-broadway-opening.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/travel/four-seasons-luxury-cruise-mediterrane
 **How a Four-Generation Cuban Family Survives on $60 a Month**\
 `The U.S. oil blockade has deepened a humanitarian crisis, forcing Cubans to lean on the island’s long tradition of community solidarity to provide a cushion.`\
 https://www.nytimes.com/2026/07/07/world/americas/cuba-power-crisis-oil-blockade.html
-
-**Few Composers Can Sell Out Arenas. He’s One of Them.**\
-`Joe Hisaishi got famous writing the soundtracks to Hayao Miyazaki’s Studio Ghibli films. Now he is focusing on his first love: classical music.`\
-https://www.nytimes.com/2026/07/07/arts/music/joe-hisaishi-composer-studio-ghibli.html
-
-**After Courting Black Voters, Trump Downplays Black Unemployment**\
-`The president has glossed over persistently high unemployment among African Americans, a group he needed to secure a second term.`\
-https://www.nytimes.com/2026/07/07/us/politics/trump-black-voters-unemployment.html
 
