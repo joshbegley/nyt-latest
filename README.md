@@ -1,3 +1,11 @@
+**Una llamada de Trump, una tarjeta roja cuestionada y un Mundial en apuros**\
+`Según el presidente de la FIFA, Gianni Infantino, no hubo nada inusual en la llamada del presidente Trump, ni en la revocación de la suspensión de Folarin Balogun.`\
+https://www.nytimes.com/es/2026/07/07/espanol/mundo/trump-infantino-tarjeta-roja.html
+
+**Nation’s 250th Celebration Fireworks Sent D.C. Air Pollution Spiking**\
+`Trump promised a record display of some 850,000 pyrotechnics for the country’s 250th birthday. The Park Service warned it could get dirty.`\
+https://www.nytimes.com/2026/07/07/climate/washington-dc-fireworks-air-pollution.html
+
 **A Supreme Leader’s Final Crowds**\
 `What you could see when Ayatollah Ali Khamenei’s coffin was being driven to a public space in Tehran.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/realestate/brooklyn-heights-brownstone-record
 **A Radical Vision for Israelis and Palestinians**\
 `The old solutions to the Israeli-Palestinian conflict don’t seem to fit the present reality. A Land for All proposes an alternative.`\
 https://www.nytimes.com/video/opinion/100000011002632/a-radical-vision-for-israelis-and-palestinians.html
-
-**The Disappearing Las Vegas Buffets Hold a Mirror to the American Soul**\
-`As a once-grand American tradition enters its twilight, our critic journeys to the desert to find out what it all means.`\
-https://www.nytimes.com/2026/07/07/dining/las-vegas-buffets.html
-
-**Book Review: ‘City of Fortune,’ by Mason B. Williams**\
-`A new book by the historian Mason B. Williams chronicles the dubious effects of school, housing and police reforms by local politicians on the right.`\
-https://www.nytimes.com/2026/07/07/books/review/city-of-fortune-mason-williams.html
 

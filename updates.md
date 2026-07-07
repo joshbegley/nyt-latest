@@ -1,3 +1,15 @@
+**A Supreme Leader’s Final Crowds**\
+`What you could see when Ayatollah Ali Khamenei’s coffin was being driven to a public space in Tehran.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/ayatollah-funeral-image.html
+
+**America Was Being Played. The Bessent Doctrine Says Those Days Are Over.**\
+`The United States is changing the rules of trade in its favor.`\
+https://www.nytimes.com/2026/07/07/opinion/scott-bessent-trade-economy.html
+
+**Live Updates: Video at Kirk Hearing Shows Man on Roof Near Shooting Site**\
+`A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the conservative activist.`\
+https://www.nytimes.com/live/2026/07/07/us/charlie-kirk-shooting-hearing
+
 **Jake Roxander, a Ballet Theater Dancer Raised on Superheroes**\
 `Jake Roxander, a virtuosic wonder at American Ballet Theater, was promoted onstage after a recent performance. The news hasn’t quite sunk in.`\
 https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
