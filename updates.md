@@ -1,3 +1,11 @@
+**Ayatollah Ali Khamenei, Iran’s Slain Leader, Is Mourned in Qom**\
+`The ceremony for Ayatollah Ali Khamenei, held at a site considered sacred by many Shiites, was the latest step in a weeklong funeral organized by Iran’s government.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/iran-khamenei-qom-funeral.html
+
+**World Cup 2026: See How a Series of U.S. Mistakes Led to Belgium’s Third Goal**\
+`View in 3-D how the U.S. men’s soccer team failed to stop Belgium from scoring a crucial goal in a match that ultimately knocked the United States out of the World Cup.`\
+https://www.nytimes.com/interactive/2026/07/07/sports/soccer/usa-belgium-world-cup-goal.html
+
 **La crisis en Cuba a través de una familia que sobrevive con 60 dólares al mes**\
 `El bloqueo petrolero estadounidense ha agravado la crisis humanitaria, lo que ha obligado a los cubanos a recurrir a la larga tradición de solidaridad comunitaria de la isla para salir adelante.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/cuba-crisis-dolares-sobrevivir.html

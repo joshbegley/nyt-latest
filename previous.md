@@ -1,3 +1,11 @@
+**Ayatollah Ali Khamenei, Iran’s Slain Leader, Is Mourned in Qom**\
+`The ceremony for Ayatollah Ali Khamenei, held at a site considered sacred by many Shiites, was the latest step in a weeklong funeral organized by Iran’s government.`\
+https://www.nytimes.com/2026/07/07/world/middleeast/iran-khamenei-qom-funeral.html
+
+**World Cup 2026: See How a Series of U.S. Mistakes Led to Belgium’s Third Goal**\
+`View in 3-D how the U.S. men’s soccer team failed to stop Belgium from scoring a crucial goal in a match that ultimately knocked the United States out of the World Cup.`\
+https://www.nytimes.com/interactive/2026/07/07/sports/soccer/usa-belgium-world-cup-goal.html
+
 **La crisis en Cuba a través de una familia que sobrevive con 60 dólares al mes**\
 `El bloqueo petrolero estadounidense ha agravado la crisis humanitaria, lo que ha obligado a los cubanos a recurrir a la larga tradición de solidaridad comunitaria de la isla para salir adelante.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/cuba-crisis-dolares-sobrevivir.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/07/espanol/negocios/empresas-ia-contratan-fil
 **Wikipedia lucha por el alma de internet**\
 `La popular enciclopedia gratuita enfrenta ataques de la derecha, el avance de la inteligencia artificial y la presión de gobiernos que buscan controlar la información.`\
 https://www.nytimes.com/es/2026/07/07/espanol/negocios/wikipedia-gratis-internet.html
-
-**Dior and the Taylor Swift Wedding Effect**\
-`Were there clues to the dress in the brand’s couture show?`\
-https://www.nytimes.com/2026/07/07/style/dior-couture-taylor-swift-wedding.html
-
-**Soy psicólogo. No todo el mundo debería ir a terapia**\
-`La terapia parece haberse convertido en la receta por defecto para todo tipo de infelicidad.`\
-https://www.nytimes.com/es/2026/07/07/espanol/opinion/felicidad-psicologia-terapia-consulta.html
 
