@@ -1,3 +1,7 @@
+**What to Know About the ‘Frozen Zone’ in Midtown Manhattan**\
+`A building at risk of partial collapse prompted the city to restrict pedestrian and vehicle traffic in the area. Some buses were diverted or delayed, but subway lines remained uninterrupted.`\
+https://www.nytimes.com/2026/07/07/nyregion/frozen-zone-midtown-manhattan-building-collapse.html
+
 **Restaurant Review: Salt Hank in the East Village**\
 `Salt Hank’s in the East Village quickly became one of the most talked-about sandwiches in the city. Our critic gives it a go.`\
 https://www.nytimes.com/2026/07/07/dining/restaurant-review-salt-hanks.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/07/espanol/estados-unidos/mitch-mcconnell-sen
 **Louise Lasser, Star of TV’s ‘Mary Hartman,’ Is Dead at 87**\
 `She began her screen career in Woody Allen movies (he was also her husband), but she was best known for her portrayal of the Ohio housewife in the pigtails and puffed sleeves.`\
 https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
-
-**Trump Administration Guts Efforts to Prevent Gun Violence, Suppressing Reports**\
-`As the administration works to expand gun rights, hospitals and community groups have lost funding, and reports on preventing firearm injuries have vanished from government websites.`\
-https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justice.html
 
 **Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
 `A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
