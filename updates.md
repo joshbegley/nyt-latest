@@ -1,3 +1,19 @@
+**ICE Officer Kills a Mexican Man in Houston**\
+`The agency said the man was an “illegal alien” who had tried to run over the agent, though no evidence was immediately offered.`\
+https://www.nytimes.com/2026/07/07/us/immigration-ice-shooting-houston.html
+
+**Penelope Keith, Effortlessly Posh Star of British Sitcoms, Dies at 86**\
+`A veteran stage actress, she starred in two of Britain’s most beloved TV comedies of the 1970s, “The Good Life” and “To the Manor Born.”`\
+https://www.nytimes.com/2026/07/07/arts/television/penelope-keith-dead.html
+
+**Las misteriosas esferas encontradas en Australia probablemente sean basura espacial**\
+`El hallazgo desconcertó —y después divirtió— a los vecinos de un pueblo del noreste de Australia. La agencia espacial del país dijo que los objetos parecen ser restos de un lanzamiento espacial.`\
+https://www.nytimes.com/es/2026/07/07/espanol/esferas-espacio-australia-basura-espacial.html
+
+**Marine Le Pen’s Court Battle Is Latest Clash Between Populists and Watchdogs**\
+`The far-right leader’s battle with the French judiciary evokes standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
+https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011017727/07visualUploader-33442.html
