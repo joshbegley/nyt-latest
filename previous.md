@@ -1,3 +1,27 @@
+**Soy psicólogo. No todo el mundo debería ir a terapia**\
+`La terapia parece haberse convertido en la receta por defecto para todo tipo de infelicidad.`\
+https://www.nytimes.com/es/2026/07/07/espanol/opinion/felicidad-psicologia-terapia-consulta.html
+
+**Gotham F.C., the Women’s Soccer Team, Is Leaving New Jersey for Queens**\
+`After years of sharing a stadium with the Red Bulls in New Jersey, Gotham announces a partnership with the New York City Football Club at their new stadium in Willets Point, Queens.`\
+https://www.nytimes.com/2026/07/07/nyregion/gotham-fc-etihad-park-queens.html
+
+**NYT Spelling Bee Answers for July 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/07/crosswords/spelling-bee-forum.html
+
+**How Economic Anxiety Is Driving the Democratic Socialists’ Surge**\
+`Interviews with D.S.A. members and organizers in New York City suggest that frustration with the economy has been the most important factor in the group’s growth.`\
+https://www.nytimes.com/2026/07/07/nyregion/dsa-economy-nyc.html
+
+**The New York City Plumber Who Made Over $465,000 in a Year**\
+`A public housing employee made more than $465,000 in a year with overtime, while apparently running two private plumbing businesses at the same time. The city is investigating.`\
+https://www.nytimes.com/2026/07/07/nyregion/nyc-plumber-investigation.html
+
+**Trump to Attend NATO Summit in Turkey**\
+`President Trump is expected to discuss American weaponry, NATO spending and the Russia-Ukraine war during a NATO summit in Ankara, Turkey.`\
+https://www.nytimes.com/video/world/europe/100000011015786/trump-nato-summit.html
+
 **New Strikes on Ships in Strait of Hormuz Test U.S.-Iran Cease-Fire**\
 `A U.S. official said Iranian missiles struck two commercial ships. There was no immediate comment from Iranian officials on the reported attacks.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/iran-war-oman-hormuz-tanker.html
@@ -170,31 +194,7 @@ https://www.nytimes.com/2026/07/06/world/australia/spate-of-shark-attacks-means-
 `Critics say cheers like “U-S-A!” and “I believe we can win” are unoriginal. We asked experts on soccer chants to explain why.`\
 https://www.nytimes.com/2026/07/06/sports/world-cup/us-world-cup-chants.html
 
-**NATO Needs Turkey**\
-`The war in Ukraine and Trump’s disregard for the alliance have generated a new appreciation of what Turkey brings to the table.`\
-https://www.nytimes.com/2026/07/06/world/nato-summit-turkey-trump-fifa-ban.html
-
 **Calls Mount for Platner to End Campaign After Rape Accusation**\
 `After a woman accused Graham Platner, the Democratic Senate nominee in Maine, of rape, he denied the allegation but said he was taking time to “reflect” on his path forward.`\
 https://www.nytimes.com/live/2026/07/06/us/platner-campaign-accusation
-
-**¿Qué sabemos de la boda de Taylor Swift y Travis Kelce?**\
-`Desde la decoración inspirada en un jardín hasta las albóndigas (de la cena de ensayo), poco a poco se van conociendo detalles cuidadosamente planificados de este evento ultrasecreto.`\
-https://www.nytimes.com/es/2026/07/06/espanol/estilos-de-vida/boda-taylor-swift-travis-kelce.html
-
-**Inside Trump’s Call With FIFA and How The New York Times Reported the Story**\
-`A White House correspondent and a sports reporter confirmed that President Trump had called Gianni Infantino of FIFA to review the suspension of a top U.S. goal scorer.`\
-https://www.nytimes.com/2026/07/06/insider/trump-fifa-world-cup-balogun.html
-
-**George E. Johnson, Who Built a Black Hair-Care Empire, Dies at 99**\
-`Mr. Johnson’s hair product company, a longtime sponsor of “Soul Train,” was the first Black-owned company listed on a major American stock exchange.`\
-https://www.nytimes.com/2026/07/06/business/george-e-johnson-dead.html
-
-**Want to Truly Understand the World Cup? Check Out These Books.**\
-`Three authors chronicle the history of the World Cup and of U.S. men’s soccer.`\
-https://www.nytimes.com/2026/07/06/books/review/world-cup-soccer-books.html
-
-**Canada Bets on NATO Partners for Its Expanded Submarine Fleet**\
-`In selecting a joint bid from Germany and Norway, Prime Minister Mark Carney is elevating Canada’s naval power and reducing its military and economic dependency on the United States.`\
-https://www.nytimes.com/2026/07/06/world/canada/carney-submariness-canada-military.html
 

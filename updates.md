@@ -1,3 +1,27 @@
+**Soy psicólogo. No todo el mundo debería ir a terapia**\
+`La terapia parece haberse convertido en la receta por defecto para todo tipo de infelicidad.`\
+https://www.nytimes.com/es/2026/07/07/espanol/opinion/felicidad-psicologia-terapia-consulta.html
+
+**Gotham F.C., the Women’s Soccer Team, Is Leaving New Jersey for Queens**\
+`After years of sharing a stadium with the Red Bulls in New Jersey, Gotham announces a partnership with the New York City Football Club at their new stadium in Willets Point, Queens.`\
+https://www.nytimes.com/2026/07/07/nyregion/gotham-fc-etihad-park-queens.html
+
+**NYT Spelling Bee Answers for July 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/07/crosswords/spelling-bee-forum.html
+
+**How Economic Anxiety Is Driving the Democratic Socialists’ Surge**\
+`Interviews with D.S.A. members and organizers in New York City suggest that frustration with the economy has been the most important factor in the group’s growth.`\
+https://www.nytimes.com/2026/07/07/nyregion/dsa-economy-nyc.html
+
+**The New York City Plumber Who Made Over $465,000 in a Year**\
+`A public housing employee made more than $465,000 in a year with overtime, while apparently running two private plumbing businesses at the same time. The city is investigating.`\
+https://www.nytimes.com/2026/07/07/nyregion/nyc-plumber-investigation.html
+
+**Trump to Attend NATO Summit in Turkey**\
+`President Trump is expected to discuss American weaponry, NATO spending and the Russia-Ukraine war during a NATO summit in Ankara, Turkey.`\
+https://www.nytimes.com/video/world/europe/100000011015786/trump-nato-summit.html
+
 **New Strikes on Ships in Strait of Hormuz Test U.S.-Iran Cease-Fire**\
 `A U.S. official said Iranian missiles struck two commercial ships. There was no immediate comment from Iranian officials on the reported attacks.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/iran-war-oman-hormuz-tanker.html
