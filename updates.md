@@ -1,3 +1,11 @@
+**A Plan to Stop the Far Right**\
+`The German chancellor and his center-left coalition partners are trying to hold off populist challengers. And they have a road map.`\
+https://www.nytimes.com/2026/07/07/world/germany-afd-centrist-far-right-le-pen-farage.html
+
+**Marine Le Pen Announces 2027 French Presidential Bid**\
+`The far-right French leader said on Tuesday that she will seek the presidency for the fourth time, despite an embezzlement conviction and a previous ban on her eligibility for office.`\
+https://www.nytimes.com/video/world/europe/100000011016495/marine-le-pen-2027-presidential-bid.html
+
 **Marine Le Pen’s Court Battle Is Latest Clash Between Populists and Watchdogs**\
 `The far-right leader’s battle with the French judiciary evokes legal standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
 https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
