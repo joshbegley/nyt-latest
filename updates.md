@@ -1,3 +1,7 @@
+**Caribbean Disparity**\
+`We look at U.S. relief efforts in Haiti in 2010 and in Venezuela now.`\
+https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.html
+
 **La OTAN necesita a Turquía**\
 `La guerra en Ucrania y el desdén de Trump hacia la alianza han cambiado la percepción sobre lo que Turquía aporta.`\
 https://www.nytimes.com/es/2026/07/07/espanol/mundo/otan-turquia.html
