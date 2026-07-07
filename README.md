@@ -1,3 +1,11 @@
+**U.S. Strikes Iran and Reimposes Sanctions After Tanker Attacks**\
+`The military operation came hours after the U.S. Treasury revoked a waiver allowing global sales of Iranian oil.`\
+https://www.nytimes.com/2026/07/07/us/politics/us-strikes-iran-tanker-attacks.html
+
+**These Maine Democrats Might Replace Graham Platner in the Senate Race**\
+`Mr. Platner has not yet withdrawn from the race after a rape allegation, but Democrats in the state and nationally are already exploring potential alternatives.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-replacements-maine-democrats.html
+
 **What to Know About Manhattan Office Conversions**\
 `The city has encouraged more complex office-to-residential conversions to fight the housing crisis.`\
 https://www.nytimes.com/2026/07/07/nyregion/office-residential-explainer-faq.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-co
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-apartment-conversions.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011016891/07visualUploader-60479.html
-
-**Los terremotos en Venezuela fueron mortales. ¿Por qué?**\
-`Una serie de factores desafortunados —dos terremotos seguidos muy de cerca, una falla que se rompió en dirección a Caracas, un terreno blando y la poca profundidad del terremoto— se combinaron para que los terremotos de Venezuela fueran inusualmente letales.`\
-https://www.nytimes.com/es/interactive/2026/07/07/espanol/america-latina/venezuela-terremoto-causas.html
 
