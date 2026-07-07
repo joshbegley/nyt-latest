@@ -1,3 +1,11 @@
+**Two A.I. Systems: ‘The Frontier and Everything Else’**\
+`On the “Hard Fork” podcast, the host Casey Newton acknowledges the gap between frontier A.I. models and other models, including open source, distilled and Chinese models.`\
+https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-frontier-and-everything-else.html
+
+**Democrats Clash Over Who Replaces Platner Even Before He Exits**\
+`Progressives and moderates are gearing up for a fight over an as-yet-undecided process in Maine to name a Senate nominee to replace Graham Platner after a rape accusation. He still wants a say, too.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-replacements-democrats.html
+
 **Lawsuit Alleges Trump Administration Gave Iran Details on Asylum Seekers**\
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html

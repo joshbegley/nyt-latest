@@ -1,3 +1,7 @@
+**Madonna’s Retro Reverie and 5 More New Songs You Should Hear**\
+`Listen to new music from the queen of pop reinvention, Billy Strings, Ciara and more.`\
+https://www.nytimes.com/2026/07/07/arts/music/amplifier-newsletter-madonna-ciara-billy-strings.html
+
 **Two A.I. Systems: ‘The Frontier and Everything Else’**\
 `On the “Hard Fork” podcast, the host Casey Newton acknowledges the gap between frontier A.I. models and other models, including open source, distilled and Chinese models.`\
 https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-frontier-and-everything-else.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.
 **La OTAN necesita a Turquía**\
 `La guerra en Ucrania y el desdén de Trump hacia la alianza han cambiado la percepción sobre lo que Turquía aporta.`\
 https://www.nytimes.com/es/2026/07/07/espanol/mundo/otan-turquia.html
-
-**USMNT Elimination Reaction and World Cup Conspiracy Theories**\
-`Breaking down the good, the bad and the downright ugly from America’s elimination against Belgium.`\
-https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup-conspiracy-theories.html
 

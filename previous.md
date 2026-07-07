@@ -1,3 +1,7 @@
+**Two A.I. Systems: ‘The Frontier and Everything Else’**\
+`On the “Hard Fork” podcast, the host Casey Newton acknowledges the gap between frontier A.I. models and other models, including open source, distilled and Chinese models.`\
+https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-frontier-and-everything-else.html
+
 **Lawsuit Alleges Trump Administration Gave Iran Details on Asylum Seekers**\
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/video/podcasts/100000011004628/say-this-to-a-grieving-pa
 `Aaron Szabo will step down as the head of the Environmental Protection Agency’s air office this month, he told employees, after overseeing rollbacks of a range of pollution limits.`\
 https://www.nytimes.com/2026/07/07/climate/aaron-szabo-epa-resign.html
 
-**Democrats Begin to Clash Over Who Replaces Platner Even Before He Exits**\
+**Democrats Clash Over Who Replaces Platner Even Before He Exits**\
 `Progressives and moderates are gearing up for a fight over an as-yet-undecided process in Maine to name a Senate nominee to replace Graham Platner after a rape accusation. He still wants a say, too.`\
 https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-replacements-democrats.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/07/espanol/mundo/otan-turquia.html
 **USMNT Elimination Reaction and World Cup Conspiracy Theories**\
 `Breaking down the good, the bad and the downright ugly from America’s elimination against Belgium.`\
 https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup-conspiracy-theories.html
-
-**The Onion’s Latest Joke: Taking Over Infowars**\
-`The satirical news outlet wants to convert the right-wing Infowars site into a parody of itself.`\
-https://www.nytimes.com/2026/07/07/podcasts/the-daily/the-onions-infowars.html
 
