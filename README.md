@@ -1,3 +1,7 @@
+**Restaurant Review: Salt Hank in the East Village**\
+`Salt Hank’s in the East Village quickly became one of the most talked-about sandwiches in the city. Our critic gives it a go.`\
+https://www.nytimes.com/2026/07/07/dining/restaurant-review-salt-hanks.html
+
 **Andrea Shaw, Plaintiff in Anti-Vaccine Suit, Is Charged With Murder of Her Twins**\
 `A lawsuit filed by Children’s Health Defense, an organization founded by Robert F. Kennedy Jr., claims that vaccines caused the twins’ deaths. But a grand jury in Idaho has indicted her on charges of suffocating them.`\
 https://www.nytimes.com/2026/07/07/us/idaho-twins-death-shaw-vaccines-murder.html
@@ -78,13 +82,13 @@ https://www.nytimes.com/video/podcasts/100000011016983/two-ai-systems-the-fronti
 `A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
 
-**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
-`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
-https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
-
 **What to Know About the Building at Risk of Collapse in Manhattan**\
 `The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
+
+**The Accused Is in Court but Conspiracy Theories Still Swirl Around Kirk Case**\
+`Mr. Kirk’s assassination played out live on the internet, but since then, it has become fodder for fantasy.`\
+https://www.nytimes.com/2026/07/07/us/charlie-kirk-assassination-conspiracy-theories.html
 
 **Manhattan Building at Risk of Collapse Is Being Converted to Apartments**\
 `The conversion of an office building on East 42nd Street would be the largest project of its kind in New York City’s history, according to the architectural firm behind the plan.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/07/arts/television/louise-lasser-dead.html
 **Trump Administration Guts Efforts to Prevent Gun Violence, Suppressing Reports**\
 `As the administration works to expand gun rights, hospitals and community groups have lost funding, and reports on preventing firearm injuries have vanished from government websites.`\
 https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justice.html
-
-**America Was Being Played. The Bessent Doctrine Says Those Days Are Over.**\
-`The United States is changing the rules of trade in its favor.`\
-https://www.nytimes.com/2026/07/07/opinion/scott-bessent-trade-economy.html
 
 **Live Updates: Gunman Interacted With Members of Kirk’s Group, Agent Says**\
 `A Utah judge is trying to determine whether there is enough evidence to try a 23-year-old man accused in the killing of Charlie Kirk, the founder of the right-wing conservative group Turning Point USA.`\
