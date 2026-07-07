@@ -1,3 +1,7 @@
+**Democrats Clash Over a Replacement for Platner**\
+`Also, U.S. forces carry out strikes in Iran. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/07/07/briefing/democrats-platner-maine-us-iran-strikes.html
+
 **Zimbabwe’s President Signs Law Extending His Term**\
 `The measure will allow the president, Emmerson Mnangagwa, to stay in office until 2030. Critics say the move tightens his autocratic grip on power and erodes the nation’s democracy.`\
 https://www.nytimes.com/2026/07/07/world/africa/zimbabwe-president-mnangagwa-extension.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/politics/trump-world-cup-fifa.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011016827/07-vid-mamdani-conference-building.html
-
-**Mariska Hargitay to Host the Emmys**\
-`The “Law & Order: SVU” star is a departure from the comedians and sitcom actors who have typically hosted the annual awards show.`\
-https://www.nytimes.com/2026/07/07/business/media/mariska-hargitay-emmys-host.html
 
