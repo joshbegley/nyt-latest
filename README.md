@@ -1,3 +1,7 @@
+**Caribbean Disparity**\
+`We look at U.S. relief efforts in Haiti in 2010 and in Venezuela now.`\
+https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.html
+
 **La OTAN necesita a Turquía**\
 `La guerra en Ucrania y el desdén de Trump hacia la alianza han cambiado la percepción sobre lo que Turquía aporta.`\
 https://www.nytimes.com/es/2026/07/07/espanol/mundo/otan-turquia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/world/europe/estonia-won-the-war-on-fentanyl-
 **Inside the United States’ Billion-Dollar Blind Spot: Hail**\
 `Scientists have never quite understood how hail works. Meet the storm chasers trying to change that.`\
 https://www.nytimes.com/2026/07/07/weather/hail-damage-cost.html
-
-**As Messi Dominates the World Cup, a War Is Waged Over Maradona’s Image**\
-`A multimillion-dollar battle for a soccer god’s brand is being waged across continents, burning investors and tearing his family apart.`\
-https://www.nytimes.com/2026/07/07/world/americas/world-cup-argentina-maradona-trademark.html
 
