@@ -1,3 +1,7 @@
+**Lawsuit Alleges Trump Administration Gave Iran Details on Asylum Seekers**\
+`A new lawsuit filed in the District of Columbia states that the administration allowed Iranian officials to “select” which Iranians seeking refuge in the United States would be expelled.`\
+https://www.nytimes.com/2026/07/07/us/politics/trump-lawsuit-iran-asylum.html
+
 **What to Know About the Building at Risk of Collapse in Manhattan**\
 `The building on East 42nd Street, the former headquarters of Pfizer, was being converted to apartments. Several upper floors were sagging.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-pfizer-building-collapse.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/podcasts/usmnt-elimination-reaction-world-cup
 **The Onion’s Latest Joke: Taking Over Infowars**\
 `The satirical news outlet wants to convert the right-wing Infowars site into a parody of itself.`\
 https://www.nytimes.com/2026/07/07/podcasts/the-daily/the-onions-infowars.html
-
-**What to Watch at the NATO Summit, and Platner’s Allies Rescind Endorsements**\
-`Plus, the museum that wants you to touch the art.`\
-https://www.nytimes.com/2026/07/07/podcasts/the-headlines/what-to-watch-at-the-nato-summit-and-platners-allies-rescind-endorsements.html
 
