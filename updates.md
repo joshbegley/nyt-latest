@@ -1,3 +1,7 @@
+**Justice Department Threatens Top Election Officials Over Noncitizen Voting**\
+`The letters come amid President Trump’s effort to tighten election rules to prevent a problem that doesn’t exist: widespread noncitizen voting.`\
+https://www.nytimes.com/2026/07/07/us/politics/justice-department-elections-noncitizen-voting.html
+
 **Democratic Socialists Are on the Rise. We’ve Seen This Movie Before.**\
 `Mainstream party leaders can’t dodge a fight with their left.`\
 https://www.nytimes.com/2026/07/07/opinion/democratic-socialist-liberal-progressive.html
