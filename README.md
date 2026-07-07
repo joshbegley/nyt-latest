@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/07/07/weather/hail-damage-cost.html
 `A multimillion-dollar battle for a soccer god’s brand is being waged across continents, burning investors and tearing his family apart.`\
 https://www.nytimes.com/2026/07/07/world/americas/world-cup-argentina-maradona-trademark.html
 
-**Explosions Hit Damascus as Macron Visits**\
+**Explosions Hit Damascus During Macron Visit**\
 `Blasts occurred near the hotel where President Emmanuel Macron of France was staying. French officials said that he was not hurt and that his schedule in Syria would continue as planned.`\
 https://www.nytimes.com/2026/07/07/world/middleeast/syria-explosions-macron-damascus-visit.html
 
