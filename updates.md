@@ -1,3 +1,7 @@
+**Jake Roxander, a Ballet Theater Dancer Raised on Superheroes**\
+`Jake Roxander, a virtuosic wonder at American Ballet Theater, was promoted onstage after a recent performance. The news hasn’t quite sunk in.`\
+https://www.nytimes.com/2026/07/07/arts/dance/jake-roxander-american-ballet-theater.html
+
 **Farage Resigns and Says He Will Run Again in Special Election**\
 `Nigel Farage, leader of the populist right-wing party Reform U.K., has come under increasing pressure after a series of revelations about undisclosed gifts and donations.`\
 https://www.nytimes.com/live/2026/07/07/world/nigel-farage-reform-uk
