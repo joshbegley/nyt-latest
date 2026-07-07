@@ -1,8 +1,12 @@
+**Trump Administration Guts Efforts to Prevent Gun Violence, Suppressing Reports**\
+`As the administration works to expand gun rights, hospitals and community groups have lost funding, and reports on preventing firearm injuries have vanished from government websites.`\
+https://www.nytimes.com/2026/07/07/us/politics/trump-gun-violence-cdc-dhs-justice.html
+
 **Scott Bessent’s New Rules of Trade**\
 `The U.S. is changing the rules of trade in its favor.`\
 https://www.nytimes.com/2026/07/07/opinion/the-bessent-doctrine-the-days-of-america-being-played-are-over.html
 
-**Companies Brace for Fresh Political Uncertainty at U.S. Agencies**\
+**Businesses Fear Politicization as Trump Gains More Power Over U.S. Agencies**\
 `A Supreme Court ruling that presidents can fire independent regulators without cause has added volatility for industries that prefer stable enforcement.`\
 https://www.nytimes.com/2026/07/07/technology/scotus-agencies-companies-regulation.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/dining/driscolls-berries.html
 **Book Review: ‘You Won’t Get Free of It,’ by Rachel Aviv**\
 `Rachel Aviv’s essay collection, “You Won’t Get Free of It,” shows the breadth and complexity of matrilineal relationships.`\
 https://www.nytimes.com/2026/07/07/books/review/rachel-aviv-you-wont-get-free-of-it.html
-
-**I Wanted an Ecologically Responsible Garden. It Was Harder Than I Thought.**\
-`The native plant movement gets a lot right, but there’s so much more to consider.`\
-https://www.nytimes.com/2026/07/07/magazine/native-plants-garden.html
 
