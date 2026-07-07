@@ -1,3 +1,7 @@
+**Maryland Moves Toward Redistricting Ahead of 2028**\
+`Lawmakers at a special legislative session next month will try to pass an amendment to the state constitution that should ensure new congressional maps survive a legal challenge.`\
+https://www.nytimes.com/2026/07/07/us/politics/maryland-redistricting.html
+
 **Officials Warn of Partial Collapse in ‘Unstable’ Manhattan Building**\
 `City officials evacuated a construction site near Grand Central Terminal on Tuesday after structural issues were discovered.`\
 https://www.nytimes.com/video/nyregion/100000011017065/midtown-manhattan-building-collapse-risk.html
