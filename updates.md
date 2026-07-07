@@ -1,3 +1,7 @@
+**Belgium’s World Cup Win Over U.S. Fuels Triumph and Snark in Europe**\
+`President Trump had pushed to allow an American player to take the field despite a red card suspension, and the trouncing of the U.S. team was painted as a sign of justice.`\
+https://www.nytimes.com/2026/07/07/world/europe/belgium-us-world-cup-balogun-trump.html
+
 **Caribbean Disparity**\
 `We look at U.S. relief efforts in Haiti in 2010 and in Venezuela now.`\
 https://www.nytimes.com/2026/07/07/briefing/earthquake-response-venezuela-haiti.html
