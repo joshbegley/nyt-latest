@@ -1,3 +1,7 @@
+**Estonia Won the War on Fentanyl. What Came Next Was Even Worse.**\
+`By 2018, fentanyl overdoses in Estonia had plummeted. But powerful new drugs are appearing fast, with the authorities racing to respond.`\
+https://www.nytimes.com/2026/07/07/world/europe/estonia-fentanyl-new-drugs.html
+
 **Belgium’s World Cup Win Over U.S. Fuels Triumph and Snark in Europe**\
 `President Trump had pushed to allow an American player to take the field despite a red card suspension, and the trouncing of the U.S. team was painted as a sign of justice.`\
 https://www.nytimes.com/2026/07/07/world/europe/belgium-us-world-cup-balogun-trump.html
