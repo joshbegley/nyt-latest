@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: de la represión a la indignación**\
+`Los venezolanos critican abiertamente al partido gobernante y a su líder, Delcy Rodríguez, algo que habría sido impensable hace tan solo un año. También dirigen su enojo hacia Trump.`\
+https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuela-represion-indignacion.html
+
 **Republican Leaders Say They’ve Spoken With Mitch McConnell Since Hospitalization**\
 `The top two G.O.P. senators each said they had lengthy phone conversations with Senator Mitch McConnell, who has been hospitalized for three weeks, as questions mount about his condition.`\
 https://www.nytimes.com/2026/07/07/us/politics/mitch-mcconnell-hospital-thune-barrasso.html

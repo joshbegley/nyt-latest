@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: de la represión a la indignación**\
+`Los venezolanos critican abiertamente al partido gobernante y a su líder, Delcy Rodríguez, algo que habría sido impensable hace tan solo un año. También dirigen su enojo hacia Trump.`\
+https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuela-represion-indignacion.html
+
 **The Symbols We Saw at Khamenei’s Funeral**\
 `Abdi Latif Dahir, a Middle East correspondent for The Times, explains the messages behind recurring symbols at the dayslong funeral for Ayatollah Ali Khamenei.`\
 https://www.nytimes.com/video/world/middleeast/100000011012446/the-symbols-we-saw-at-khameneis-funeral.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/science/torifune-asteroid-contact-binary.html
 **As Ice Melts in the Arctic, Some Deep-Sea Creatures Are Thriving**\
 `A new study suggests that deep-sea life reaps the benefits of icebergs’ castoffs — a rare silver lining as a warming planet destabilizes glacial ice.`\
 https://www.nytimes.com/2026/07/07/science/arctic-icebergs-deepsea-life.html
-
-**Explosions Rock Damascus During Macron Visit**\
-`President Emmanuel Macron of France was uninjured after two blasts occurred near the hotel where he was staying during his official visit to Syria.`\
-https://www.nytimes.com/video/world/middleeast/100000011015998/syria-macron-explosions-damascus-al-sharaa.html
 
