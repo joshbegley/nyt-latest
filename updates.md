@@ -1,3 +1,11 @@
+**Iran Truce “Over,” Trump Says, Threatens More Strikes**\
+`A wave of U.S. attacks were followed by Iranian strikes, halting ship traffic in the Strait of Hormuz again. Oil prices rose sharply.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Stressed desserts, L.A. Metro music and pinball everywhere.`\
+https://www.nytimes.com/2026/07/08/briefing/08-the-good-list-web-pinball-jogging.html
+
 **As Progressives Rack Up Wins, Hakeem Jeffries Shrugs Off Possible Challenges**\
 `In a wide-ranging interview with The New York Times, Hakeem Jeffries, the House Democratic leader, said he didn’t consider the recent wave of anti-establishment victories “an overall critique of the party.”`\
 https://www.nytimes.com/2026/07/08/us/politics/hakeem-jeffries-house-democrats-midterms.html
