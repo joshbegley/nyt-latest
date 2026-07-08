@@ -1,3 +1,11 @@
+**As U.S.-Iran Cease-Fire Frays, Trump Faces a Muddled War and Unpalatable Options**\
+`The president appears to be confronting the consequences of a cease-fire deal cobbled together in haste, with little movement toward resolving the key issues driving the conflict.`\
+https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
+
+**At Warsh’s First Fed Meeting, Some Officials Signaled Support for Raising Interest Rates**\
+`Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
+https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html
+
 **As Cease-Fire Frays, Trump Faces a Muddled War and Unpalatable Options**\
 `The president appears to be confronting the consequences of a cease-fire deal cobbled together in haste, with little movement toward resolving the key issues driving the conflict.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
