@@ -1,3 +1,7 @@
+**Did We Make the Wrong Bet on Big A.I.?**\
+`Maybe Anthropic and OpenAI are not the future of artificial intelligence.`\
+https://www.nytimes.com/2026/07/08/opinion/openai-anthropic-palantir-alex-karp.html
+
 **Iran Truce ‘Over,’ Trump Says, as He Threatens More Strikes**\
 `A wave of U.S. attacks were followed by Iranian strikes, halting ship traffic in the Strait of Hormuz again. Oil prices rose sharply.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html

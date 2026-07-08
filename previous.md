@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys
 `The artists will perform with Madonna, Shakira and BTS in the first-ever halftime show for a World Cup final. The aim is to replicate the cultural sway of the Super Bowl.`\
 https://www.nytimes.com/2026/07/08/arts/music/justin-bieber-burna-boy-world-cup-halftime-show.html
 
-**Maybe Anthropic and OpenAI Are Not the Future of Artificial Intelligence**\
-`Did we make the wrong bet on ‘Big A.I.’?`\
+**Did We Make the Wrong Bet on Big A.I.?**\
+`Maybe Anthropic and OpenAI are not the future of artificial intelligence.`\
 https://www.nytimes.com/2026/07/08/opinion/openai-anthropic-palantir-alex-karp.html
 
 **What We Know About Immigration Officers Shooting at People in Vehicles**\
