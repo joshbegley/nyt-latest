@@ -1,3 +1,15 @@
+**Justin Bieber y Burna Boy se unen al primer espectáculo del medio tiempo de una final del Mundial**\
+`Los artistas actuarán junto a Madonna, Shakira y BTS en el primer espectáculo de la historia en una final del Mundial. El objetivo es igualar la influencia cultural del Super Bowl.`\
+https://www.nytimes.com/es/2026/07/08/espanol/cultura/mundial-medio-tiempo-justin-bieber-shakira-madonna-bts.html
+
+**U.S. Begins Second Day of Strikes Against Iran**\
+`President Trump said earlier that a cease-fire was over and warned that the United States would probably hit Iran “hard.”`\
+https://www.nytimes.com/2026/07/08/us/politics/us-iran-strikes.html
+
+**Divisions Festered Within Iran Over Talks With the U.S.**\
+`Iran’s president and foreign minister were physically attacked this week by supporters of a hard-line faction that vehemently opposes any deal with the United States.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iran-divisions-us-leaders.html
+
 **As the World Cup Takes a Break, So Do N.Y.C. Bars: ‘It’s a Sigh of Relief’**\
 `Wednesday was the first day since June 11 with no World Cup matches. For run-down restaurant workers who also handled the Knicks’ run, it was a welcome reprieve.`\
 https://www.nytimes.com/2026/07/08/nyregion/bars-world-cup-soccer.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rat
 **Tiny Love Stories: ‘Why Aren’t You Having Sex Anymore?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/07/08/style/tiny-modern-love-stories-why-arent-you-having-sex-anymore.html
-
-**Lo que hay que saber del edificio en Manhattan que generó alarma**\
-`El rascacielos de la calle 42 Este, la antigua sede de Pfizer, estaba en reformas para convertirlo en apartamentos.`\
-https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-colapso.html
-
-**Where to Stream 2026 Emmy-Nominated Series: ‘The Pitt,’ ‘Hacks’ and More**\
-`Nominees for the 78th Emmy Awards were announced on Wednesday. Here’s how to watch the shows.`\
-https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-watch-stream.html
-
-**Oil Market Calm Shattered by Fresh Hostilities Between US and Iran**\
-`Oil prices are likely to remain volatile as long as the United States and Iran are unable to resolve the status of the Strait of Hormuz.`\
-https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-prices.html
 

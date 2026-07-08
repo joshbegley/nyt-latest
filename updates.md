@@ -1,3 +1,15 @@
+**Justin Bieber y Burna Boy se unen al primer espectáculo del medio tiempo de una final del Mundial**\
+`Los artistas actuarán junto a Madonna, Shakira y BTS en el primer espectáculo de la historia en una final del Mundial. El objetivo es igualar la influencia cultural del Super Bowl.`\
+https://www.nytimes.com/es/2026/07/08/espanol/cultura/mundial-medio-tiempo-justin-bieber-shakira-madonna-bts.html
+
+**U.S. Begins Second Day of Strikes Against Iran**\
+`President Trump said earlier that a cease-fire was over and warned that the United States would probably hit Iran “hard.”`\
+https://www.nytimes.com/2026/07/08/us/politics/us-iran-strikes.html
+
+**Divisions Festered Within Iran Over Talks With the U.S.**\
+`Iran’s president and foreign minister were physically attacked this week by supporters of a hard-line faction that vehemently opposes any deal with the United States.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iran-divisions-us-leaders.html
+
 **Iran Truce ‘Over,’ Trump Says, as He Threatens More Strikes**\
 `As both sides accused each other of violating a cease-fire signed three weeks ago, the temporary agreement appeared on the verge of collapse.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html
