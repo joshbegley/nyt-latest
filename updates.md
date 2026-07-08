@@ -1,3 +1,11 @@
+**Late Night Calls a Foul on Trump After His World Cup Intervention**\
+`President Trump may not have known what a red card in soccer is, Ronny Chieng said: “But you know what he did know? How to get a guy a pardon.”`\
+https://www.nytimes.com/2026/07/08/arts/television/late-night-trump-world-cup.html
+
+**Frutos rojos todo el año: lo que hace Driscoll’s**\
+`Este gigante californiano ha contribuido a convertir una delicia local y de temporada en un producto imprescindible en las neveras de todo el mundo y en un fenómeno de mercadotecnia.`\
+https://www.nytimes.com/es/2026/07/08/espanol/negocios/fresas-frambuesas-driscolls.html
+
 **Rush to Evacuate as ‘Beams Started Bending’ and Floors Sagged at Midtown Tower**\
 `Offices and hotels around East 42nd Street were evacuated after structural damage affected an office conversion project, disrupting businesses, stranding tourists and snarling traffic.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-housing-project.html

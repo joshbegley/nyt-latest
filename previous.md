@@ -1,3 +1,11 @@
+**Late Night Calls a Foul on Trump After His World Cup Intervention**\
+`President Trump may not have known what a red card in soccer is, Ronny Chieng said: “But you know what he did know? How to get a guy a pardon.”`\
+https://www.nytimes.com/2026/07/08/arts/television/late-night-trump-world-cup.html
+
+**Frutos rojos todo el año: lo que hace Driscoll’s**\
+`Este gigante californiano ha contribuido a convertir una delicia local y de temporada en un producto imprescindible en las neveras de todo el mundo y en un fenómeno de mercadotecnia.`\
+https://www.nytimes.com/es/2026/07/08/espanol/negocios/fresas-frambuesas-driscolls.html
+
 **A.I. Is Giving Us Answers Right Away. That’s Making Us Dumber.**\
 `What used to be a meandering journey is now an immediate arrival at your destination.`\
 https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
 **Anthropic Expands in Manhattan, Part of an A.I. Boom in New York**\
 `Anthropic, the artificial intelligence company, plans to lease a 16-story building in Hudson Square and to double its work force in New York City to 1,000 people this year.`\
 https://www.nytimes.com/2026/07/07/nyregion/anthropic-ai-boom-nyc.html
-
-**New Rules Require Election Changes for States to Get Terrorism Grants**\
-`Federal officials said they would withhold some money unless states pursue paper ballot systems, verify citizenship and conduct costly audits.`\
-https://www.nytimes.com/2026/07/07/climate/fema-grants-states-election-changes.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/nyregion/100000011017523/07vid-Bethlehem-Feleke-standup-11983.html
 
