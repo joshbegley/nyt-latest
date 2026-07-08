@@ -1,3 +1,7 @@
+**Judge Orders D.H.S. to Restore 4 States’ Access to Citizenship Data**\
+`The ruling, based on an agreement the Trump administration signed with Florida last year, contradicted an earlier order by a judge in Washington that required the access be suspended.`\
+https://www.nytimes.com/2026/07/07/us/politics/florida-judge-dhs-citizenship-data.html
+
 **Part of Florida’s ‘Stop WOKE’ Law Ruled Illegal by Appeals Court**\
 `The law limits teaching on race, gender and other topics. Part of the law related to colleges was struck down. It remains in effect in K-12 schools.`\
 https://www.nytimes.com/2026/07/07/us/florida-stop-woke-law-appeals-court.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/100000011017183/07-vid-emergency-respo
 **Doctors Warn of a Dangerous Trend: Microwaving a Popular Squishy Toy**\
 `Hospitals are seeing cases of children suffering serious burns amid a social media trend involving popping NeeDoh cubes into microwaves.`\
 https://www.nytimes.com/2026/07/07/well/squishy-needoh-toys-burns.html
-
-**Is ‘The View’ a News Show? ABC Says That’s Already Settled.**\
-`In a new filing, ABC said that the F.C.C. had ruled in 2002 that “The View” was a “bona fide news program.”`\
-https://www.nytimes.com/2026/07/07/business/media/the-view-abc-fcc-investigation.html
 
