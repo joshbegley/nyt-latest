@@ -1,3 +1,7 @@
+**At Chanel, Matthieu Blazy’s Alternative to Ozempic Dressing**\
+`Matthieu Blazy goes beyond the super sucked-in, laced-up styles of the moment. It’s actually not a fairy tale.`\
+https://www.nytimes.com/2026/07/08/style/chanel-couture.html
+
 **EU Rejects Plea to Pause Troubled EES Biometrics System at Airports Ahead of Summer Rush**\
 `E.U. leaders rebuffed a plea from the aviation industry to pause the biometric checkpoints, which have caused long lines and missed flights. Summer travelers beware.`\
 https://www.nytimes.com/2026/07/08/travel/ees-europe-airports-security.html

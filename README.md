@@ -38,7 +38,7 @@ https://www.nytimes.com/es/2026/07/08/espanol/negocios/fresas-frambuesas-driscol
 `What used to be a meandering journey is now an immediate arrival at your destination.`\
 https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
 
-**Oil Prices Jump After Renewed Strikes in Gulf Put Shipping Recovery at Risk**\
+**Oil Prices Jump After U.S. and Iran Trade Strikes in Persian Gulf**\
 `Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
 
