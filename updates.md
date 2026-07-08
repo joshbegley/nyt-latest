@@ -1,3 +1,31 @@
+**Lo que hay que saber del edificio en Manhattan que generó alarma**\
+`El rascacielos de la calle 42 Este, la antigua sede de Pfizer, estaba en reformas para convertirlo en apartamentos.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-colapso.html
+
+**Where to Stream 2026 Emmy-Nominated Series: ‘The Pitt,’ ‘Hacks’ and More**\
+`Nominees for the 78th Emmy Awards were announced on Wednesday. Here’s how to watch the shows.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-watch-stream.html
+
+**Oil Market Calm Shattered by Fresh Hostilities Between US and Iran**\
+`Oil prices are likely to remain volatile as long as the United States and Iran are unable to resolve the status of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-prices.html
+
+**‘Widow’s Bay,’ an Apple TV Breakout Hit, Scores 19 Emmy Nominations**\
+`The Apple TV horror comedy, one of the buzziest shows of the spring, has parlayed that enthusiasm into an Emmys haul, with 19 nominations.`\
+https://www.nytimes.com/2026/07/08/arts/television/widows-bay-apple-emmy-nominations.html
+
+**2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\
+`The HBO Max medical series earned 25 nominations in the drama category. And in comedy, the final season of “Hacks” set a record with 24 nominations.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
+
+**Lawmakers Target the Power of Health Insurance Giants**\
+`UnitedHealth Group, CVS Health and Cigna are battling efforts to break up their control over prescription drugs.`\
+https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
+
+**Emmy Nominees 2026: See the Full List**\
+`The 78th Emmy Awards ceremony is planned for Sept. 14. See all the nominees below.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
+
 **Why ‘Heated Rivalry’ Received No Emmy Nominations While Connor Storrie Did**\
 `Even if voters had wanted to honor the gay hockey drama, which became a hit on HBO Max, they couldn’t have. But the Emmys did recognize one of the stars.`\
 https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominations.html

@@ -1,3 +1,15 @@
+**Lo que hay que saber del edificio en Manhattan que generó alarma**\
+`El rascacielos de la calle 42 Este, la antigua sede de Pfizer, estaba en reformas para convertirlo en apartamentos.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-colapso.html
+
+**Where to Stream 2026 Emmy-Nominated Series: ‘The Pitt,’ ‘Hacks’ and More**\
+`Nominees for the 78th Emmy Awards were announced on Wednesday. Here’s how to watch the shows.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-watch-stream.html
+
+**Oil Market Calm Shattered by Fresh Hostilities Between US and Iran**\
+`Oil prices are likely to remain volatile as long as the United States and Iran are unable to resolve the status of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-prices.html
+
 **Navy Identifies Sailor Lost in Arabian Sea Helicopter Crash**\
 `Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
 https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.ht
 `President Trump said he would allow Ukraine to make the defensive weapons but it could take several years to set up a manufacturing operation.`\
 https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
 
-**‘Widow’s Bay,’ an Apple TV Breakout Hit, Scores TK Emmy Nominations**\
+**‘Widow’s Bay,’ an Apple TV Breakout Hit, Scores 19 Emmy Nominations**\
 `The Apple TV horror comedy, one of the buzziest shows of the spring, has parlayed that enthusiasm into an Emmys haul, with 19 nominations.`\
 https://www.nytimes.com/2026/07/08/arts/television/widows-bay-apple-emmy-nominations.html
 
@@ -27,7 +39,7 @@ https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
 https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
 
 **2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\
-`The nominations were announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
+`The HBO Max medical series earned 25 nominations in the drama category. And in comedy, the final season of “Hacks” set a record with 24 nominations.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
 
 **Air Canada Chooses Anko van der Werff, Who Speaks French, as CEO After Language Backlash**\
@@ -78,8 +90,8 @@ https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-t
 `Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
 https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
 
-**Health Insurance Giants Are Fighting Efforts to Break Them Up**\
-`UnitedHealth Group, CVS Health and Cigna are suing states over new laws targeting their pharmacy businesses.`\
+**Lawmakers Target the Power of Health Insurance Giants**\
+`UnitedHealth Group, CVS Health and Cigna are battling efforts to break up their control over prescription drugs.`\
 https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
 
 **Corrections: July 8, 2026**\
@@ -103,7 +115,7 @@ https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
 https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
 
 **Emmy Nominees 2026: See the Full List**\
-`The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
+`The 78th Emmy Awards ceremony is planned for Sept. 14. See all the nominees below.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
 
 **My Sister Asked to Crash My Dinner Date With Her Daughter. Help!**\
@@ -169,18 +181,6 @@ https://www.nytimes.com/live/2026/07/08/nyregion/nyc-midtown-building-collapse
 **Marine Le Pen’s Return Has Sidelined Her Protégé. Can They Join Forces?**\
 `For months, Jordan Bardella was set to be the French far-right’s candidate for the presidency — until his mentor, Marine Le Pen, nudged him aside this week. Their relationship could define the campaign.`\
 https://www.nytimes.com/2026/07/08/world/france-marine-le-pen-jordan-bardella-national-rally.html
-
-**Denmark Says It Will Defend ‘Every Inch’ of NATO as Trump Eyes Greenland Again**\
-`After President Trump once more said that the island should be under U.S. control, the Danish prime minister, Mette Frederiksen, told reporters, “We will defend the kingdom of Denmark.”`\
-https://www.nytimes.com/2026/07/08/world/europe/us-denmark-greenland-nato-frederiksen.html
-
-**The Alluring Albanian Island Inspiring Ivanka’s Fantasy**\
-`A former military base in the Adriatic Sea, the island is in a beautiful setting but it is strewed with snakes, crumbling buildings and land mines.`\
-https://www.nytimes.com/2026/07/08/world/europe/albania-sazan-island-kushner-ivanka.html
-
-**Pakistan Finds Wreckage of Cargo Plane That Vanished at Sea Overnight**\
-`Pakistan’s Navy is still searching for missing crew members after the aircraft plunged vertically and went missing over the Arabian Sea, aviation authorities said.`\
-https://www.nytimes.com/2026/07/08/world/asia/pakistan-cargo-plane-missing-arabian-sea.html
 
 **Live Updates: Trump Speaks After Lashing Out at NATO Summit**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
