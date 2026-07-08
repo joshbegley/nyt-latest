@@ -1,3 +1,7 @@
+**Así fue la llegada y participación de Trump a la cumbre de la OTAN**\
+`En cuanto el presidente Trump aterrizó en Turquía, el centro de atención se desplazó justo hacia donde más le gusta: él mismo.`\
+https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-otan-turquia.html
+
 **Internal File Finds I.C.C. Prosecutor Engaged in Sexual Harassment**\
 `The confidential report will be considered by International Criminal Court members as they vote on whether to remove the top official.`\
 https://www.nytimes.com/2026/07/08/world/europe/internal-file-finds-icc-prosecutor-engaged-in-sexual-harassment.html
@@ -182,15 +186,11 @@ https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-
 `We have the latest on renewed strikes in the Middle East.`\
 https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html
 
-**Iraqis Turn Out in Droves to Mourn Khamenei and Show Solidarity**\
-`In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
-https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
-
 **Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
-**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
-`“I think it’s over,” President Trump said, referring to the preliminary truce, and threatened to strike Iran again. The two sides traded attacks as their truce appeared to edge closer to collapse.`\
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Exchange of Strikes**\
+`“I think it’s over,” President Trump said of the preliminary truce, threatening to strike Iran again. Iran accused the U.S. of violating provisions of the cease-fire as hard-line voices there called for it to be torn up.`\
 https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
 

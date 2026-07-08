@@ -1,3 +1,11 @@
+**Así fue la llegada y participación de Trump a la cumbre de la OTAN**\
+`En cuanto el presidente Trump aterrizó en Turquía, el centro de atención se desplazó justo hacia donde más le gusta: él mismo.`\
+https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-otan-turquia.html
+
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Exchange of Strikes**\
+`“I think it’s over,” President Trump said of the preliminary truce, threatening to strike Iran again. Iran accused the U.S. of violating provisions of the cease-fire as hard-line voices there called for it to be torn up.`\
+https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
+
 **Internal File Finds I.C.C. Prosecutor Engaged in Sexual Harassment**\
 `The confidential report will be considered by International Criminal Court members as they vote on whether to remove the top official.`\
 https://www.nytimes.com/2026/07/08/world/europe/internal-file-finds-icc-prosecutor-engaged-in-sexual-harassment.html
