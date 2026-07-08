@@ -1,3 +1,11 @@
+**On Gen Z Movies and Walking to the World Cup: The Winners of Week 3 of Our Summer Reading Contest**\
+`Ella Cheng talks about how Hollywood can engage her generation, while Camilla Guerrieri takes a walk in her neighborhood and shares her thoughts along the way.`\
+https://www.nytimes.com/2026/07/08/learning/on-gen-z-movies-and-walking-to-the-world-cup-the-winners-of-week-3-of-our-summer-reading-contest.html
+
+**Live Updates: Trump Lashes Out at Europe at NATO Summit**\
+`President Trump assailed partners for not joining the war in Iran and repeated his desire to control Greenland. Still, the summit ended with NATO members reaffirming support for the alliance and Ukraine.`\
+https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
+
 **Un agente del ICE mata a un hombre mexicano en Houston**\
 `La agencia dijo que el hombre era un “extranjero ilegal” que había intentado atropellar al agente, aunque no aportó pruebas de inmediato.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/agente-ice-mata-mexicano-houston.html

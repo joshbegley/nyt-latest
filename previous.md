@@ -1,3 +1,7 @@
+**On Gen Z Movies and Walking to the World Cup: The Winners of Week 3 of Our Summer Reading Contest**\
+`Ella Cheng talks about how Hollywood can engage her generation, while Camilla Guerrieri takes a walk in her neighborhood and shares her thoughts along the way.`\
+https://www.nytimes.com/2026/07/08/learning/on-gen-z-movies-and-walking-to-the-world-cup-the-winners-of-week-3-of-our-summer-reading-contest.html
+
 **Un agente del ICE mata a un hombre mexicano en Houston**\
 `La agencia dijo que el hombre era un “extranjero ilegal” que había intentado atropellar al agente, aunque no aportó pruebas de inmediato.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/agente-ice-mata-mexicano-houston.html
@@ -178,16 +182,8 @@ https://www.nytimes.com/2026/07/08/opinion/world-cup-trump-us.html
 `President Volodymyr Zelensky of Ukraine is urging European states to sell him Patriot missiles to defend against Russian attacks and has asked President Trump to let Ukraine make the Patriot systems.`\
 https://www.nytimes.com/2026/07/08/world/europe/ukraine-nato-zelensky-trump.html
 
-**This Is One of the Hardest Jobs in America. Millions Are Doing It Alone.**\
-`Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
-https://www.nytimes.com/2026/07/08/opinion/family-caregiver-aging-parents.html
-
-**Inside a Private Dinner Party by Scottish-Sikh Chef Tony Singh**\
-`A writer engaged the Scottish-Sikh chef Tony Singh to prepare a luxurious dinner at a Highlands lodge she’d rented. Would the haggis pakora live up to her dreams?`\
-https://www.nytimes.com/2026/07/08/travel/-scotland-tony-singh-food.html
-
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
-`President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
+`President Trump assailed partners for not joining the war in Iran and repeated his desire to control Greenland. Still, the summit ended with NATO members reaffirming support for the alliance and Ukraine.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
