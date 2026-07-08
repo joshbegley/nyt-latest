@@ -1,3 +1,19 @@
+**EU Rejects Plea to Pause Troubled EES Biometrics System at Airports Ahead of Summer Rush**\
+`E.U. leaders rebuffed a plea from the aviation industry to pause the biometric checkpoints, which have caused long lines and missed flights. Summer travelers beware.`\
+https://www.nytimes.com/2026/07/08/travel/ees-europe-airports-security.html
+
+**Fax and Telegram? New York’s Archaic Requirements Get an A.I. Overhaul.**\
+`Gov. Kathy Hochul will direct state agencies to eliminate or modernize antiquated requirements, and examine if task forces or councils have outlived their purpose.`\
+https://www.nytimes.com/2026/07/08/nyregion/hochul-ai-redtape-rules.html
+
+**Can America’s Best Engine of Social Mobility Weather a Bad Job Market?**\
+`New York City’s public universities propel young graduates into the middle class. But some worry that a bleaker early career job market has added hurdles.`\
+https://www.nytimes.com/2026/07/08/nyregion/college-graduates-job-market.html
+
+**NYT Spelling Bee Answers for July 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/08/crosswords/spelling-bee-forum.html
+
 **A Look Back at Trump’s Broadsides Against NATO Allies**\
 `President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/07/travel/midtown-hotels-building-collapse.html
 **Justice Department Threatens Top Election Officials Over Noncitizen Voting**\
 `The letters come amid President Trump’s effort to tighten election rules to prevent a problem that doesn’t exist: widespread noncitizen voting.`\
 https://www.nytimes.com/2026/07/07/us/politics/justice-department-elections-noncitizen-voting.html
-
-**Democratic Socialists Are on the Rise. We’ve Seen This Movie Before.**\
-`Mainstream party leaders can’t dodge a fight with their left.`\
-https://www.nytimes.com/2026/07/07/opinion/democratic-socialist-liberal-progressive.html
-
-**Is Haiti Safe for Haitian Deportees?**\
-`Stephen Miller said that Haiti is safe for Haitian deportees. Our White House correspondent Zolan Kanno-Youngs analyzed federal reports that say otherwise.`\
-https://www.nytimes.com/video/us/100000011005438/is-haiti-safe-for-haitian-deportees.html
-
-**A Plan to Stop the Far Right**\
-`The German chancellor and his center-left coalition partners are trying to hold off populist challengers. And they have a road map.`\
-https://www.nytimes.com/2026/07/07/world/germany-afd-centrist-far-right-le-pen-farage.html
-
-**Marine Le Pen Announces 2027 French Presidential Bid**\
-`The far-right French leader said on Tuesday that she will seek the presidency for the fourth time, despite an embezzlement conviction and a previous ban on her eligibility for office.`\
-https://www.nytimes.com/video/world/europe/100000011016495/marine-le-pen-2027-presidential-bid.html
 
