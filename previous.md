@@ -190,7 +190,7 @@ https://www.nytimes.com/video/opinion/100000010551165/family-caregiver-aging-par
 `Escandinavia ofrece cinco semanas de vacaciones, universidad prácticamente gratuita, un año de licencia parental, cuidado infantil accesible y algunos de los ciudadanos más felices del mundo.`\
 https://www.nytimes.com/es/2026/07/08/espanol/opinion/felicidad-paises-nordicos.html
 
-**U.S. Strikes Iran and Iran Hits Back**\
-`Videos verified by The New York Times showed explosions in Iran after the U.S. military announced it had renewed airstrikes. The Pentagon called it retaliation for an attack on ships in the Strait of Hormuz.`\
-https://www.nytimes.com/video/world/middleeast/100000011018301/iran-war-us-trump.html
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
+`“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
+https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
 

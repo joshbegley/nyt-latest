@@ -1,3 +1,7 @@
+**Tensions Escalate Between Russia and NATO’s European Members**\
+`Moscow has directed extra hostility toward countries that have strongly supported Ukraine and praise at President Trump.`\
+https://www.nytimes.com/2026/07/08/world/europe/russia-nato-europe-ukraine.html
+
 **Assessing the USMNT’s World Cup Campaign**\
 `What’s next for Pochettino and his players?`\
 https://www.nytimes.com/2026/07/08/podcasts/usmnts-world-cup-campaign-folarin-balogun-football-chants.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/opinion/100000011007048/the-american-economy-isnt-
 **‘You Do It Because They’re Your Parents’**\
 `Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
 https://www.nytimes.com/video/opinion/100000010551165/family-caregiver-aging-parents.html
-
-**¿Cuál es el secreto de la felicidad en los países nórdicos?**\
-`Escandinavia ofrece cinco semanas de vacaciones, universidad prácticamente gratuita, un año de licencia parental, cuidado infantil accesible y algunos de los ciudadanos más felices del mundo.`\
-https://www.nytimes.com/es/2026/07/08/espanol/opinion/felicidad-paises-nordicos.html
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
 `“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\

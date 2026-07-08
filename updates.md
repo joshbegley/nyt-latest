@@ -1,3 +1,7 @@
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
+`“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
+https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
+
 **Assessing the USMNT’s World Cup Campaign**\
 `What’s next for Pochettino and his players?`\
 https://www.nytimes.com/2026/07/08/podcasts/usmnts-world-cup-campaign-folarin-balogun-football-chants.html
