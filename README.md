@@ -1,3 +1,7 @@
+**The First 2026 Emmy Nominations Are Announced**\
+`The nominations are being announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
+
 **Air Canada Chooses a C.E.O. Who Speaks French After Language Backlash**\
 `Michael Rousseau, who prompted widespread criticism with a largely English condolence video following a crash in March, will retire.`\
 https://www.nytimes.com/2026/07/08/world/canada/air-canada-ceo-french-backlash-crash.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/movies/the-hole-lincoln-center.html
 **Money Makes the City Go Round**\
 `In a time of economic stress, some young people are rethinking their political outlook. Others are still doing well.`\
 https://www.nytimes.com/2026/07/08/nyregion/plumber-overtime-money-nyc.html
-
-**In Some U.K. Hospitals, the T.L.C. Includes a Movie Theater**\
-`A British nonprofit helps patients escape the stress and boredom of ward life by watching the latest blockbusters.`\
-https://www.nytimes.com/2026/07/08/movies/uk-hospitals-medicinema-movies.html
 
 **Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
