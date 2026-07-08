@@ -1,3 +1,7 @@
+**Global Warming Could Ravage the Amazon’s Useful Plant Species, Study Finds**\
+`Hotter temperatures and harsher droughts could cause Indigenous societies to lose many of the species they have used for medicine, rituals and more, scientists found.`\
+https://www.nytimes.com/2026/07/08/climate/amazon-indigenous-plants-climate-change.html
+
 **You Oughta Piccata**\
 `More specifically, you ought to make Ali Slagle’s chicken piccata, a fast, five-star recipe with over 14,000 reviews.`\
 https://www.nytimes.com/2026/07/08/dining/you-oughta-piccata.html
@@ -6,9 +10,9 @@ https://www.nytimes.com/2026/07/08/dining/you-oughta-piccata.html
 `The day after a court decided the far-right leader Marine Le Pen could run for office again, cheers and boos met her campaign kickoff in a rural stronghold.`\
 https://www.nytimes.com/2026/07/08/world/europe/marine-le-pen-presidential-campaign.html
 
-**NATO leaders find much to agree on despite Trump’s insults.**\
-`(No description)`\
-https://www.nytimes.com/2026/07/08/world/europe/nato-leaders-find-much-to-agree-on-despite-trumps-insults.html
+**At End of NATO Summit,  Leaders Find Much to Agree on Despite Trump’s Insults**\
+`The alliance restated its commitment to collective defense and reiterated its support for Ukraine.`\
+https://www.nytimes.com/2026/07/08/world/europe/nato-summit-trump-declaration.html
 
 **In San Francisco, Some Home Sellers Now Ask for OpenAI or Anthropic Stock**\
 `Even before OpenAI and Anthropic go public, they are distorting home sales in the San Francisco Bay Area, as people race to buy and sellers ask for stock instead of cash.`\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/arts/television/how-little-house-welcomes-nat
 **How Therapist Esther Perel Helped Olivia Wilde Perfect the Sexual Dynamics in ‘The Invite’**\
 `The psychotherapist helped Olivia Wilde and her cast ground the antics of their relationship comedy in the reality of clinical practice.`\
 https://www.nytimes.com/2026/07/08/movies/the-invite-esther-perel-olivia-wilde.html
-
-**The American Economy Isn’t as Bad as You Might Think**\
-`Influencers may be “Chinamaxxing,” but the U.S. is still the world’s economic powerhouse.`\
-https://www.nytimes.com/2026/07/08/opinion/american-economy-decline-china-europe.html
 
 **Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
