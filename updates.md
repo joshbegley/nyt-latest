@@ -1,3 +1,7 @@
+**Farage’s Resignation Risks Becoming Farce as U.K. Parties Boycott Clacton By-Election**\
+`Under investigation over an undisclosed gift, the right-wing leader Nigel Farage may end up in a special election against a candidate dressed as a trash can.`\
+https://www.nytimes.com/2026/07/08/world/europe/uk-nigel-farage-resigns-clacton-election.html
+
 **‘It’s Time for Celebrities to Step Up’**\
 `If activists are speaking up, why aren’t celebrities? According to Molly Jong-Fast, there’s value to performative politics. Especially when they dominate the algorithm.`\
 https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-to-step-up.html
