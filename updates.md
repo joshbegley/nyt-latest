@@ -1,3 +1,11 @@
+**Trump Assails NATO Allies Over Iran and Greenland**\
+`President Trump blasted the United States’ allies at the NATO summit in Turkey for not joining the war in Iran and for not supporting his desire to control Greenland.`\
+https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-iran.html
+
+**Live Updates: Trump Lashes Out at Europe at NATO Summit**\
+`President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
+https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
+
 **This Is One of the Hardest Jobs in America. Millions Are Doing It Alone.**\
 `Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
 https://www.nytimes.com/2026/07/08/opinion/family-caregiver-aging-parents.html
