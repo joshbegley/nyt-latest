@@ -1,3 +1,11 @@
+**Tomato Basil Chicken Breasts**\
+`This chicken recipe, linked below, takes a cue from piccata then heads in a decidedly summery direction: A quick pan sauce of butter, shallots, tomatoes, capers and a splash of red wine vinegar turns rich, juicy and bright — just the thing to spoon over the top.`\
+https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breasts.html
+
+**JD Vance está preocupado**\
+`La teología del vicepresidente de Estados Unidos toma forma en un libro y ofrece una ventana a su visión política.`\
+https://www.nytimes.com/es/2026/07/08/espanol/opinion/jd-vance-trump-libro-iglesia-catolica.html
+
 **Taylor Swift and Reality TV Shows Like ‘Summer House’ Earn Emmy Nods**\
 `Nominations for unscripted programs recognized a certain newlywed and the scandalous reality hit of the spring.`\
 https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys.html
