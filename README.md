@@ -1,3 +1,15 @@
+**U.S. Strikes Iran and Iran Hits Back**\
+`Videos verified by The New York Times showed explosions in Iran after the U.S. military announced it had renewed airstrikes. The Pentagon called it retaliation for an attack on ships in the Strait of Hormuz.`\
+https://www.nytimes.com/video/world/middleeast/100000011018301/iran-war-us-trump.html
+
+**Mamdani Promised Faster Buses. Now He Has a Road Map.**\
+`A plan announced by Mayor Zohran Mamdani and Gov. Kathy Hochul lists ambitious steps to speed up New York City buses, which remain some of the slowest in the nation.`\
+https://www.nytimes.com/2026/07/08/nyregion/mamdani-hochul-bus-routes.html
+
+**Word of the Day: pundit**\
+`This word has appeared in 246 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/08/learning/word-of-the-day-pundit.html
+
 **At Chanel, Matthieu Blazy’s Alternative to Ozempic Dressing**\
 `Matthieu Blazy goes beyond the super sucked-in, laced-up styles of the moment. It’s actually not a fairy tale.`\
 https://www.nytimes.com/2026/07/08/style/chanel-couture.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/07/us/immigration-ice-shooting-houston.html
 **Penelope Keith, Effortlessly Posh Star of British Sitcoms, Dies at 86**\
 `A veteran stage actress, she starred in two of Britain’s most beloved TV comedies of the 1970s, “The Good Life” and “To the Manor Born.”`\
 https://www.nytimes.com/2026/07/07/arts/television/penelope-keith-dead.html
-
-**Las misteriosas esferas encontradas en Australia probablemente sean basura espacial**\
-`El hallazgo desconcertó —y después divirtió— a los vecinos de un pueblo del noreste de Australia. La agencia espacial del país dijo que los objetos parecen ser restos de un lanzamiento espacial.`\
-https://www.nytimes.com/es/2026/07/07/espanol/esferas-espacio-australia-basura-espacial.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011017727/07visualUploader-33442.html
-
-**Midtown Evacuations Scramble Plans for Hotel Guests**\
-`At least two hotels near the unstable building were evacuated, stranding travelers and forcing guests to clamber for alternative accommodation.`\
-https://www.nytimes.com/2026/07/07/travel/midtown-hotels-building-collapse.html
 
