@@ -1,3 +1,11 @@
+**Iran Truce “Over,” Trump Says, Threatens More Strikes**\
+`A wave of U.S. attacks were followed by Iranian strikes, halting ship traffic in the Strait of Hormuz again. Oil prices rose sharply.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Stressed desserts, L.A. Metro music and pinball everywhere.`\
+https://www.nytimes.com/2026/07/08/briefing/08-the-good-list-web-pinball-jogging.html
+
 **As Progressives Rack Up Wins, Hakeem Jeffries Shrugs Off Possible Challenges**\
 `In a wide-ranging interview with The New York Times, Hakeem Jeffries, the House Democratic leader, said he didn’t consider the recent wave of anti-establishment victories “an overall critique of the party.”`\
 https://www.nytimes.com/2026/07/08/us/politics/hakeem-jeffries-house-democrats-midterms.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/08/technology/san-francisco-home-sales-openai-an
 **On Gen Z Movies and Walking to the World Cup: The Winners of Week 3 of Our Summer Reading Contest**\
 `Ella Cheng talks about how Hollywood can engage her generation, while Camilla Guerrieri takes a walk in her neighborhood and shares her thoughts along the way.`\
 https://www.nytimes.com/2026/07/08/learning/on-gen-z-movies-and-walking-to-the-world-cup-the-winners-of-week-3-of-our-summer-reading-contest.html
-
-**Un agente del ICE mata a un hombre mexicano en Houston**\
-`La agencia dijo que el hombre era un “extranjero ilegal” que había intentado atropellar al agente, aunque no aportó pruebas de inmediato.`\
-https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/agente-ice-mata-mexicano-houston.html
-
-**Farage’s Resignation Risks Becoming Farce as U.K. Parties Boycott Clacton By-Election**\
-`Under investigation over an undisclosed gift, the right-wing leader Nigel Farage may end up in a special election against a candidate dressed as a trash can.`\
-https://www.nytimes.com/2026/07/08/world/europe/uk-nigel-farage-resigns-clacton-election.html
 
