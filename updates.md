@@ -1,3 +1,7 @@
+**Khamenei’s Funeral Reaches Holy Cities in Iraq**\
+`Mourners poured into Iraq’s holy cities of Najaf and Karbala for Ayatollah Ali Khamenei’s procession, in a funeral that carried religious and political symbolism for Shiite Muslim supporters in Iran.`\
+https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
+
 **Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
 `The rocket company founded by Jeff Bezos is set to take on external investors for the first time, at a $130 billion valuation.`\
 https://www.nytimes.com/2026/07/08/business/dealbook/bezos-funding-blue-origin.html
