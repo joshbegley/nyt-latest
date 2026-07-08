@@ -1,3 +1,7 @@
+**This Is One of the Hardest Jobs in America. Millions Are Doing It Alone.**\
+`Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
+https://www.nytimes.com/2026/07/08/opinion/family-caregiver-aging-parents.html
+
 **A Cease-Fire in Doubt**\
 `We have the latest on renewed strikes in the Middle East.`\
 https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html

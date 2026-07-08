@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/07/08/opinion/world-cup-trump-us.html
 `President Volodymyr Zelensky of Ukraine is urging European states to sell him Patriot missiles to defend against Russian attacks and has asked President Trump to let Ukraine make the Patriot systems.`\
 https://www.nytimes.com/2026/07/08/world/europe/ukraine-nato-zelensky-trump.html
 
-**‘You Do It Because They’re Your Parents’**\
+**This Is One of the Hardest Jobs in America. Millions Are Doing It Alone.**\
 `Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
 https://www.nytimes.com/2026/07/08/opinion/family-caregiver-aging-parents.html
 

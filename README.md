@@ -1,3 +1,7 @@
+**Trump Assails NATO Allies Over Iran and Greenland**\
+`President Trump blasted the United States’ allies at the NATO summit in Turkey for not joining the war in Iran and for not supporting his desire to control Greenland.`\
+https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-iran.html
+
 **A Cease-Fire in Doubt**\
 `We have the latest on renewed strikes in the Middle East.`\
 https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html
@@ -182,13 +186,9 @@ https://www.nytimes.com/2026/07/08/well/live/vitamin-k-shot-bleeding-newborn.htm
 `Emma Waters, pregnant with her third child, is crafting policy to encourage early parenthood. Some think she is pushing an ideology that does not meet reality.`\
 https://www.nytimes.com/2026/07/08/us/politics/emma-waters-restorative-reproduction.html
 
-**Book Review: ‘A Table for Fortune,’ by William T. Vollmann**\
-`William T. Vollmann’s fascinating, wildly ambitious text interweaves a family saga with a history of the American war machine since Vietnam.`\
-https://www.nytimes.com/2026/07/08/books/review/table-for-fortune-william-vollmann.html
-
-**Are Omega-3 Supplements Actually Good for Your Brain?**\
-`Researchers have been surprised by the study findings.`\
-https://www.nytimes.com/2026/07/08/well/mind/omega-3s-supplements-benefits-brain.html
+**Live Updates: Trump Lashes Out at Europe at NATO Summit**\
+`President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
+https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
 `“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
