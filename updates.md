@@ -1,3 +1,23 @@
+**U.F.C. Star Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
+`Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
+https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
+
+**¿Por qué China lanzó un misil de largo alcance al Pacífico?**\
+`Según algunos expertos, la prueba indica que China está ampliando sus ambiciones nucleares y dejando de lado sus reticencias a probar misiles en los cielos y océanos internacionales.`\
+https://www.nytimes.com/es/2026/07/08/espanol/mundo/china-misil-prueba-armas-nucleares.html
+
+**At the Ayatollah’s Funeral**\
+`A Times reporter in Iran said the events “surpassed anything I’ve ever witnessed.”`\
+https://www.nytimes.com/2026/07/08/world/ali-khamenei-funeral-iran-strikes.html
+
+**How to Stay Safe From the Severe Stomach Bug That’s Going Around**\
+`Cyclospora, a parasite that causes intestinal illness, is sickening many people across the United States. Health experts have tips for avoiding infection.`\
+https://www.nytimes.com/2026/07/08/well/eat/cyclopspora-prevention-methods.html
+
+**Democrats Grow Frustrated as Graham Platner Resists Dropping Out Quickly in Maine**\
+`Two days after a woman accused Graham Platner of rape, he had not given up his nomination for Senate in Maine, raising worries about whether and how his party might find a replacement.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-democrats-reaction-frustration.html
+
 **Trump Grants Zelensky License to Build Patriot Systems**\
 `President Volodymyr Zelensky of Ukraine has repeatedly asked Western allies for more of the Patriot interceptors and for the United States to let Ukraine manufacture them.`\
 https://www.nytimes.com/video/world/europe/100000011018901/ukraine-russia-us-trump-zelensky-putin-nato.html
