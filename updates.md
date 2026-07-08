@@ -1,3 +1,7 @@
+**Trump Grants Zelensky License to Build Patriot Systems**\
+`President Volodymyr Zelensky of Ukraine has repeatedly asked Western allies for more of the Patriot interceptors and for the United States to let Ukraine manufacture them.`\
+https://www.nytimes.com/video/world/europe/100000011018901/ukraine-russia-us-trump-zelensky-putin-nato.html
+
 **License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
 `With Patriot interceptors in short supply, President Trump’s statement that he would allow Ukraine to build them is a boon to Kyiv as it fights off Russian missile attacks. But it is just the start.`\
 https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
