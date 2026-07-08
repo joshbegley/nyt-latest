@@ -1,3 +1,7 @@
+**You Oughta Piccata**\
+`More specifically, you ought to make Ali Slagle’s chicken piccata, a fast, five-star recipe with over 14,000 reviews.`\
+https://www.nytimes.com/2026/07/08/dining/you-oughta-piccata.html
+
 **Le Pen Launches Presidential Campaign, in a Twist for French Politics**\
 `The day after a court decided the far-right leader Marine Le Pen could run for office again, cheers and boos met her campaign kickoff in a rural stronghold.`\
 https://www.nytimes.com/2026/07/08/world/europe/marine-le-pen-presidential-campaign.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/movies/the-invite-esther-perel-olivia-wilde.h
 **The American Economy Isn’t as Bad as You Might Think**\
 `Influencers may be “Chinamaxxing,” but the U.S. is still the world’s economic powerhouse.`\
 https://www.nytimes.com/2026/07/08/opinion/american-economy-decline-china-europe.html
-
-**Pick Your Favorite $1.4 Million Home**\
-`Choices include a Queen Anne Revival in St. Paul, Minn., a 1920s house in Central Valley, N.Y., and a midcentury ranch in Miami.`\
-https://www.nytimes.com/2026/07/08/realestate/homes-for-sale-st-paul-miami-new-york.html
 
 **Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\

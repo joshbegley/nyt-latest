@@ -1,3 +1,7 @@
+**NATO leaders find much to agree on despite Trump’s insults.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/08/world/europe/nato-leaders-find-much-to-agree-on-despite-trumps-insults.html
+
 **Le Pen Launches Presidential Campaign, in a Twist for French Politics**\
 `The day after a court decided the far-right leader Marine Le Pen could run for office again, cheers and boos met her campaign kickoff in a rural stronghold.`\
 https://www.nytimes.com/2026/07/08/world/europe/marine-le-pen-presidential-campaign.html
