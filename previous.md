@@ -1,3 +1,7 @@
+**NATO Summit Gives Trump New Chance to Bust Out Old Grievances**\
+`President Trump brought his combative side to the meeting of world leaders in Turkey, kicking off a day of diplomacy with a panoply of complaints and insults against U.S. allies.`\
+https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
+
 **Khamenei’s Funeral Reaches Holy Cities in Iraq**\
 `Mourners poured into Iraq’s holy cities of Najaf and Karbala for Ayatollah Ali Khamenei’s procession, in a funeral that carried religious and political symbolism for Shiite Muslim supporters in Iran.`\
 https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/arts/design/decades-late-museum-scrambles-to-
 **5 Minutes That Will Make You Love Geri Allen**\
 `Vernon Reid, Kassa Overall, Farah Jasmine Griffin and more artists and writers share their favorites from this pianist who connected jazz music’s past and future.`\
 https://www.nytimes.com/2026/07/08/arts/music/geri-allen-jazz-music.html
-
-**A New ‘Little House’ Expands and Updates the Prairie**\
-`A Netflix adaptation of the beloved tale empowers Ma and adds new Black and Native characters to challenge prejudices.The creators know criticism is coming.`\
-https://www.nytimes.com/2026/07/08/arts/television/little-house-on-the-prairie-netflix.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\

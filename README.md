@@ -1,3 +1,19 @@
+**How GLP-1s Feed Our Sick Culture**\
+`For women, they’re a depressingly rational choice.`\
+https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
+
+**Global Economic Output Looks Slower for 2026, IMF Says**\
+`The I.M.F. projected world output would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
+https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
+
+**Emmy Nominees 2026: How to Watch**\
+`The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
+
+**My Sister Asked to Crash My Dinner Date With Her Daughter. Help!**\
+`A reader who was looking forward to some one-on-one time with her niece created a headache for herself by mentioning the dinner plans to her sister, who was just as eager to tag along.`\
+https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
+
 **NATO Summit Gives Trump New Chance to Bust Out Old Grievances**\
 `President Trump brought his combative side to the meeting of world leaders in Turkey, kicking off a day of diplomacy with a panoply of complaints and insults against U.S. allies.`\
 https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
@@ -165,22 +181,6 @@ https://www.nytimes.com/2026/07/08/magazine/cold-plunge-fix.html
 **Chernobyl’s Wildlife Cameras Reveal How War Affects Wild Animals**\
 `A rare camera-trap study logged the effects of armed conflict on wild animals in real time.`\
 https://www.nytimes.com/2026/07/08/science/russia-captured-chernobyl-the-wildlife-cameras-kept-recording.html
-
-**How to Support a Parent Grieving a Child**\
-`How to show up for someone who’s grieving the loss of a child.`\
-https://www.nytimes.com/2026/07/08/podcasts/grief-parenting-child-death.html
-
-**Work at Kushner-Linked Resort in Albania Could Affect Sensitive Landscape**\
-`A New York Times analysis of satellite images shows the damage a proposed luxury resort near Zvernec, Albania could inflict on delicate natural habitats. The project is being developed by real estate partners of Jared Kushner.`\
-https://www.nytimes.com/video/world/europe/100000010975655/jared-kushner-resort-albania-wildlife.html
-
-**Decades Late, Museum Scrambles to Return 2,700 Native Remains**\
-`The American Museum of Natural History said it would repatriate hair clippings that must be returned to tribes under a 1990 federal law.`\
-https://www.nytimes.com/2026/07/08/arts/design/decades-late-museum-scrambles-to-return-2700-native-remains.html
-
-**5 Minutes That Will Make You Love Geri Allen**\
-`Vernon Reid, Kassa Overall, Farah Jasmine Griffin and more artists and writers share their favorites from this pianist who connected jazz music’s past and future.`\
-https://www.nytimes.com/2026/07/08/arts/music/geri-allen-jazz-music.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\

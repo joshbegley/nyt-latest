@@ -1,3 +1,7 @@
+**NATO Summit Gives Trump New Chance to Bust Out Old Grievances**\
+`President Trump brought his combative side to the meeting of world leaders in Turkey, kicking off a day of diplomacy with a panoply of complaints and insults against U.S. allies.`\
+https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
+
 **Khamenei’s Funeral Reaches Holy Cities in Iraq**\
 `Mourners poured into Iraq’s holy cities of Najaf and Karbala for Ayatollah Ali Khamenei’s procession, in a funeral that carried religious and political symbolism for Shiite Muslim supporters in Iran.`\
 https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
