@@ -1,3 +1,7 @@
+**William D. Zabel, High-Flying Lawyer and Civil Rights Champion, Dies at 89**\
+`He brokered celebrity divorces and recovered billions for victims of Bernie Madoff’s Ponzi scheme. But he was proudest of helping to legalize interracial marriage.`\
+https://www.nytimes.com/2026/07/08/business/william-zabel-dead.html
+
 **Así fue la llegada y participación de Trump a la cumbre de la OTAN**\
 `En cuanto el presidente Trump aterrizó en Turquía, el centro de atención se desplazó justo hacia donde más le gusta: él mismo.`\
 https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-otan-turquia.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.ht
 `President Recep Tayyip Erdogan basked in praise from President Trump with the spotlight on a NATO summit. At home, his biggest rival defended himself before judges.`\
 https://www.nytimes.com/2026/07/08/world/europe/erdogan-nato-imamoglu-mayor.html
 
-**Emmys Snubs and Surprises 2026: Jon Hamm, ‘Half Man’ and More**\
+**Emmys Snubs and Surprises 2026: Jon Hamm, Ariana Madix and More**\
 `Other unexpected results include nods for Chase Infiniti and the “Love Island USA” host Ariana Madix and a snub for “The Amazing Race.”`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-snubs-surprises.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/08/business/dealbook/bezos-funding-blue-origin.h
 **Trump Assails NATO Allies Over Iran and Greenland**\
 `President Trump blasted the United States’ allies at the NATO summit in Turkey for not joining the war in Iran and for not supporting his desire to control Greenland.`\
 https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-iran.html
-
-**A Cease-Fire in Doubt**\
-`We have the latest on renewed strikes in the Middle East.`\
-https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html
 
 **Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\

@@ -1,3 +1,11 @@
+**William D. Zabel, High-Flying Lawyer and Civil Rights Champion, Dies at 89**\
+`He brokered celebrity divorces and recovered billions for victims of Bernie Madoff’s Ponzi scheme. But he was proudest of helping to legalize interracial marriage.`\
+https://www.nytimes.com/2026/07/08/business/william-zabel-dead.html
+
+**Emmys Snubs and Surprises 2026: Jon Hamm, Ariana Madix and More**\
+`Other unexpected results include nods for Chase Infiniti and the “Love Island USA” host Ariana Madix and a snub for “The Amazing Race.”`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-snubs-surprises.html
+
 **Así fue la llegada y participación de Trump a la cumbre de la OTAN**\
 `En cuanto el presidente Trump aterrizó en Turquía, el centro de atención se desplazó justo hacia donde más le gusta: él mismo.`\
 https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-otan-turquia.html
