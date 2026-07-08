@@ -1,3 +1,7 @@
+**A Cease-Fire in Doubt**\
+`We have the latest on renewed strikes in the Middle East.`\
+https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html
+
 **Iraqis Turn Out in Droves to Mourn Khamenei in Show of Solidarity**\
 `In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/08/books/review/table-for-fortune-william-vollma
 **Are Omega-3 Supplements Actually Good for Your Brain?**\
 `Researchers have been surprised by the study findings.`\
 https://www.nytimes.com/2026/07/08/well/mind/omega-3s-supplements-benefits-brain.html
-
-**The American Economy Isn’t as Bad as You Might Think**\
-`Influencers may be “Chinamaxxing,” but the U.S. is still the world’s economic powerhouse.`\
-https://www.nytimes.com/video/opinion/100000011007048/the-american-economy-isnt-as-bad-as-you-might-think.html
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
 `“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\

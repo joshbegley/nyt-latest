@@ -1,3 +1,7 @@
+**A Cease-Fire in Doubt**\
+`We have the latest on renewed strikes in the Middle East.`\
+https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html
+
 **Iraqis Turn Out in Droves to Mourn Khamenei in Show of Solidarity**\
 `In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
