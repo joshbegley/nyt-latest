@@ -1,3 +1,15 @@
+**When Might Graham Platner Drop Out? Here’s the State of Play.**\
+`Here’s what we know about the uproar in the Democratic Party’s bid to unseat Senator Susan Collins.`\
+https://www.nytimes.com/2026/07/08/us/politics/platner-democrats-maine-state-of-play.html
+
+**Cómo proteger tus fotos de Instagram de la IA**\
+`El nuevo generador de imágenes con IA de Meta, la empresa propietaria de WhatsApp y Facebook, incluye un giro inesperado para los usuarios: permite utilizar imágenes de cuentas públicas de Instagram.`\
+https://www.nytimes.com/es/2026/07/08/espanol/negocios/meta-fotos-instagram-ia.html
+
+**I Still Have Hope for America**\
+`Our July 4 bash was troubled, and America may go the way of the Ghaznavid Empire. But here are reasons to be more positive.`\
+https://www.nytimes.com/2026/07/08/opinion/america-250-trump.html
+
 **U.F.C. Star Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
 `Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
 https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
 **Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
 `The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner. Details of the encounter remain unclear.`\
 https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
-
-**2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\
-`The HBO Max medical series earned 25 nominations in the drama category. And in comedy, the final season of “Hacks” set a record with 24 nominations.`\
-https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
-
-**Air Canada Chooses Anko van der Werff, Who Speaks French, as CEO After Language Backlash**\
-`Michael Rousseau, who prompted widespread criticism with a largely English condolence video following a crash in March, will retire.`\
-https://www.nytimes.com/2026/07/08/world/canada/air-canada-ceo-french-backlash-crash.html
-
-**‘Corten todo el comercio’: Trump amenaza a España**\
-`Pero es poco probable que suceda: una medida contra España enfrentaría obstáculos políticos, legales y prácticos, y provocaría una guerra comercial más amplia con la Unión Europea.`\
-https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-espana-comercio.html
 

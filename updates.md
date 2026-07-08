@@ -1,3 +1,15 @@
+**When Might Graham Platner Drop Out? Here’s the State of Play.**\
+`Here’s what we know about the uproar in the Democratic Party’s bid to unseat Senator Susan Collins.`\
+https://www.nytimes.com/2026/07/08/us/politics/platner-democrats-maine-state-of-play.html
+
+**Cómo proteger tus fotos de Instagram de la IA**\
+`El nuevo generador de imágenes con IA de Meta, la empresa propietaria de WhatsApp y Facebook, incluye un giro inesperado para los usuarios: permite utilizar imágenes de cuentas públicas de Instagram.`\
+https://www.nytimes.com/es/2026/07/08/espanol/negocios/meta-fotos-instagram-ia.html
+
+**I Still Have Hope for America**\
+`Our July 4 bash was troubled, and America may go the way of the Ghaznavid Empire. But here are reasons to be more positive.`\
+https://www.nytimes.com/2026/07/08/opinion/america-250-trump.html
+
 **U.F.C. Star Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
 `Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
 https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
