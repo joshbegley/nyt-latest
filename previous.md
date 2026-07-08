@@ -1,3 +1,11 @@
+**A Look Back at Trump’s Broadsides Against NATO Allies**\
+`President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
+https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
+
+**Live Updates: NATO Leaders Meet at Pivotal Moment for Alliance**\
+`At a summit in Turkey, President Trump is pushing for a smaller role for the United States and for allies to do more for their own defense against an aggressive, militarized Russia.`\
+https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
+
 **Late Night Calls a Foul on Trump After His World Cup Intervention**\
 `President Trump may not have known what a red card in soccer is, Ronny Chieng said: “But you know what he did know? How to get a guy a pardon.”`\
 https://www.nytimes.com/2026/07/08/arts/television/late-night-trump-world-cup.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/world/germany-afd-centrist-far-right-le-pen-f
 **Marine Le Pen Announces 2027 French Presidential Bid**\
 `The far-right French leader said on Tuesday that she will seek the presidency for the fourth time, despite an embezzlement conviction and a previous ban on her eligibility for office.`\
 https://www.nytimes.com/video/world/europe/100000011016495/marine-le-pen-2027-presidential-bid.html
-
-**Marine Le Pen’s Court Battle Is Latest Clash Between Populists and Watchdogs**\
-`The far-right leader’s battle with the French judiciary evokes standoffs across the populist world, including ones with President Trump and Nigel Farage.`\
-https://www.nytimes.com/2026/07/07/world/europe/le-pen-populists-vs-courts.html
-
-**Anthropic Expands in Manhattan, Part of an A.I. Boom in New York**\
-`Anthropic, the artificial intelligence company, plans to lease a 16-story building in Hudson Square and to double its work force in New York City to 1,000 people this year.`\
-https://www.nytimes.com/2026/07/07/nyregion/anthropic-ai-boom-nyc.html
 

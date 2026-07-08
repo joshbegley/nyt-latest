@@ -1,3 +1,11 @@
+**A Look Back at Trump’s Broadsides Against NATO Allies**\
+`President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
+https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
+
+**Live Updates: NATO Leaders Meet at Pivotal Moment for Alliance**\
+`At a summit in Turkey, President Trump is pushing for a smaller role for the United States and for allies to do more for their own defense against an aggressive, militarized Russia.`\
+https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
+
 **Late Night Calls a Foul on Trump After His World Cup Intervention**\
 `President Trump may not have known what a red card in soccer is, Ronny Chieng said: “But you know what he did know? How to get a guy a pardon.”`\
 https://www.nytimes.com/2026/07/08/arts/television/late-night-trump-world-cup.html
