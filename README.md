@@ -1,3 +1,15 @@
+**Hotter Seas in Britain and Europe Threaten Marine Life**\
+`Higher sea temperatures have followed scorching weather across Europe, prompting Britain’s weather service to declare a “severe” marine heat wave.`\
+https://www.nytimes.com/2026/07/08/world/europe/marine-heat-wave-uk.html
+
+**Why ‘Heated Rivalry’ Received No Emmy Nominations**\
+`Even if voters had wanted to honor the gay hockey drama, which became a hit on HBO Max, they couldn’t have. But the Emmys did recognize one of the stars.`\
+https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominations.html
+
+**I Think the Workmen at My Condo Are Being Exploited. What Should I Do?**\
+`Many of us suspect they are undocumented, and being underpaid.`\
+https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
+
 **Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
 `The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner, and said he was shot inside his car. Details of the encounter remain unclear.`\
 https://www.nytimes.com/2026/07/08/us/ice-shooting-houston-victim.html
@@ -170,19 +182,7 @@ https://www.nytimes.com/es/2026/07/08/espanol/estilos-de-vida/divorcio-judios-or
 `Millions of Iranians descended on Tehran to pay their respects to the slain supreme leader.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iran-khamenei-funeral-photos.html
 
-**If Platner Exits Senate Race, the Maine Democratic Party Chair Could Help Pick the Nominee**\
-`Charles Dingman, chair of the Maine Democratic Party and a progressive, would play a key role in choosing the state’s Democratic Senate candidate if Graham Platner leaves the race.`\
-https://www.nytimes.com/2026/07/08/us/politics/charlie-dingman-maine-democratic-party-chair.html
-
-**Tomarte unas vacaciones sin tu pareja puede ser positivo**\
-`Algunas personas consideran que es una señal de alarma si alguien viaja sin su media naranja. Otras lo ven como una práctica saludable que permite el autodescubrimiento.`\
-https://www.nytimes.com/es/2026/07/08/espanol/vacaciones-sin-pareja.html
-
-**‘The Hole’: Urban Apocalypse as Tuneful Chamber Drama**\
-`Tsai Ming-liang’s 1990s doomsday film gets its first theatrical run with a new 35 mm print at both Film at Lincoln Center and Metrograph.`\
-https://www.nytimes.com/2026/07/08/movies/the-hole-lincoln-center.html
-
-**Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
+**Live Updates: Trump Speaks After Lashing Out at NATO Summit**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 

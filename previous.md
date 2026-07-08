@@ -1,8 +1,12 @@
-**The 2026 Emmy Nominations Are Announced**\
+**Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
+`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner, and said he was shot inside his car. Details of the encounter remain unclear.`\
+https://www.nytimes.com/2026/07/08/us/ice-shooting-houston-victim.html
+
+**2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\
 `The nominations were announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
 
-**Air Canada Chooses Anko Van der Werff, Who Speaks French, as CEO After Language Backlash**\
+**Air Canada Chooses Anko van der Werff, Who Speaks French, as CEO After Language Backlash**\
 `Michael Rousseau, who prompted widespread criticism with a largely English condolence video following a crash in March, will retire.`\
 https://www.nytimes.com/2026/07/08/world/canada/air-canada-ceo-french-backlash-crash.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/es/2026/07/08/espanol/vacaciones-sin-pareja.html
 **‘The Hole’: Urban Apocalypse as Tuneful Chamber Drama**\
 `Tsai Ming-liang’s 1990s doomsday film gets its first theatrical run with a new 35 mm print at both Film at Lincoln Center and Metrograph.`\
 https://www.nytimes.com/2026/07/08/movies/the-hole-lincoln-center.html
-
-**Money Makes the City Go Round**\
-`In a time of economic stress, some young people are rethinking their political outlook. Others are still doing well.`\
-https://www.nytimes.com/2026/07/08/nyregion/plumber-overtime-money-nyc.html
 
 **Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
