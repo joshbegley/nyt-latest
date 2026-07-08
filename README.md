@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
 https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
 
 **2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\
-`The nominations were announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
+`The HBO Max medical series earned 25 nominations in the drama category. And in comedy, the final season of “Hacks” set a record with 24 nominations.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
 
 **Air Canada Chooses Anko van der Werff, Who Speaks French, as CEO After Language Backlash**\
@@ -78,8 +78,8 @@ https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-t
 `Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
 https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
 
-**Health Insurance Giants Are Fighting Efforts to Break Them Up**\
-`UnitedHealth Group, CVS Health and Cigna are suing states over new laws targeting their pharmacy businesses.`\
+**Lawmakers Target the Power of Health Insurance Giants**\
+`UnitedHealth Group, CVS Health and Cigna are battling efforts to break up their control over prescription drugs.`\
 https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
 
 **Corrections: July 8, 2026**\

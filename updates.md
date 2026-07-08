@@ -1,3 +1,15 @@
+**Why ‘Heated Rivalry’ Received No Emmy Nominations While Connor Storrie Did**\
+`Even if voters had wanted to honor the gay hockey drama, which became a hit on HBO Max, they couldn’t have. But the Emmys did recognize one of the stars.`\
+https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominations.html
+
+**Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
+`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner, and said he was shot inside his car. Details of the encounter remain unclear.`\
+https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
+
+**Emmy Nominees 2026: See the Full List**\
+`The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
+
 **Navy Identifies Sailor Lost in Arabian Sea Helicopter Crash**\
 `Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
 https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
