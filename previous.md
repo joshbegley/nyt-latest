@@ -1,3 +1,7 @@
+**Trump Casts Doubt on Iran Cease-Fire After Tit-for-Tat Strikes**\
+`After the latest exchange of attacks between U.S. and Iranian forces, President Trump suggested that the preliminary cease-fire between the warring countries was over.`\
+https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt-on-iran-cease-fire-after-tit-for-tat-strikes.html
+
 **How GLP-1s Feed Our Sick Culture**\
 `For women, they’re a depressingly rational choice.`\
 https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
 https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
 
 **Khamenei’s Funeral Reaches Holy Cities in Iraq**\
-`Mourners poured into Iraq’s holy cities of Najaf and Karbala for Ayatollah Ali Khamenei’s procession, in a funeral that carried religious and political symbolism for Shiite Muslim supporters in Iran.`\
+`Mourners flocked to Ayatollah Ali Khamenei’s funeral in Iraq for a commemoration that carried religious and political symbolism for Shiite Muslims in the country.`\
 https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
 
 **Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
@@ -34,7 +38,7 @@ https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-
 `We have the latest on renewed strikes in the Middle East.`\
 https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html
 
-**Iraqis Turn Out in Droves to Mourn Khamenei in Show of Solidarity**\
+**Iraqis Turn Out in Droves to Mourn Khamenei and Show Solidarity**\
 `In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
 
@@ -178,15 +182,11 @@ https://www.nytimes.com/2026/07/08/insider/iran-war-satellite-image-restrictions
 `I resisted the trend until I couldn’t any longer.`\
 https://www.nytimes.com/2026/07/08/magazine/cold-plunge-fix.html
 
-**Chernobyl’s Wildlife Cameras Reveal How War Affects Wild Animals**\
-`A rare camera-trap study logged the effects of armed conflict on wild animals in real time.`\
-https://www.nytimes.com/2026/07/08/science/russia-captured-chernobyl-the-wildlife-cameras-kept-recording.html
-
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
-`“I think it’s over,” President Trump said, referring to the preliminary truce, and threatened to strike Iran again. The two sides traded attacks as their shaky truce appeared to edge closer to collapse.`\
+`“I think it’s over,” President Trump said, referring to the preliminary truce, and threatened to strike Iran again. The two sides traded attacks as their truce appeared to edge closer to collapse.`\
 https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
 

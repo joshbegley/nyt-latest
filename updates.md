@@ -1,3 +1,19 @@
+**Trump Casts Doubt on Iran Cease-Fire After Tit-for-Tat Strikes**\
+`After the latest exchange of attacks between U.S. and Iranian forces, President Trump suggested that the preliminary cease-fire between the warring countries was over.`\
+https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt-on-iran-cease-fire-after-tit-for-tat-strikes.html
+
+**Khamenei’s Funeral Reaches Holy Cities in Iraq**\
+`Mourners flocked to Ayatollah Ali Khamenei’s funeral in Iraq for a commemoration that carried religious and political symbolism for Shiite Muslims in the country.`\
+https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
+
+**Iraqis Turn Out in Droves to Mourn Khamenei and Show Solidarity**\
+`In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
+
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
+`“I think it’s over,” President Trump said, referring to the preliminary truce, and threatened to strike Iran again. The two sides traded attacks as their truce appeared to edge closer to collapse.`\
+https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
+
 **Emmy Nominees 2026: Updating List**\
 `The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
