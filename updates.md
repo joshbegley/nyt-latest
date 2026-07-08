@@ -1,3 +1,31 @@
+**The Implosion of Graham Platner**\
+`The Democratic nominee for Senate from Maine was accused of sexual assault. Democrats are gearing up to fight over who should replace him.`\
+https://www.nytimes.com/2026/07/08/podcasts/the-daily/graham-platner-maine-sexual-assault-accusation.html
+
+**Oil Prices Jump as U.S. and Iran Resume Strikes, and Big Tobacco Makes a Big New Bet**\
+`Plus, using drones to watch for sharks.`\
+https://www.nytimes.com/2026/07/08/podcasts/the-headlines/oil-prices-iran-strikes-tobacco.html
+
+**NYT Connections Answers for July 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/08/crosswords/connections-companion-1124.html
+
+**NYT Strands Hints for July 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
+
+**Today's Wordle Hints for July 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/08/crosswords/wordle-review-1846.html
+
+**Live Updates: Status of Damaged Manhattan Building Is Unclear After Crews Work Overnight**\
+`A Midtown high-rise that suffered structural damage was stable for now, New York City’s buildings commissioner said, but he warned of tense days ahead.`\
+https://www.nytimes.com/live/2026/07/08/nyregion/nyc-midtown-building-collapse
+
+**Marine Le Pen’s Return Has Sidelined Her Protégé. Can They Join Forces?**\
+`For months, Jordan Bardella was set to be the French far-right’s candidate for the presidency — until his mentor, Marine Le Pen, nudged him aside this week. Their relationship could define the campaign.`\
+https://www.nytimes.com/2026/07/08/world/france-marine-le-pen-jordan-bardella-national-rally.html
+
 **Denmark Says It Will Defend ‘Every Inch’ of NATO as Trump Eyes Greenland Again**\
 `After President Trump once more said that the island should be under U.S. control, the Danish prime minister, Mette Frederiksen, told reporters, “We will defend the kingdom of Denmark.”`\
 https://www.nytimes.com/2026/07/08/world/europe/us-denmark-greenland-nato-frederiksen.html
