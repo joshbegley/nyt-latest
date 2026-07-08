@@ -1,3 +1,7 @@
+**Assessing the USMNT’s World Cup Campaign**\
+`What’s next for Pochettino and his players?`\
+https://www.nytimes.com/2026/07/08/podcasts/usmnts-world-cup-campaign-folarin-balogun-football-chants.html
+
 **The Implosion of Graham Platner**\
 `The Democratic nominee for Senate from Maine was accused of sexual assault. Democrats are gearing up to fight over who should replace him.`\
 https://www.nytimes.com/2026/07/08/podcasts/the-daily/graham-platner-maine-sexual-assault-accusation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/08/espanol/opinion/felicidad-paises-nordicos.
 **U.S. Strikes Iran and Iran Hits Back**\
 `Videos verified by The New York Times showed explosions in Iran after the U.S. military announced it had renewed airstrikes. The Pentagon called it retaliation for an attack on ships in the Strait of Hormuz.`\
 https://www.nytimes.com/video/world/middleeast/100000011018301/iran-war-us-trump.html
-
-**Mamdani Promised Faster Buses. Now He Has a Road Map.**\
-`A plan announced by Mayor Zohran Mamdani and Gov. Kathy Hochul lists ambitious steps to speed up New York City buses, which remain some of the slowest in the nation.`\
-https://www.nytimes.com/2026/07/08/nyregion/mamdani-hochul-bus-routes.html
 
