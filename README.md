@@ -1,3 +1,7 @@
+**As the World Cup Takes a Break, So Do N.Y.C. Bars: ‘It’s a Sigh of Relief’**\
+`Wednesday was the first day since June 11 with no World Cup matches. For run-down restaurant workers who also handled the Knicks’ run, it was a welcome reprieve.`\
+https://www.nytimes.com/2026/07/08/nyregion/bars-world-cup-soccer.html
+
 **Three More People Charged With Damaging Reflecting Pool**\
 `The three individuals face misdemeanor charges of causing damage worth less than $1,000. Experts have said that the problems could have been caused by the pool’s makeover.`\
 https://www.nytimes.com/2026/07/08/us/reflecting-pool-damage-misdemeanor-charges.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-watch-stream.ht
 **Oil Market Calm Shattered by Fresh Hostilities Between US and Iran**\
 `Oil prices are likely to remain volatile as long as the United States and Iran are unable to resolve the status of the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-prices.html
-
-**Navy Identifies Crew Member Lost in Arabian Sea Helicopter Crash**\
-`Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
-https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
 
