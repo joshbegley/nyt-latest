@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/07/08/arts/television/late-night-trump-world-cup.ht
 `Este gigante californiano ha contribuido a convertir una delicia local y de temporada en un producto imprescindible en las neveras de todo el mundo y en un fenómeno de mercadotecnia.`\
 https://www.nytimes.com/es/2026/07/08/espanol/negocios/fresas-frambuesas-driscolls.html
 
-**A.I. Is Giving Us Answers Right Away. That’s Making Us Dumber.**\
+**We Are Losing the Ability to Discover What We Didn’t Know to Ask**\
 `What used to be a meandering journey is now an immediate arrival at your destination.`\
 https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
 
@@ -62,7 +62,7 @@ https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/trump-mundial-fifa.
 `Quotation of the Day for July 8, 2026.`\
 https://www.nytimes.com/2026/07/08/pageoneplus/quote-of-the-day-loss-for-us-soccer-but-leap-by-soccer-in-us.html
 
-**Trump’s arrival in Turkey for NATO summit adds drama and spectacle**\
+**Trump’s Arrival in Turkey for NATO Summit Adds Drama and Spectacle**\
 `The second President Trump landed in Turkey, the center of gravity shifted right to where he likes it best: himself.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-nato-summit.html
 

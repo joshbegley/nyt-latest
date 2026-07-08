@@ -1,3 +1,7 @@
+**Oil Prices Jump After U.S. and Iran Trade Strikes in Persian Gulf**\
+`Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
+https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
+
 **At Chanel, Matthieu Blazy’s Alternative to Ozempic Dressing**\
 `Matthieu Blazy goes beyond the super sucked-in, laced-up styles of the moment. It’s actually not a fairy tale.`\
 https://www.nytimes.com/2026/07/08/style/chanel-couture.html
