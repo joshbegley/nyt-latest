@@ -1,3 +1,19 @@
+**EU Rejects Plea to Pause Troubled EES Biometrics System at Airports Ahead of Summer Rush**\
+`E.U. leaders rebuffed a plea from the aviation industry to pause the biometric checkpoints, which have caused long lines and missed flights. Summer travelers beware.`\
+https://www.nytimes.com/2026/07/08/travel/ees-europe-airports-security.html
+
+**Fax and Telegram? New York’s Archaic Requirements Get an A.I. Overhaul.**\
+`Gov. Kathy Hochul will direct state agencies to eliminate or modernize antiquated requirements, and examine if task forces or councils have outlived their purpose.`\
+https://www.nytimes.com/2026/07/08/nyregion/hochul-ai-redtape-rules.html
+
+**Can America’s Best Engine of Social Mobility Weather a Bad Job Market?**\
+`New York City’s public universities propel young graduates into the middle class. But some worry that a bleaker early career job market has added hurdles.`\
+https://www.nytimes.com/2026/07/08/nyregion/college-graduates-job-market.html
+
+**NYT Spelling Bee Answers for July 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/08/crosswords/spelling-bee-forum.html
+
 **Midtown Neighborhood Has to Cope in a Troubled Building’s Shadow**\
 `Travelers were shut out of major hotels, and work ground to a halt for some on Tuesday after a building partially buckled in Manhattan.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-building-east-42nd.html
