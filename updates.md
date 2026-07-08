@@ -1,3 +1,11 @@
+**We Are Losing the Ability to Discover What We Didn’t Know to Ask**\
+`What used to be a meandering journey is now an immediate arrival at your destination.`\
+https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
+
+**Trump’s Arrival in Turkey for NATO Summit Adds Drama and Spectacle**\
+`The second President Trump landed in Turkey, the center of gravity shifted right to where he likes it best: himself.`\
+https://www.nytimes.com/2026/07/08/world/europe/trump-nato-summit.html
+
 **Oil Prices Jump After U.S. and Iran Trade Strikes in Persian Gulf**\
 `Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
