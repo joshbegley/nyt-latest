@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-pric
 https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
 
 **License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
-`President Trump said he would allow Ukraine to make the defensive weapons but it could take several years to set up a manufacturing operation.`\
+`With Patriot interceptors in short supply, President Trump’s statement that he would allow Ukraine to build them is a boon to Kyiv as it fights off Russian missile attacks. But it is just the start.`\
 https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
 
 **‘Widow’s Bay,’ an Apple TV Breakout Hit, Scores 19 Emmy Nominations**\
