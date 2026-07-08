@@ -1,3 +1,11 @@
+**The American Economy Isn’t as Bad as You Might Think**\
+`Influencers may be “Chinamaxxing,” but the U.S. is still the world’s economic powerhouse.`\
+https://www.nytimes.com/video/opinion/100000011007048/the-american-economy-isnt-as-bad-as-you-might-think.html
+
+**‘You Do It Because They’re Your Parents’**\
+`Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
+https://www.nytimes.com/video/opinion/100000010551165/family-caregiver-aging-parents.html
+
 **¿Cuál es el secreto de la felicidad en los países nórdicos?**\
 `Escandinavia ofrece cinco semanas de vacaciones, universidad prácticamente gratuita, un año de licencia parental, cuidado infantil accesible y algunos de los ciudadanos más felices del mundo.`\
 https://www.nytimes.com/es/2026/07/08/espanol/opinion/felicidad-paises-nordicos.html
@@ -58,8 +66,8 @@ https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.htm
 `Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
 
-**Mideast Live Updates: Iran Launches Attacks Across Gulf After Latest U.S. Strikes**\
-`Iran’s armed forces said they had targeted 85 U.S. military sites in Bahrain and Kuwait. The U.S. said its strikes were in response to what it said were Iranian attacks on ships in the Strait of Hormuz.`\
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
+`‘I think it’s over,’ President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
 https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
 
 **EE. UU. ataca a Irán y reactiva sanciones por los ataques a buques**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/briefing/democrats-platner-maine-us-iran-stri
 **Zimbabwe’s President Signs Law Extending His Term**\
 `The measure will allow the president, Emmerson Mnangagwa, to stay in office until 2030. Critics say the move tightens his autocratic grip on power and erodes the nation’s democracy.`\
 https://www.nytimes.com/2026/07/07/world/africa/zimbabwe-president-mnangagwa-extension.html
-
-**Utah Moves to Close Teen Treatment Center Accused of Abusing Girls**\
-`Paris Hilton helped lead a campaign to shut down the Provo Canyon School, where she said she was beaten and spat on when she was 17.`\
-https://www.nytimes.com/2026/07/07/us/utah-boarding-school-abuse-paris-hilton.html
-
-**ICE Officer Kills a Mexican Man in Houston**\
-`The agency said the man was an “illegal alien” who had tried to run over the agent, though no evidence was immediately offered.`\
-https://www.nytimes.com/2026/07/07/us/immigration-ice-shooting-houston.html
 
