@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-pric
 `Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
 https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
 
-**A License to Make Patriot Defense Systems May Be a Big Boost for Ukraine**\
+**License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
 `President Trump said he would allow Ukraine to make the defensive weapons but it could take several years to set up a manufacturing operation.`\
 https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
 

@@ -1,3 +1,11 @@
+**A Checkup on the Nation’s Health Care Coverage**\
+`How many Americans lack health insurance?`\
+https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
+
+**Navy Identifies Crew Member Lost in Arabian Sea Helicopter Crash**\
+`Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
+https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
+
 **A checkup on the nation’s health care coverage**\
 `How many Americans lack health insurance?`\
 https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
