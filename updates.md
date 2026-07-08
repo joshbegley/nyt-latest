@@ -1,3 +1,7 @@
+**Judge Orders $5 Million Trump Judgment Be Released to E. Jean Carroll**\
+`Ms. Carroll had asked a federal judge to order the president to pay the judgment after a jury found he sexually abused and defamed her.`\
+https://www.nytimes.com/2026/07/08/us/politics/trump-e-jean-carroll-5-million-payment.html
+
 **Police Raids on Ukrainian Drone Maker Fuel Fears About Press Freedom**\
 `The raids targeted a military contractor and its owner, who also co-owns a news outlet that recently exposed abuse of soldiers. Journalists said it was no coincidence.`\
 https://www.nytimes.com/2026/07/08/world/europe/ukraine-police-raid-media.html
