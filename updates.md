@@ -1,3 +1,31 @@
+**Navy Identifies Sailor Lost in Arabian Sea Helicopter Crash**\
+`Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
+https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
+
+**A License to Make Patriot Defense Systems May Be a Big Boost for Ukraine**\
+`President Trump said he would allow Ukraine to make the defensive weapons but it could take several years to set up a manufacturing operation.`\
+https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
+
+**‘Widow’s Bay,’ an Apple TV Breakout Hit, Scores TK Emmy Nominations**\
+`The Apple TV horror comedy, one of the buzziest shows of the spring, has parlayed that enthusiasm into an Emmys haul, with 19 nominations.`\
+https://www.nytimes.com/2026/07/08/arts/television/widows-bay-apple-emmy-nominations.html
+
+**Hotter Seas in Britain and Europe Threaten Marine Life**\
+`Higher sea temperatures have followed scorching weather across Europe, prompting Britain’s weather service to declare a “severe” marine heat wave.`\
+https://www.nytimes.com/2026/07/08/world/europe/marine-heat-wave-uk.html
+
+**Why ‘Heated Rivalry’ Received No Emmy Nominations**\
+`Even if voters had wanted to honor the gay hockey drama, which became a hit on HBO Max, they couldn’t have. But the Emmys did recognize one of the stars.`\
+https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominations.html
+
+**I Think the Workmen at My Condo Are Being Exploited. What Should I Do?**\
+`Many of us suspect they are undocumented, and being underpaid.`\
+https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
+
+**Live Updates: Trump Speaks After Lashing Out at NATO Summit**\
+`Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
+https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
+
 **Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
 `The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner, and said he was shot inside his car. Details of the encounter remain unclear.`\
 https://www.nytimes.com/2026/07/08/us/ice-shooting-houston-victim.html

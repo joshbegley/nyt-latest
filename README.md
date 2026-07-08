@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/07/08/arts/television/widows-bay-apple-emmy-nominat
 `Higher sea temperatures have followed scorching weather across Europe, prompting Britain’s weather service to declare a “severe” marine heat wave.`\
 https://www.nytimes.com/2026/07/08/world/europe/marine-heat-wave-uk.html
 
-**Why ‘Heated Rivalry’ Received No Emmy Nominations**\
+**Why ‘Heated Rivalry’ Received No Emmy Nominations While Connor Storrie Did**\
 `Even if voters had wanted to honor the gay hockey drama, which became a hit on HBO Max, they couldn’t have. But the Emmys did recognize one of the stars.`\
 https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominations.html
 
@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
 
 **Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
 `The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner, and said he was shot inside his car. Details of the encounter remain unclear.`\
-https://www.nytimes.com/2026/07/08/us/ice-shooting-houston-victim.html
+https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
 
 **2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\
 `The nominations were announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
 `The I.M.F. projected world output growth would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
 https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
 
-**Emmy Nominees 2026: Updating List**\
+**Emmy Nominees 2026: See the Full List**\
 `The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
 
