@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/07/08/style/world-cup-fans-fashion-best-dressed.htm
 `Doctors described treating brain and abdominal hemorrhages in infants who hadn’t received the routine injection. Several said the images of those patients were seared in their minds.`\
 https://www.nytimes.com/2026/07/08/well/live/vitamin-k-shot-bleeding-newborn.html
 
-**A Conservative Role Model for Ending the Fertility Crisis**\
-`Emma Waters, pregnant with her third child, is crafting policy to encourage early parenthood. Some think she is pushing an ideology that does not meet reality.`\
-https://www.nytimes.com/2026/07/08/us/politics/emma-waters-restorative-reproduction.html
-
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
