@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011018239/08vid-iran-embed-14360.html
+
+**Dozens Face Felony Charges After Raid of Beagle Research Facility**\
+`The charges for most of the people carry sentences of up to 12.5 years in prison, officials said, and the police have recommended more charges for a separate attempt in April.`\
+https://www.nytimes.com/2026/07/07/us/ridgeland-beagles-charges.html
+
 **New York City Adopts Measures to Slow Legionnaires’ Disease Outbreak**\
 `An ongoing cluster of the illness has sickened 23 people. That’s not unusual: Most years, 200 to 700 people in the city are diagnosed with the disease.`\
 https://www.nytimes.com/2026/07/07/nyregion/nyc-legionnaires-disease.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/07/us/politics/mitch-mcconnell-hospital-thune-ba
 **Hachette Book Group Employees Vote to Unionize**\
 `Workers at a major publishing house have established what organizers are calling the largest union in trade book publishing history.`\
 https://www.nytimes.com/2026/07/07/books/hachette-book-publishing-union.html
-
-**I.O.C. Lifts Russia’s Olympic Suspension, Clearing the Way for 2028**\
-`The International Olympic Committee “provisionally” removed the ban imposed in relation to Russia’s invasion of Ukraine. A previous ban for systematic doping had already ended.`\
-https://www.nytimes.com/2026/07/07/world/europe/russia-olympic-suspension-lifted.html
-
-**Mapa: un terremoto de magnitud 5,3 sacude Costa Rica**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/07/07/espanol/terremoto-costa-rica.html
 
