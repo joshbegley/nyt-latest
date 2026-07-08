@@ -1,3 +1,7 @@
+**Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
+`The rocket company founded by Jeff Bezos is set to take on external investors for the first time, at a $130 billion valuation.`\
+https://www.nytimes.com/2026/07/08/business/dealbook/bezos-funding-blue-origin.html
+
 **Trump Assails NATO Allies Over Iran and Greenland**\
 `President Trump blasted the United States’ allies at the NATO summit in Turkey for not joining the war in Iran and for not supporting his desire to control Greenland.`\
 https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-iran.html
