@@ -1,3 +1,7 @@
+**Iraqis Turn Out in Droves to Mourn Khamenei in Show of Solidarity**\
+`In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
+
 **Tensions Escalate Between Russia and NATO’s European Members**\
 `Moscow has directed extra hostility toward countries that have strongly supported Ukraine and praise at President Trump.`\
 https://www.nytimes.com/2026/07/08/world/europe/russia-nato-europe-ukraine.html

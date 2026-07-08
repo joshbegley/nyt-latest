@@ -1,3 +1,7 @@
+**Iraqis Turn Out in Droves to Mourn Khamenei in Show of Solidarity**\
+`In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
+
 **Tensions Escalate Between Russia and NATO’s European Members**\
 `Moscow has directed extra hostility toward countries that have strongly supported Ukraine and praise at President Trump.`\
 https://www.nytimes.com/2026/07/08/world/europe/russia-nato-europe-ukraine.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/08/well/mind/omega-3s-supplements-benefits-brain
 **The American Economy Isn’t as Bad as You Might Think**\
 `Influencers may be “Chinamaxxing,” but the U.S. is still the world’s economic powerhouse.`\
 https://www.nytimes.com/video/opinion/100000011007048/the-american-economy-isnt-as-bad-as-you-might-think.html
-
-**‘You Do It Because They’re Your Parents’**\
-`Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
-https://www.nytimes.com/video/opinion/100000010551165/family-caregiver-aging-parents.html
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
 `“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
