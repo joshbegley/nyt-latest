@@ -1,3 +1,7 @@
+**¿Cuál es el secreto de la felicidad en los países nórdicos?**\
+`Escandinavia ofrece cinco semanas de vacaciones, universidad prácticamente gratuita, un año de licencia parental, cuidado infantil accesible y algunos de los ciudadanos más felices del mundo.`\
+https://www.nytimes.com/es/2026/07/08/espanol/opinion/felicidad-paises-nordicos.html
+
 **U.S. Strikes Iran and Iran Hits Back**\
 `Videos verified by The New York Times showed explosions in Iran after the U.S. military announced it had renewed airstrikes. The Pentagon called it retaliation for an attack on ships in the Strait of Hormuz.`\
 https://www.nytimes.com/video/world/middleeast/100000011018301/iran-war-us-trump.html

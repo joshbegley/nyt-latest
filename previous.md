@@ -1,3 +1,7 @@
+**¿Cuál es el secreto de la felicidad en los países nórdicos?**\
+`Escandinavia ofrece cinco semanas de vacaciones, universidad prácticamente gratuita, un año de licencia parental, cuidado infantil accesible y algunos de los ciudadanos más felices del mundo.`\
+https://www.nytimes.com/es/2026/07/08/espanol/opinion/felicidad-paises-nordicos.html
+
 **U.S. Strikes Iran and Iran Hits Back**\
 `Videos verified by The New York Times showed explosions in Iran after the U.S. military announced it had renewed airstrikes. The Pentagon called it retaliation for an attack on ships in the Strait of Hormuz.`\
 https://www.nytimes.com/video/world/middleeast/100000011018301/iran-war-us-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/us/utah-boarding-school-abuse-paris-hilton.ht
 **ICE Officer Kills a Mexican Man in Houston**\
 `The agency said the man was an “illegal alien” who had tried to run over the agent, though no evidence was immediately offered.`\
 https://www.nytimes.com/2026/07/07/us/immigration-ice-shooting-houston.html
-
-**Penelope Keith, Effortlessly Posh Star of British Sitcoms, Dies at 86**\
-`A veteran stage actress, she starred in two of Britain’s most beloved TV comedies of the 1970s, “The Good Life” and “To the Manor Born.”`\
-https://www.nytimes.com/2026/07/07/arts/television/penelope-keith-dead.html
 
