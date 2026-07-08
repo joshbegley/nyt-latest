@@ -1,3 +1,15 @@
+**U.S. Strikes Iran and Iran Hits Back**\
+`Videos verified by The New York Times showed explosions in Iran after the U.S. military announced it had renewed airstrikes. The Pentagon called it retaliation for an attack on ships in the Strait of Hormuz.`\
+https://www.nytimes.com/video/world/middleeast/100000011018301/iran-war-us-trump.html
+
+**Mamdani Promised Faster Buses. Now He Has a Road Map.**\
+`A plan announced by Mayor Zohran Mamdani and Gov. Kathy Hochul lists ambitious steps to speed up New York City buses, which remain some of the slowest in the nation.`\
+https://www.nytimes.com/2026/07/08/nyregion/mamdani-hochul-bus-routes.html
+
+**Word of the Day: pundit**\
+`This word has appeared in 246 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/08/learning/word-of-the-day-pundit.html
+
 **We Are Losing the Ability to Discover What We Didn’t Know to Ask**\
 `What used to be a meandering journey is now an immediate arrival at your destination.`\
 https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
