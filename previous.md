@@ -1,3 +1,7 @@
+**Midtown Building Developer Says Problems Were a ‘Typical Construction Mishap’**\
+`Nathan Berman, one of the developers of the Midtown building that suffered structural damage, predicted the project would restart within weeks.`\
+https://www.nytimes.com/2026/07/07/nyregion/developer-midtown-manhattan-building.html
+
 **Judge Orders D.H.S. to Restore 4 States’ Access to Citizenship Data**\
 `The ruling, based on an agreement the Trump administration signed with Florida last year, contradicted an earlier order by a judge in Washington that required the access be suspended.`\
 https://www.nytimes.com/2026/07/07/us/politics/florida-judge-dhs-citizenship-data.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/07/world/quake-tracker-costa-rica.ht
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/100000011017183/07-vid-emergency-responders.html
-
-**Doctors Warn of a Dangerous Trend: Microwaving a Popular Squishy Toy**\
-`Hospitals are seeing cases of children suffering serious burns amid a social media trend involving popping NeeDoh cubes into microwaves.`\
-https://www.nytimes.com/2026/07/07/well/squishy-needoh-toys-burns.html
 

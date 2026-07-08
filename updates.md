@@ -1,3 +1,7 @@
+**Midtown Building Developer Says Problems Were a ‘Typical Construction Mishap’**\
+`Nathan Berman, one of the developers of the Midtown building that suffered structural damage, predicted the project would restart within weeks.`\
+https://www.nytimes.com/2026/07/07/nyregion/developer-midtown-manhattan-building.html
+
 **Judge Orders D.H.S. to Restore 4 States’ Access to Citizenship Data**\
 `The ruling, based on an agreement the Trump administration signed with Florida last year, contradicted an earlier order by a judge in Washington that required the access be suspended.`\
 https://www.nytimes.com/2026/07/07/us/politics/florida-judge-dhs-citizenship-data.html
