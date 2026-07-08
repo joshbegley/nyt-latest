@@ -1,3 +1,11 @@
+**U.S. Attorney in Manhattan Names Deputy to Oversee Transition**\
+`Jay Clayton said he had named James McDonald as a deputy to oversee the transition at the Southern District of New York office. President Trump nominated Mr. Clayton to be his intelligence chief.`\
+https://www.nytimes.com/2026/07/08/nyregion/nyc-clayton-mcdonald-us-attorney.html
+
+**The U.S. Attacks Iran Again**\
+`Also, tech I.P.O.s are causing a housing frenzy in the Bay Area. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/07/08/briefing/us-iran-attacks-ukraine-patriot-missiles.html
+
 **Vance, in Wisconsin, Highlights Twin Fights, Against Fraud and Democrats**\
 `The vice president called Democrats “a party that is fighting for fraud,” even as he highlighted the case of a woman who was first indicted under the Biden administration.`\
 https://www.nytimes.com/2026/07/08/us/politics/vance-wisconsin-visit-fraud.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/07/08/us/politics/platner-democrats-maine-state-of-
 `El nuevo generador de imágenes con IA de Meta, la empresa propietaria de WhatsApp y Facebook, incluye un giro inesperado para los usuarios: permite utilizar imágenes de cuentas públicas de Instagram.`\
 https://www.nytimes.com/es/2026/07/08/espanol/negocios/meta-fotos-instagram-ia.html
 
-**I Still Have Hope for America**\
+**Can the United States Hold On?**\
 `Our July 4 bash was troubled, and America may go the way of the Ghaznavid Empire. But here are reasons to be more positive.`\
 https://www.nytimes.com/2026/07/08/opinion/america-250-trump.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.ht
 **License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
 `With Patriot interceptors in short supply, President Trump’s statement that he would allow Ukraine to build them is a boon to Kyiv as it fights off Russian missile attacks. But it is just the start.`\
 https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
-
-**‘Widow’s Bay,’ an Apple TV Breakout Hit, Scores 19 Emmy Nominations**\
-`The Apple TV horror comedy, one of the buzziest shows of the spring, has parlayed that enthusiasm into an Emmys haul, with 19 nominations.`\
-https://www.nytimes.com/2026/07/08/arts/television/widows-bay-apple-emmy-nominations.html
-
-**Hotter Seas in Britain and Europe Threaten Marine Life**\
-`Higher sea temperatures have followed scorching weather across Europe, prompting Britain’s weather service to declare a “severe” marine heat wave.`\
-https://www.nytimes.com/2026/07/08/world/europe/marine-heat-wave-uk.html
 

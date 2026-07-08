@@ -1,3 +1,7 @@
+**Vance, in Wisconsin, Highlights Twin Fights, Against Fraud and Democrats**\
+`The vice president called Democrats “a party that is fighting for fraud,” even as he highlighted the case of a woman who was first indicted under the Biden administration.`\
+https://www.nytimes.com/2026/07/08/us/politics/vance-wisconsin-visit-fraud.html
+
 **Family of Man Killed by ICE Push for Independent Investigation**\
 `Lorenzo Salgado Araujo was shot by an immigration enforcement agent during a traffic stop in Houston on Tuesday. The details of why and how Araujo was shot remain unclear.`\
 https://www.nytimes.com/video/us/100000011019094/houston-ice-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/arts/television/widows-bay-apple-emmy-nominat
 **Hotter Seas in Britain and Europe Threaten Marine Life**\
 `Higher sea temperatures have followed scorching weather across Europe, prompting Britain’s weather service to declare a “severe” marine heat wave.`\
 https://www.nytimes.com/2026/07/08/world/europe/marine-heat-wave-uk.html
-
-**Why ‘Heated Rivalry’ Received No Emmy Nominations While Connor Storrie Did**\
-`Even if voters had wanted to honor the gay hockey drama, which became a hit on HBO Max, they couldn’t have. But the Emmys did recognize one of the stars.`\
-https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominations.html
 

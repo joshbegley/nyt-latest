@@ -1,3 +1,7 @@
+**Vance, in Wisconsin, Highlights Twin Fights, Against Fraud and Democrats**\
+`The vice president called Democrats “a party that is fighting for fraud,” even as he highlighted the case of a woman who was first indicted under the Biden administration.`\
+https://www.nytimes.com/2026/07/08/us/politics/vance-wisconsin-visit-fraud.html
+
 **Conor McGregor Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
 `Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
 https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
