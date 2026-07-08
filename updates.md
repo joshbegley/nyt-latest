@@ -1,3 +1,7 @@
+**A Few Officials Signaled Support for Higher Rates at Warsh’s First Meeting**\
+`Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
+https://www.nytimes.com/2026/07/08/business/no-rate-guidance-in-fed-minutes-as-kevin-warsh-takes-over.html
+
 **Judge Orders $5 Million Trump Judgment Be Released to E. Jean Carroll**\
 `Ms. Carroll had asked a federal judge to order the president to pay the judgment after a jury found he sexually abused and defamed her.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-e-jean-carroll-5-million-payment.html

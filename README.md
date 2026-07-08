@@ -1,3 +1,7 @@
+**Kentucky Gov. Andy Beshear Demands Health Update on Mitch McConnell**\
+`Senator Mitch McConnell has been hospitalized since June 14. Speculation about his health has spread in recent days.`\
+https://www.nytimes.com/2026/07/08/us/beshear-mcconnell-kentucky-health.html
+
 **A Few Officials Signaled Support for Higher Rates at Warsh’s First Meeting**\
 `Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
 https://www.nytimes.com/2026/07/08/business/no-rate-guidance-in-fed-minutes-as-kevin-warsh-takes-over.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
 **My Sister Asked to Crash My Dinner Date With Her Daughter. Help!**\
 `A reader who was looking forward to some one-on-one time with her niece created a headache for herself by mentioning the dinner plans to her sister, who was just as eager to tag along.`\
 https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
-
-**NATO Summit Gives Trump New Chance to Bust Out Old Grievances**\
-`President Trump brought his combative side to the meeting of world leaders in Turkey, kicking off a day of diplomacy with a panoply of complaints and insults against U.S. allies.`\
-https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
 
