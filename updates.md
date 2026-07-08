@@ -1,3 +1,11 @@
+**Charges Against Man Who Drove Family Off Cliff Are Dropped After Treatment**\
+`Three counts of attempted murder against Dharmesh A. Patel were dismissed after he completed a court-ordered mental health program, prosecutors said.`\
+https://www.nytimes.com/2026/07/07/us/california-devils-slide-dad-charges.html
+
+**Haley Stevens Goes on Attack Against Abdul El-Sayed at Michigan Senate Debate**\
+`At their first one-on-one debate in a top Senate race, Representative Haley Stevens accused her progressive rival, Dr. Abdul El-Sayed, of being too focused on publicity as he called her a tool of corporate interests.`\
+https://www.nytimes.com/2026/07/07/us/politics/abdul-el-sayed-haley-stevens-michigan-senate-debate.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000011018239/08vid-iran-embed-14360.html
