@@ -1,3 +1,15 @@
+**Judge Convicted of Obstructing Immigration Agents Faces Fine But No Prison Time**\
+`The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
+https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
+
+**As Erdogan Hosted NATO, His Jailed Challenger Was in Court**\
+`President Recep Tayyip Erdogan basked in praise from President Trump with the spotlight on a NATO summit. At home, his biggest rival defended himself before judges.`\
+https://www.nytimes.com/2026/07/08/world/europe/erdogan-nato-imamoglu-mayor.html
+
+**Emmys Snubs and Surprises 2026: Jon Hamm, ‘Half Man’ and More**\
+`Other unexpected results include nods for Chase Infiniti and the “Love Island USA” host Ariana Madix and a snub for “The Amazing Race.”`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-snubs-surprises.html
+
 **‘Love Story,’ FX’s JFK Jr. Series, Picks Up Fewer Emmy Nods Than Expected**\
 `The FX docudrama about the tragic romance between John F. Kennedy Jr. and Carolyn Bessette received fewer nominations than its competitors.`\
 https://www.nytimes.com/2026/07/08/arts/television/love-story-jfk-jr-emmy-nominations.html
@@ -173,14 +185,6 @@ https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khame
 **Tensions Escalate Between Russia and NATO’s European Members**\
 `Moscow has directed extra hostility toward countries that have strongly supported Ukraine and praise at President Trump.`\
 https://www.nytimes.com/2026/07/08/world/europe/russia-nato-europe-ukraine.html
-
-**Assessing the USMNT’s World Cup Campaign**\
-`What’s next for Pochettino and his players?`\
-https://www.nytimes.com/2026/07/08/podcasts/usmnts-world-cup-campaign-folarin-balogun-football-chants.html
-
-**The Implosion of Graham Platner**\
-`The Democratic nominee for Senate from Maine was accused of sexual assault. Democrats are gearing up to fight over who should replace him.`\
-https://www.nytimes.com/2026/07/08/podcasts/the-daily/graham-platner-maine-sexual-assault-accusation.html
 
 **Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
