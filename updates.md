@@ -1,3 +1,7 @@
+**Le Pen Launches Presidential Campaign, in a Twist for French Politics**\
+`The day after a court decided the far-right leader Marine Le Pen could run for office again, cheers and boos met her campaign kickoff in a rural stronghold.`\
+https://www.nytimes.com/2026/07/08/world/europe/marine-le-pen-presidential-campaign.html
+
 **In San Francisco, Some Home Sellers Now Ask for OpenAI or Anthropic Stock**\
 `Even before OpenAI and Anthropic go public, they are distorting home sales in the San Francisco Bay Area, as people race to buy and sellers ask for stock instead of cash.`\
 https://www.nytimes.com/2026/07/08/technology/san-francisco-home-sales-openai-anthropic-ipo.html
