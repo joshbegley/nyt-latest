@@ -1,3 +1,15 @@
+**Pedigree Dog Food Is Recalled After Being Sold Despite Failing Quality Control**\
+`Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
+https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
+
+**Health Insurance Giants Are Fighting Efforts to Break Them Up**\
+`UnitedHealth Group, CVS Health and Cigna are suing states over new laws targeting their pharmacy businesses.`\
+https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
+
+**Trump Casts Doubt on Iran Cease-Fire After Latest Strikes**\
+`After the latest exchange of attacks between U.S. and Iranian forces, President Trump suggested that the preliminary cease-fire between the warring countries was over.`\
+https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt-on-iran-cease-fire-after-tit-for-tat-strikes.html
+
 **Corrections: July 8, 2026**\
 `Corrections that appeared in print on Wednesday, July 8, 2026.`\
 https://www.nytimes.com/2026/07/08/pageoneplus/corrections-july-8-2026.html
