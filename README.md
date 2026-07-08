@@ -1,3 +1,31 @@
+**The Implosion of Graham Platner**\
+`The Democratic nominee for Senate from Maine was accused of sexual assault. Democrats are gearing up to fight over who should replace him.`\
+https://www.nytimes.com/2026/07/08/podcasts/the-daily/graham-platner-maine-sexual-assault-accusation.html
+
+**Oil Prices Jump as U.S. and Iran Resume Strikes, and Big Tobacco Makes a Big New Bet**\
+`Plus, using drones to watch for sharks.`\
+https://www.nytimes.com/2026/07/08/podcasts/the-headlines/oil-prices-iran-strikes-tobacco.html
+
+**NYT Connections Answers for July 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/08/crosswords/connections-companion-1124.html
+
+**NYT Strands Hints for July 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
+
+**Today's Wordle Hints for July 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/08/crosswords/wordle-review-1846.html
+
+**Live Updates: Status of Damaged Manhattan Building Is Unclear After Crews Work Overnight**\
+`A Midtown high-rise that suffered structural damage was stable for now, New York City’s buildings commissioner said, but he warned of tense days ahead.`\
+https://www.nytimes.com/live/2026/07/08/nyregion/nyc-midtown-building-collapse
+
+**Marine Le Pen’s Return Has Sidelined Her Protégé. Can They Join Forces?**\
+`For months, Jordan Bardella was set to be the French far-right’s candidate for the presidency — until his mentor, Marine Le Pen, nudged him aside this week. Their relationship could define the campaign.`\
+https://www.nytimes.com/2026/07/08/world/france-marine-le-pen-jordan-bardella-national-rally.html
+
 **Denmark Says It Will Defend ‘Every Inch’ of NATO as Trump Eyes Greenland Again**\
 `After President Trump once more said that the island should be under U.S. control, the Danish prime minister, Mette Frederiksen, told reporters, “We will defend the kingdom of Denmark.”`\
 https://www.nytimes.com/2026/07/08/world/europe/us-denmark-greenland-nato-frederiksen.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/video/world/middleeast/100000011018301/iran-war-us-trump
 **Mamdani Promised Faster Buses. Now He Has a Road Map.**\
 `A plan announced by Mayor Zohran Mamdani and Gov. Kathy Hochul lists ambitious steps to speed up New York City buses, which remain some of the slowest in the nation.`\
 https://www.nytimes.com/2026/07/08/nyregion/mamdani-hochul-bus-routes.html
-
-**Word of the Day: pundit**\
-`This word has appeared in 246 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/08/learning/word-of-the-day-pundit.html
-
-**At Chanel, Matthieu Blazy’s Alternative to Ozempic Dressing**\
-`Matthieu Blazy goes beyond the super sucked-in, laced-up styles of the moment. It’s actually not a fairy tale.`\
-https://www.nytimes.com/2026/07/08/style/chanel-couture.html
-
-**EU Rejects Plea to Pause Troubled EES Biometrics System at Airports Ahead of Summer Rush**\
-`E.U. leaders rebuffed a plea from the aviation industry to pause the biometric checkpoints, which have caused long lines and missed flights. Summer travelers beware.`\
-https://www.nytimes.com/2026/07/08/travel/ees-europe-airports-security.html
-
-**Fax and Telegram? New York’s Archaic Requirements Get an A.I. Overhaul.**\
-`Gov. Kathy Hochul will direct state agencies to eliminate or modernize antiquated requirements, and examine if task forces or councils have outlived their purpose.`\
-https://www.nytimes.com/2026/07/08/nyregion/hochul-ai-redtape-rules.html
-
-**Can America’s Best Engine of Social Mobility Weather a Bad Job Market?**\
-`New York City’s public universities propel young graduates into the middle class. But some worry that a bleaker early career job market has added hurdles.`\
-https://www.nytimes.com/2026/07/08/nyregion/college-graduates-job-market.html
-
-**NYT Spelling Bee Answers for July 8, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/08/crosswords/spelling-bee-forum.html
-
-**A Look Back at Trump’s Broadsides Against NATO Allies**\
-`President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
-https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
 

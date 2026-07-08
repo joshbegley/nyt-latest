@@ -1,3 +1,7 @@
+**Denmark Says It Will Defend ‘Every Inch’ of NATO as Trump Eyes Greenland Again**\
+`After President Trump once more said that the island should be under U.S. control, the Danish prime minister, Mette Frederiksen, told reporters, “We will defend the kingdom of Denmark.”`\
+https://www.nytimes.com/2026/07/08/world/europe/us-denmark-greenland-nato-frederiksen.html
+
 **The Alluring Albanian Island Inspiring Ivanka’s Fantasy**\
 `A former military base in the Adriatic Sea, the island is in a beautiful setting but it is strewed with snakes, crumbling buildings and land mines.`\
 https://www.nytimes.com/2026/07/08/world/europe/albania-sazan-island-kushner-ivanka.html
