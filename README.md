@@ -1,11 +1,3 @@
-**Oil Prices Jump After Renewed Strikes in Gulf Put Shipping Recovery at Risk**\
-`Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
-https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
-
-**Mideast Live Updates: Iran Vows ‘Crushing Response’ to U.S. Strikes**\
-`The Pentagon said it had retaliated after what it said were Iranian attacks on ships in the Strait of Hormuz. The Iranian military called the U.S. strikes an “overt act of aggression.”`\
-https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
-
 **EE. UU. ataca a Irán y reactiva sanciones por los ataques a buques**\
 `El Comando Central del ejército estadounidense dijo en redes que habían comenzado una serie de ataques. Las autoridades de Irán no han hecho ningún comentario público.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/iran-ataques-estados-unidos-estrecho-ormuz.html
@@ -197,4 +189,12 @@ https://www.nytimes.com/video/embedded/nyregion/100000011017523/07vid-Bethlehem-
 **U.S. Revokes Iran Oil Sanctions Waiver After Attack on Tankers**\
 `A 60-day exemption allowing the sale of Iranian oil was cut short after three tankers were attacked in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/07/us/politics/iran-oil-sanctions-tankers-attack.html
+
+**What to Know About the ‘Frozen Zone’ in Midtown Manhattan**\
+`A building at risk of partial collapse prompted the city to restrict pedestrian and vehicle traffic in the area. Some buses were diverted or delayed, but subway lines remained uninterrupted.`\
+https://www.nytimes.com/2026/07/07/nyregion/frozen-zone-midtown-manhattan-building-collapse.html
+
+**Restaurant Review: Salt Hank in the West Village**\
+`Salt Hank’s in the West Village quickly became one of the most talked-about sandwiches in the city. Our critic gives it a go.`\
+https://www.nytimes.com/2026/07/07/dining/restaurant-review-salt-hanks.html
 

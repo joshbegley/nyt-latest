@@ -1,3 +1,11 @@
+**Oil Prices Jump After Renewed Strikes in Gulf Put Shipping Recovery at Risk**\
+`Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
+https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
+
+**Mideast Live Updates: Iran Vows ‘Crushing Response’ to U.S. Strikes**\
+`The Pentagon said it had retaliated after what it said were Iranian attacks on ships in the Strait of Hormuz. The Iranian military called the U.S. strikes an “overt act of aggression.”`\
+https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
+
 **EE. UU. ataca a Irán y reactiva sanciones por los ataques a buques**\
 `El Comando Central del ejército estadounidense dijo en redes que habían comenzado una serie de ataques. Las autoridades de Irán no han hecho ningún comentario público.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/iran-ataques-estados-unidos-estrecho-ormuz.html
