@@ -1,3 +1,11 @@
+**Internal File Finds I.C.C. Prosecutor Engaged in Sexual Harassment**\
+`The confidential report will be considered by International Criminal Court members as they vote on whether to remove the top official.`\
+https://www.nytimes.com/2026/07/08/world/europe/internal-file-finds-icc-prosecutor-engaged-in-sexual-harassment.html
+
+**Judge Hannah C. Dugan Faces Fine But No Prison Time**\
+`The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
+https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
+
 **Judge Convicted of Obstructing Immigration Agents Faces Fine But No Prison Time**\
 `The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
 https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
