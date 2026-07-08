@@ -1,3 +1,11 @@
+**Live Updates: New Supports Have Made Building Stable, Mamdani Says**\
+`A Midtown high-rise that suffered structural damage had not moved since Tuesday, Mayor Zohran Mamdani said. The streets around the building were starting to come back to life after a tense day.`\
+https://www.nytimes.com/live/2026/07/08/nyregion/nyc-midtown-building-collapse
+
+**If Platner Exits Senate Race, the Maine Democratic Party Chair Could Help Pick the Nominee**\
+`Charles Dingman, chair of the Maine Democratic Party and a progressive, would play a key role in choosing the state’s Democratic Senate candidate if Graham Platner leaves the race.`\
+https://www.nytimes.com/2026/07/08/us/politics/charlie-dingman-maine-democratic-party-chair.html
+
 **The First 2026 Emmy Nominations Are Announced**\
 `The nominations are being announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html

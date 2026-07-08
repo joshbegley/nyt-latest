@@ -134,8 +134,8 @@ https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
 `Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/08/crosswords/wordle-review-1846.html
 
-**Live Updates: Status of Damaged Manhattan Building Is Unclear After Crews Work Overnight**\
-`A Midtown high-rise that suffered structural damage was stable for now, New York City’s buildings commissioner said, but he warned of tense days ahead.`\
+**Live Updates: New Supports Have Made Building Stable, Mamdani Says**\
+`A Midtown high-rise that suffered structural damage had not moved since Tuesday, Mayor Zohran Mamdani said. The streets around the building were starting to come back to life after a tense day.`\
 https://www.nytimes.com/live/2026/07/08/nyregion/nyc-midtown-building-collapse
 
 **Marine Le Pen’s Return Has Sidelined Her Protégé. Can They Join Forces?**\
@@ -166,7 +166,7 @@ https://www.nytimes.com/es/2026/07/08/espanol/estilos-de-vida/divorcio-judios-or
 `Millions of Iranians descended on Tehran to pay their respects to the slain supreme leader.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iran-khamenei-funeral-photos.html
 
-**The Low-Key Lawyer at the Center of the Search for a Platner Replacement**\
+**If Platner Exits Senate Race, the Maine Democratic Party Chair Could Help Pick the Nominee**\
 `Charles Dingman, chair of the Maine Democratic Party and a progressive, would play a key role in choosing the state’s Democratic Senate candidate if Graham Platner leaves the race.`\
 https://www.nytimes.com/2026/07/08/us/politics/charlie-dingman-maine-democratic-party-chair.html
 
