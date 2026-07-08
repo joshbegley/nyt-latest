@@ -1,3 +1,31 @@
+**Pakistan Launches Search After Cargo Plane Vanishes at Sea**\
+`Five crew members were aboard when the aircraft plunged vertically and went missing over the Arabian Sea, flight data showed.`\
+https://www.nytimes.com/2026/07/08/world/asia/pakistan-cargo-plane-missing-arabian-sea.html
+
+**Why Democrats Would Probably Come Out Ahead if Platner Dropped Out**\
+`Already near the breaking point, he held no special advantage among some key Maine voting groups he was expected to win over.`\
+https://www.nytimes.com/2026/07/08/upshot/platner-maine-election-accusation.html
+
+**La cruzada por el divorcio**\
+`Parte activista, parte influente, Adina Sash hará cualquier cosa para rescatar a las mujeres ortodoxas que considera atrapadas en sus matrimonios.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estilos-de-vida/divorcio-judios-ortodoxos.html
+
+**At Iran’s Funeral for Ayatollah Khamenei, Mourners Bid an Emotional Farewell**\
+`Millions of Iranians descended on Tehran to pay their respects to the slain supreme leader.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iran-khamenei-funeral-photos.html
+
+**The Low-Key Lawyer at the Center of the Search for a Platner Replacement**\
+`Charles Dingman, chair of the Maine Democratic Party and a progressive, would play a key role in choosing the state’s Democratic Senate candidate if Graham Platner leaves the race.`\
+https://www.nytimes.com/2026/07/08/us/politics/charlie-dingman-maine-democratic-party-chair.html
+
+**Tomarte unas vacaciones sin tu pareja puede ser positivo**\
+`Algunas personas consideran que es una señal de alarma si alguien viaja sin su media naranja. Otras lo ven como una práctica saludable que permite el autodescubrimiento.`\
+https://www.nytimes.com/es/2026/07/08/espanol/vacaciones-sin-pareja.html
+
+**‘The Hole’: Urban Apocalypse as Tuneful Chamber Drama**\
+`Tsai Ming-liang’s 1990s doomsday film gets its first theatrical run with a new 35 mm print at both Film Society at Lincoln Center and Metrograph.`\
+https://www.nytimes.com/2026/07/08/movies/the-hole-lincoln-center.html
+
 **Money Makes the City Go Round**\
 `In a time of economic stress, some young people are rethinking their political outlook. Others are still doing well.`\
 https://www.nytimes.com/2026/07/08/nyregion/plumber-overtime-money-nyc.html
@@ -30,7 +58,7 @@ https://www.nytimes.com/interactive/2026/07/08/opinion/focus-group-black-democra
 `The world’s most global game produces some of its strongest feelings of national belonging.`\
 https://www.nytimes.com/2026/07/08/opinion/world-cup-trump-us.html
 
-**Zelensky Renews Demands for Defense Systems Ahead of Trump Meeting**\
+**Zelensky Renews Demands for Defense Systems Ahead of Trump Meeting at NATO Summit**\
 `President Volodymyr Zelensky of Ukraine is urging European states to sell him Patriot missiles to defend against Russian attacks and has asked President Trump to let Ukraine make the Patriot systems.`\
 https://www.nytimes.com/2026/07/08/world/europe/ukraine-nato-zelensky-trump.html
 
@@ -158,39 +186,11 @@ https://www.nytimes.com/2026/07/08/crosswords/spelling-bee-forum.html
 `President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
 
-**Live Updates: NATO Leaders Meet at Pivotal Moment for Alliance**\
-`At a summit in Turkey, President Trump is pushing for a smaller role for the United States and for allies to do more for their own defense against an aggressive, militarized Russia.`\
+**Live Updates: Trump Lashes Out at Europe at NATO Summit**\
+`President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
 **Late Night Calls a Foul on Trump After His World Cup Intervention**\
 `President Trump may not have known what a red card in soccer is, Ronny Chieng said: “But you know what he did know? How to get a guy a pardon.”`\
 https://www.nytimes.com/2026/07/08/arts/television/late-night-trump-world-cup.html
-
-**Frutos rojos todo el año: lo que hace Driscoll’s**\
-`Este gigante californiano ha contribuido a convertir una delicia local y de temporada en un producto imprescindible en las neveras de todo el mundo y en un fenómeno de mercadotecnia.`\
-https://www.nytimes.com/es/2026/07/08/espanol/negocios/fresas-frambuesas-driscolls.html
-
-**We Are Losing the Ability to Discover What We Didn’t Know to Ask**\
-`What used to be a meandering journey is now an immediate arrival at your destination.`\
-https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
-
-**Oil Prices Jump After U.S. and Iran Trade Strikes in Persian Gulf**\
-`Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
-https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
-
-**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
-`‘I think it’s over,’ President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
-https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
-
-**EE. UU. ataca a Irán y reactiva sanciones por los ataques a buques**\
-`El Comando Central del ejército estadounidense dijo en redes que habían comenzado una serie de ataques. Las autoridades de Irán no han hecho ningún comentario público.`\
-https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/iran-ataques-estados-unidos-estrecho-ormuz.html
-
-**Germans Don’t Love Budweiser. It Won’t Take No for an Answer.**\
-`Not for the first time, Budweiser is trying to make it in Germany. But this is a tough time to sell German drinkers on the image and taste of American beer.`\
-https://www.nytimes.com/2026/07/08/world/europe/germany-budweiser-beer.html
-
-**Una llamada de Trump a la FIFA convierte el Mundial en otro frente político**\
-`La acción del mandatario de EE. UU. deja claro que todavía no ha encontrado ningún ámbito de la vida estadounidense, ni siquiera mundial, en el que no esté dispuesto a imponer su voluntad.`\
-https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/trump-mundial-fifa.html
 
