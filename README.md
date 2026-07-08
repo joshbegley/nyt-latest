@@ -1,3 +1,7 @@
+**Heartbreak and Anger in Egypt Over a Stinging World Cup Loss to Argentina**\
+`After watching Egypt lead for almost the entire match, a last-minute victory by Argentina has driven fans to tears and conspiracy theories.`\
+https://www.nytimes.com/2026/07/08/world/africa/egypt-argentina-goal-referee-conspiracy.html
+
 **William D. Zabel, High-Flying Lawyer and Civil Rights Champion, Dies at 89**\
 `He brokered celebrity divorces and recovered billions for victims of Bernie Madoff’s Ponzi scheme. But he was proudest of helping to legalize interracial marriage.`\
 https://www.nytimes.com/2026/07/08/business/william-zabel-dead.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral
 `The rocket company founded by Jeff Bezos is set to take on external investors for the first time, at a $130 billion valuation.`\
 https://www.nytimes.com/2026/07/08/business/dealbook/bezos-funding-blue-origin.html
 
-**Trump Assails NATO Allies Over Iran and Greenland**\
-`President Trump blasted the United States’ allies at the NATO summit in Turkey for not joining the war in Iran and for not supporting his desire to control Greenland.`\
-https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-iran.html
-
-**Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
+**Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
