@@ -1,3 +1,7 @@
+**Health Insurance Giants Are Fighting Efforts to Break Them Up**\
+`UnitedHealth Group, CVS Health and Cigna are suing states over new laws targeting their pharmacy businesses.`\
+https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
+
 **Corrections: July 8, 2026**\
 `Corrections that appeared in print on Wednesday, July 8, 2026.`\
 https://www.nytimes.com/2026/07/08/pageoneplus/corrections-july-8-2026.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/realestate/a-third-of-young-adults-still-live
 **For Rebels in Congo, Ebola Could Help Strengthen Their Rule**\
 `A violent militia that controls large swaths of Congolese territory in the east may use the virus to try to bolster its authority.`\
 https://www.nytimes.com/2026/07/08/world/africa/ebola-congo-m23-rebels.html
-
-**The Unknown Universe Inside Your Gut**\
-`The human microbiome is essential to our health, but scientists have only begun to understand why. Two researchers set out to map this largely uncharted terrain.`\
-https://www.nytimes.com/2026/07/08/magazine/microbiome-gut-health.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\

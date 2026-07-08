@@ -1,3 +1,7 @@
+**Corrections: July 8, 2026**\
+`Corrections that appeared in print on Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/08/pageoneplus/corrections-july-8-2026.html
+
 **Trump Lashes Out at Spain: ‘Cut Off All Trade.’ Here’s Why That’s Unlikely.**\
 `A move against Spain would face political, legal and practical issues and probably provoke a wider trade war with the European Union. It could also roil markets.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-spain-trade-us-iran-nato.html

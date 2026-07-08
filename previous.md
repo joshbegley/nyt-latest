@@ -1,3 +1,7 @@
+**Corrections: July 8, 2026**\
+`Corrections that appeared in print on Wednesday, July 8, 2026.`\
+https://www.nytimes.com/2026/07/08/pageoneplus/corrections-july-8-2026.html
+
 **Trump Lashes Out at Spain: ‘Cut Off All Trade.’ Here’s Why That’s Unlikely.**\
 `A move against Spain would face political, legal and practical issues and probably provoke a wider trade war with the European Union. It could also roil markets.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-spain-trade-us-iran-nato.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/world/africa/ebola-congo-m23-rebels.html
 **The Unknown Universe Inside Your Gut**\
 `The human microbiome is essential to our health, but scientists have only begun to understand why. Two researchers set out to map this largely uncharted terrain.`\
 https://www.nytimes.com/2026/07/08/magazine/microbiome-gut-health.html
-
-**How U.S. Satellite Imagery Restrictions Are Changing How We Report on Iran**\
-`U.S. satellite image limitations have hampered journalists covering the Iran war. But other sources are offering workarounds, making it harder for militaries to conceal their actions.`\
-https://www.nytimes.com/2026/07/08/insider/iran-war-satellite-image-restrictions.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
