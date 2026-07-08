@@ -1,3 +1,7 @@
+**Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
+`The rocket company founded by Jeff Bezos is set to take on external investors for the first time, at a $130 billion valuation.`\
+https://www.nytimes.com/2026/07/08/business/dealbook/bezos-funding-blue-origin.html
+
 **Trump Assails NATO Allies Over Iran and Greenland**\
 `President Trump blasted the United States’ allies at the NATO summit in Turkey for not joining the war in Iran and for not supporting his desire to control Greenland.`\
 https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-iran.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/arts/television/little-house-on-the-prairie-n
 **Which Country Has the Best-Dressed World Cup Fans?**\
 `At World Cup matches featuring teams from five continents, our photographer captured fans, flags, fringe, face paint and at least one horned helmet.`\
 https://www.nytimes.com/2026/07/08/style/world-cup-fans-fashion-best-dressed.html
-
-**As Parents Reject Vitamin K Shots, Some Babies Develop Devastating Bleeding**\
-`Doctors described treating brain and abdominal hemorrhages in infants who hadn’t received the routine injection. Several said the images of those patients were seared in their minds.`\
-https://www.nytimes.com/2026/07/08/well/live/vitamin-k-shot-bleeding-newborn.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
