@@ -1,3 +1,7 @@
+**Midtown Neighborhood Has to Cope in a Troubled Building’s Shadow**\
+`Travelers were shut out of major hotels, and work ground to a halt for some on Tuesday after a building partially buckled in Manhattan.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-building-east-42nd.html
+
 **A Look Back at Trump’s Broadsides Against NATO Allies**\
 `President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
