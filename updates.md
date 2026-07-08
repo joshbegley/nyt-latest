@@ -1,3 +1,15 @@
+**Global Warming Could Ravage the Amazon’s Useful Plant Species, Study Finds**\
+`Hotter temperatures and harsher droughts could cause Indigenous societies to lose many of the species they have used for medicine, rituals and more, scientists found.`\
+https://www.nytimes.com/2026/07/08/climate/amazon-indigenous-plants-climate-change.html
+
+**You Oughta Piccata**\
+`More specifically, you ought to make Ali Slagle’s chicken piccata, a fast, five-star recipe with over 14,000 reviews.`\
+https://www.nytimes.com/2026/07/08/dining/you-oughta-piccata.html
+
+**At End of NATO Summit,  Leaders Find Much to Agree on Despite Trump’s Insults**\
+`The alliance restated its commitment to collective defense and reiterated its support for Ukraine.`\
+https://www.nytimes.com/2026/07/08/world/europe/nato-summit-trump-declaration.html
+
 **NATO leaders find much to agree on despite Trump’s insults.**\
 `(No description)`\
 https://www.nytimes.com/2026/07/08/world/europe/nato-leaders-find-much-to-agree-on-despite-trumps-insults.html
