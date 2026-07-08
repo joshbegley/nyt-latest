@@ -1,3 +1,7 @@
+**At Warsh’s First Fed Meeting, Some Officials Signaled Support for Raising Interest Rates**\
+`Minutes from Kevin M. Warsh’s first meeting as chairman showed heightened unease about inflation, which is running at a three-year high.`\
+https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html
+
 **What We Know About Immigration Officers Shooting at People in Vehicles**\
 `Federal agents have fired on at least 21 people, many in their cars, as part of President Trump’s deportation crackdown. At least five people were killed, including three U.S. citizens.`\
 https://www.nytimes.com/2026/07/08/us/immigration-agent-shootings-vehicles.html
