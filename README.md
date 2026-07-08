@@ -1,4 +1,4 @@
-**Judge Convicted of Obstructing Immigration Agents Faces Fine But No Prison Time**\
+**Judge Hannah C. Dugan Faces Fine But No Prison Time**\
 `The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
 https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
 

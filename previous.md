@@ -1,3 +1,27 @@
+**Judge Convicted of Obstructing Immigration Agents Faces Fine But No Prison Time**\
+`The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
+https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
+
+**As Erdogan Hosted NATO, His Jailed Challenger Was in Court**\
+`President Recep Tayyip Erdogan basked in praise from President Trump with the spotlight on a NATO summit. At home, his biggest rival defended himself before judges.`\
+https://www.nytimes.com/2026/07/08/world/europe/erdogan-nato-imamoglu-mayor.html
+
+**Emmys Snubs and Surprises 2026: Jon Hamm, ‘Half Man’ and More**\
+`Other unexpected results include nods for Chase Infiniti and the “Love Island USA” host Ariana Madix and a snub for “The Amazing Race.”`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-snubs-surprises.html
+
+**‘Love Story,’ FX’s JFK Jr. Series, Picks Up Fewer Emmy Nods Than Expected**\
+`The FX docudrama about the tragic romance between John F. Kennedy Jr. and Carolyn Bessette received fewer nominations than its competitors.`\
+https://www.nytimes.com/2026/07/08/arts/television/love-story-jfk-jr-emmy-nominations.html
+
+**Trump’s Name Must Remain Off Kennedy Center For Now, Appeals Court Rules**\
+`The Trump administration is challenging a federal judge’s ruling that only Congress has the power to rebrand the Washington arts institution.`\
+https://www.nytimes.com/2026/07/08/arts/music/trump-kennedy-center-name-appeal.html
+
+**How Did the Democrats Get Graham Platner, Anyway?**\
+`Readers react to the implosion of Mr. Platner’s campaign for the Senate from Maine. Also: President Trump and one man’s happiness.`\
+https://www.nytimes.com/2026/07/08/opinion/graham-platner-maine-senate.html
+
 **Spread of Seafloor Directly Observed for the First Time**\
 `The spread of the ocean floor, as tectonic plates spread apart, is known but hard to observe. Scientists have now documented the process in action.`\
 https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
@@ -161,26 +185,6 @@ https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khame
 **Tensions Escalate Between Russia and NATO’s European Members**\
 `Moscow has directed extra hostility toward countries that have strongly supported Ukraine and praise at President Trump.`\
 https://www.nytimes.com/2026/07/08/world/europe/russia-nato-europe-ukraine.html
-
-**Assessing the USMNT’s World Cup Campaign**\
-`What’s next for Pochettino and his players?`\
-https://www.nytimes.com/2026/07/08/podcasts/usmnts-world-cup-campaign-folarin-balogun-football-chants.html
-
-**The Implosion of Graham Platner**\
-`The Democratic nominee for Senate from Maine was accused of sexual assault. Democrats are gearing up to fight over who should replace him.`\
-https://www.nytimes.com/2026/07/08/podcasts/the-daily/graham-platner-maine-sexual-assault-accusation.html
-
-**Oil Prices Jump as U.S. and Iran Resume Strikes, and Big Tobacco Makes a Big New Bet**\
-`Plus, using drones to watch for sharks.`\
-https://www.nytimes.com/2026/07/08/podcasts/the-headlines/oil-prices-iran-strikes-tobacco.html
-
-**NYT Connections Answers for July 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
-https://www.nytimes.com/2026/07/08/crosswords/connections-companion-1124.html
-
-**NYT Strands Hints for July 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
-https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
 
 **Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\

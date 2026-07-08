@@ -1,3 +1,27 @@
+**Judge Convicted of Obstructing Immigration Agents Faces Fine But No Prison Time**\
+`The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
+https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
+
+**As Erdogan Hosted NATO, His Jailed Challenger Was in Court**\
+`President Recep Tayyip Erdogan basked in praise from President Trump with the spotlight on a NATO summit. At home, his biggest rival defended himself before judges.`\
+https://www.nytimes.com/2026/07/08/world/europe/erdogan-nato-imamoglu-mayor.html
+
+**Emmys Snubs and Surprises 2026: Jon Hamm, ‘Half Man’ and More**\
+`Other unexpected results include nods for Chase Infiniti and the “Love Island USA” host Ariana Madix and a snub for “The Amazing Race.”`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-snubs-surprises.html
+
+**‘Love Story,’ FX’s JFK Jr. Series, Picks Up Fewer Emmy Nods Than Expected**\
+`The FX docudrama about the tragic romance between John F. Kennedy Jr. and Carolyn Bessette received fewer nominations than its competitors.`\
+https://www.nytimes.com/2026/07/08/arts/television/love-story-jfk-jr-emmy-nominations.html
+
+**Trump’s Name Must Remain Off Kennedy Center For Now, Appeals Court Rules**\
+`The Trump administration is challenging a federal judge’s ruling that only Congress has the power to rebrand the Washington arts institution.`\
+https://www.nytimes.com/2026/07/08/arts/music/trump-kennedy-center-name-appeal.html
+
+**How Did the Democrats Get Graham Platner, Anyway?**\
+`Readers react to the implosion of Mr. Platner’s campaign for the Senate from Maine. Also: President Trump and one man’s happiness.`\
+https://www.nytimes.com/2026/07/08/opinion/graham-platner-maine-senate.html
+
 **Spread of Seafloor Directly Observed for the First Time**\
 `The spread of the ocean floor, as tectonic plates spread apart, is known but hard to observe. Scientists have now documented the process in action.`\
 https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
