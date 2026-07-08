@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/07/07/us/florida-stop-woke-law-appeals-court.html
 `Prosecutors questioned the lead investigator about Tyler Robinson’s interactions with members of Charlie Kirk’s Turning Point USA during the second day of a preliminary hearing.`\
 https://www.nytimes.com/video/us/100000011017023/charlie-kirk-tyler-robinson-hearing.html
 
-**A Neighborhood Has to Cope as a Midtown Building Remains Unstable**\
+**Midtown Neighborhood Has to Cope in a Troubled Building’s Shadow**\
 `Travelers were shut out of major hotels, and work ground to a halt for some on Tuesday after a building partially buckled in Manhattan.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-building-east-42nd.html
 
