@@ -1,3 +1,15 @@
+**Air Canada Chooses a C.E.O. Who Speaks French After Language Backlash**\
+`Michael Rousseau, who prompted widespread criticism with a largely English condolence video following a crash in March, will retire.`\
+https://www.nytimes.com/2026/07/08/world/canada/air-canada-ceo-french-backlash-crash.html
+
+**‘Corten todo el comercio’: Trump amenaza a España**\
+`Pero es poco probable que suceda: una medida contra España enfrentaría obstáculos políticos, legales y prácticos, y provocaría una guerra comercial más amplia con la Unión Europea.`\
+https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-espana-comercio.html
+
+**Pakistan Finds Wreckage of Cargo Plane That Vanished at Sea Overnight**\
+`Pakistan’s Navy is still searching for missing crew members after the aircraft plunged vertically and went missing over the Arabian Sea, aviation authorities said.`\
+https://www.nytimes.com/2026/07/08/world/asia/pakistan-cargo-plane-missing-arabian-sea.html
+
 **Global Warming Could Ravage the Amazon’s Useful Plant Species, Study Finds**\
 `Hotter temperatures and harsher droughts could cause Indigenous societies to lose many of the species they have used for medicine, rituals and more, scientists found.`\
 https://www.nytimes.com/2026/07/08/climate/amazon-indigenous-plants-climate-change.html

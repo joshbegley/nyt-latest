@@ -1,3 +1,11 @@
+**Air Canada Chooses a C.E.O. Who Speaks French After Language Backlash**\
+`Michael Rousseau, who prompted widespread criticism with a largely English condolence video following a crash in March, will retire.`\
+https://www.nytimes.com/2026/07/08/world/canada/air-canada-ceo-french-backlash-crash.html
+
+**‘Corten todo el comercio’: Trump amenaza a España**\
+`Pero es poco probable que suceda: una medida contra España enfrentaría obstáculos políticos, legales y prácticos, y provocaría una guerra comercial más amplia con la Unión Europea.`\
+https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-espana-comercio.html
+
 **Global Warming Could Ravage the Amazon’s Useful Plant Species, Study Finds**\
 `Hotter temperatures and harsher droughts could cause Indigenous societies to lose many of the species they have used for medicine, rituals and more, scientists found.`\
 https://www.nytimes.com/2026/07/08/climate/amazon-indigenous-plants-climate-change.html
@@ -138,8 +146,8 @@ https://www.nytimes.com/2026/07/08/world/europe/us-denmark-greenland-nato-freder
 `A former military base in the Adriatic Sea, the island is in a beautiful setting but it is strewed with snakes, crumbling buildings and land mines.`\
 https://www.nytimes.com/2026/07/08/world/europe/albania-sazan-island-kushner-ivanka.html
 
-**Pakistan Launches Search After Cargo Plane Vanishes at Sea**\
-`Five crew members were aboard when the aircraft plunged vertically and went missing over the Arabian Sea, flight data showed.`\
+**Pakistan Finds Wreckage of Cargo Plane That Vanished at Sea Overnight**\
+`Pakistan’s Navy is still searching for missing crew members after the aircraft plunged vertically and went missing over the Arabian Sea, aviation authorities said.`\
 https://www.nytimes.com/2026/07/08/world/asia/pakistan-cargo-plane-missing-arabian-sea.html
 
 **Why Democrats Would Probably Come Out Ahead if Platner Dropped Out**\
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/07/08/nyregion/plumber-overtime-money-nyc.html
 **In Some U.K. Hospitals, the T.L.C. Includes a Movie Theater**\
 `A British nonprofit helps patients escape the stress and boredom of ward life by watching the latest blockbusters.`\
 https://www.nytimes.com/2026/07/08/movies/uk-hospitals-medicinema-movies.html
-
-**How ‘Little House’ Welcomes Native Neighbors**\
-`The real Ingalls family built their “little house on the prairie” on Osage land and evinced racist attitudes. A new TV adaptation tries to reckon with this while preserving the story’s heart.`\
-https://www.nytimes.com/2026/07/08/arts/television/how-little-house-welcomes-native-neighbors.html
-
-**How Therapist Esther Perel Helped Olivia Wilde Perfect the Sexual Dynamics in ‘The Invite’**\
-`The psychotherapist helped Olivia Wilde and her cast ground the antics of their relationship comedy in the reality of clinical practice.`\
-https://www.nytimes.com/2026/07/08/movies/the-invite-esther-perel-olivia-wilde.html
 
 **Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
