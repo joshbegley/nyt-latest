@@ -1,3 +1,19 @@
+**As Progressives Rack Up Wins, Hakeem Jeffries Shrugs Off Possible Challenges**\
+`In a wide-ranging interview with The New York Times, Hakeem Jeffries, the House Democratic leader, said he didn’t consider the recent wave of anti-establishment victories “an overall critique of the party.”`\
+https://www.nytimes.com/2026/07/08/us/politics/hakeem-jeffries-house-democrats-midterms.html
+
+**California Orders Thousands of Drivers to Retake Rules of the Road Test**\
+`The state’s Department of Motor Vehicles said that it had discovered irregularities in exam results of knowledge tests. It did not specify what they were.`\
+https://www.nytimes.com/2026/07/08/us/california-drivers-licenses-written-exam.html
+
+**How to Prevent Meta From Using Your Instagram Images in A.I.**\
+`The company’s new A.I. image generator has a surprising twist: It allows people to use images from public Instagram accounts.`\
+https://www.nytimes.com/2026/07/08/technology/meta-instagram-ai.html
+
+**Justin Bieber and Burna Boy Join Inaugural World Cup Halftime Show**\
+`The artists will perform with Madonna, Shakira and BTS in the first-ever halftime show for a World Cup final. The aim is to replicate the cultural sway of the Super Bowl.`\
+https://www.nytimes.com/2026/07/08/arts/music/justin-bieber-burna-boy-world-cup-halftime-show.html
+
 **Tomato Basil Chicken Breasts**\
 `This chicken recipe, linked below, takes a cue from piccata then heads in a decidedly summery direction: A quick pan sauce of butter, shallots, tomatoes, capers and a splash of red wine vinegar turns rich, juicy and bright — just the thing to spoon over the top.`\
 https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breasts.html

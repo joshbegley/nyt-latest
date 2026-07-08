@@ -1,3 +1,15 @@
+**As Progressives Rack Up Wins, Hakeem Jeffries Shrugs Off Possible Challenges**\
+`In a wide-ranging interview with The New York Times, Hakeem Jeffries, the House Democratic leader, said he didn’t consider the recent wave of anti-establishment victories “an overall critique of the party.”`\
+https://www.nytimes.com/2026/07/08/us/politics/hakeem-jeffries-house-democrats-midterms.html
+
+**California Orders Thousands of Drivers to Retake Rules of the Road Test**\
+`The state’s Department of Motor Vehicles said that it had discovered irregularities in exam results of knowledge tests. It did not specify what they were.`\
+https://www.nytimes.com/2026/07/08/us/california-drivers-licenses-written-exam.html
+
+**How to Prevent Meta From Using Your Instagram Images in A.I.**\
+`The company’s new A.I. image generator has a surprising twist: It allows people to use images from public Instagram accounts.`\
+https://www.nytimes.com/2026/07/08/technology/meta-instagram-ai.html
+
 **Tomato Basil Chicken Breasts**\
 `This chicken recipe, linked below, takes a cue from piccata then heads in a decidedly summery direction: A quick pan sauce of butter, shallots, tomatoes, capers and a splash of red wine vinegar turns rich, juicy and bright — just the thing to spoon over the top.`\
 https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breasts.html
@@ -9,6 +21,10 @@ https://www.nytimes.com/es/2026/07/08/espanol/opinion/jd-vance-trump-libro-igles
 **Taylor Swift and Reality TV Shows Like ‘Summer House’ Earn Emmy Nods**\
 `Nominations for unscripted programs recognized a certain newlywed and the scandalous reality hit of the spring.`\
 https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys.html
+
+**Justin Bieber and Burna Boy Join Inaugural World Cup Halftime Show**\
+`The artists will perform with Madonna, Shakira and BTS in the first-ever halftime show for a World Cup final. The aim is to replicate the cultural sway of the Super Bowl.`\
+https://www.nytimes.com/2026/07/08/arts/music/justin-bieber-burna-boy-world-cup-halftime-show.html
 
 **Maybe Anthropic and OpenAI Are Not the Future of Artificial Intelligence**\
 `Did we make the wrong bet on ‘Big A.I.’?`\
@@ -177,20 +193,4 @@ https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/agente-ice-mata-mex
 **Farage’s Resignation Risks Becoming Farce as U.K. Parties Boycott Clacton By-Election**\
 `Under investigation over an undisclosed gift, the right-wing leader Nigel Farage may end up in a special election against a candidate dressed as a trash can.`\
 https://www.nytimes.com/2026/07/08/world/europe/uk-nigel-farage-resigns-clacton-election.html
-
-**‘It’s Time for Celebrities to Step Up’**\
-`If activists are speaking up, why aren’t celebrities? According to Molly Jong-Fast, there’s value to performative politics. Especially when they dominate the algorithm.`\
-https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-to-step-up.html
-
-**Recall Issued for Pedigree Dog Food Sold Despite Failing Quality Control**\
-`Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
-https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
-
-**Lawmakers Target the Power of Health Insurance Giants**\
-`UnitedHealth Group, CVS Health and Cigna are battling efforts to break up their control over prescription drugs.`\
-https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
-
-**World Cup Updates: In Egypt, a Last-Minute Loss Brings Heartbreak and Anger**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
