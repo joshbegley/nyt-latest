@@ -1,3 +1,7 @@
+**Top Maine Democrat Says Platner Will Have ‘No Role’ in Picking Next Nominee**\
+`A top state party official said that Graham Platner’s team had “repeatedly” tried to “put their thumb on the scale,” but he would not influence how the party chose a new Senate candidate.`\
+https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate-democrats.html
+
 **Midtown Building Developer Says Problems Were a ‘Typical Construction Mishap’**\
 `Nathan Berman, one of the developers of the Midtown building that suffered structural damage, predicted the project would restart within weeks.`\
 https://www.nytimes.com/2026/07/07/nyregion/developer-midtown-manhattan-building.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/interactive/2026/07/07/espanol/terremoto-costa-rica.h
 **Map: 5.3-Magnitude Earthquake Shakes Costa Rica**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/07/world/quake-tracker-costa-rica.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/100000011017183/07-vid-emergency-responders.html
 
