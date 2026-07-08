@@ -1,3 +1,19 @@
+**¿Por qué China lanzó un misil de largo alcance al Pacífico?**\
+`Según algunos expertos, la prueba indica que China está ampliando sus ambiciones nucleares y dejando de lado sus reticencias a probar misiles en los cielos y océanos internacionales.`\
+https://www.nytimes.com/es/2026/07/08/espanol/mundo/china-misil-prueba-armas-nucleares.html
+
+**At the Ayatollah’s Funeral**\
+`A Times reporter in Iran said the events “surpassed anything I’ve ever witnessed.”`\
+https://www.nytimes.com/2026/07/08/world/ali-khamenei-funeral-iran-strikes.html
+
+**How to Stay Safe From the Severe Stomach Bug That’s Going Around**\
+`Cyclospora, a parasite that causes intestinal illness, is sickening many people across the United States. Health experts have tips for avoiding infection.`\
+https://www.nytimes.com/2026/07/08/well/eat/cyclopspora-prevention-methods.html
+
+**Democrats Grow Frustrated as Graham Platner Resists Dropping Out Quickly in Maine**\
+`Two days after a woman accused Graham Platner of rape, he had not given up his nomination for Senate in Maine, raising worries about whether and how his party might find a replacement.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-democrats-reaction-frustration.html
+
 **Trump Grants Zelensky License to Build Patriot Systems**\
 `President Volodymyr Zelensky of Ukraine has repeatedly asked Western allies for more of the Patriot interceptors and for the United States to let Ukraine manufacture them.`\
 https://www.nytimes.com/video/world/europe/100000011018901/ukraine-russia-us-trump-zelensky-putin-nato.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-espana-comercio.html
 **Global Warming Could Ravage the Amazon’s Useful Plant Species, Study Finds**\
 `Hotter temperatures and harsher droughts could cause Indigenous societies to lose many of the species they have used for medicine, rituals and more, scientists found.`\
 https://www.nytimes.com/2026/07/08/climate/amazon-indigenous-plants-climate-change.html
-
-**You Oughta Piccata**\
-`More specifically, you ought to make Ali Slagle’s chicken piccata, a fast, five-star recipe with over 14,000 reviews.`\
-https://www.nytimes.com/2026/07/08/dining/you-oughta-piccata.html
-
-**Le Pen Launches Presidential Campaign, in a Twist for French Politics**\
-`The day after a court decided the far-right leader Marine Le Pen could run for office again, cheers and boos met her campaign kickoff in a rural stronghold.`\
-https://www.nytimes.com/2026/07/08/world/europe/marine-le-pen-presidential-campaign.html
-
-**At End of NATO Summit,  Leaders Find Much to Agree on Despite Trump’s Insults**\
-`The alliance restated its commitment to collective defense and reiterated its support for Ukraine.`\
-https://www.nytimes.com/2026/07/08/world/europe/nato-summit-trump-declaration.html
-
-**In San Francisco, Some Home Sellers Now Ask for OpenAI or Anthropic Stock**\
-`Even before OpenAI and Anthropic go public, they are distorting home sales in the San Francisco Bay Area, as people race to buy and sellers ask for stock instead of cash.`\
-https://www.nytimes.com/2026/07/08/technology/san-francisco-home-sales-openai-anthropic-ipo.html
 
