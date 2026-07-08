@@ -1,3 +1,7 @@
+**How to Prevent Meta From Using Your Instagram Images in A.I.**\
+`The company’s new A.I. image generator has a surprising twist: It allows people to use images from public Instagram accounts.`\
+https://www.nytimes.com/2026/07/08/technology/meta-instagram-ai.html
+
 **Tomato Basil Chicken Breasts**\
 `This chicken recipe, linked below, takes a cue from piccata then heads in a decidedly summery direction: A quick pan sauce of butter, shallots, tomatoes, capers and a splash of red wine vinegar turns rich, juicy and bright — just the thing to spoon over the top.`\
 https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breasts.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-t
 **Recall Issued for Pedigree Dog Food Sold Despite Failing Quality Control**\
 `Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
 https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
-
-**Lawmakers Target the Power of Health Insurance Giants**\
-`UnitedHealth Group, CVS Health and Cigna are battling efforts to break up their control over prescription drugs.`\
-https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
 
 **World Cup Updates: In Egypt, a Last-Minute Loss Brings Heartbreak and Anger**\
 `(No description)`\
