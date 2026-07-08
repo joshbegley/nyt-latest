@@ -1,3 +1,11 @@
+**A checkup on the nation’s health care coverage**\
+`How many Americans lack health insurance?`\
+https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
+
+**Tiny Love Stories: ‘Why Aren’t You Having Sex Anymore?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/08/style/tiny-modern-love-stories-why-arent-you-having-sex-anymore.html
+
 **Lo que hay que saber del edificio en Manhattan que generó alarma**\
 `El rascacielos de la calle 42 Este, la antigua sede de Pfizer, estaba en reformas para convertirlo en apartamentos.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-colapso.html

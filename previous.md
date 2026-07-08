@@ -1,3 +1,11 @@
+**A checkup on the nation’s health care coverage**\
+`How many Americans lack health insurance?`\
+https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
+
+**Tiny Love Stories: ‘Why Aren’t You Having Sex Anymore?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/08/style/tiny-modern-love-stories-why-arent-you-having-sex-anymore.html
+
 **Lo que hay que saber del edificio en Manhattan que generó alarma**\
 `El rascacielos de la calle 42 Este, la antigua sede de Pfizer, estaba en reformas para convertirlo en apartamentos.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-colapso.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
 **Today's Wordle Hints for July 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/08/crosswords/wordle-review-1846.html
-
-**Live Updates: New Supports Have Made Building Stable, Mamdani Says**\
-`A Midtown high-rise that suffered structural damage had not moved since Tuesday, Mayor Zohran Mamdani said. The streets around the building were starting to come back to life after a tense day.`\
-https://www.nytimes.com/live/2026/07/08/nyregion/nyc-midtown-building-collapse
-
-**Marine Le Pen’s Return Has Sidelined Her Protégé. Can They Join Forces?**\
-`For months, Jordan Bardella was set to be the French far-right’s candidate for the presidency — until his mentor, Marine Le Pen, nudged him aside this week. Their relationship could define the campaign.`\
-https://www.nytimes.com/2026/07/08/world/france-marine-le-pen-jordan-bardella-national-rally.html
 
 **Live Updates: Trump Speaks After Lashing Out at NATO Summit**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\

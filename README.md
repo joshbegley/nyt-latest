@@ -1,4 +1,4 @@
-**A checkup on the nation’s health care coverage**\
+**A Checkup on the Nation’s Health Care Coverage**\
 `How many Americans lack health insurance?`\
 https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
 
@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-watch-stream.ht
 `Oil prices are likely to remain volatile as long as the United States and Iran are unable to resolve the status of the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-prices.html
 
-**Navy Identifies Sailor Lost in Arabian Sea Helicopter Crash**\
+**Navy Identifies Crew Member Lost in Arabian Sea Helicopter Crash**\
 `Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
 https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
 
