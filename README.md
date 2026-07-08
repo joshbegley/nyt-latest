@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/07/08/world/ali-khamenei-funeral-iran-strikes.html
 https://www.nytimes.com/2026/07/08/well/eat/cyclopspora-stomach-bug-prevention.html
 
 **Democrats Grow Frustrated as Graham Platner Resists Dropping Out Quickly in Maine**\
-`Two days after a woman accused Graham Platner of rape, he had not given up his nomination for Senate in Maine, raising worries about whether and how his party might find a replacement.`\
+`Two days after a woman accused Graham Platner of rape, he had not given up his Senate nomination in Maine, even as state Democrats announced plans to hold a nominating convention if he steps down.`\
 https://www.nytimes.com/2026/07/08/us/politics/graham-platner-democrats-reaction-frustration.html
 
 **Trump Grants Zelensky License to Build Patriot Systems**\
