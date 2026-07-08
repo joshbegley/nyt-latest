@@ -1,3 +1,7 @@
+**U.S. Begins Second Day of Strikes Against Iran**\
+`President Trump said earlier that a cease-fire was over and warned that the United States would probably hit Iran “hard.”`\
+https://www.nytimes.com/2026/07/08/us/politics/us-iran-strikes.html
+
 **Divisions Festered Within Iran Over Talks With the U.S.**\
 `Iran’s president and foreign minister were physically attacked this week by supporters of a hard-line faction that vehemently opposes any deal with the United States.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iran-divisions-us-leaders.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/style/tiny-modern-love-stories-why-arent-you-
 **Lo que hay que saber del edificio en Manhattan que generó alarma**\
 `El rascacielos de la calle 42 Este, la antigua sede de Pfizer, estaba en reformas para convertirlo en apartamentos.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-colapso.html
-
-**Where to Stream 2026 Emmy-Nominated Series: ‘The Pitt,’ ‘Hacks’ and More**\
-`Nominees for the 78th Emmy Awards were announced on Wednesday. Here’s how to watch the shows.`\
-https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-watch-stream.html
 
