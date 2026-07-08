@@ -1,3 +1,7 @@
+**Divisions Festered Within Iran Over Talks With the U.S.**\
+`Iran’s president and foreign minister were physically attacked this week by supporters of a hard-line faction that vehemently opposes any deal with the United States.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iran-divisions-us-leaders.html
+
 **As the World Cup Takes a Break, So Do N.Y.C. Bars: ‘It’s a Sigh of Relief’**\
 `Wednesday was the first day since June 11 with no World Cup matches. For run-down restaurant workers who also handled the Knicks’ run, it was a welcome reprieve.`\
 https://www.nytimes.com/2026/07/08/nyregion/bars-world-cup-soccer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-
 **Where to Stream 2026 Emmy-Nominated Series: ‘The Pitt,’ ‘Hacks’ and More**\
 `Nominees for the 78th Emmy Awards were announced on Wednesday. Here’s how to watch the shows.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-watch-stream.html
-
-**Oil Market Calm Shattered by Fresh Hostilities Between US and Iran**\
-`Oil prices are likely to remain volatile as long as the United States and Iran are unable to resolve the status of the Strait of Hormuz.`\
-https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-prices.html
 
