@@ -1,3 +1,11 @@
+**What to Know About the ‘Frozen Zone’ in Midtown Manhattan**\
+`A building at risk of partial collapse prompted the city to restrict pedestrian and vehicle traffic in the area. Some buses were diverted or delayed, but subway lines remained uninterrupted.`\
+https://www.nytimes.com/2026/07/07/nyregion/frozen-zone-midtown-manhattan-building-collapse.html
+
+**Restaurant Review: Salt Hank in the West Village**\
+`Salt Hank’s in the West Village quickly became one of the most talked-about sandwiches in the city. Our critic gives it a go.`\
+https://www.nytimes.com/2026/07/07/dining/restaurant-review-salt-hanks.html
+
 **Oil Prices Jump After Renewed Strikes in Gulf Put Shipping Recovery at Risk**\
 `Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
