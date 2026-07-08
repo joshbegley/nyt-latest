@@ -1,3 +1,7 @@
+**Rush to Evacuate as ‘Beams Started Bending’ and Floors Sagged at Midtown Tower**\
+`Offices and hotels around East 42nd Street were evacuated after structural damage affected an office conversion project, disrupting businesses, stranding tourists and snarling traffic.`\
+https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-housing-project.html
+
 **A.I. Is Giving Us Answers Right Away. That’s Making Us Dumber.**\
 `What used to be a meandering journey is now an immediate arrival at your destination.`\
 https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
