@@ -1,3 +1,7 @@
+**Conor McGregor Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
+`Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
+https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
+
 **Family of Man Killed by ICE Push for Independent Investigation**\
 `Lorenzo Salgado Araujo was shot by an immigration enforcement agent during a traffic stop in Houston on Tuesday. The details of why and how Araujo was shot remain unclear.`\
 https://www.nytimes.com/video/us/100000011019094/houston-ice-shooting.html
