@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
 https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
 
 **Khamenei’s Funeral Reaches Holy Cities in Iraq**\
-`Mourners poured into Iraq’s holy cities of Najaf and Karbala for Ayatollah Ali Khamenei’s procession, in a funeral that carried religious and political symbolism for Shiite Muslim supporters in Iran.`\
+`Mourners flocked to Ayatollah Ali Khamenei’s funeral in Iraq for a commemoration that carried religious and political symbolism for Shiite Muslims in the country.`\
 https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
 
 **Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
@@ -38,7 +38,7 @@ https://www.nytimes.com/video/world/europe/100000011018581/trump-nato-greenland-
 `We have the latest on renewed strikes in the Middle East.`\
 https://www.nytimes.com/2026/07/08/briefing/a-cease-fire-in-doubt.html
 
-**Iraqis Turn Out in Droves to Mourn Khamenei in Show of Solidarity**\
+**Iraqis Turn Out in Droves to Mourn Khamenei and Show Solidarity**\
 `In the cities of Najaf and Karbala, home to two of Shiite Islam’s holiest sites, hundreds of thousands attended commemorations for Ayatollah Ali Khamenei, who extended Iran’s influence in Iraq.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iraq-funeral-ayatollah-khamenei.html
 
