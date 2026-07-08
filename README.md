@@ -1,3 +1,7 @@
+**Justin Bieber y Burna Boy se unen al primer espectáculo del medio tiempo de una final del Mundial**\
+`Los artistas actuarán junto a Madonna, Shakira y BTS en el primer espectáculo de la historia en una final del Mundial. El objetivo es igualar la influencia cultural del Super Bowl.`\
+https://www.nytimes.com/es/2026/07/08/espanol/cultura/mundial-medio-tiempo-justin-bieber-shakira-madonna-bts.html
+
 **U.S. Begins Second Day of Strikes Against Iran**\
 `President Trump said earlier that a cease-fire was over and warned that the United States would probably hit Iran “hard.”`\
 https://www.nytimes.com/2026/07/08/us/politics/us-iran-strikes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rat
 **Tiny Love Stories: ‘Why Aren’t You Having Sex Anymore?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/07/08/style/tiny-modern-love-stories-why-arent-you-having-sex-anymore.html
-
-**Lo que hay que saber del edificio en Manhattan que generó alarma**\
-`El rascacielos de la calle 42 Este, la antigua sede de Pfizer, estaba en reformas para convertirlo en apartamentos.`\
-https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/edificio-manhattan-colapso.html
 
