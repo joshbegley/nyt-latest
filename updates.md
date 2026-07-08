@@ -1,3 +1,11 @@
+**‘It’s Time for Celebrities to Step Up’**\
+`If activists are speaking up, why aren’t celebrities? According to Molly Jong-Fast, there’s value to performative politics. Especially when they dominate the algorithm.`\
+https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-to-step-up.html
+
+**Recall Issued for Pedigree Dog Food Sold Despite Failing Quality Control**\
+`Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
+https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
+
 **Pedigree Dog Food Is Recalled After Being Sold Despite Failing Quality Control**\
 `Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
 https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html

@@ -1,4 +1,8 @@
-**Pedigree Dog Food Is Recalled After Being Sold Despite Failing Quality Control**\
+**‘It’s Time for Celebrities to Step Up’**\
+`If activists are speaking up, why aren’t celebrities? According to Molly Jong-Fast, there’s value to performative politics. Especially when they dominate the algorithm.`\
+https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-to-step-up.html
+
+**Recall Issued for Pedigree Dog Food Sold Despite Failing Quality Control**\
 `Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
 https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/travel/-scotland-tony-singh-food.html
 **America250? Try Bangladesh 2.**\
 `As America celebrates its anniversary of self-rule, a critic finds in Bangladesh a nimble photography scene that has flourished during a seismic regime change.`\
 https://www.nytimes.com/2026/07/08/arts/design/bangladesh-photography-dhaka.html
-
-**A Third of Young Adults Still Live With Their Parents**\
-`The share of those under age 35 and waking up in their childhood bedroom has returned to pandemic levels.`\
-https://www.nytimes.com/2026/07/08/realestate/a-third-of-young-adults-still-live-with-their-parents.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\

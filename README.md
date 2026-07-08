@@ -1,3 +1,7 @@
+**Farage’s Resignation Risks Becoming Farce as U.K. Parties Boycott Clacton By-Election**\
+`Under investigation over an undisclosed gift, the right-wing leader Nigel Farage may end up in a special election against a candidate dressed as a trash can.`\
+https://www.nytimes.com/2026/07/08/world/europe/uk-nigel-farage-resigns-clacton-election.html
+
 **‘It’s Time for Celebrities to Step Up’**\
 `If activists are speaking up, why aren’t celebrities? According to Molly Jong-Fast, there’s value to performative politics. Especially when they dominate the algorithm.`\
 https://www.nytimes.com/video/opinion/100000011002695/its-time-for-celebrities-to-step-up.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/opinion/family-caregiver-aging-parents.html
 **Inside a Private Dinner Party by Scottish-Sikh Chef Tony Singh**\
 `A writer engaged the Scottish-Sikh chef Tony Singh to prepare a luxurious dinner at a Highlands lodge she’d rented. Would the haggis pakora live up to her dreams?`\
 https://www.nytimes.com/2026/07/08/travel/-scotland-tony-singh-food.html
-
-**America250? Try Bangladesh 2.**\
-`As America celebrates its anniversary of self-rule, a critic finds in Bangladesh a nimble photography scene that has flourished during a seismic regime change.`\
-https://www.nytimes.com/2026/07/08/arts/design/bangladesh-photography-dhaka.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
