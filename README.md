@@ -1,3 +1,7 @@
+**Three More People Charged With Damaging Reflecting Pool**\
+`The three individuals face misdemeanor charges of causing damage worth less than $1,000. Experts have said that the problems could have been caused by the pool’s makeover.`\
+https://www.nytimes.com/2026/07/08/us/reflecting-pool-damage-misdemeanor-charges.html
+
 **U.S. Attorney in Manhattan Names Deputy to Oversee Transition**\
 `Jay Clayton said he had named James McDonald as a deputy to oversee the transition at the Southern District of New York office. President Trump nominated Mr. Clayton to be his intelligence chief.`\
 https://www.nytimes.com/2026/07/08/nyregion/nyc-clayton-mcdonald-us-attorney.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-pric
 **Navy Identifies Crew Member Lost in Arabian Sea Helicopter Crash**\
 `Cmdr. Gabriel Edwards was declared missing after what the Navy said was an emergency water landing during a routine patrol.`\
 https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
-
-**License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
-`With Patriot interceptors in short supply, President Trump’s statement that he would allow Ukraine to build them is a boon to Kyiv as it fights off Russian missile attacks. But it is just the start.`\
-https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
 

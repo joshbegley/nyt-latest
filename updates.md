@@ -1,3 +1,15 @@
+**U.S. Attorney in Manhattan Names Deputy to Oversee Transition**\
+`Jay Clayton said he had named James McDonald as a deputy to oversee the transition at the Southern District of New York office. President Trump nominated Mr. Clayton to be his intelligence chief.`\
+https://www.nytimes.com/2026/07/08/nyregion/nyc-clayton-mcdonald-us-attorney.html
+
+**The U.S. Attacks Iran Again**\
+`Also, tech I.P.O.s are causing a housing frenzy in the Bay Area. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/07/08/briefing/us-iran-attacks-ukraine-patriot-missiles.html
+
+**Can the United States Hold On?**\
+`Our July 4 bash was troubled, and America may go the way of the Ghaznavid Empire. But here are reasons to be more positive.`\
+https://www.nytimes.com/2026/07/08/opinion/america-250-trump.html
+
 **Vance, in Wisconsin, Highlights Twin Fights, Against Fraud and Democrats**\
 `The vice president called Democrats “a party that is fighting for fraud,” even as he highlighted the case of a woman who was first indicted under the Biden administration.`\
 https://www.nytimes.com/2026/07/08/us/politics/vance-wisconsin-visit-fraud.html
