@@ -1,3 +1,15 @@
+**Taylor Swift and Reality TV Shows Like ‘Summer House’ Earn Emmy Nods**\
+`Nominations for unscripted programs recognized a certain newlywed and the scandalous reality hit of the spring.`\
+https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys.html
+
+**Maybe Anthropic and OpenAI Are Not the Future of Artificial Intelligence**\
+`Did we make the wrong bet on ‘Big A.I.’?`\
+https://www.nytimes.com/2026/07/08/opinion/openai-anthropic-palantir-alex-karp.html
+
+**World Cup Updates: In Egypt, a Last-Minute Loss Brings Heartbreak and Anger**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **At Warsh’s First Fed Meeting, Some Officials Signaled Support for Raising Interest Rates**\
 `Minutes from Kevin M. Warsh’s first meeting as chairman showed heightened unease about inflation, which is running at a three-year high.`\
 https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html

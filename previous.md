@@ -1,3 +1,11 @@
+**Taylor Swift and Reality TV Shows Like ‘Summer House’ Earn Emmy Nods**\
+`Nominations for unscripted programs recognized a certain newlywed and the scandalous reality hit of the spring.`\
+https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys.html
+
+**Maybe Anthropic and OpenAI Are Not the Future of Artificial Intelligence**\
+`Did we make the wrong bet on ‘Big A.I.’?`\
+https://www.nytimes.com/2026/07/08/opinion/openai-anthropic-palantir-alex-karp.html
+
 **What We Know About Immigration Officers Shooting at People in Vehicles**\
 `Federal agents have fired on at least 21 people, many in their cars, as part of President Trump’s deportation crackdown. At least five people were killed, including three U.S. citizens.`\
 https://www.nytimes.com/2026/07/08/us/immigration-agent-shootings-vehicles.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/2026/07/08/pageoneplus/corrections-july-8-2026.html
 `A move against Spain would face political, legal and practical issues and probably provoke a wider trade war with the European Union. It could also roil markets.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-spain-trade-us-iran-nato.html
 
-**Trump Casts Doubt on Iran Cease-Fire After Latest Strikes**\
-`After the latest exchange of attacks between U.S. and Iranian forces, President Trump suggested that the preliminary cease-fire between the warring countries was over.`\
-https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt-on-iran-cease-fire-after-tit-for-tat-strikes.html
-
-**How GLP-1s Feed Our Sick Culture**\
-`For women, they’re a depressingly rational choice.`\
-https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
-
-**Global Economic Output Looks Slower for 2026, IMF Says**\
-`The I.M.F. projected world output growth would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
-https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
+**World Cup Updates: In Egypt, a Last-Minute Loss Brings Heartbreak and Anger**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
