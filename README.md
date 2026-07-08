@@ -1,3 +1,7 @@
+**Pedigree Dog Food Is Recalled After Being Sold Despite Failing Quality Control**\
+`Mars Petcare recalled cans of dog food that might contain plastic or metal, which it said were supposed to be destroyed but ended up in stores.`\
+https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
+
 **Health Insurance Giants Are Fighting Efforts to Break Them Up**\
 `UnitedHealth Group, CVS Health and Cigna are suing states over new laws targeting their pharmacy businesses.`\
 https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/07/08/pageoneplus/corrections-july-8-2026.html
 `A move against Spain would face political, legal and practical issues and probably provoke a wider trade war with the European Union. It could also roil markets.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-spain-trade-us-iran-nato.html
 
-**Trump Casts Doubt on Iran Cease-Fire After Tit-for-Tat Strikes**\
+**Trump Casts Doubt on Iran Cease-Fire After Latest Strikes**\
 `After the latest exchange of attacks between U.S. and Iranian forces, President Trump suggested that the preliminary cease-fire between the warring countries was over.`\
 https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt-on-iran-cease-fire-after-tit-for-tat-strikes.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/arts/design/bangladesh-photography-dhaka.html
 **A Third of Young Adults Still Live With Their Parents**\
 `The share of those under age 35 and waking up in their childhood bedroom has returned to pandemic levels.`\
 https://www.nytimes.com/2026/07/08/realestate/a-third-of-young-adults-still-live-with-their-parents.html
-
-**For Rebels in Congo, Ebola Could Help Strengthen Their Rule**\
-`A violent militia that controls large swaths of Congolese territory in the east may use the virus to try to bolster its authority.`\
-https://www.nytimes.com/2026/07/08/world/africa/ebola-congo-m23-rebels.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
