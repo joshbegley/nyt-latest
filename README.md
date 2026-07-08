@@ -114,8 +114,8 @@ https://www.nytimes.com/2026/07/07/us/politics/graham-platner-replacements-maine
 `The city has encouraged more complex office-to-residential conversions to fight the housing crisis.`\
 https://www.nytimes.com/2026/07/07/nyregion/office-residential-explainer-faq.html
 
-**‘Beams Started Bending’: Midtown Manhattan Building Sags Dangerously**\
-`Offices and hotels around East 42nd Street were evacuated after structural damage affected an office conversion project. Traffic was halted in the area. No injuries were reported.`\
+**Rush to Evacuate as ‘Beams Started Bending’ and Floors Sagged at Midtown Tower**\
+`Offices and hotels around East 42nd Street were evacuated after structural damage affected an office conversion project, disrupting businesses, stranding tourists and snarling traffic.`\
 https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-housing-project.html
 
 **Maryland Moves Toward Redistricting Ahead of 2028**\
