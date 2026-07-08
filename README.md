@@ -1,3 +1,7 @@
+**U.F.C. Star Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
+`Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
+https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
+
 **¿Por qué China lanzó un misil de largo alcance al Pacífico?**\
 `Según algunos expertos, la prueba indica que China está ampliando sus ambiciones nucleares y dejando de lado sus reticencias a probar misiles en los cielos y océanos internacionales.`\
 https://www.nytimes.com/es/2026/07/08/espanol/mundo/china-misil-prueba-armas-nucleares.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/world/canada/air-canada-ceo-french-backlash-c
 **‘Corten todo el comercio’: Trump amenaza a España**\
 `Pero es poco probable que suceda: una medida contra España enfrentaría obstáculos políticos, legales y prácticos, y provocaría una guerra comercial más amplia con la Unión Europea.`\
 https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-espana-comercio.html
-
-**Global Warming Could Ravage the Amazon’s Useful Plant Species, Study Finds**\
-`Hotter temperatures and harsher droughts could cause Indigenous societies to lose many of the species they have used for medicine, rituals and more, scientists found.`\
-https://www.nytimes.com/2026/07/08/climate/amazon-indigenous-plants-climate-change.html
 
