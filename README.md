@@ -1,3 +1,7 @@
+**Spread of Seafloor Directly Observed for the First Time**\
+`The spread of the ocean floor, as tectonic plates spread apart, is known but hard to observe. Scientists have now documented the process in action.`\
+https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
+
 **A Checkup on the Nation’s Health Care Coverage**\
 `How many Americans lack health insurance?`\
 https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/crosswords/connections-companion-1124.html
 **NYT Strands Hints for July 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
-
-**Today's Wordle Hints for July 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
-https://www.nytimes.com/2026/07/08/crosswords/wordle-review-1846.html
 
 **Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
