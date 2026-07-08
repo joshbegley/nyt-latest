@@ -1,3 +1,7 @@
+**License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
+`President Trump said he would allow Ukraine to make the defensive weapons but it could take several years to set up a manufacturing operation.`\
+https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
+
 **A Checkup on the Nation’s Health Care Coverage**\
 `How many Americans lack health insurance?`\
 https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html

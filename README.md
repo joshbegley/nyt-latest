@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
 `Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/08/crosswords/wordle-review-1846.html
 
-**Live Updates: Trump Speaks After Lashing Out at NATO Summit**\
+**Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
