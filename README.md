@@ -1,3 +1,7 @@
+**Pakistan Launches Search After Cargo Plane Vanishes at Sea**\
+`Five crew members were aboard when the aircraft plunged vertically and went missing over the Arabian Sea, flight data showed.`\
+https://www.nytimes.com/2026/07/08/world/asia/pakistan-cargo-plane-missing-arabian-sea.html
+
 **Why Democrats Would Probably Come Out Ahead if Platner Dropped Out**\
 `Already near the breaking point, he held no special advantage among some key Maine voting groups he was expected to win over.`\
 https://www.nytimes.com/2026/07/08/upshot/platner-maine-election-accusation.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/interactive/2026/07/08/opinion/focus-group-black-democra
 `The world’s most global game produces some of its strongest feelings of national belonging.`\
 https://www.nytimes.com/2026/07/08/opinion/world-cup-trump-us.html
 
-**Zelensky Renews Demands for Defense Systems Ahead of Trump Meeting**\
+**Zelensky Renews Demands for Defense Systems Ahead of Trump Meeting at NATO Summit**\
 `President Volodymyr Zelensky of Ukraine is urging European states to sell him Patriot missiles to defend against Russian attacks and has asked President Trump to let Ukraine make the Patriot systems.`\
 https://www.nytimes.com/2026/07/08/world/europe/ukraine-nato-zelensky-trump.html
 
@@ -182,15 +186,11 @@ https://www.nytimes.com/2026/07/08/crosswords/spelling-bee-forum.html
 `President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
 
-**Live Updates: NATO Leaders Meet at Pivotal Moment for Alliance**\
-`At a summit in Turkey, President Trump is pushing for a smaller role for the United States and for allies to do more for their own defense against an aggressive, militarized Russia.`\
+**Live Updates: Trump Lashes Out at Europe at NATO Summit**\
+`President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
 **Late Night Calls a Foul on Trump After His World Cup Intervention**\
 `President Trump may not have known what a red card in soccer is, Ronny Chieng said: “But you know what he did know? How to get a guy a pardon.”`\
 https://www.nytimes.com/2026/07/08/arts/television/late-night-trump-world-cup.html
-
-**Frutos rojos todo el año: lo que hace Driscoll’s**\
-`Este gigante californiano ha contribuido a convertir una delicia local y de temporada en un producto imprescindible en las neveras de todo el mundo y en un fenómeno de mercadotecnia.`\
-https://www.nytimes.com/es/2026/07/08/espanol/negocios/fresas-frambuesas-driscolls.html
 
