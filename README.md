@@ -1,10 +1,14 @@
+**As Cease-Fire Frays, Trump Faces a Muddled War and Unpalatable Options**\
+`The president appears to be confronting the consequences of a cease-fire deal cobbled together in haste, with little movement toward resolving the key issues driving the conflict.`\
+https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
+
 **Kentucky Gov. Andy Beshear Demands Health Update on Mitch McConnell**\
 `Senator Mitch McConnell has been hospitalized since June 14. Speculation about his health has spread in recent days.`\
 https://www.nytimes.com/2026/07/08/us/beshear-mcconnell-kentucky-health.html
 
 **A Few Officials Signaled Support for Higher Rates at Warsh’s First Meeting**\
 `Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
-https://www.nytimes.com/2026/07/08/business/no-rate-guidance-in-fed-minutes-as-kevin-warsh-takes-over.html
+https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html
 
 **Judge Orders $5 Million Trump Judgment Be Released to E. Jean Carroll**\
 `Ms. Carroll had asked a federal judge to order the president to pay the judgment after a jury found he sexually abused and defamed her.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.
 **Emmy Nominees 2026: See the Full List**\
 `The 78th Emmy Awards ceremony is planned for Sept. 14. See all the nominees below.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
-
-**My Sister Asked to Crash My Dinner Date With Her Daughter. Help!**\
-`A reader who was looking forward to some one-on-one time with her niece created a headache for herself by mentioning the dinner plans to her sister, who was just as eager to tag along.`\
-https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
 
