@@ -1,3 +1,7 @@
+**Iran Truce ‘Over,’ Trump Says, as He Threatens More Strikes**\
+`As both sides accused each other of violating a cease-fire signed three weeks ago, the temporary agreement appeared on the verge of collapse.`\
+https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html
+
 **As the World Cup Takes a Break, So Do N.Y.C. Bars: ‘It’s a Sigh of Relief’**\
 `Wednesday was the first day since June 11 with no World Cup matches. For run-down restaurant workers who also handled the Knicks’ run, it was a welcome reprieve.`\
 https://www.nytimes.com/2026/07/08/nyregion/bars-world-cup-soccer.html
