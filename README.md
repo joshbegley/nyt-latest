@@ -43,7 +43,7 @@ https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt
 https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
 
 **Global Economic Output Looks Slower for 2026, IMF Says**\
-`The I.M.F. projected world output would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
+`The I.M.F. projected world output growth would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
 https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
 
 **Emmy Nominees 2026: Updating List**\
