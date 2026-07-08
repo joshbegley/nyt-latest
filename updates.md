@@ -1,3 +1,7 @@
+**Assessing the USMNT’s World Cup Campaign**\
+`What’s next for Pochettino and his players?`\
+https://www.nytimes.com/2026/07/08/podcasts/usmnts-world-cup-campaign-folarin-balogun-football-chants.html
+
 **The Implosion of Graham Platner**\
 `The Democratic nominee for Senate from Maine was accused of sexual assault. Democrats are gearing up to fight over who should replace him.`\
 https://www.nytimes.com/2026/07/08/podcasts/the-daily/graham-platner-maine-sexual-assault-accusation.html
