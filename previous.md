@@ -1,3 +1,11 @@
+**Police Raids on Ukrainian Drone Maker Fuel Fears About Press Freedom**\
+`The raids targeted a military contractor and its owner, who also co-owns a news outlet that recently exposed abuse of soldiers. Journalists said it was no coincidence.`\
+https://www.nytimes.com/2026/07/08/world/europe/ukraine-police-raid-media.html
+
+**As More Remains Are Found in Rubble From Venezuela Earthquakes, Horror Becomes Routine**\
+`Fearful that officials would tear down damaged buildings without accounting for any remaining bodies, Venezuelans are desperately digging for their relatives’ remains.`\
+https://www.nytimes.com/2026/07/08/world/americas/venezuela-earthquakes-deaths-remains.html
+
 **Heartbreak and Anger in Egypt Over a Stinging World Cup Loss to Argentina**\
 `After watching Egypt lead for almost the entire match, a last-minute victory by Argentina has driven fans to tears and conspiracy theories.`\
 https://www.nytimes.com/2026/07/08/world/africa/egypt-argentina-goal-referee-conspiracy.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral
 **Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
 `The rocket company founded by Jeff Bezos is set to take on external investors for the first time, at a $130 billion valuation.`\
 https://www.nytimes.com/2026/07/08/business/dealbook/bezos-funding-blue-origin.html
-
-**Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
-`Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
-https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
-
-**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Exchange of Strikes**\
-`“I think it’s over,” President Trump said of the preliminary truce, threatening to strike Iran again. Iran accused the U.S. of violating provisions of the cease-fire as hard-line voices there called for it to be torn up.`\
-https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
 

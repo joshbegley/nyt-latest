@@ -1,3 +1,11 @@
+**Police Raids on Ukrainian Drone Maker Fuel Fears About Press Freedom**\
+`The raids targeted a military contractor and its owner, who also co-owns a news outlet that recently exposed abuse of soldiers. Journalists said it was no coincidence.`\
+https://www.nytimes.com/2026/07/08/world/europe/ukraine-police-raid-media.html
+
+**As More Remains Are Found in Rubble From Venezuela Earthquakes, Horror Becomes Routine**\
+`Fearful that officials would tear down damaged buildings without accounting for any remaining bodies, Venezuelans are desperately digging for their relatives’ remains.`\
+https://www.nytimes.com/2026/07/08/world/americas/venezuela-earthquakes-deaths-remains.html
+
 **Heartbreak and Anger in Egypt Over a Stinging World Cup Loss to Argentina**\
 `After watching Egypt lead for almost the entire match, a last-minute victory by Argentina has driven fans to tears and conspiracy theories.`\
 https://www.nytimes.com/2026/07/08/world/africa/egypt-argentina-goal-referee-conspiracy.html
