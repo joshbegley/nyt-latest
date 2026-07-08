@@ -1,3 +1,7 @@
+**In San Francisco, Some Home Sellers Now Ask for OpenAI or Anthropic Stock**\
+`Even before OpenAI and Anthropic go public, they are distorting home sales in the San Francisco Bay Area, as people race to buy and sellers ask for stock instead of cash.`\
+https://www.nytimes.com/2026/07/08/technology/san-francisco-home-sales-openai-anthropic-ipo.html
+
 **On Gen Z Movies and Walking to the World Cup: The Winners of Week 3 of Our Summer Reading Contest**\
 `Ella Cheng talks about how Hollywood can engage her generation, while Camilla Guerrieri takes a walk in her neighborhood and shares her thoughts along the way.`\
 https://www.nytimes.com/2026/07/08/learning/on-gen-z-movies-and-walking-to-the-world-cup-the-winners-of-week-3-of-our-summer-reading-contest.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt
 https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
 
 **Global Economic Output Looks Slower for 2026, IMF Says**\
-`The I.M.F. projected world output would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
+`The I.M.F. projected world output growth would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
 https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
 
 **Emmy Nominees 2026: Updating List**\
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
 https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
 
 **Khamenei’s Funeral Reaches Holy Cities in Iraq**\
-`Mourners flocked to Ayatollah Ali Khamenei’s funeral in Iraq for a commemoration that carried religious and political symbolism for Shiite Muslims in the country.`\
+`Crowds flocked to Ayatollah Ali Khamenei’s funeral in Iraq for a commemoration that carried religious and political symbolism for Shiite Muslims in the country.`\
 https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
 
 **Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
@@ -178,12 +182,8 @@ https://www.nytimes.com/interactive/2026/07/08/opinion/focus-group-black-democra
 `The world’s most global game produces some of its strongest feelings of national belonging.`\
 https://www.nytimes.com/2026/07/08/opinion/world-cup-trump-us.html
 
-**Zelensky Renews Demands for Defense Systems Ahead of Trump Meeting at NATO Summit**\
-`President Volodymyr Zelensky of Ukraine is urging European states to sell him Patriot missiles to defend against Russian attacks and has asked President Trump to let Ukraine make the Patriot systems.`\
-https://www.nytimes.com/2026/07/08/world/europe/ukraine-nato-zelensky-trump.html
-
-**Live Updates: Trump Lashes Out at Europe at NATO Summit**\
-`President Trump assailed partners for not joining the war in Iran and repeated his desire to control Greenland. Still, the summit ended with NATO members reaffirming support for the alliance and Ukraine.`\
+**Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
+`Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
