@@ -1,3 +1,7 @@
+**At Chanel, Matthieu Blazy’s Alternative to Ozempic Dressing**\
+`Matthieu Blazy goes beyond the super sucked-in, laced-up styles of the moment. It’s actually not a fairy tale.`\
+https://www.nytimes.com/2026/07/08/style/chanel-couture.html
+
 **EU Rejects Plea to Pause Troubled EES Biometrics System at Airports Ahead of Summer Rush**\
 `E.U. leaders rebuffed a plea from the aviation industry to pause the biometric checkpoints, which have caused long lines and missed flights. Summer travelers beware.`\
 https://www.nytimes.com/2026/07/08/travel/ees-europe-airports-security.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/100000011017727/07visualUploader-33442
 **Midtown Evacuations Scramble Plans for Hotel Guests**\
 `At least two hotels near the unstable building were evacuated, stranding travelers and forcing guests to clamber for alternative accommodation.`\
 https://www.nytimes.com/2026/07/07/travel/midtown-hotels-building-collapse.html
-
-**Justice Department Threatens Top Election Officials Over Noncitizen Voting**\
-`The letters come amid President Trump’s effort to tighten election rules to prevent a problem that doesn’t exist: widespread noncitizen voting.`\
-https://www.nytimes.com/2026/07/07/us/politics/justice-department-elections-noncitizen-voting.html
 
