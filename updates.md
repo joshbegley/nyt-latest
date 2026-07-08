@@ -1,3 +1,11 @@
+**Spread of Seafloor Directly Observed for the First Time**\
+`The spread of the ocean floor, as tectonic plates spread apart, is known but hard to observe. Scientists have now documented the process in action.`\
+https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
+
+**Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
+`Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
+https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
+
 **License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
 `President Trump said he would allow Ukraine to make the defensive weapons but it could take several years to set up a manufacturing operation.`\
 https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html

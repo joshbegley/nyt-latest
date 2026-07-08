@@ -1,3 +1,15 @@
+**‘Love Story,’ FX’s JFK Jr. Series, Picks Up Fewer Emmy Nods Than Expected**\
+`The FX docudrama about the tragic romance between John F. Kennedy Jr. and Carolyn Bessette received fewer nominations than its competitors.`\
+https://www.nytimes.com/2026/07/08/arts/television/love-story-jfk-jr-emmy-nominations.html
+
+**Trump’s Name Must Remain Off Kennedy Center For Now, Appeals Court Rules**\
+`The Trump administration is challenging a federal judge’s ruling that only Congress has the power to rebrand the Washington arts institution.`\
+https://www.nytimes.com/2026/07/08/arts/music/trump-kennedy-center-name-appeal.html
+
+**How Did the Democrats Get Graham Platner, Anyway?**\
+`Readers react to the implosion of Mr. Platner’s campaign for the Senate from Maine. Also: President Trump and one man’s happiness.`\
+https://www.nytimes.com/2026/07/08/opinion/graham-platner-maine-senate.html
+
 **Spread of Seafloor Directly Observed for the First Time**\
 `The spread of the ocean floor, as tectonic plates spread apart, is known but hard to observe. Scientists have now documented the process in action.`\
 https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/07/08/podcasts/usmnts-world-cup-campaign-folarin-ba
 **The Implosion of Graham Platner**\
 `The Democratic nominee for Senate from Maine was accused of sexual assault. Democrats are gearing up to fight over who should replace him.`\
 https://www.nytimes.com/2026/07/08/podcasts/the-daily/graham-platner-maine-sexual-assault-accusation.html
-
-**Oil Prices Jump as U.S. and Iran Resume Strikes, and Big Tobacco Makes a Big New Bet**\
-`Plus, using drones to watch for sharks.`\
-https://www.nytimes.com/2026/07/08/podcasts/the-headlines/oil-prices-iran-strikes-tobacco.html
-
-**NYT Connections Answers for July 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
-https://www.nytimes.com/2026/07/08/crosswords/connections-companion-1124.html
-
-**NYT Strands Hints for July 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 9, 2026.`\
-https://www.nytimes.com/2026/07/08/crosswords/strands-sidekick-858.html
 
 **Live Updates: Trump Praises NATO’s ‘Unity’ After Lashing Out at Allies**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
