@@ -1,3 +1,7 @@
+**New York City Adopts Measures to Slow Legionnaires’ Disease Outbreak**\
+`An ongoing cluster of the illness has sickened 23 people. That’s not unusual: Most years, 200 to 700 people in the city are diagnosed with the disease.`\
+https://www.nytimes.com/2026/07/07/nyregion/nyc-legionnaires-disease.html
+
 **Top Maine Democrat Says Platner Will Have ‘No Role’ in Picking Next Nominee**\
 `A top state party official said that Graham Platner’s team had “repeatedly” tried to “put their thumb on the scale,” but he would not influence how the party chose a new Senate candidate.`\
 https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate-democrats.html
