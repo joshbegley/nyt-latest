@@ -1,5 +1,5 @@
-**The First 2026 Emmy Nominations Are Announced**\
-`The nominations are being announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
+**The 2026 Emmy Nominations Are Announced**\
+`The nominations were announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
 
 **Air Canada Chooses Anko Van der Werff, Who Speaks French, as CEO After Language Backlash**\
