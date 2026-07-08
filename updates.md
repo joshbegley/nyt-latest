@@ -1,3 +1,19 @@
+**How GLP-1s Feed Our Sick Culture**\
+`For women, they’re a depressingly rational choice.`\
+https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
+
+**Global Economic Output Looks Slower for 2026, IMF Says**\
+`The I.M.F. projected world output would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
+https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
+
+**Emmy Nominees 2026: How to Watch**\
+`The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
+
+**My Sister Asked to Crash My Dinner Date With Her Daughter. Help!**\
+`A reader who was looking forward to some one-on-one time with her niece created a headache for herself by mentioning the dinner plans to her sister, who was just as eager to tag along.`\
+https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
+
 **NATO Summit Gives Trump New Chance to Bust Out Old Grievances**\
 `President Trump brought his combative side to the meeting of world leaders in Turkey, kicking off a day of diplomacy with a panoply of complaints and insults against U.S. allies.`\
 https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
