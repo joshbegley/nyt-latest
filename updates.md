@@ -1,3 +1,11 @@
+**The 2026 Emmy Nominations Are Announced**\
+`The nominations were announced at the academy’s Los Angeles headquarters in an event hosted by stars from “The Bear” and “Somebody Somewhere.”`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominations-2026.html
+
+**Air Canada Chooses Anko Van der Werff, Who Speaks French, as CEO After Language Backlash**\
+`Michael Rousseau, who prompted widespread criticism with a largely English condolence video following a crash in March, will retire.`\
+https://www.nytimes.com/2026/07/08/world/canada/air-canada-ceo-french-backlash-crash.html
+
 **Live Updates: New Supports Have Made Building Stable, Mamdani Says**\
 `A Midtown high-rise that suffered structural damage had not moved since Tuesday, Mayor Zohran Mamdani said. The streets around the building were starting to come back to life after a tense day.`\
 https://www.nytimes.com/live/2026/07/08/nyregion/nyc-midtown-building-collapse
