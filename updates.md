@@ -1,3 +1,11 @@
+**As the World Cup Takes a Break, So Do N.Y.C. Bars: ‘It’s a Sigh of Relief’**\
+`Wednesday was the first day since June 11 with no World Cup matches. For run-down restaurant workers who also handled the Knicks’ run, it was a welcome reprieve.`\
+https://www.nytimes.com/2026/07/08/nyregion/bars-world-cup-soccer.html
+
+**Three More People Charged With Damaging Reflecting Pool**\
+`The three individuals face misdemeanor charges of causing damage worth less than $1,000. Experts have said that the problems could have been caused by the pool’s makeover.`\
+https://www.nytimes.com/2026/07/08/us/reflecting-pool-damage-misdemeanor-charges.html
+
 **U.S. Attorney in Manhattan Names Deputy to Oversee Transition**\
 `Jay Clayton said he had named James McDonald as a deputy to oversee the transition at the Southern District of New York office. President Trump nominated Mr. Clayton to be his intelligence chief.`\
 https://www.nytimes.com/2026/07/08/nyregion/nyc-clayton-mcdonald-us-attorney.html

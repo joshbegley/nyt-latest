@@ -71,7 +71,7 @@ https://www.nytimes.com/video/world/europe/100000011019302/marine-le-pen-preside
 https://www.nytimes.com/2026/07/08/briefing/08-the-good-list-web-pinball-jogging.html
 
 **Iran Truce ‘Over,’ Trump Says, as He Threatens More Strikes**\
-`A wave of U.S. attacks were followed by Iranian strikes, halting ship traffic in the Strait of Hormuz again. Oil prices rose sharply.`\
+`As both sides accused each other of violating a cease-fire signed three weeks ago, the temporary agreement appeared on the verge of collapse.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html
 
 **As Progressives Rack Up Wins, Hakeem Jeffries Shrugs Off Possible Challenges**\
