@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/07/08/business/energy-environment/iran-war-oil-pric
 https://www.nytimes.com/2026/07/08/us/politics/missing-navy-sailor-identified.html
 
 **License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
-`President Trump said he would allow Ukraine to make the defensive weapons but it could take several years to set up a manufacturing operation.`\
+`With Patriot interceptors in short supply, President Trump’s statement that he would allow Ukraine to build them is a boon to Kyiv as it fights off Russian missile attacks. But it is just the start.`\
 https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
 
 **‘Widow’s Bay,’ an Apple TV Breakout Hit, Scores 19 Emmy Nominations**\
@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominatio
 https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
 
 **Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
-`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner, and said he was shot inside his car. Details of the encounter remain unclear.`\
+`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner. Details of the encounter remain unclear.`\
 https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
 
 **2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\

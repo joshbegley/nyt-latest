@@ -1,3 +1,11 @@
+**License to Make Patriot Missiles Could Help Ukraine Defend Against Russia**\
+`With Patriot interceptors in short supply, President Trump’s statement that he would allow Ukraine to build them is a boon to Kyiv as it fights off Russian missile attacks. But it is just the start.`\
+https://www.nytimes.com/2026/07/08/world/europe/a-license-to-make-patriot-defense-systems-may-be-a-big-boost-for-ukraine.html
+
+**Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
+`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner. Details of the encounter remain unclear.`\
+https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
+
 **Le Pen, France’s Far-Right Leader, Launches Her Presidential Campaign**\
 `Marine Le Pen, the leader of France’s far-right political party, launched her fourth bid for the presidency on Wednesday. Her campaign rally comes a day after a court upheld her embezzlement conviction and shortened a ban on her eligibility to run for public office.`\
 https://www.nytimes.com/video/world/europe/100000011019302/marine-le-pen-presidential-campaign.html
