@@ -1,3 +1,7 @@
+**Un agente del ICE mata a un hombre mexicano en Houston**\
+`La agencia dijo que el hombre era un “extranjero ilegal” que había intentado atropellar al agente, aunque no aportó pruebas de inmediato.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/agente-ice-mata-mexicano-houston.html
+
 **Farage’s Resignation Risks Becoming Farce as U.K. Parties Boycott Clacton By-Election**\
 `Under investigation over an undisclosed gift, the right-wing leader Nigel Farage may end up in a special election against a candidate dressed as a trash can.`\
 https://www.nytimes.com/2026/07/08/world/europe/uk-nigel-farage-resigns-clacton-election.html
