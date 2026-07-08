@@ -1,3 +1,7 @@
+**A Few Officials Signaled Support for Higher Rates at Warsh’s First Meeting**\
+`Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
+https://www.nytimes.com/2026/07/08/business/no-rate-guidance-in-fed-minutes-as-kevin-warsh-takes-over.html
+
 **Judge Orders $5 Million Trump Judgment Be Released to E. Jean Carroll**\
 `Ms. Carroll had asked a federal judge to order the president to pay the judgment after a jury found he sexually abused and defamed her.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-e-jean-carroll-5-million-payment.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/08/style/one-on-one-quality-time.html
 **NATO Summit Gives Trump New Chance to Bust Out Old Grievances**\
 `President Trump brought his combative side to the meeting of world leaders in Turkey, kicking off a day of diplomacy with a panoply of complaints and insults against U.S. allies.`\
 https://www.nytimes.com/2026/07/08/world/europe/nato-trump-europe.html
-
-**Khamenei’s Funeral Reaches Holy Cities in Iraq**\
-`Crowds flocked to Ayatollah Ali Khamenei’s funeral in Iraq for a commemoration that carried religious and political symbolism for Shiite Muslims in the country.`\
-https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
 
