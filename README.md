@@ -1,3 +1,7 @@
+**Khamenei’s Funeral Reaches Holy Cities in Iraq**\
+`Mourners poured into Iraq’s holy cities of Najaf and Karbala for Ayatollah Ali Khamenei’s procession, in a funeral that carried religious and political symbolism for Shiite Muslim supporters in Iran.`\
+https://www.nytimes.com/video/world/middleeast/100000011018488/khameneis-funeral-reaches-holy-cities-in-iraq.html
+
 **Jeff Bezos’s Blue Origin Nears a Big Fund-Raising Round**\
 `The rocket company founded by Jeff Bezos is set to take on external investors for the first time, at a $130 billion valuation.`\
 https://www.nytimes.com/2026/07/08/business/dealbook/bezos-funding-blue-origin.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/arts/music/geri-allen-jazz-music.html
 **A New ‘Little House’ Expands and Updates the Prairie**\
 `A Netflix adaptation of the beloved tale empowers Ma and adds new Black and Native characters to challenge prejudices.The creators know criticism is coming.`\
 https://www.nytimes.com/2026/07/08/arts/television/little-house-on-the-prairie-netflix.html
-
-**Which Country Has the Best-Dressed World Cup Fans?**\
-`At World Cup matches featuring teams from five continents, our photographer captured fans, flags, fringe, face paint and at least one horned helmet.`\
-https://www.nytimes.com/2026/07/08/style/world-cup-fans-fashion-best-dressed.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
