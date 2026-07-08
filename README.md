@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
 `The I.M.F. projected world output would fall to 3 percent for the year, a number pushed down by high commodity prices.`\
 https://www.nytimes.com/2026/07/08/business/economy/imf-world-economy-inflation.html
 
-**Emmy Nominees 2026: How to Watch**\
+**Emmy Nominees 2026: Updating List**\
 `The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
 
@@ -187,6 +187,6 @@ https://www.nytimes.com/2026/07/08/science/russia-captured-chernobyl-the-wildlif
 https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
-`“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
+`“I think it’s over,” President Trump said, referring to the preliminary truce, and threatened to strike Iran again. The two sides traded attacks as their shaky truce appeared to edge closer to collapse.`\
 https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
 
