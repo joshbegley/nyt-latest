@@ -1,3 +1,7 @@
+**Le Pen, France’s Far-Right Leader, Launches Her Presidential Campaign**\
+`Marine Le Pen, the leader of France’s far-right political party, launched her fourth bid for the presidency on Wednesday. Her campaign rally comes a day after a court upheld her embezzlement conviction and shortened a ban on her eligibility to run for public office.`\
+https://www.nytimes.com/video/world/europe/100000011019302/marine-le-pen-presidential-campaign.html
+
 **Did We Make the Wrong Bet on Big A.I.?**\
 `Maybe Anthropic and OpenAI are not the future of artificial intelligence.`\
 https://www.nytimes.com/2026/07/08/opinion/openai-anthropic-palantir-alex-karp.html

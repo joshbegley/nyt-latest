@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominatio
 https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
 
 **Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
-`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner, and said he was shot inside his car. Details of the encounter remain unclear.`\
+`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner. Details of the encounter remain unclear.`\
 https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
 
 **2026 Emmy Nominations: ‘The Pitt’ and ‘Hacks’ Lead the Pack**\
