@@ -1,3 +1,15 @@
+**As Cease-Fire Frays, Trump Faces a Muddled War and Unpalatable Options**\
+`The president appears to be confronting the consequences of a cease-fire deal cobbled together in haste, with little movement toward resolving the key issues driving the conflict.`\
+https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
+
+**Kentucky Gov. Andy Beshear Demands Health Update on Mitch McConnell**\
+`Senator Mitch McConnell has been hospitalized since June 14. Speculation about his health has spread in recent days.`\
+https://www.nytimes.com/2026/07/08/us/beshear-mcconnell-kentucky-health.html
+
+**A Few Officials Signaled Support for Higher Rates at Warsh’s First Meeting**\
+`Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
+https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html
+
 **A Few Officials Signaled Support for Higher Rates at Warsh’s First Meeting**\
 `Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
 https://www.nytimes.com/2026/07/08/business/no-rate-guidance-in-fed-minutes-as-kevin-warsh-takes-over.html
