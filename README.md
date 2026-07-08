@@ -1,3 +1,7 @@
+**Le Pen Launches Presidential Campaign, in a Twist for French Politics**\
+`The day after a court decided the far-right leader Marine Le Pen could run for office again, cheers and boos met her campaign kickoff in a rural stronghold.`\
+https://www.nytimes.com/2026/07/08/world/europe/marine-le-pen-presidential-campaign.html
+
 **In San Francisco, Some Home Sellers Now Ask for OpenAI or Anthropic Stock**\
 `Even before OpenAI and Anthropic go public, they are distorting home sales in the San Francisco Bay Area, as people race to buy and sellers ask for stock instead of cash.`\
 https://www.nytimes.com/2026/07/08/technology/san-francisco-home-sales-openai-anthropic-ipo.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/2026/07/08/opinion/american-economy-decline-china-europe
 **Pick Your Favorite $1.4 Million Home**\
 `Choices include a Queen Anne Revival in St. Paul, Minn., a 1920s house in Central Valley, N.Y., and a midcentury ranch in Miami.`\
 https://www.nytimes.com/2026/07/08/realestate/homes-for-sale-st-paul-miami-new-york.html
-
-**Trump and the Democrats: 13 Black Democratic Voters Discuss**\
-`The group discusses Donald Trump, America today and the future of the Democratic Party.`\
-https://www.nytimes.com/interactive/2026/07/08/opinion/focus-group-black-democrats.html
-
-**‘Trump’s Intervention Had an Impact’: 3 Writers on America’s World Cup Exit**\
-`The world’s most global game produces some of its strongest feelings of national belonging.`\
-https://www.nytimes.com/2026/07/08/opinion/world-cup-trump-us.html
 
 **Live Updates: Trump Lashes Out at NATO Summit but Offers New Help to Ukraine**\
 `Though President Trump assailed partners for not joining the war in Iran, he said he would grant Ukraine long-sought authority to make the Patriot defense system.`\
