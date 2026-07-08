@@ -1,3 +1,7 @@
+**Trump Lashes Out at Spain: ‘Cut Off All Trade.’ Here’s Why That’s Unlikely.**\
+`A move against Spain would face political, legal and practical issues and probably provoke a wider trade war with the European Union. It could also roil markets.`\
+https://www.nytimes.com/2026/07/08/world/europe/trump-spain-trade-us-iran-nato.html
+
 **Trump Casts Doubt on Iran Cease-Fire After Tit-for-Tat Strikes**\
 `After the latest exchange of attacks between U.S. and Iranian forces, President Trump suggested that the preliminary cease-fire between the warring countries was over.`\
 https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt-on-iran-cease-fire-after-tit-for-tat-strikes.html
@@ -111,7 +115,7 @@ https://www.nytimes.com/2026/07/08/us/politics/charlie-dingman-maine-democratic-
 https://www.nytimes.com/es/2026/07/08/espanol/vacaciones-sin-pareja.html
 
 **‘The Hole’: Urban Apocalypse as Tuneful Chamber Drama**\
-`Tsai Ming-liang’s 1990s doomsday film gets its first theatrical run with a new 35 mm print at both Film Society at Lincoln Center and Metrograph.`\
+`Tsai Ming-liang’s 1990s doomsday film gets its first theatrical run with a new 35 mm print at both Film at Lincoln Center and Metrograph.`\
 https://www.nytimes.com/2026/07/08/movies/the-hole-lincoln-center.html
 
 **Money Makes the City Go Round**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/08/magazine/microbiome-gut-health.html
 **How U.S. Satellite Imagery Restrictions Are Changing How We Report on Iran**\
 `U.S. satellite image limitations have hampered journalists covering the Iran war. But other sources are offering workarounds, making it harder for militaries to conceal their actions.`\
 https://www.nytimes.com/2026/07/08/insider/iran-war-satellite-image-restrictions.html
-
-**I Survived a Cold Plunge and All I Got Was Everything I Ever Wanted**\
-`I resisted the trend until I couldn’t any longer.`\
-https://www.nytimes.com/2026/07/08/magazine/cold-plunge-fix.html
 
 **Live Updates: Trump Lashes Out at Europe at NATO Summit**\
 `President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\

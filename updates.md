@@ -1,3 +1,11 @@
+**Trump Lashes Out at Spain: ‘Cut Off All Trade.’ Here’s Why That’s Unlikely.**\
+`A move against Spain would face political, legal and practical issues and probably provoke a wider trade war with the European Union. It could also roil markets.`\
+https://www.nytimes.com/2026/07/08/world/europe/trump-spain-trade-us-iran-nato.html
+
+**‘The Hole’: Urban Apocalypse as Tuneful Chamber Drama**\
+`Tsai Ming-liang’s 1990s doomsday film gets its first theatrical run with a new 35 mm print at both Film at Lincoln Center and Metrograph.`\
+https://www.nytimes.com/2026/07/08/movies/the-hole-lincoln-center.html
+
 **Trump Casts Doubt on Iran Cease-Fire After Tit-for-Tat Strikes**\
 `After the latest exchange of attacks between U.S. and Iranian forces, President Trump suggested that the preliminary cease-fire between the warring countries was over.`\
 https://www.nytimes.com/video/world/middleeast/100000011018672/trump-casts-doubt-on-iran-cease-fire-after-tit-for-tat-strikes.html
