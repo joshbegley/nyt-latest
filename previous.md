@@ -1,3 +1,11 @@
+**Family of Man Killed by ICE Push for Independent Investigation**\
+`Lorenzo Salgado Araujo was shot by an immigration enforcement agent during a traffic stop in Houston on Tuesday. The details of why and how Araujo was shot remain unclear.`\
+https://www.nytimes.com/video/us/100000011019094/houston-ice-shooting.html
+
+**Egypt Fans Show Pride After Heartbreaking Loss to Argentina**\
+`Egyptians fans expressed pride despite their team’s heartbreaking 3-2 loss against Argentina. Fans shared how the team united the country and parts of the Arab world, including war-torn Gaza.`\
+https://www.nytimes.com/video/sports/soccer/100000011019475/egypt-fans-show-pride-after-heartbreaking-loss-to-argentina.html
+
 **When Might Graham Platner Drop Out? Here’s the State of Play.**\
 `Here’s what we know about the uproar in the Democratic Party’s bid to unseat Senator Susan Collins.`\
 https://www.nytimes.com/2026/07/08/us/politics/platner-democrats-maine-state-of-play.html
@@ -24,7 +32,7 @@ https://www.nytimes.com/2026/07/08/world/ali-khamenei-funeral-iran-strikes.html
 
 **How to Stay Safe From the Severe Stomach Bug That’s Going Around**\
 `Cyclospora, a parasite that causes intestinal illness, is sickening many people across the United States. Health experts have tips for avoiding infection.`\
-https://www.nytimes.com/2026/07/08/well/eat/cyclopspora-prevention-methods.html
+https://www.nytimes.com/2026/07/08/well/eat/cyclopspora-stomach-bug-prevention.html
 
 **Democrats Grow Frustrated as Graham Platner Resists Dropping Out Quickly in Maine**\
 `Two days after a woman accused Graham Platner of rape, he had not given up his nomination for Senate in Maine, raising worries about whether and how his party might find a replacement.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/08/world/europe/marine-heat-wave-uk.html
 **Why ‘Heated Rivalry’ Received No Emmy Nominations While Connor Storrie Did**\
 `Even if voters had wanted to honor the gay hockey drama, which became a hit on HBO Max, they couldn’t have. But the Emmys did recognize one of the stars.`\
 https://www.nytimes.com/2026/07/08/arts/television/heated-rivalry-emmy-nominations.html
-
-**I Think the Workmen at My Condo Are Being Exploited. What Should I Do?**\
-`Many of us suspect they are undocumented, and being underpaid.`\
-https://www.nytimes.com/2026/07/08/magazine/undocumented-workers-ethics.html
-
-**Family of Man Fatally Shot by ICE Agent Calls for Independent Inquiry**\
-`The man killed, Lorenzo Salgado Araujo, was mourned by his sons as a father, husband and business owner. Details of the encounter remain unclear.`\
-https://www.nytimes.com/2026/07/08/us/houston-ice-shooting.html
 

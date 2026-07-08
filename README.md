@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/07/08/espanol/negocios/meta-fotos-instagram-ia.h
 `Our July 4 bash was troubled, and America may go the way of the Ghaznavid Empire. But here are reasons to be more positive.`\
 https://www.nytimes.com/2026/07/08/opinion/america-250-trump.html
 
-**U.F.C. Star Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
+**Conor McGregor Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
 `Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
 https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
 
