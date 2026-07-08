@@ -1,3 +1,7 @@
+**Tensions Escalate Between Russia and NATO’s European Members**\
+`Moscow has directed extra hostility toward countries that have strongly supported Ukraine and praise at President Trump.`\
+https://www.nytimes.com/2026/07/08/world/europe/russia-nato-europe-ukraine.html
+
 **Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
 `“I think it’s over,” President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
 https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
