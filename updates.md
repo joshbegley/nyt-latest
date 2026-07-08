@@ -1,3 +1,11 @@
+**Emmy Nominees 2026: Updating List**\
+`The 78th Emmy Awards ceremony is planned for Sept. 14. Check in here as the nominees are announced.`\
+https://www.nytimes.com/2026/07/08/arts/television/emmy-nominees-list-2026.html
+
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
+`“I think it’s over,” President Trump said, referring to the preliminary truce, and threatened to strike Iran again. The two sides traded attacks as their shaky truce appeared to edge closer to collapse.`\
+https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
+
 **How GLP-1s Feed Our Sick Culture**\
 `For women, they’re a depressingly rational choice.`\
 https://www.nytimes.com/2026/07/08/opinion/glp1-ozempic-caroline-calloway.html
