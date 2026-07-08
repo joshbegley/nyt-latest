@@ -1,3 +1,19 @@
+**A.I. Is Giving Us Answers Right Away. That’s Making Us Dumber.**\
+`What used to be a meandering journey is now an immediate arrival at your destination.`\
+https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.html
+
+**Oil Prices Jump After Renewed Strikes in Gulf Put Shipping Recovery at Risk**\
+`Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
+https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
+
+**Mideast Live Updates: Iran Launches Attacks Across Gulf After Latest U.S. Strikes**\
+`Iran’s armed forces said they had targeted 85 U.S. military sites in Bahrain and Kuwait. The U.S. said its strikes were in response to what it said were Iranian attacks on ships in the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
+
+**Sagging Manhattan Building Stable for Now, Official Says**\
+`A high-rise Midtown Manhattan office building being converted to apartments showed signs of collapsing on Tuesday. A city official later said the building was stable for now.`\
+https://www.nytimes.com/video/nyregion/100000011017065/midtown-manhattan-building-collapse-risk.html
+
 **What to Know About the ‘Frozen Zone’ in Midtown Manhattan**\
 `A building at risk of partial collapse prompted the city to restrict pedestrian and vehicle traffic in the area. Some buses were diverted or delayed, but subway lines remained uninterrupted.`\
 https://www.nytimes.com/2026/07/07/nyregion/frozen-zone-midtown-manhattan-building-collapse.html
