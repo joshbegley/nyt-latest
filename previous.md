@@ -1,3 +1,123 @@
+**Money Makes the City Go Round**\
+`In a time of economic stress, some young people are rethinking their political outlook. Others are still doing well.`\
+https://www.nytimes.com/2026/07/08/nyregion/plumber-overtime-money-nyc.html
+
+**In Some U.K. Hospitals, the T.L.C. Includes a Movie Theater**\
+`A British nonprofit helps patients escape the stress and boredom of ward life by watching the latest blockbusters.`\
+https://www.nytimes.com/2026/07/08/movies/uk-hospitals-medicinema-movies.html
+
+**How ‘Little House’ Welcomes Native Neighbors**\
+`The real Ingalls family built their “little house on the prairie” on Osage land and evinced racist attitudes. A new TV adaptation tries to reckon with this while preserving the story’s heart.`\
+https://www.nytimes.com/2026/07/08/arts/television/how-little-house-welcomes-native-neighbors.html
+
+**How Therapist Esther Perel Helped Olivia Wilde Perfect the Sexual Dynamics in ‘The Invite’**\
+`The psychotherapist helped Olivia Wilde and her cast ground the antics of their relationship comedy in the reality of clinical practice.`\
+https://www.nytimes.com/2026/07/08/movies/the-invite-esther-perel-olivia-wilde.html
+
+**The American Economy Isn’t as Bad as You Might Think**\
+`Influencers may be “Chinamaxxing,” but the U.S. is still the world’s economic powerhouse.`\
+https://www.nytimes.com/2026/07/08/opinion/american-economy-decline-china-europe.html
+
+**Pick Your Favorite $1.4 Million Home**\
+`Choices include a Queen Anne Revival in St. Paul, Minn., a 1920s house in Central Valley, N.Y., and a midcentury ranch in Miami.`\
+https://www.nytimes.com/2026/07/08/realestate/homes-for-sale-st-paul-miami-new-york.html
+
+**Trump and the Democrats: 13 Black Democratic Voters Discuss**\
+`The group discusses Donald Trump, America today and the future of the Democratic Party.`\
+https://www.nytimes.com/interactive/2026/07/08/opinion/focus-group-black-democrats.html
+
+**‘Trump’s Intervention Had an Impact’: 3 Writers on America’s World Cup Exit**\
+`The world’s most global game produces some of its strongest feelings of national belonging.`\
+https://www.nytimes.com/2026/07/08/opinion/world-cup-trump-us.html
+
+**Zelensky Renews Demands for Defense Systems Ahead of Trump Meeting**\
+`President Volodymyr Zelensky of Ukraine is urging European states to sell him Patriot missiles to defend against Russian attacks and has asked President Trump to let Ukraine make the Patriot systems.`\
+https://www.nytimes.com/2026/07/08/world/europe/ukraine-nato-zelensky-trump.html
+
+**‘You Do It Because They’re Your Parents’**\
+`Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
+https://www.nytimes.com/2026/07/08/opinion/family-caregiver-aging-parents.html
+
+**Inside a Private Dinner Party by Scottish-Sikh Chef Tony Singh**\
+`A writer engaged the Scottish-Sikh chef Tony Singh to prepare a luxurious dinner at a Highlands lodge she’d rented. Would the haggis pakora live up to her dreams?`\
+https://www.nytimes.com/2026/07/08/travel/-scotland-tony-singh-food.html
+
+**America250? Try Bangladesh 2.**\
+`As America celebrates its anniversary of self-rule, a critic finds in Bangladesh a nimble photography scene that has flourished during a seismic regime change.`\
+https://www.nytimes.com/2026/07/08/arts/design/bangladesh-photography-dhaka.html
+
+**A Third of Young Adults Still Live With Their Parents**\
+`The share of those under age 35 and waking up in their childhood bedroom has returned to pandemic levels.`\
+https://www.nytimes.com/2026/07/08/realestate/a-third-of-young-adults-still-live-with-their-parents.html
+
+**For Rebels in Congo, Ebola Could Help Strengthen Their Rule**\
+`A violent militia that controls large swaths of Congolese territory in the east may use the virus to try to bolster its authority.`\
+https://www.nytimes.com/2026/07/08/world/africa/ebola-congo-m23-rebels.html
+
+**The Unknown Universe Inside Your Gut**\
+`The human microbiome is essential to our health, but scientists have only begun to understand why. Two researchers set out to map this largely uncharted terrain.`\
+https://www.nytimes.com/2026/07/08/magazine/microbiome-gut-health.html
+
+**How U.S. Satellite Imagery Restrictions Are Changing How We Report on Iran**\
+`U.S. satellite image limitations have hampered journalists covering the Iran war. But other sources are offering workarounds, making it harder for militaries to conceal their actions.`\
+https://www.nytimes.com/2026/07/08/insider/iran-war-satellite-image-restrictions.html
+
+**I Survived a Cold Plunge and All I Got Was Everything I Ever Wanted**\
+`I resisted the trend until I couldn’t any longer.`\
+https://www.nytimes.com/2026/07/08/magazine/cold-plunge-fix.html
+
+**Chernobyl’s Wildlife Cameras Reveal How War Affects Wild Animals**\
+`A rare camera-trap study logged the effects of armed conflict on wild animals in real time.`\
+https://www.nytimes.com/2026/07/08/science/russia-captured-chernobyl-the-wildlife-cameras-kept-recording.html
+
+**How to Support a Parent Grieving a Child**\
+`How to show up for someone who’s grieving the loss of a child.`\
+https://www.nytimes.com/2026/07/08/podcasts/grief-parenting-child-death.html
+
+**Work at Kushner-Linked Resort in Albania Could Affect Sensitive Landscape**\
+`A New York Times analysis of satellite images shows the damage a proposed luxury resort near Zvernec, Albania could inflict on delicate natural habitats. The project is being developed by real estate partners of Jared Kushner.`\
+https://www.nytimes.com/video/world/europe/100000010975655/jared-kushner-resort-albania-wildlife.html
+
+**Decades Late, Museum Scrambles to Return 2,700 Native Remains**\
+`The American Museum of Natural History said it would repatriate hair clippings that must be returned to tribes under a 1990 federal law.`\
+https://www.nytimes.com/2026/07/08/arts/design/decades-late-museum-scrambles-to-return-2700-native-remains.html
+
+**5 Minutes That Will Make You Love Geri Allen**\
+`Vernon Reid, Kassa Overall, Farah Jasmine Griffin and more artists and writers share their favorites from this pianist who connected jazz music’s past and future.`\
+https://www.nytimes.com/2026/07/08/arts/music/geri-allen-jazz-music.html
+
+**A New ‘Little House’ Expands and Updates the Prairie**\
+`A Netflix adaptation of the beloved tale empowers Ma and adds new Black and Native characters to challenge prejudices.The creators know criticism is coming.`\
+https://www.nytimes.com/2026/07/08/arts/television/little-house-on-the-prairie-netflix.html
+
+**Which Country Has the Best-Dressed World Cup Fans?**\
+`At World Cup matches featuring teams from five continents, our photographer captured fans, flags, fringe, face paint and at least one horned helmet.`\
+https://www.nytimes.com/2026/07/08/style/world-cup-fans-fashion-best-dressed.html
+
+**As Parents Reject Vitamin K Shots, Some Babies Develop Devastating Bleeding**\
+`Doctors described treating brain and abdominal hemorrhages in infants who hadn’t received the routine injection. Several said the images of those patients were seared in their minds.`\
+https://www.nytimes.com/2026/07/08/well/live/vitamin-k-shot-bleeding-newborn.html
+
+**A Conservative Role Model for Ending the Fertility Crisis**\
+`Emma Waters, pregnant with her third child, is crafting policy to encourage early parenthood. Some think she is pushing an ideology that does not meet reality.`\
+https://www.nytimes.com/2026/07/08/us/politics/emma-waters-restorative-reproduction.html
+
+**Book Review: ‘A Table for Fortune,’ by William T. Vollmann**\
+`William T. Vollmann’s fascinating, wildly ambitious text interweaves a family saga with a history of the American war machine since Vietnam.`\
+https://www.nytimes.com/2026/07/08/books/review/table-for-fortune-william-vollmann.html
+
+**Are Omega-3 Supplements Actually Good for Your Brain?**\
+`Researchers have been surprised by the study findings.`\
+https://www.nytimes.com/2026/07/08/well/mind/omega-3s-supplements-benefits-brain.html
+
+**The American Economy Isn’t as Bad as You Might Think**\
+`Influencers may be “Chinamaxxing,” but the U.S. is still the world’s economic powerhouse.`\
+https://www.nytimes.com/video/opinion/100000011007048/the-american-economy-isnt-as-bad-as-you-might-think.html
+
+**‘You Do It Because They’re Your Parents’**\
+`Behind closed doors, millions of Americans are stepping into one of the hardest roles they’ll ever take on: caring for their aging parents.`\
+https://www.nytimes.com/video/opinion/100000010551165/family-caregiver-aging-parents.html
+
 **¿Cuál es el secreto de la felicidad en los países nórdicos?**\
 `Escandinavia ofrece cinco semanas de vacaciones, universidad prácticamente gratuita, un año de licencia parental, cuidado infantil accesible y algunos de los ciudadanos más felices del mundo.`\
 https://www.nytimes.com/es/2026/07/08/espanol/opinion/felicidad-paises-nordicos.html
@@ -58,8 +178,8 @@ https://www.nytimes.com/2026/07/08/opinion/ai-google-gemini-search-questions.htm
 `Attacks on ships in the Strait of Hormuz sparked a new cycle of retaliation that could throttle the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/08/business/oil-gas-markets-shipping-hormuz.html
 
-**Mideast Live Updates: Iran Launches Attacks Across Gulf After Latest U.S. Strikes**\
-`Iran’s armed forces said they had targeted 85 U.S. military sites in Bahrain and Kuwait. The U.S. said its strikes were in response to what it said were Iranian attacks on ships in the Strait of Hormuz.`\
+**Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes**\
+`‘I think it’s over,’ President Trump said, referring to the preliminary truce. Iran’s armed forces earlier said they had targeted U.S. military sites in Bahrain and Kuwait in response to the latest U.S. attacks.`\
 https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump
 
 **EE. UU. ataca a Irán y reactiva sanciones por los ataques a buques**\
@@ -73,128 +193,4 @@ https://www.nytimes.com/2026/07/08/world/europe/germany-budweiser-beer.html
 **Una llamada de Trump a la FIFA convierte el Mundial en otro frente político**\
 `La acción del mandatario de EE. UU. deja claro que todavía no ha encontrado ningún ámbito de la vida estadounidense, ni siquiera mundial, en el que no esté dispuesto a imponer su voluntad.`\
 https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/trump-mundial-fifa.html
-
-**Quote of the Day: Loss for U.S. Soccer, but Leap by Soccer in U.S.**\
-`Quotation of the Day for July 8, 2026.`\
-https://www.nytimes.com/2026/07/08/pageoneplus/quote-of-the-day-loss-for-us-soccer-but-leap-by-soccer-in-us.html
-
-**Trump’s Arrival in Turkey for NATO Summit Adds Drama and Spectacle**\
-`The second President Trump landed in Turkey, the center of gravity shifted right to where he likes it best: himself.`\
-https://www.nytimes.com/2026/07/08/world/europe/trump-nato-summit.html
-
-**What to Know About Australia’s Contest With China in the Pacific After Beijing Tested a Missile**\
-`With a series of recent treaties and alliances, Canberra is seeking to prevent Beijing from establishing a military foothold in the Pacific Ocean.`\
-https://www.nytimes.com/2026/07/08/world/asia/china-australia-pacific.html
-
-**Manhattan Building’s Columns Buckled Beneath New Addition, Images Show**\
-`Images and videos of the Manhattan building analyzed by The Times show that the structural columns buckled directly beneath where the recent addition was built.`\
-https://www.nytimes.com/interactive/2026/07/07/us/midtown-structural.html
-
-**Charges Against Man Who Drove Family Off Cliff Are Dropped After Treatment**\
-`Three counts of attempted murder against Dharmesh A. Patel were dismissed after he completed a court-ordered mental health program, prosecutors said.`\
-https://www.nytimes.com/2026/07/07/us/california-devils-slide-dad-charges.html
-
-**Haley Stevens Goes on Attack Against Abdul El-Sayed at Michigan Senate Debate**\
-`At their first one-on-one debate in a top Senate race, Representative Haley Stevens accused her progressive rival, Dr. Abdul El-Sayed, of being too focused on publicity as he called her a tool of corporate interests.`\
-https://www.nytimes.com/2026/07/07/us/politics/abdul-el-sayed-haley-stevens-michigan-senate-debate.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000011018239/08vid-iran-embed-14360.html
-
-**Dozens Face Felony Charges After Raid of Beagle Research Facility**\
-`The charges for most of the people carry sentences of up to 12.5 years in prison, officials said, and the police have recommended more charges for a separate attempt in April.`\
-https://www.nytimes.com/2026/07/07/us/ridgeland-beagles-charges.html
-
-**New York City Adopts Measures to Slow Legionnaires’ Disease Outbreak**\
-`An ongoing cluster of the illness has sickened 23 people. That’s not unusual: Most years, 200 to 700 people in the city are diagnosed with the disease.`\
-https://www.nytimes.com/2026/07/07/nyregion/nyc-legionnaires-disease.html
-
-**Top Maine Democrat Says Platner Will Have ‘No Role’ in Picking Next Nominee**\
-`A top state party official said that Graham Platner’s team had “repeatedly” tried to “put their thumb on the scale,” but he would not influence how the party chose a new Senate candidate.`\
-https://www.nytimes.com/2026/07/07/us/politics/graham-platner-maine-senate-democrats.html
-
-**Midtown Building Developer Says Problems Were a ‘Typical Construction Mishap’**\
-`Nathan Berman, one of the developers of the Midtown building that suffered structural damage, predicted the project would restart within weeks.`\
-https://www.nytimes.com/2026/07/07/nyregion/developer-midtown-manhattan-building.html
-
-**Judge Orders D.H.S. to Restore 4 States’ Access to Citizenship Data**\
-`The ruling, based on an agreement the Trump administration signed with Florida last year, contradicted an earlier order by a judge in Washington that required the access be suspended.`\
-https://www.nytimes.com/2026/07/07/us/politics/florida-judge-dhs-citizenship-data.html
-
-**Part of Florida’s ‘Stop WOKE’ Law Ruled Illegal by Appeals Court**\
-`The law limits teaching on race, gender and other topics. Part of the law related to colleges was struck down. It remains in effect in K-12 schools.`\
-https://www.nytimes.com/2026/07/07/us/florida-stop-woke-law-appeals-court.html
-
-**Suspect in Charlie Kirk Shooting Talked to Turning Point USA Members, Agent Testifies**\
-`Prosecutors questioned the lead investigator about Tyler Robinson’s interactions with members of Charlie Kirk’s Turning Point USA during the second day of a preliminary hearing.`\
-https://www.nytimes.com/video/us/100000011017023/charlie-kirk-tyler-robinson-hearing.html
-
-**Midtown Neighborhood Has to Cope in a Troubled Building’s Shadow**\
-`Travelers were shut out of major hotels, and work ground to a halt for some on Tuesday after a building partially buckled in Manhattan.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-manhattan-building-east-42nd.html
-
-**India Calls Out Meta Over Reported Child Sexual Abuse Imagery in Ads**\
-`The tech giant that owns Instagram, Facebook and WhatsApp says it is in touch with the Indian authorities about reports that exploitative content is being hawked on one of its platforms.`\
-https://www.nytimes.com/2026/07/07/world/asia/india-meta-child-abuse-imagery.html
-
-**Why Israelis and Palestinians Need New Narratives**\
-`A Land for All is a joint Israeli-Palestinian initiative advocating options beyond the two-state or one-state solution — namely, a confederacy model in which Israel and Palestine would exist as separate political entities but with free movement across borders. On “The Ezra Klein Show,” the executive directors May Pundak and Rula Hardal explain their long-term vision for the region, and why both Israelis and Palestinians need new national narratives.`\
-https://www.nytimes.com/video/opinion/100000011017692/why-israelis-and-palestinians-need-new-narratives.html
-
-**As Israel Loses Support in the U.S., Rahm Emanuel Criticizes Netanyahu**\
-`The former Chicago mayor, a Democrat exploring a 2028 presidential run, is in Tel Aviv calling for an end to unconditional U.S. support of Israel.`\
-https://www.nytimes.com/2026/07/07/us/politics/rahm-emanuel-speech-israel.html
-
-**‘We Palestinians Are Not Going to Give Up’**\
-`The Palestinian advocate Rula Hardal is a co-executive director of A Land for All, a joint Israeli-Palestinian initiative to imagine a new future for the region. She shares her motivation to find new solutions on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011002960/we-palestinians-are-not-going-to-give-up.html
-
-**‘This Has Not Given Us Safety’**\
-`The Israeli activist May Pundak advocated the two-state solution for many years, but her confidence faded as she saw the idea lose relevance. On “The Ezra Klein Show,” Pundak explains why there’s a need for a new way of thinking — and a new plan for the future of the region.`\
-https://www.nytimes.com/video/opinion/100000011002639/this-has-not-given-us-safety.html
-
-**U.S. Strikes Iran and Reimposes Sanctions After Tanker Attacks**\
-`The military operation came hours after the U.S. Treasury revoked a waiver allowing global sales of Iranian oil.`\
-https://www.nytimes.com/2026/07/07/us/politics/us-strikes-iran-tanker-attacks.html
-
-**These Maine Democrats Might Replace Graham Platner in the Senate Race**\
-`Mr. Platner has not yet withdrawn from the race after a rape allegation, but Democrats in the state and nationally are already exploring potential alternatives.`\
-https://www.nytimes.com/2026/07/07/us/politics/graham-platner-replacements-maine-democrats.html
-
-**What to Know About Manhattan Office Conversions**\
-`The city has encouraged more complex office-to-residential conversions to fight the housing crisis.`\
-https://www.nytimes.com/2026/07/07/nyregion/office-residential-explainer-faq.html
-
-**Rush to Evacuate as ‘Beams Started Bending’ and Floors Sagged at Midtown Tower**\
-`Offices and hotels around East 42nd Street were evacuated after structural damage affected an office conversion project, disrupting businesses, stranding tourists and snarling traffic.`\
-https://www.nytimes.com/2026/07/07/nyregion/midtown-building-collapse-housing-project.html
-
-**Maryland Moves Toward Redistricting Ahead of 2028**\
-`Lawmakers at a special legislative session next month will try to pass an amendment to the state constitution that should ensure new congressional maps survive a legal challenge.`\
-https://www.nytimes.com/2026/07/07/us/politics/maryland-redistricting.html
-
-**Sagging Manhattan Building Stable for Now, Official Says**\
-`A high-rise Midtown Manhattan office building being converted to apartments showed signs of collapsing on Tuesday. A city official later said the building was stable for now.`\
-https://www.nytimes.com/video/nyregion/100000011017065/midtown-manhattan-building-collapse-risk.html
-
-**Judge Quashes Justice Dept. Subpoena in 2020 Election Inquiry**\
-`The ruling cast serious doubts on the department’s efforts to reinvestigate the race, finding that it was too late to bring criminal charges in the case.`\
-https://www.nytimes.com/2026/07/07/us/politics/2020-election-inquiry-trump-georgia.html
-
-**Democrats Clash Over a Replacement for Platner**\
-`Also, U.S. forces carry out strikes in Iran. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/07/07/briefing/democrats-platner-maine-us-iran-strikes.html
-
-**Zimbabwe’s President Signs Law Extending His Term**\
-`The measure will allow the president, Emmerson Mnangagwa, to stay in office until 2030. Critics say the move tightens his autocratic grip on power and erodes the nation’s democracy.`\
-https://www.nytimes.com/2026/07/07/world/africa/zimbabwe-president-mnangagwa-extension.html
-
-**Utah Moves to Close Teen Treatment Center Accused of Abusing Girls**\
-`Paris Hilton helped lead a campaign to shut down the Provo Canyon School, where she said she was beaten and spat on when she was 17.`\
-https://www.nytimes.com/2026/07/07/us/utah-boarding-school-abuse-paris-hilton.html
-
-**ICE Officer Kills a Mexican Man in Houston**\
-`The agency said the man was an “illegal alien” who had tried to run over the agent, though no evidence was immediately offered.`\
-https://www.nytimes.com/2026/07/07/us/immigration-ice-shooting-houston.html
 
