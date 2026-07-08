@@ -1,3 +1,7 @@
+**Manhattan Building’s Columns Buckled Beneath New Addition, Images Show**\
+`Images and videos of the Manhattan building analyzed by The Times show that the structural columns buckled directly beneath where the recent addition was built.`\
+https://www.nytimes.com/interactive/2026/07/07/us/midtown-structural.html
+
 **Charges Against Man Who Drove Family Off Cliff Are Dropped After Treatment**\
 `Three counts of attempted murder against Dharmesh A. Patel were dismissed after he completed a court-ordered mental health program, prosecutors said.`\
 https://www.nytimes.com/2026/07/07/us/california-devils-slide-dad-charges.html

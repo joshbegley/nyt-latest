@@ -1,3 +1,7 @@
+**Manhattan Building’s Columns Buckled Beneath New Addition, Images Show**\
+`Images and videos of the Manhattan building analyzed by The Times show that the structural columns buckled directly beneath where the recent addition was built.`\
+https://www.nytimes.com/interactive/2026/07/07/us/midtown-structural.html
+
 **Charges Against Man Who Drove Family Off Cliff Are Dropped After Treatment**\
 `Three counts of attempted murder against Dharmesh A. Patel were dismissed after he completed a court-ordered mental health program, prosecutors said.`\
 https://www.nytimes.com/2026/07/07/us/california-devils-slide-dad-charges.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/07/weather/how-much-rain-fell-new-york-connectic
 **Terremotos en Venezuela: de la represión a la indignación**\
 `Los venezolanos critican abiertamente al partido gobernante y a su líder, Delcy Rodríguez, algo que habría sido impensable hace tan solo un año. También dirigen su enojo hacia Trump.`\
 https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuela-represion-indignacion.html
-
-**The Symbols We Saw at Khamenei’s Funeral**\
-`Abdi Latif Dahir, a Middle East correspondent for The Times, explains the messages behind recurring symbols at the dayslong funeral for Ayatollah Ali Khamenei.`\
-https://www.nytimes.com/video/world/middleeast/100000011012446/the-symbols-we-saw-at-khameneis-funeral.html
 
