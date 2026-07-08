@@ -1,3 +1,11 @@
+**Tomato Basil Chicken Breasts**\
+`This chicken recipe, linked below, takes a cue from piccata then heads in a decidedly summery direction: A quick pan sauce of butter, shallots, tomatoes, capers and a splash of red wine vinegar turns rich, juicy and bright — just the thing to spoon over the top.`\
+https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breasts.html
+
+**JD Vance está preocupado**\
+`La teología del vicepresidente de Estados Unidos toma forma en un libro y ofrece una ventana a su visión política.`\
+https://www.nytimes.com/es/2026/07/08/espanol/opinion/jd-vance-trump-libro-iglesia-catolica.html
+
 **Taylor Swift and Reality TV Shows Like ‘Summer House’ Earn Emmy Nods**\
 `Nominations for unscripted programs recognized a certain newlywed and the scandalous reality hit of the spring.`\
 https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/08/world/americas/pedigree-dog-food-recall.html
 **Lawmakers Target the Power of Health Insurance Giants**\
 `UnitedHealth Group, CVS Health and Cigna are battling efforts to break up their control over prescription drugs.`\
 https://www.nytimes.com/2026/07/08/business/health-insurance-cvs-unitedhealth-breakup.html
-
-**Corrections: July 8, 2026**\
-`Corrections that appeared in print on Wednesday, July 8, 2026.`\
-https://www.nytimes.com/2026/07/08/pageoneplus/corrections-july-8-2026.html
-
-**Trump Lashes Out at Spain: ‘Cut Off All Trade.’ Here’s Why That’s Unlikely.**\
-`A move against Spain would face political, legal and practical issues and probably provoke a wider trade war with the European Union. It could also roil markets.`\
-https://www.nytimes.com/2026/07/08/world/europe/trump-spain-trade-us-iran-nato.html
 
 **World Cup Updates: In Egypt, a Last-Minute Loss Brings Heartbreak and Anger**\
 `(No description)`\
