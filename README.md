@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
 https://www.nytimes.com/2026/07/08/us/beshear-mcconnell-kentucky-health.html
 
 **At Warsh’s First Fed Meeting, Some Officials Signaled Support for Raising Interest Rates**\
-`Minutes from Kevin M. Warsh’s first meeting as chairman revealed the extent of divisions at the central bank about the path for interest rates.`\
+`Minutes from Kevin M. Warsh’s first meeting as chairman showed heightened unease about inflation, which is running at a three-year high.`\
 https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html
 
 **Judge Orders $5 Million Trump Judgment Be Released to E. Jean Carroll**\

@@ -1,3 +1,7 @@
+**What We Know About Immigration Officers Shooting at People in Vehicles**\
+`Federal agents have fired on at least 21 people, many in their cars, as part of President Trump’s deportation crackdown. At least five people were killed, including three U.S. citizens.`\
+https://www.nytimes.com/2026/07/08/us/immigration-agent-shootings-vehicles.html
+
 **As U.S.-Iran Cease-Fire Frays, Trump Faces a Muddled War and Unpalatable Options**\
 `The president appears to be confronting the consequences of a cease-fire deal cobbled together in haste, with little movement toward resolving the key issues driving the conflict.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
