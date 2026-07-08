@@ -1,3 +1,7 @@
+**Le Pen, France’s Far-Right Leader, Launches Her Presidential Campaign**\
+`Marine Le Pen, the leader of France’s far-right political party, launched her fourth bid for the presidency on Wednesday. Her campaign rally comes a day after a court upheld her embezzlement conviction and shortened a ban on her eligibility to run for public office.`\
+https://www.nytimes.com/video/world/europe/100000011019302/marine-le-pen-presidential-campaign.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Stressed desserts, L.A. Metro music and pinball everywhere.`\
 https://www.nytimes.com/2026/07/08/briefing/08-the-good-list-web-pinball-jogging.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/08/world/europe/nato-summit-trump-declaration.ht
 **In San Francisco, Some Home Sellers Now Ask for OpenAI or Anthropic Stock**\
 `Even before OpenAI and Anthropic go public, they are distorting home sales in the San Francisco Bay Area, as people race to buy and sellers ask for stock instead of cash.`\
 https://www.nytimes.com/2026/07/08/technology/san-francisco-home-sales-openai-anthropic-ipo.html
-
-**On Gen Z Movies and Walking to the World Cup: The Winners of Week 3 of Our Summer Reading Contest**\
-`Ella Cheng talks about how Hollywood can engage her generation, while Camilla Guerrieri takes a walk in her neighborhood and shares her thoughts along the way.`\
-https://www.nytimes.com/2026/07/08/learning/on-gen-z-movies-and-walking-to-the-world-cup-the-winners-of-week-3-of-our-summer-reading-contest.html
 
