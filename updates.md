@@ -1,3 +1,7 @@
+**The Alluring Albanian Island Inspiring Ivanka’s Fantasy**\
+`A former military base in the Adriatic Sea, the island is in a beautiful setting but it is strewed with snakes, crumbling buildings and land mines.`\
+https://www.nytimes.com/2026/07/08/world/europe/albania-sazan-island-kushner-ivanka.html
+
 **Pakistan Launches Search After Cargo Plane Vanishes at Sea**\
 `Five crew members were aboard when the aircraft plunged vertically and went missing over the Arabian Sea, flight data showed.`\
 https://www.nytimes.com/2026/07/08/world/asia/pakistan-cargo-plane-missing-arabian-sea.html

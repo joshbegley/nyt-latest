@@ -1,3 +1,7 @@
+**Denmark Says It Will Defend ‘Every Inch’ of NATO as Trump Eyes Greenland Again**\
+`After President Trump once more said that the island should be under U.S. control, the Danish prime minister, Mette Frederiksen, told reporters, “We will defend the kingdom of Denmark.”`\
+https://www.nytimes.com/2026/07/08/world/europe/us-denmark-greenland-nato-frederiksen.html
+
 **The Alluring Albanian Island Inspiring Ivanka’s Fantasy**\
 `A former military base in the Adriatic Sea, the island is in a beautiful setting but it is strewed with snakes, crumbling buildings and land mines.`\
 https://www.nytimes.com/2026/07/08/world/europe/albania-sazan-island-kushner-ivanka.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/08/crosswords/spelling-bee-forum.html
 **A Look Back at Trump’s Broadsides Against NATO Allies**\
 `President Trump has rarely missed an opportunity to castigate the Western military alliance, whose leaders he’s meeting this week, as weak and ineffective.`\
 https://www.nytimes.com/2026/07/08/world/europe/trump-nato-criticism.html
-
-**Live Updates: Trump Lashes Out at Europe at NATO Summit**\
-`President Trump assailed allies for not joining the war in Iran, called Spain “hopeless” and repeated his desire to control Greenland. His criticism cast a pall over a meeting critical for NATO’s future.`\
-https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine
 
