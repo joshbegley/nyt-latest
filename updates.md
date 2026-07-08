@@ -1,3 +1,27 @@
+**EE. UU. ataca a Irán y reactiva sanciones por los ataques a buques**\
+`El Comando Central del ejército estadounidense dijo en redes que habían comenzado una serie de ataques. Las autoridades de Irán no han hecho ningún comentario público.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/iran-ataques-estados-unidos-estrecho-ormuz.html
+
+**Germans Don’t Love Budweiser. It Won’t Take No for an Answer.**\
+`Not for the first time, Budweiser is trying to make it in Germany. But this is a tough time to sell German drinkers on the image and taste of American beer.`\
+https://www.nytimes.com/2026/07/08/world/europe/germany-budweiser-beer.html
+
+**Una llamada de Trump a la FIFA convierte el Mundial en otro frente político**\
+`La acción del mandatario de EE. UU. deja claro que todavía no ha encontrado ningún ámbito de la vida estadounidense, ni siquiera mundial, en el que no esté dispuesto a imponer su voluntad.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/trump-mundial-fifa.html
+
+**Quote of the Day: Loss for U.S. Soccer, but Leap by Soccer in U.S.**\
+`Quotation of the Day for July 8, 2026.`\
+https://www.nytimes.com/2026/07/08/pageoneplus/quote-of-the-day-loss-for-us-soccer-but-leap-by-soccer-in-us.html
+
+**Trump’s arrival in Turkey for NATO summit adds drama and spectacle**\
+`The second President Trump landed in Turkey, the center of gravity shifted right to where he likes it best: himself.`\
+https://www.nytimes.com/2026/07/08/world/europe/trump-nato-summit.html
+
+**What to Know About Australia’s Contest With China in the Pacific After Beijing Tested a Missile**\
+`With a series of recent treaties and alliances, Canberra is seeking to prevent Beijing from establishing a military foothold in the Pacific Ocean.`\
+https://www.nytimes.com/2026/07/08/world/asia/china-australia-pacific.html
+
 **Manhattan Building’s Columns Buckled Beneath New Addition, Images Show**\
 `Images and videos of the Manhattan building analyzed by The Times show that the structural columns buckled directly beneath where the recent addition was built.`\
 https://www.nytimes.com/interactive/2026/07/07/us/midtown-structural.html

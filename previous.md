@@ -1,3 +1,27 @@
+**EE. UU. ataca a Irán y reactiva sanciones por los ataques a buques**\
+`El Comando Central del ejército estadounidense dijo en redes que habían comenzado una serie de ataques. Las autoridades de Irán no han hecho ningún comentario público.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/iran-ataques-estados-unidos-estrecho-ormuz.html
+
+**Germans Don’t Love Budweiser. It Won’t Take No for an Answer.**\
+`Not for the first time, Budweiser is trying to make it in Germany. But this is a tough time to sell German drinkers on the image and taste of American beer.`\
+https://www.nytimes.com/2026/07/08/world/europe/germany-budweiser-beer.html
+
+**Una llamada de Trump a la FIFA convierte el Mundial en otro frente político**\
+`La acción del mandatario de EE. UU. deja claro que todavía no ha encontrado ningún ámbito de la vida estadounidense, ni siquiera mundial, en el que no esté dispuesto a imponer su voluntad.`\
+https://www.nytimes.com/es/2026/07/08/espanol/estados-unidos/trump-mundial-fifa.html
+
+**Quote of the Day: Loss for U.S. Soccer, but Leap by Soccer in U.S.**\
+`Quotation of the Day for July 8, 2026.`\
+https://www.nytimes.com/2026/07/08/pageoneplus/quote-of-the-day-loss-for-us-soccer-but-leap-by-soccer-in-us.html
+
+**Trump’s arrival in Turkey for NATO summit adds drama and spectacle**\
+`The second President Trump landed in Turkey, the center of gravity shifted right to where he likes it best: himself.`\
+https://www.nytimes.com/2026/07/08/world/europe/trump-nato-summit.html
+
+**What to Know About Australia’s Contest With China in the Pacific After Beijing Tested a Missile**\
+`With a series of recent treaties and alliances, Canberra is seeking to prevent Beijing from establishing a military foothold in the Pacific Ocean.`\
+https://www.nytimes.com/2026/07/08/world/asia/china-australia-pacific.html
+
 **Manhattan Building’s Columns Buckled Beneath New Addition, Images Show**\
 `Images and videos of the Manhattan building analyzed by The Times show that the structural columns buckled directly beneath where the recent addition was built.`\
 https://www.nytimes.com/interactive/2026/07/07/us/midtown-structural.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/07/nyregion/frozen-zone-midtown-manhattan-buildi
 **Restaurant Review: Salt Hank in the West Village**\
 `Salt Hank’s in the West Village quickly became one of the most talked-about sandwiches in the city. Our critic gives it a go.`\
 https://www.nytimes.com/2026/07/07/dining/restaurant-review-salt-hanks.html
-
-**Andrea Shaw, Plaintiff in Anti-Vaccine Suit, Is Charged With Murder of Her Twins**\
-`A lawsuit filed by Children’s Health Defense, an organization founded by Robert F. Kennedy Jr., claims that vaccines caused the twins’ deaths. But a grand jury in Idaho has indicted her on charges of suffocating them.`\
-https://www.nytimes.com/2026/07/07/us/idaho-twins-death-shaw-vaccines-murder.html
-
-**Authorities Arrest Members of India-Based Gangs in Sweeping Crackdown**\
-`The actions were announced in Los Angeles, and most of the new arrests were in California. One of the gangs is accused of assassinating a prominent Sikh separatist leader in British Columbia.`\
-https://www.nytimes.com/2026/07/07/us/india-gang-arrests.html
-
-**Meta Unveils an A.I. Image Generator**\
-`Muse Image, which can create realistic images for users on Instagram and WhatsApp, is the company’s latest attempt to catch up in the global artificial intelligence race.`\
-https://www.nytimes.com/2026/07/07/technology/meta-ai-muse-image.html
-
-**Platner Supporters Struggle to Come to Terms With Campaign’s Death Knell**\
-`Many voters said they expected Graham Platner, the state’s Democratic nominee for Senate, to exit the race after a former girlfriend publicly accused him of sexual assault.`\
-https://www.nytimes.com/2026/07/07/us/maine-voters-platner.html
-
-**Here’s How Much Rain Fell Across the New York Area This Week**\
-`After a blistering heat wave, a dousing of heavy rain this week caused flooding across the region. Experts said it could have been worse.`\
-https://www.nytimes.com/2026/07/07/weather/how-much-rain-fell-new-york-connecticut.html
-
-**Terremotos en Venezuela: de la represión a la indignación**\
-`Los venezolanos critican abiertamente al partido gobernante y a su líder, Delcy Rodríguez, algo que habría sido impensable hace tan solo un año. También dirigen su enojo hacia Trump.`\
-https://www.nytimes.com/es/2026/07/07/espanol/america-latina/terremotos-venezuela-represion-indignacion.html
 
