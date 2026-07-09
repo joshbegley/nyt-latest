@@ -1,3 +1,7 @@
+**Trump’s Mixed Messages at NATO Summit**\
+`As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
+https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
+
 **Democrats Wanted a Fighter. They Still Need a Cause.**\
 `The trouble in Maine goes beyond a single candidate.`\
 https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/world/europe/internal-file-finds-icc-prosecut
 **Judge Hannah C. Dugan Faces Fine But No Prison Time**\
 `The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
 https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
-
-**As Erdogan Hosted NATO, His Jailed Challenger Was in Court**\
-`President Recep Tayyip Erdogan basked in praise from President Trump with the spotlight on a NATO summit. At home, his biggest rival defended himself before judges.`\
-https://www.nytimes.com/2026/07/08/world/europe/erdogan-nato-imamoglu-mayor.html
 
