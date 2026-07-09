@@ -1,3 +1,7 @@
+**Mexico Investigates Possible F.B.I. Role in El Mayo Arrest**\
+`Accusations that the United States lied about its involvement in the notorious drug lord’s capture renewed controversy over an issue that has strained the U.S.-Mexico relationship.`\
+https://www.nytimes.com/2026/07/09/world/americas/mexico-el-mayo-fbi-us-cartel.html
+
 **This Summer, Midtown Manhattan Is Taking Center Stage**\
 `Midtown, with its high-rise office buildings and tourist hotels, isn’t hip, but it has become the site of a series of dramatic spectacles this year.`\
 https://www.nytimes.com/2026/07/09/nyregion/midtown-manhattan-nyc-taylor-swift-knicks.html
