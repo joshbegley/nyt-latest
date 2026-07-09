@@ -1,3 +1,7 @@
+**Why India Has Spent Years Blocking the Release of Diljit Dosanjh’s ‘Satluj’**\
+`Censors demanded 127 cuts to the film that explores a dark period of police brutality in Punjab state. Filmmakers say it’s the latest, chilling example of entrenched censorship.`\
+https://www.nytimes.com/2026/07/09/world/asia/india-film-censorship-sajlut-diljit.html
+
 **The World Is Marching Past an Isolationist America**\
 `Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
 https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/07/08/espanol/opinion/jd-vance-trump-libro-igles
 **Taylor Swift and Reality TV Shows Like ‘Summer House’ Earn Emmy Nods**\
 `Nominations for unscripted programs recognized a certain newlywed and the scandalous reality hit of the spring.`\
 https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys.html
-
-**Justin Bieber and Burna Boy Join Inaugural World Cup Halftime Show**\
-`The artists will perform with Madonna, Shakira and BTS in the first-ever halftime show for a World Cup final. The aim is to replicate the cultural sway of the Super Bowl.`\
-https://www.nytimes.com/2026/07/08/arts/music/justin-bieber-burna-boy-world-cup-halftime-show.html
 
