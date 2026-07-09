@@ -1,3 +1,99 @@
+**Preparing for ‘Weimar America’**\
+`“It may not be Hitler 2.0, it may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
+https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-america.html
+
+**Julia Weist Was Investigated for Making Art. ‘Questioning,’ a New Play, Tells the Story.**\
+`A new play is its own piece of art: A first-person account of an official inquiry into an artist’s use of private investigation databases to create work.`\
+https://www.nytimes.com/2026/07/09/theater/questioning-play-new-theater-hollywood.html
+
+**Help! I Refueled My Rental Car, but Enterprise Charged Me Anyway.**\
+`A traveler to Germany returned his vehicle with slightly more gas than it had when he picked it up. So why was he billed $131 to fill up the tank?`\
+https://www.nytimes.com/2026/07/09/travel/help-i-refueled-my-rental-car-but-enterprise-charged-me-anyway.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a five-bedroom house in Yonkers, N.Y., and a four-bedroom house in Cranford, N.J.`\
+https://www.nytimes.com/2026/07/09/realestate/housing-market-near-nyc.html
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in Yorkville, Midtown South and Riverdale.`\
+https://www.nytimes.com/2026/07/09/realestate/housing-market-nyc.html
+
+**In ‘Remake,’ a Life Documented on Film Prompts Painful Questions**\
+`Ross McElwee (“Sherman’s March”) reconsiders footage of himself and his family, including a son who died of an overdose.`\
+https://www.nytimes.com/2026/07/09/movies/remake-documentary-ross-mcelwee.html
+
+**‘Westhampton’ Review: A Humiliating Return**\
+`They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
+https://www.nytimes.com/2026/07/09/movies/westhampton-review-a-humiliating-return.html
+
+**‘Night Nurse’ Review: An After-Hours, Erotic Con**\
+`In this thriller, a phone scam is being run out of an elder care facility. Eleni, a skittish but observant nurse, quickly becomes enmeshed with two others in the grift.`\
+https://www.nytimes.com/2026/07/09/movies/night-nurse-review-an-after-hours-erotic-con.html
+
+**‘Reading Lolita in Tehran’ Review: Seeing the Words Clearly**\
+`A film adaptation of Azar Nafisi’s celebrated memoir of teaching literature in a repressive Iran suggests that the story might be more suited to the page.`\
+https://www.nytimes.com/2026/07/09/movies/reading-lolita-in-tehran-review-seeing-the-words-clearly.html
+
+**‘Moana’ Review: It Doesn’t Go Far**\
+`This live-action remake of the 2016 animated film has nothing to add to the original, and winds up subtracting instead.`\
+https://www.nytimes.com/2026/07/09/movies/moana-review.html
+
+**‘Gail Daughtry and the Celebrity Sex Pass’ Review: Hamming It Up**\
+`A small-town naïf heads to Los Angeles to bed her celebrity crush (Jon Hamm) in this bonkers sex comedy.`\
+https://www.nytimes.com/2026/07/09/movies/gail-daughtry-and-the-celebrity-sex-pass-review.html
+
+**‘Do You Love Me’ Review: Images of a Beirut Beyond War**\
+`The director Lana Daher creates a complex emotional portrait of Lebanon with found footage assembled into a 75-minute film of memory, trauma and life.`\
+https://www.nytimes.com/2026/07/09/movies/do-you-love-me-review.html
+
+**‘Evil Dead Burn’ Review: Stop, Drop and Kill**\
+`A dark spirit boils and sears its way through an unhappy family in the latest “Evil Dead” installment.`\
+https://www.nytimes.com/2026/07/09/movies/evil-dead-burn-review.html
+
+**‘Barrio Triste’ Review: Bad Boys With a Movie Camera**\
+`This experimental and earnest film from the Colombian American photographer Stillz follows a group of wayward boys in 1980s Medellín.`\
+https://www.nytimes.com/2026/07/09/movies/barrio-triste-review.html
+
+**Trump’s Loyal Defender at the Vatican**\
+`Ambassador Brian Burch must navigate the relationship between the two most prominent American men in the world. His priority is the one in Washington.`\
+https://www.nytimes.com/2026/07/09/us/pope-leo-brian-burch-vatican-ambassador.html
+
+**Alice Oseman on the End of ‘Heartstopper’ and Her Favorite Books**\
+`While the Y.A. graphic novel phenomenon wraps up with a sixth volume and a Netflix movie, Alice Oseman mostly reads fiction about adults now.`\
+https://www.nytimes.com/2026/07/09/books/review/alice-oseman-heartstopper.html
+
+**This Kind of Obsessive Attraction Isn’t Love. But It Has a Name.**\
+`Limerence is more than a crush, psychologists say, and it can persist for months or years.`\
+https://www.nytimes.com/2026/07/09/well/mind/love-attraction-limerence.html
+
+**Romantasy, Sci-Fi, Ghost Story, High-Seas Adventure: It’s All in the ‘Odyssey’!**\
+`The world’s most famous epic has something for every reader.`\
+https://www.nytimes.com/2026/07/09/books/review/odyssey-homer-romantasy-ghost-story-monster-high-seas.html
+
+**Review: ‘Little House’ Adds On an Expansion**\
+`The classic story (and recent culture-war object) remains wholesome but makes room for people who called the prairie home before the Ingalls family.`\
+https://www.nytimes.com/2026/07/09/arts/television/review-little-house-adds-on-an-expansion.html
+
+**Which Version of the ‘Odyssey’ Should You Read?**\
+`Homer’s “Odyssey” has been translated into English countless times, with versions ranging from contemporary and accessible to highly poetic. A.O. Scott, critic at large for The New York Times Book Review, breaks down three translations and explains which one might be right for you.`\
+https://www.nytimes.com/video/books/100000010971102/which-version-of-the-odyssey-should-you-read.html
+
+**Can Xenom Turn Working Out Into a Sport?**\
+`Xenom, a new fitness company, wants to make weekend warriors feel like pros.`\
+https://www.nytimes.com/2026/07/09/style/xenom-crossfit-competition-workout-fitness.html
+
+**The World Cup’s Biggest Match Is Nike Vs. Adidas**\
+`Second place in the hearts and wallets of Americans isn’t good enough for the world’s largest sportswear companies, who bet big on the tournament.`\
+https://www.nytimes.com/2026/07/09/business/world-cup-nike-adidas.html
+
+**Big Tech Is Now Targeting Native American Land for Massive Data Centers**\
+`The data center boom has roiled communities across the country, but on Native land, a Big Tech push for quick approvals has pitted the need for development against a history of exploitation.`\
+https://www.nytimes.com/2026/07/09/us/data-centers-native-american-tribes.html
+
+**Historical Fiction Books That Will Transport You to the 1960s**\
+`The best-selling author Kerri Maher recommends books that transport readers to the decade of space travel, counterculture and tumultuous societal change.`\
+https://www.nytimes.com/2026/07/09/books/historical-fiction-1960s.html
+
 **Europa defiende su nuevo sistema fronterizo y frustra a los viajeros**\
 `Aerolíneas y operadores aeroportuarios advierten que el nuevo esquema europeo está sobrecargando los controles fronterizos y amenaza con agravar los retrasos.`\
 https://www.nytimes.com/es/2026/07/09/espanol/mundo/europa-nuevo-sistema-fronterizo-viajes.html
@@ -101,92 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011016249/graham-platner-maine-d
 **Trump Says He’ll Ask Supreme Court to Rehear Citizenship Case, an Unlikely Event**\
 `The last time the justices granted a rehearing request after a case decision was in 1965. The court has only once reversed itself after rehearing a case.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-supreme-court-birthright-citizenship.html
-
-**NYT Crossword Answers for July 09, 2026**\
-`In Brad and Nat Wiegmann’s puzzle, less is more.`\
-https://www.nytimes.com/2026/07/08/crosswords/daily-puzzle-2026-07-09.html
-
-**Western Europe Had Its Hottest June on Record**\
-`An unusually early heat wave smashed records across France, Britain and Spain. Temperatures in some areas are starting to soar again.`\
-https://www.nytimes.com/2026/07/08/climate/western-europe-hottest-june.html
-
-**Trump’s Mixed Messages at NATO Summit**\
-`As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
-https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
-
-**The Democrats Can’t Go On Like This**\
-`The trouble in Maine goes beyond a single candidate.`\
-https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
-
-**Video of Kirk Assassination Suspect’s Ex-Partner to Be Played in Court**\
-`A judge said he would allow prosecutors to play the recording at a hearing on Thursday as prosecutors seek to take Tyler Robinson to trial on a charge that he murdered Charlie Kirk last year.`\
-https://www.nytimes.com/2026/07/08/us/charlie-kirk-shooting-hearing.html
-
-**Police Investigating Death of Nolan Wells Who Went Missing After Boat Trip**\
-`Nolan Wells was found dead days after going on a July 4 trip with friends to Horn Island, off the coast of Mississippi.`\
-https://www.nytimes.com/2026/07/08/us/nolan-wells-mississippi-dead.html
-
-**Does a Sex Assault Claim Kill a Political Career? It Depends.**\
-`The swift exit of Graham Platner from the Maine Senate race followed Eric Swalwell’s similar exit from the California governor’s race, but Republicans have taken a different tack.`\
-https://www.nytimes.com/2026/07/08/us/politics/democrats-republicans-sexual-assault-politicians.html
-
-**Clues Behind a Cracker Barrel and in 2 Other States Led to 1985 Killing Cold Case Arrest**\
-`Nearly four decades after an Ohio man was found slain in a hotel room, renewed forensic testing and years of follow-up investigation resulted in a murder indictment.`\
-https://www.nytimes.com/2026/07/08/us/ohio-cold-case-dna-cracker-barrel.html
-
-**Platner Suspends Senate Bid in Maine After Rape Accusation**\
-`Mr. Platner’s withdrawal, which comes after a woman accused him of rape, creates deep uncertainty in a race that both parties see as crucial to their hopes of winning the Senate.`\
-https://www.nytimes.com/2026/07/08/us/politics/graham-platner-maine-senate.html
-
-**Platner Suspends Senate Bid in Maine After Rape Accusation**\
-`Graham Platner, the Democratic nominee, is withdrawing from a race both parties see as crucial to their hopes of winning the Senate. He has denied the accusation.`\
-https://www.nytimes.com/live/2026/07/08/us/graham-platner-maine-suspends-campaign
-
-**Security Precaution Led Trump to Use Old Air Force One in Leaving Turkey**\
-`The Secret Service is said to have asked that the president not use the Qatari-donated jet when he left Ankara. The swap deepens questions about the retrofitting of the new plane.`\
-https://www.nytimes.com/2026/07/08/us/politics/trump-air-force-one-security.html
-
-**Justin Bieber y Burna Boy se unen al primer espectáculo del medio tiempo de una final del Mundial**\
-`Los artistas actuarán junto a Madonna, Shakira y BTS en el primer espectáculo de la historia en una final del Mundial. El objetivo es igualar la influencia cultural del Super Bowl.`\
-https://www.nytimes.com/es/2026/07/08/espanol/cultura/mundial-medio-tiempo-justin-bieber-shakira-madonna-bts.html
-
-**U.S. Begins Second Day of Strikes Against Iran**\
-`President Trump said earlier that a cease-fire was over and warned that the United States would probably hit Iran “hard.”`\
-https://www.nytimes.com/2026/07/08/us/politics/us-iran-strikes.html
-
-**Divisions Festered Within Iran Over Talks With the U.S.**\
-`Iran’s president and foreign minister were physically attacked this week by supporters of a hard-line faction that vehemently opposes any deal with the United States.`\
-https://www.nytimes.com/2026/07/08/world/middleeast/iran-divisions-us-leaders.html
-
-**As the World Cup Takes a Break, So Do N.Y.C. Bars: ‘It’s a Sigh of Relief’**\
-`Wednesday was the first day since June 11 with no World Cup matches. For run-down restaurant workers who also handled the Knicks’ run, it was a welcome reprieve.`\
-https://www.nytimes.com/2026/07/08/nyregion/bars-world-cup-soccer.html
-
-**Three More People Charged With Damaging Reflecting Pool**\
-`The three individuals face misdemeanor charges of causing damage worth less than $1,000. Experts have said that the problems could have been caused by the pool’s makeover.`\
-https://www.nytimes.com/2026/07/08/us/reflecting-pool-damage-misdemeanor-charges.html
-
-**U.S. Attorney in Manhattan Names Deputy to Oversee Transition**\
-`Jay Clayton said he had named James McDonald as a deputy to oversee the transition at the Southern District of New York office. President Trump nominated Mr. Clayton to be his intelligence chief.`\
-https://www.nytimes.com/2026/07/08/nyregion/nyc-clayton-mcdonald-us-attorney.html
-
-**The U.S. Attacks Iran Again**\
-`Also, tech I.P.O.s are causing a housing frenzy in the Bay Area. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/07/08/briefing/us-iran-attacks-ukraine-patriot-missiles.html
-
-**Vance, in Wisconsin, Highlights Twin Fights, Against Fraud and Democrats**\
-`The vice president called Democrats “a party that is fighting for fraud,” even as he highlighted the case of a woman who was first indicted under the Biden administration.`\
-https://www.nytimes.com/2026/07/08/us/politics/vance-wisconsin-visit-fraud.html
-
-**Family of Man Killed by ICE Push for Independent Investigation**\
-`Lorenzo Salgado Araujo was shot by an immigration enforcement agent during a traffic stop in Houston on Tuesday. The details of why and how Araujo was shot remain unclear.`\
-https://www.nytimes.com/video/us/100000011019094/houston-ice-shooting.html
-
-**Egypt Fans Show Pride After Heartbreaking Loss to Argentina**\
-`Egyptians fans expressed pride despite their team’s heartbreaking 3-2 loss against Argentina. Fans shared how the team united the country and parts of the Arab world, including war-torn Gaza.`\
-https://www.nytimes.com/video/sports/soccer/100000011019475/egypt-fans-show-pride-after-heartbreaking-loss-to-argentina.html
-
-**When Might Graham Platner Drop Out? Here’s the State of Play.**\
-`Here’s what we know about the uproar in the Democratic Party’s bid to unseat Senator Susan Collins.`\
-https://www.nytimes.com/2026/07/08/us/politics/platner-democrats-maine-state-of-play.html
 

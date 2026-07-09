@@ -1,3 +1,11 @@
+**Europa defiende su nuevo sistema fronterizo y frustra a los viajeros**\
+`Aerolíneas y operadores aeroportuarios advierten que el nuevo esquema europeo está sobrecargando los controles fronterizos y amenaza con agravar los retrasos.`\
+https://www.nytimes.com/es/2026/07/09/espanol/mundo/europa-nuevo-sistema-fronterizo-viajes.html
+
+**Enter the Era of Meme Couture**\
+`For designers like Duran Lantink of Jean Paul Gaultier, Robert Wun and Viktor&Rolf, it’s not a hit if it doesn’t go viral.`\
+https://www.nytimes.com/2026/07/09/style/gaultier-duran-lantink-schiaparelli-couture.html
+
 **¿Cuáles son los beneficios del psyllium?**\
 `Se dice que este suplemento ayuda a perder peso, a controlar el azúcar en sangre, el colesterol y más. ¿Es demasiado bueno para ser verdad?`\
 https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/video/sports/soccer/100000011019475/egypt-fans-show-prid
 **When Might Graham Platner Drop Out? Here’s the State of Play.**\
 `Here’s what we know about the uproar in the Democratic Party’s bid to unseat Senator Susan Collins.`\
 https://www.nytimes.com/2026/07/08/us/politics/platner-democrats-maine-state-of-play.html
-
-**Cómo proteger tus fotos de Instagram de la IA**\
-`El nuevo generador de imágenes con IA de Meta, la empresa propietaria de WhatsApp y Facebook, incluye un giro inesperado para los usuarios: permite utilizar imágenes de cuentas públicas de Instagram.`\
-https://www.nytimes.com/es/2026/07/08/espanol/negocios/meta-fotos-instagram-ia.html
-
-**Can the United States Hold On?**\
-`Our July 4 bash was troubled, and America may go the way of the Ghaznavid Empire. But here are reasons to be more positive.`\
-https://www.nytimes.com/2026/07/08/opinion/america-250-trump.html
 

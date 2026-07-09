@@ -1,3 +1,11 @@
+**Europa defiende su nuevo sistema fronterizo y frustra a los viajeros**\
+`Aerolíneas y operadores aeroportuarios advierten que el nuevo esquema europeo está sobrecargando los controles fronterizos y amenaza con agravar los retrasos.`\
+https://www.nytimes.com/es/2026/07/09/espanol/mundo/europa-nuevo-sistema-fronterizo-viajes.html
+
+**Enter the Era of Meme Couture**\
+`For designers like Duran Lantink of Jean Paul Gaultier, Robert Wun and Viktor&Rolf, it’s not a hit if it doesn’t go viral.`\
+https://www.nytimes.com/2026/07/09/style/gaultier-duran-lantink-schiaparelli-couture.html
+
 **Why India Has Spent Years Blocking the Release of Diljit Dosanjh’s ‘Satluj’**\
 `Censors demanded 127 cuts to the film that explores a dark period of police brutality in Punjab state. Filmmakers say it’s the latest, chilling example of entrenched censorship.`\
 https://www.nytimes.com/2026/07/09/world/asia/india-film-censorship-satluj-diljit.html
