@@ -1,3 +1,7 @@
+**‘I’m Worried About Weimar America’**\
+`“It may not be Hitler 2.0, it may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
+https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-america.html
+
 **I.U.C.N. Update Says Deep-Sea Mining Threatens Mollusks Around Hydrothermal Vents**\
 `The snails and other mollusks around hydrothermal vents have evolved to thrive in extreme conditions, but mineral extraction could drive more than half to extinction.`\
 https://www.nytimes.com/2026/07/09/climate/iucn-red-list-threatened-species.html
