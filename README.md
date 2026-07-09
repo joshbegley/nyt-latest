@@ -1,3 +1,7 @@
+**La Guaira, entre los escombros de los terremotos y el fin de la revolución**\
+`La destrucción física de La Guaira ha seguido al desmoronamiento del proyecto político al que activistas como Jacqueline Zúñiga han dedicado toda su vida.`\
+https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-hugo-chavez-vivienda.html
+
 **Preparing for ‘Weimar America’**\
 `“It may not be Hitler 2.0. It may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/2026/07/09/opinion/america-politics-weimar-rod-dreher.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
 **Word of the Day: amelioration**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/09/learning/word-of-the-day-amelioration.html
-
-**Security Precaution Leads Trump to Swap Planes**\
-`President Trump changed airplanes at the urging of the Secret Service, flying on the old Air Force One jet as a security precaution instead of the new Qatari-gifted plane for part of his return trip from a NATO summit in Turkey.`\
-https://www.nytimes.com/video/us/100000011020831/security-precaution-leads-trump-to-swap-planes.html
 
