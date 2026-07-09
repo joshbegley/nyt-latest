@@ -1,3 +1,15 @@
+**Wes Anderson and Luke Wilson Walk Into an Elevator and … Get Stuck**\
+`Don’t worry, they’re fine, though the Los Angeles Fire Department did have to use a hand crank to free them.`\
+https://www.nytimes.com/2026/07/09/arts/wes-anderson-luke-wilson-trapped-elevator.html
+
+**Trump’s Plans for Nuclear Power Lurch Ahead**\
+`Recent technological advances have brought the president’s goals a bit closer to reality.`\
+https://www.nytimes.com/2026/07/09/climate/trumps-plans-nuclear-power.html
+
+**Francia vs. Marruecos: el partido de cuartos de final a la sombra de la historia**\
+`La historia se erige sobre el partido de cuartos de final entre Francia y su antiguo protectorado. Hoy en día, las selecciones nacionales se entremezclan con la variada nacionalidad de sus jugadores.`\
+https://www.nytimes.com/es/2026/07/09/espanol/partido-francia-marruecos-mundial.html
+
 **In Exchange of Strikes With Iran, U.S. Lands Most of the Blows**\
 `This difference reflects Iran’s limited firepower and degraded air defenses, and highlights how the war is taking a disproportionate toll on Iranians.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes-cease-fire.html
