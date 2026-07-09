@@ -1,3 +1,7 @@
+**Las tensiones aumentan entre Rusia y los países europeos de la OTAN**\
+`El presidente Vladimir Putin lanzó una amenaza velada al acusar a los países europeos de intentar prolongar la guerra de Rusia con Ucrania.`\
+https://www.nytimes.com/es/2026/07/09/espanol/mundo/rusia-otan-europa-ucrania.html
+
 **China, Russia and Others Seek to Inflame Debate Over A.I. Data Centers**\
 `State actors in China, Russia and Iran have sought to exploit the U.S. public debate over the effects of the technology.`\
 https://www.nytimes.com/2026/07/09/business/china-russia-ai-data-centers.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/07/09/realestate/virginia-washington-dc
 **Going to a Party This Summer? Here’s What You Should Give.**\
 `Ikebana vases, botanical paper crowns and more gift ideas that will delight your hosts.`\
 https://www.nytimes.com/2026/07/09/t-magazine/summer-hosting-gift-guide-ideas.html
-
-**Trump’s NATO Summit, and Everyone Else’s**\
-`While President Trump insulted allies and demanded loyalty, the military alliance moved quietly closer to accepting more European responsibility for defense.`\
-https://www.nytimes.com/2026/07/09/world/europe/nato-trump-turkey-summit.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

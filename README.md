@@ -1,3 +1,7 @@
+**Poland Sentences Russian Exile to 7 Years in Prison for Spying**\
+`Igor Rogov, who has publicly opposed the Kremlin, was arrested in 2024 and later confessed to spying for Russian intelligence on regime opponents living abroad.`\
+https://www.nytimes.com/2026/07/09/world/europe/poland-russian-exile-spy.html
+
 **Las tensiones aumentan entre Rusia y los países europeos de la OTAN**\
 `El presidente Vladimir Putin lanzó una amenaza velada al acusar a los países europeos de intentar prolongar la guerra de Rusia con Ucrania.`\
 https://www.nytimes.com/es/2026/07/09/espanol/mundo/rusia-otan-europa-ucrania.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/opinion/birthright-maga-musk-thiel.html
 **After Tragedy Struck, He Found His Way to an Unexpected Epilogue in Virginia**\
 `Don Schroeder never thought he’d be looking for a condo for just himself. But life doesn’t always follow the path you’ve trodden.`\
 https://www.nytimes.com/interactive/2026/07/09/realestate/virginia-washington-dc-arlington-home-sales-prices.html
-
-**Going to a Party This Summer? Here’s What You Should Give.**\
-`Ikebana vases, botanical paper crowns and more gift ideas that will delight your hosts.`\
-https://www.nytimes.com/2026/07/09/t-magazine/summer-hosting-gift-guide-ideas.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

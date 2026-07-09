@@ -1,3 +1,7 @@
+**Las tensiones aumentan entre Rusia y los países europeos de la OTAN**\
+`El presidente Vladimir Putin lanzó una amenaza velada al acusar a los países europeos de intentar prolongar la guerra de Rusia con Ucrania.`\
+https://www.nytimes.com/es/2026/07/09/espanol/mundo/rusia-otan-europa-ucrania.html
+
 **China, Russia and Others Seek to Inflame Debate Over A.I. Data Centers**\
 `State actors in China, Russia and Iran have sought to exploit the U.S. public debate over the effects of the technology.`\
 https://www.nytimes.com/2026/07/09/business/china-russia-ai-data-centers.html
