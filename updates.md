@@ -1,3 +1,15 @@
+**In Boston, Fans With Roots Across a Continent Rally for Morocco**\
+`A large, diverse African diaspora in New England is taking pride in a Moroccan team they have adopted as their own.`\
+https://www.nytimes.com/2026/07/09/us/world-cup-morocco-african-fans.html
+
+**Are We Living Under Therapeutic Totalitarianism?**\
+`We’re in an age of “therapeutic totalitarianism,” the writer Rod Dreher argues, “where they give you everything you want, all the drugs, the porn, the sex, the entertainment.” All that’s required in return? “You just have to surrender your humanity,” he says on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000011022081/are-we-living-under-therapeutic-totalitarianism.html
+
+**Olivia Rodrigo Is the Jalen Brunson of Pop**\
+`On “Cannonball,” Wesley Morris and the pop music journalist Caryn Ganz find the right metaphor to describe Olivia Rodrigo’s place in pop music.`\
+https://www.nytimes.com/video/podcasts/100000011022644/olivia-rodrigo-is-the-jalen-brunson-of-pop.html
+
 **After Several Days, Ayatollah Khamenei’s Funeral Comes to an End**\
 `A huge crowd surrounded Ayatollah Ali Khamenei’s coffin in his hometown, Mashhad, on Thursday, the final day of his funeral procession. The supreme leader’s body was transported to the Imam Reza Shrine, where it will be buried.`\
 https://www.nytimes.com/video/world/middleeast/100000011022031/iran-funeral-burial-khamenei-supreme-leader.html
