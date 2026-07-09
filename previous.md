@@ -1,3 +1,7 @@
+**La Guaira, entre los escombros de los terremotos y el fin de la revolución**\
+`La destrucción física de La Guaira ha seguido al desmoronamiento del proyecto político al que activistas como Jacqueline Zúñiga han dedicado toda su vida.`\
+https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-hugo-chavez-vivienda.html
+
 **Preparing for ‘Weimar America’**\
 `“It may not be Hitler 2.0. It may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/2026/07/09/opinion/america-politics-weimar-rod-dreher.html
@@ -134,13 +138,13 @@ https://www.nytimes.com/2026/07/09/movies/do-you-love-me-review.html
 `A dark spirit boils and sears its way through an unhappy family in the latest “Evil Dead” installment.`\
 https://www.nytimes.com/2026/07/09/movies/evil-dead-burn-review.html
 
-**‘Barrio Triste’ Review: Bad Boys With a Movie Camera**\
-`This experimental and earnest film from the Colombian American photographer Stillz follows a group of wayward boys in 1980s Medellín.`\
-https://www.nytimes.com/2026/07/09/movies/barrio-triste-review.html
-
 **Trump’s Loyal Defender at the Vatican**\
 `Ambassador Brian Burch must navigate the relationship between the two most prominent American men in the world. His priority is the one in Washington.`\
 https://www.nytimes.com/2026/07/09/us/pope-leo-brian-burch-vatican-ambassador.html
+
+**‘Barrio Triste’ Review: Bad Boys With a Movie Camera**\
+`This experimental and earnest film from the Colombian American photographer Stillz follows a group of wayward boys in 1980s Medellín.`\
+https://www.nytimes.com/2026/07/09/movies/barrio-triste-review.html
 
 **Alice Oseman on the End of ‘Heartstopper’ and Her Favorite Books**\
 `While the Y.A. graphic novel phenomenon wraps up with a sixth volume and a Netflix movie, Alice Oseman mostly reads fiction about adults now.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
 **Word of the Day: amelioration**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/09/learning/word-of-the-day-amelioration.html
-
-**Security Precaution Leads Trump to Swap Planes**\
-`President Trump changed airplanes at the urging of the Secret Service, flying on the old Air Force One jet as a security precaution instead of the new Qatari-gifted plane for part of his return trip from a NATO summit in Turkey.`\
-https://www.nytimes.com/video/us/100000011020831/security-precaution-leads-trump-to-swap-planes.html
 

@@ -1,3 +1,7 @@
+**Bonnie Tyler, Who Sang ‘Total Eclipse of the Heart,’ Dies at 75**\
+`With a voice both weathered and operatic, she minted 1980s pop anthems like “Total Eclipse” and “Holding Out for a Hero.”`\
+https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html
+
 **La Guaira, entre los escombros de los terremotos y el fin de la revolución**\
 `La destrucción física de La Guaira ha seguido al desmoronamiento del proyecto político al que activistas como Jacqueline Zúñiga han dedicado toda su vida.`\
 https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-hugo-chavez-vivienda.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/style/gaultier-duran-lantink-schiaparelli-cou
 **¿Cuáles son los beneficios del psyllium?**\
 `Se dice que este suplemento ayuda a perder peso, a controlar el azúcar en sangre, el colesterol y más. ¿Es demasiado bueno para ser verdad?`\
 https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
-
-**Word of the Day: amelioration**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/09/learning/word-of-the-day-amelioration.html
 
