@@ -1,3 +1,15 @@
+**Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
+`The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral.html
+
+**Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
+`Why were celebrity Knicks fans and Taylor Swift’s wedding guests named on a secret security database?`\
+https://www.nytimes.com/2026/07/09/podcasts/madison-square-garden-wedding-travis-kelce-taylor-swift.html
+
+**Brote de ciclosporosis en EE. UU.: cómo cuidarte**\
+`La cyclospora, un parásito que causa enfermedades intestinales, está afectando a muchas personas en todo el país. Los expertos en salud te dan algunos consejos para evitar el contagio.`\
+https://www.nytimes.com/es/2026/07/09/espanol/cyclospora-diarrea-infeccion.html
+
 **The Unprecedented Personal Profits of Trump’s Presidency**\
 `The Trump family is making money in sectors that align with the president’s agenda.`\
 https://www.nytimes.com/2026/07/09/podcasts/the-daily/trump-personal-profits-presidency.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/09/well/mind/love-attraction-limerence.html
 **Romantasy, Sci-Fi, Ghost Story, High-Seas Adventure: It’s All in the ‘Odyssey’!**\
 `The world’s most famous epic has something for every reader.`\
 https://www.nytimes.com/2026/07/09/books/review/odyssey-homer-romantasy-ghost-story-monster-high-seas.html
-
-**Review: ‘Little House’ Adds On an Expansion**\
-`The classic story (and recent culture-war object) remains wholesome but makes room for people who called the prairie home before the Ingalls family.`\
-https://www.nytimes.com/2026/07/09/arts/television/review-little-house-adds-on-an-expansion.html
-
-**Which Version of the ‘Odyssey’ Should You Read?**\
-`Homer’s “Odyssey” has been translated into English countless times, with versions ranging from contemporary and accessible to highly poetic. A.O. Scott, critic at large for The New York Times Book Review, breaks down three translations and explains which one might be right for you.`\
-https://www.nytimes.com/video/books/100000010971102/which-version-of-the-odyssey-should-you-read.html
-
-**Can Xenom Turn Working Out Into a Sport?**\
-`Xenom, a new fitness company, wants to make weekend warriors feel like pros.`\
-https://www.nytimes.com/2026/07/09/style/xenom-crossfit-competition-workout-fitness.html
 

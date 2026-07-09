@@ -1,3 +1,15 @@
+**Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
+`The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral.html
+
+**Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
+`Why were celebrity Knicks fans and Taylor Swift’s wedding guests named on a secret security database?`\
+https://www.nytimes.com/2026/07/09/podcasts/madison-square-garden-wedding-travis-kelce-taylor-swift.html
+
+**Brote de ciclosporosis en EE. UU.: cómo cuidarte**\
+`La cyclospora, un parásito que causa enfermedades intestinales, está afectando a muchas personas en todo el país. Los expertos en salud te dan algunos consejos para evitar el contagio.`\
+https://www.nytimes.com/es/2026/07/09/espanol/cyclospora-diarrea-infeccion.html
+
 **‘ I’m Worried About Weimar America’**\
 `“It may not be Hitler 2.0. It may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/2026/07/09/opinion/america-politics-weimar-rod-dreher.html
