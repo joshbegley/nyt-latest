@@ -42,8 +42,8 @@ https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strik
 `The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
 https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
 
-**Factory Fire in China Causes ‘Significant’ Casualties, Xi Says**\
-`At least a dozen people appeared to be trapped on the roof of a shoe factory, in video released by state news media.`\
+**Factory Fire in China Kills 28**\
+`The country’s leader, Xi Jinping, called on the authorities to make every effort to investigate the cause of the blaze in Fujian Province.`\
 https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
 
 **I.U.C.N. Update Says Deep-Sea Mining Threatens Mollusks Around Hydrothermal Vents**\
