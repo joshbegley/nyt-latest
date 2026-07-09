@@ -1,3 +1,7 @@
+**Trump Takes Up Another White House Project: The Front Columns**\
+`Restoration work began after the president saw “door dings in the pillars” and ordered up repairs, the interior secretary said.`\
+https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
+
 **Two Telehealth Executives Sentenced for Scheme to Distribute Adderall**\
 `The Justice Department said Done Global’s clinicians signed prescriptions for the stimulant drug, which is used to treat A.D.H.D., every 30 seconds.`\
 https://www.nytimes.com/2026/07/09/well/telehealth-executives-sentenced-adderall-scheme.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
 **Final Stage of Ayatollah Ali Khamenei’s Funeral Begins After Delay**\
 `Thousands gathered for the procession in Mashhad for the supreme leader, who was killed in the first U.S.-Israeli attacks of the war. Hours earlier, the United States and Iran traded strikes.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
-
-**Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
-`Why were celebrity Knicks fans and Taylor Swift’s wedding guests named on a secret security database?`\
-https://www.nytimes.com/2026/07/09/podcasts/madison-square-garden-wedding-travis-kelce-taylor-swift.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
