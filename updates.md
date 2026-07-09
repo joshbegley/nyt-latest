@@ -1,3 +1,7 @@
+**Maine Democrats Hope to Replace Platner as Senate Nominee. Has That Ever Worked?**\
+`Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
+https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
+
 **Map: 3.5-Magnitude Earthquake Shakes Central California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
