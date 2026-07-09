@@ -1,3 +1,7 @@
+**Euphemism Won’t Save Young Black Men’s Lives**\
+`The term ‘gun violence’ makes murder seem abstract, not a tragic daily occurrence.`\
+https://www.nytimes.com/2026/07/09/opinion/gun-violence-euphemism-homicide.html
+
 **Wes Anderson and Luke Wilson Walk Into an Elevator and … Get Stuck**\
 `Don’t worry, they’re fine, though the Los Angeles Fire Department did have to use a hand crank to free them.`\
 https://www.nytimes.com/2026/07/09/arts/wes-anderson-luke-wilson-trapped-elevator.html
@@ -174,7 +178,7 @@ https://www.nytimes.com/es/2026/07/09/espanol/cultura/muere-bonnie-tyler-total-e
 `The United States and Iran traded new strikes amid rising hostilities between the two countries. The latest rounds came hours after President Trump said he thought their temporary cease-fire was over.`\
 https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strikes-trump.html
 
-**Platner’s Exit Sets Off Scramble for New Senate Candidate in Maine**\
+**Graham Platner’s Exit Sets Off Scramble for New Democratic Senate Candidate in Maine**\
 `The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
 https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
 

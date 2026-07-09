@@ -1,3 +1,11 @@
+**Euphemism Won’t Save Young Black Men’s Lives**\
+`The term ‘gun violence’ makes murder seem abstract, not a tragic daily occurrence.`\
+https://www.nytimes.com/2026/07/09/opinion/gun-violence-euphemism-homicide.html
+
+**Graham Platner’s Exit Sets Off Scramble for New Democratic Senate Candidate in Maine**\
+`The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
+https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
+
 **Trump Begins New Construction Project on White House Front Columns**\
 `Restoration work began after the president saw “door dings in the pillars” and ordered up repairs, the interior secretary said.`\
 https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
