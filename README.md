@@ -14,7 +14,7 @@ https://www.nytimes.com/video/embedded/business/100000011022483/Biz-Wheels-Slate
 `Delta is the latest U.S. airline to introduce stripped down, luxury-class fares. What do you get for your money, and is it worth it? What you need to know.`\
 https://www.nytimes.com/2026/07/09/travel/basic-business-class-airlines-delta-united.html
 
-**Volkswagen Is Cutting Auto Production as Its Sales in China Plunge**\
+**Volkswagen Is Cutting Production as Sales in China Plunge**\
 `The German automaker has struggled to compete with fast-growing Chinese companies that offer more affordable and sophisticated electric vehicles.`\
 https://www.nytimes.com/2026/07/09/business/volkswagen-china-sales.html
 

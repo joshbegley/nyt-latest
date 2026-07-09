@@ -1,3 +1,11 @@
+**Russian Finances Get Shakier, Despite Short-Term Bonus From Iran War**\
+`As oil prices fall back to levels not seen since before the Middle East war began, the Kremlin will be forced to confront a deepening budget deficit.`\
+https://www.nytimes.com/2026/07/09/world/europe/russia-oil-budget-deficit.html
+
+**‘A Clear Violation’: Judge Scolds Top Federal Prosecutor in Chicago**\
+`A federal magistrate judge said Andrew S. Boutros, the U.S. attorney in Chicago, violated an order sealing a criminal case when he spoke at a news conference.`\
+https://www.nytimes.com/2026/07/09/us/chicago-prosecutor-boutros-judge-laura-mcnally.html
+
 ****\
 `tktktkt`\
 https://www.nytimes.com/video/embedded/business/100000011022483/Biz-Wheels-Slate.html
