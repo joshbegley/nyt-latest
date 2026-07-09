@@ -1,9 +1,13 @@
+**What Germany and Japan Can Teach Ukraine About Patriot Missiles**\
+`Two American allies already have permission to build the American interceptors, a license that President Trump says he will also grant to Kyiv.`\
+https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-missiles.html
+
 **Are We at War Again?**\
 `We look at the state of the conflict with Iran.`\
 https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
 
 **Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
-`The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
+`The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the U.S. and Iran traded strikes.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
 
 **Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/movies/barrio-triste-review.html
 **Alice Oseman on the End of ‘Heartstopper’ and Her Favorite Books**\
 `While the Y.A. graphic novel phenomenon wraps up with a sixth volume and a Netflix movie, Alice Oseman mostly reads fiction about adults now.`\
 https://www.nytimes.com/2026/07/09/books/review/alice-oseman-heartstopper.html
-
-**This Kind of Obsessive Attraction Isn’t Love. But It Has a Name.**\
-`Limerence is more than a crush, psychologists say, and it can persist for months or years.`\
-https://www.nytimes.com/2026/07/09/well/mind/love-attraction-limerence.html
 
