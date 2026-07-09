@@ -1,9 +1,33 @@
+**Art Gallery Shows to See in July**\
+`This week in Newly Reviewed, Travis Diehl covers the ramblings of Tinmantis, Jill Magid’s politics, a gory group show and Erin Johnson’s look at Lawrence, Kan., after “The Day After.”`\
+https://www.nytimes.com/2026/07/09/arts/art-gallery-shows-to-see-in-july.html
+
+**Favorite Song on Olivia Rodrigo’s New Album?**\
+`On “Cannonball,” Caryn Ganz, a pop music journalist, talks about “Expectations,” her favorite song on Olivia Rodrigo’s new album, “You Seem Pretty Sad for a Girl So in Love.”`\
+https://www.nytimes.com/video/podcasts/100000011022646/favorite-song-on-olivia-rodrigos-new-album.html
+
+**Joseph Fraumeni, 93, Dies; Helped Discover Genetic Link to Cancer**\
+`Considered the founder of molecular epidemiology, he worked with Frederick P. Li to identify a hereditary disorder that increased the risk of developing cancer at a young age.`\
+https://www.nytimes.com/2026/07/09/science/joseph-fraumeni-dead.html
+
+**The Iranians Who Prefer War**\
+`The latest escalation of hostilities over the Strait of Hormuz is empowering Iranian hard-liners`\
+https://www.nytimes.com/2026/07/09/world/iran-war-hardliners-hormuz-funeral.html
+
+**Redacted Interview With Roommate of Charlie Kirk Killing Suspect Played in Court**\
+`Lance Twiggs, Tyler Robinson’s former roommate, was interviewed by a prosecutor in April. Clips from the interview were played in a Utah court on Thursday.`\
+https://www.nytimes.com/video/us/100000011021514/kirk-hearing-twiggs-robinson-interview.html
+
+**Olivia Rodrigo’s New Album “Is a Vibe”**\
+`Caryn Ganz, a pop music journalist, talks about Olivia Rodrigo’s approach to music with Wesley Morris on “Cannonball.”`\
+https://www.nytimes.com/video/podcasts/100000011016503/olivia-rodrigos-new-album-is-a-vibe.html
+
 **This Star Just Ate a Planet, and It’s Not Done Yet**\
 `A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
 https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
 
 **Israel Investigating After Photo of Stripped and Bound Detainee Is Shared**\
-`The Israeli military confirmed the authenticity of the photo, which circulated widely after it was shared by a Palestinian activist. Israeli rights group said it depicted a war crime.`\
+`The Israeli military confirmed the authenticity of the photo, which circulated widely after it was shared by a Palestinian activist. Israeli rights groups said it depicted a war crime.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/photo-detainee-bound.html
 
 **Factory Fire in China Kills at Least 28 People, Chinese State Media Says**\
@@ -165,30 +189,6 @@ https://www.nytimes.com/2026/07/09/us/politics/the-docket-legal-news.html
 **En el Mundial, Nike y Adidas se disputan el futuro del fútbol**\
 `El segundo puesto en el corazón y los bolsillos de los estadounidenses no es suficiente para las mayores empresas de ropa deportiva del mundo, que han apostado fuerte por el torneo.`\
 https://www.nytimes.com/es/2026/07/09/espanol/negocios/nike-adidas-mundial.html
-
-**Fake IDs, Dummy Manuscripts and a Rare Book Heist at U.C.L.A.**\
-`Jeffrey Ying, 39, was sentenced in an elaborate scheme to switch Chinese manuscripts from a University of California library with dummy copies.`\
-https://www.nytimes.com/2026/07/09/us/ucla-library-theft-chinese-books-california.html
-
-**Lonnie Bunch Defends Smithsonian Museum After Negative White House Report**\
-`In a letter to staff, Lonnie G. Bunch III wrote that the report was “not a fair characterization of the work and totality of the National Museum of American History.”`\
-https://www.nytimes.com/2026/07/09/arts/design/smithsonian-letter-lonnie-bunch.html
-
-**Gaza Aid Worker on His Way to Watch World Cup Killed by Israeli Strike**\
-`The Israeli military said it had struck a Hamas militant but was aware of reports that “uninvolved civilians” were harmed.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/aid-worker-killed-israeli-strike.html
-
-**Too Many Books?**\
-`Mendel Uminer faced a crisis when his landlord objected to the 10,000 volumes in his New York studio apartment.`\
-https://www.nytimes.com/2026/07/09/style/too-many-books-new-york-city-apartment-scholar-landlord.html
-
-**A Chinese Spacecraft Captures First Image of Quasi-Moon**\
-`A Chinese spacecraft has captured the first image of the asteroid Kamo‘oalewa.`\
-https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
-
-**Map: 3.5-Magnitude Earthquake Shakes Central California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

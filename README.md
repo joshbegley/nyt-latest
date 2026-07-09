@@ -1,3 +1,11 @@
+**As U.S. Steps Up Attacks on Iran, Prospect of All-Out War Rises**\
+`American officials said they were trying to safeguard maritime traffic in the Strait of Hormuz. Iran said it had responded by firing at U.S. bases in Qatar, Bahrain and Kuwait.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes.html
+
+**Advanced Recycling Hits a Rough Patch**\
+`In the past weeks, two sites in the United States have halted operations.`\
+https://www.nytimes.com/2026/07/09/climate/advanced-recycling.html
+
 **Art Gallery Shows to See in July**\
 `This week in Newly Reviewed, Travis Diehl covers the ramblings of Tinmantis, Jill Magid’s politics, a gory group show and Erin Johnson’s look at Lawrence, Kan., after “The Day After.”`\
 https://www.nytimes.com/2026/07/09/arts/art-gallery-shows-to-see-in-july.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.ht
 **A Justice With No Plans to Retire and a Trump Lawyer Now on the Bench**\
 `A roundup of legal news from the country.`\
 https://www.nytimes.com/2026/07/09/us/politics/the-docket-legal-news.html
-
-**En el Mundial, Nike y Adidas se disputan el futuro del fútbol**\
-`El segundo puesto en el corazón y los bolsillos de los estadounidenses no es suficiente para las mayores empresas de ropa deportiva del mundo, que han apostado fuerte por el torneo.`\
-https://www.nytimes.com/es/2026/07/09/espanol/negocios/nike-adidas-mundial.html
-
-**Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
-`Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
-https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
 

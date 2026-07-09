@@ -1,3 +1,31 @@
+**Art Gallery Shows to See in July**\
+`This week in Newly Reviewed, Travis Diehl covers the ramblings of Tinmantis, Jill Magid’s politics, a gory group show and Erin Johnson’s look at Lawrence, Kan., after “The Day After.”`\
+https://www.nytimes.com/2026/07/09/arts/art-gallery-shows-to-see-in-july.html
+
+**Favorite Song on Olivia Rodrigo’s New Album?**\
+`On “Cannonball,” Caryn Ganz, a pop music journalist, talks about “Expectations,” her favorite song on Olivia Rodrigo’s new album, “You Seem Pretty Sad for a Girl So in Love.”`\
+https://www.nytimes.com/video/podcasts/100000011022646/favorite-song-on-olivia-rodrigos-new-album.html
+
+**Joseph Fraumeni, 93, Dies; Helped Discover Genetic Link to Cancer**\
+`Considered the founder of molecular epidemiology, he worked with Frederick P. Li to identify a hereditary disorder that increased the risk of developing cancer at a young age.`\
+https://www.nytimes.com/2026/07/09/science/joseph-fraumeni-dead.html
+
+**The Iranians Who Prefer War**\
+`The latest escalation of hostilities over the Strait of Hormuz is empowering Iranian hard-liners`\
+https://www.nytimes.com/2026/07/09/world/iran-war-hardliners-hormuz-funeral.html
+
+**Redacted Interview With Roommate of Charlie Kirk Killing Suspect Played in Court**\
+`Lance Twiggs, Tyler Robinson’s former roommate, was interviewed by a prosecutor in April. Clips from the interview were played in a Utah court on Thursday.`\
+https://www.nytimes.com/video/us/100000011021514/kirk-hearing-twiggs-robinson-interview.html
+
+**Olivia Rodrigo’s New Album “Is a Vibe”**\
+`Caryn Ganz, a pop music journalist, talks about Olivia Rodrigo’s approach to music with Wesley Morris on “Cannonball.”`\
+https://www.nytimes.com/video/podcasts/100000011016503/olivia-rodrigos-new-album-is-a-vibe.html
+
+**Israel Investigating After Photo of Stripped and Bound Detainee Is Shared**\
+`The Israeli military confirmed the authenticity of the photo, which circulated widely after it was shared by a Palestinian activist. Israeli rights groups said it depicted a war crime.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/photo-detainee-bound.html
+
 **This Star Just Ate a Planet, and It’s Not Done Yet**\
 `A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
 https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
