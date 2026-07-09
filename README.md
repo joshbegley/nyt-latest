@@ -1,3 +1,7 @@
+**‘A Slow-Rolling Disaster’: Inside the Implosion of the Platner Campaign**\
+`Graham Platner’s bid for the Senate inspired progressive Democrats. But the campaign, which he suspended Wednesday, was messy, disorganized and ultimately doomed by a steady drip of scandal.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-campaign-implosion-maine.html
+
 **Platner Suspends Maine Senate Bid**\
 `In a video posted on social media, Graham Platner, the Democratic nominee for Senate in Maine, said he was suspending his campaign after an accusation of rape, which he has vehemently denied.`\
 https://www.nytimes.com/video/us/politics/100000011016249/graham-platner-maine-drops-out.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/08/us/beshear-mcconnell-kentucky-health.html
 **At Warsh’s First Fed Meeting, Some Officials Signaled Support for Raising Interest Rates**\
 `Minutes from Kevin M. Warsh’s first meeting as chairman showed heightened unease about inflation, which is running at a three-year high.`\
 https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html
-
-**Judge Orders $5 Million Trump Judgment Be Released to E. Jean Carroll**\
-`Ms. Carroll had asked a federal judge to order the president to pay the judgment after a jury found he sexually abused and defamed her.`\
-https://www.nytimes.com/2026/07/08/us/politics/trump-e-jean-carroll-5-million-payment.html
 
