@@ -1,3 +1,7 @@
+**Platner Suspends Maine Senate Bid**\
+`In a video posted on social media, Graham Platner, the Democratic nominee for Senate in Maine, said he was suspending his campaign after an accusation of rape, which he has vehemently denied.`\
+https://www.nytimes.com/video/us/politics/100000011016249/graham-platner-maine-drops-out.html
+
 **Trump Says He’ll Ask Supreme Court to Rehear Citizenship Case, an Unlikely Event**\
 `The last time the justices granted a rehearing request after a case decision was in 1965. The court has only once reversed itself after rehearing a case.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-supreme-court-birthright-citizenship.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/07/08/climate/western-europe-hottest-june.html
 `As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
 https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
 
-**Democrats Wanted a Fighter. They Still Need a Cause.**\
+**An Uncomfortable Lesson From Platner’s Campaign**\
 `The trouble in Maine goes beyond a single candidate.`\
 https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-r
 **Judge Orders $5 Million Trump Judgment Be Released to E. Jean Carroll**\
 `Ms. Carroll had asked a federal judge to order the president to pay the judgment after a jury found he sexually abused and defamed her.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-e-jean-carroll-5-million-payment.html
-
-**Police Raids on Ukrainian Drone Maker Fuel Fears About Press Freedom**\
-`The raids targeted a military contractor and its owner, who also co-owns a news outlet that recently exposed abuse of soldiers. Journalists said it was no coincidence.`\
-https://www.nytimes.com/2026/07/08/world/europe/ukraine-police-raid-media.html
 
