@@ -1,3 +1,7 @@
+**As Workers Shore Up Midtown Building, Developer Reassures Investors**\
+`Crews installed “temporary shoring” on more floors in the building, and the developer of the project has reassured investors that the project will be completed on time.`\
+https://www.nytimes.com/2026/07/09/nyregion/midtown-building-pfizer-emergency.html
+
 **In Boston, Fans With Roots Across a Continent Rally for Morocco**\
 `A large, diverse African diaspora in New England is taking pride in a Moroccan team they have adopted as their own.`\
 https://www.nytimes.com/2026/07/09/us/world-cup-morocco-african-fans.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/09/dining/tomatoes-cucumbers-basil-zucchini.html
 **Poland Sentences Russian Exile to 7 Years in Prison for Spying**\
 `Igor Rogov, who has publicly opposed the Kremlin, was arrested in 2024 and later confessed to spying for Russian intelligence on regime opponents living abroad.`\
 https://www.nytimes.com/2026/07/09/world/europe/poland-russian-exile-spy.html
-
-**Las tensiones aumentan entre Rusia y los países europeos de la OTAN**\
-`El presidente Vladimir Putin lanzó una amenaza velada al acusar a los países europeos de intentar prolongar la guerra de Rusia con Ucrania.`\
-https://www.nytimes.com/es/2026/07/09/espanol/mundo/rusia-otan-europa-ucrania.html
 

@@ -1,3 +1,7 @@
+**As Workers Shore Up Midtown Building, Developer Reassures Investors**\
+`Crews installed “temporary shoring” on more floors in the building, and the developer of the project has reassured investors that the project will be completed on time.`\
+https://www.nytimes.com/2026/07/09/nyregion/midtown-building-pfizer-emergency.html
+
 **In Boston, Fans With Roots Across a Continent Rally for Morocco**\
 `A large, diverse African diaspora in New England is taking pride in a Moroccan team they have adopted as their own.`\
 https://www.nytimes.com/2026/07/09/us/world-cup-morocco-african-fans.html
