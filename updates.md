@@ -1,3 +1,7 @@
+**Former Olympian Pleads Not Guilty To Reflecting Pool Vandalism**\
+`David Hearn, a former Olympic canoeist, pleaded not guilty on Thursday to vandalizing the Lincoln Memorial Reflecting Pool. Hearn was one of at least four people who were arrested after the police said they peeled paint off the pool, which recently underwent a costly renovation project led by the Trump administration.`\
+https://www.nytimes.com/video/us/politics/100000011021474/dc-reflection-pool-renovation-trump-hearn.html
+
 **Trump Takes Up Another White House Project: The Front Columns**\
 `Restoration work began after the president saw “door dings in the pillars” and ordered up repairs, the interior secretary said.`\
 https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
