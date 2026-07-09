@@ -1,3 +1,11 @@
+**Palm Beach Airport in Florida Is Renamed for Trump**\
+`The name change, approved earlier this year, took effect on Thursday, the Federal Aviation Administration said. New signage with President Trump’s name is expected roll out in the coming weeks.`\
+https://www.nytimes.com/2026/07/09/us/politics/donald-trump-palm-beach-airport.html
+
+**When ‘Hero’ Doesn’t Mean What You Think It Does**\
+`It’s time for a crash course in “The Odyssey,” before Christopher Nolan’s new adaptation hits theaters. The classicist and author Madeline Miller explains how this 3,000-year-old poem keeps getting reinvented, and why Odysseus is so compelling — and so flawed. Tap the link in our bio to listen to the full conversation on the “Book Review” podcast. Video by Amy Pearl and Patricia Sulbarán/The New York Times.`\
+https://www.nytimes.com/video/podcasts/100000011021515/when-hero-doesnt-mean-what-you-think-it-does.html
+
 **As Workers Shore Up Midtown Building, Developer Reassures Investors**\
 `Crews installed “temporary shoring” on more floors in the building, and the developer of the project has reassured investors that the project will be completed on time.`\
 https://www.nytimes.com/2026/07/09/nyregion/midtown-building-pfizer-emergency.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/09/podcasts/fifa-trump-and-balogun.html
 **Live Updates: Defendant in Kirk Killing Voiced Regrets After the Shooting, Partner Said**\
 `The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thursday.`\
 https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
-
-**Tomatoes, Cucumbers, Basil, Zucchini**\
-`Reconciling my garden envy.`\
-https://www.nytimes.com/2026/07/09/dining/tomatoes-cucumbers-basil-zucchini.html
-
-**Poland Sentences Russian Exile to 7 Years in Prison for Spying**\
-`Igor Rogov, who has publicly opposed the Kremlin, was arrested in 2024 and later confessed to spying for Russian intelligence on regime opponents living abroad.`\
-https://www.nytimes.com/2026/07/09/world/europe/poland-russian-exile-spy.html
 
