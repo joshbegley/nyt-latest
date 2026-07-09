@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/07/09/technology/new-york-times-openai.html
 `Multimedia art is often challenging, provoking. Now it is also potentially bruising. Check your joints before you check out these summer shows.`\
 https://www.nytimes.com/2026/07/09/arts/design/museum-and-galleries-seating.html
 
-**A $3.2 Trillion Deal-making Frenzy Is Spurred by the A.I. Economy**\
+**A $3.2 Trillion Deal-Making Frenzy Is Spurred by the A.I. Economy**\
 `This year’s boom represents the most spent on global deal-making in a six-month period in a decade. But questions persist about whether it can continue.`\
 https://www.nytimes.com/2026/07/09/business/ai-boom-corporate-deals.html
 
