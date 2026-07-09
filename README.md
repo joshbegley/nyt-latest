@@ -1,3 +1,7 @@
+**In Boston, Fans With Roots Across a Continent Rally for Morocco**\
+`A large, diverse African diaspora in New England is taking pride in a Moroccan team they have adopted as their own.`\
+https://www.nytimes.com/2026/07/09/us/world-cup-morocco-african-fans.html
+
 **Are We Living Under Therapeutic Totalitarianism?**\
 `We’re in an age of “therapeutic totalitarianism,” the writer Rod Dreher argues, “where they give you everything you want, all the drugs, the porn, the sex, the entertainment.” All that’s required in return? “You just have to surrender your humanity,” he says on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000011022081/are-we-living-under-therapeutic-totalitarianism.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/09/world/europe/poland-russian-exile-spy.html
 **Las tensiones aumentan entre Rusia y los países europeos de la OTAN**\
 `El presidente Vladimir Putin lanzó una amenaza velada al acusar a los países europeos de intentar prolongar la guerra de Rusia con Ucrania.`\
 https://www.nytimes.com/es/2026/07/09/espanol/mundo/rusia-otan-europa-ucrania.html
-
-**New Mexico Accuses D.O.J. of Obstructing Epstein Ranch Inquiry**\
-`New Mexico’s attorney general unveiled a letter he sent last week to the acting U.S. attorney general, Todd Blanche, accusing the Justice Department of withholding critical evidence.`\
-https://www.nytimes.com/2026/07/09/us/new-mexico-todd-blanche-epstein-ranch.html
 
