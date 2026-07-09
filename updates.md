@@ -1,3 +1,7 @@
+**Trump’s Mixed Messages at NATO Summit**\
+`As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
+https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
+
 **Democrats Wanted a Fighter. They Still Need a Cause.**\
 `The trouble in Maine goes beyond a single candidate.`\
 https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
