@@ -1,3 +1,7 @@
+**Palestinian Authority Sets Date for First Major Elections in 20 Years**\
+`Analysts expressed skepticism that the vote would take place as planned. In 2021, Mahmoud Abbas, the authority’s leader, scheduled and then canceled a similar election.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-elections-abbas.html
+
 **Euphemism Won’t Save Young Black Men’s Lives**\
 `The term ‘gun violence’ makes murder seem abstract, not a tragic daily occurrence.`\
 https://www.nytimes.com/2026/07/09/opinion/gun-violence-euphemism-homicide.html

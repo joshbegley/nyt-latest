@@ -1,3 +1,7 @@
+**Palestinian Authority Sets Date for First Major Elections in 20 Years**\
+`Analysts expressed skepticism that the vote would take place as planned. In 2021, Mahmoud Abbas, the authority’s leader, scheduled and then canceled a similar election.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-elections-abbas.html
+
 **Euphemism Won’t Save Young Black Men’s Lives**\
 `The term ‘gun violence’ makes murder seem abstract, not a tragic daily occurrence.`\
 https://www.nytimes.com/2026/07/09/opinion/gun-violence-euphemism-homicide.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replaceme
 **Factory Blaze in China’s ‘Shoe Capital’ Kills 28**\
 `The country’s leader, Xi Jinping, called on the authorities to investigate the fire, the latest of several deadly workplace accidents in China this year.`\
 https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
-
-**I.U.C.N. Update Says Deep-Sea Mining Threatens Mollusks Around Hydrothermal Vents**\
-`The snails and other mollusks around hydrothermal vents have evolved to thrive in extreme conditions, but mineral extraction could drive more than half to extinction.`\
-https://www.nytimes.com/2026/07/09/climate/iucn-red-list-threatened-species.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

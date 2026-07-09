@@ -2,6 +2,10 @@
 `Analysts expressed skepticism that the vote would take place as planned. In 2021, Mahmoud Abbas, the authority’s leader, scheduled and then canceled a similar election.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-elections-abbas.html
 
+**Warsh Announces Slate of New Advisers for Fed Task Forces**\
+`The five task forces are focused on topics that Kevin M. Warsh, the chairman of the Federal Reserve, has said are “central to the broad conduct of monetary policy.”`\
+https://www.nytimes.com/2026/07/09/business/warsh-announces-slate-of-new-advisers-for-fed-task-forces.html
+
 **Euphemism Won’t Save Young Black Men’s Lives**\
 `The term ‘gun violence’ makes murder seem abstract, not a tragic daily occurrence.`\
 https://www.nytimes.com/2026/07/09/opinion/gun-violence-euphemism-homicide.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strik
 **Graham Platner’s Exit Sets Off Scramble for New Democratic Senate Candidate in Maine**\
 `The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
 https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
-
-**Factory Blaze in China’s ‘Shoe Capital’ Kills 28**\
-`The country’s leader, Xi Jinping, called on the authorities to investigate the fire, the latest of several deadly workplace accidents in China this year.`\
-https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
