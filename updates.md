@@ -1,3 +1,7 @@
+**Are We at War Again?**\
+`We look at the state of the conflict with Iran.`\
+https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
+
 **Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
 `The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html

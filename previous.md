@@ -1,3 +1,7 @@
+**Are We at War Again?**\
+`We look at the state of the conflict with Iran.`\
+https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
+
 **Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
 `The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
@@ -146,13 +150,13 @@ https://www.nytimes.com/2026/07/09/realestate/housing-market-near-nyc.html
 `This week’s properties are in Yorkville, Midtown South and Riverdale.`\
 https://www.nytimes.com/2026/07/09/realestate/housing-market-nyc.html
 
-**In ‘Remake,’ a Life Documented on Film Prompts Painful Questions**\
-`Ross McElwee (“Sherman’s March”) reconsiders footage of himself and his family, including a son who died of an overdose.`\
-https://www.nytimes.com/2026/07/09/movies/remake-documentary-ross-mcelwee.html
-
 **‘Westhampton’ Review: A Humiliating Return**\
 `They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
 https://www.nytimes.com/2026/07/09/movies/westhampton-review-a-humiliating-return.html
+
+**In ‘Remake,’ a Life Documented on Film Prompts Painful Questions**\
+`Ross McElwee (“Sherman’s March”) reconsiders footage of himself and his family, including a son who died of an overdose.`\
+https://www.nytimes.com/2026/07/09/movies/remake-documentary-ross-mcelwee.html
 
 **‘Night Nurse’ Review: An After-Hours, Erotic Con**\
 `In this thriller, a phone scam is being run out of an elder care facility. Eleni, a skittish but observant nurse, quickly becomes enmeshed with two others in the grift.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/books/review/alice-oseman-heartstopper.html
 **This Kind of Obsessive Attraction Isn’t Love. But It Has a Name.**\
 `Limerence is more than a crush, psychologists say, and it can persist for months or years.`\
 https://www.nytimes.com/2026/07/09/well/mind/love-attraction-limerence.html
-
-**Romantasy, Sci-Fi, Ghost Story, High-Seas Adventure: It’s All in the ‘Odyssey’!**\
-`The world’s most famous epic has something for every reader.`\
-https://www.nytimes.com/2026/07/09/books/review/odyssey-homer-romantasy-ghost-story-monster-high-seas.html
 
