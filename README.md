@@ -186,15 +186,3 @@ https://www.nytimes.com/2026/07/08/world/africa/egypt-argentina-goal-referee-con
 `He brokered celebrity divorces and recovered billions for victims of Bernie Madoff’s Ponzi scheme. But he was proudest of helping to legalize interracial marriage.`\
 https://www.nytimes.com/2026/07/08/business/william-zabel-dead.html
 
-**Así fue la llegada y participación de Trump a la cumbre de la OTAN**\
-`En cuanto el presidente Trump aterrizó en Turquía, el centro de atención se desplazó justo hacia donde más le gusta: él mismo.`\
-https://www.nytimes.com/es/2026/07/08/espanol/mundo/trump-otan-turquia.html
-
-**Internal File Finds I.C.C. Prosecutor Engaged in Sexual Harassment**\
-`The confidential report will be considered by International Criminal Court members as they vote on whether to remove the top official.`\
-https://www.nytimes.com/2026/07/08/world/europe/internal-file-finds-icc-prosecutor-engaged-in-sexual-harassment.html
-
-**Judge Hannah C. Dugan Faces Fine But No Prison Time**\
-`The former Wisconsin judge, Hannah C. Dugan, was accused of ushering an undocumented immigrant out a side door as federal agents waited for him near her Milwaukee courtroom.`\
-https://www.nytimes.com/2026/07/08/us/hannah-dugan-judge-sentencing-milwaukee.html
-
