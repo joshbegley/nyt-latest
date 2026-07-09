@@ -1,3 +1,7 @@
+**Second Person in a Week Killed by Federal Task Force in Memphis**\
+`Tennessee authorities are investigating both shootings involving agents working with the task force in Memphis.`\
+https://www.nytimes.com/2026/07/08/us/shootings-federal-task-force-memphis.html
+
 **‘A Slow-Rolling Disaster’: Inside the Implosion of the Platner Campaign**\
 `Graham Platner’s bid for the Senate inspired progressive Democrats. But the campaign, which he suspended Wednesday, was messy, disorganized and ultimately doomed by a steady drip of scandal.`\
 https://www.nytimes.com/2026/07/08/us/politics/graham-platner-campaign-implosion-maine.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/07/08/climate/western-europe-hottest-june.html
 `As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
 https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
 
-**An Uncomfortable Lesson From Platner’s Campaign**\
+**The Democrats Can’t Go on Like This**\
 `The trouble in Maine goes beyond a single candidate.`\
 https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
 **Kentucky Gov. Andy Beshear Demands Health Update on Mitch McConnell**\
 `Senator Mitch McConnell has been hospitalized since June 14. Speculation about his health has spread in recent days.`\
 https://www.nytimes.com/2026/07/08/us/beshear-mcconnell-kentucky-health.html
-
-**At Warsh’s First Fed Meeting, Some Officials Signaled Support for Raising Interest Rates**\
-`Minutes from Kevin M. Warsh’s first meeting as chairman showed heightened unease about inflation, which is running at a three-year high.`\
-https://www.nytimes.com/2026/07/08/business/fed-meeting-minutes-warsh-interest-rates.html
 
