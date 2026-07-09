@@ -1,3 +1,7 @@
+**Mexico Investigates Possible F.B.I. Role in El Mayo Arrest**\
+`Accusations that the United States lied about its involvement in the notorious drug lord’s capture renewed controversy over an issue that has strained the U.S.-Mexico relationship.`\
+https://www.nytimes.com/2026/07/09/world/americas/mexico-el-mayo-fbi-us-cartel.html
+
 **This Summer, Midtown Manhattan Is Taking Center Stage**\
 `Midtown, with its high-rise office buildings and tourist hotels, isn’t hip, but it has become the site of a series of dramatic spectacles this year.`\
 https://www.nytimes.com/2026/07/09/nyregion/midtown-manhattan-nyc-taylor-swift-knicks.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/world/europe/100000011019302/marine-le-pen-preside
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Stressed desserts, L.A. Metro music and pinball everywhere.`\
 https://www.nytimes.com/2026/07/08/briefing/08-the-good-list-web-pinball-jogging.html
-
-**Iran Truce ‘Over,’ Trump Says, as He Threatens More Strikes**\
-`As both sides accused each other of violating a cease-fire signed three weeks ago, the temporary agreement appeared on the verge of collapse.`\
-https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html
 
