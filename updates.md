@@ -1,3 +1,7 @@
+**Warsh Announces Slate of New Advisers for Fed Task Forces**\
+`The five task forces are focused on topics that Kevin M. Warsh, the chairman of the Federal Reserve, has said are “central to the broad conduct of monetary policy.”`\
+https://www.nytimes.com/2026/07/09/business/warsh-announces-slate-of-new-advisers-for-fed-task-forces.html
+
 **Palestinian Authority Sets Date for First Major Elections in 20 Years**\
 `Analysts expressed skepticism that the vote would take place as planned. In 2021, Mahmoud Abbas, the authority’s leader, scheduled and then canceled a similar election.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-elections-abbas.html
