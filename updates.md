@@ -1,3 +1,7 @@
+**Democrats Wanted a Fighter. They Still Need a Cause.**\
+`The trouble in Maine goes beyond a single candidate.`\
+https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
+
 **Video of Kirk Assassination Suspect’s Ex-Partner to Be Played in Court**\
 `A judge said he would allow prosecutors to play the recording at a hearing on Thursday as prosecutors seek to take Tyler Robinson to trial on a charge that he murdered Charlie Kirk last year.`\
 https://www.nytimes.com/2026/07/08/us/charlie-kirk-shooting-hearing.html
