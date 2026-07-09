@@ -1,3 +1,7 @@
+**‘ I’m Worried About Weimar America’**\
+`“It may not be Hitler 2.0. It may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
+https://www.nytimes.com/2026/07/09/opinion/america-politics-weimar-rod-dreher.html
+
 **The Unprecedented Personal Profits of Trump’s Presidency**\
 `The Trump family is making money in sectors that align with the president’s agenda.`\
 https://www.nytimes.com/2026/07/09/podcasts/the-daily/trump-personal-profits-presidency.html
