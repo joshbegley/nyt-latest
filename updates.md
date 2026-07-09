@@ -1,3 +1,7 @@
+**Late Night Joins the Hunt for Mitch McConnell**\
+`“Apparently, people don’t like a majority senator disappearing with no explanation for three weeks,” Ronny Chieng said on Wednesday’s “Daily Show.”`\
+https://www.nytimes.com/2026/07/09/arts/television/late-night-mitch-mcconnell.html
+
 **Inspector of Buckling Building Cited for Missing Problems at Other Sites**\
 `A New York Times review of city records shows that the firm, Domani Inspection Services, was repeatedly accused of breaking New York City rules.`\
 https://www.nytimes.com/2026/07/09/nyregion/nyc-building-collapse-inspection.html
