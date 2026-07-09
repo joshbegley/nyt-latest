@@ -1,3 +1,7 @@
+**Platner’s Exit Sets Off Scramble for New Senate Candidate in Maine**\
+`The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
+https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
+
 **Factory Fire in China Causes ‘Significant’ Casualties, Xi Says**\
 `At least a dozen people appeared to be trapped on the roof of a shoe factory, in video released by state news media.`\
 https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/09/movies/reading-lolita-in-tehran-review-seeing
 **‘Moana’ Review: It Doesn’t Go Far**\
 `This live-action remake of the 2016 animated film has nothing to add to the original, and winds up subtracting instead.`\
 https://www.nytimes.com/2026/07/09/movies/moana-review.html
-
-**‘Gail Daughtry and the Celebrity Sex Pass’ Review: Hamming It Up**\
-`A small-town naïf heads to Los Angeles to bed her celebrity crush (Jon Hamm) in this bonkers sex comedy.`\
-https://www.nytimes.com/2026/07/09/movies/gail-daughtry-and-the-celebrity-sex-pass-review.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
