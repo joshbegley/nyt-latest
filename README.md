@@ -1,3 +1,7 @@
+**Fake IDs, Dummy Manuscripts and a Rare Book Heist at U.C.L.A.**\
+`Jeffrey Ying, 39, was sentenced in an elaborate scheme to switch Chinese manuscripts from a University of California library with dummy copies.`\
+https://www.nytimes.com/2026/07/09/us/ucla-library-theft-chinese-books-california.html
+
 **Lonnie Bunch Defends Smithsonian Museum After Negative White House Report**\
 `In a letter to staff, Lonnie G. Bunch III wrote that the report was “not a fair characterization of the work and totality of the National Museum of American History.”`\
 https://www.nytimes.com/2026/07/09/arts/design/smithsonian-letter-lonnie-bunch.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/07/09/technology/new-york-times-openai.html
 https://www.nytimes.com/2026/07/09/arts/design/museum-and-galleries-seating.html
 
 **A $3.2 Trillion Deal-Making Frenzy Is Spurred by the A.I. Economy**\
-`This year’s boom represents the most spent on global deal-making in a six-month period in a decade. But questions persist about whether it can continue.`\
+`This year’s boom includes the most spent on global deal-making in a six-month period in a decade. But questions persist about whether it can continue.`\
 https://www.nytimes.com/2026/07/09/business/ai-boom-corporate-deals.html
 
 **Ukrainians Cautiously Welcome Trump’s Announcement About Patriot Missile Systems**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/podcasts/100000011016470/olivia-rodrigo-makes-hear
 **Arrest in Minnesota Pandemic Fraud Case Faces Extradition Hurdles in Somalia**\
 `The Trump administration said detaining Abdikerm Eidleh in Somalia was a turning point in the yearslong investigation. But nearly two weeks later, he still hasn’t been brought to the United States.`\
 https://www.nytimes.com/2026/07/09/world/africa/minnesota-somali-fraud-trump.html
-
-**Has There Ever Been a Better Time to Be a ‘Degenerate’?**\
-`It used to be a nasty expression of contempt. Now all sorts of people laughingly self-identify as degenerate.`\
-https://www.nytimes.com/2026/07/09/magazine/degenerate.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

@@ -1,3 +1,7 @@
+**Ukrainians Cautiously Welcome Trump’s Announcement About Patriot Missile Systems**\
+`President Trump said the United States would license Ukraine to produce Patriots, which can intercept ballistic missiles. But it could be months or years before those are ready.`\
+https://www.nytimes.com/2026/07/09/world/europe/ukraine-patriots-trump-russia.html
+
 **Lonnie Bunch Defends Smithsonian Museum After Negative White House Report**\
 `In a letter to staff, Lonnie G. Bunch III wrote that the report was “not a fair characterization of the work and totality of the National Museum of American History.”`\
 https://www.nytimes.com/2026/07/09/arts/design/smithsonian-letter-lonnie-bunch.html
