@@ -1,5 +1,9 @@
+**Lonnie Bunch Defends Smithsonian Museum After Negative White House Report**\
+`In a letter to staff, Lonnie G. Bunch III wrote that the report was “not a fair characterization of the work and totality of the National Museum of American History.”`\
+https://www.nytimes.com/2026/07/09/arts/design/smithsonian-letter-lonnie-bunch.html
+
 **Gaza Aid Worker on His Way to Watch World Cup Killed by Israeli Strike**\
-`The Israeli military said it targeted a Hamas militant and it “regrets any harm” to “uninvolved civilians.”`\
+`The Israeli military said it had struck a Hamas militant but was aware of reports that “uninvolved civilians” were harmed.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/aid-worker-killed-israeli-strike.html
 
 **Too Many Books?**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/09/world/africa/minnesota-somali-fraud-trump.htm
 **Has There Ever Been a Better Time to Be a ‘Degenerate’?**\
 `It used to be a nasty expression of contempt. Now all sorts of people laughingly self-identify as degenerate.`\
 https://www.nytimes.com/2026/07/09/magazine/degenerate.html
-
-**World Cup Tourists Are Giving Americans Exactly What We Crave**\
-`TikTok de Toquevilles have descended on our Walmarts, Buc-ees and Bass Pro Shops. Our delight at their content says a lot about us.`\
-https://www.nytimes.com/2026/07/09/magazine/world-cup-tourists-tiktok.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
