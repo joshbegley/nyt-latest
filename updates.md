@@ -1,4 +1,8 @@
 **Graham Platner Suspended His Senate Campaign. Here’s What’s Next for Democrats.**\
+`The deadline to pick a new nominee is July 27 and candidates are already lining up. State party leaders said they would hold some form of nominating convention.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-out-whats-next.html
+
+**Graham Platner Suspended His Senate Campaign. Here’s What’s Next for Democrats.**\
 `The deadline to pick a new nominee is July 27 and  candidates are already lining up. State party leaders said they would hold some form of nominating convention.`\
 https://www.nytimes.com/2026/07/08/us/politics/graham-platner-out-whats-next.html
 
