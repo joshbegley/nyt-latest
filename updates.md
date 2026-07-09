@@ -1,3 +1,7 @@
+**New York Sues Companies Over ‘Forever Chemicals’**\
+`The lawsuit claims that the companies, including 3M and DuPont, contaminated the environment and engaged in fraud by withholding information from the public about the harms of the chemicals, known as PFAS.`\
+https://www.nytimes.com/2026/07/09/nyregion/ny-pfas-lawsuit-3m-dupont.html
+
 **Is Trump Following Viktor Orban’s Playbook?**\
 `Will Trump ultimately come to the same grief as Viktor Orban? On “Interesting Times,” columnist Ross Douthat asks writer Rod Dreher about the parallels between America and Hungary under Orban’s former regime.`\
 https://www.nytimes.com/video/opinion/100000011008046/is-trump-following-viktor-orbans-playbook.html

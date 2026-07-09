@@ -1,3 +1,7 @@
+**New York Sues Companies Over ‘Forever Chemicals’**\
+`The lawsuit claims that the companies, including 3M and DuPont, contaminated the environment and engaged in fraud by withholding information from the public about the harms of the chemicals, known as PFAS.`\
+https://www.nytimes.com/2026/07/09/nyregion/ny-pfas-lawsuit-3m-dupont.html
+
 **Is Trump Following Viktor Orban’s Playbook?**\
 `Will Trump ultimately come to the same grief as Viktor Orban? On “Interesting Times,” columnist Ross Douthat asks writer Rod Dreher about the parallels between America and Hungary under Orban’s former regime.`\
 https://www.nytimes.com/video/opinion/100000011008046/is-trump-following-viktor-orbans-playbook.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
 **Erika Kirk Requests All Evidence in Husband’s Killing to Be Shown Publicly**\
 `A lawyer for Charlie Kirk’s family said disclosure would help quell conspiracy theories, but the judge ruled that not all evidence would be shown in the courtroom or on a livestream.`\
 https://www.nytimes.com/2026/07/09/us/erika-charlie-kirk-hearing-evidence-court.html
-
-**E.P.A. Moves to Loosen Limits on Pollution From Trucks**\
-`The Trump administration wants to roll back some Biden-era restrictions on smog-causing emissions from heavy-duty vehicles.`\
-https://www.nytimes.com/2026/07/09/climate/epa-pollution-trucks.html
 
