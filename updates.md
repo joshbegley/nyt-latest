@@ -1,3 +1,7 @@
+**Mexican Man Fatally Shot by ICE Wasn’t the Intended Target**\
+`Officials say agents believed the driver resembled one suspect, but the encounter quickly escalated into a fatal shooting.`\
+https://www.nytimes.com/2026/07/09/us/witnesses-houston-ice-shooting.html
+
 **Iranian Attacks on Jordan Highlight Kingdom’s Difficult Position**\
 `Iran’s military said it fired missiles at a Jordanian air base used by American forces. Jordan said it had intercepted missiles entering its air space.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/jordan-iran-missiles.html
