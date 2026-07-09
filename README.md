@@ -1,3 +1,7 @@
+**Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
+`The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral.html
+
 **Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
 `Why were celebrity Knicks fans and Taylor Swift’s wedding guests named on a secret security database?`\
 https://www.nytimes.com/2026/07/09/podcasts/madison-square-garden-wedding-travis-kelce-taylor-swift.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/well/mind/love-attraction-limerence.html
 **Romantasy, Sci-Fi, Ghost Story, High-Seas Adventure: It’s All in the ‘Odyssey’!**\
 `The world’s most famous epic has something for every reader.`\
 https://www.nytimes.com/2026/07/09/books/review/odyssey-homer-romantasy-ghost-story-monster-high-seas.html
-
-**Review: ‘Little House’ Adds On an Expansion**\
-`The classic story (and recent culture-war object) remains wholesome but makes room for people who called the prairie home before the Ingalls family.`\
-https://www.nytimes.com/2026/07/09/arts/television/review-little-house-adds-on-an-expansion.html
 
