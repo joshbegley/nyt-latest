@@ -1,3 +1,11 @@
+**Former Olympian Pleads Not Guilty to Damaging Reflecting Pool**\
+`David Hearn is one of at least four people accused of vandalizing the Lincoln Memorial Reflecting Pool that has been plagued with challenges.`\
+https://www.nytimes.com/2026/07/09/us/david-hearn-olympian-reflecting-pool.html
+
+**Muere Bonnie Tyler, intérprete de ‘Total Eclipse of the Heart’**\
+`Con una voz tan curtida como operística, creó himnos pop de la década de 1980 como ‘Holding Out for a Hero’.`\
+https://www.nytimes.com/es/2026/07/09/espanol/cultura/muere-bonnie-tyler-total-eclipse-of-the-heart.html
+
 **U.S. and Iran Trade Strikes Again After Trump Calls Cease-Fire ‘Over’**\
 `The United States and Iran traded new strikes amid rising hostilities between the two countries. The latest rounds came hours after President Trump said he thought their temporary cease-fire was over.`\
 https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strikes-trump.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/09/movies/remake-documentary-ross-mcelwee.html
 **‘Westhampton’ Review: A Humiliating Return**\
 `They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
 https://www.nytimes.com/2026/07/09/movies/westhampton-review.html
-
-**‘Night Nurse’ Review: An After-Hours, Erotic Con**\
-`In this thriller, a phone scam is being run out of an elder care facility. Eleni, a skittish but observant nurse, quickly becomes enmeshed with two others in the grift.`\
-https://www.nytimes.com/2026/07/09/movies/night-nurse-review-an-after-hours-erotic-con.html
-
-**‘Reading Lolita in Tehran’ Review: Seeing the Words Clearly**\
-`A film adaptation of Azar Nafisi’s celebrated memoir of teaching literature in a repressive Iran suggests that the story might be more suited to the page.`\
-https://www.nytimes.com/2026/07/09/movies/reading-lolita-in-tehran-review-seeing-the-words-clearly.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

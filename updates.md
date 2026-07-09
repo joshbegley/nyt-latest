@@ -1,3 +1,11 @@
+**Former Olympian Pleads Not Guilty to Damaging Reflecting Pool**\
+`David Hearn is one of at least four people accused of vandalizing the Lincoln Memorial Reflecting Pool that has been plagued with challenges.`\
+https://www.nytimes.com/2026/07/09/us/david-hearn-olympian-reflecting-pool.html
+
+**Muere Bonnie Tyler, intérprete de ‘Total Eclipse of the Heart’**\
+`Con una voz tan curtida como operística, creó himnos pop de la década de 1980 como ‘Holding Out for a Hero’.`\
+https://www.nytimes.com/es/2026/07/09/espanol/cultura/muere-bonnie-tyler-total-eclipse-of-the-heart.html
+
 **U.S. and Iran Trade Strikes Again After Trump Calls Cease-Fire ‘Over’**\
 `The United States and Iran traded new strikes amid rising hostilities between the two countries. The latest rounds came hours after President Trump said he thought their temporary cease-fire was over.`\
 https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strikes-trump.html
