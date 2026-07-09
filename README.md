@@ -1,3 +1,7 @@
+**En el Mundial, Nike y Adidas se disputan el futuro del fútbol**\
+`El segundo puesto en el corazón y los bolsillos de los estadounidenses no es suficiente para las mayores empresas de ropa deportiva del mundo, que han apostado fuerte por el torneo.`\
+https://www.nytimes.com/es/2026/07/09/espanol/negocios/nike-adidas-mundial.html
+
 **Fake IDs, Dummy Manuscripts and a Rare Book Heist at U.C.L.A.**\
 `Jeffrey Ying, 39, was sentenced in an elaborate scheme to switch Chinese manuscripts from a University of California library with dummy copies.`\
 https://www.nytimes.com/2026/07/09/us/ucla-library-theft-chinese-books-california.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/2026/07/09/arts/television/burning-man-documentary-hbo.h
 **Olivia Rodrigo Makes Heartbreak Pop | Cannonball with Wesley Morris**\
 `With her, falling out of love doesn’t fall flat.`\
 https://www.nytimes.com/2026/07/09/podcasts/olivia-rodrigo-makes-heartbreak-pop.html
-
-**Olivia Rodrigo Makes Heartbreak Pop**\
-`Wesley Morris and pop music journalist, Caryn Ganz, think through Olivia Rodrigo’s new album, “You Seem Pretty Sad for a Girl So in Love.”`\
-https://www.nytimes.com/video/podcasts/100000011016470/olivia-rodrigo-makes-heartbreak-pop.html
-
-**Arrest in Minnesota Pandemic Fraud Case Faces Extradition Hurdles in Somalia**\
-`The Trump administration said detaining Abdikerm Eidleh in Somalia was a turning point in the yearslong investigation. But nearly two weeks later, he still hasn’t been brought to the United States.`\
-https://www.nytimes.com/2026/07/09/world/africa/minnesota-somali-fraud-trump.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
