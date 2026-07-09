@@ -1,3 +1,7 @@
+**Platner’s Exit Sets Off Scramble for New Senate Candidate in Maine**\
+`The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
+https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
+
 **For Ukraine, Other Patriot Makers Are a Cautionary Tale**\
 `Two American allies, Germany and Japan, already have permission to build the American interceptors, a license that President Trump says he will also grant to Kyiv.`\
 https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-missiles.html
