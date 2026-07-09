@@ -1,3 +1,7 @@
+**This Star Just Ate a Planet, and It’s Not Done Yet**\
+`A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
+https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
+
 **Israel Investigating After Photo of Stripped and Bound Detainee Is Shared**\
 `The Israeli military confirmed the authenticity of the photo, which circulated widely after it was shared by a Palestinian activist. Israeli rights group said it depicted a war crime.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/photo-detainee-bound.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
 **Map: 3.5-Magnitude Earthquake Shakes Central California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
-
-**Grocery Stores Lower Prices as Consumers Pare Spending**\
-`While shoppers may get better deals on some items, it’s unlikely their overall grocery bill will fall.`\
-https://www.nytimes.com/2026/07/09/business/grocery-stores-lower-food-prices.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
