@@ -1,3 +1,7 @@
+**Factory Fire in China Causes ‘Significant’ Casualties, Xi Says**\
+`At least a dozen people appeared to be trapped on the roof of a shoe factory, in video released by state news media.`\
+https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
+
 **I.U.C.N. Update Says Deep-Sea Mining Threatens Mollusks Around Hydrothermal Vents**\
 `The snails and other mollusks around hydrothermal vents have evolved to thrive in extreme conditions, but mineral extraction could drive more than half to extinction.`\
 https://www.nytimes.com/2026/07/09/climate/iucn-red-list-threatened-species.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/09/movies/moana-review.html
 **‘Gail Daughtry and the Celebrity Sex Pass’ Review: Hamming It Up**\
 `A small-town naïf heads to Los Angeles to bed her celebrity crush (Jon Hamm) in this bonkers sex comedy.`\
 https://www.nytimes.com/2026/07/09/movies/gail-daughtry-and-the-celebrity-sex-pass-review.html
-
-**‘Do You Love Me’ Review: Images of a Beirut Beyond War**\
-`The director Lana Daher creates a complex emotional portrait of Lebanon with found footage assembled into a 75-minute film of memory, trauma and life.`\
-https://www.nytimes.com/2026/07/09/movies/do-you-love-me-review.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
