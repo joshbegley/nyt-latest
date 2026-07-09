@@ -1,3 +1,7 @@
+**U.S. and Iran Trade Strikes Again After Trump Calls Cease-Fire ‘Over’**\
+`The United States and Iran traded new strikes amid rising hostilities between the two countries. The latest rounds came hours after President Trump said he thought their temporary cease-fire was over.`\
+https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strikes-trump.html
+
 **Platner’s Exit Sets Off Scramble for New Senate Candidate in Maine**\
 `The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
 https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-mi
 `We look at the state of the conflict with Iran.`\
 https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
 
-**Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
-`The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the U.S. and Iran traded strikes.`\
+**Final Stage of Ayatollah Ali Khamenei’s Funeral Begins After Delay**\
+`Thousands gathered for the procession in Mashhad for the supreme leader, who was killed in the first U.S.-Israeli attacks of the war. Hours earlier, the United States and Iran traded strikes.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
 
 **Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
@@ -86,7 +90,7 @@ https://www.nytimes.com/interactive/2026/07/09/realestate/virginia-washington-dc
 `Ikebana vases, botanical paper crowns and more gift ideas that will delight your hosts.`\
 https://www.nytimes.com/2026/07/09/t-magazine/summer-hosting-gift-guide-ideas.html
 
-**At NATO Summit, Trump Puts on a Show While Europe Gets Down to Business**\
+**Trump’s NATO Summit, and Everyone Else’s**\
 `While President Trump insulted allies and demanded loyalty, the military alliance moved quietly closer to accepting more European responsibility for defense.`\
 https://www.nytimes.com/2026/07/09/world/europe/nato-trump-turkey-summit.html
 
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/07/09/realestate/housing-market-near-nyc.html
 `This week’s properties are in Yorkville, Midtown South and Riverdale.`\
 https://www.nytimes.com/2026/07/09/realestate/housing-market-nyc.html
 
-**‘Westhampton’ Review: A Humiliating Return**\
-`They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
-https://www.nytimes.com/2026/07/09/movies/westhampton-review-a-humiliating-return.html
-
 **In ‘Remake,’ a Life Documented on Film Prompts Painful Questions**\
 `Ross McElwee (“Sherman’s March”) reconsiders footage of himself and his family, including a son who died of an overdose.`\
 https://www.nytimes.com/2026/07/09/movies/remake-documentary-ross-mcelwee.html
+
+**‘Westhampton’ Review: A Humiliating Return**\
+`They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
+https://www.nytimes.com/2026/07/09/movies/westhampton-review.html
 
 **‘Night Nurse’ Review: An After-Hours, Erotic Con**\
 `In this thriller, a phone scam is being run out of an elder care facility. Eleni, a skittish but observant nurse, quickly becomes enmeshed with two others in the grift.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/09/movies/night-nurse-review-an-after-hours-erot
 **‘Reading Lolita in Tehran’ Review: Seeing the Words Clearly**\
 `A film adaptation of Azar Nafisi’s celebrated memoir of teaching literature in a repressive Iran suggests that the story might be more suited to the page.`\
 https://www.nytimes.com/2026/07/09/movies/reading-lolita-in-tehran-review-seeing-the-words-clearly.html
-
-**‘Moana’ Review: It Doesn’t Go Far**\
-`This live-action remake of the 2016 animated film has nothing to add to the original, and winds up subtracting instead.`\
-https://www.nytimes.com/2026/07/09/movies/moana-review.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

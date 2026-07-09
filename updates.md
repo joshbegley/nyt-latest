@@ -1,3 +1,19 @@
+**U.S. and Iran Trade Strikes Again After Trump Calls Cease-Fire ‘Over’**\
+`The United States and Iran traded new strikes amid rising hostilities between the two countries. The latest rounds came hours after President Trump said he thought their temporary cease-fire was over.`\
+https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strikes-trump.html
+
+**Final Stage of Ayatollah Ali Khamenei’s Funeral Begins After Delay**\
+`Thousands gathered for the procession in Mashhad for the supreme leader, who was killed in the first U.S.-Israeli attacks of the war. Hours earlier, the United States and Iran traded strikes.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
+
+**Trump’s NATO Summit, and Everyone Else’s**\
+`While President Trump insulted allies and demanded loyalty, the military alliance moved quietly closer to accepting more European responsibility for defense.`\
+https://www.nytimes.com/2026/07/09/world/europe/nato-trump-turkey-summit.html
+
+**‘Westhampton’ Review: A Humiliating Return**\
+`They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
+https://www.nytimes.com/2026/07/09/movies/westhampton-review.html
+
 **Platner’s Exit Sets Off Scramble for New Senate Candidate in Maine**\
 `The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
 https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
