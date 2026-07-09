@@ -1,3 +1,7 @@
+**Oil Prices Rise Further After U.S. and Iran Trade Another Round of Strikes**\
+`Choppy trading in stocks and bonds also reflected anxiety among investors about the war’s effects on inflation and growth.`\
+https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.html
+
 **Why India Has Spent Years Blocking the Release of Diljit Dosanjh’s ‘Satluj’**\
 `Censors demanded 127 cuts to the film that explores a dark period of police brutality in Punjab state. Filmmakers say it’s the latest, chilling example of entrenched censorship.`\
 https://www.nytimes.com/2026/07/09/world/asia/india-film-censorship-sajlut-diljit.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breast
 **JD Vance está preocupado**\
 `La teología del vicepresidente de Estados Unidos toma forma en un libro y ofrece una ventana a su visión política.`\
 https://www.nytimes.com/es/2026/07/08/espanol/opinion/jd-vance-trump-libro-iglesia-catolica.html
-
-**Taylor Swift and Reality TV Shows Like ‘Summer House’ Earn Emmy Nods**\
-`Nominations for unscripted programs recognized a certain newlywed and the scandalous reality hit of the spring.`\
-https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys.html
 
