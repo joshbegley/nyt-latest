@@ -1,3 +1,11 @@
+**Live Updates: Interview With Partner of Defendant in Kirk Killing Is Played in Court**\
+`The interview with the former roommate and romantic partner of the man accused of killing Charlie Kirk could bolster the prosecution’s case that the gunman was motivated by politics.`\
+https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
+
+**Tomatoes, Cucumbers, Basil, Zucchini**\
+`Reconciling my garden envy.`\
+https://www.nytimes.com/2026/07/09/dining/tomatoes-cucumbers-basil-zucchini.html
+
 **Poland Sentences Russian Exile to 7 Years in Prison for Spying**\
 `Igor Rogov, who has publicly opposed the Kremlin, was arrested in 2024 and later confessed to spying for Russian intelligence on regime opponents living abroad.`\
 https://www.nytimes.com/2026/07/09/world/europe/poland-russian-exile-spy.html
@@ -5,6 +13,10 @@ https://www.nytimes.com/2026/07/09/world/europe/poland-russian-exile-spy.html
 **Las tensiones aumentan entre Rusia y los países europeos de la OTAN**\
 `El presidente Vladimir Putin lanzó una amenaza velada al acusar a los países europeos de intentar prolongar la guerra de Rusia con Ucrania.`\
 https://www.nytimes.com/es/2026/07/09/espanol/mundo/rusia-otan-europa-ucrania.html
+
+**New Mexico Accuses D.O.J. of Obstructing Epstein Ranch Inquiry**\
+`New Mexico’s attorney general unveiled a letter he sent last week to the acting U.S. attorney general, Todd Blanche, accusing the Justice Department of withholding critical evidence.`\
+https://www.nytimes.com/2026/07/09/us/new-mexico-todd-blanche-epstein-ranch.html
 
 **China, Russia and Others Seek to Inflame Debate Over A.I. Data Centers**\
 `State actors in China, Russia and Iran have sought to exploit the U.S. public debate over the effects of the technology.`\
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html
 **La Guaira, entre los escombros de los terremotos y el fin de la revolución**\
 `La destrucción física de La Guaira ha seguido al desmoronamiento del proyecto político al que activistas como Jacqueline Zúñiga han dedicado toda su vida.`\
 https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-hugo-chavez-vivienda.html
-
-**‘ I’m Worried About Weimar America’**\
-`“It may not be Hitler 2.0. It may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
-https://www.nytimes.com/2026/07/09/opinion/america-politics-weimar-rod-dreher.html
-
-**Is America’s MAGA Wing Giving Up on America?**\
-`The right’s birthright meltdown is in full effect.`\
-https://www.nytimes.com/2026/07/09/opinion/birthright-maga-musk-thiel.html
-
-**After Tragedy Struck, He Found His Way to an Unexpected Epilogue in Virginia**\
-`Don Schroeder never thought he’d be looking for a condo for just himself. But life doesn’t always follow the path you’ve trodden.`\
-https://www.nytimes.com/interactive/2026/07/09/realestate/virginia-washington-dc-arlington-home-sales-prices.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
