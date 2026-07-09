@@ -1,4 +1,88 @@
 **Preparing for ‘Weimar America’**\
+`“It may not be Hitler 2.0. It may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
+https://www.nytimes.com/2026/07/09/opinion/america-politics-weimar-rod-dreher.html
+
+**Is America’s MAGA Wing Giving Up on America?**\
+`The right’s birthright meltdown is in full effect.`\
+https://www.nytimes.com/2026/07/09/opinion/birthright-maga-musk-thiel.html
+
+**After Tragedy Struck, He Found His Way to an Unexpected Epilogue in Virginia**\
+`Don Schroeder never thought he’d be looking for a condo for just himself. But life doesn’t always follow the path you’ve trodden.`\
+https://www.nytimes.com/interactive/2026/07/09/realestate/virginia-washington-dc-arlington-home-sales-prices.html
+
+**Going to a Party This Summer? Here’s What You Should Give.**\
+`Ikebana vases, botanical paper crowns and more gift ideas that will delight your hosts.`\
+https://www.nytimes.com/2026/07/09/t-magazine/summer-hosting-gift-guide-ideas.html
+
+**At NATO Summit, Trump Puts on a Show While Europe Gets Down to Business**\
+`While President Trump insulted allies and demanded loyalty, the military alliance moved quietly closer to accepting more European responsibility for defense.`\
+https://www.nytimes.com/2026/07/09/world/europe/nato-trump-turkey-summit.html
+
+**Can Trump’s Arch Be So Tall? A Panel May Redefine a Law to Get to Yes.**\
+`The proposed 250-foot arch would violate a height limit on Washington structures under the traditional reading of the law. But the panel, now led by the president’s allies, has other ideas.`\
+https://www.nytimes.com/2026/07/09/us/politics/trump-arch-height-approval.html
+
+**Corrections: July 9, 2026**\
+`Corrections that appeared in print on Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/09/pageoneplus/corrections-july-9-2026.html
+
+**Graham Platner Is Not the Only One Getting His Comeuppance**\
+`The questions his political demise raises go far beyond Maine.`\
+https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats-israel.html
+
+**SpaceX, Elon Musk and the ‘Dumb Money’ Problem**\
+`Must what goes up also come down?`\
+https://www.nytimes.com/2026/07/09/opinion/spacex-ipo-investment-smart-dumb-money.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Mozart choral works, a pairing of Dvorak and Carlos Simon and piano music by Philip Glass are among our selections.`\
+https://www.nytimes.com/2026/07/09/arts/music/best-classical-music-recordings-july-2026.html
+
+**Paul Thek’s Art Legacy: A Shriek and a Giggle**\
+`A pioneering painter, sculptor and installation artist, he  achieved posthumous glory as a rule breaker, as two riveting exhibitions show.`\
+https://www.nytimes.com/2026/07/09/arts/paul-thek-review.html
+
+**‘The Man Will Burn’: On Filming the Sacred and Propane at Burning Man**\
+`The directors of a new four-part docuseries talked about why the long-running desert festival is important — and like being on “another planet.”`\
+https://www.nytimes.com/2026/07/09/arts/television/burning-man-documentary-hbo.html
+
+**Olivia Rodrigo Makes Heartbreak Pop | Cannonball with Wesley Morris**\
+`With her, falling out of love doesn’t fall flat.`\
+https://www.nytimes.com/2026/07/09/podcasts/olivia-rodrigo-makes-heartbreak-pop.html
+
+**Olivia Rodrigo Makes Heartbreak Pop**\
+`Wesley Morris and pop music journalist, Caryn Ganz, think through Olivia Rodrigo’s new album, “You Seem Pretty Sad for a Girl So in Love.”`\
+https://www.nytimes.com/video/podcasts/100000011016470/olivia-rodrigo-makes-heartbreak-pop.html
+
+**Arrest in Minnesota Pandemic Fraud Case Faces Extradition Hurdles in Somalia**\
+`The Trump administration said detaining Abdikerm Eidleh in Somalia was a turning point in the yearslong investigation. But nearly two weeks later, he still hasn’t been brought to the United States.`\
+https://www.nytimes.com/2026/07/09/world/africa/minnesota-somali-fraud-trump.html
+
+**Has There Ever Been a Better Time to Be a ‘Degenerate’?**\
+`It used to be a nasty expression of contempt. Now all sorts of people laughingly self-identify as degenerate.`\
+https://www.nytimes.com/2026/07/09/magazine/degenerate.html
+
+**World Cup Tourists Are Giving Americans Exactly What We Crave**\
+`TikTok de Toquevilles have descended on our Walmarts, Buc-ees and Bass Pro Shops. Our delight at their content says a lot about us.`\
+https://www.nytimes.com/2026/07/09/magazine/world-cup-tourists-tiktok.html
+
+**36 Hours in Lecce, Italy: Things to Do and See**\
+`In sun-drenched southern Italy, this immaculately preserved Baroque city is far more than a fetching fossil.`\
+https://www.nytimes.com/interactive/2026/07/09/travel/things-to-do-lecce.html
+
+**New York State Wants A.I. to Find Inefficiencies**\
+`Gov. Kathy Hochul signed an executive order on Wednesday to root out state laws that reference outdated technologies like the fax and telegram.`\
+https://www.nytimes.com/2026/07/09/nyregion/new-york-state-wants-ai-to-find-inefficiencies.html
+
+**How to Turn Your Phone Into a Personal Health Dashboard**\
+`Free apps from Google, Samsung and Apple can help you track your diet, exercise and well-being — and provide vital information during emergencies.`\
+https://www.nytimes.com/2026/07/09/technology/personaltech/iphone-android-health-tracking.html
+
+**Sifting Through Venezuela Earthquakes’ Rubble, and the Ashes of a Revolution**\
+`The devastation of Ms. Zúñiga’s city in Venezuela follows the demise of her political project. The revolution is over, but the human ties that help her cope remain.`\
+https://www.nytimes.com/2026/07/09/world/americas/jacqueline-zuniga-venezuela-earthquakes-socialist-revolution.html
+
+**Preparing for ‘Weimar America’**\
 `“It may not be Hitler 2.0, it may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-america.html
 
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/07/09/learning/word-of-the-day-amelioration.html
 **Security Precaution Leads Trump to Swap Planes**\
 `President Trump changed airplanes at the urging of the Secret Service, flying on the old Air Force One jet as a security precaution instead of the new Qatari-gifted plane for part of his return trip from a NATO summit in Turkey.`\
 https://www.nytimes.com/video/us/100000011020831/security-precaution-leads-trump-to-swap-planes.html
-
-**Guía para ser un invitado de lujo**\
-`Abundan los consejos para organizar una fiesta o reunión perfectas, pero para ser un buen invitado hay que cultivar ciertas habilidades.`\
-https://www.nytimes.com/es/2026/07/09/espanol/estilos-de-vida/guia-para-ser-buen-invitado.html
-
-**Entre ruinas y cadáveres, Venezuela afronta el costo humano de los terremotos**\
-`A medida que se multiplican las víctimas y los desaparecidos, las labores de rescate se transforman en una carrera contra el tiempo y la descomposición.`\
-https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-rescate-cuerpos.html
-
-**¿Qué país tiene a los aficionados mejor vestidos del Mundial?**\
-`Los aficionados de todos los países aportaban su propio estilo y toque personal a la fiesta del fútbol.`\
-https://www.nytimes.com/es/2026/07/09/espanol/estilos-de-vida/mundial-aficionados-trajes-estilos.html
-
-**El colapso del alto al fuego con Irán complica la agenda exterior de Trump**\
-`A meses de las elecciones, el presidente analiza nuevas acciones militares y económicas mientras crecen las dudas sobre los objetivos iniciales de la guerra.`\
-https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-guerra-iran.html
-
-**¿Los suplementos de omega-3 realmente benefician al cerebro?**\
-`Los resultados de las investigaciones han sorprendido incluso a los científicos.`\
-https://www.nytimes.com/es/2026/07/09/espanol/omega-3-alimentos-salud-cerebro.html
-
-**Mexico Investigates Possible F.B.I. Role in El Mayo Arrest**\
-`Accusations that the United States lied about its involvement in the notorious drug lord’s capture renewed controversy over an issue that has strained the U.S.-Mexico relationship.`\
-https://www.nytimes.com/2026/07/09/world/americas/mexico-el-mayo-fbi-us-cartel.html
-
-**This Summer, Midtown Manhattan Is Taking Center Stage**\
-`Midtown, with its high-rise office buildings and tourist hotels, isn’t hip, but it has become the site of a series of dramatic spectacles this year.`\
-https://www.nytimes.com/2026/07/09/nyregion/midtown-manhattan-nyc-taylor-swift-knicks.html
-
-**NYT Spelling Bee Answers for July 9, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/09/crosswords/spelling-bee-forum.html
-
-**Late Night Joins the Hunt for Mitch McConnell**\
-`“Apparently, people don’t like a majority senator disappearing with no explanation for three weeks,” Ronny Chieng said on Wednesday’s “Daily Show.”`\
-https://www.nytimes.com/2026/07/09/arts/television/late-night-mitch-mcconnell.html
-
-**Inspector of Buckling Building Cited for Missing Problems at Other Sites**\
-`A New York Times review of city records shows that the firm, Domani Inspection Services, was repeatedly accused of breaking New York City rules.`\
-https://www.nytimes.com/2026/07/09/nyregion/nyc-building-collapse-inspection.html
-
-**Mideast Live Updates: U.S. and Iran Trade Fresh Strikes**\
-`The U.S. military said it had hit dozens of Iranian targets for the second night in a row. Iran’s military said it responded by firing missiles and drones at U.S. bases in Kuwait and Bahrain.`\
-https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
-
-**Oil Prices Hold Gains After U.S. and Iran Trade Another Round of Strikes**\
-`Choppy trading in stocks and bonds also reflected anxiety among investors about the war’s effects on inflation and growth.`\
-https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.html
-
-**Why India Has Spent Years Blocking the Release of Diljit Dosanjh’s ‘Satluj’**\
-`Censors demanded 127 cuts to the film that explores a dark period of police brutality in Punjab state. Filmmakers say it’s the latest, chilling example of entrenched censorship.`\
-https://www.nytimes.com/2026/07/09/world/asia/india-film-censorship-satluj-diljit.html
-
-**The Zombification of America**\
-`Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
-https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
-
-**Quote of the Day: As Parents Reject Vitamin K, Infant Hemorrhages Increase**\
-`Quotation of the Day for Thursday, July 9, 2026.`\
-https://www.nytimes.com/2026/07/09/pageoneplus/quote-of-the-day-as-parents-reject-vitamin-k-infant-hemorrhages-increase.html
-
-**Tanker Attacks Risk Overplaying Iran’s Hand, Analysts Say**\
-`Iran’s history shows it is willing to dig in, even when it may suffer big losses.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/iran-us-war-strait-of-hormuz.html
-
-**Graham Platner Suspended His Senate Campaign. Here’s What’s Next for Democrats.**\
-`The deadline to pick a new nominee is July 27 and candidates are already lining up. State party leaders said they would hold some form of nominating convention.`\
-https://www.nytimes.com/2026/07/08/us/politics/graham-platner-out-whats-next.html
-
-**Second Person in a Week Killed by Federal Task Force in Memphis**\
-`Tennessee authorities are investigating both shootings involving agents working with the task force in Memphis.`\
-https://www.nytimes.com/2026/07/08/us/shootings-federal-task-force-memphis.html
-
-**‘A Slow-Rolling Disaster’: Inside the Implosion of the Platner Campaign**\
-`Graham Platner’s bid for the Senate inspired progressive Democrats. But the campaign, which he suspended Wednesday, was messy, disorganized and ultimately doomed by a steady drip of scandal.`\
-https://www.nytimes.com/2026/07/08/us/politics/graham-platner-campaign-implosion-maine.html
-
-**Platner Suspends Maine Senate Bid**\
-`In a video posted on social media, Graham Platner, the Democratic nominee for Senate in Maine, said he was suspending his campaign after an accusation of rape, which he has vehemently denied.`\
-https://www.nytimes.com/video/us/politics/100000011016249/graham-platner-maine-drops-out.html
-
-**Trump Says He’ll Ask Supreme Court to Rehear Citizenship Case, an Unlikely Event**\
-`The last time the justices granted a rehearing request after a case decision was in 1965. The court has only once reversed itself after rehearing a case.`\
-https://www.nytimes.com/2026/07/08/us/politics/trump-supreme-court-birthright-citizenship.html
 
