@@ -1,3 +1,7 @@
+**Why India Has Spent Years Blocking the Release of Diljit Dosanjh’s ‘Satluj’**\
+`Censors demanded 127 cuts to the film that explores a dark period of police brutality in Punjab state. Filmmakers say it’s the latest, chilling example of entrenched censorship.`\
+https://www.nytimes.com/2026/07/09/world/asia/india-film-censorship-satluj-diljit.html
+
 **¿Cuáles son los beneficios del psyllium?**\
 `Se dice que este suplemento ayuda a perder peso, a controlar el azúcar en sangre, el colesterol y más. ¿Es demasiado bueno para ser verdad?`\
 https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
