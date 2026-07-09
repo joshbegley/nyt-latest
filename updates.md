@@ -1,3 +1,11 @@
+**A Proposed Rule Would Politicize Medical Research. Scientists Are Not Happy.**\
+`In tens of thousands of comments, researchers, doctors and others warned the rule could hamper progress on important health issues.`\
+https://www.nytimes.com/2026/07/09/well/omb-scientific-grant-proposal.html
+
+**OpenAI Releases GPT-5.6 Sol, Its Most Powerful AI Model Yet**\
+`The new release was delayed after the U.S. government restricted the latest artificial intelligence models over cybersecurity concerns.`\
+https://www.nytimes.com/2026/07/09/technology/openai-sol-ai.html
+
 **Warsh Announces Slate of New Advisers for Fed Task Forces**\
 `The five task forces are focused on topics that Kevin M. Warsh, the chairman of the Federal Reserve, has said are “central to the broad conduct of monetary policy.”`\
 https://www.nytimes.com/2026/07/09/business/warsh-announces-slate-of-new-advisers-for-fed-task-forces.html

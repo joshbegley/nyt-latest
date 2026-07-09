@@ -1,3 +1,11 @@
+**A Proposed Rule Would Politicize Medical Research. Scientists Are Not Happy.**\
+`In tens of thousands of comments, researchers, doctors and others warned the rule could hamper progress on important health issues.`\
+https://www.nytimes.com/2026/07/09/well/omb-scientific-grant-proposal.html
+
+**OpenAI Releases GPT-5.6 Sol, Its Most Powerful AI Model Yet**\
+`The new release was delayed after the U.S. government restricted the latest artificial intelligence models over cybersecurity concerns.`\
+https://www.nytimes.com/2026/07/09/technology/openai-sol-ai.html
+
 **Palestinian Authority Sets Date for First Major Elections in 20 Years**\
 `Analysts expressed skepticism that the vote would take place as planned. In 2021, Mahmoud Abbas, the authority’s leader, scheduled and then canceled a similar election.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-elections-abbas.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/09/us/david-hearn-olympian-reflecting-pool.html
 **Muere Bonnie Tyler, intérprete de ‘Total Eclipse of the Heart’**\
 `Con una voz tan curtida como operística, creó himnos pop de la década de 1980 como ‘Holding Out for a Hero’.`\
 https://www.nytimes.com/es/2026/07/09/espanol/cultura/muere-bonnie-tyler-total-eclipse-of-the-heart.html
-
-**U.S. and Iran Trade Strikes Again After Trump Calls Cease-Fire ‘Over’**\
-`The United States and Iran traded new strikes amid rising hostilities between the two countries. The latest rounds came hours after President Trump said he thought their temporary cease-fire was over.`\
-https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strikes-trump.html
-
-**Graham Platner’s Exit Sets Off Scramble for New Democratic Senate Candidate in Maine**\
-`The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
-https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
