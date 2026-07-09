@@ -1,3 +1,7 @@
+**Live Updates: Defendant in Kirk Killing Voiced Regrets After the Shooting, Partner Says**\
+`The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thurdsay.`\
+https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
+
 **FIFA, Trump and Balogun**\
 `A look inside the scandal that shook the World Cup.`\
 https://www.nytimes.com/2026/07/09/podcasts/fifa-trump-and-balogun.html
