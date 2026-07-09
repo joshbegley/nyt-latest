@@ -1,3 +1,7 @@
+**Two Telehealth Executives Sentenced for Scheme to Distribute Adderall**\
+`The Justice Department said Done Global’s clinicians signed prescriptions for the stimulant drug, which is used to treat A.D.H.D., every 30 seconds.`\
+https://www.nytimes.com/2026/07/09/well/telehealth-executives-sentenced-adderall-scheme.html
+
 **Meta Launches New A.I. Model as Global Technology Race Heats Up**\
 `For the first time, the company will offer a paid version of the service, a departure from its longtime philosophy of giving its A.I. away for free.`\
 https://www.nytimes.com/2026/07/09/technology/meta-muse-spark-artificial-intelligence.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
 **Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
 `Why were celebrity Knicks fans and Taylor Swift’s wedding guests named on a secret security database?`\
 https://www.nytimes.com/2026/07/09/podcasts/madison-square-garden-wedding-travis-kelce-taylor-swift.html
-
-**Brote de ciclosporosis en EE. UU.: cómo cuidarte**\
-`La cyclospora, un parásito que causa enfermedades intestinales, está afectando a muchas personas en todo el país. Los expertos en salud te dan algunos consejos para evitar el contagio.`\
-https://www.nytimes.com/es/2026/07/09/espanol/cyclospora-diarrea-infeccion.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

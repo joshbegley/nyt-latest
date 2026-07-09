@@ -1,3 +1,7 @@
+**Two Telehealth Executives Sentenced for Scheme to Distribute Adderall**\
+`The Justice Department said Done Global’s clinicians signed prescriptions for the stimulant drug, which is used to treat A.D.H.D., every 30 seconds.`\
+https://www.nytimes.com/2026/07/09/well/telehealth-executives-sentenced-adderall-scheme.html
+
 **Meta Launches New A.I. Model as Global Technology Race Heats Up**\
 `For the first time, the company will offer a paid version of the service, a departure from its longtime philosophy of giving its A.I. away for free.`\
 https://www.nytimes.com/2026/07/09/technology/meta-muse-spark-artificial-intelligence.html
