@@ -1,3 +1,11 @@
+**China, Russia and Others Seek to Inflame Debate Over A.I. Data Centers**\
+`State actors in China, Russia and Iran have sought to exploit the U.S. public debate over the effects of the technology.`\
+https://www.nytimes.com/2026/07/09/business/china-russia-ai-data-centers.html
+
+**Wally Funk, Who Set an Age Record for Space Travel, Dies at 87**\
+`As a young woman in the 1960s, she wasn’t allowed to become a NASA astronaut. She finally realized her long-held dream of flying in space as an octogenarian.`\
+https://www.nytimes.com/2026/07/09/science/space/wally-funk-dead.html
+
 **Trump salió de Turquía en el antiguo Air Force One. Esta fue la razón**\
 `El Servicio Secreto dijo que el presidente no debía usar el avión donado por Catar al salir de Ankara. Este cambio provoca más dudas sobre la adaptación del nuevo avión.`\
 https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-air-force-one-seguridad.html

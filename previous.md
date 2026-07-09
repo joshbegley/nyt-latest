@@ -1,3 +1,11 @@
+**China, Russia and Others Seek to Inflame Debate Over A.I. Data Centers**\
+`State actors in China, Russia and Iran have sought to exploit the U.S. public debate over the effects of the technology.`\
+https://www.nytimes.com/2026/07/09/business/china-russia-ai-data-centers.html
+
+**Wally Funk, Who Set an Age Record for Space Travel, Dies at 87**\
+`As a young woman in the 1960s, she wasn’t allowed to become a NASA astronaut. She finally realized her long-held dream of flying in space as an octogenarian.`\
+https://www.nytimes.com/2026/07/09/science/space/wally-funk-dead.html
+
 **Trump salió de Turquía en el antiguo Air Force One. Esta fue la razón**\
 `El Servicio Secreto dijo que el presidente no debía usar el avión donado por Catar al salir de Ankara. Este cambio provoca más dudas sobre la adaptación del nuevo avión.`\
 https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-air-force-one-seguridad.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/09/t-magazine/summer-hosting-gift-guide-ideas.ht
 **Trump’s NATO Summit, and Everyone Else’s**\
 `While President Trump insulted allies and demanded loyalty, the military alliance moved quietly closer to accepting more European responsibility for defense.`\
 https://www.nytimes.com/2026/07/09/world/europe/nato-trump-turkey-summit.html
-
-**Can Trump’s Arch Be So Tall? A Panel May Redefine a Law to Get to Yes.**\
-`The proposed 250-foot arch would violate a height limit on Washington structures under the traditional reading of the law. But the panel, now led by the president’s allies, has other ideas.`\
-https://www.nytimes.com/2026/07/09/us/politics/trump-arch-height-approval.html
-
-**Corrections: July 9, 2026**\
-`Corrections that appeared in print on Thursday, July 9, 2026.`\
-https://www.nytimes.com/2026/07/09/pageoneplus/corrections-july-9-2026.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
