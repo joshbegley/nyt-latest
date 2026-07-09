@@ -1,6 +1,6 @@
 **Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
 `The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral.html
+https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
 
 **Madison Square Garden Celebrity ‘Risk’ List, Revealed**\
 `Why were celebrity Knicks fans and Taylor Swift’s wedding guests named on a secret security database?`\
