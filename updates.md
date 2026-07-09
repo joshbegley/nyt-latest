@@ -1,3 +1,27 @@
+**The Unprecedented Personal Profits of Trump’s Presidency**\
+`The Trump family is making money in sectors that align with the president’s agenda.`\
+https://www.nytimes.com/2026/07/09/podcasts/the-daily/trump-personal-profits-presidency.html
+
+**How the Platner Campaign Imploded, and New Questions About Trump’s Qatari-Donated Jet**\
+`Plus, what Meta’s new A.I. push means for your Instagram pictures.`\
+https://www.nytimes.com/2026/07/09/podcasts/the-headlines/platner-campaign-trump-qatar-jet-meta.html
+
+**NYT Connections Answers for July 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/09/crosswords/connections-companion-1125.html
+
+**NYT Strands Hints for July 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/09/crosswords/strands-sidekick-859.html
+
+**Today’s Wordle Hints for July 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/09/crosswords/wordle-review-1847.html
+
+**A Landfill in Indonesia Caught Fire Over a Week Ago. It’s Still Burning.**\
+`Toxic fumes have sickened nearby residents. Lawmakers and activists say the blaze is an indication of the country’s longstanding issues with waste management.`\
+https://www.nytimes.com/2026/07/09/world/asia/indonesia-landfill-fire.html
+
 **Bonnie Tyler, Who Sang ‘Total Eclipse of the Heart,’ Dies at 75**\
 `With a voice both weathered and operatic, she minted 1980s pop anthems like “Total Eclipse” and “Holding Out for a Hero.”`\
 https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html

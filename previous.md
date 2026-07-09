@@ -1,3 +1,27 @@
+**The Unprecedented Personal Profits of Trump’s Presidency**\
+`The Trump family is making money in sectors that align with the president’s agenda.`\
+https://www.nytimes.com/2026/07/09/podcasts/the-daily/trump-personal-profits-presidency.html
+
+**How the Platner Campaign Imploded, and New Questions About Trump’s Qatari-Donated Jet**\
+`Plus, what Meta’s new A.I. push means for your Instagram pictures.`\
+https://www.nytimes.com/2026/07/09/podcasts/the-headlines/platner-campaign-trump-qatar-jet-meta.html
+
+**NYT Connections Answers for July 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/09/crosswords/connections-companion-1125.html
+
+**NYT Strands Hints for July 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/09/crosswords/strands-sidekick-859.html
+
+**Today’s Wordle Hints for July 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/09/crosswords/wordle-review-1847.html
+
+**A Landfill in Indonesia Caught Fire Over a Week Ago. It’s Still Burning.**\
+`Toxic fumes have sickened nearby residents. Lawmakers and activists say the blaze is an indication of the country’s longstanding issues with waste management.`\
+https://www.nytimes.com/2026/07/09/world/asia/indonesia-landfill-fire.html
+
 **Bonnie Tyler, Who Sang ‘Total Eclipse of the Heart,’ Dies at 75**\
 `With a voice both weathered and operatic, she minted 1980s pop anthems like “Total Eclipse” and “Holding Out for a Hero.”`\
 https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/books/100000010971102/which-version-of-the-odyssey
 **Can Xenom Turn Working Out Into a Sport?**\
 `Xenom, a new fitness company, wants to make weekend warriors feel like pros.`\
 https://www.nytimes.com/2026/07/09/style/xenom-crossfit-competition-workout-fitness.html
-
-**The World Cup’s Biggest Match Is Nike Vs. Adidas**\
-`Second place in the hearts and wallets of Americans isn’t good enough for the world’s largest sportswear companies, who bet big on the tournament.`\
-https://www.nytimes.com/2026/07/09/business/world-cup-nike-adidas.html
-
-**Big Tech Is Now Targeting Native American Land for Massive Data Centers**\
-`The data center boom has roiled communities across the country, but on Native land, a Big Tech push for quick approvals has pitted the need for development against a history of exploitation.`\
-https://www.nytimes.com/2026/07/09/us/data-centers-native-american-tribes.html
-
-**Historical Fiction Books That Will Transport You to the 1960s**\
-`The best-selling author Kerri Maher recommends books that transport readers to the decade of space travel, counterculture and tumultuous societal change.`\
-https://www.nytimes.com/2026/07/09/books/historical-fiction-1960s.html
-
-**Europa defiende su nuevo sistema fronterizo y frustra a los viajeros**\
-`Aerolíneas y operadores aeroportuarios advierten que el nuevo esquema europeo está sobrecargando los controles fronterizos y amenaza con agravar los retrasos.`\
-https://www.nytimes.com/es/2026/07/09/espanol/mundo/europa-nuevo-sistema-fronterizo-viajes.html
-
-**Enter the Era of Meme Couture**\
-`For designers like Duran Lantink of Jean Paul Gaultier, Robert Wun and Viktor&Rolf, it’s not a hit if it doesn’t go viral.`\
-https://www.nytimes.com/2026/07/09/style/gaultier-duran-lantink-schiaparelli-couture.html
-
-**¿Cuáles son los beneficios del psyllium?**\
-`Se dice que este suplemento ayuda a perder peso, a controlar el azúcar en sangre, el colesterol y más. ¿Es demasiado bueno para ser verdad?`\
-https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
 

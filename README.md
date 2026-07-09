@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html
 `La destrucción física de La Guaira ha seguido al desmoronamiento del proyecto político al que activistas como Jacqueline Zúñiga han dedicado toda su vida.`\
 https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-hugo-chavez-vivienda.html
 
-**Preparing for ‘Weimar America’**\
+**‘ I’m Worried About Weimar America’**\
 `“It may not be Hitler 2.0. It may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/2026/07/09/opinion/america-politics-weimar-rod-dreher.html
 
