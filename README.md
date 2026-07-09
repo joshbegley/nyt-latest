@@ -1,3 +1,7 @@
+**Security Precaution Led Trump to Use Old Air Force One in Leaving Turkey**\
+`The Secret Service is said to have asked that the president not use the Qatari-donated jet when he left Ankara. The swap deepens questions about the retrofitting of the new plane.`\
+https://www.nytimes.com/2026/07/08/us/politics/trump-air-force-one-security.html
+
 **Justin Bieber y Burna Boy se unen al primer espectáculo del medio tiempo de una final del Mundial**\
 `Los artistas actuarán junto a Madonna, Shakira y BTS en el primer espectáculo de la historia en una final del Mundial. El objetivo es igualar la influencia cultural del Super Bowl.`\
 https://www.nytimes.com/es/2026/07/08/espanol/cultura/mundial-medio-tiempo-justin-bieber-shakira-madonna-bts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
 **A Checkup on the Nation’s Health Care Coverage**\
 `How many Americans lack health insurance?`\
 https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
-
-**Tiny Love Stories: ‘Why Aren’t You Having Sex Anymore?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/07/08/style/tiny-modern-love-stories-why-arent-you-having-sex-anymore.html
 
