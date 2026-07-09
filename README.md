@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/07/09/arts/design/museum-and-galleries-seating.html
 `This year’s boom represents the most spent on global deal-making in a six-month period in a decade. But questions persist about whether it can continue.`\
 https://www.nytimes.com/2026/07/09/business/ai-boom-corporate-deals.html
 
-**Ukrainians Cautiously Welcome Trump’s Announcement About Air-Defense Systems**\
+**Ukrainians Cautiously Welcome Trump’s Announcement About Patriot Missile Systems**\
 `President Trump said the United States would license Ukraine to produce Patriots, which can intercept ballistic missiles. But it could be months or years before those are ready.`\
 https://www.nytimes.com/2026/07/09/world/europe/ukraine-patriots-trump-russia.html
 
