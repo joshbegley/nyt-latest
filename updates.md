@@ -1,3 +1,11 @@
+**A Chinese Spacecraft Captures First Image of Quasi-Moon**\
+`A Chinese spacecraft has captured the first image of the asteroid Kamo‘oalewa.`\
+https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
+
+**Map: 3.6-Magnitude Earthquake Shakes Central California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
+
 **Grocery Stores Lower Prices as Consumers Pare Spending**\
 `While shoppers may get better deals on some items, it’s unlikely their overall grocery bill will fall.`\
 https://www.nytimes.com/2026/07/09/business/grocery-stores-lower-food-prices.html
