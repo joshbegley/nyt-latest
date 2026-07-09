@@ -1,3 +1,7 @@
+**Volkswagen Is Cutting Production as Sales in China Plunge**\
+`The German automaker has struggled to compete with fast-growing Chinese companies that offer more affordable and sophisticated electric vehicles.`\
+https://www.nytimes.com/2026/07/09/business/volkswagen-china-sales.html
+
 **Russian Finances Get Shakier, Despite Short-Term Bonus From Iran War**\
 `As oil prices fall back to levels not seen since before the Middle East war began, the Kremlin will be forced to confront a deepening budget deficit.`\
 https://www.nytimes.com/2026/07/09/world/europe/russia-oil-budget-deficit.html
