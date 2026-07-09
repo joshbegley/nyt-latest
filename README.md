@@ -2,8 +2,8 @@
 `A look inside the scandal that shook the World Cup.`\
 https://www.nytimes.com/2026/07/09/podcasts/fifa-trump-and-balogun.html
 
-**Live Updates: Interview With Partner of Defendant in Kirk Killing Is Played in Court**\
-`The interview with the former roommate and romantic partner of the man accused of killing Charlie Kirk could bolster the prosecution’s case that the gunman was motivated by politics.`\
+**Live Updates: Defendant in Kirk Killing Voiced Regrets After the Shooting, Partner Says**\
+`The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thurdsay.`\
 https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
 
 **Tomatoes, Cucumbers, Basil, Zucchini**\
