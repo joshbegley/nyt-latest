@@ -1,3 +1,11 @@
+**Gaza Aid Worker on His Way to Watch World Cup Killed by Israeli Strike**\
+`The Israeli military said it targeted a Hamas militant and it “regrets any harm” to “uninvolved civilians.”`\
+https://www.nytimes.com/2026/07/09/world/middleeast/aid-worker-killed-israeli-strike.html
+
+**Too Many Books?**\
+`Mendel Uminer faced a crisis when his landlord objected to the 10,000 volumes in his New York studio apartment.`\
+https://www.nytimes.com/2026/07/09/style/too-many-books-new-york-city-apartment-scholar-landlord.html
+
 **A Chinese Spacecraft Captures First Image of Quasi-Moon**\
 `A Chinese spacecraft has captured the first image of the asteroid Kamo‘oalewa.`\
 https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/09/magazine/degenerate.html
 **World Cup Tourists Are Giving Americans Exactly What We Crave**\
 `TikTok de Toquevilles have descended on our Walmarts, Buc-ees and Bass Pro Shops. Our delight at their content says a lot about us.`\
 https://www.nytimes.com/2026/07/09/magazine/world-cup-tourists-tiktok.html
-
-**36 Hours in Lecce, Italy: Things to Do and See**\
-`In sun-drenched southern Italy, this immaculately preserved Baroque city is far more than a fetching fossil.`\
-https://www.nytimes.com/interactive/2026/07/09/travel/things-to-do-lecce.html
-
-**New York State Wants A.I. to Find Inefficiencies**\
-`Gov. Kathy Hochul signed an executive order on Wednesday to root out state laws that reference outdated technologies like the fax and telegram.`\
-https://www.nytimes.com/2026/07/09/nyregion/new-york-state-wants-ai-to-find-inefficiencies.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
