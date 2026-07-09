@@ -62,6 +62,10 @@ https://www.nytimes.com/2026/07/08/us/politics/democrats-republicans-sexual-assa
 `Nearly four decades after an Ohio man was found slain in a hotel room, renewed forensic testing and years of follow-up investigation resulted in a murder indictment.`\
 https://www.nytimes.com/2026/07/08/us/ohio-cold-case-dna-cracker-barrel.html
 
+**Here’s the latest.**\
+`Mr. Platner’s withdrawal, which comes after a woman accused him of rape, creates deep uncertainty in a race that both parties see as crucial to their hopes of winning the Senate.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-maine-senate.html
+
 **Live Updates: Platner Suspends Senate Bid in Maine After Rape Accusation**\
 `Graham Platner, the Democratic nominee, is withdrawing from a race both parties see as crucial to their hopes of winning the Senate. He has denied the accusation.`\
 https://www.nytimes.com/live/2026/07/08/us/graham-platner-maine-suspends-campaign

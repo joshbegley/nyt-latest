@@ -1,3 +1,7 @@
+**The World Is Marching Past an Isolationist America**\
+`Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
+https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
+
 **Quote of the Day: As Parents Reject Vitamin K, Infant Hemorrhages Increase**\
 `Quotation of the Day for Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/09/pageoneplus/quote-of-the-day-as-parents-reject-vitamin-k-infant-hemorrhages-increase.html

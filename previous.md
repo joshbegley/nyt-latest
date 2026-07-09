@@ -1,3 +1,7 @@
+**The World Is Marching Past an Isolationist America**\
+`Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
+https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
+
 **Quote of the Day: As Parents Reject Vitamin K, Infant Hemorrhages Increase**\
 `Quotation of the Day for Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/09/pageoneplus/quote-of-the-day-as-parents-reject-vitamin-k-infant-hemorrhages-increase.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/08/arts/television/taylor-swift-reality-tv-emmys
 **Justin Bieber and Burna Boy Join Inaugural World Cup Halftime Show**\
 `The artists will perform with Madonna, Shakira and BTS in the first-ever halftime show for a World Cup final. The aim is to replicate the cultural sway of the Super Bowl.`\
 https://www.nytimes.com/2026/07/08/arts/music/justin-bieber-burna-boy-world-cup-halftime-show.html
-
-**Did We Make the Wrong Bet on Big A.I.?**\
-`Maybe Anthropic and OpenAI are not the future of artificial intelligence.`\
-https://www.nytimes.com/2026/07/08/opinion/openai-anthropic-palantir-alex-karp.html
 
