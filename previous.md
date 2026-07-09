@@ -1,3 +1,11 @@
+**The Graham Platner Experiment Failed**\
+`The Graham Platner experiment has failed. “There have been so many errors of judgment at every step of the way,” the columnist Michelle Goldberg argues following the implosion of the senate candidate’s campaign in Maine.`\
+https://www.nytimes.com/video/opinion/100000011020019/the-graham-platner-experiment-failed.html
+
+**México investiga el posible papel del FBI en la detención del Mayo**\
+`Las acusaciones de que Estados Unidos mintió sobre su participación en la captura del famoso narcotraficante han reavivado la polémica en torno a un tema que ha tensado las relaciones entre EE. UU. y México.`\
+https://www.nytimes.com/es/2026/07/09/espanol/america-latina/mexico-fbi-captura-el-mayo.html
+
 **Former Olympian Pleads Not Guilty to Damaging Reflecting Pool**\
 `David Hearn is one of at least four people accused of vandalizing the Lincoln Memorial Reflecting Pool that has been plagued with challenges.`\
 https://www.nytimes.com/2026/07/09/us/david-hearn-olympian-reflecting-pool.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/09/realestate/housing-market-near-nyc.html
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are in Yorkville, Midtown South and Riverdale.`\
 https://www.nytimes.com/2026/07/09/realestate/housing-market-nyc.html
-
-**In ‘Remake,’ a Life Documented on Film Prompts Painful Questions**\
-`Ross McElwee (“Sherman’s March”) reconsiders footage of himself and his family, including a son who died of an overdose.`\
-https://www.nytimes.com/2026/07/09/movies/remake-documentary-ross-mcelwee.html
-
-**‘Westhampton’ Review: A Humiliating Return**\
-`They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
-https://www.nytimes.com/2026/07/09/movies/westhampton-review.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
