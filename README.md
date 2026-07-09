@@ -1,3 +1,7 @@
+**Is Trump Following Viktor Orban’s Playbook?**\
+`Will Trump ultimately come to the same grief as Viktor Orban? On “Interesting Times,” columnist Ross Douthat asks writer Rod Dreher about the parallels between America and Hungary under Orban’s former regime.`\
+https://www.nytimes.com/video/opinion/100000011008046/is-trump-following-viktor-orbans-playbook.html
+
 **Prosecutors Show New Evidence in Charlie Kirk Case**\
 `Also, China and Russia seek to inflame the data center debate. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/09/briefing/charlie-kirk-case-maine-democrats.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/09/us/erika-charlie-kirk-hearing-evidence-court.
 **E.P.A. Moves to Loosen Limits on Pollution From Trucks**\
 `The Trump administration wants to roll back some Biden-era restrictions on smog-causing emissions from heavy-duty vehicles.`\
 https://www.nytimes.com/2026/07/09/climate/epa-pollution-trucks.html
-
-**FIFA, Trump and Balogun**\
-`A look inside the scandal that shook the World Cup.`\
-https://www.nytimes.com/2026/07/09/podcasts/fifa-trump-and-balogun.html
 
