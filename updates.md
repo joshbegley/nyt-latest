@@ -1,3 +1,11 @@
+**Grocery Stores Lower Prices as Consumers Pare Spending**\
+`While shoppers may get better deals on some items, it’s unlikely their overall grocery bill will fall.`\
+https://www.nytimes.com/2026/07/09/business/grocery-stores-lower-food-prices.html
+
+**Factory Fire in China Kills 28**\
+`The country’s leader, Xi Jinping, called on the authorities to make every effort to investigate the cause of the blaze in Fujian Province.`\
+https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
+
 **New York Times and Other Publishers Ask Court to Penalize OpenAI**\
 `The Times, The New York Daily News and other media organizations accused OpenAI of withholding evidence in a lawsuit.`\
 https://www.nytimes.com/2026/07/09/technology/new-york-times-openai.html

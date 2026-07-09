@@ -1,3 +1,11 @@
+**A Chinese Spacecraft Captures First Image of Quasi-Moon**\
+`A Chinese spacecraft has captured the first image of the asteroid Kamo‘oalewa.`\
+https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
+
+**Map: 3.6-Magnitude Earthquake Shakes Central California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
+
 **Grocery Stores Lower Prices as Consumers Pare Spending**\
 `While shoppers may get better deals on some items, it’s unlikely their overall grocery bill will fall.`\
 https://www.nytimes.com/2026/07/09/business/grocery-stores-lower-food-prices.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/07/09/travel/things-to-do-lecce.html
 **New York State Wants A.I. to Find Inefficiencies**\
 `Gov. Kathy Hochul signed an executive order on Wednesday to root out state laws that reference outdated technologies like the fax and telegram.`\
 https://www.nytimes.com/2026/07/09/nyregion/new-york-state-wants-ai-to-find-inefficiencies.html
-
-**How to Turn Your Phone Into a Personal Health Dashboard**\
-`Free apps from Google, Samsung and Apple can help you track your diet, exercise and well-being — and provide vital information during emergencies.`\
-https://www.nytimes.com/2026/07/09/technology/personaltech/iphone-android-health-tracking.html
-
-**Sifting Through Venezuela Earthquakes’ Rubble, and the Ashes of a Revolution**\
-`The devastation of Ms. Zúñiga’s city in Venezuela follows the demise of her political project. The revolution is over, but the human ties that help her cope remain.`\
-https://www.nytimes.com/2026/07/09/world/americas/jacqueline-zuniga-venezuela-earthquakes-socialist-revolution.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
