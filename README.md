@@ -1,3 +1,7 @@
+**In Exchange of Strikes With Iran, U.S. Lands Most of the Blows**\
+`This difference reflects Iran’s limited firepower and degraded air defenses, and highlights how the war is taking a disproportionate toll on Iranians.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes-cease-fire.html
+
 **Former Olympian Pleads Not Guilty To Reflecting Pool Vandalism**\
 `David Hearn, a former Olympic canoeist, pleaded not guilty on Thursday to vandalizing the Lincoln Memorial Reflecting Pool. Hearn was one of at least four people who were arrested after the police said they peeled paint off the pool, which recently underwent a costly renovation project led by the Trump administration.`\
 https://www.nytimes.com/video/us/politics/100000011021474/dc-reflection-pool-renovation-trump-hearn.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/09/business/dealbook/iran-war-markets.html
 **For Ukraine, Other Patriot Makers Are a Cautionary Tale**\
 `Two American allies, Germany and Japan, already have permission to build the American interceptors, a license that President Trump says he will also grant to Kyiv.`\
 https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-missiles.html
-
-**Are We at War Again?**\
-`We look at the state of the conflict with Iran.`\
-https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
