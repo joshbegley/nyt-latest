@@ -1,3 +1,7 @@
+**Renewed Fighting With Iran Shows Cracks in Peace-Trade Rally**\
+`Investors have taken heart from the fragile cease-fire between the United States and Iran before. Will they do so again?`\
+https://www.nytimes.com/2026/07/09/business/dealbook/iran-war-markets.html
+
 **What Germany and Japan Can Teach Ukraine About Patriot Missiles**\
 `Two American allies already have permission to build the American interceptors, a license that President Trump says he will also grant to Kyiv.`\
 https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-missiles.html

@@ -1,3 +1,7 @@
+**Renewed Fighting With Iran Shows Cracks in Peace-Trade Rally**\
+`Investors have taken heart from the fragile cease-fire between the United States and Iran before. Will they do so again?`\
+https://www.nytimes.com/2026/07/09/business/dealbook/iran-war-markets.html
+
 **What Germany and Japan Can Teach Ukraine About Patriot Missiles**\
 `Two American allies already have permission to build the American interceptors, a license that President Trump says he will also grant to Kyiv.`\
 https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-missiles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/us/pope-leo-brian-burch-vatican-ambassador.ht
 **‘Barrio Triste’ Review: Bad Boys With a Movie Camera**\
 `This experimental and earnest film from the Colombian American photographer Stillz follows a group of wayward boys in 1980s Medellín.`\
 https://www.nytimes.com/2026/07/09/movies/barrio-triste-review.html
-
-**Alice Oseman on the End of ‘Heartstopper’ and Her Favorite Books**\
-`While the Y.A. graphic novel phenomenon wraps up with a sixth volume and a Netflix movie, Alice Oseman mostly reads fiction about adults now.`\
-https://www.nytimes.com/2026/07/09/books/review/alice-oseman-heartstopper.html
 
