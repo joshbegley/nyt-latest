@@ -1,3 +1,7 @@
+**Mideast Live Updates: U.S. and Iran Trade Fresh Strikes**\
+`The U.S. military said it had hit dozens of Iranian targets for the second night in a row. Iran’s military said it responded by firing missiles and drones at U.S. bases in Kuwait and Bahrain.`\
+https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
+
 **Oil Prices Rise Further After U.S. and Iran Trade Another Round of Strikes**\
 `Choppy trading in stocks and bonds also reflected anxiety among investors about the war’s effects on inflation and growth.`\
 https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/08/technology/meta-instagram-ai.html
 **Tomato Basil Chicken Breasts**\
 `This chicken recipe, linked below, takes a cue from piccata then heads in a decidedly summery direction: A quick pan sauce of butter, shallots, tomatoes, capers and a splash of red wine vinegar turns rich, juicy and bright — just the thing to spoon over the top.`\
 https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breasts.html
-
-**JD Vance está preocupado**\
-`La teología del vicepresidente de Estados Unidos toma forma en un libro y ofrece una ventana a su visión política.`\
-https://www.nytimes.com/es/2026/07/08/espanol/opinion/jd-vance-trump-libro-iglesia-catolica.html
 
