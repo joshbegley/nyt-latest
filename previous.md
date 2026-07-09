@@ -1,3 +1,19 @@
+**Trump salió de Turquía en el antiguo Air Force One. Esta fue la razón**\
+`El Servicio Secreto dijo que el presidente no debía usar el avión donado por Catar al salir de Ankara. Este cambio provoca más dudas sobre la adaptación del nuevo avión.`\
+https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-air-force-one-seguridad.html
+
+**When Celebrities Protest, or Don’t**\
+`Readers, including the actor Debra Winger, respond to an essay by Molly Jong-Fast.`\
+https://www.nytimes.com/2026/07/09/opinion/celebrities-protests.html
+
+**Why the U.S. Could Beat China**\
+`Chinamaxxing has Americans looking at China in a new light. But Dan Wang argues that despite China’s futuristic image, the United States still has key advantages.`\
+https://www.nytimes.com/video/opinion/100000011007051/why-the-us-could-beat-china.html
+
+**These Fossils May Be the Earliest Evidence of Handedness in Animals**\
+`Scientists propose that recently uncovered fossils may be the earliest evidence of behavioral “handedness” in animals.`\
+https://www.nytimes.com/2026/07/09/science/fossils-earliest-handedness-righties.html
+
 **Maine Democrats Hope to Replace Platner as Senate Nominee. Has That Ever Worked?**\
 `Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
 https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/07/09/us/politics/trump-arch-height-approval.html
 **Corrections: July 9, 2026**\
 `Corrections that appeared in print on Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/09/pageoneplus/corrections-july-9-2026.html
-
-**Graham Platner Is Not the Only One Getting His Comeuppance**\
-`The questions his political demise raises go far beyond Maine.`\
-https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats-israel.html
-
-**SpaceX, Elon Musk and the ‘Dumb Money’ Problem**\
-`Must what goes up also come down?`\
-https://www.nytimes.com/2026/07/09/opinion/spacex-ipo-investment-smart-dumb-money.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Mozart choral works, a pairing of Dvorak and Carlos Simon and piano music by Philip Glass are among our selections.`\
-https://www.nytimes.com/2026/07/09/arts/music/best-classical-music-recordings-july-2026.html
-
-**Paul Thek’s Art Legacy: A Shriek and a Giggle**\
-`A pioneering painter, sculptor and installation artist, he  achieved posthumous glory as a rule breaker, as two riveting exhibitions show.`\
-https://www.nytimes.com/2026/07/09/arts/paul-thek-review.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

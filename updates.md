@@ -1,3 +1,19 @@
+**Trump salió de Turquía en el antiguo Air Force One. Esta fue la razón**\
+`El Servicio Secreto dijo que el presidente no debía usar el avión donado por Catar al salir de Ankara. Este cambio provoca más dudas sobre la adaptación del nuevo avión.`\
+https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-air-force-one-seguridad.html
+
+**When Celebrities Protest, or Don’t**\
+`Readers, including the actor Debra Winger, respond to an essay by Molly Jong-Fast.`\
+https://www.nytimes.com/2026/07/09/opinion/celebrities-protests.html
+
+**Why the U.S. Could Beat China**\
+`Chinamaxxing has Americans looking at China in a new light. But Dan Wang argues that despite China’s futuristic image, the United States still has key advantages.`\
+https://www.nytimes.com/video/opinion/100000011007051/why-the-us-could-beat-china.html
+
+**These Fossils May Be the Earliest Evidence of Handedness in Animals**\
+`Scientists propose that recently uncovered fossils may be the earliest evidence of behavioral “handedness” in animals.`\
+https://www.nytimes.com/2026/07/09/science/fossils-earliest-handedness-righties.html
+
 **Maine Democrats Hope to Replace Platner as Senate Nominee. Has That Ever Worked?**\
 `Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
 https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
