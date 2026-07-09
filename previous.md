@@ -1,3 +1,11 @@
+**¿Cuáles son los beneficios del psyllium?**\
+`Se dice que este suplemento ayuda a perder peso, a controlar el azúcar en sangre, el colesterol y más. ¿Es demasiado bueno para ser verdad?`\
+https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
+
+**Word of the Day: amelioration**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/09/learning/word-of-the-day-amelioration.html
+
 **Security Precaution Leads Trump to Swap Planes**\
 `President Trump changed airplanes at the urging of the Secret Service, flying on the old Air Force One jet as a security precaution instead of the new Qatari-gifted plane for part of his return trip from a NATO summit in Turkey.`\
 https://www.nytimes.com/video/us/100000011020831/security-precaution-leads-trump-to-swap-planes.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
 `Quotation of the Day for Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/09/pageoneplus/quote-of-the-day-as-parents-reject-vitamin-k-infant-hemorrhages-increase.html
 
-**Tanker Attacks Risk Overplaying Iran’s Hand, Analysts say**\
+**Tanker Attacks Risk Overplaying Iran’s Hand, Analysts Say**\
 `Iran’s history shows it is willing to dig in, even when it may suffer big losses.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/iran-us-war-strait-of-hormuz.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/es/2026/07/08/espanol/negocios/meta-fotos-instagram-ia.h
 **Can the United States Hold On?**\
 `Our July 4 bash was troubled, and America may go the way of the Ghaznavid Empire. But here are reasons to be more positive.`\
 https://www.nytimes.com/2026/07/08/opinion/america-250-trump.html
-
-**Conor McGregor Is Said to Have Continued Use of Banned Drugs After Injury Healed**\
-`Conor McGregor, who will make his return to fighting this weekend, took human growth hormone and anabolic steroids after recovering from a broken leg, people with knowledge of the matter said.`\
-https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.html
-
-**¿Por qué China lanzó un misil de largo alcance al Pacífico?**\
-`Según algunos expertos, la prueba indica que China está ampliando sus ambiciones nucleares y dejando de lado sus reticencias a probar misiles en los cielos y océanos internacionales.`\
-https://www.nytimes.com/es/2026/07/08/espanol/mundo/china-misil-prueba-armas-nucleares.html
 

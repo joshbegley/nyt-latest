@@ -1,3 +1,15 @@
+**¿Cuáles son los beneficios del psyllium?**\
+`Se dice que este suplemento ayuda a perder peso, a controlar el azúcar en sangre, el colesterol y más. ¿Es demasiado bueno para ser verdad?`\
+https://www.nytimes.com/es/2026/07/09/espanol/beneficios-psyllium.html
+
+**Word of the Day: amelioration**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/09/learning/word-of-the-day-amelioration.html
+
+**Tanker Attacks Risk Overplaying Iran’s Hand, Analysts Say**\
+`Iran’s history shows it is willing to dig in, even when it may suffer big losses.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/iran-us-war-strait-of-hormuz.html
+
 **The Zombification of America**\
 `Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
 https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
