@@ -1,3 +1,7 @@
+**I.U.C.N. Update Says Deep-Sea Mining Threatens Mollusks Around Hydrothermal Vents**\
+`The snails and other mollusks around hydrothermal vents have evolved to thrive in extreme conditions, but mineral extraction could drive more than half to extinction.`\
+https://www.nytimes.com/2026/07/09/climate/iucn-red-list-threatened-species.html
+
 **As France and Morocco Take the Field, Colonial Past and Global Present Will Mix**\
 `History hangs over the World Cup quarterfinal between France and its former protectorate. These days, national teams intermingle and overlap.`\
 https://www.nytimes.com/2026/07/09/world/europe/france-morocco-world-cup-soccer.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/09/movies/gail-daughtry-and-the-celebrity-sex-pa
 **‘Do You Love Me’ Review: Images of a Beirut Beyond War**\
 `The director Lana Daher creates a complex emotional portrait of Lebanon with found footage assembled into a 75-minute film of memory, trauma and life.`\
 https://www.nytimes.com/2026/07/09/movies/do-you-love-me-review.html
-
-**‘Evil Dead Burn’ Review: Stop, Drop and Kill**\
-`A dark spirit boils and sears its way through an unhappy family in the latest “Evil Dead” installment.`\
-https://www.nytimes.com/2026/07/09/movies/evil-dead-burn-review.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
