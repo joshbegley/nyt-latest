@@ -146,7 +146,7 @@ https://www.nytimes.com/2026/07/09/technology/personaltech/iphone-android-health
 `The devastation of Ms. Zúñiga’s city in Venezuela follows the demise of her political project. The revolution is over, but the human ties that help her cope remain.`\
 https://www.nytimes.com/2026/07/09/world/americas/jacqueline-zuniga-venezuela-earthquakes-socialist-revolution.html
 
-**Preparing for ‘Weimar America’**\
+**‘I’m Worried About Weimar America’**\
 `“It may not be Hitler 2.0, it may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-america.html
 
