@@ -1,3 +1,23 @@
+**After Several Days, Ayatollah Khamenei’s Funeral Comes to an End**\
+`A huge crowd surrounded Ayatollah Ali Khamenei’s coffin in his hometown, Mashhad, on Thursday, the final day of his funeral procession. The supreme leader’s body was transported to the Imam Reza Shrine, where it will be buried.`\
+https://www.nytimes.com/video/world/middleeast/100000011022031/iran-funeral-burial-khamenei-supreme-leader.html
+
+**Are We Becoming ‘Weimar America’?**\
+`America is at risk of extreme political upheaval, the conservative writer Rod Dreher argues on “Interesting Times.” “It may not be Hitler 2.0, it may not be Stalin 2.0, it might be something all American, but it’s not going to be what we’re used to,” he says.`\
+https://www.nytimes.com/video/opinion/100000011008022/are-we-becoming-weimar-america.html
+
+**Suspect in Charlie Kirk Killing Admitted to the Crime in Text Messages, Prosecutors Say**\
+`In messages that prosecutors say were sent to his romantic partner, Tyler Robinson admitted he was the person who shot Charlie Kirk during an event at a Utah university.`\
+https://www.nytimes.com/2026/07/09/us/tyler-robinson-text-messages-charlie-kirk-assassination.html
+
+**Nobel-Winning U.S. Chemist Omar Yaghi Will Move to China to Lead A.I. Institute**\
+`Omar Yaghi of the University of California, Berkeley, will head an initiative to apply artificial intelligence to the discovery of new materials.`\
+https://www.nytimes.com/2026/07/09/science/nobel-winning-us-chemist-will-move-to-china-to-lead-ai-institute.html
+
+**Albanian Leader Rejects Complaints About Kanye West Concert**\
+`Prime Minister Edi Rama is under fire over a proposed resort with Trump ties, and a planned concert by the controversial musician known as Ye. In both cases, he cites the need for tourism.`\
+https://www.nytimes.com/2026/07/09/world/europe/albania-kanye-west-concert.html
+
 **John Deere Farm Equipment Owners Have Right-to-Repair, F.T.C. Says**\
 `A settlement by the company with the Federal Trade Commission will allow farmers and local mechanics to make their own fixes, instead of relying on authorized dealers.`\
 https://www.nytimes.com/2026/07/09/business/john-deere-ftc-right-to-repair.html
