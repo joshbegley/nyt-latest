@@ -1,3 +1,11 @@
+**Oil Prices Rise Further After U.S. and Iran Trade Another Round of Strikes**\
+`Choppy trading in stocks and bonds also reflected anxiety among investors about the war’s effects on inflation and growth.`\
+https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.html
+
+**Why India Has Spent Years Blocking the Release of Diljit Dosanjh’s ‘Satluj’**\
+`Censors demanded 127 cuts to the film that explores a dark period of police brutality in Punjab state. Filmmakers say it’s the latest, chilling example of entrenched censorship.`\
+https://www.nytimes.com/2026/07/09/world/asia/india-film-censorship-sajlut-diljit.html
+
 **Platner Suspends Senate Bid in Maine After Rape Accusation**\
 `Mr. Platner’s withdrawal, which comes after a woman accused him of rape, creates deep uncertainty in a race that both parties see as crucial to their hopes of winning the Senate.`\
 https://www.nytimes.com/2026/07/08/us/politics/graham-platner-maine-senate.html
