@@ -1,3 +1,15 @@
+**Replacing a Senate Nominee Is Rare. Has It Ever Worked?**\
+`Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
+https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
+
+**A Justice With No Plans to Retire and a Trump Lawyer Now on the Bench**\
+`A roundup of legal news from the country.`\
+https://www.nytimes.com/2026/07/09/us/politics/the-docket-legal-news.html
+
+**En el Mundial, Nike y Adidas se disputan el futuro del fútbol**\
+`El segundo puesto en el corazón y los bolsillos de los estadounidenses no es suficiente para las mayores empresas de ropa deportiva del mundo, que han apostado fuerte por el torneo.`\
+https://www.nytimes.com/es/2026/07/09/espanol/negocios/nike-adidas-mundial.html
+
 **Fake IDs, Dummy Manuscripts and a Rare Book Heist at U.C.L.A.**\
 `Jeffrey Ying, 39, was sentenced in an elaborate scheme to switch Chinese manuscripts from a University of California library with dummy copies.`\
 https://www.nytimes.com/2026/07/09/us/ucla-library-theft-chinese-books-california.html
@@ -177,22 +189,6 @@ https://www.nytimes.com/2026/07/09/arts/music/best-classical-music-recordings-ju
 **Paul Thek’s Art Legacy: A Shriek and a Giggle**\
 `A pioneering painter, sculptor and installation artist, he  achieved posthumous glory as a rule breaker, as two riveting exhibitions show.`\
 https://www.nytimes.com/2026/07/09/arts/paul-thek-review.html
-
-**‘The Man Will Burn’: On Filming the Sacred and Propane at Burning Man**\
-`The directors of a new four-part docuseries talked about why the long-running desert festival is important — and like being on “another planet.”`\
-https://www.nytimes.com/2026/07/09/arts/television/burning-man-documentary-hbo.html
-
-**Olivia Rodrigo Makes Heartbreak Pop | Cannonball with Wesley Morris**\
-`With her, falling out of love doesn’t fall flat.`\
-https://www.nytimes.com/2026/07/09/podcasts/olivia-rodrigo-makes-heartbreak-pop.html
-
-**Olivia Rodrigo Makes Heartbreak Pop**\
-`Wesley Morris and pop music journalist, Caryn Ganz, think through Olivia Rodrigo’s new album, “You Seem Pretty Sad for a Girl So in Love.”`\
-https://www.nytimes.com/video/podcasts/100000011016470/olivia-rodrigo-makes-heartbreak-pop.html
-
-**Arrest in Minnesota Pandemic Fraud Case Faces Extradition Hurdles in Somalia**\
-`The Trump administration said detaining Abdikerm Eidleh in Somalia was a turning point in the yearslong investigation. But nearly two weeks later, he still hasn’t been brought to the United States.`\
-https://www.nytimes.com/2026/07/09/world/africa/minnesota-somali-fraud-trump.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

@@ -1,3 +1,15 @@
+**Replacing a Senate Nominee Is Rare. Has It Ever Worked?**\
+`Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
+https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
+
+**A Justice With No Plans to Retire and a Trump Lawyer Now on the Bench**\
+`A roundup of legal news from the country.`\
+https://www.nytimes.com/2026/07/09/us/politics/the-docket-legal-news.html
+
+**En el Mundial, Nike y Adidas se disputan el futuro del fútbol**\
+`El segundo puesto en el corazón y los bolsillos de los estadounidenses no es suficiente para las mayores empresas de ropa deportiva del mundo, que han apostado fuerte por el torneo.`\
+https://www.nytimes.com/es/2026/07/09/espanol/negocios/nike-adidas-mundial.html
+
 **Fake IDs, Dummy Manuscripts and a Rare Book Heist at U.C.L.A.**\
 `Jeffrey Ying, 39, was sentenced in an elaborate scheme to switch Chinese manuscripts from a University of California library with dummy copies.`\
 https://www.nytimes.com/2026/07/09/us/ucla-library-theft-chinese-books-california.html
