@@ -174,13 +174,13 @@ https://www.nytimes.com/2026/07/09/realestate/housing-market-near-nyc.html
 `This week’s properties are in Yorkville, Midtown South and Riverdale.`\
 https://www.nytimes.com/2026/07/09/realestate/housing-market-nyc.html
 
-**‘Westhampton’ Review: A Humiliating Return**\
-`They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
-https://www.nytimes.com/2026/07/09/movies/westhampton-review-a-humiliating-return.html
-
 **In ‘Remake,’ a Life Documented on Film Prompts Painful Questions**\
 `Ross McElwee (“Sherman’s March”) reconsiders footage of himself and his family, including a son who died of an overdose.`\
 https://www.nytimes.com/2026/07/09/movies/remake-documentary-ross-mcelwee.html
+
+**‘Westhampton’ Review: A Humiliating Return**\
+`They say that you can’t go home again; in this movie, a young filmmaker learns that the hard way.`\
+https://www.nytimes.com/2026/07/09/movies/westhampton-review.html
 
 **‘Night Nurse’ Review: An After-Hours, Erotic Con**\
 `In this thriller, a phone scam is being run out of an elder care facility. Eleni, a skittish but observant nurse, quickly becomes enmeshed with two others in the grift.`\
