@@ -1,3 +1,7 @@
+**Former Olympian Pleads Not Guilty To Reflecting Pool Vandalism**\
+`David Hearn, a former Olympic canoeist, pleaded not guilty on Thursday to vandalizing the Lincoln Memorial Reflecting Pool. Hearn was one of at least four people who were arrested after the police said they peeled paint off the pool, which recently underwent a costly renovation project led by the Trump administration.`\
+https://www.nytimes.com/video/us/politics/100000011021474/dc-reflection-pool-renovation-trump-hearn.html
+
 **Trump Takes Up Another White House Project: The Front Columns**\
 `Restoration work began after the president saw “door dings in the pillars” and ordered up repairs, the interior secretary said.`\
 https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-mi
 **Are We at War Again?**\
 `We look at the state of the conflict with Iran.`\
 https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
-
-**Final Stage of Ayatollah Ali Khamenei’s Funeral Begins After Delay**\
-`Thousands gathered for the procession in Mashhad for the supreme leader, who was killed in the first U.S.-Israeli attacks of the war. Hours earlier, the United States and Iran traded strikes.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

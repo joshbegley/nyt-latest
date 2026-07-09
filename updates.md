@@ -1,3 +1,7 @@
+**Trump Takes Up Another White House Project: The Front Columns**\
+`Restoration work began after the president saw “door dings in the pillars” and ordered up repairs, the interior secretary said.`\
+https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
+
 **Two Telehealth Executives Sentenced for Scheme to Distribute Adderall**\
 `The Justice Department said Done Global’s clinicians signed prescriptions for the stimulant drug, which is used to treat A.D.H.D., every 30 seconds.`\
 https://www.nytimes.com/2026/07/09/well/telehealth-executives-sentenced-adderall-scheme.html
