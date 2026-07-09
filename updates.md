@@ -1,3 +1,7 @@
+**Is Trump Following Viktor Orban’s Playbook?**\
+`Will Trump ultimately come to the same grief as Viktor Orban? On “Interesting Times,” columnist Ross Douthat asks writer Rod Dreher about the parallels between America and Hungary under Orban’s former regime.`\
+https://www.nytimes.com/video/opinion/100000011008046/is-trump-following-viktor-orbans-playbook.html
+
 **Prosecutors Show New Evidence in Charlie Kirk Case**\
 `Also, China and Russia seek to inflame the data center debate. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/09/briefing/charlie-kirk-case-maine-democrats.html
