@@ -1,3 +1,7 @@
+**For Ukraine, Other Patriot Makers Are a Cautionary Tale**\
+`Two American allies, Germany and Japan, already have permission to build the American interceptors, a license that President Trump says he will also grant to Kyiv.`\
+https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-missiles.html
+
 **Factory Fire in China Causes ‘Significant’ Casualties, Xi Says**\
 `At least a dozen people appeared to be trapped on the roof of a shoe factory, in video released by state news media.`\
 https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
