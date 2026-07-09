@@ -1,3 +1,7 @@
+**Officer Charged in Deaths of Police Dogs After Leaving Them in S.U.V. for Hours**\
+`A 4-year-old Belgian Malinois and a 6-year-old springer spaniel were left alone in May for seven hours without relief from the heat, according to prosecutors in South Jersey.`\
+https://www.nytimes.com/2026/07/09/nyregion/nj-k-9-police-dog-deaths.html
+
 **New York Sues Companies Over ‘Forever Chemicals’**\
 `The lawsuit claims that the companies, including 3M and DuPont, contaminated the environment and engaged in fraud by withholding information from the public about the harms of the chemicals, known as PFAS.`\
 https://www.nytimes.com/2026/07/09/nyregion/ny-pfas-lawsuit-3m-dupont.html
