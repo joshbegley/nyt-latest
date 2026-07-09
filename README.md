@@ -1,3 +1,7 @@
+**FIFA, Trump and Balogun**\
+`A look inside the scandal that shook the World Cup.`\
+https://www.nytimes.com/2026/07/09/podcasts/fifa-trump-and-balogun.html
+
 **Live Updates: Interview With Partner of Defendant in Kirk Killing Is Played in Court**\
 `The interview with the former roommate and romantic partner of the man accused of killing Charlie Kirk could bolster the prosecution’s case that the gunman was motivated by politics.`\
 https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/world/asia/indonesia-landfill-fire.html
 **Bonnie Tyler, Who Sang ‘Total Eclipse of the Heart,’ Dies at 75**\
 `With a voice both weathered and operatic, she minted 1980s pop anthems like “Total Eclipse” and “Holding Out for a Hero.”`\
 https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html
-
-**La Guaira, entre los escombros de los terremotos y el fin de la revolución**\
-`La destrucción física de La Guaira ha seguido al desmoronamiento del proyecto político al que activistas como Jacqueline Zúñiga han dedicado toda su vida.`\
-https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-hugo-chavez-vivienda.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
