@@ -1,3 +1,7 @@
+**The Zombification of America**\
+`Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
+https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
+
 **Security Precaution Leads Trump to Swap Planes**\
 `President Trump changed airplanes at the urging of the Secret Service, flying on the old Air Force One jet as a security precaution instead of the new Qatari-gifted plane for part of his return trip from a NATO summit in Turkey.`\
 https://www.nytimes.com/video/us/100000011020831/security-precaution-leads-trump-to-swap-planes.html
