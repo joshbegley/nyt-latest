@@ -1,3 +1,11 @@
+**Platner Suspends Senate Bid in Maine After Rape Accusation**\
+`Mr. Platner’s withdrawal, which comes after a woman accused him of rape, creates deep uncertainty in a race that both parties see as crucial to their hopes of winning the Senate.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-maine-senate.html
+
+**Platner Suspends Senate Bid in Maine After Rape Accusation**\
+`Graham Platner, the Democratic nominee, is withdrawing from a race both parties see as crucial to their hopes of winning the Senate. He has denied the accusation.`\
+https://www.nytimes.com/live/2026/07/08/us/graham-platner-maine-suspends-campaign
+
 **The World Is Marching Past an Isolationist America**\
 `Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
 https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
