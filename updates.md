@@ -1,3 +1,15 @@
+**Trump Says He’ll Ask Supreme Court to Rehear Citizenship Case, an Unlikely Event**\
+`The last time the justices granted a rehearing request after a case decision was in 1965. The court has only once reversed itself after rehearing a case.`\
+https://www.nytimes.com/2026/07/08/us/politics/trump-supreme-court-birthright-citizenship.html
+
+**NYT Crossword Answers for July 09, 2026**\
+`In Brad and Nat Wiegmann’s puzzle, less is more.`\
+https://www.nytimes.com/2026/07/08/crosswords/daily-puzzle-2026-07-09.html
+
+**Western Europe Had Its Hottest June on Record**\
+`An unusually early heat wave smashed records across France, Britain and Spain. Temperatures in some areas are starting to soar again.`\
+https://www.nytimes.com/2026/07/08/climate/western-europe-hottest-june.html
+
 **Trump’s Mixed Messages at NATO Summit**\
 `As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
 https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
