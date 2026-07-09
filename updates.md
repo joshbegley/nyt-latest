@@ -1,3 +1,7 @@
+**Trump Begins New Construction Project on White House Front Columns**\
+`Restoration work began after the president saw “door dings in the pillars” and ordered up repairs, the interior secretary said.`\
+https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
+
 **Wes Anderson and Luke Wilson Walk Into an Elevator and … Get Stuck**\
 `Don’t worry, they’re fine, though the Los Angeles Fire Department did have to use a hand crank to free them.`\
 https://www.nytimes.com/2026/07/09/arts/wes-anderson-luke-wilson-trapped-elevator.html
