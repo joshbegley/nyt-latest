@@ -1,3 +1,7 @@
+**Are We at War Again?**\
+`We look at the state of the conflict with Iran.`\
+https://www.nytimes.com/2026/07/09/briefing/are-we-at-war-again.html
+
 **Final Stage of Ayatollah Ali Khamenei’s Weeklong Funeral Is Delayed**\
 `The Iranian authorities said the funeral procession in Mashhad for the former supreme leader, Ayatollah Ali Khamenei, would start late. Hours earlier, the United States and Iran traded strikes.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/khamenei-funeral-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/books/review/alice-oseman-heartstopper.html
 **This Kind of Obsessive Attraction Isn’t Love. But It Has a Name.**\
 `Limerence is more than a crush, psychologists say, and it can persist for months or years.`\
 https://www.nytimes.com/2026/07/09/well/mind/love-attraction-limerence.html
-
-**Romantasy, Sci-Fi, Ghost Story, High-Seas Adventure: It’s All in the ‘Odyssey’!**\
-`The world’s most famous epic has something for every reader.`\
-https://www.nytimes.com/2026/07/09/books/review/odyssey-homer-romantasy-ghost-story-monster-high-seas.html
 
