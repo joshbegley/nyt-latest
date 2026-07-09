@@ -1,3 +1,15 @@
+**‘There’s No Graham Platner Without Donald Trump’: 3 Writers on the Fiasco in Maine**\
+`How much have the rules of politics changed?`\
+https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
+
+**Erika Kirk Asks for All Evidence in Court to Be Shown Publicly**\
+`A lawyer for Charlie Kirk’s family said disclosure would help quell conspiracy theories, but the judge ruled that not all evidence would be shown in the courtroom or on a livestream.`\
+https://www.nytimes.com/2026/07/09/us/erika-charlie-kirk-hearing-evidence-court.html
+
+**Factory Blaze in China’s ‘Shoe Capital’ Kills 28**\
+`The country’s leader, Xi Jinping, called on the authorities to investigate the fire, the latest of several deadly workplace accidents in China this year.`\
+https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
+
 **E.P.A. Moves to Loosen Limits on Pollution From Trucks**\
 `The Trump administration wants to roll back some Biden-era restrictions on smog-causing emissions from heavy-duty vehicles.`\
 https://www.nytimes.com/2026/07/09/climate/epa-pollution-trucks.html

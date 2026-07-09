@@ -1,3 +1,11 @@
+**‘There’s No Graham Platner Without Donald Trump’: 3 Writers on the Fiasco in Maine**\
+`How much have the rules of politics changed?`\
+https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
+
+**Erika Kirk Asks for All Evidence in Court to Be Shown Publicly**\
+`A lawyer for Charlie Kirk’s family said disclosure would help quell conspiracy theories, but the judge ruled that not all evidence would be shown in the courtroom or on a livestream.`\
+https://www.nytimes.com/2026/07/09/us/erika-charlie-kirk-hearing-evidence-court.html
+
 **E.P.A. Moves to Loosen Limits on Pollution From Trucks**\
 `The Trump administration wants to roll back some Biden-era restrictions on smog-causing emissions from heavy-duty vehicles.`\
 https://www.nytimes.com/2026/07/09/climate/epa-pollution-trucks.html
@@ -130,8 +138,8 @@ https://www.nytimes.com/video/world/middleeast/100000011020952/us-iran-war-strik
 `The state Democratic Party has said it will pick a replacement through a nominating convention before a July 27 deadline. Candidates are already lining up.`\
 https://www.nytimes.com/2026/07/09/us/politics/platner-maine-democrats-replacement-candidate.html
 
-**Factory Fire in China Kills 28**\
-`The country’s leader, Xi Jinping, called on the authorities to make every effort to investigate the cause of the blaze in Fujian Province.`\
+**Factory Blaze in China’s ‘Shoe Capital’ Kills 28**\
+`The country’s leader, Xi Jinping, called on the authorities to investigate the fire, the latest of several deadly workplace accidents in China this year.`\
 https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
 
 **I.U.C.N. Update Says Deep-Sea Mining Threatens Mollusks Around Hydrothermal Vents**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/09/crosswords/connections-companion-1125.html
 **NYT Strands Hints for July 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
 https://www.nytimes.com/2026/07/09/crosswords/strands-sidekick-859.html
-
-**Today’s Wordle Hints for July 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
-https://www.nytimes.com/2026/07/09/crosswords/wordle-review-1847.html
-
-**A Landfill in Indonesia Caught Fire Over a Week Ago. It’s Still Burning.**\
-`Toxic fumes have sickened nearby residents. Lawmakers and activists say the blaze is an indication of the country’s longstanding issues with waste management.`\
-https://www.nytimes.com/2026/07/09/world/asia/indonesia-landfill-fire.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
