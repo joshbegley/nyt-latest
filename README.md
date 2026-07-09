@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.
 `Censors demanded 127 cuts to the film that explores a dark period of police brutality in Punjab state. Filmmakers say it’s the latest, chilling example of entrenched censorship.`\
 https://www.nytimes.com/2026/07/09/world/asia/india-film-censorship-sajlut-diljit.html
 
-**The World Is Marching Past an Isolationist America**\
+**The Zombification of America**\
 `Much of the world feared abandonment by the United States. It’s actually a new beginning.`\
 https://www.nytimes.com/2026/07/09/opinion/america-world-us-isolation.html
 
