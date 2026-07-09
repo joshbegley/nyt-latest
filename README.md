@@ -1,3 +1,7 @@
+**Live Updates: Platner Suspends Senate Bid in Maine After Rape Accusation**\
+`Graham Platner, the Democratic nominee, is withdrawing from a race both parties see as crucial to their hopes of winning the Senate. He has denied the accusation.`\
+https://www.nytimes.com/live/2026/07/08/us/graham-platner-maine-suspends-campaign
+
 **Security Precaution Led Trump to Use Old Air Force One in Leaving Turkey**\
 `The Secret Service is said to have asked that the president not use the Qatari-donated jet when he left Ankara. The swap deepens questions about the retrofitting of the new plane.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-air-force-one-security.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/opinion/graham-platner-maine-senate.html
 **Spread of Seafloor Directly Observed for the First Time**\
 `The spread of the ocean floor, as tectonic plates spread apart, is known but hard to observe. Scientists have now documented the process in action.`\
 https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
-
-**A Checkup on the Nation’s Health Care Coverage**\
-`How many Americans lack health insurance?`\
-https://www.nytimes.com/2026/07/08/headway/us-health-care-coverage-insurance-rates.html
 
