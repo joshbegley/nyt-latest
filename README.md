@@ -1,3 +1,7 @@
+**New York Times and Other Publishers Ask Court to Penalize OpenAI**\
+`The Times, The New York Daily News and other media organizations accused OpenAI of withholding evidence in a lawsuit.`\
+https://www.nytimes.com/2026/07/09/technology/new-york-times-openai.html
+
 **The Best Seat in the House Is No Seat at All**\
 `Multimedia art is often challenging, provoking. Now it is also potentially bruising. Check your joints before you check out these summer shows.`\
 https://www.nytimes.com/2026/07/09/arts/design/museum-and-galleries-seating.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/09/world/americas/jacqueline-zuniga-venezuela-ea
 **‘I’m Worried About Weimar America’**\
 `“It may not be Hitler 2.0, it may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-america.html
-
-**Julia Weist Was Investigated for Making Art. ‘Questioning,’ a New Play, Tells the Story.**\
-`A new play is its own piece of art: A first-person account of an official inquiry into an artist’s use of private investigation databases to create work.`\
-https://www.nytimes.com/2026/07/09/theater/questioning-play-new-theater-hollywood.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
