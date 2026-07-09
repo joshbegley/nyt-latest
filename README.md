@@ -1,3 +1,7 @@
+**Graham Platner Suspended His Senate Campaign. Here’s What’s Next for Democrats.**\
+`The deadline to pick a new nominee is July 27 and  candidates are already lining up. State party leaders said they would hold some form of nominating convention.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-out-whats-next.html
+
 **Second Person in a Week Killed by Federal Task Force in Memphis**\
 `Tennessee authorities are investigating both shootings involving agents working with the task force in Memphis.`\
 https://www.nytimes.com/2026/07/08/us/shootings-federal-task-force-memphis.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/07/08/climate/western-europe-hottest-june.html
 `As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
 https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
 
-**The Democrats Can’t Go on Like This**\
+**The Democrats Can’t Go On Like This**\
 `The trouble in Maine goes beyond a single candidate.`\
 https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/08/us/immigration-agent-shootings-vehicles.html
 **As U.S.-Iran Cease-Fire Frays, Trump Faces a Muddled War and Unpalatable Options**\
 `The president appears to be confronting the consequences of a cease-fire deal cobbled together in haste, with little movement toward resolving the key issues driving the conflict.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
-
-**Kentucky Gov. Andy Beshear Demands Health Update on Mitch McConnell**\
-`Senator Mitch McConnell has been hospitalized since June 14. Speculation about his health has spread in recent days.`\
-https://www.nytimes.com/2026/07/08/us/beshear-mcconnell-kentucky-health.html
 
