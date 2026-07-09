@@ -1,3 +1,15 @@
+**Trump Says He’ll Ask Supreme Court to Rehear Citizenship Case, an Unlikely Event**\
+`The last time the justices granted a rehearing request after a case decision was in 1965. The court has only once reversed itself after rehearing a case.`\
+https://www.nytimes.com/2026/07/08/us/politics/trump-supreme-court-birthright-citizenship.html
+
+**NYT Crossword Answers for July 09, 2026**\
+`In Brad and Nat Wiegmann’s puzzle, less is more.`\
+https://www.nytimes.com/2026/07/08/crosswords/daily-puzzle-2026-07-09.html
+
+**Western Europe Had Its Hottest June on Record**\
+`An unusually early heat wave smashed records across France, Britain and Spain. Temperatures in some areas are starting to soar again.`\
+https://www.nytimes.com/2026/07/08/climate/western-europe-hottest-june.html
+
 **Trump’s Mixed Messages at NATO Summit**\
 `As the NATO Summit in Ankara, Turkey, comes to an end, Tyler Pager, The Times’s White House correspondent, explains how Trump lashed out at European NATO allies while also declaring unity.`\
 https://www.nytimes.com/video/us/100000011017842/trumps-mixed-messages-at-nato-summit.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/07/08/us/politics/trump-e-jean-carroll-5-million-pa
 **Police Raids on Ukrainian Drone Maker Fuel Fears About Press Freedom**\
 `The raids targeted a military contractor and its owner, who also co-owns a news outlet that recently exposed abuse of soldiers. Journalists said it was no coincidence.`\
 https://www.nytimes.com/2026/07/08/world/europe/ukraine-police-raid-media.html
-
-**As More Remains Are Found in Rubble From Venezuela Earthquakes, Horror Becomes Routine**\
-`Fearful that officials would tear down damaged buildings without accounting for any remaining bodies, Venezuelans are desperately digging for their relatives’ remains.`\
-https://www.nytimes.com/2026/07/08/world/americas/venezuela-earthquakes-deaths-remains.html
-
-**Heartbreak and Anger in Egypt Over a Stinging World Cup Loss to Argentina**\
-`After watching Egypt lead for almost the entire match, a last-minute victory by Argentina has driven fans to tears and conspiracy theories.`\
-https://www.nytimes.com/2026/07/08/world/africa/egypt-argentina-goal-referee-conspiracy.html
-
-**William D. Zabel, High-Flying Lawyer and Civil Rights Champion, Dies at 89**\
-`He brokered celebrity divorces and recovered billions for victims of Bernie Madoff’s Ponzi scheme. But he was proudest of helping to legalize interracial marriage.`\
-https://www.nytimes.com/2026/07/08/business/william-zabel-dead.html
 
