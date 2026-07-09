@@ -1,3 +1,7 @@
+**Factory Fire in China Causes ‘Significant’ Casualties, Xi Says**\
+`At least a dozen people appeared to be trapped on the roof of a shoe factory, in video released by state news media.`\
+https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
+
 **‘I’m Worried About Weimar America’**\
 `“It may not be Hitler 2.0, it may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
 https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-america.html
