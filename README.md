@@ -1,3 +1,7 @@
+**Meta Launches New A.I. Model as Global Technology Race Heats Up**\
+`For the first time, the company will offer a paid version of the service, a departure from its longtime philosophy of giving its A.I. away for free.`\
+https://www.nytimes.com/2026/07/09/technology/meta-muse-spark-artificial-intelligence.html
+
 **Dior’s Couture Show in Paris**\
 `Jonathan Anderson’s latest couture collection may have left some clues about Taylor Swift’s wedding dress. Our chief fashion critic, Vanessa Friedman, discusses the most memorable looks from the show.`\
 https://www.nytimes.com/video/style/100000010990396/diors-couture-show-in-paris.html
@@ -123,7 +127,7 @@ https://www.nytimes.com/2026/07/09/business/ai-boom-corporate-deals.html
 https://www.nytimes.com/2026/07/09/world/europe/ukraine-patriots-trump-russia.html
 
 **The Graham Platner Experiment Failed**\
-`The Graham Platner experiment has failed. “There have been so many errors of judgment at every step of the way,” the columnist Michelle Goldberg argues following the implosion of the senate candidate’s campaign in Maine.`\
+`“There have been so many errors of judgment at every step of the way,” the columnist Michelle Goldberg argues after the implosion of the Senate candidate’s campaign in Maine.`\
 https://www.nytimes.com/video/opinion/100000011020019/the-graham-platner-experiment-failed.html
 
 **México investiga el posible papel del FBI en la detención del Mayo**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/09/podcasts/madison-square-garden-wedding-travis
 **Brote de ciclosporosis en EE. UU.: cómo cuidarte**\
 `La cyclospora, un parásito que causa enfermedades intestinales, está afectando a muchas personas en todo el país. Los expertos en salud te dan algunos consejos para evitar el contagio.`\
 https://www.nytimes.com/es/2026/07/09/espanol/cyclospora-diarrea-infeccion.html
-
-**The Unprecedented Personal Profits of Trump’s Presidency**\
-`The Trump family is making money in sectors that align with the president’s agenda.`\
-https://www.nytimes.com/2026/07/09/podcasts/the-daily/trump-personal-profits-presidency.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

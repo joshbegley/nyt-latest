@@ -1,8 +1,16 @@
+**Dior’s Couture Show in Paris**\
+`Jonathan Anderson’s latest couture collection may have left some clues about Taylor Swift’s wedding dress. Our chief fashion critic, Vanessa Friedman, discusses the most memorable looks from the show.`\
+https://www.nytimes.com/video/style/100000010990396/diors-couture-show-in-paris.html
+
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times`\
+https://www.nytimes.com/2026/07/09/books/review/new-recommended-books.html
+
 **‘There’s No Graham Platner Without Donald Trump’: 3 Writers on the Fiasco in Maine**\
 `How much have the rules of politics changed?`\
 https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
 
-**Erika Kirk Asks for All Evidence in Court to Be Shown Publicly**\
+**Erika Kirk Requests All Evidence in Husband’s Killing to Be Shown Publicly**\
 `A lawyer for Charlie Kirk’s family said disclosure would help quell conspiracy theories, but the judge ruled that not all evidence would be shown in the courtroom or on a livestream.`\
 https://www.nytimes.com/2026/07/09/us/erika-charlie-kirk-hearing-evidence-court.html
 
@@ -177,18 +185,6 @@ https://www.nytimes.com/es/2026/07/09/espanol/cyclospora-diarrea-infeccion.html
 **The Unprecedented Personal Profits of Trump’s Presidency**\
 `The Trump family is making money in sectors that align with the president’s agenda.`\
 https://www.nytimes.com/2026/07/09/podcasts/the-daily/trump-personal-profits-presidency.html
-
-**How the Platner Campaign Imploded, and New Questions About Trump’s Qatari-Donated Jet**\
-`Plus, what Meta’s new A.I. push means for your Instagram pictures.`\
-https://www.nytimes.com/2026/07/09/podcasts/the-headlines/platner-campaign-trump-qatar-jet-meta.html
-
-**NYT Connections Answers for July 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
-https://www.nytimes.com/2026/07/09/crosswords/connections-companion-1125.html
-
-**NYT Strands Hints for July 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
-https://www.nytimes.com/2026/07/09/crosswords/strands-sidekick-859.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

@@ -1,3 +1,15 @@
+**Dior’s Couture Show in Paris**\
+`Jonathan Anderson’s latest couture collection may have left some clues about Taylor Swift’s wedding dress. Our chief fashion critic, Vanessa Friedman, discusses the most memorable looks from the show.`\
+https://www.nytimes.com/video/style/100000010990396/diors-couture-show-in-paris.html
+
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times`\
+https://www.nytimes.com/2026/07/09/books/review/new-recommended-books.html
+
+**Erika Kirk Requests All Evidence in Husband’s Killing to Be Shown Publicly**\
+`A lawyer for Charlie Kirk’s family said disclosure would help quell conspiracy theories, but the judge ruled that not all evidence would be shown in the courtroom or on a livestream.`\
+https://www.nytimes.com/2026/07/09/us/erika-charlie-kirk-hearing-evidence-court.html
+
 **‘There’s No Graham Platner Without Donald Trump’: 3 Writers on the Fiasco in Maine**\
 `How much have the rules of politics changed?`\
 https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
