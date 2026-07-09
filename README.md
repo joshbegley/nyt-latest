@@ -1,3 +1,7 @@
+**Officer Charged in Deaths of Police Dogs After Leaving Them in S.U.V. for Hours**\
+`A 4-year-old Belgian Malinois and a 6-year-old springer spaniel were left alone in May for seven hours without relief from the heat, according to prosecutors in South Jersey.`\
+https://www.nytimes.com/2026/07/09/nyregion/nj-k-9-police-dog-deaths.html
+
 **New York Sues Companies Over ‘Forever Chemicals’**\
 `The lawsuit claims that the companies, including 3M and DuPont, contaminated the environment and engaged in fraud by withholding information from the public about the harms of the chemicals, known as PFAS.`\
 https://www.nytimes.com/2026/07/09/nyregion/ny-pfas-lawsuit-3m-dupont.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/09/books/review/new-recommended-books.html
 **‘There’s No Graham Platner Without Donald Trump’: 3 Writers on the Fiasco in Maine**\
 `How much have the rules of politics changed?`\
 https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
-
-**Erika Kirk Requests All Evidence in Husband’s Killing to Be Shown Publicly**\
-`A lawyer for Charlie Kirk’s family said disclosure would help quell conspiracy theories, but the judge ruled that not all evidence would be shown in the courtroom or on a livestream.`\
-https://www.nytimes.com/2026/07/09/us/erika-charlie-kirk-hearing-evidence-court.html
 
