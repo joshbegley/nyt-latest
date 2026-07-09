@@ -1,3 +1,15 @@
+**Video of Kirk Assassination Suspect’s Ex-Partner to Be Played in Court**\
+`A judge said he would allow prosecutors to play the recording at a hearing on Thursday as prosecutors seek to take Tyler Robinson to trial on a charge that he murdered Charlie Kirk last year.`\
+https://www.nytimes.com/2026/07/08/us/charlie-kirk-shooting-hearing.html
+
+**Police Investigating Death of Nolan Wells Who Went Missing After Boat Trip**\
+`Nolan Wells was found dead days after going on a July 4 trip with friends to Horn Island, off the coast of Mississippi.`\
+https://www.nytimes.com/2026/07/08/us/nolan-wells-mississippi-dead.html
+
+**Does a Sex Assault Claim Kill a Political Career? It Depends.**\
+`The swift exit of Graham Platner from the Maine Senate race followed Eric Swalwell’s similar exit from the California governor’s race, but Republicans have taken a different tack.`\
+https://www.nytimes.com/2026/07/08/us/politics/democrats-republicans-sexual-assault-politicians.html
+
 **Clues Behind a Cracker Barrel and in 2 Other States Led to 1985 Killing Cold Case Arrest**\
 `Nearly four decades after an Ohio man was found slain in a hotel room, renewed forensic testing and years of follow-up investigation resulted in a murder indictment.`\
 https://www.nytimes.com/2026/07/08/us/ohio-cold-case-dna-cracker-barrel.html
