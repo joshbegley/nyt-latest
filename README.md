@@ -1,3 +1,7 @@
+**Inspector of Buckling Building Cited for Missing Problems at Other Sites**\
+`A New York Times review of city records shows that the firm, Domani Inspection Services, was repeatedly accused of breaking New York City rules.`\
+https://www.nytimes.com/2026/07/09/nyregion/nyc-building-collapse-inspection.html
+
 **Mideast Live Updates: U.S. and Iran Trade Fresh Strikes**\
 `The U.S. military said it had hit dozens of Iranian targets for the second night in a row. Iran’s military said it responded by firing missiles and drones at U.S. bases in Kuwait and Bahrain.`\
 https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/08/us/california-drivers-licenses-written-exam.h
 **How to Prevent Meta From Using Your Instagram Images in A.I.**\
 `The company’s new A.I. image generator has a surprising twist: It allows people to use images from public Instagram accounts.`\
 https://www.nytimes.com/2026/07/08/technology/meta-instagram-ai.html
-
-**Tomato Basil Chicken Breasts**\
-`This chicken recipe, linked below, takes a cue from piccata then heads in a decidedly summery direction: A quick pan sauce of butter, shallots, tomatoes, capers and a splash of red wine vinegar turns rich, juicy and bright — just the thing to spoon over the top.`\
-https://www.nytimes.com/video/dining/100000011019833/tomato-basil-chicken-breasts.html
 

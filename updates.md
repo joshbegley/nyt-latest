@@ -1,3 +1,7 @@
+**Mideast Live Updates: U.S. and Iran Trade Fresh Strikes**\
+`The U.S. military said it had hit dozens of Iranian targets for the second night in a row. Iran’s military said it responded by firing missiles and drones at U.S. bases in Kuwait and Bahrain.`\
+https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
+
 **Oil Prices Rise Further After U.S. and Iran Trade Another Round of Strikes**\
 `Choppy trading in stocks and bonds also reflected anxiety among investors about the war’s effects on inflation and growth.`\
 https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.html
