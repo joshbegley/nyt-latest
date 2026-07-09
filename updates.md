@@ -1,3 +1,11 @@
+**Platner Suspends Maine Senate Bid**\
+`In a video posted on social media, Graham Platner, the Democratic nominee for Senate in Maine, said he was suspending his campaign after an accusation of rape, which he has vehemently denied.`\
+https://www.nytimes.com/video/us/politics/100000011016249/graham-platner-maine-drops-out.html
+
+**An Uncomfortable Lesson From Platner’s Campaign**\
+`The trouble in Maine goes beyond a single candidate.`\
+https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
+
 **Trump Says He’ll Ask Supreme Court to Rehear Citizenship Case, an Unlikely Event**\
 `The last time the justices granted a rehearing request after a case decision was in 1965. The court has only once reversed itself after rehearing a case.`\
 https://www.nytimes.com/2026/07/08/us/politics/trump-supreme-court-birthright-citizenship.html
