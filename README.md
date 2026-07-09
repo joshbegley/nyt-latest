@@ -1,3 +1,15 @@
+**Wes Anderson and Luke Wilson Walk Into an Elevator and … Get Stuck**\
+`Don’t worry, they’re fine, though the Los Angeles Fire Department did have to use a hand crank to free them.`\
+https://www.nytimes.com/2026/07/09/arts/wes-anderson-luke-wilson-trapped-elevator.html
+
+**Trump’s Plans for Nuclear Power Lurch Ahead**\
+`Recent technological advances have brought the president’s goals a bit closer to reality.`\
+https://www.nytimes.com/2026/07/09/climate/trumps-plans-nuclear-power.html
+
+**Francia vs. Marruecos: el partido de cuartos de final a la sombra de la historia**\
+`La historia se erige sobre el partido de cuartos de final entre Francia y su antiguo protectorado. Hoy en día, las selecciones nacionales se entremezclan con la variada nacionalidad de sus jugadores.`\
+https://www.nytimes.com/es/2026/07/09/espanol/partido-francia-marruecos-mundial.html
+
 **In Exchange of Strikes With Iran, U.S. Lands Most of the Blows**\
 `This difference reflects Iran’s limited firepower and degraded air defenses, and highlights how the war is taking a disproportionate toll on Iranians.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes-cease-fire.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/07/09/world/asia/china-fire-shoe-factory.html
 **I.U.C.N. Update Says Deep-Sea Mining Threatens Mollusks Around Hydrothermal Vents**\
 `The snails and other mollusks around hydrothermal vents have evolved to thrive in extreme conditions, but mineral extraction could drive more than half to extinction.`\
 https://www.nytimes.com/2026/07/09/climate/iucn-red-list-threatened-species.html
-
-**As France and Morocco Take the Field, Colonial Past and Global Present Will Mix**\
-`History hangs over the World Cup quarterfinal between France and its former protectorate. These days, national teams intermingle and overlap.`\
-https://www.nytimes.com/2026/07/09/world/europe/france-morocco-world-cup-soccer.html
-
-**Renewed Fighting With Iran Shows Cracks in Peace-Trade Rally**\
-`Investors have taken heart from the fragile cease-fire between the United States and Iran before. Will they do so again?`\
-https://www.nytimes.com/2026/07/09/business/dealbook/iran-war-markets.html
-
-**For Ukraine, Other Patriot Makers Are a Cautionary Tale**\
-`Two American allies, Germany and Japan, already have permission to build the American interceptors, a license that President Trump says he will also grant to Kyiv.`\
-https://www.nytimes.com/2026/07/09/world/europe/germany-japan-ukraine-patriot-missiles.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
