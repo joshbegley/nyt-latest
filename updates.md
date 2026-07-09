@@ -1,3 +1,11 @@
+**Iranian Attacks on Jordan Highlight Kingdom’s Difficult Position**\
+`Iran’s military said it fired missiles at a Jordanian air base used by American forces. Jordan said it had intercepted missiles entering its air space.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/jordan-iran-missiles.html
+
+**In Boston, Fans With Roots Across a Continent Turned Out for Morocco**\
+`While Morocco did not advance to the semifinals, a large, diverse African diaspora in New England took pride in the team, which they adopted as their own.`\
+https://www.nytimes.com/2026/07/09/us/world-cup-morocco-african-fans.html
+
 **Bonnie Tyler, Singer of ‘Total Eclipse of the Heart,’ Dies at Age 75**\
 `The pop singer Bonnie Tyler, known for her ’80s hits like “Total Eclipse of the Heart” and “Holding Out for a Hero,” died in a hospital in Portugal from an illness on Wednesday, according to her official Facebook account.`\
 https://www.nytimes.com/video/obituaries/100000011021509/bonnie-tyler-singer-dead.html
