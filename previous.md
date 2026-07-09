@@ -1,3 +1,15 @@
+**Delta, United and Other Airlines Are Offering Lower-Cost Business Class Options: What to Know**\
+`Delta is the latest U.S. airline to introduce stripped down, luxury-class fares. What do you get for your money, and is it worth it? What you need to know.`\
+https://www.nytimes.com/2026/07/09/travel/basic-business-class-airlines-delta-united.html
+
+**Volkswagen Is Cutting Auto Production as Its Sales in China Plunge**\
+`The German automaker has struggled to compete with fast-growing Chinese companies that offer more affordable and sophisticated electric vehicles.`\
+https://www.nytimes.com/2026/07/09/business/volkswagen-china-sales.html
+
+**Where to Eat Like a Miranda and More Reader Questions**\
+`Becky Hughes takes on our readers’ hyperspecific New York City dining queries.`\
+https://www.nytimes.com/2026/07/09/dining/reader-questions.html
+
 **A Proposed Rule Would Politicize Medical Research. Scientists Are Not Happy.**\
 `In tens of thousands of comments, researchers, doctors and others warned the rule could hamper progress on important health issues.`\
 https://www.nytimes.com/2026/07/09/well/omb-scientific-grant-proposal.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/09/world/europe/ukraine-patriots-trump-russia.ht
 **The Graham Platner Experiment Failed**\
 `“There have been so many errors of judgment at every step of the way,” the columnist Michelle Goldberg argues after the implosion of the Senate candidate’s campaign in Maine.`\
 https://www.nytimes.com/video/opinion/100000011020019/the-graham-platner-experiment-failed.html
-
-**México investiga el posible papel del FBI en la detención del Mayo**\
-`Las acusaciones de que Estados Unidos mintió sobre su participación en la captura del famoso narcotraficante han reavivado la polémica en torno a un tema que ha tensado las relaciones entre EE. UU. y México.`\
-https://www.nytimes.com/es/2026/07/09/espanol/america-latina/mexico-fbi-captura-el-mayo.html
-
-**Former Olympian Pleads Not Guilty to Damaging Reflecting Pool**\
-`David Hearn is one of at least four people accused of vandalizing the Lincoln Memorial Reflecting Pool that has been plagued with challenges.`\
-https://www.nytimes.com/2026/07/09/us/david-hearn-olympian-reflecting-pool.html
-
-**Muere Bonnie Tyler, intérprete de ‘Total Eclipse of the Heart’**\
-`Con una voz tan curtida como operística, creó himnos pop de la década de 1980 como ‘Holding Out for a Hero’.`\
-https://www.nytimes.com/es/2026/07/09/espanol/cultura/muere-bonnie-tyler-total-eclipse-of-the-heart.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
