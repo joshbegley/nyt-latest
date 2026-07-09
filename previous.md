@@ -1,9 +1,13 @@
+**E.P.A. Moves to Loosen Limits on Pollution From Trucks**\
+`The Trump administration wants to roll back some Biden-era restrictions on smog-causing emissions from heavy-duty vehicles.`\
+https://www.nytimes.com/2026/07/09/climate/epa-pollution-trucks.html
+
 **FIFA, Trump and Balogun**\
 `A look inside the scandal that shook the World Cup.`\
 https://www.nytimes.com/2026/07/09/podcasts/fifa-trump-and-balogun.html
 
 **Live Updates: Defendant in Kirk Killing Voiced Regrets After the Shooting, Partner Says**\
-`The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thurdsay.`\
+`The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thursday.`\
 https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
 
 **Tomatoes, Cucumbers, Basil, Zucchini**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/crosswords/wordle-review-1847.html
 **A Landfill in Indonesia Caught Fire Over a Week Ago. It’s Still Burning.**\
 `Toxic fumes have sickened nearby residents. Lawmakers and activists say the blaze is an indication of the country’s longstanding issues with waste management.`\
 https://www.nytimes.com/2026/07/09/world/asia/indonesia-landfill-fire.html
-
-**Bonnie Tyler, Who Sang ‘Total Eclipse of the Heart,’ Dies at 75**\
-`With a voice both weathered and operatic, she minted 1980s pop anthems like “Total Eclipse” and “Holding Out for a Hero.”`\
-https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

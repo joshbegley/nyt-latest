@@ -1,3 +1,7 @@
+**‘There’s No Graham Platner Without Donald Trump’: 3 Writers on the Fiasco in Maine**\
+`How much have the rules of politics changed?`\
+https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
+
 **E.P.A. Moves to Loosen Limits on Pollution From Trucks**\
 `The Trump administration wants to roll back some Biden-era restrictions on smog-causing emissions from heavy-duty vehicles.`\
 https://www.nytimes.com/2026/07/09/climate/epa-pollution-trucks.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/crosswords/strands-sidekick-859.html
 **Today’s Wordle Hints for July 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 10, 2026.`\
 https://www.nytimes.com/2026/07/09/crosswords/wordle-review-1847.html
-
-**A Landfill in Indonesia Caught Fire Over a Week Ago. It’s Still Burning.**\
-`Toxic fumes have sickened nearby residents. Lawmakers and activists say the blaze is an indication of the country’s longstanding issues with waste management.`\
-https://www.nytimes.com/2026/07/09/world/asia/indonesia-landfill-fire.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

@@ -1,3 +1,11 @@
+**E.P.A. Moves to Loosen Limits on Pollution From Trucks**\
+`The Trump administration wants to roll back some Biden-era restrictions on smog-causing emissions from heavy-duty vehicles.`\
+https://www.nytimes.com/2026/07/09/climate/epa-pollution-trucks.html
+
+**Live Updates: Defendant in Kirk Killing Voiced Regrets After the Shooting, Partner Says**\
+`The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thursday.`\
+https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
+
 **Live Updates: Defendant in Kirk Killing Voiced Regrets After the Shooting, Partner Says**\
 `The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thurdsay.`\
 https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
