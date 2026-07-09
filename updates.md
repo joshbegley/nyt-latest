@@ -1,3 +1,7 @@
+**Inspector of Buckling Building Cited for Missing Problems at Other Sites**\
+`A New York Times review of city records shows that the firm, Domani Inspection Services, was repeatedly accused of breaking New York City rules.`\
+https://www.nytimes.com/2026/07/09/nyregion/nyc-building-collapse-inspection.html
+
 **Mideast Live Updates: U.S. and Iran Trade Fresh Strikes**\
 `The U.S. military said it had hit dozens of Iranian targets for the second night in a row. Iran’s military said it responded by firing missiles and drones at U.S. bases in Kuwait and Bahrain.`\
 https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
