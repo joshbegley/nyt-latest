@@ -1,3 +1,15 @@
+**This Star Just Ate a Planet, and It’s Not Done Yet**\
+`A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
+https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
+
+**Israel Investigating After Photo of Stripped and Bound Detainee Is Shared**\
+`The Israeli military confirmed the authenticity of the photo, which circulated widely after it was shared by a Palestinian activist. Israeli rights group said it depicted a war crime.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/photo-detainee-bound.html
+
+**Factory Fire in China Kills at Least 28 People, Chinese State Media Says**\
+`A fire at a shoe factory in southeastern China killed at least 28 people on Thursday, Chinese state media said. China’s leader, Xi Jinping, called on authorities to investigate the blaze and hold those responsible accountable, according to CCTV.`\
+https://www.nytimes.com/video/world/asia/100000011021681/china-fire-shoe-factory.html
+
 **Volkswagen Is Cutting Production as Sales in China Plunge**\
 `The German automaker has struggled to compete with fast-growing Chinese companies that offer more affordable and sophisticated electric vehicles.`\
 https://www.nytimes.com/2026/07/09/business/volkswagen-china-sales.html

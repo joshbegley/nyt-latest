@@ -1,3 +1,11 @@
+**Redacted Interview With Roommate of Charlie Kirk Killing Suspect Played in Court**\
+`Lance Twiggs, Tyler Robinson’s former roommate, was interviewed by a prosecutor in April. Clips from the interview were played in a Utah court on Thursday.`\
+https://www.nytimes.com/video/us/100000011021514/kirk-hearing-twiggs-robinson-interview.html
+
+**Olivia Rodrigo’s New Album “Is a Vibe”**\
+`Caryn Ganz, a pop music journalist, talks about Olivia Rodrigo’s approach to music with Wesley Morris on “Cannonball.”`\
+https://www.nytimes.com/video/podcasts/100000011016503/olivia-rodrigos-new-album-is-a-vibe.html
+
 **This Star Just Ate a Planet, and It’s Not Done Yet**\
 `A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
 https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/09/world/middleeast/aid-worker-killed-israeli-st
 **Too Many Books?**\
 `Mendel Uminer faced a crisis when his landlord objected to the 10,000 volumes in his New York studio apartment.`\
 https://www.nytimes.com/2026/07/09/style/too-many-books-new-york-city-apartment-scholar-landlord.html
-
-**A Chinese Spacecraft Captures First Image of Quasi-Moon**\
-`A Chinese spacecraft has captured the first image of the asteroid Kamo‘oalewa.`\
-https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
-
-**Map: 3.5-Magnitude Earthquake Shakes Central California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\

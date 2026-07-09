@@ -1,3 +1,15 @@
+**This Star Just Ate a Planet, and It’s Not Done Yet**\
+`A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
+https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
+
+**Israel Investigating After Photo of Stripped and Bound Detainee Is Shared**\
+`The Israeli military confirmed the authenticity of the photo, which circulated widely after it was shared by a Palestinian activist. Israeli rights group said it depicted a war crime.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/photo-detainee-bound.html
+
+**Factory Fire in China Kills at Least 28 People, Chinese State Media Says**\
+`A fire at a shoe factory in southeastern China killed at least 28 people on Thursday, Chinese state media said. China’s leader, Xi Jinping, called on authorities to investigate the blaze and hold those responsible accountable, according to CCTV.`\
+https://www.nytimes.com/video/world/asia/100000011021681/china-fire-shoe-factory.html
+
 **Russian Finances Get Shakier, Despite Short-Term Bonus From Iran War**\
 `As oil prices fall back to levels not seen since before the Middle East war began, the Kremlin will be forced to confront a deepening budget deficit.`\
 https://www.nytimes.com/2026/07/09/world/europe/russia-oil-budget-deficit.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
 **Map: 3.5-Magnitude Earthquake Shakes Central California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
-
-**Grocery Stores Lower Prices as Consumers Pare Spending**\
-`While shoppers may get better deals on some items, it’s unlikely their overall grocery bill will fall.`\
-https://www.nytimes.com/2026/07/09/business/grocery-stores-lower-food-prices.html
-
-**New York Times and Other Publishers Ask Court to Penalize OpenAI**\
-`The Times, The New York Daily News and other media organizations accused OpenAI of withholding evidence in a lawsuit.`\
-https://www.nytimes.com/2026/07/09/technology/new-york-times-openai.html
-
-**The Best Seat in the House Is No Seat at All**\
-`Multimedia art is often challenging, provoking. Now it is also potentially bruising. Check your joints before you check out these summer shows.`\
-https://www.nytimes.com/2026/07/09/arts/design/museum-and-galleries-seating.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
