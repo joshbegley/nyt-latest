@@ -1,3 +1,11 @@
+**As France and Morocco Take the Field, Colonial Past and Global Present Will Mix**\
+`History hangs over the World Cup quarterfinal between France and its former protectorate. These days, national teams intermingle and overlap.`\
+https://www.nytimes.com/2026/07/09/world/europe/france-morocco-world-cup-soccer.html
+
+**Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
+`Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
+https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
+
 **Renewed Fighting With Iran Shows Cracks in Peace-Trade Rally**\
 `Investors have taken heart from the fragile cease-fire between the United States and Iran before. Will they do so again?`\
 https://www.nytimes.com/2026/07/09/business/dealbook/iran-war-markets.html
