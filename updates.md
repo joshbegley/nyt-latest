@@ -1,3 +1,15 @@
+**Meta Launches New A.I. Model as Global Technology Race Heats Up**\
+`For the first time, the company will offer a paid version of the service, a departure from its longtime philosophy of giving its A.I. away for free.`\
+https://www.nytimes.com/2026/07/09/technology/meta-muse-spark-artificial-intelligence.html
+
+**Live Updates: Defendant in Kirk Killing Voiced Regrets After the Shooting, Partner Said**\
+`The former romantic partner of the man accused of killing Charlie Kirk told an investigator that the accused gunman seemed nervous the morning after the shooting. Video of his interview was played at a hearing on Thursday.`\
+https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
+
+**The Graham Platner Experiment Failed**\
+`“There have been so many errors of judgment at every step of the way,” the columnist Michelle Goldberg argues after the implosion of the Senate candidate’s campaign in Maine.`\
+https://www.nytimes.com/video/opinion/100000011020019/the-graham-platner-experiment-failed.html
+
 **Dior’s Couture Show in Paris**\
 `Jonathan Anderson’s latest couture collection may have left some clues about Taylor Swift’s wedding dress. Our chief fashion critic, Vanessa Friedman, discusses the most memorable looks from the show.`\
 https://www.nytimes.com/video/style/100000010990396/diors-couture-show-in-paris.html
