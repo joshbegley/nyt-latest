@@ -1,3 +1,27 @@
+**Security Precaution Leads Trump to Swap Planes**\
+`President Trump changed airplanes at the urging of the Secret Service, flying on the old Air Force One jet as a security precaution instead of the new Qatari-gifted plane for part of his return trip from a NATO summit in Turkey.`\
+https://www.nytimes.com/video/us/100000011020831/security-precaution-leads-trump-to-swap-planes.html
+
+**Guía para ser un invitado de lujo**\
+`Abundan los consejos para organizar una fiesta o reunión perfectas, pero para ser un buen invitado hay que cultivar ciertas habilidades.`\
+https://www.nytimes.com/es/2026/07/09/espanol/estilos-de-vida/guia-para-ser-buen-invitado.html
+
+**Entre ruinas y cadáveres, Venezuela afronta el costo humano de los terremotos**\
+`A medida que se multiplican las víctimas y los desaparecidos, las labores de rescate se transforman en una carrera contra el tiempo y la descomposición.`\
+https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-rescate-cuerpos.html
+
+**¿Qué país tiene a los aficionados mejor vestidos del Mundial?**\
+`Los aficionados de todos los países aportaban su propio estilo y toque personal a la fiesta del fútbol.`\
+https://www.nytimes.com/es/2026/07/09/espanol/estilos-de-vida/mundial-aficionados-trajes-estilos.html
+
+**El colapso del alto al fuego con Irán complica la agenda exterior de Trump**\
+`A meses de las elecciones, el presidente analiza nuevas acciones militares y económicas mientras crecen las dudas sobre los objetivos iniciales de la guerra.`\
+https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-guerra-iran.html
+
+**¿Los suplementos de omega-3 realmente benefician al cerebro?**\
+`Los resultados de las investigaciones han sorprendido incluso a los científicos.`\
+https://www.nytimes.com/es/2026/07/09/espanol/omega-3-alimentos-salud-cerebro.html
+
 **Mexico Investigates Possible F.B.I. Role in El Mayo Arrest**\
 `Accusations that the United States lied about its involvement in the notorious drug lord’s capture renewed controversy over an issue that has strained the U.S.-Mexico relationship.`\
 https://www.nytimes.com/2026/07/09/world/americas/mexico-el-mayo-fbi-us-cartel.html
@@ -165,28 +189,4 @@ https://www.nytimes.com/2026/07/08/sports/conor-mcgregor-banned-drugs-injury.htm
 **¿Por qué China lanzó un misil de largo alcance al Pacífico?**\
 `Según algunos expertos, la prueba indica que China está ampliando sus ambiciones nucleares y dejando de lado sus reticencias a probar misiles en los cielos y océanos internacionales.`\
 https://www.nytimes.com/es/2026/07/08/espanol/mundo/china-misil-prueba-armas-nucleares.html
-
-**At the Ayatollah’s Funeral**\
-`A Times reporter in Iran said the events “surpassed anything I’ve ever witnessed.”`\
-https://www.nytimes.com/2026/07/08/world/ali-khamenei-funeral-iran-strikes.html
-
-**How to Stay Safe From the Severe Stomach Bug That’s Going Around**\
-`Cyclospora, a parasite that causes intestinal illness, is sickening many people across the United States. Health experts have tips for avoiding infection.`\
-https://www.nytimes.com/2026/07/08/well/eat/cyclopspora-stomach-bug-prevention.html
-
-**Democrats Grow Frustrated as Graham Platner Resists Dropping Out Quickly in Maine**\
-`Two days after a woman accused Graham Platner of rape, he had not given up his Senate nomination in Maine, even as state Democrats announced plans to hold a nominating convention if he steps down.`\
-https://www.nytimes.com/2026/07/08/us/politics/graham-platner-democrats-reaction-frustration.html
-
-**Trump Grants Zelensky License to Build Patriot Systems**\
-`President Volodymyr Zelensky of Ukraine has repeatedly asked Western allies for more of the Patriot interceptors and for the United States to let Ukraine manufacture them.`\
-https://www.nytimes.com/video/world/europe/100000011018901/ukraine-russia-us-trump-zelensky-putin-nato.html
-
-**Le Pen, France’s Far-Right Leader, Launches Her Presidential Campaign**\
-`Marine Le Pen, the leader of France’s far-right political party, launched her fourth bid for the presidency on Wednesday. Her campaign rally comes a day after a court upheld her embezzlement conviction and shortened a ban on her eligibility to run for public office.`\
-https://www.nytimes.com/video/world/europe/100000011019302/marine-le-pen-presidential-campaign.html
-
-**The Good List: 6 Things to Add Delight to Your Day**\
-`Stressed desserts, L.A. Metro music and pinball everywhere.`\
-https://www.nytimes.com/2026/07/08/briefing/08-the-good-list-web-pinball-jogging.html
 
