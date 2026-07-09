@@ -1,3 +1,7 @@
+**Clues Behind a Cracker Barrel and in 2 Other States Led to 1985 Killing Cold Case Arrest**\
+`Nearly four decades after an Ohio man was found slain in a hotel room, renewed forensic testing and years of follow-up investigation resulted in a murder indictment.`\
+https://www.nytimes.com/2026/07/08/us/ohio-cold-case-dna-cracker-barrel.html
+
 **Live Updates: Platner Suspends Senate Bid in Maine After Rape Accusation**\
 `Graham Platner, the Democratic nominee, is withdrawing from a race both parties see as crucial to their hopes of winning the Senate. He has denied the accusation.`\
 https://www.nytimes.com/live/2026/07/08/us/graham-platner-maine-suspends-campaign
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/arts/music/trump-kennedy-center-name-appeal.h
 **How Did the Democrats Get Graham Platner, Anyway?**\
 `Readers react to the implosion of Mr. Platner’s campaign for the Senate from Maine. Also: President Trump and one man’s happiness.`\
 https://www.nytimes.com/2026/07/08/opinion/graham-platner-maine-senate.html
-
-**Spread of Seafloor Directly Observed for the First Time**\
-`The spread of the ocean floor, as tectonic plates spread apart, is known but hard to observe. Scientists have now documented the process in action.`\
-https://www.nytimes.com/2026/07/08/science/oceans-geology-seafloor.html
 
