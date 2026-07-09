@@ -1,3 +1,11 @@
+**Quote of the Day: As Parents Reject Vitamin K, Infant Hemorrhages Increase**\
+`Quotation of the Day for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/09/pageoneplus/quote-of-the-day-as-parents-reject-vitamin-k-infant-hemorrhages-increase.html
+
+**Tanker Attacks Risk Overplaying Iran’s Hand, Analysts say**\
+`Iran’s history shows it is willing to dig in, even when it may suffer big losses.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/iran-us-war-strait-of-hormuz.html
+
 **Graham Platner Suspended His Senate Campaign. Here’s What’s Next for Democrats.**\
 `The deadline to pick a new nominee is July 27 and candidates are already lining up. State party leaders said they would hold some form of nominating convention.`\
 https://www.nytimes.com/2026/07/08/us/politics/graham-platner-out-whats-next.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/07/08/arts/music/justin-bieber-burna-boy-world-cup-
 **Did We Make the Wrong Bet on Big A.I.?**\
 `Maybe Anthropic and OpenAI are not the future of artificial intelligence.`\
 https://www.nytimes.com/2026/07/08/opinion/openai-anthropic-palantir-alex-karp.html
-
-**What We Know About Immigration Officers Shooting at People in Vehicles**\
-`Federal agents have fired on at least 21 people, many in their cars, as part of President Trump’s deportation crackdown. At least five people were killed, including three U.S. citizens.`\
-https://www.nytimes.com/2026/07/08/us/immigration-agent-shootings-vehicles.html
-
-**As U.S.-Iran Cease-Fire Frays, Trump Faces a Muddled War and Unpalatable Options**\
-`The president appears to be confronting the consequences of a cease-fire deal cobbled together in haste, with little movement toward resolving the key issues driving the conflict.`\
-https://www.nytimes.com/2026/07/08/us/politics/trump-iran-war.html
 

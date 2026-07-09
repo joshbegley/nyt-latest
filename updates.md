@@ -1,3 +1,11 @@
+**Quote of the Day: As Parents Reject Vitamin K, Infant Hemorrhages Increase**\
+`Quotation of the Day for Thursday, July 9, 2026.`\
+https://www.nytimes.com/2026/07/09/pageoneplus/quote-of-the-day-as-parents-reject-vitamin-k-infant-hemorrhages-increase.html
+
+**Tanker Attacks Risk Overplaying Iran’s Hand, Analysts say**\
+`Iran’s history shows it is willing to dig in, even when it may suffer big losses.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/iran-us-war-strait-of-hormuz.html
+
 **Graham Platner Suspended His Senate Campaign. Here’s What’s Next for Democrats.**\
 `The deadline to pick a new nominee is July 27 and candidates are already lining up. State party leaders said they would hold some form of nominating convention.`\
 https://www.nytimes.com/2026/07/08/us/politics/graham-platner-out-whats-next.html
