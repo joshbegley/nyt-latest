@@ -1,3 +1,7 @@
+**Bonnie Tyler, Singer of ‘Total Eclipse of the Heart,’ Dies at Age 75**\
+`The pop singer Bonnie Tyler, known for her ’80s hits like “Total Eclipse of the Heart” and “Holding Out for a Hero,” died in a hospital in Portugal from an illness on Wednesday, according to her official Facebook account.`\
+https://www.nytimes.com/video/obituaries/100000011021509/bonnie-tyler-singer-dead.html
+
 **N.Y.C. Council Speaker Turns Up Pressure on Schools Chief Over Contracts**\
 `Julie Menin, the speaker, said she had been given excuses for why contracts had not been provided. The mayor’s office called her request “extremely laborious.”`\
 https://www.nytimes.com/2026/07/09/nyregion/nyc-doe-contracts-schools.html
