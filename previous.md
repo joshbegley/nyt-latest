@@ -1,3 +1,7 @@
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000011022483/Biz-Wheels-Slate.html
+
 **Delta, United and Other Airlines Are Offering Lower-Cost Business Class Options: What to Know**\
 `Delta is the latest U.S. airline to introduce stripped down, luxury-class fares. What do you get for your money, and is it worth it? What you need to know.`\
 https://www.nytimes.com/2026/07/09/travel/basic-business-class-airlines-delta-united.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/business/ai-boom-corporate-deals.html
 **Ukrainians Cautiously Welcome Trump’s Announcement About Patriot Missile Systems**\
 `President Trump said the United States would license Ukraine to produce Patriots, which can intercept ballistic missiles. But it could be months or years before those are ready.`\
 https://www.nytimes.com/2026/07/09/world/europe/ukraine-patriots-trump-russia.html
-
-**The Graham Platner Experiment Failed**\
-`“There have been so many errors of judgment at every step of the way,” the columnist Michelle Goldberg argues after the implosion of the Senate candidate’s campaign in Maine.`\
-https://www.nytimes.com/video/opinion/100000011020019/the-graham-platner-experiment-failed.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
