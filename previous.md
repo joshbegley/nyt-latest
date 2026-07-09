@@ -1,3 +1,7 @@
+**N.Y.C. Council Speaker Turns Up Pressure on Schools Chief Over Contracts**\
+`Julie Menin, the speaker, said she had been given excuses for why contracts had not been provided. The mayor’s office called her request “extremely laborious.”`\
+https://www.nytimes.com/2026/07/09/nyregion/nyc-doe-contracts-schools.html
+
 **Officer Charged in Deaths of Police Dogs After Leaving Them in S.U.V. for Hours**\
 `A 4-year-old Belgian Malinois and a 6-year-old springer spaniel were left alone in May for seven hours without relief from the heat, according to prosecutors in South Jersey.`\
 https://www.nytimes.com/2026/07/09/nyregion/nj-k-9-police-dog-deaths.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/style/100000010990396/diors-couture-show-in-paris.
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times`\
 https://www.nytimes.com/2026/07/09/books/review/new-recommended-books.html
-
-**‘There’s No Graham Platner Without Donald Trump’: 3 Writers on the Fiasco in Maine**\
-`How much have the rules of politics changed?`\
-https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats.html
 

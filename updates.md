@@ -1,3 +1,7 @@
+**N.Y.C. Council Speaker Turns Up Pressure on Schools Chief Over Contracts**\
+`Julie Menin, the speaker, said she had been given excuses for why contracts had not been provided. The mayor’s office called her request “extremely laborious.”`\
+https://www.nytimes.com/2026/07/09/nyregion/nyc-doe-contracts-schools.html
+
 **Officer Charged in Deaths of Police Dogs After Leaving Them in S.U.V. for Hours**\
 `A 4-year-old Belgian Malinois and a 6-year-old springer spaniel were left alone in May for seven hours without relief from the heat, according to prosecutors in South Jersey.`\
 https://www.nytimes.com/2026/07/09/nyregion/nj-k-9-police-dog-deaths.html
