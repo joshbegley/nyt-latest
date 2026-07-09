@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/07/09/style/too-many-books-new-york-city-apartment-
 `A Chinese spacecraft has captured the first image of the asteroid Kamo‘oalewa.`\
 https://www.nytimes.com/2026/07/09/science/china-photo-quasi-moon.html
 
-**Map: 3.6-Magnitude Earthquake Shakes Central California**\
+**Map: 3.5-Magnitude Earthquake Shakes Central California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/09/us/quake-tracker-central-california.html
 

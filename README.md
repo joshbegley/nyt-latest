@@ -1,4 +1,4 @@
-**Replacing a Senate Nominee Is Rare. Has It Ever Worked?**\
+**Maine Democrats Hope to Replace Platner as Senate Nominee. Has That Ever Worked?**\
 `Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
 https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
 
