@@ -1,3 +1,7 @@
+**Mexican Man Fatally Shot by ICE Wasn’t the Intended Target**\
+`Officials say agents believed the driver resembled one suspect, but the encounter quickly escalated into a fatal shooting.`\
+https://www.nytimes.com/2026/07/09/us/witnesses-houston-ice-shooting.html
+
 **Iranian Attacks on Jordan Highlight Kingdom’s Difficult Position**\
 `Iran’s military said it fired missiles at a Jordanian air base used by American forces. Jordan said it had intercepted missiles entering its air space.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/jordan-iran-missiles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/well/telehealth-executives-sentenced-adderall
 **Meta Launches New A.I. Model as Global Technology Race Heats Up**\
 `For the first time, the company will offer a paid version of the service, a departure from its longtime philosophy of giving its A.I. away for free.`\
 https://www.nytimes.com/2026/07/09/technology/meta-muse-spark-artificial-intelligence.html
-
-**Dior’s Couture Show in Paris**\
-`Jonathan Anderson’s latest couture collection may have left some clues about Taylor Swift’s wedding dress. Our chief fashion critic, Vanessa Friedman, discusses the most memorable looks from the show.`\
-https://www.nytimes.com/video/style/100000010990396/diors-couture-show-in-paris.html
 
