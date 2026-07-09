@@ -1,3 +1,15 @@
+**The Best Seat in the House Is No Seat at All**\
+`Multimedia art is often challenging, provoking. Now it is also potentially bruising. Check your joints before you check out these summer shows.`\
+https://www.nytimes.com/2026/07/09/arts/design/museum-and-galleries-seating.html
+
+**A $3.2 Trillion Deal-making Frenzy Is Spurred by the A.I. Economy**\
+`This year’s boom represents the most spent on global deal-making in a six-month period in a decade. But questions persist about whether it can continue.`\
+https://www.nytimes.com/2026/07/09/business/ai-boom-corporate-deals.html
+
+**Ukrainians Cautiously Welcome Trump’s Announcement About Air-Defense Systems**\
+`President Trump said the United States would license Ukraine to produce Patriots, which can intercept ballistic missiles. But it could be months or years before those are ready.`\
+https://www.nytimes.com/2026/07/09/world/europe/ukraine-patriots-trump-russia.html
+
 **The Graham Platner Experiment Failed**\
 `The Graham Platner experiment has failed. “There have been so many errors of judgment at every step of the way,” the columnist Michelle Goldberg argues following the implosion of the senate candidate’s campaign in Maine.`\
 https://www.nytimes.com/video/opinion/100000011020019/the-graham-platner-experiment-failed.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-ameri
 **Julia Weist Was Investigated for Making Art. ‘Questioning,’ a New Play, Tells the Story.**\
 `A new play is its own piece of art: A first-person account of an official inquiry into an artist’s use of private investigation databases to create work.`\
 https://www.nytimes.com/2026/07/09/theater/questioning-play-new-theater-hollywood.html
-
-**Help! I Refueled My Rental Car, but Enterprise Charged Me Anyway.**\
-`A traveler to Germany returned his vehicle with slightly more gas than it had when he picked it up. So why was he billed $131 to fill up the tank?`\
-https://www.nytimes.com/2026/07/09/travel/help-i-refueled-my-rental-car-but-enterprise-charged-me-anyway.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a five-bedroom house in Yonkers, N.Y., and a four-bedroom house in Cranford, N.J.`\
-https://www.nytimes.com/2026/07/09/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in Yorkville, Midtown South and Riverdale.`\
-https://www.nytimes.com/2026/07/09/realestate/housing-market-nyc.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
