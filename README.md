@@ -1,3 +1,7 @@
+**Late Night Joins the Hunt for Mitch McConnell**\
+`“Apparently, people don’t like a majority senator disappearing with no explanation for three weeks,” Ronny Chieng said on Wednesday’s “Daily Show.”`\
+https://www.nytimes.com/2026/07/09/arts/television/late-night-mitch-mcconnell.html
+
 **Inspector of Buckling Building Cited for Missing Problems at Other Sites**\
 `A New York Times review of city records shows that the firm, Domani Inspection Services, was repeatedly accused of breaking New York City rules.`\
 https://www.nytimes.com/2026/07/09/nyregion/nyc-building-collapse-inspection.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/08/us/politics/hakeem-jeffries-house-democrats-m
 **California Orders Thousands of Drivers to Retake Rules of the Road Test**\
 `The state’s Department of Motor Vehicles said that it had discovered irregularities in exam results of knowledge tests. It did not specify what they were.`\
 https://www.nytimes.com/2026/07/08/us/california-drivers-licenses-written-exam.html
-
-**How to Prevent Meta From Using Your Instagram Images in A.I.**\
-`The company’s new A.I. image generator has a surprising twist: It allows people to use images from public Instagram accounts.`\
-https://www.nytimes.com/2026/07/08/technology/meta-instagram-ai.html
 
