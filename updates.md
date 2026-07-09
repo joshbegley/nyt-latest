@@ -1,3 +1,11 @@
+**New York Times and Other Publishers Ask Court to Penalize OpenAI**\
+`The Times, The New York Daily News and other media organizations accused OpenAI of withholding evidence in a lawsuit.`\
+https://www.nytimes.com/2026/07/09/technology/new-york-times-openai.html
+
+**A $3.2 Trillion Deal-Making Frenzy Is Spurred by the A.I. Economy**\
+`This year’s boom represents the most spent on global deal-making in a six-month period in a decade. But questions persist about whether it can continue.`\
+https://www.nytimes.com/2026/07/09/business/ai-boom-corporate-deals.html
+
 **The Best Seat in the House Is No Seat at All**\
 `Multimedia art is often challenging, provoking. Now it is also potentially bruising. Check your joints before you check out these summer shows.`\
 https://www.nytimes.com/2026/07/09/arts/design/museum-and-galleries-seating.html

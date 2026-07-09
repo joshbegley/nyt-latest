@@ -1,3 +1,7 @@
+**Grocery Stores Lower Prices as Consumers Pare Spending**\
+`While shoppers may get better deals on some items, it’s unlikely their overall grocery bill will fall.`\
+https://www.nytimes.com/2026/07/09/business/grocery-stores-lower-food-prices.html
+
 **New York Times and Other Publishers Ask Court to Penalize OpenAI**\
 `The Times, The New York Daily News and other media organizations accused OpenAI of withholding evidence in a lawsuit.`\
 https://www.nytimes.com/2026/07/09/technology/new-york-times-openai.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/09/technology/personaltech/iphone-android-health
 **Sifting Through Venezuela Earthquakes’ Rubble, and the Ashes of a Revolution**\
 `The devastation of Ms. Zúñiga’s city in Venezuela follows the demise of her political project. The revolution is over, but the human ties that help her cope remain.`\
 https://www.nytimes.com/2026/07/09/world/americas/jacqueline-zuniga-venezuela-earthquakes-socialist-revolution.html
-
-**‘I’m Worried About Weimar America’**\
-`“It may not be Hitler 2.0, it may not be Stalin 2.0. It might be something all American, but it’s not going to be what we’re used to,” the author Rod Dreher argues.`\
-https://www.nytimes.com/video/opinion/100000011007983/preparing-for-weimar-america.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
