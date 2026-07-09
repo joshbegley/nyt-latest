@@ -1,3 +1,15 @@
+**Suspect in Charlie Kirk Killing Admitted to the Crime in Text Messages, Prosecutors Say**\
+`In messages that prosecutors say were sent to his romantic partner, Tyler Robinson admitted he was the person who shot Charlie Kirk during an event at a Utah university.`\
+https://www.nytimes.com/2026/07/09/us/tyler-robinson-text-messages-charlie-kirk-assassination.html
+
+**Nobel-Winning U.S. Chemist Omar Yaghi Will Move to China to Lead A.I. Institute**\
+`Omar Yaghi of the University of California, Berkeley, will head an initiative to apply artificial intelligence to the discovery of new materials.`\
+https://www.nytimes.com/2026/07/09/science/nobel-winning-us-chemist-will-move-to-china-to-lead-ai-institute.html
+
+**Albanian Leader Rejects Complaints About Kanye West Concert**\
+`Prime Minister Edi Rama is under fire over a proposed resort with Trump ties, and a planned concert by the controversial musician known as Ye. In both cases, he cites the need for tourism.`\
+https://www.nytimes.com/2026/07/09/world/europe/albania-kanye-west-concert.html
+
 **John Deere Farm Equipment Owners Have Right-to-Repair, F.T.C. Says**\
 `A settlement by the company with the Federal Trade Commission will allow farmers and local mechanics to make their own fixes, instead of relying on authorized dealers.`\
 https://www.nytimes.com/2026/07/09/business/john-deere-ftc-right-to-repair.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-air-force-one
 **When Celebrities Protest, or Don’t**\
 `Readers, including the actor Debra Winger, respond to an essay by Molly Jong-Fast.`\
 https://www.nytimes.com/2026/07/09/opinion/celebrities-protests.html
-
-**Why the U.S. Could Beat China**\
-`Chinamaxxing has Americans looking at China in a new light. But Dan Wang argues that despite China’s futuristic image, the United States still has key advantages.`\
-https://www.nytimes.com/video/opinion/100000011007051/why-the-us-could-beat-china.html
-
-**These Fossils May Be the Earliest Evidence of Handedness in Animals**\
-`Scientists propose that recently uncovered fossils may be the earliest evidence of behavioral “handedness” in animals.`\
-https://www.nytimes.com/2026/07/09/science/fossils-earliest-handedness-righties.html
-
-**Maine Democrats Hope to Replace Platner as Senate Nominee. Has That Ever Worked?**\
-`Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
-https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
 

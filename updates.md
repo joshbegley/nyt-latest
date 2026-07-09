@@ -1,3 +1,7 @@
+**John Deere Farm Equipment Owners Have Right-to-Repair, F.T.C. Says**\
+`A settlement by the company with the Federal Trade Commission will allow farmers and local mechanics to make their own fixes, instead of relying on authorized dealers.`\
+https://www.nytimes.com/2026/07/09/business/john-deere-ftc-right-to-repair.html
+
 **As U.S. Steps Up Attacks on Iran, Prospect of All-Out War Rises**\
 `American officials said they were trying to safeguard maritime traffic in the Strait of Hormuz. Iran said it had responded by firing at U.S. bases in Qatar, Bahrain and Kuwait.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes.html
