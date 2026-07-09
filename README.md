@@ -1,3 +1,7 @@
+**Trump salió de Turquía en el antiguo Air Force One. Esta fue la razón**\
+`El Servicio Secreto dijo que el presidente no debía usar el avión donado por Catar al salir de Ankara. Este cambio provoca más dudas sobre la adaptación del nuevo avión.`\
+https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-air-force-one-seguridad.html
+
 **When Celebrities Protest, or Don’t**\
 `Readers, including the actor Debra Winger, respond to an essay by Molly Jong-Fast.`\
 https://www.nytimes.com/2026/07/09/opinion/celebrities-protests.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/09/us/politics/trump-arch-height-approval.html
 **Corrections: July 9, 2026**\
 `Corrections that appeared in print on Thursday, July 9, 2026.`\
 https://www.nytimes.com/2026/07/09/pageoneplus/corrections-july-9-2026.html
-
-**Graham Platner Is Not the Only One Getting His Comeuppance**\
-`The questions his political demise raises go far beyond Maine.`\
-https://www.nytimes.com/2026/07/09/opinion/graham-platner-maine-democrats-israel.html
 
 **Live Updates: U.S. and Iran Sink Into Violent Cycle After Latest Strikes**\
 `Attacks on ships were followed by new U.S. strikes on Iran, which responded by firing at Gulf nations. The pattern of hostilities has all but collapsed a cease-fire, with little sign that either side will step back.`\
