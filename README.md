@@ -1,3 +1,7 @@
+**Video of Kirk Assassination Suspect’s Ex-Partner to Be Played in Court**\
+`A judge said he would allow prosecutors to play the recording at a hearing on Thursday as prosecutors seek to take Tyler Robinson to trial on a charge that he murdered Charlie Kirk last year.`\
+https://www.nytimes.com/2026/07/08/us/charlie-kirk-shooting-hearing.html
+
 **Police Investigating Death of Nolan Wells Who Went Missing After Boat Trip**\
 `Nolan Wells was found dead days after going on a July 4 trip with friends to Horn Island, off the coast of Mississippi.`\
 https://www.nytimes.com/2026/07/08/us/nolan-wells-mississippi-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/08/world/europe/erdogan-nato-imamoglu-mayor.html
 **Emmys Snubs and Surprises 2026: Jon Hamm, Ariana Madix and More**\
 `Other unexpected results include nods for Chase Infiniti and the “Love Island USA” host Ariana Madix and a snub for “The Amazing Race.”`\
 https://www.nytimes.com/2026/07/08/arts/television/emmy-snubs-surprises.html
-
-**‘Love Story,’ FX’s JFK Jr. Series, Picks Up Fewer Emmy Nods Than Expected**\
-`The FX docudrama about the tragic romance between John F. Kennedy Jr. and Carolyn Bessette received fewer nominations than its competitors.`\
-https://www.nytimes.com/2026/07/08/arts/television/love-story-jfk-jr-emmy-nominations.html
 
