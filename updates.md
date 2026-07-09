@@ -1,3 +1,15 @@
+**Second Person in a Week Killed by Federal Task Force in Memphis**\
+`Tennessee authorities are investigating both shootings involving agents working with the task force in Memphis.`\
+https://www.nytimes.com/2026/07/08/us/shootings-federal-task-force-memphis.html
+
+**‘A Slow-Rolling Disaster’: Inside the Implosion of the Platner Campaign**\
+`Graham Platner’s bid for the Senate inspired progressive Democrats. But the campaign, which he suspended Wednesday, was messy, disorganized and ultimately doomed by a steady drip of scandal.`\
+https://www.nytimes.com/2026/07/08/us/politics/graham-platner-campaign-implosion-maine.html
+
+**The Democrats Can’t Go on Like This**\
+`The trouble in Maine goes beyond a single candidate.`\
+https://www.nytimes.com/2026/07/08/opinion/graham-platner-suspends-campaign-democrats-lessons.html
+
 **Platner Suspends Maine Senate Bid**\
 `In a video posted on social media, Graham Platner, the Democratic nominee for Senate in Maine, said he was suspending his campaign after an accusation of rape, which he has vehemently denied.`\
 https://www.nytimes.com/video/us/politics/100000011016249/graham-platner-maine-drops-out.html
