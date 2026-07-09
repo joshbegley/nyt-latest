@@ -1,3 +1,7 @@
+**Bonnie Tyler, Who Sang ‘Total Eclipse of the Heart,’ Dies at 75**\
+`With a voice both weathered and operatic, she minted 1980s pop anthems like “Total Eclipse” and “Holding Out for a Hero.”`\
+https://www.nytimes.com/2026/07/09/arts/music/bonnie-tyler-dead.html
+
 **La Guaira, entre los escombros de los terremotos y el fin de la revolución**\
 `La destrucción física de La Guaira ha seguido al desmoronamiento del proyecto político al que activistas como Jacqueline Zúñiga han dedicado toda su vida.`\
 https://www.nytimes.com/es/2026/07/09/espanol/america-latina/venezuela-terremotos-hugo-chavez-vivienda.html
