@@ -1,3 +1,19 @@
+**Live Updates: Interview With Partner of Defendant in Kirk Killing Is Played in Court**\
+`The interview with the former roommate and romantic partner of the man accused of killing Charlie Kirk could bolster the prosecution’s case that the gunman was motivated by politics.`\
+https://www.nytimes.com/live/2026/07/09/us/charlie-kirk-shooting-hearing
+
+**Tomatoes, Cucumbers, Basil, Zucchini**\
+`Reconciling my garden envy.`\
+https://www.nytimes.com/2026/07/09/dining/tomatoes-cucumbers-basil-zucchini.html
+
+**Poland Sentences Russian Exile to 7 Years in Prison for Spying**\
+`Igor Rogov, who has publicly opposed the Kremlin, was arrested in 2024 and later confessed to spying for Russian intelligence on regime opponents living abroad.`\
+https://www.nytimes.com/2026/07/09/world/europe/poland-russian-exile-spy.html
+
+**New Mexico Accuses D.O.J. of Obstructing Epstein Ranch Inquiry**\
+`New Mexico’s attorney general unveiled a letter he sent last week to the acting U.S. attorney general, Todd Blanche, accusing the Justice Department of withholding critical evidence.`\
+https://www.nytimes.com/2026/07/09/us/new-mexico-todd-blanche-epstein-ranch.html
+
 **Las tensiones aumentan entre Rusia y los países europeos de la OTAN**\
 `El presidente Vladimir Putin lanzó una amenaza velada al acusar a los países europeos de intentar prolongar la guerra de Rusia con Ucrania.`\
 https://www.nytimes.com/es/2026/07/09/espanol/mundo/rusia-otan-europa-ucrania.html
