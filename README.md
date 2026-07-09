@@ -1,3 +1,7 @@
+**John Deere Farm Equipment Owners Have Right-to-Repair, F.T.C. Says**\
+`A settlement by the company with the Federal Trade Commission will allow farmers and local mechanics to make their own fixes, instead of relying on authorized dealers.`\
+https://www.nytimes.com/2026/07/09/business/john-deere-ftc-right-to-repair.html
+
 **As U.S. Steps Up Attacks on Iran, Prospect of All-Out War Rises**\
 `American officials said they were trying to safeguard maritime traffic in the Strait of Hormuz. Iran said it had responded by firing at U.S. bases in Qatar, Bahrain and Kuwait.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/09/science/fossils-earliest-handedness-righties.
 **Maine Democrats Hope to Replace Platner as Senate Nominee. Has That Ever Worked?**\
 `Graham Platner is one of just a handful of candidates in recent decades who have withdrawn from a Senate race after securing a major party nomination.`\
 https://www.nytimes.com/2026/07/09/upshot/platner-senate-replacements-history.html
-
-**A Justice With No Plans to Retire and a Trump Lawyer Now on the Bench**\
-`A roundup of legal news from the country.`\
-https://www.nytimes.com/2026/07/09/us/politics/the-docket-legal-news.html
 

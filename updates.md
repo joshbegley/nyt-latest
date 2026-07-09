@@ -1,3 +1,11 @@
+**As U.S. Steps Up Attacks on Iran, Prospect of All-Out War Rises**\
+`American officials said they were trying to safeguard maritime traffic in the Strait of Hormuz. Iran said it had responded by firing at U.S. bases in Qatar, Bahrain and Kuwait.`\
+https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes.html
+
+**Advanced Recycling Hits a Rough Patch**\
+`In the past weeks, two sites in the United States have halted operations.`\
+https://www.nytimes.com/2026/07/09/climate/advanced-recycling.html
+
 **Art Gallery Shows to See in July**\
 `This week in Newly Reviewed, Travis Diehl covers the ramblings of Tinmantis, Jill Magid’s politics, a gory group show and Erin Johnson’s look at Lawrence, Kan., after “The Day After.”`\
 https://www.nytimes.com/2026/07/09/arts/art-gallery-shows-to-see-in-july.html
