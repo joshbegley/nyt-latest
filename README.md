@@ -1,3 +1,11 @@
+**After Several Days, Ayatollah Khamenei’s Funeral Comes to an End**\
+`A huge crowd surrounded Ayatollah Ali Khamenei’s coffin in his hometown, Mashhad, on Thursday, the final day of his funeral procession. The supreme leader’s body was transported to the Imam Reza Shrine, where it will be buried.`\
+https://www.nytimes.com/video/world/middleeast/100000011022031/iran-funeral-burial-khamenei-supreme-leader.html
+
+**Are We Becoming ‘Weimar America’?**\
+`America is at risk of extreme political upheaval, the conservative writer Rod Dreher argues on “Interesting Times.” “It may not be Hitler 2.0, it may not be Stalin 2.0, it might be something all American, but it’s not going to be what we’re used to,” he says.`\
+https://www.nytimes.com/video/opinion/100000011008022/are-we-becoming-weimar-america.html
+
 **Suspect in Charlie Kirk Killing Admitted to the Crime in Text Messages, Prosecutors Say**\
 `In messages that prosecutors say were sent to his romantic partner, Tyler Robinson admitted he was the person who shot Charlie Kirk during an event at a Utah university.`\
 https://www.nytimes.com/2026/07/09/us/tyler-robinson-text-messages-charlie-kirk-assassination.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/09/business/china-russia-ai-data-centers.html
 **Wally Funk, Who Set an Age Record for Space Travel, Dies at 87**\
 `As a young woman in the 1960s, she wasn’t allowed to become a NASA astronaut. She finally realized her long-held dream of flying in space as an octogenarian.`\
 https://www.nytimes.com/2026/07/09/science/space/wally-funk-dead.html
-
-**Trump salió de Turquía en el antiguo Air Force One. Esta fue la razón**\
-`El Servicio Secreto dijo que el presidente no debía usar el avión donado por Catar al salir de Ankara. Este cambio provoca más dudas sobre la adaptación del nuevo avión.`\
-https://www.nytimes.com/es/2026/07/09/espanol/estados-unidos/trump-air-force-one-seguridad.html
-
-**When Celebrities Protest, or Don’t**\
-`Readers, including the actor Debra Winger, respond to an essay by Molly Jong-Fast.`\
-https://www.nytimes.com/2026/07/09/opinion/celebrities-protests.html
 
