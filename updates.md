@@ -1,3 +1,15 @@
+**This Summer, Midtown Manhattan Is Taking Center Stage**\
+`Midtown, with its high-rise office buildings and tourist hotels, isn’t hip, but it has become the site of a series of dramatic spectacles this year.`\
+https://www.nytimes.com/2026/07/09/nyregion/midtown-manhattan-nyc-taylor-swift-knicks.html
+
+**NYT Spelling Bee Answers for July 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/09/crosswords/spelling-bee-forum.html
+
+**Oil Prices Hold Gains After U.S. and Iran Trade Another Round of Strikes**\
+`Choppy trading in stocks and bonds also reflected anxiety among investors about the war’s effects on inflation and growth.`\
+https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.html
+
 **Late Night Joins the Hunt for Mitch McConnell**\
 `“Apparently, people don’t like a majority senator disappearing with no explanation for three weeks,” Ronny Chieng said on Wednesday’s “Daily Show.”`\
 https://www.nytimes.com/2026/07/09/arts/television/late-night-mitch-mcconnell.html
