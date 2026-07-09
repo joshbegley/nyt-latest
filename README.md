@@ -1,3 +1,11 @@
+**This Summer, Midtown Manhattan Is Taking Center Stage**\
+`Midtown, with its high-rise office buildings and tourist hotels, isn’t hip, but it has become the site of a series of dramatic spectacles this year.`\
+https://www.nytimes.com/2026/07/09/nyregion/midtown-manhattan-nyc-taylor-swift-knicks.html
+
+**NYT Spelling Bee Answers for July 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/09/crosswords/spelling-bee-forum.html
+
 **Late Night Joins the Hunt for Mitch McConnell**\
 `“Apparently, people don’t like a majority senator disappearing with no explanation for three weeks,” Ronny Chieng said on Wednesday’s “Daily Show.”`\
 https://www.nytimes.com/2026/07/09/arts/television/late-night-mitch-mcconnell.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/07/09/nyregion/nyc-building-collapse-inspection.htm
 `The U.S. military said it had hit dozens of Iranian targets for the second night in a row. Iran’s military said it responded by firing missiles and drones at U.S. bases in Kuwait and Bahrain.`\
 https://www.nytimes.com/live/2026/07/09/world/iran-war-us-trump
 
-**Oil Prices Rise Further After U.S. and Iran Trade Another Round of Strikes**\
+**Oil Prices Hold Gains After U.S. and Iran Trade Another Round of Strikes**\
 `Choppy trading in stocks and bonds also reflected anxiety among investors about the war’s effects on inflation and growth.`\
 https://www.nytimes.com/2026/07/09/business/oil-shipping-stocks-gas-iran-hormuz.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/08/briefing/08-the-good-list-web-pinball-jogging
 **Iran Truce ‘Over,’ Trump Says, as He Threatens More Strikes**\
 `As both sides accused each other of violating a cease-fire signed three weeks ago, the temporary agreement appeared on the verge of collapse.`\
 https://www.nytimes.com/2026/07/08/world/middleeast/iran-truce-trump.html
-
-**As Progressives Rack Up Wins, Hakeem Jeffries Shrugs Off Possible Challenges**\
-`In a wide-ranging interview with The New York Times, Hakeem Jeffries, the House Democratic leader, said he didn’t consider the recent wave of anti-establishment victories “an overall critique of the party.”`\
-https://www.nytimes.com/2026/07/08/us/politics/hakeem-jeffries-house-democrats-midterms.html
-
-**California Orders Thousands of Drivers to Retake Rules of the Road Test**\
-`The state’s Department of Motor Vehicles said that it had discovered irregularities in exam results of knowledge tests. It did not specify what they were.`\
-https://www.nytimes.com/2026/07/08/us/california-drivers-licenses-written-exam.html
 
