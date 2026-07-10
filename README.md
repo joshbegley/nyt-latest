@@ -1,3 +1,11 @@
+**Dutch Museum Spreads 800 Pounds of Peanut Butter on the Floor to Honor a Late Artist**\
+`The Boijmans Van Beuningen Museum in Rotterdam, the Netherlands, unveiled an exhibit on Thursday featuring a 270-square-foot hexagon made of peanut butter. The installation was a tribute to Wim T. Schippers, the artist who first conceptualized the project and who died last month at 83.`\
+https://www.nytimes.com/video/arts/100000011023996/peanut-butter-art-netherlands.html
+
+**F.C.C. Approves Test of Space Mirror to Light Night Sky Despite Outcry**\
+`A start-up company has permission to try its plan to bounce solar rays onto the dark side of Earth, turning night to day for a three-mile-wide patch.`\
+https://www.nytimes.com/2026/07/10/climate/fcc-space-mirror.html
+
 **Witnesses to ICE Killing Dispute the Official Account**\
 `Also, a major housing bill could become law without Trump’s signature. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/07/10/briefing/ice-shooting-houston-trump-housing-bill.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/us/ghana-romance-scam-us-extradition-abu-tric
 **An Aging Assassin Was Caught by ICE. Will the U.S. Deport Him?**\
 `He helped plot a car bombing in Washington that killed two people in 1976. Fifty years later, old government secrets could decide his fate.`\
 https://www.nytimes.com/2026/07/10/us/politics/assassin-caught-by-ice-chile.html
-
-**Iris van Herpen Reaches for the Stars**\
-`For Iris van Herpen, couture is a laboratory as much as a runway. Our chief fashion critic, Vanessa Friedman, takes us inside this Dutch designer’s latest Paris show — from sci-fi-inspired gowns to an audacious attempt at a dress made of charged plasma.`\
-https://www.nytimes.com/video/style/100000011004430/iris-van-herpen-reaches-for-the-stars.html
-
-**Your Cat Is Being Nice? Think Again.**\
-`A new study finds that sometimes cats groom each other specifically to be annoying.`\
-https://www.nytimes.com/2026/07/10/science/cat-grooming-licking-research.html
 

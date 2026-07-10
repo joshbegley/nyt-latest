@@ -1,3 +1,7 @@
+**Witnesses to ICE Killing Dispute the Official Account**\
+`Also, a major housing bill could become law without Trump’s signature. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/07/10/briefing/ice-shooting-houston-trump-housing-bill.html
+
 **What Is the Best Verse on Jay-Z’s ‘Reasonable Doubt’?**\
 `Music critic and “Popcast” host, Jon Caramanica, makes his argument for why Jay-Z’s “Friend or Foe” is the best verse on his 1996 album “Reasonable Doubt.”`\
 https://www.nytimes.com/video/podcasts/100000011017931/what-is-the-quintessential-jay-z-song.html
