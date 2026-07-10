@@ -1,3 +1,11 @@
+**How Olivia Wilde Directed an Awkward Dance in ‘The Invite’**\
+`The director and actress Olivia Wilde breaks down a tension-filled scene from her new film “The Invite” for Anatomy of a Scene.`\
+https://www.nytimes.com/video/movies/100000010974506/the-invite-scene-olivia-wilde.html
+
+**Oil Prices Wobble As a Week of Hostilities Derails Shipping**\
+`The latest turmoil, sparked by attacks on three commercial ships in the strait days ago, pushed the price of crude back above prewar levels.`\
+https://www.nytimes.com/2026/07/10/business/oil-gas-stocks-shipping-iran-hormuz.html
+
 **12 People Die in Southern Spain Wildfire**\
 `The blaze in Andalusia prompted a major containment operation. Heat waves across Europe this summer have raised the risk of such fires, forecasters say.`\
 https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
