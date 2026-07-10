@@ -1,3 +1,7 @@
+**Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
+`“If the net result is that all the teens in Australia are still using social media, even after they’re technically banned from doing it, why are we doing any of this?”`\
+https://www.nytimes.com/2026/07/10/podcasts/hardfork-social-media-bans.html
+
 **‘The Headlines’ News Quiz: Jul. 10, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/07/10/podcasts/the-headlines/the-headlines-news-quiz-jul-10-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/world/europe/fire-climate-change-heat-wave-gl
 **Nine Years Later, They’re Still Restoring a House Bought at Auction**\
 `First-time buyers from the Bay Area won an abandoned house at a Kingston, N.Y. tax auction. Eight years later, they’re still restoring it.`\
 https://www.nytimes.com/2026/07/10/realestate/disaster-mansion-renovation-kingston-ny.html
-
-**An Insider’s Guide to 6 of Vienna’s Splendid Public Pools**\
-`Whether you’re looking to do laps in the pool or lounge in the shade beneath towering lindens, these swimming spots are a perfect way to beat the summer heat.`\
-https://www.nytimes.com/2026/07/10/travel/vienna-public-pools.html
 

@@ -1,3 +1,7 @@
+**Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
+`“If the net result is that all the teens in Australia are still using social media, even after they’re technically banned from doing it, why are we doing any of this?”`\
+https://www.nytimes.com/2026/07/10/podcasts/hardfork-social-media-bans.html
+
 **‘The Headlines’ News Quiz: Jul. 10, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/07/10/podcasts/the-headlines/the-headlines-news-quiz-jul-10-2026.html
