@@ -1,3 +1,11 @@
+**Atlassian Illegally Fired Worker in Rare Legal Victory for Tech Worker**\
+`A federal labor law judge determined last week that the software maker Atlassian had illegally fired an employee who questioned company policy changes.`\
+https://www.nytimes.com/2026/07/10/business/atlassian-tech-worker-wrongful-termination.html
+
+**Museum Spreads 800 Pounds of Peanut Butter in Tribute to Dutch Artist**\
+`An installation honoring the artist, Wim T. Schippers, features a 270-square-foot hexagon spread on the floor of a museum in Rotterdam.`\
+https://www.nytimes.com/2026/07/10/arts/dutch-museum-peanut-butter-floor-art-wim-schippers.html
+
 **Trump Is Promoting ‘Freedom Fuel’ for $3.47 a Gallon. Who’s Behind It?**\
 `The president has praised a network of 25 recently rebranded gas stations in the Philadelphia region that have been selling gas for considerably less than the national average.`\
 https://www.nytimes.com/2026/07/10/us/freedom-fuel-gas-stations.html
