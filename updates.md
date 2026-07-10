@@ -1,3 +1,7 @@
+**What We Know About the ICE Shooting of Lorenzo Salgado Araujo**\
+`Mr. Araujo was a father, a husband and a business owner who had moved to the United States 35 years ago from Mexico.`\
+https://www.nytimes.com/2026/07/09/us/houston-ice-shooting-lorenzo-salgado-araujo.html
+
 **The U.S. and Iran Are Fighting Again. Is the Cease-Fire Over?**\
 `Eric Schmitt, a New York Times National Security correspondent, analyzes recent skirmishes between the U.S. and Iran and whether they threaten ongoing negotiations for a peace deal.`\
 https://www.nytimes.com/video/us/politics/100000011019171/the-us-and-iran-are-fighting-again-is-the-cease-fire-over.html
