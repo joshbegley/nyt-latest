@@ -1,3 +1,19 @@
+**Passenger Is Partly Sucked Through Plane Window but Survives, Reports Say**\
+`A 61-year-old man was being treated for friction burns after a window was damaged during a flight from Greece to Germany. The flight was operated by the Ryanair subsidiary Malta Air.`\
+https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-broken-window.html
+
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/10/movies/new-movies-this-week-critics.html
+
+**The Work of Helping A.I. Destroy Work**\
+`Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
+https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
+
+**Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
+`The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
+https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
+
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu was leading a literary group that has been divided by its response to the war in Gaza.`\
 https://www.nytimes.com/2026/07/10/arts/pen-america-dinaw-mengestu-resigns.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/10/opinion/immigration-us-citizenship-visa-child
 **After Venezuela Earthquakes, a Youth Baseball League Counts the Dead**\
 `Children who played for Venezuela’s youth baseball league, a symbol of national pride, have been left injured, orphaned or dead.`\
 https://www.nytimes.com/2026/07/10/world/americas/venezuela-earthquake-death-baseball-los-criollitos.html
-
-**Pick Your Favorite $1.1 Million Home in London**\
-`A duplex loft in Battersea, an industrial conversion in Wapping, and a two-bedroom mews house in Whitechapel.`\
-https://www.nytimes.com/2026/07/10/realestate/pick-your-favorite-1-1-million-home-in-london.html
-
-**Jerrold Nadler: Penn Station Won’t Fund Itself**\
-`Penn Station needs massive fixes, but the Trump administration is going about it all wrong.`\
-https://www.nytimes.com/2026/07/10/opinion/penn-station-new-york-trump.html
-
-**How to Quiet a Noisy House**\
-`Home inspectors often overlook them, and building codes rarely address them, but a home’s moans and groans can drive you crazy. Here’s how to silence some of the noise.`\
-https://www.nytimes.com/2026/07/10/realestate/house-noise-solutions-foosteps-thin-walls.html
-
-**He Wanted to Track Microplastics in the Sea. The E.P.A. Fired Him.**\
-`The official urged requiring a fish farm to monitor for the tiny plastic particles. The E.P.A. said he had taken steps to embarrass the agency.`\
-https://www.nytimes.com/2026/07/10/climate/fish-farm-microplastics-maha-epa-firing.html
 
