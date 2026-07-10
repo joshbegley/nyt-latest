@@ -1,3 +1,11 @@
+**Trump Is Promoting ‘Freedom Fuel’ for $3.47 a Gallon. Who’s Behind It?**\
+`The president has praised a network of 25 recently rebranded gas stations in the Philadelphia region that have been selling gas for considerably less than the national average.`\
+https://www.nytimes.com/2026/07/10/us/freedom-fuel-gas-stations.html
+
+**The Liminal Lyricism of Liim**\
+`Liim, an up-and-coming rapper from Harlem, explores the tension of life’s in-between moments in “Machete Summer” with a slow-burning, surprisingly soft rap style. Our critic Jon Caramanica dives into his musicality on the “Popcast” Song of the Week.`\
+https://www.nytimes.com/video/podcasts/100000011022815/the-liminal-lyricism-of-liim.html
+
 **Jay-Z’s Definitive Album? Debating ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
 `Ahead of the rapper’s three celebratory nights at Yankee Stadium, our “Popcast” hosts debate two major Jay-Z albums.`\
 https://www.nytimes.com/2026/07/10/podcasts/best-jay-z-album-popcast.html
