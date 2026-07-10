@@ -1,3 +1,7 @@
+**U.K. Police Open Murder Investigation Into Death of Politician Ann Widdecombe**\
+`Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday, the police said.`\
+https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
+
 **U.S. Department of Energy Underestimated Potential Los Alamos Plutonium Leak Danger, Study Finds**\
 `An accident at the lab that produces America’s nuclear bomb cores could lead to more fatalities than previously estimated by the federal government, according to new research.`\
 https://www.nytimes.com/2026/07/10/climate/nuclear-bomb-energy-department-lab.html

@@ -1,3 +1,7 @@
+**U.K. Police Open Murder Investigation Into Death of Politician Ann Widdecombe**\
+`Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday, the police said.`\
+https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
+
 **U.S. Department of Energy Underestimated Potential Los Alamos Plutonium Leak Danger, Study Finds**\
 `An accident at the lab that produces America’s nuclear bomb cores could lead to more fatalities than previously estimated by the federal government, according to new research.`\
 https://www.nytimes.com/2026/07/10/climate/nuclear-bomb-energy-department-lab.html
@@ -62,13 +66,13 @@ https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-b
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/07/10/movies/new-movies-this-week-critics.html
 
-**The Work of Helping A.I. Destroy Work**\
-`Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
-https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
-
 **Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
 `The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
 https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
+
+**The Work of Helping A.I. Destroy Work**\
+`Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
+https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
 
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu was leading a literary group that has been divided by its response to the war in Gaza.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/10/magazine/lemonade-bar-hodgman-qui
 **Corrections: July 10, 2026**\
 `Corrections that appeared in print on Friday, July 10, 2026.`\
 https://www.nytimes.com/2026/07/10/pageoneplus/corrections-july-10-2026.html
-
-**This Author Says You Shouldn’t Be Intimidated by ‘The Odyssey’**\
-`First, a primer from the author of “Circe,” Madeline Miller. Then, A.O. Scott on all the genres inside the 3,000-year-old poem.`\
-https://www.nytimes.com/2026/07/10/podcasts/madeline-miller-odyssey.html
 
