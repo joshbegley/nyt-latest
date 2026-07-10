@@ -1,3 +1,7 @@
+**What Graham Platner’s Implosion Reveals About the Democratic Party**\
+`Lisa Lerer, a New York Times national political correspondent, explains how recent allegations against the Senate candidate Graham Platner and his subsequent withdrawal from Maine’s primary race have reignited a longstanding conflict between the progressive and establishment wings of the Democratic Party.`\
+https://www.nytimes.com/video/us/politics/100000011019093/what-graham-platners-implosion-reveals-about-the-democratic-party.html
+
 **Man Charged in National Guard Shooting Is Hospitalized for Refusing Food**\
 `The “dire” condition of the suspect, who has pleaded not guilty to murder and other charges, was “self-inflicted,” a judge said.`\
 https://www.nytimes.com/2026/07/09/us/lakanwal-national-guard-shooting-refuse-eat.html
