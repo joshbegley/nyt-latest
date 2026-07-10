@@ -1,3 +1,15 @@
+**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Gulf**\
+`Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
+https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
+
+**Democrats Haunted by Biden-Harris Switch as They Replace Platner in Maine**\
+`The last-minute scramble to name a replacement reminds some in the party of the challenges they faced in 2024.`\
+https://www.nytimes.com/2026/07/10/us/platner-replacement-maine-biden-harris.html
+
+**U.K. Police Open Murder Investigation Into Death of Politician Ann Widdecombe**\
+`The police said they had arrested a 26-year-old British man after Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday.`\
+https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
+
 **This Is One of the Loneliest Jobs in America**\
 `Times Opinion interviewed dozens of family caregivers across the country to reveal the emotional toll and personal sacrifices at the heart of America‘s elder care crisis.`\
 https://www.nytimes.com/video/opinion/100000011004945/family-caregiver-aging-parents-feed.html

@@ -1,3 +1,11 @@
+**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Gulf**\
+`Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
+https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
+
+**Democrats Haunted by Biden-Harris Switch as They Replace Platner in Maine**\
+`The last-minute scramble to name a replacement reminds some in the party of the challenges they faced in 2024.`\
+https://www.nytimes.com/2026/07/10/us/platner-replacement-maine-biden-harris.html
+
 **This Is One of the Loneliest Jobs in America**\
 `Times Opinion interviewed dozens of family caregivers across the country to reveal the emotional toll and personal sacrifices at the heart of America‘s elder care crisis.`\
 https://www.nytimes.com/video/opinion/100000011004945/family-caregiver-aging-parents-feed.html
@@ -63,7 +71,7 @@ https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-houston-inmigrante-mexicano.html
 
 **U.K. Police Open Murder Investigation Into Death of Politician Ann Widdecombe**\
-`Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday, the police said.`\
+`The police said they had arrested a 26-year-old British man after Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday.`\
 https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
 
 **U.S. Department of Energy Underestimated Potential Los Alamos Plutonium Leak Danger, Study Finds**\
@@ -130,13 +138,13 @@ https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-b
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/07/10/movies/new-movies-this-week-critics.html
 
-**The Work of Helping A.I. Destroy Work**\
-`Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
-https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
-
 **Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
 `The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
 https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
+
+**The Work of Helping A.I. Destroy Work**\
+`Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
+https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
 
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu was leading a literary group that has been divided by its response to the war in Gaza.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
 **Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
 `“If the net result is that all the teens in Australia are still using social media, even after they’re technically banned from doing it, why are we doing any of this?”`\
 https://www.nytimes.com/2026/07/10/podcasts/hardfork-social-media-bans.html
-
-**‘The Headlines’ News Quiz: Jul. 10, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/07/10/podcasts/the-headlines/the-headlines-news-quiz-jul-10-2026.html
-
-**Meta Ordered by E.U. to Alter ‘Addictive Design’ of Instagram and Facebook**\
-`European Union authorities said the company’s use of “addictive design” violated a digital safety law.`\
-https://www.nytimes.com/2026/07/10/business/meta-instagram-facebook-europe.html
 
