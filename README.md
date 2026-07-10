@@ -1,3 +1,7 @@
+**Green Tech’s ‘Small Miracles’**\
+`Green technology advancements in everything from water desalination to vertical farming are making it possible to tackle previously intractable environmental challenges. On “The Ezra Klein Show,” Bill McKibben, a founder of the environmental groups 350.org and Third Act, shares some of the success stories he’s seen through his work.`\
+https://www.nytimes.com/video/opinion/100000011018056/green-techs-small-miracles.html
+
 **Charlie Cunningham, Mountain Bike Innovator, Dies at 77**\
 `In the late 1970s, he built what is considered the first off-road bicycle with a frame that was aluminum rather than steel, one of his many inventions.`\
 https://www.nytimes.com/2026/07/10/sports/cycling/charlie-cunningham-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/business/atlassian-tech-worker-wrongful-termi
 **Museum Spreads 800 Pounds of Peanut Butter in Tribute to Dutch Artist**\
 `An installation honoring the artist, Wim T. Schippers, features a 270-square-foot hexagon spread on the floor of a museum in Rotterdam.`\
 https://www.nytimes.com/2026/07/10/arts/dutch-museum-peanut-butter-floor-art-wim-schippers.html
-
-**Trump Is Promoting ‘Freedom Fuel’ for $3.47 a Gallon. Who’s Behind It?**\
-`The president has praised a network of 25 recently rebranded gas stations in the Philadelphia region that have been selling gas for considerably less than the national average.`\
-https://www.nytimes.com/2026/07/10/us/freedom-fuel-gas-stations.html
 

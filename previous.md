@@ -1,3 +1,7 @@
+**Charlie Cunningham, Mountain Bike Innovator, Dies at 77**\
+`In the late 1970s, he built what is considered the first off-road bicycle with a frame that was aluminum rather than steel, one of his many inventions.`\
+https://www.nytimes.com/2026/07/10/sports/cycling/charlie-cunningham-dead.html
+
 **Mango Soft Serve**\
 `When an ice cream craving hits at home, you’ll find near-instant joy in this quick, fruity mango soft serve. Juicy, creamy, tangy or anywhere in between, any frozen fruit will work here; strawberry, peaches, raspberries and blueberries are also excellent choices.`\
 https://www.nytimes.com/video/dining/100000011024966/mango-soft-serve.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/arts/dutch-museum-peanut-butter-floor-art-wim
 **Trump Is Promoting ‘Freedom Fuel’ for $3.47 a Gallon. Who’s Behind It?**\
 `The president has praised a network of 25 recently rebranded gas stations in the Philadelphia region that have been selling gas for considerably less than the national average.`\
 https://www.nytimes.com/2026/07/10/us/freedom-fuel-gas-stations.html
-
-**The Liminal Lyricism of Liim**\
-`Liim, an up-and-coming rapper from Harlem, explores the tension of life’s in-between moments in “Machete Summer” with a slow-burning, surprisingly soft rap style. Our critic Jon Caramanica dives into his musicality on the “Popcast” Song of the Week.`\
-https://www.nytimes.com/video/podcasts/100000011022815/the-liminal-lyricism-of-liim.html
 

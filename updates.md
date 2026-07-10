@@ -1,3 +1,7 @@
+**Charlie Cunningham, Mountain Bike Innovator, Dies at 77**\
+`In the late 1970s, he built what is considered the first off-road bicycle with a frame that was aluminum rather than steel, one of his many inventions.`\
+https://www.nytimes.com/2026/07/10/sports/cycling/charlie-cunningham-dead.html
+
 **Mango Soft Serve**\
 `When an ice cream craving hits at home, you’ll find near-instant joy in this quick, fruity mango soft serve. Juicy, creamy, tangy or anywhere in between, any frozen fruit will work here; strawberry, peaches, raspberries and blueberries are also excellent choices.`\
 https://www.nytimes.com/video/dining/100000011024966/mango-soft-serve.html
