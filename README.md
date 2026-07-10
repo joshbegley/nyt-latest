@@ -1,3 +1,7 @@
+**What Graham Platner’s Implosion Reveals About the Democratic Party**\
+`Lisa Lerer, a New York Times national political correspondent, explains how recent allegations against the Senate candidate Graham Platner and his subsequent withdrawal from Maine’s primary race have reignited a longstanding conflict between the progressive and establishment wings of the Democratic Party.`\
+https://www.nytimes.com/video/us/politics/100000011019093/what-graham-platners-implosion-reveals-about-the-democratic-party.html
+
 **Man Charged in National Guard Shooting Is Hospitalized for Refusing Food**\
 `The “dire” condition of the suspect, who has pleaded not guilty to murder and other charges, was “self-inflicted,” a judge said.`\
 https://www.nytimes.com/2026/07/09/us/lakanwal-national-guard-shooting-refuse-eat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/technology/openai-sol-ai.html
 **Palestinian Authority Sets Date for First Major Elections in 20 Years**\
 `Analysts expressed skepticism that the vote would take place as planned. In 2021, Mahmoud Abbas, the authority’s leader, scheduled and then canceled a similar election.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-elections-abbas.html
-
-**Warsh Announces Slate of New Advisers for Fed Task Forces**\
-`The five task forces are focused on topics that Kevin M. Warsh, the chairman of the Federal Reserve, has said are “central to the broad conduct of monetary policy.”`\
-https://www.nytimes.com/2026/07/09/business/warsh-announces-slate-of-new-advisers-for-fed-task-forces.html
 
