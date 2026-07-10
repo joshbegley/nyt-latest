@@ -1,3 +1,7 @@
+**Graham Platner Files Paperwork to Withdraw From Maine Senate Race**\
+`The move paved the way for the party to choose a new nominee to challenge Senator Susan Collins in a race both parties see as key to the control of the Senate.`\
+https://www.nytimes.com/2026/07/10/us/politics/graham-platner-maine-senate-withdraw.html
+
 **México presentará denuncias penales en EE. UU. por las muertes de migrantes**\
 `La presidenta del país prometió ir “más allá de las notas diplomáticas” después de que un agente de inmigración estadounidense matara a Lorenzo Salgado Araujo, un ciudadano mexicano, en Texas esta semana.`\
 https://www.nytimes.com/es/2026/07/10/espanol/america-latina/mexico-muertes-migrantes-salgado-araujo.html

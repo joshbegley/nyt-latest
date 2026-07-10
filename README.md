@@ -1,3 +1,7 @@
+**Strait of Hormuz Will Soon Be Declared Open to All Traffic, U.S. Officials Say**\
+`The officials said that Iranian negotiators blamed the recent ship attacks on rogue military units.`\
+https://www.nytimes.com/2026/07/10/us/politics/strait-hormuz-safe-passage.html
+
 **Graham Platner Files Paperwork to Withdraw From Maine Senate Race**\
 `The move paved the way for the party to choose a new nominee to challenge Senator Susan Collins in a race both parties see as key to the control of the Senate.`\
 https://www.nytimes.com/2026/07/10/us/politics/graham-platner-maine-senate-withdraw.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/dining/a-new-summer-caesar.html
 **Five Action Movies to Stream Now**\
 `Upgrade your movie night with these picks, featuring karate-chopping families, rogue assassins and more.`\
 https://www.nytimes.com/2026/07/10/movies/five-action-movies-to-stream-now.html
-
-**This Is a Lot More Worrying Than the Supreme Court’s Ruling on Executive Power**\
-`The White House is sidestepping Congress to make huge decisions for even the most important private industries.`\
-https://www.nytimes.com/2026/07/10/opinion/executive-power-supreme-court-trump.html
 
