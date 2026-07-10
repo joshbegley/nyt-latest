@@ -1,3 +1,7 @@
+**When Norway Gave England a ‘Hell of a Beating’**\
+`A huge soccer upset in 1981 was immortalized by a famous radio call in Norway, directed at Prime Minister Margaret Thatcher.`\
+https://www.nytimes.com/2026/07/10/sports/soccer/world-cup-norway-england-commentary.html
+
 **Two Days of U.S. Strikes in Iran Signal a Sharp Escalation**\
 `U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
 https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/07/10/business/volkswagen-china-problems-restructur
 `Changing deer populations, rising temperatures and other factors are driving ticks and their diseases into new areas.`\
 https://www.nytimes.com/2026/07/10/well/tick-borne-disease-risks-regions.html
 
-**Passenger Is Partly Sucked Through Plane Window but Survives, Reports Say**\
+**Passenger Is Partly Sucked Through Window on Ryanair Subsidiary Flight, Reports Say**\
 `A 61-year-old man was being treated for friction burns after a window was damaged during a flight from Greece to Germany. The flight was operated by the Ryanair subsidiary Malta Air.`\
 https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-broken-window.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/podcasts/madeline-miller-odyssey.html
 **Michelle Buteau and the Surprising Transgression of “Survival of the Thickest”**\
 `The Netflix rom-com series that just ended after three seasons succeeded thanks to an irresistible performance by its star, Michelle Buteau.`\
 https://www.nytimes.com/2026/07/10/arts/television/survivial-of-the-thickest-michelle-buteau.html
-
-**You’re Freezing in Your Office Building. Here’s Why.**\
-`Office temperatures are typically set in the low 70s during summer. But where you sit and the efficiency of the cooling system can make you feel colder.`\
-https://www.nytimes.com/2026/07/10/business/cold-offices-air-conditioning.html
 

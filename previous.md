@@ -1,3 +1,27 @@
+**Two Days of U.S. Strikes in Iran Signal a Sharp Escalation**\
+`U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
+https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
+
+**My Wedding Gift Broke. How Can I Replace It?**\
+`We help a reader track down an unusual, decades-old wineglass.`\
+https://www.nytimes.com/2026/07/10/t-magazine/joe-colombo-glass-design.html
+
+**A New Summer Caesar**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/07/10/dining/a-new-summer-caesar.html
+
+**Five Action Movies to Stream Now**\
+`Upgrade your movie night with these picks, featuring karate-chopping families, rogue assassins and more.`\
+https://www.nytimes.com/2026/07/10/movies/five-action-movies-to-stream-now.html
+
+**This Is a Lot More Worrying Than the Supreme Court’s Ruling on Executive Power**\
+`The White House is sidestepping Congress to make huge decisions for even the most important private industries.`\
+https://www.nytimes.com/2026/07/10/opinion/executive-power-supreme-court-trump.html
+
+**Why Democrats Are Tripping All Over Themselves**\
+`A longtime observer of the party tries to make sense of where the party is, and where it is going.`\
+https://www.nytimes.com/2026/07/10/opinion/democrats-platner-maine-midterms.html
+
 **Witnesses of ICE Killing in Houston Dispute the Official Account**\
 `The agency said a Mexican resident driving a van tried to ram agents before they shot him dead. A lawyer for three passengers said that was untrue.`\
 https://www.nytimes.com/2026/07/10/us/houston-ice-shooting-witnesses.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/10/arts/television/survivial-of-the-thickest-mic
 **You’re Freezing in Your Office Building. Here’s Why.**\
 `Office temperatures are typically set in the low 70s during summer. But where you sit and the efficiency of the cooling system can make you feel colder.`\
 https://www.nytimes.com/2026/07/10/business/cold-offices-air-conditioning.html
-
-**How the World Cup Made Me Norwegian**\
-`At this stage of the competition, switching national loyalties can be as easy as changing jerseys.`\
-https://www.nytimes.com/2026/07/10/magazine/world-cup-diary-norway-nationalism.html
-
-**The Very Good and Very Bad News on Climate**\
-`Advancements in renewable energy are paving the way for a new climate politics. The environmentalist Bill McKibben articulates some of the possibilities in this new era of energy abundance.`\
-https://www.nytimes.com/video/opinion/100000011018052/the-very-good-and-very-bad-news-on-climate.html
-
-**Why Some Women in Maine Are Mourning the End of Graham Platner’s Campaign**\
-`They believe the accuser, but they also grieve the demise of a campaign that promised that politics could be different — and they blame those who failed to find a less flawed candidate.`\
-https://www.nytimes.com/2026/07/10/us/politics/women-maine-graham-platner-campaign.html
-
-**Hotel Workers Hoped the World Cup Would Boost Their Hours. It Didn’t.**\
-`Even as matches have drawn large crowds, hotel bookings have lagged. And workers in host cities say they’re struggling.`\
-https://www.nytimes.com/2026/07/10/business/hotel-workers-world-cup.html
-
-**Book Review: ‘A Vast Horizon,’ by Anna Thomasson**\
-`A group of artists gathered at a hotel on the Côte d’Azur in 1937. A new book by Anna Thomasson captures the art and escapades the holiday inspired.`\
-https://www.nytimes.com/2026/07/10/books/review/a-vast-horizon-anna-thomasson.html
-
-**‘The Chosen’ Studio Is Accused of Shortchanging Crowdfunders**\
-`A lawsuit by a former shareholder says he was not fairly compensated when the company behind the popular drama about Jesus’ life went private.`\
-https://www.nytimes.com/2026/07/10/arts/television/chosen-investors-lawsuit.html
 
