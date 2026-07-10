@@ -1,3 +1,7 @@
+**Witnesses to ICE Killing Dispute the Official Account**\
+`Also, a major housing bill could become law without Trump’s signature. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/07/10/briefing/ice-shooting-houston-trump-housing-bill.html
+
 **Easy Chicken Tacos**\
 `Tender chicken tacos using boneless, skinless thighs make a flavorful weeknight meal that, if you warm up your tortillas while the chicken cooks, will be ready in about half an hour.`\
 https://www.nytimes.com/video/dining/100000011024946/easy-chicken-tacos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/style/100000011004430/iris-van-herpen-reaches-for-
 **Your Cat Is Being Nice? Think Again.**\
 `A new study finds that sometimes cats groom each other specifically to be annoying.`\
 https://www.nytimes.com/2026/07/10/science/cat-grooming-licking-research.html
-
-**Flashback: Your Weekly History Quiz, July 11, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
 
