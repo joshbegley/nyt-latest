@@ -1,3 +1,7 @@
+**Indian Diaspora, Now the Largest Foreign-Born Group in Australia, Welcomes Modi**\
+`A large, festive reception for the Indian prime minister in Melbourne belied tensions over migration in the country.`\
+https://www.nytimes.com/2026/07/10/world/asia/australia-modi-india-diaspora.html
+
 **Ronny Chieng Tackles Trump's Two Air Force Ones**\
 `“Is that why there’s no gas in the world anymore? Because the president flies with an extra emotional support plane?” Chieng said on “The Daily Show.”`\
 https://www.nytimes.com/2026/07/10/arts/television/ronny-chieng-trump-air-force-one.html
