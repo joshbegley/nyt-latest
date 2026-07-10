@@ -179,7 +179,7 @@ https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
 https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
 
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
-`The novelist Dinaw Mengestu was leading a literary group that has been divided by its response to the war in Gaza.`\
+`The novelist Dinaw Mengestu, who was elected seven months ago, said the article “continues this approach toward defending some rights while not defending others.”`\
 https://www.nytimes.com/2026/07/10/arts/pen-america-dinaw-mengestu-resigns.html
 
 **Trump Says He Won’t Sign Housing Bill, in Protest Over Stalled Voting Measure**\
