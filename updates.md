@@ -1,3 +1,15 @@
+**Which Jay-Z Album Is Better? ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
+`Watch the full debate here.`\
+https://www.nytimes.com/video/podcasts/100000011017923/which-jay-z-album-is-better-reasonable-doubt-vs-the-blueprint.html
+
+**12 People Die in Southern Spain Wildfire**\
+`The blaze broke out in Almería province in Andalusia and prompted a major operation to contain it. Heat waves across Europe this summer have raised the risk of wildfires, forecasters say.`\
+https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
+
+**Trump Administration Fires Members of Independent Election Group**\
+`The firings and a resignation render the Election Assistance Commission useless. The moves come as President Trump seeks to impose control over how ballots will be counted in the midterms.`\
+https://www.nytimes.com/2026/07/10/us/politics/trump-administration-fires-members-of-independent-election-group.html
+
 **Meet Neil, Australia’s Celebrity Seal**\
 `The young elephant seal has gained fans around the world. But the authorities warn he could be in danger of being loved to death.`\
 https://www.nytimes.com/2026/07/10/world/australia/neil-seal-australia-tasmania.html
