@@ -1,3 +1,15 @@
+**Europa se prepara para combatir incendios con datos**\
+`Un equipo de ingenieros, silvicultores y científicos está ayudando al continente a prepararse para los incendios forestales desde un gigantesco parque científico en Italia. Su arsenal incluye satélites, modelos meteorológicos y análisis de expertos.`\
+https://www.nytimes.com/es/2026/07/10/espanol/mundo/europa-prevencion-incendios-forestales.html
+
+**Moscow Still Has Art and Culture. Just Don’t Say ‘Ukraine.’**\
+`An eerie limbo prevails at small art shows, independent theaters and private political clubs, where the war is the elephant in the room.`\
+https://www.nytimes.com/2026/07/10/world/europe/russia-moscow-ukraine-war.html
+
+**The Very Good and Very Bad News on Climate**\
+`Advancements in renewable energy are paving the way for a new climate politics. The environmentalist Bill McKibben articulates some of the possibilities in this new era of energy abundance.`\
+https://www.nytimes.com/2026/07/10/opinion/ezra-klein-podcast-bill-mckibben.html
+
 **The New York Times News Quiz, July 10, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/07/10/briefing/quiz-iran-platner-emmys-nato.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/style/pierpaolo-piccioli-balenciaga-couture.h
 **At Fendi, Solving the Fur Problem**\
 `In her Fendi debut, Maria Grazia Chiuri makes the case — and wrestles with a complicated legacy.`\
 https://www.nytimes.com/2026/07/10/style/fendi-fur-couture.html
-
-**Volkswagen recortará la mitad de sus modelos ante la caída de las ventas**\
-`El fabricante de coches alemán ha tenido dificultades para competir con las empresas chinas en rápido crecimiento que ofrecen vehículos eléctricos más asequibles y sofisticados.`\
-https://www.nytimes.com/es/2026/07/10/espanol/negocios/volkswagen-recortes-caida-ventas.html
-
-**China Launches Reusable Rocket, Clearing a Key Hurdle in Race With SpaceX**\
-`The launch and recovery of the Long March 10B could represent a long-awaited breakthrough for Chinese satellite companies.`\
-https://www.nytimes.com/2026/07/10/world/asia/china-space-reusable-rocket-launch-spacex.html
-
-**Que la ‘Odisea’ se convierta en tu próxima lectura**\
-`La epopeya más famosa del mundo tiene algo que ofrecer a cada lector.`\
-https://www.nytimes.com/es/2026/07/10/espanol/cultura/la-odisea.html
 
