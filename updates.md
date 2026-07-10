@@ -1,3 +1,7 @@
+**SK Hynix Stock Rises on First Day of US Trading**\
+`SK Hynix began trading at $170 a share, above its initial public offering price of $149, in the latest test of investor demand for A.I.-related companies.`\
+https://www.nytimes.com/2026/07/10/business/sk-hynix-stock.html
+
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu, who was elected seven months ago, said the article “continues this approach toward defending some rights while not defending others.”`\
 https://www.nytimes.com/2026/07/10/arts/pen-america-dinaw-mengestu-resigns.html

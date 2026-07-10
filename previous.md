@@ -1,3 +1,7 @@
+**SK Hynix Stock Rises on First Day of US Trading**\
+`SK Hynix began trading at $170 a share, above its initial public offering price of $149, in the latest test of investor demand for A.I.-related companies.`\
+https://www.nytimes.com/2026/07/10/business/sk-hynix-stock.html
+
 **Trump Cuts Habitat Protections for Endangered Species**\
 `The move could open up habitats to drilling and mining, and hasten the demise of many imperiled animals, experts say.`\
 https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/world/europe/reform-uk-farage-cottrell-donati
 **Several People Dead in Southern Spain Wildfire**\
 `A blaze in Spain’s southern Andalusia region left several people dead and nearly two dozen missing. Many of the victims were foreigners, the Spanish authorities said.`\
 https://www.nytimes.com/video/world/europe/100000011023383/spain-wildfire-deaths-andalusia.html
-
-**How Terrorist Groups Are Using A.I. to Gain an Edge in Battle**\
-`A.I. chatbots are not just a propaganda tool for violent extremists but are aiding in bomb construction and attack planning, new research finds.`\
-https://www.nytimes.com/2026/07/10/us/politics/ai-terrorism-boko-haram-nigeria.html
 
