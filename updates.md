@@ -1,3 +1,35 @@
+**Meta Ordered by E.U. to Alter ‘Addictive Design’ of Instagram and Facebook**\
+`European Union authorities said the company’s use of “addictive design” violated a digital safety law.`\
+https://www.nytimes.com/2026/07/10/business/meta-instagram-facebook-europe.html
+
+**Cuba Under Siege**\
+`Amid the worst fuel shortage and humanitarian crisis Cuba has endured in decades, one man living in its capital discusses a typical day.`\
+https://www.nytimes.com/2026/07/10/podcasts/the-daily/cuba-oil-blockade-humanitarian-crisis.html
+
+**How Trump Is Trying to Tip the Scales for the Midterms, and Why Grocery Stores Are Scrambling**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/10/podcasts/the-headlines/trump-midterms-grocery-store-prices.html
+
+**NYT Connections Answers for July 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/10/crosswords/connections-companion-1126.html
+
+**Today’s Wordle Hints for July 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/10/crosswords/wordle-review-1848.html
+
+**NYT Strands Hints for July 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/10/crosswords/strands-sidekick-860.html
+
+**Top Senate Democratic PAC Stockpiles Record Sum, as Money Chase Heats Up**\
+`Senate Majority PAC says it entered July with $126 million, a new midyear high, after raising $147 million with an affiliated nonprofit from April through June. But can it keep pace with the G.O.P.?`\
+https://www.nytimes.com/2026/07/10/us/politics/senate-majority-pac-democrat-fundraising.html
+
+**How American Socialism Changed, and Stormed the Democratic Party**\
+`The movement was better at critiquing the system than reshaping it. But it has never had this much mainstream political power.`\
+https://www.nytimes.com/2026/07/10/magazine/american-socialism-democratic-party.html
+
 **The Best, Worst and Sexiest Trophies in Sports**\
 `Legendary art critic Jerry Saltz reviews the World Cup — and much more — as sculpture.`\
 https://www.nytimes.com/2026/07/10/podcasts/best-worst-and-sexiest-trophies-sports-world-cup.html
