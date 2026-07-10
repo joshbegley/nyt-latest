@@ -1,3 +1,7 @@
+**Police Investigating Donations to Reform U.K., Reports Say**\
+`The police in London said they had questioned two people as part of an investigation into donations to a political party.`\
+https://www.nytimes.com/2026/07/10/world/europe/reform-uk-farage-cottrell-donation-police.html
+
 **Several People Dead in Southern Spain Wildfire**\
 `A blaze in Spain’s southern Andalusia region left several people dead and nearly two dozen missing. Many of the victims were foreigners, the Spanish authorities said.`\
 https://www.nytimes.com/video/world/europe/100000011023383/spain-wildfire-deaths-andalusia.html

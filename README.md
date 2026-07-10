@@ -1,3 +1,7 @@
+**Trump Says He Won’t Sign Housing Bill, in Protest Over Stalled Voting Measure**\
+`The president did not say he would veto the housing legislation, so it would still become law unless he does. But his pronouncement reflects a growing rift between him and Senate Republicans.`\
+https://www.nytimes.com/2026/07/10/us/politics/trump-housing-bill.html
+
 **Police Investigating Donations to Reform U.K., Reports Say**\
 `The police in London said they had questioned two people as part of an investigation into donations to a political party.`\
 https://www.nytimes.com/2026/07/10/world/europe/reform-uk-farage-cottrell-donation-police.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/climate/fish-farm-microplastics-maha-epa-firi
 **CeCe Winans Revisits Pared-Down Worship Music on ‘The Hymns’**\
 `Best known for contemporary stylings of praise music that topped charts across genres, this singer’s new album of pared-down sacred music, “The Hymns,” put her back atop the gospel charts.`\
 https://www.nytimes.com/2026/07/10/arts/music/cece-winans-the-hymns-gospel-worship.html
-
-**Now Entering Noir City**\
-`Crime and mystery fans can catch a 10-day festival of film noir at the Paris Theater, or find some killer movies streaming on major platforms.`\
-https://www.nytimes.com/2026/07/10/movies/noir-films-paris-theater-festival-streaming.html
 
