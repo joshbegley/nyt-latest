@@ -1,3 +1,15 @@
+**5 European Hotels Where You Can Beat the Heat**\
+`Whether hidden in the mountains or nestled by the sea, these spots offer some respite from the continent’s high temperatures.`\
+https://www.nytimes.com/2026/07/10/t-magazine/europe-hotels-heatwave-cool-travel.html
+
+**ICE detuvo a un antiguo aliado de Pinochet. ¿Será deportado?**\
+`Armando Fernández Larios ayudó a planear un ataque con coche bomba en Washington que mató a dos personas en 1976. Cincuenta años después, antiguos secretos del gobierno podrían decidir su destino.`\
+https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-asesino-detencion-chile.html
+
+**What Is the Quintessential Jay-Z Song?**\
+`Joe Coscarelli argues Jay-Z’s “U Don’t Know” is the best song on “The Blueprint” album — and maybe even the best example of what rap music is.`\
+https://www.nytimes.com/video/podcasts/100000011017931/what-is-the-quintessential-jay-z-song.html
+
 **N.Y.P.D. Inspector Charged with Attempted Rape of a Female Officer**\
 `Inspector Jeremy Scheublin, 45, is accused of trying to sexually assault an officer who worked in his precinct. He pleaded not guilty on Friday.`\
 https://www.nytimes.com/2026/07/10/nyregion/nypd-inspector-sexual-assault.html
@@ -35,7 +47,7 @@ https://www.nytimes.com/2026/07/10/weather/lake-geneva-wisconsin-storm-what-happ
 https://www.nytimes.com/video/us/100000011018989/boat-capsized-wisconsin.html
 
 **Royal Rapprochement: Harry and Meghan Pay a Rare Visit to the King and Queen**\
-`Friday’s visit to King Charles and Queen Camilla signaled a détente in relations with Prince Harry and his wife, who renounced their royal titles and moved to the United States in 2020.`\
+`Friday’s visit to King Charles and Queen Camilla signaled a détente in relations with Prince Harry and his wife, who stepped down from royal duties and moved to the United States in 2020.`\
 https://www.nytimes.com/2026/07/10/world/europe/harry-meghan-visit-charles-camilla.html
 
 **SK Hynix Stock Rises on First Day of US Trading**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/opinion/democrats-platner-maine-midterms.html
 **Witnesses of ICE Killing in Houston Dispute the Official Account**\
 `The agency said a Mexican immigrant driving a van tried to ram agents before they shot him dead. A lawyer for three passengers said that was untrue.`\
 https://www.nytimes.com/2026/07/10/us/houston-ice-shooting-witnesses.html
-
-**Watch Live: Day 5 of Preliminary Hearing for Man Accused of Killing Charlie Kirk**\
-`Watch live coverage of the fifth day of a hearing in Charlie Kirk’s murder case in Utah, where prosecutors lay out their case against Tyler Robinson.`\
-https://www.nytimes.com/video/embedded/us/100000011023681/kirk-robinson-hearing-day5.html
-
-**She Studied Ways to Make People Smarter. Then Her Grant Was Cut.**\
-`Jessica Cantlon had a grant with the U.S. Navy to explore whether people could improve spatial problem-solving skills through training. Then the program was cut.`\
-https://www.nytimes.com/2026/07/10/climate/lost-science-brain-navy-intelligence.html
-
-**A.I. Has Rewarded Investors. It May Now Pose Their Greatest Risk.**\
-`Near the midpoint of the year, stocks and bonds both report good returns. But the global stock market has become highly concentrated, our columnist says.`\
-https://www.nytimes.com/2026/07/10/business/ai-stocks-bonds-investing-markets.html
 
