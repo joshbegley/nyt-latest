@@ -1,3 +1,7 @@
+**Houston Residents Mourn Neighbor Killed by ICE**\
+`Residents of Houston’s Magnolia Park neighborhood set up a memorial on the street where an ICE agent fatally shot Lorenzo Salgado Araujo, who was not the agency’s intended target, officials said.`\
+https://www.nytimes.com/video/us/100000011023142/houston-texas-ice-shooting-memorial.html
+
 **The Beautiful Truth About Helen of Troy**\
 `She was a legendary beauty, but also so much more.`\
 https://www.nytimes.com/2026/07/10/opinion/odyssey-movie-lupita-nyongo-nolan.html
