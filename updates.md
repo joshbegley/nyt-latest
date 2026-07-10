@@ -1,3 +1,7 @@
+**El Air Force One nuevo carece de las medidas defensivas del anterior**\
+`Los expertos dijeron que la falta de estas capacidades supone un riesgo potencial cuando el presidente Trump viaja al extranjero. La Casa Blanca ha defendido la seguridad del avión.`\
+https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/airforce-one-trump-catar.html
+
 **Incendios en España: hay al menos 12 muertos en Andalucía**\
 `Más de 20 personas seguían desaparecidas tras el incendio en Andalucía, uno de los más mortíferos de la historia del país. Muchas de las víctimas eran turistas extranjeros, dijo la policía española.`\
 https://www.nytimes.com/es/2026/07/10/espanol/mundo/incendios-espana-muertos-andalucia.html

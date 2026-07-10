@@ -1,3 +1,11 @@
+**This Is One of the Loneliest Jobs in America**\
+`Times Opinion interviewed dozens of family caregivers across the country to reveal the emotional toll and personal sacrifices at the heart of America‘s elder care crisis.`\
+https://www.nytimes.com/video/opinion/100000011004945/family-caregiver-aging-parents-feed.html
+
+**Farewells to the Platner Campaign**\
+`Readers respond to an editorial about lessons from Graham Platner’s failed Senate campaign. Also: The Smithsonian’s goal.`\
+https://www.nytimes.com/2026/07/10/opinion/graham-platner-campaign.html
+
 **El Air Force One nuevo carece de las medidas defensivas del anterior**\
 `Los expertos dijeron que la falta de estas capacidades supone un riesgo potencial cuando el presidente Trump viaja al extranjero. La Casa Blanca ha defendido la seguridad del avión.`\
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/airforce-one-trump-catar.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/podcasts/the-headlines/the-headlines-news-qui
 **Meta Ordered by E.U. to Alter ‘Addictive Design’ of Instagram and Facebook**\
 `European Union authorities said the company’s use of “addictive design” violated a digital safety law.`\
 https://www.nytimes.com/2026/07/10/business/meta-instagram-facebook-europe.html
-
-**Cuba Under Siege**\
-`Amid the worst fuel shortage and humanitarian crisis Cuba has endured in decades, one man living in its capital discusses a typical day.`\
-https://www.nytimes.com/2026/07/10/podcasts/the-daily/cuba-oil-blockade-humanitarian-crisis.html
-
-**How Trump Is Trying to Tip the Scales for the Midterms, and Why Grocery Stores Are Scrambling**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/07/10/podcasts/the-headlines/trump-midterms-grocery-store-prices.html
 
