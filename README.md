@@ -1,3 +1,7 @@
+**How Volkswagen’s Troubles Were Made in China**\
+`The German auto giant’s push into China powered it for decades, but now the company faces fierce competition from Chinese automakers in markets around the world.`\
+https://www.nytimes.com/2026/07/10/business/volkswagen-china-problems-restructuring.html
+
 **Ticks Are on the Move. Here Are the Risks in Your Region.**\
 `Changing deer populations, rising temperatures and other factors are driving ticks and their diseases into new areas.`\
 https://www.nytimes.com/2026/07/10/well/tick-borne-disease-risks-regions.html
@@ -63,7 +67,7 @@ https://www.nytimes.com/2026/07/10/podcasts/world-cup-quarterfinals-lamine-yamal
 https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
 
 **Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
-`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators seek to salvage the tattered U.S.-Iran truce.`\
+`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators in Iran seek to salvage the tattered truce.`\
 https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
 
 **Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/magazine/american-socialism-democratic-party.
 **After Venezuela Earthquakes, a Struggle to Find Safety**\
 `Around 16,300 people have been displaced after two deadly earthquakes struck Venezuela. The New York Times spoke with the mother of a 10-year-old girl, who has been struggling to find a safe shelter for her family.`\
 https://www.nytimes.com/video/world/americas/100000011010539/venezuela-earthquakes-displaced.html
-
-**There’s Now No Place for Me in America, the Only Country I’ve Ever Known**\
-`Children of authorized visa holders in the United States have few means to remain after they age out of their parents’ work protections.`\
-https://www.nytimes.com/2026/07/10/opinion/immigration-us-citizenship-visa-children.html
 

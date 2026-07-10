@@ -1,3 +1,7 @@
+**Ticks Are on the Move. Here Are the Risks in Your Region.**\
+`Changing deer populations, rising temperatures and other factors are driving ticks and their diseases into new areas.`\
+https://www.nytimes.com/2026/07/10/well/tick-borne-disease-risks-regions.html
+
 **Passenger Is Partly Sucked Through Plane Window but Survives, Reports Say**\
 `A 61-year-old man was being treated for friction burns after a window was damaged during a flight from Greece to Germany. The flight was operated by the Ryanair subsidiary Malta Air.`\
 https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-broken-window.html
