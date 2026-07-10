@@ -1,3 +1,11 @@
+**Historian Kerri K. Greenidge and Her Book ‘The Grimkes’ Come Under Fire**\
+`Kerri K. Greenidge appeared to lose her professorship at Tufts University after scholars began scrutinizing her 2022 book, “The Grimkes,” which is no longer listed on its publisher’s website.`\
+https://www.nytimes.com/2026/07/10/books/kerri-greenidge-the-grimkes.html
+
+**Ten Killed in Plane Crash on the Bahamas’ Largest Island**\
+`The crash occurred as the country celebrated its independence from Britain.`\
+https://www.nytimes.com/2026/07/10/world/americas/bahamas-plane-crash-deaths.html
+
 **Buckling Manhattan High Rise Becomes Focus of Criminal Investigation**\
 `The inquiry, being conducted by the New York City Department of Investigation and the Manhattan district attorney’s office, was in an early stage, and its focus was unclear.`\
 https://www.nytimes.com/2026/07/10/nyregion/nyc-building-conversion-investigation.html
