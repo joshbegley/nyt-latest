@@ -1,3 +1,7 @@
+**Your Cat Is Being Nice? Think Again.**\
+`A new study finds that sometimes cats groom each other specifically to be annoying.`\
+https://www.nytimes.com/2026/07/10/science/cat-grooming-licking-research.html
+
 **Flashback: Your Weekly History Quiz, July 11, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/well/tips-cutting-screen-time.html
 **Top Senate Democratic PAC Stockpiles Record Sum, as Money Chase Heats Up**\
 `Senate Majority PAC says it entered July with $126 million, a new midyear high, after raising $147 million with an affiliated nonprofit from April through June. But can it keep pace with the G.O.P.?`\
 https://www.nytimes.com/2026/07/10/us/politics/senate-majority-pac-democrat-fundraising.html
-
-**La semana laboral de cuatro días sigue siendo una promesa difícil de cumplir**\
-`Mientras elogian la idea de trabajar menos días, muchos líderes exigen cada vez más tiempo y dedicación a sus empleados.`\
-https://www.nytimes.com/es/2026/07/10/espanol/opinion/semana-laboral-cuatro-dias.html
 

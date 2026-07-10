@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, July 11, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
+
+**El migrante abatido por ICE no era la persona que buscaban**\
+`La muerte de Lorenzo Salgado Araujo forma parte de un número cada vez mayor de incidentes violentos en los que se ven involucrados civiles y agentes de inmigración.`\
+https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-houston-inmigrante-mexicano.html
+
 **U.K. Police Open Murder Investigation Into Death of Politician Ann Widdecombe**\
 `Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday, the police said.`\
 https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html

@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, July 11, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
+
+**El migrante abatido por ICE no era la persona que buscaban**\
+`La muerte de Lorenzo Salgado Araujo forma parte de un número cada vez mayor de incidentes violentos en los que se ven involucrados civiles y agentes de inmigración.`\
+https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-houston-inmigrante-mexicano.html
+
 **U.K. Police Open Murder Investigation Into Death of Politician Ann Widdecombe**\
 `Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday, the police said.`\
 https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
@@ -66,13 +74,13 @@ https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-b
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/07/10/movies/new-movies-this-week-critics.html
 
-**Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
-`The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
-https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
-
 **The Work of Helping A.I. Destroy Work**\
 `Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
 https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
+
+**Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
+`The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
+https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
 
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu was leading a literary group that has been divided by its response to the war in Gaza.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/us/politics/senate-majority-pac-democrat-fund
 **La semana laboral de cuatro días sigue siendo una promesa difícil de cumplir**\
 `Mientras elogian la idea de trabajar menos días, muchos líderes exigen cada vez más tiempo y dedicación a sus empleados.`\
 https://www.nytimes.com/es/2026/07/10/espanol/opinion/semana-laboral-cuatro-dias.html
-
-**Can You Make a Bartender Prepare Off-Menu Soft Drinks?**\
-`A ruling on a restaurant etiquette dispute.`\
-https://www.nytimes.com/interactive/2026/07/10/magazine/lemonade-bar-hodgman-quiz.html
-
-**Corrections: July 10, 2026**\
-`Corrections that appeared in print on Friday, July 10, 2026.`\
-https://www.nytimes.com/2026/07/10/pageoneplus/corrections-july-10-2026.html
 
