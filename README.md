@@ -1,3 +1,7 @@
+**U.S. Department of Energy Underestimated Potential Los Alamos Plutonium Leak Danger, Study Finds**\
+`An accident at the lab that produces America’s nuclear bomb cores could lead to more fatalities than previously estimated by the federal government, according to new research.`\
+https://www.nytimes.com/2026/07/10/climate/nuclear-bomb-energy-department-lab.html
+
 **When Norway Gave England a ‘Hell of a Beating’**\
 `A huge soccer upset in 1981 was immortalized by a famous radio call in Norway, directed at Prime Minister Margaret Thatcher.`\
 https://www.nytimes.com/2026/07/10/sports/soccer/world-cup-norway-england-commentary.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/07/10/opinion/executive-power-supreme-court-trump.h
 https://www.nytimes.com/2026/07/10/opinion/democrats-platner-maine-midterms.html
 
 **Witnesses of ICE Killing in Houston Dispute the Official Account**\
-`The agency said a Mexican resident driving a van tried to ram agents before they shot him dead. A lawyer for three passengers said that was untrue.`\
+`The agency said a Mexican immigrant driving a van tried to ram agents before they shot him dead. A lawyer for three passengers said that was untrue.`\
 https://www.nytimes.com/2026/07/10/us/houston-ice-shooting-witnesses.html
 
 **Watch Live: Day 5 of Preliminary Hearing for Man Accused of Killing Charlie Kirk**\
@@ -111,7 +115,7 @@ https://www.nytimes.com/2026/07/10/podcasts/world-cup-quarterfinals-lamine-yamal
 https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
 
 **Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
-`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators in Iran seek to salvage the tattered truce.`\
+`Qatari mediators were in Iran seeking to salvage the tattered truce. President Trump said talks with Tehran would continue, even if the cease-fire was “over.”`\
 https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
 
 **Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/pageoneplus/corrections-july-10-2026.html
 **This Author Says You Shouldn’t Be Intimidated by ‘The Odyssey’**\
 `First, a primer from the author of “Circe,” Madeline Miller. Then, A.O. Scott on all the genres inside the 3,000-year-old poem.`\
 https://www.nytimes.com/2026/07/10/podcasts/madeline-miller-odyssey.html
-
-**Michelle Buteau and the Surprising Transgression of “Survival of the Thickest”**\
-`The Netflix rom-com series that just ended after three seasons succeeded thanks to an irresistible performance by its star, Michelle Buteau.`\
-https://www.nytimes.com/2026/07/10/arts/television/survivial-of-the-thickest-michelle-buteau.html
 
