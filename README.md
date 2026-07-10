@@ -1,3 +1,119 @@
+**The New York Times News Quiz, July 10, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/07/10/briefing/quiz-iran-platner-emmys-nato.html
+
+**Readers Give Tips for Cutting Screen Time**\
+`Readers shared a few ways they’ve managed to stop scrolling.`\
+https://www.nytimes.com/2026/07/10/well/tips-cutting-screen-time.html
+
+**Top Senate Democratic PAC Stockpiles Record Sum, as Money Chase Heats Up**\
+`Senate Majority PAC says it entered July with $126 million, a new midyear high, after raising $147 million with an affiliated nonprofit from April through June. But can it keep pace with the G.O.P.?`\
+https://www.nytimes.com/2026/07/10/us/politics/top-senate-democratic-pac-stockpiles-record-sum-as-money-chase-heats-up.html
+
+**La semana laboral de cuatro días sigue siendo una promesa difícil de cumplir**\
+`Mientras elogian la idea de trabajar menos días, muchos líderes exigen cada vez más tiempo y dedicación a sus empleados.`\
+https://www.nytimes.com/es/2026/07/10/espanol/opinion/semana-laboral-cuatro-dias.html
+
+**Can You Make a Bartender Prepare Off-Menu Soft Drinks?**\
+`A ruling on a restaurant etiquette dispute.`\
+https://www.nytimes.com/interactive/2026/07/10/magazine/lemonade-bar-hodgman-quiz.html
+
+**Corrections: July 10, 2026**\
+`Corrections that appeared in print on Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/10/pageoneplus/corrections-july-10-2026.html
+
+**This Author Says You Shouldn’t Be Intimidated by ‘The Odyssey’**\
+`First, a primer from the author of “Circe,” Madeline Miller. Then, A.O. Scott on all the genres inside the 3,000-year-old poem.`\
+https://www.nytimes.com/2026/07/10/podcasts/madeline-miller-odyssey.html
+
+**Michelle Buteau and the Surprising Transgression of “Survival of the Thickest”**\
+`The Netflix rom-com series that just ended after three seasons succeeded thanks to an irresistible performance by its star, Michelle Buteau.`\
+https://www.nytimes.com/2026/07/10/arts/television/survivial-of-the-thickest-michelle-buteau.html
+
+**You’re Freezing in Your Office Building. Here’s Why.**\
+`Office temperatures are typically set in the low 70s during summer. But where you sit and the efficiency of the cooling system can make you feel colder.`\
+https://www.nytimes.com/2026/07/10/business/cold-offices-air-conditioning.html
+
+**How the World Cup Made Me Norwegian**\
+`At this stage of the competition, switching national loyalties can be as easy as changing jerseys.`\
+https://www.nytimes.com/2026/07/10/magazine/world-cup-diary-norway-nationalism.html
+
+**The Very Good and Very Bad News on Climate**\
+`Advancements in renewable energy are paving the way for a new climate politics. The environmentalist Bill McKibben articulates some of the possibilities in this new era of energy abundance.`\
+https://www.nytimes.com/video/opinion/100000011018052/the-very-good-and-very-bad-news-on-climate.html
+
+**Why Some Women in Maine Are Mourning the End of Graham Platner’s Campaign**\
+`They believe the accuser, but they also grieve the demise of a campaign that promised that politics could be different — and they blame those who failed to find a less flawed candidate.`\
+https://www.nytimes.com/2026/07/10/us/politics/women-maine-graham-platner-campaign.html
+
+**Hotel Workers Hoped the World Cup Would Boost Their Hours. It Didn’t.**\
+`Even as matches have drawn large crowds, hotel bookings have lagged. And workers in host cities say they’re struggling.`\
+https://www.nytimes.com/2026/07/10/business/hotel-workers-world-cup.html
+
+**Book Review: ‘A Vast Horizon,’ by Anna Thomasson**\
+`A group of artists gathered at a hotel on the Côte d’Azur in 1937. A new book by Anna Thomasson captures the art and escapades the holiday inspired.`\
+https://www.nytimes.com/2026/07/10/books/review/a-vast-horizon-anna-thomasson.html
+
+**‘The Chosen’ Studio Is Accused of Shortchanging Crowdfunders**\
+`A lawsuit by a former shareholder says he was not fairly compensated when the company behind the popular drama about Jesus’ life went private.`\
+https://www.nytimes.com/2026/07/10/arts/television/chosen-investors-lawsuit.html
+
+**‘The Ghost in the Shell’ Director Wanted Humans in Charge**\
+`In an interview, Mokochan discusses his new adaptation of the classic cyberpunk manga and why this story continues to resonate.`\
+https://www.nytimes.com/2026/07/10/arts/television/the-ghost-in-the-shell.html
+
+**A Look at a Private Firm That Inspected the Buckling Building**\
+`A New York Times review of city records shows that a private firm that conducted inspections of alterations to a Midtown office tower had repeatedly been accused of breaking city rules.`\
+https://www.nytimes.com/2026/07/10/nyregion/a-look-at-a-private-firm-that-inspected-the-buckling-building.html
+
+**How American Socialism Changed, and Stormed the Democratic Party**\
+`The movement was better at critiquing the system than reshaping it. But it has never had this much mainstream political power.`\
+https://www.nytimes.com/2026/07/10/magazine/how-american-socialism-changed-and-stormed-the-democratic-party.html
+
+**After Venezuela Earthquakes, a Struggle to Find Safety**\
+`Around 16,300 people have been displaced after two deadly earthquakes struck Venezuela. The New York Times spoke with the mother of a 10-year-old girl, who has been struggling to find a safe shelter for her family.`\
+https://www.nytimes.com/video/world/americas/100000011010539/venezuela-earthquakes-displaced.html
+
+**There’s Now No Place for Me in America, the Only Country I’ve Ever Known**\
+`Children of authorized visa holders in the United States have few means to remain after they age out of their parents’ work protections.`\
+https://www.nytimes.com/2026/07/10/opinion/immigration-us-citizenship-visa-children.html
+
+**After Venezuela Earthquakes, a Youth Baseball League Counts the Dead**\
+`Children who played for Venezuela’s youth baseball league, a symbol of national pride, have been left injured, orphaned or dead.`\
+https://www.nytimes.com/2026/07/10/world/americas/venezuela-earthquake-death-baseball-los-criollitos.html
+
+**Pick Your Favorite $1.1 Million Home in London**\
+`A duplex loft in Battersea, an industrial conversion in Wapping, and a two-bedroom mews house in Whitechapel.`\
+https://www.nytimes.com/2026/07/10/realestate/pick-your-favorite-1-1-million-home-in-london.html
+
+**Jerrold Nadler: Penn Station Won’t Fund Itself**\
+`Penn Station needs massive fixes, but the Trump administration is going about it all wrong.`\
+https://www.nytimes.com/2026/07/10/opinion/penn-station-new-york-trump.html
+
+**How to Quiet a Noisy House**\
+`Home inspectors often overlook them, and building codes rarely address them, but a home’s moans and groans can drive you crazy. Here’s how to silence some of the noise.`\
+https://www.nytimes.com/2026/07/10/realestate/house-noise-solutions-foosteps-thin-walls.html
+
+**He Wanted to Track Microplastics in the Sea. The E.P.A. Fired Him.**\
+`The official urged requiring a fish farm to monitor for the tiny plastic particles. The E.P.A. said he had taken steps to embarrass the agency.`\
+https://www.nytimes.com/2026/07/10/climate/fish-farm-microplastics-maha-epa-firing.html
+
+**CeCe Winans Revisits Pared-Down Worship Music on ‘The Hymns’**\
+`Best known for contemporary stylings of praise music that topped charts across genres, this singer’s new album of pared-down sacred music, “The Hymns,” put her back atop the gospel charts.`\
+https://www.nytimes.com/2026/07/10/arts/music/cece-winans-the-hymns-gospel-worship.html
+
+**Now Entering Noir City**\
+`Crime and mystery fans can catch a 10-day festival of film noir at the Paris Theater, or find some killer movies streaming on major platforms.`\
+https://www.nytimes.com/2026/07/10/movies/noir-films-paris-theater-festival-streaming.html
+
+**How Florida’s Dream of Ever-Lower Taxes Flew Too Close to the Sun**\
+`Gov. Ron DeSantis pushed for a proposal to slash property taxes. But after some local Republican officials protested, he backpedaled, sort of.`\
+https://www.nytimes.com/2026/07/10/us/desantis-property-taxes-florida-republicans.html
+
+**How Olivia Wilde Builds Comic Tension in ‘The Invite’**\
+`The director and actress discusses a tense scene from her dinner-party comedy, in which she stars with Seth Rogen, Penélope Cruz and Edward Norton.`\
+https://www.nytimes.com/2026/07/10/movies/the-invite-clip-olivia-wilde.html
+
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include two 2026 animated adventures and the finale to a Guillermo del Toro franchise.`\
 https://www.nytimes.com/2026/07/10/movies/kids-movies-streaming-now.html
@@ -81,120 +197,4 @@ https://www.nytimes.com/2026/07/10/world/asia/china-space-reusable-rocket-launch
 **Que la ‘Odisea’ se convierta en tu próxima lectura**\
 `La epopeya más famosa del mundo tiene algo que ofrecer a cada lector.`\
 https://www.nytimes.com/es/2026/07/10/espanol/cultura/la-odisea.html
-
-**Rusia capturó Chernóbil. Las cámaras del bosque siguieron filmando**\
-`La región radiactiva en Ucrania se ha convertido en un refugio para la fauna silvestre. Un estudio registró los efectos de la ocupación rusa de 2022 sobre los animales del territorio.`\
-https://www.nytimes.com/es/2026/07/10/espanol/ciencia-y-tecnologia/rusia-chernobil-camaras-videos-animales.html
-
-**Contaminated Food, Unwashed Hands: Inside an ICE Detention Facility**\
-`Detainees at the Delaney Hall center in Newark have complained for months about dirty, unhealthy living conditions. Documents echo their claims.`\
-https://www.nytimes.com/2026/07/10/nyregion/delaney-hall-ice-conditions-unsanitary.html
-
-**NYT Spelling Bee Answers for July 10, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/10/crosswords/spelling-bee-forum.html
-
-**Houston Residents Mourn Neighbor Killed by ICE**\
-`Residents of Houston’s Magnolia Park neighborhood set up a memorial on the street where an ICE agent fatally shot Lorenzo Salgado Araujo, who was not the agency’s intended target, officials said.`\
-https://www.nytimes.com/video/us/100000011023142/houston-texas-ice-shooting-memorial.html
-
-**Indian Diaspora, Now the Largest Foreign-Born Group in Australia, Welcomes Modi**\
-`A large, festive reception for the Indian prime minister in Melbourne belied tensions over migration in the country.`\
-https://www.nytimes.com/2026/07/10/world/asia/australia-modi-india-diaspora.html
-
-**Ronny Chieng Tackles Trump's Two Air Force Ones**\
-`“Is that why there’s no gas in the world anymore? Because the president flies with an extra emotional support plane?” Chieng said on “The Daily Show.”`\
-https://www.nytimes.com/2026/07/10/arts/television/ronny-chieng-trump-air-force-one.html
-
-**The Beautiful Truth About Helen of Troy**\
-`She was a legendary beauty, but also so much more.`\
-https://www.nytimes.com/2026/07/10/opinion/odyssey-movie-lupita-nyongo-nolan.html
-
-**The World’s Superpowers Are Scrambling for an Edge. It Makes All of Us Less Safe.**\
-`There’s a way for nations to avoid endless trade wars.`\
-https://www.nytimes.com/2026/07/10/opinion/trade-war-economy-globalization.html
-
-**Which Jay-Z Album Is Better? ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
-`Watch the full debate here.`\
-https://www.nytimes.com/video/podcasts/100000011017923/which-jay-z-album-is-better-reasonable-doubt-vs-the-blueprint.html
-
-**12 People Die in Southern Spain Wildfire**\
-`The blaze in Andalusia prompted a major containment operation. Heat waves across Europe this summer have raised the risk of such fires, forecasters say.`\
-https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
-
-**Trump Administration Fires Members of Independent Election Group**\
-`The firings and a resignation render the Election Assistance Commission useless. The moves come as President Trump seeks to impose control over how ballots will be counted in the midterms.`\
-https://www.nytimes.com/2026/07/10/us/politics/trump-fires-election-assistance-commission-members.html
-
-**Meet Neil, Australia’s Celebrity Seal**\
-`The young elephant seal has gained fans around the world. But the authorities warn he could be in danger of being loved to death.`\
-https://www.nytimes.com/2026/07/10/world/australia/neil-seal-australia-tasmania.html
-
-**Seal’s Mischievous Antics Draws Crowds and Caution**\
-`Neil the seal has smashed fences and lounged in the middle of the road, drawing crowds of adoring fans. Wildlife experts warn that too much popularity can be dangerous.`\
-https://www.nytimes.com/video/world/australia/100000011020930/neil-seal-australia.html
-
-**Los ataques de Irán corren el riesgo de reavivar la guerra a gran escala con EE. UU.**\
-`La historia de Irán muestra que el régimen del país ha estado dispuesto a atacar y prolongar conflictos, incluso cuando eso pueda implicar derrotas importantes.`\
-https://www.nytimes.com/es/2026/07/10/espanol/mundo/iran-trump-ataques-estrecho-ormuz.html
-
-**Quote of the Day: The Man Who Cried ‘Goooooooooal’**\
-`Quotation of the Day for Friday, July 10, 2026.`\
-https://www.nytimes.com/2026/07/10/pageoneplus/quote-of-the-day-the-man-who-cried-goooooooooal.html
-
-**Through Sickness, They Remained ‘Healthy With Each Other’**\
-`Ron Zofnat and Trevor Jacobson dated for three months before Zofnat was diagnosed with cancer. They then embarked on a “dual track” life.`\
-https://www.nytimes.com/2026/07/10/style/ron-zofnat-trevor-jacobson-wedding.html
-
-**He Annoyed Me, Which Is Exactly What I Needed in a Man**\
-`My anxiety made it too hard to date. Then I met a perfectly irritating guy on Bumble.`\
-https://www.nytimes.com/2026/07/10/style/modern-love-he-annoyed-me-which-is-exactly-what-i-needed.html
-
-**Love and Hockey Kept Them Moving, Often Together**\
-`Lane Radovan and Nate Clurman, a professional hockey player, first met as high school freshmen in 2013, but didn’t become official until 2019.`\
-https://www.nytimes.com/2026/07/10/style/lane-radovan-nate-clurman-wedding.html
-
-**A Rough Introduction, a Fast Friendship and One Very Cozy Cat**\
-`Jonathan Samuel Masci was a bit standoffish during his first encounter with Nadia Tiffany Gakou, but their relationship flourished when he finally understood the assignment.`\
-https://www.nytimes.com/2026/07/10/style/nadia-gakou-jonathan-masci-wedding.html
-
-**A Wedding That Recaptured Their Carefree Camp Days**\
-`Jackie Miller and Matt Hochberg were born in the same hospital and attended the same preschool, but first met as teens at summer camp.`\
-https://www.nytimes.com/2026/07/10/style/jackie-miller-matt-hochberg-wedding.html
-
-**What Graham Platner’s Implosion Reveals About the Democratic Party**\
-`Lisa Lerer, a New York Times national political correspondent, explains how recent allegations against the Senate candidate Graham Platner and his subsequent withdrawal from Maine’s primary race have reignited a longstanding conflict between the progressive and establishment wings of the Democratic Party.`\
-https://www.nytimes.com/video/us/politics/100000011019093/what-graham-platners-implosion-reveals-about-the-democratic-party.html
-
-**Man Charged in National Guard Shooting Is Hospitalized for Refusing Food**\
-`The “dire” condition of the suspect, who has pleaded not guilty to murder and other charges, was “self-inflicted,” a judge said.`\
-https://www.nytimes.com/2026/07/09/us/lakanwal-national-guard-shooting-refuse-eat.html
-
-**Esta estrella se tragó a un planeta y eso fue apenas el aperitivo**\
-`El planeta engullido a 1300 años luz de distancia pudo haber sido lanzado hacia la estrella por su vecina, una enana marrón que los científicos creen que también será devorada.`\
-https://www.nytimes.com/es/2026/07/09/espanol/ciencia-y-tecnologia/planeta-estrella-engullimiento-planetario.html
-
-**NYT Crossword Answers for July 10, 2026**\
-`Willa Angel Chen Miller returns to open our solving weekend.`\
-https://www.nytimes.com/2026/07/09/crosswords/daily-puzzle-2026-07-10.html
-
-**What We Know About the ICE Shooting of Lorenzo Salgado Araujo**\
-`Mr. Araujo was a father, a husband and a business owner who had moved to the United States 35 years ago from Mexico.`\
-https://www.nytimes.com/2026/07/09/us/houston-ice-shooting-lorenzo-salgado-araujo.html
-
-**The U.S. and Iran Are Fighting Again. Is the Cease-Fire Over?**\
-`Eric Schmitt, a New York Times National Security correspondent, analyzes recent skirmishes between the U.S. and Iran and whether they threaten ongoing negotiations for a peace deal.`\
-https://www.nytimes.com/video/us/politics/100000011019171/the-us-and-iran-are-fighting-again-is-the-cease-fire-over.html
-
-**Bombing Iran, Then a Tentative Accord Didn’t Work. Does Trump Have a Plan C?**\
-`The administration appears to be reverting to an all-stick, no-carrot approach. But it has yet to answer why it believes economic warfare and bombing will yield a different result this time.`\
-https://www.nytimes.com/2026/07/09/us/politics/trump-iran-war.html
-
-**New Air Force One Lacks Defensive Countermeasures of Previous Model, Officials Say**\
-`Experts said the lack of such capabilities poses a potential risk when the president travels overseas. The White House defended the aircraft’s safety.`\
-https://www.nytimes.com/2026/07/09/us/politics/new-air-force-one-defensive-countermeasures.html
-
-**A Top OpenAI Executive, Fidji Simo, Steps Down**\
-`Ms. Simo, who was Sam Altman’s second in command before taking a medical leave in April, will become a part-time adviser to the company.`\
-https://www.nytimes.com/2026/07/09/technology/openai-fidji-simo-exit.html
 

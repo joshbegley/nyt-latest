@@ -1,3 +1,59 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include two 2026 animated adventures and the finale to a Guillermo del Toro franchise.`\
+https://www.nytimes.com/2026/07/10/movies/kids-movies-streaming-now.html
+
+**Word of the Day: querulous**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/10/learning/word-of-the-day-querulous.html
+
+**10 Kids’ Books for Fans of the Magic Tree House Series**\
+`Ten recommendations for fans of Mary Pope Osborne’s time-travel chapter book series.`\
+https://www.nytimes.com/2026/07/10/books/review/magic-tree-house-books-kids.html
+
+**Can Hungarian Holocaust Survivors Find Justice in the U.S.?**\
+`For more than a decade, a group of survivors have fought a legal battle to get American courts to hear their suit against Hungary’s national railroad over its role in the atrocities.`\
+https://www.nytimes.com/2026/07/10/world/europe/hungarian-holocaust-us-lawsuit.html
+
+**The Message From Barcelona’s New Sustainable Tourism Leader: ‘Not One Tourist More.’**\
+`As the commissioner for sustainable tourism, José Antonio Donaire’s job is to diminish the impact of the nearly 16 million annual visitors to the Catalan capital. Here’s what he’s planning.`\
+https://www.nytimes.com/2026/07/10/travel/barcelona-overtourism-jose-antonio-donaire.html
+
+**Overlooked No More: Garrincha, Brazil’s Brilliant and Broken World Cup Hero**\
+`He helped lead Brazil to two championships alongside Pelé, but his on-field brilliance was eclipsed by a tragic personal life.`\
+https://www.nytimes.com/2026/07/10/obituaries/garrincha-overlooked.html
+
+**Fighting Fires With Figures, These Experts Are Trying to Stop Europe from Burning**\
+`A team of engineers, foresters and scientists is helping the continent prepare for wildfires from a giant science park in Italy. Their arsenal includes satellites, weather models and expert analysis.`\
+https://www.nytimes.com/2026/07/10/world/europe/fire-climate-change-heat-wave-global-warming.html
+
+**Nine Years Later, They’re Still Restoring a House Bought at Auction**\
+`First-time buyers from the Bay Area won an abandoned house at a Kingston, N.Y. tax auction. Eight years later, they’re still restoring it.`\
+https://www.nytimes.com/2026/07/10/realestate/disaster-mansion-renovation-kingston-ny.html
+
+**An Insider’s Guide to 6 of Vienna’s Splendid Public Pools**\
+`Whether you’re looking to do laps in the pool or lounge in the shade beneath towering lindens, these swimming spots are a perfect way to beat the summer heat.`\
+https://www.nytimes.com/2026/07/10/travel/vienna-public-pools.html
+
+**Inside a Theater Sheltering Families in Lebanon**\
+`Our reporter Christina Goldbaum visits the Lebanese National Theater in Beirut to meet displaced families who have been sheltering there during the war.`\
+https://www.nytimes.com/video/world/100000010937075/inside-a-theater-sheltering-families-in-lebanon.html
+
+**From A.I. to the Deep State, Michel Foucault Foresaw It All**\
+`One hundred years after his birth, the French philosopher remains hugely influential, both revered and reviled for ideas that eerily anticipated our day.`\
+https://www.nytimes.com/2026/07/10/books/review/michel-foucault-ai-tech-power.html
+
+**In the Pathologic Game Series, Failure Is Inevitable**\
+`In the psychological horror series Pathologic, eerie theatrics and impossible decisions unfold in a Russian town overrun by plague.`\
+https://www.nytimes.com/2026/07/10/arts/pathologic-horror-video-games.html
+
+**Iran’s Supreme Leader Remains Absent, a Void at the Top of the Regime**\
+`Ayatollah Mojtaba Khamenei did not appear at his father’s funeral this week, fueling speculation about his physical condition and leaving a power vacuum in a divided country.`\
+https://www.nytimes.com/2026/07/10/world/middleeast/iran-supreme-leader-mojtaba-khamenei.html
+
+**Bayeux Tapestry Arrives in U.K. After Maximum-Security Operation**\
+`The 11th-century tapestry will go on display at the British Museum in September. Tickets for the exhibition have already been selling rapidly.`\
+https://www.nytimes.com/2026/07/10/arts/design/bayeux-tapestry-british-museum.html
+
 **How Olivia Wilde Directed an Awkward Dance in ‘The Invite’**\
 `The director and actress Olivia Wilde breaks down a tension-filled scene from her new film “The Invite” for Anatomy of a Scene.`\
 https://www.nytimes.com/video/movies/100000010974506/the-invite-scene-olivia-wilde.html

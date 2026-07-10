@@ -1,3 +1,59 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include two 2026 animated adventures and the finale to a Guillermo del Toro franchise.`\
+https://www.nytimes.com/2026/07/10/movies/kids-movies-streaming-now.html
+
+**Word of the Day: querulous**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/10/learning/word-of-the-day-querulous.html
+
+**10 Kids’ Books for Fans of the Magic Tree House Series**\
+`Ten recommendations for fans of Mary Pope Osborne’s time-travel chapter book series.`\
+https://www.nytimes.com/2026/07/10/books/review/magic-tree-house-books-kids.html
+
+**Can Hungarian Holocaust Survivors Find Justice in the U.S.?**\
+`For more than a decade, a group of survivors have fought a legal battle to get American courts to hear their suit against Hungary’s national railroad over its role in the atrocities.`\
+https://www.nytimes.com/2026/07/10/world/europe/hungarian-holocaust-us-lawsuit.html
+
+**The Message From Barcelona’s New Sustainable Tourism Leader: ‘Not One Tourist More.’**\
+`As the commissioner for sustainable tourism, José Antonio Donaire’s job is to diminish the impact of the nearly 16 million annual visitors to the Catalan capital. Here’s what he’s planning.`\
+https://www.nytimes.com/2026/07/10/travel/barcelona-overtourism-jose-antonio-donaire.html
+
+**Overlooked No More: Garrincha, Brazil’s Brilliant and Broken World Cup Hero**\
+`He helped lead Brazil to two championships alongside Pelé, but his on-field brilliance was eclipsed by a tragic personal life.`\
+https://www.nytimes.com/2026/07/10/obituaries/garrincha-overlooked.html
+
+**Fighting Fires With Figures, These Experts Are Trying to Stop Europe from Burning**\
+`A team of engineers, foresters and scientists is helping the continent prepare for wildfires from a giant science park in Italy. Their arsenal includes satellites, weather models and expert analysis.`\
+https://www.nytimes.com/2026/07/10/world/europe/fire-climate-change-heat-wave-global-warming.html
+
+**Nine Years Later, They’re Still Restoring a House Bought at Auction**\
+`First-time buyers from the Bay Area won an abandoned house at a Kingston, N.Y. tax auction. Eight years later, they’re still restoring it.`\
+https://www.nytimes.com/2026/07/10/realestate/disaster-mansion-renovation-kingston-ny.html
+
+**An Insider’s Guide to 6 of Vienna’s Splendid Public Pools**\
+`Whether you’re looking to do laps in the pool or lounge in the shade beneath towering lindens, these swimming spots are a perfect way to beat the summer heat.`\
+https://www.nytimes.com/2026/07/10/travel/vienna-public-pools.html
+
+**Inside a Theater Sheltering Families in Lebanon**\
+`Our reporter Christina Goldbaum visits the Lebanese National Theater in Beirut to meet displaced families who have been sheltering there during the war.`\
+https://www.nytimes.com/video/world/100000010937075/inside-a-theater-sheltering-families-in-lebanon.html
+
+**From A.I. to the Deep State, Michel Foucault Foresaw It All**\
+`One hundred years after his birth, the French philosopher remains hugely influential, both revered and reviled for ideas that eerily anticipated our day.`\
+https://www.nytimes.com/2026/07/10/books/review/michel-foucault-ai-tech-power.html
+
+**In the Pathologic Game Series, Failure Is Inevitable**\
+`In the psychological horror series Pathologic, eerie theatrics and impossible decisions unfold in a Russian town overrun by plague.`\
+https://www.nytimes.com/2026/07/10/arts/pathologic-horror-video-games.html
+
+**Iran’s Supreme Leader Remains Absent, a Void at the Top of the Regime**\
+`Ayatollah Mojtaba Khamenei did not appear at his father’s funeral this week, fueling speculation about his physical condition and leaving a power vacuum in a divided country.`\
+https://www.nytimes.com/2026/07/10/world/middleeast/iran-supreme-leader-mojtaba-khamenei.html
+
+**Bayeux Tapestry Arrives in U.K. After Maximum-Security Operation**\
+`The 11th-century tapestry will go on display at the British Museum in September. Tickets for the exhibition have already been selling rapidly.`\
+https://www.nytimes.com/2026/07/10/arts/design/bayeux-tapestry-british-museum.html
+
 **How Olivia Wilde Directed an Awkward Dance in ‘The Invite’**\
 `The director and actress Olivia Wilde breaks down a tension-filled scene from her new film “The Invite” for Anatomy of a Scene.`\
 https://www.nytimes.com/video/movies/100000010974506/the-invite-scene-olivia-wilde.html
@@ -141,60 +197,4 @@ https://www.nytimes.com/2026/07/09/us/politics/new-air-force-one-defensive-count
 **A Top OpenAI Executive, Fidji Simo, Steps Down**\
 `Ms. Simo, who was Sam Altman’s second in command before taking a medical leave in April, will become a part-time adviser to the company.`\
 https://www.nytimes.com/2026/07/09/technology/openai-fidji-simo-exit.html
-
-**‘This One Is Going in the Forever Rotation’**\
-`That’s a reader describing this tomato and cottage cheese salad, a protein-packed take on a favorite bagel sandwich.`\
-https://www.nytimes.com/2026/07/09/dining/this-one-is-going-in-the-forever-rotation.html
-
-**Mexican Man Fatally Shot by ICE Wasn’t the Intended Target**\
-`Officials say agents believed a passenger resembled one suspect, but the encounter quickly escalated into a fatal shooting.`\
-https://www.nytimes.com/2026/07/09/us/witnesses-houston-ice-shooting.html
-
-**Iranian Attacks on Jordan Highlight Kingdom’s Difficult Position**\
-`Iran’s military said it fired missiles at a Jordanian air base used by American forces. Jordan said it had intercepted missiles entering its air space.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/jordan-iran-missiles.html
-
-**Bonnie Tyler, Singer of ‘Total Eclipse of the Heart,’ Dies at Age 75**\
-`The pop singer Bonnie Tyler, known for her ’80s hits like “Total Eclipse of the Heart” and “Holding Out for a Hero,” died in a hospital in Portugal from an illness on Wednesday, according to her official Facebook account.`\
-https://www.nytimes.com/video/obituaries/100000011021509/bonnie-tyler-singer-dead.html
-
-**N.Y.C. Council Speaker Turns Up Pressure on Schools Chief Over Contracts**\
-`Julie Menin, the speaker, said she had been given excuses for why contracts had not been provided. The mayor’s office called her request “extremely laborious.”`\
-https://www.nytimes.com/2026/07/09/nyregion/nyc-doe-contracts-schools.html
-
-**Officer Charged in Deaths of Police Dogs After Leaving Them in S.U.V. for Hours**\
-`A 4-year-old Belgian Malinois and a 6-year-old springer spaniel were left alone in May for seven hours without relief from the heat, according to prosecutors in South Jersey.`\
-https://www.nytimes.com/2026/07/09/nyregion/nj-k-9-police-dog-deaths.html
-
-**New York Sues Companies Over ‘Forever Chemicals’**\
-`The lawsuit claims that the companies, including 3M and DuPont, contaminated the environment and engaged in fraud by withholding information from the public about the harms of the chemicals, known as PFAS.`\
-https://www.nytimes.com/2026/07/09/nyregion/ny-pfas-lawsuit-3m-dupont.html
-
-**Is Trump Following Viktor Orban’s Playbook?**\
-`Will Trump ultimately come to the same grief as Viktor Orban? On “Interesting Times,” columnist Ross Douthat asks writer Rod Dreher about the parallels between America and Hungary under Orban’s former regime.`\
-https://www.nytimes.com/video/opinion/100000011008046/is-trump-following-viktor-orbans-playbook.html
-
-**Prosecutors Show New Evidence in Charlie Kirk Case**\
-`Also, China and Russia seek to inflame the data center debate. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/07/09/briefing/charlie-kirk-case-maine-democrats.html
-
-**Palm Beach Airport in Florida Is Renamed for Trump**\
-`The name change, approved earlier this year, took effect on Thursday, the Federal Aviation Administration said. New signage with President Trump’s name is expected roll out in the coming weeks.`\
-https://www.nytimes.com/2026/07/09/us/politics/donald-trump-palm-beach-airport.html
-
-**When ‘Hero’ Doesn’t Mean What You Think It Does**\
-`It’s time for a crash course in “The Odyssey,” before Christopher Nolan’s new adaptation hits theaters. The classicist and author Madeline Miller explains how this 3,000-year-old poem keeps getting reinvented, and why Odysseus is so compelling — and so flawed. Video by Amy Pearl and Patricia Sulbarán/The New York Times.`\
-https://www.nytimes.com/video/podcasts/100000011021515/when-hero-doesnt-mean-what-you-think-it-does.html
-
-**As Workers Shore Up Midtown Building, Developer Reassures Investors**\
-`Crews installed “temporary shoring” on more floors in the building, and the developer of the project has reassured investors that the project will be completed on time.`\
-https://www.nytimes.com/2026/07/09/nyregion/midtown-building-pfizer-emergency.html
-
-**In Boston, Fans With Roots Across a Continent Turned Out for Morocco**\
-`While Morocco did not advance to the semifinals, a large, diverse African diaspora in New England took pride in the team, which they adopted as their own.`\
-https://www.nytimes.com/2026/07/09/us/world-cup-morocco-african-fans.html
-
-**Are We Living Under Therapeutic Totalitarianism?**\
-`We’re in an age of “therapeutic totalitarianism,” the writer Rod Dreher argues, “where they give you everything you want, all the drugs, the porn, the sex, the entertainment.” All that’s required in return? “You just have to surrender your humanity,” he says on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000011022081/are-we-living-under-therapeutic-totalitarianism.html
 
