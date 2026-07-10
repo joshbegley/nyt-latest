@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 10, 2026**\
+`Willa Angel Chen Miller returns to open our solving weekend.`\
+https://www.nytimes.com/2026/07/09/crosswords/daily-puzzle-2026-07-10.html
+
 **What We Know About the ICE Shooting of Lorenzo Salgado Araujo**\
 `Mr. Araujo was a father, a husband and a business owner who had moved to the United States 35 years ago from Mexico.`\
 https://www.nytimes.com/2026/07/09/us/houston-ice-shooting-lorenzo-salgado-araujo.html
