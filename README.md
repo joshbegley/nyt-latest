@@ -1,3 +1,7 @@
+**Two Days of U.S. Strikes in Iran Signal a Sharp Escalation**\
+`U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
+https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
+
 **My Wedding Gift Broke. How Can I Replace It?**\
 `We help a reader track down an unusual, decades-old wineglass.`\
 https://www.nytimes.com/2026/07/10/t-magazine/joe-colombo-glass-design.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/arts/television/survivial-of-the-thickest-mic
 **You’re Freezing in Your Office Building. Here’s Why.**\
 `Office temperatures are typically set in the low 70s during summer. But where you sit and the efficiency of the cooling system can make you feel colder.`\
 https://www.nytimes.com/2026/07/10/business/cold-offices-air-conditioning.html
-
-**How the World Cup Made Me Norwegian**\
-`At this stage of the competition, switching national loyalties can be as easy as changing jerseys.`\
-https://www.nytimes.com/2026/07/10/magazine/world-cup-diary-norway-nationalism.html
 
