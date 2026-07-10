@@ -1,3 +1,7 @@
+**Trump Cuts Habitat Protections for Endangered Species**\
+`The move ends a safeguard that had been in place for 50 years and could open up crucial habitats to drilling and mining.`\
+https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
+
 **SK Hynix Stock Rises on First Day of US Trading**\
 `SK Hynix began trading at $170 a share, above its initial public offering price of $149, in the latest test of investor demand for A.I.-related companies.`\
 https://www.nytimes.com/2026/07/10/business/sk-hynix-stock.html
