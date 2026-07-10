@@ -1,3 +1,7 @@
+**Ronny Chieng Tackles Trump's Two Air Force Ones**\
+`“Is that why there’s no gas in the world anymore? Because the president flies with an extra emotional support plane?” Chieng said on “The Daily Show.”`\
+https://www.nytimes.com/2026/07/10/arts/television/ronny-chieng-trump-air-force-one.html
+
 **Helen of Troy Is Up to Her Old Tricks**\
 `She was a legendary beauty, but also so much more.`\
 https://www.nytimes.com/2026/07/10/opinion/odyssey-movie-lupita-nyongo-nolan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011022646/favorite-song-on-olivia-r
 **Joseph Fraumeni, 93, Dies; Helped Discover Genetic Link to Cancer**\
 `Considered the founder of molecular epidemiology, he worked with Frederick P. Li to identify a hereditary disorder that increased the risk of developing cancer at a young age.`\
 https://www.nytimes.com/2026/07/09/science/joseph-fraumeni-dead.html
-
-**The Iranians Who Prefer War**\
-`The latest escalation of hostilities over the Strait of Hormuz is empowering Iranian hard-liners`\
-https://www.nytimes.com/2026/07/09/world/iran-war-hardliners-hormuz-funeral.html
 

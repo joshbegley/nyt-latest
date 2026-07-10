@@ -1,3 +1,7 @@
+**Ronny Chieng Tackles Trump's Two Air Force Ones**\
+`“Is that why there’s no gas in the world anymore? Because the president flies with an extra emotional support plane?” Chieng said on “The Daily Show.”`\
+https://www.nytimes.com/2026/07/10/arts/television/ronny-chieng-trump-air-force-one.html
+
 **Helen of Troy Is Up to Her Old Tricks**\
 `She was a legendary beauty, but also so much more.`\
 https://www.nytimes.com/2026/07/10/opinion/odyssey-movie-lupita-nyongo-nolan.html
