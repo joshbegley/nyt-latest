@@ -1,3 +1,15 @@
+**Maine Democrats Eyeing Late July Convention to Pick Platner Replacement**\
+`With plans still being finalized, officials are discussing a convention some time during the weekend of July 25-26 and are weighing options for choosing delegates.`\
+https://www.nytimes.com/2026/07/10/us/maine-democrats-platner-replacement-convention.html
+
+**ICE Killing in Houston Puts Focus on Surge in Immigration Arrests**\
+`The shooting death of Lorenzo Salgado Araujo occurred as immigration enforcement has ramped up across the country, with thousands being arrested daily.`\
+https://www.nytimes.com/2026/07/10/us/ice-immigration-arrests-surge.html
+
+**Millions of Eye Drop Bottles Recalled Over Contamination Concerns**\
+`The prescription drops are used to reduce inflammation after surgery or to treat irritation.`\
+https://www.nytimes.com/2026/07/10/well/eye-drop-recall-prednisolone-fda.html
+
 **Trump Cuts Habitat Protections for Endangered Species**\
 `The rule change ends a safeguard that had been in place for 50 years and could hasten the demise of imperiled animals.`\
 https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
