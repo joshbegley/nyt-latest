@@ -1,3 +1,7 @@
+**Que la ‘Odisea’ se convierta en tu próxima lectura**\
+`La epopeya más famosa del mundo tiene algo que ofrecer a cada lector.`\
+https://www.nytimes.com/es/2026/07/10/espanol/cultura/la-odisea.html
+
 **Rusia capturó Chernóbil. Las cámaras del bosque siguieron filmando**\
 `La región radiactiva en Ucrania se ha convertido en un refugio para la fauna silvestre. Un estudio registró los efectos de la ocupación rusa de 2022 sobre los animales del territorio.`\
 https://www.nytimes.com/es/2026/07/10/espanol/ciencia-y-tecnologia/rusia-chernobil-camaras-videos-animales.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/science/nobel-winning-us-chemist-will-move-to
 **Albanian Leader Rejects Complaints About Kanye West Concert**\
 `Prime Minister Edi Rama is under fire over a proposed resort with Trump ties, and a planned concert by the controversial musician known as Ye. In both cases, he cites the need for tourism.`\
 https://www.nytimes.com/2026/07/09/world/europe/albania-kanye-west-concert.html
-
-**John Deere Farm Equipment Owners Have Right-to-Repair, F.T.C. Says**\
-`A settlement by the company with the Federal Trade Commission will allow farmers and local mechanics to make their own fixes, instead of relying on authorized dealers.`\
-https://www.nytimes.com/2026/07/09/business/john-deere-ftc-right-to-repair.html
 
