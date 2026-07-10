@@ -1,3 +1,7 @@
+**Esta estrella se tragó a un planeta y eso fue apenas el aperitivo**\
+`El planeta engullido a 1300 años luz de distancia pudo haber sido lanzado hacia la estrella por su vecina, una enana marrón que los científicos creen que también será devorada.`\
+https://www.nytimes.com/es/2026/07/09/espanol/ciencia-y-tecnologia/planeta-estrella-engullimiento-planetario.html
+
 **NYT Crossword Answers for July 10, 2026**\
 `Willa Angel Chen Miller returns to open our solving weekend.`\
 https://www.nytimes.com/2026/07/09/crosswords/daily-puzzle-2026-07-10.html
