@@ -1,3 +1,11 @@
+**Helen of Troy Is Up to Her Old Tricks**\
+`She was a legendary beauty, but also so much more.`\
+https://www.nytimes.com/2026/07/10/opinion/odyssey-movie-lupita-nyongo-nolan.html
+
+**The World’s Superpowers Are Scrambling for an Edge. It Makes All of Us Less Safe.**\
+`There’s a way for nations to avoid endless trade wars.`\
+https://www.nytimes.com/2026/07/10/opinion/trade-war-economy-globalization.html
+
 **Which Jay-Z Album Is Better? ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
 `Watch the full debate here.`\
 https://www.nytimes.com/video/podcasts/100000011017923/which-jay-z-album-is-better-reasonable-doubt-vs-the-blueprint.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/09/science/joseph-fraumeni-dead.html
 **The Iranians Who Prefer War**\
 `The latest escalation of hostilities over the Strait of Hormuz is empowering Iranian hard-liners`\
 https://www.nytimes.com/2026/07/09/world/iran-war-hardliners-hormuz-funeral.html
-
-**Redacted Interview With Roommate of Charlie Kirk Killing Suspect Played in Court**\
-`Lance Twiggs, Tyler Robinson’s former roommate, was interviewed by a prosecutor in April. Clips from the interview were played in a Utah court on Thursday.`\
-https://www.nytimes.com/video/us/100000011021514/kirk-hearing-twiggs-robinson-interview.html
-
-**Olivia Rodrigo’s New Album “Is a Vibe”**\
-`Caryn Ganz, a pop music journalist, talks about Olivia Rodrigo’s approach to music with Wesley Morris on “Cannonball.”`\
-https://www.nytimes.com/video/podcasts/100000011016503/olivia-rodrigos-new-album-is-a-vibe.html
 

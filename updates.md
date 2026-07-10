@@ -1,3 +1,11 @@
+**Helen of Troy Is Up to Her Old Tricks**\
+`She was a legendary beauty, but also so much more.`\
+https://www.nytimes.com/2026/07/10/opinion/odyssey-movie-lupita-nyongo-nolan.html
+
+**The World’s Superpowers Are Scrambling for an Edge. It Makes All of Us Less Safe.**\
+`There’s a way for nations to avoid endless trade wars.`\
+https://www.nytimes.com/2026/07/10/opinion/trade-war-economy-globalization.html
+
 **Which Jay-Z Album Is Better? ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
 `Watch the full debate here.`\
 https://www.nytimes.com/video/podcasts/100000011017923/which-jay-z-album-is-better-reasonable-doubt-vs-the-blueprint.html
