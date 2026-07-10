@@ -1,3 +1,7 @@
+**D.S.A. Members Blast Mamdani Adviser for Elevating Graham Platner**\
+`A letter circulated by Democratic Socialists of America members asked that candidates sever ties with Morris Katz, a consultant for Mr. Platner and Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/07/10/nyregion/platner-katz-mamdani-dsa.html
+
 **Historian Kerri K. Greenidge and Her Book ‘The Grimkes’ Come Under Fire**\
 `Kerri K. Greenidge appeared to lose her professorship at Tufts University after scholars began scrutinizing her 2022 book, “The Grimkes,” which is no longer listed on its publisher’s website.`\
 https://www.nytimes.com/2026/07/10/books/kerri-greenidge-the-grimkes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/peligro-nuclear-los
 **Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Strait**\
 `Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
 https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
-
-**Democrats Haunted by Biden-Harris Switch as They Replace Platner in Maine**\
-`The last-minute scramble to name a replacement reminds some in the party of the challenges they faced in 2024.`\
-https://www.nytimes.com/2026/07/10/us/platner-replacement-maine-biden-harris.html
 
