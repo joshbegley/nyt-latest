@@ -1,3 +1,11 @@
+**Arrest Made in Connection to Former U.K. Politician’s Murder**\
+`British police on Friday arrested a 26-year-old man on suspicion of murdering Ann Widdecombe, a 78-year-old former right-wing politician.`\
+https://www.nytimes.com/video/world/europe/100000011024339/ann-widdecombe-politician-murder.html
+
+**Mick Jagger Isn’t Sure He Ever Lets the World See the Real Him**\
+`David Marchese speaks with Mick Jagger, the lead singer of the Rolling Stones, about his storied career and the band’s newest album, “Foreign Tongues.”`\
+https://www.nytimes.com/video/podcasts/100000011022052/mick-jagger-isnt-sure-he-ever-lets-the-world-see-the-real-him.html
+
 **As the World Cup Wraps in L.A., the 2028 Olympics Beckon**\
 `Hundreds of thousands of people took public transit to World Cup events in car-crazy Los Angeles, a hopeful sign for officials planning the Summer Games.`\
 https://www.nytimes.com/2026/07/10/us/world-cup-los-angeles-olympics.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/climate/nuclear-bomb-energy-department-lab.ht
 **When Norway Gave England a ‘Hell of a Beating’**\
 `A huge soccer upset in 1981 was immortalized by a famous radio call in Norway, directed at Prime Minister Margaret Thatcher.`\
 https://www.nytimes.com/2026/07/10/sports/soccer/world-cup-norway-england-commentary.html
-
-**Trump Says Negotiations With Iran Will Continue as U.S. Ramps Up Strikes**\
-`U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
-https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
-
-**My Wedding Gift Broke. How Can I Replace It?**\
-`We help a reader track down an unusual, decades-old wineglass.`\
-https://www.nytimes.com/2026/07/10/t-magazine/joe-colombo-glass-design.html
 
