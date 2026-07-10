@@ -1,3 +1,11 @@
+**The Housing Crisis**\
+`Happy Friday. I want to tell you about a rare instance of bipartisan cooperation in Congress.`\
+https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
+
+**Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
+`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators seek to salvage the tattered U.S.-Iran truce.`\
+https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
+
 **Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
 `“If the net result is that all the teens in Australia are still using social media, even after they’re technically banned from doing it, why are we doing any of this?”`\
 https://www.nytimes.com/2026/07/10/podcasts/hardfork-social-media-bans.html

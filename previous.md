@@ -1,3 +1,11 @@
+**The Housing Crisis**\
+`Happy Friday. I want to tell you about a rare instance of bipartisan cooperation in Congress.`\
+https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
+
+**Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
+`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators seek to salvage the tattered U.S.-Iran truce.`\
+https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
+
 **Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
 `“If the net result is that all the teens in Australia are still using social media, even after they’re technically banned from doing it, why are we doing any of this?”`\
 https://www.nytimes.com/2026/07/10/podcasts/hardfork-social-media-bans.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/travel/barcelona-overtourism-jose-antonio-don
 **Overlooked No More: Garrincha, Brazil’s Brilliant and Broken World Cup Hero**\
 `He helped lead Brazil to two championships alongside Pelé, but his on-field brilliance was eclipsed by a tragic personal life.`\
 https://www.nytimes.com/2026/07/10/obituaries/garrincha-overlooked.html
-
-**Fighting Fires With Figures, These Experts Are Trying to Stop Europe from Burning**\
-`A team of engineers, foresters and scientists is helping the continent prepare for wildfires from a giant science park in Italy. Their arsenal includes satellites, weather models and expert analysis.`\
-https://www.nytimes.com/2026/07/10/world/europe/fire-climate-change-heat-wave-global-warming.html
-
-**Nine Years Later, They’re Still Restoring a House Bought at Auction**\
-`First-time buyers from the Bay Area won an abandoned house at a Kingston, N.Y. tax auction. Eight years later, they’re still restoring it.`\
-https://www.nytimes.com/2026/07/10/realestate/disaster-mansion-renovation-kingston-ny.html
 
