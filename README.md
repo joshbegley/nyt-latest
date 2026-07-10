@@ -1,3 +1,11 @@
+**As the World Cup Wraps in L.A., the 2028 Olympics Beckon**\
+`Hundreds of thousands of people took public transit to World Cup events in car-crazy Los Angeles, a hopeful sign for officials planning the Summer Games.`\
+https://www.nytimes.com/2026/07/10/us/world-cup-los-angeles-olympics.html
+
+**Apple Sues OpenAI, Accusing It of Stealing Company Secrets**\
+`The two companies struck a deal in 2024 to offer A.I. services on Apple devices, but their partnership has soured.`\
+https://www.nytimes.com/2026/07/10/technology/apple-openai-lawsuit.html
+
 **Strait of Hormuz Will Soon Be Declared Open to All Traffic, U.S. Officials Say**\
 `The officials said that Iranian negotiators blamed the recent ship attacks on rogue military units.`\
 https://www.nytimes.com/2026/07/10/us/politics/strait-hormuz-safe-passage.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
 **My Wedding Gift Broke. How Can I Replace It?**\
 `We help a reader track down an unusual, decades-old wineglass.`\
 https://www.nytimes.com/2026/07/10/t-magazine/joe-colombo-glass-design.html
-
-**A New Summer Caesar**\
-`And more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/07/10/dining/a-new-summer-caesar.html
-
-**Five Action Movies to Stream Now**\
-`Upgrade your movie night with these picks, featuring karate-chopping families, rogue assassins and more.`\
-https://www.nytimes.com/2026/07/10/movies/five-action-movies-to-stream-now.html
 
