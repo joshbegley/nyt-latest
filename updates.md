@@ -1,3 +1,15 @@
+**How a Deadly Storm Surprised Wisconsin Boaters**\
+`Three children died last weekend when a storm whipped up 80 mile-per-hour winds and large waves on Geneva Lake in Wisconsin.`\
+https://www.nytimes.com/2026/07/10/weather/lake-geneva-wisconsin-storm-what-happened.html
+
+**Law Enforcement Search for Survivors After a Boat Capsized in Wisconsin Lake**\
+`Three children died on July 3 after a boat capsized on Geneva Lake in Wisconsin during a storm.`\
+https://www.nytimes.com/video/us/100000011018989/boat-capsized-wisconsin.html
+
+**Royal Rapprochement: Harry and Meghan Pay a Rare Visit to the King and Queen**\
+`Friday’s visit to King Charles and Queen Camilla signaled a détente in relations with Prince Harry and his wife, who renounced their royal titles and moved to the United States in 2020.`\
+https://www.nytimes.com/2026/07/10/world/europe/harry-meghan-visit-charles-camilla.html
+
 **Trump Cuts Habitat Protections for Endangered Species**\
 `The move ends a safeguard that had been in place for 50 years and could open up crucial habitats to drilling and mining.`\
 https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
