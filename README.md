@@ -1,3 +1,39 @@
+**Meet Neil, Australia’s Celebrity Seal**\
+`The young elephant seal has gained fans around the world. But the authorities warn he could be in danger of being loved to death.`\
+https://www.nytimes.com/2026/07/10/world/australia/neil-seal-australia-tasmania.html
+
+**Seal’s Mischievous Antics Draws Crowds and Caution**\
+`Neil the seal has smashed fences and lounged in the middle of the road, drawing crowds of adoring fans. Wildlife experts warn that too much popularity can be dangerous.`\
+https://www.nytimes.com/video/world/australia/100000011020930/neil-seal-australia.html
+
+**Los ataques de Irán corren el riesgo de reavivar la guerra a gran escala con EE. UU.**\
+`La historia de Irán muestra que el régimen del país ha estado dispuesto a atacar y prolongar conflictos, incluso cuando eso pueda implicar derrotas importantes.`\
+https://www.nytimes.com/es/2026/07/10/espanol/mundo/iran-trump-ataques-estrecho-ormuz.html
+
+**Quote of the Day: The Man Who Cried ‘Goooooooooal’**\
+`Quotation of the Day for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/10/pageoneplus/quote-of-the-day-the-man-who-cried-goooooooooal.html
+
+**Through Sickness, They Remained ‘Healthy With Each Other’**\
+`Ron Zofnat and Trevor Jacobson dated for three months before Zofnat was diagnosed with cancer. They then embarked on a “dual track” life.`\
+https://www.nytimes.com/2026/07/10/style/ron-zofnat-trevor-jacobson-wedding.html
+
+**He Annoyed Me, Which Is Exactly What I Needed in a Man**\
+`My anxiety made it too hard to date. Then I met a perfectly irritating guy on Bumble.`\
+https://www.nytimes.com/2026/07/10/style/modern-love-he-annoyed-me-which-is-exactly-what-i-needed.html
+
+**Love and Hockey Kept Them Moving, Often Together**\
+`Lane Radovan and Nate Clurman, a professional hockey player, first met as high school freshmen in 2013, but didn’t become official until 2019.`\
+https://www.nytimes.com/2026/07/10/style/lane-radovan-nate-clurman-wedding.html
+
+**A Rough Introduction, a Fast Friendship and One Very Cozy Cat**\
+`Jonathan Samuel Masci was a bit standoffish during his first encounter with Nadia Tiffany Gakou, but their relationship flourished when he finally understood the assignment.`\
+https://www.nytimes.com/2026/07/10/style/nadia-gakou-jonathan-masci-wedding.html
+
+**A Wedding That Recaptured Their Carefree Camp Days**\
+`Jackie Miller and Matt Hochberg were born in the same hospital and attended the same preschool, but first met as teens at summer camp.`\
+https://www.nytimes.com/2026/07/10/style/jackie-miller-matt-hochberg-wedding.html
+
 **What Graham Platner’s Implosion Reveals About the Democratic Party**\
 `Lisa Lerer, a New York Times national political correspondent, explains how recent allegations against the Senate candidate Graham Platner and his subsequent withdrawal from Maine’s primary race have reignited a longstanding conflict between the progressive and establishment wings of the Democratic Party.`\
 https://www.nytimes.com/video/us/politics/100000011019093/what-graham-platners-implosion-reveals-about-the-democratic-party.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/07/09/world/middleeast/photo-detainee-bound.html
 **Factory Fire in China Kills at Least 28 People, Chinese State Media Says**\
 `A fire at a shoe factory in southeastern China killed at least 28 people on Thursday, Chinese state media said. China’s leader, Xi Jinping, called on authorities to investigate the blaze and hold those responsible accountable, according to CCTV.`\
 https://www.nytimes.com/video/world/asia/100000011021681/china-fire-shoe-factory.html
-
-**Russian Finances Get Shakier, Despite Short-Term Bonus From Iran War**\
-`As oil prices fall back to levels not seen since before the Middle East war began, the Kremlin will be forced to confront a deepening budget deficit.`\
-https://www.nytimes.com/2026/07/09/world/europe/russia-oil-budget-deficit.html
-
-**‘A Clear Violation’: Judge Scolds Top Federal Prosecutor in Chicago**\
-`A federal magistrate judge said Andrew S. Boutros, the U.S. attorney in Chicago, violated an order sealing a criminal case when he spoke at a news conference.`\
-https://www.nytimes.com/2026/07/09/us/chicago-prosecutor-boutros-judge-laura-mcnally.html
-
-****\
-`tktktkt`\
-https://www.nytimes.com/video/embedded/business/100000011022483/Biz-Wheels-Slate.html
-
-**Delta, United and Other Airlines Are Offering Lower-Cost Business Class Options: What to Know**\
-`Delta is the latest U.S. airline to introduce stripped down, luxury-class fares. What do you get for your money, and is it worth it? What you need to know.`\
-https://www.nytimes.com/2026/07/09/travel/basic-business-class-airlines-delta-united.html
-
-**Volkswagen Is Cutting Production as Sales in China Plunge**\
-`The German automaker has struggled to compete with fast-growing Chinese companies that offer more affordable and sophisticated electric vehicles.`\
-https://www.nytimes.com/2026/07/09/business/volkswagen-china-sales.html
-
-**Where to Eat Like a Miranda and More Reader Questions**\
-`Becky Hughes takes on our readers’ hyperspecific New York City dining queries.`\
-https://www.nytimes.com/2026/07/09/dining/reader-questions.html
-
-**A Proposed Rule Would Politicize Medical Research. Scientists Are Not Happy.**\
-`In tens of thousands of comments, researchers, doctors and others warned the rule could hamper progress on important health issues.`\
-https://www.nytimes.com/2026/07/09/well/omb-scientific-grant-proposal.html
-
-**OpenAI Releases GPT-5.6 Sol, Its Most Powerful AI Model Yet**\
-`The new release was delayed after the U.S. government restricted the latest artificial intelligence models over cybersecurity concerns.`\
-https://www.nytimes.com/2026/07/09/technology/openai-sol-ai.html
-
-**Palestinian Authority Sets Date for First Major Elections in 20 Years**\
-`Analysts expressed skepticism that the vote would take place as planned. In 2021, Mahmoud Abbas, the authority’s leader, scheduled and then canceled a similar election.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-elections-abbas.html
 
