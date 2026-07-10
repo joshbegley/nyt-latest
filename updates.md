@@ -1,3 +1,7 @@
+**Kirk Murder Suspect Declines to Testify in Court Examination of Evidence**\
+`A weeklong hearing disclosed new details about Charlie Kirk’s assassination and the ensuing investigation. A judge will decide later this year if Tyler Robinson, 23, will stand trial for the killing.`\
+https://www.nytimes.com/2026/07/10/us/charlie-kirk-shooting-hearing.html
+
 **Maine Democrats Eyeing Late July Convention to Pick Platner Replacement**\
 `With plans still being finalized, officials are discussing a convention some time during the weekend of July 25-26 and are weighing options for choosing delegates.`\
 https://www.nytimes.com/2026/07/10/us/maine-democrats-platner-replacement-convention.html

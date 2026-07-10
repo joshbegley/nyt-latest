@@ -1,3 +1,7 @@
+**Kirk Murder Suspect Declines to Testify in Court Examination of Evidence**\
+`A weeklong hearing disclosed new details about Charlie Kirk’s assassination and the ensuing investigation. A judge will decide later this year if Tyler Robinson, 23, will stand trial for the killing.`\
+https://www.nytimes.com/2026/07/10/us/charlie-kirk-shooting-hearing.html
+
 **Maine Democrats Eyeing Late July Convention to Pick Platner Replacement**\
 `With plans still being finalized, officials are discussing a convention some time during the weekend of July 25-26 and are weighing options for choosing delegates.`\
 https://www.nytimes.com/2026/07/10/us/maine-democrats-platner-replacement-convention.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/well/tick-borne-disease-risks-regions.html
 **Passenger Is Partly Sucked Through Window on Ryanair Subsidiary Flight, Reports Say**\
 `A 61-year-old man was being treated for friction burns after a window was damaged during a flight from Greece to Germany. The flight was operated by the Ryanair subsidiary Malta Air.`\
 https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-broken-window.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/07/10/movies/new-movies-this-week-critics.html
 
