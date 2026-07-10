@@ -1,3 +1,15 @@
+**How a Deadly Storm Surprised Wisconsin Boaters**\
+`Three children died last weekend when a storm whipped up 80 mile-per-hour winds and large waves on Geneva Lake in Wisconsin.`\
+https://www.nytimes.com/2026/07/10/weather/lake-geneva-wisconsin-storm-what-happened.html
+
+**Law Enforcement Search for Survivors After a Boat Capsized in Wisconsin Lake**\
+`Three children died on July 3 after a boat capsized on Geneva Lake in Wisconsin during a storm.`\
+https://www.nytimes.com/video/us/100000011018989/boat-capsized-wisconsin.html
+
+**Royal Rapprochement: Harry and Meghan Pay a Rare Visit to the King and Queen**\
+`Friday’s visit to King Charles and Queen Camilla signaled a détente in relations with Prince Harry and his wife, who renounced their royal titles and moved to the United States in 2020.`\
+https://www.nytimes.com/2026/07/10/world/europe/harry-meghan-visit-charles-camilla.html
+
 **SK Hynix Stock Rises on First Day of US Trading**\
 `SK Hynix began trading at $170 a share, above its initial public offering price of $149, in the latest test of investor demand for A.I.-related companies.`\
 https://www.nytimes.com/2026/07/10/business/sk-hynix-stock.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu, who was elected seven months ago, said the article “continues this approach toward defending some rights while not defending others.”`\
 https://www.nytimes.com/2026/07/10/arts/pen-america-dinaw-mengestu-resigns.html
-
-**Trump Says He Won’t Sign Housing Bill, in Protest Over Stalled Voting Measure**\
-`The president did not say he would veto the housing legislation, so it would still become law unless he does. But his pronouncement reflects a growing rift between him and Senate Republicans.`\
-https://www.nytimes.com/2026/07/10/us/politics/trump-housing-bill.html
-
-**Police Investigating Donations to Reform U.K., Reports Say**\
-`The police in London said they had questioned two people as part of an investigation into donations to a political party.`\
-https://www.nytimes.com/2026/07/10/world/europe/reform-uk-farage-cottrell-donation-police.html
-
-**Several People Dead in Southern Spain Wildfire**\
-`A blaze in Spain’s southern Andalusia region left several people dead and nearly two dozen missing. Many of the victims were foreigners, the Spanish authorities said.`\
-https://www.nytimes.com/video/world/europe/100000011023383/spain-wildfire-deaths-andalusia.html
 
