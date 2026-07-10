@@ -1,3 +1,7 @@
+**Trump Administration Taps Climate Science Critic to Oversee Flagship Report**\
+`Matthew M. Wielicki has criticized the scientific consensus on global warming as alarmist. Now he’ll oversee a major federal report on the topic.`\
+https://www.nytimes.com/2026/07/10/climate/trump-climate-assessment-wielicki.html
+
 **Sexual Assault and Killing of Girl Set Off Days of Protest in West Bengal**\
 `After promising to improve safety for women in the Indian state, the party of Prime Minister Narendra Modi is facing public anger after the death of an 11-year-old girl.`\
 https://www.nytimes.com/2026/07/10/world/asia/girl-riots-west-bengal-baruipur.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/business/dealbook/goldman-prediction-markets-
 **Greece Arrests 3 in Connection With Bombings Targeting Governing Party**\
 `The attacks killed one person and injured others. The Greek authorities said an investigation would continue.`\
 https://www.nytimes.com/2026/07/10/world/europe/greece-bombing-arrests.html
-
-**The World Cup Enters the Quarterfinal Stage**\
-`Lamine Yamal and Spain prepare for the USMNT’s conquerors, Belgium.`\
-https://www.nytimes.com/2026/07/10/podcasts/world-cup-quarterfinals-lamine-yamal.html
 

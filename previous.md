@@ -1,3 +1,7 @@
+**Sexual Assault and Killing of Girl Set Off Days of Protest in West Bengal**\
+`After promising to improve safety for women in the Indian state, the party of Prime Minister Narendra Modi is facing public anger after the death of an 11-year-old girl.`\
+https://www.nytimes.com/2026/07/10/world/asia/girl-riots-west-bengal-baruipur.html
+
 **Anti-Ozempic Dressing at Chanel**\
 `Chief Fashion Critic Vanessa Friedman outlines how designer Matthieu Blazy explored fairy-tales like ‘The Ugly Duckling’ and ‘Jack and the Beanstalk’ in his latest collection.`\
 https://www.nytimes.com/video/style/100000010990404/chanel-couture-week-2026.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/video/style/100000010990404/chanel-couture-week-2026.htm
 `Un accidente en el laboratorio que fabrica los núcleos de las bombas nucleares de EE. UU. provocaría más víctimas mortales de las que el gobierno federal había previsto, aseguran los autores de una nueva investigación.`\
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/peligro-nuclear-los-alamos.html
 
-**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Gulf**\
+**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Strait**\
 `Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
 https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
 
@@ -78,7 +82,7 @@ https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
 `La muerte de Lorenzo Salgado Araujo forma parte de un número cada vez mayor de incidentes violentos en los que se ven involucrados civiles y agentes de inmigración.`\
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-houston-inmigrante-mexicano.html
 
-**U.K. Police Open Murder Investigation Into Death of Politician Ann Widdecombe**\
+**Man Arrested on Suspicion of Murdering Ann Widdecombe, Former U.K. Politician**\
 `The police said they had arrested a 26-year-old British man after Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday.`\
 https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/world/europe/greece-bombing-arrests.html
 **The World Cup Enters the Quarterfinal Stage**\
 `Lamine Yamal and Spain prepare for the USMNT’s conquerors, Belgium.`\
 https://www.nytimes.com/2026/07/10/podcasts/world-cup-quarterfinals-lamine-yamal.html
-
-**The Housing Crisis**\
-`Happy Friday. I want to tell you about a rare instance of bipartisan cooperation in Congress.`\
-https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
 

@@ -1,3 +1,15 @@
+**Sexual Assault and Killing of Girl Set Off Days of Protest in West Bengal**\
+`After promising to improve safety for women in the Indian state, the party of Prime Minister Narendra Modi is facing public anger after the death of an 11-year-old girl.`\
+https://www.nytimes.com/2026/07/10/world/asia/girl-riots-west-bengal-baruipur.html
+
+**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Strait**\
+`Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
+https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
+
+**Man Arrested on Suspicion of Murdering Ann Widdecombe, Former U.K. Politician**\
+`The police said they had arrested a 26-year-old British man after Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday.`\
+https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
+
 **Anti-Ozempic Dressing at Chanel**\
 `Chief Fashion Critic Vanessa Friedman outlines how designer Matthieu Blazy explored fairy-tales like ‘The Ugly Duckling’ and ‘Jack and the Beanstalk’ in his latest collection.`\
 https://www.nytimes.com/video/style/100000010990404/chanel-couture-week-2026.html
