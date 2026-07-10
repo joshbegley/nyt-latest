@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Jul. 10, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/10/podcasts/the-headlines/the-headlines-news-quiz-jul-10-2026.html
+
 **Meta Ordered by E.U. to Alter ‘Addictive Design’ of Instagram and Facebook**\
 `European Union authorities said the company’s use of “addictive design” violated a digital safety law.`\
 https://www.nytimes.com/2026/07/10/business/meta-instagram-facebook-europe.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/realestate/disaster-mansion-renovation-kingst
 **An Insider’s Guide to 6 of Vienna’s Splendid Public Pools**\
 `Whether you’re looking to do laps in the pool or lounge in the shade beneath towering lindens, these swimming spots are a perfect way to beat the summer heat.`\
 https://www.nytimes.com/2026/07/10/travel/vienna-public-pools.html
-
-**Inside a Theater Sheltering Families in Lebanon**\
-`Our reporter Christina Goldbaum visits the Lebanese National Theater in Beirut to meet displaced families who have been sheltering there during the war.`\
-https://www.nytimes.com/video/world/100000010937075/inside-a-theater-sheltering-families-in-lebanon.html
 

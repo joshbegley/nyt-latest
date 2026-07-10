@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Jul. 10, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/10/podcasts/the-headlines/the-headlines-news-quiz-jul-10-2026.html
+
 **Meta Ordered by E.U. to Alter ‘Addictive Design’ of Instagram and Facebook**\
 `European Union authorities said the company’s use of “addictive design” violated a digital safety law.`\
 https://www.nytimes.com/2026/07/10/business/meta-instagram-facebook-europe.html
