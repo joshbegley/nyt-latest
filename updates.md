@@ -1,3 +1,11 @@
+**Balenciaga’s Couture Was Beautiful, But Very Familiar**\
+`Pierpaolo Piccioli’s debut couture was beautiful, but very familiar.`\
+https://www.nytimes.com/2026/07/10/style/pierpaolo-piccioli-balenciaga-couture.html
+
+**At Fendi, Solving the Fur Problem**\
+`In her Fendi debut, Maria Grazia Chiuri makes the case — and wrestles with a complicated legacy.`\
+https://www.nytimes.com/2026/07/10/style/fendi-fur-couture.html
+
 **Volkswagen recortará la mitad de sus modelos ante la caída de las ventas**\
 `El fabricante de coches alemán ha tenido dificultades para competir con las empresas chinas en rápido crecimiento que ofrecen vehículos eléctricos más asequibles y sofisticados.`\
 https://www.nytimes.com/es/2026/07/10/espanol/negocios/volkswagen-recortes-caida-ventas.html
