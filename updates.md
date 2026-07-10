@@ -1,3 +1,7 @@
+**Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
+`The novelist Dinaw Mengestu, who was elected seven months ago, said the article “continues this approach toward defending some rights while not defending others.”`\
+https://www.nytimes.com/2026/07/10/arts/pen-america-dinaw-mengestu-resigns.html
+
 **Trump Says Negotiations With Iran Will Continue as U.S. Ramps Up Strikes**\
 `U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
 https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
