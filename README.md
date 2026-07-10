@@ -10,7 +10,7 @@ https://www.nytimes.com/video/style/100000010990404/chanel-couture-week-2026.htm
 `Un accidente en el laboratorio que fabrica los núcleos de las bombas nucleares de EE. UU. provocaría más víctimas mortales de las que el gobierno federal había previsto, aseguran los autores de una nueva investigación.`\
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/peligro-nuclear-los-alamos.html
 
-**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Gulf**\
+**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Strait**\
 `Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
 https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
 
