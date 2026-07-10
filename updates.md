@@ -1,3 +1,7 @@
+**Review: ‘Suddenly Last Summer’ Opera Premieres at Bard**\
+`Tennessee Williams’s darkly operatic one-act play becomes a proper opera in a new adaptation by the composer Courtney Bryan.`\
+https://www.nytimes.com/2026/07/10/arts/music/suddenly-last-summer-opera-bard-review.html
+
 **Ghanaian Influencer Is Extradited Over Romance Scam Targeting Older Americans**\
 `Prosecutors accused Frederick Kumi of running a scheme that defrauded Americans out of $8 million. He was flown to the United States on Thursday, his lawyer said.`\
 https://www.nytimes.com/2026/07/10/us/ghana-romance-scam-us-extradition-abu-trica.html

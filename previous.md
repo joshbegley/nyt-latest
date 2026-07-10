@@ -1,3 +1,7 @@
+**Review: ‘Suddenly Last Summer’ Opera Premieres at Bard**\
+`Tennessee Williams’s darkly operatic one-act play becomes a proper opera in a new adaptation by the composer Courtney Bryan.`\
+https://www.nytimes.com/2026/07/10/arts/music/suddenly-last-summer-opera-bard-review.html
+
 **Ghanaian Influencer Is Extradited Over Romance Scam Targeting Older Americans**\
 `Prosecutors accused Frederick Kumi of running a scheme that defrauded Americans out of $8 million. He was flown to the United States on Thursday, his lawyer said.`\
 https://www.nytimes.com/2026/07/10/us/ghana-romance-scam-us-extradition-abu-trica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/10/espanol/mundo/europa-prevencion-incendios-
 **Moscow Still Has Art and Culture. Just Don’t Say ‘Ukraine.’**\
 `An eerie limbo prevails at small art shows, independent theaters and private political clubs, where the war is the elephant in the room.`\
 https://www.nytimes.com/2026/07/10/world/europe/russia-moscow-ukraine-war.html
-
-**The Very Good and Very Bad News on Climate**\
-`Advancements in renewable energy are paving the way for a new climate politics. The environmentalist Bill McKibben articulates some of the possibilities in this new era of energy abundance.`\
-https://www.nytimes.com/2026/07/10/opinion/ezra-klein-podcast-bill-mckibben.html
 
