@@ -1,3 +1,7 @@
+**Watch Live: Day 5 of Preliminary Hearing for Man Accused of Killing Charlie Kirk**\
+`Watch live coverage of the fifth day of a hearing in Charlie Kirk’s murder case in Utah, where prosecutors lay out their case against Tyler Robinson.`\
+https://www.nytimes.com/video/embedded/us/100000011023681/kirk-robinson-hearing-day5.html
+
 **She Studied Ways to Make People Smarter. Then Her Grant Was Cut.**\
 `Jessica Cantlon had a grant with the U.S. Navy to explore whether people could improve spatial problem-solving skills through training. Then the program was cut.`\
 https://www.nytimes.com/2026/07/10/climate/lost-science-brain-navy-intelligence.html
