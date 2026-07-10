@@ -1,3 +1,7 @@
+**Trump Says Negotiations With Iran Will Continue as U.S. Ramps Up Strikes**\
+`U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
+https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
+
 **Trump Cuts Habitat Protections for Endangered Species**\
 `The move could open up habitats to drilling and mining, and hasten the demise of many imperiled animals, experts say.`\
 https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
