@@ -1,3 +1,15 @@
+**As the World Cup Wraps in L.A., the 2028 Olympics Beckon**\
+`Hundreds of thousands of people took public transit to World Cup events in car-crazy Los Angeles, a hopeful sign for officials planning the Summer Games.`\
+https://www.nytimes.com/2026/07/10/us/world-cup-los-angeles-olympics.html
+
+**Apple Sues OpenAI, Accusing It of Stealing Company Secrets**\
+`The two companies struck a deal in 2024 to offer A.I. services on Apple devices, but their partnership has soured.`\
+https://www.nytimes.com/2026/07/10/technology/apple-openai-lawsuit.html
+
+**Strait of Hormuz Will Soon Be Declared Open to All Traffic, U.S. Officials Say**\
+`The officials said that Iranian negotiators blamed the recent ship attacks on rogue military units.`\
+https://www.nytimes.com/2026/07/10/us/politics/strait-hormuz-safe-passage.html
+
 **Graham Platner Files Paperwork to Withdraw From Maine Senate Race**\
 `The move paved the way for the party to choose a new nominee to challenge Senator Susan Collins in a race both parties see as key to the control of the Senate.`\
 https://www.nytimes.com/2026/07/10/us/politics/graham-platner-maine-senate-withdraw.html
