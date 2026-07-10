@@ -1,3 +1,11 @@
+**She Studied Ways to Make People Smarter. Then Her Grant Was Cut.**\
+`Jessica Cantlon had a grant with the U.S. Navy to explore whether people could improve spatial problem-solving skills through training. Then the program was cut.`\
+https://www.nytimes.com/2026/07/10/climate/lost-science-brain-navy-intelligence.html
+
+**A.I. Has Rewarded Investors. It May Now Pose Their Greatest Risk.**\
+`Near the midpoint of the year, stocks and bonds both report good returns. But the global stock market has become highly concentrated, our columnist says.`\
+https://www.nytimes.com/2026/07/10/business/ai-stocks-bonds-investing-markets.html
+
 **How Volkswagen’s Troubles Were Made in China**\
 `The German auto giant’s push into China powered it for decades, but now the company faces fierce competition from Chinese automakers in markets around the world.`\
 https://www.nytimes.com/2026/07/10/business/volkswagen-china-problems-restructuring.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/arts/television/the-ghost-in-the-shell.html
 **A Look at a Private Firm That Inspected the Buckling Building**\
 `A New York Times review of city records shows that a private firm that conducted inspections of alterations to a Midtown office tower had repeatedly been accused of breaking city rules.`\
 https://www.nytimes.com/2026/07/10/nyregion/a-look-at-a-private-firm-that-inspected-the-buckling-building.html
-
-**How American Socialism Changed, and Stormed the Democratic Party**\
-`The movement was better at critiquing the system than reshaping it. But it has never had this much mainstream political power.`\
-https://www.nytimes.com/2026/07/10/magazine/american-socialism-democratic-party.html
-
-**After Venezuela Earthquakes, a Struggle to Find Safety**\
-`Around 16,300 people have been displaced after two deadly earthquakes struck Venezuela. The New York Times spoke with the mother of a 10-year-old girl, who has been struggling to find a safe shelter for her family.`\
-https://www.nytimes.com/video/world/americas/100000011010539/venezuela-earthquakes-displaced.html
 
