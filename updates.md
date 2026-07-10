@@ -1,3 +1,7 @@
+**China Launches Reusable Rocket, Clearing a Key Hurdle in Race With SpaceX**\
+`The launch and recovery of the Long March 10B could represent a long-awaited breakthrough for Chinese satellite companies.`\
+https://www.nytimes.com/2026/07/10/world/asia/china-space-reusable-rocket-launch-spacex.html
+
 **Que la ‘Odisea’ se convierta en tu próxima lectura**\
 `La epopeya más famosa del mundo tiene algo que ofrecer a cada lector.`\
 https://www.nytimes.com/es/2026/07/10/espanol/cultura/la-odisea.html
