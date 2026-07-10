@@ -1,3 +1,7 @@
+**Incendios en España: hay al menos 12 muertos en Andalucía**\
+`Más de 20 personas seguían desaparecidas tras el incendio en Andalucía, uno de los más mortíferos de la historia del país. Muchas de las víctimas eran turistas extranjeros, dijo la policía española.`\
+https://www.nytimes.com/es/2026/07/10/espanol/mundo/incendios-espana-muertos-andalucia.html
+
 **Atlassian Illegally Fired Worker in Rare Legal Victory for Tech Worker**\
 `A federal labor law judge determined last week that the software maker Atlassian had illegally fired an employee who questioned company policy changes.`\
 https://www.nytimes.com/2026/07/10/business/atlassian-tech-worker-wrongful-termination.html
