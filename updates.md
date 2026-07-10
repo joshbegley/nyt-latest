@@ -1,3 +1,7 @@
+**The Best, Worst and Sexiest Trophies in Sports**\
+`Legendary art critic Jerry Saltz reviews the World Cup — and much more — as sculpture.`\
+https://www.nytimes.com/2026/07/10/podcasts/best-worst-and-sexiest-trophies-sports-world-cup.html
+
 **Los terremotos en Venezuela golpean el corazón del béisbol infantil**\
 `Los Criollitos, una liga infantil y juvenil que durante décadas simbolizó esperanza y ascenso social, ahora cuenta a sus muertos y busca a sus jugadores entre los escombros de La Guaira.`\
 https://www.nytimes.com/es/2026/07/10/espanol/america-latina/terremotos-la-guaira-criollitos-beisbol.html
