@@ -1,3 +1,7 @@
+**‘This One Is Going in the Forever Rotation’**\
+`That’s a reader describing this tomato and cottage cheese salad, a protein-packed take on a favorite bagel sandwich.`\
+https://www.nytimes.com/2026/07/09/dining/this-one-is-going-in-the-forever-rotation.html
+
 **Mexican Man Fatally Shot by ICE Wasn’t the Intended Target**\
 `Officials say agents believed the driver resembled one suspect, but the encounter quickly escalated into a fatal shooting.`\
 https://www.nytimes.com/2026/07/09/us/witnesses-houston-ice-shooting.html

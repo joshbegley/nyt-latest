@@ -1,3 +1,7 @@
+**‘This One Is Going in the Forever Rotation’**\
+`That’s a reader describing this tomato and cottage cheese salad, a protein-packed take on a favorite bagel sandwich.`\
+https://www.nytimes.com/2026/07/09/dining/this-one-is-going-in-the-forever-rotation.html
+
 **Mexican Man Fatally Shot by ICE Wasn’t the Intended Target**\
 `Officials say agents believed the driver resembled one suspect, but the encounter quickly escalated into a fatal shooting.`\
 https://www.nytimes.com/2026/07/09/us/witnesses-houston-ice-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
 **Two Telehealth Executives Sentenced for Scheme to Distribute Adderall**\
 `The Justice Department said Done Global’s clinicians signed prescriptions for the stimulant drug, which is used to treat A.D.H.D., every 30 seconds.`\
 https://www.nytimes.com/2026/07/09/well/telehealth-executives-sentenced-adderall-scheme.html
-
-**Meta Launches New A.I. Model as Global Technology Race Heats Up**\
-`For the first time, the company will offer a paid version of the service, a departure from its longtime philosophy of giving its A.I. away for free.`\
-https://www.nytimes.com/2026/07/09/technology/meta-muse-spark-artificial-intelligence.html
 
