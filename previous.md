@@ -1,3 +1,7 @@
+**The U.S. and Iran Are Fighting Again. Is the Cease-Fire Over?**\
+`Eric Schmitt, a New York Times National Security correspondent, analyzes recent skirmishes between the U.S. and Iran and whether they threaten ongoing negotiations for a peace deal.`\
+https://www.nytimes.com/video/us/politics/100000011019171/the-us-and-iran-are-fighting-again-is-the-cease-fire-over.html
+
 **Bombing Iran, Then a Tentative Accord Didn’t Work. Does Trump Have a Plan C?**\
 `The administration appears to be reverting to an all-stick, no-carrot approach. But it has yet to answer why it believes economic warfare and bombing will yield a different result this time.`\
 https://www.nytimes.com/2026/07/09/us/politics/trump-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/climate/trumps-plans-nuclear-power.html
 **Francia vs. Marruecos: el partido de cuartos de final a la sombra de la historia**\
 `La historia se erige sobre el partido de cuartos de final entre Francia y su antiguo protectorado. Hoy en día, las selecciones nacionales se entremezclan con la variada nacionalidad de sus jugadores.`\
 https://www.nytimes.com/es/2026/07/09/espanol/partido-francia-marruecos-mundial.html
-
-**In Exchange of Strikes With Iran, U.S. Lands Most of the Blows**\
-`This difference reflects Iran’s limited firepower and degraded air defenses, and highlights how the war is taking a disproportionate toll on Iranians.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes-cease-fire.html
 
