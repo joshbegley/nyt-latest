@@ -1,3 +1,7 @@
+**Jay-Z’s Definitive Album? Debating ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
+`Ahead of the rapper’s three celebratory nights at Yankee Stadium, our “Popcast” hosts debate two major Jay-Z albums.`\
+https://www.nytimes.com/2026/07/10/podcasts/best-jay-z-album-popcast.html
+
 **Review: ‘Suddenly Last Summer’ Opera Premieres at Bard**\
 `Tennessee Williams’s darkly operatic one-act play becomes a proper opera in a new adaptation by the composer Courtney Bryan.`\
 https://www.nytimes.com/2026/07/10/arts/music/suddenly-last-summer-opera-bard-review.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/10/espanol/america-latina/terremotos-la-guair
 **Europa se prepara para combatir incendios con datos**\
 `Un equipo de ingenieros, silvicultores y científicos está ayudando al continente a prepararse para los incendios forestales desde un gigantesco parque científico en Italia. Su arsenal incluye satélites, modelos meteorológicos y análisis de expertos.`\
 https://www.nytimes.com/es/2026/07/10/espanol/mundo/europa-prevencion-incendios-forestales.html
-
-**Moscow Still Has Art and Culture. Just Don’t Say ‘Ukraine.’**\
-`An eerie limbo prevails at small art shows, independent theaters and private political clubs, where the war is the elephant in the room.`\
-https://www.nytimes.com/2026/07/10/world/europe/russia-moscow-ukraine-war.html
 

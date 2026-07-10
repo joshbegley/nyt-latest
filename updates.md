@@ -1,3 +1,7 @@
+**Jay-Z’s Definitive Album? Debating ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
+`Ahead of the rapper’s three celebratory nights at Yankee Stadium, our “Popcast” hosts debate two major Jay-Z albums.`\
+https://www.nytimes.com/2026/07/10/podcasts/best-jay-z-album-popcast.html
+
 **Review: ‘Suddenly Last Summer’ Opera Premieres at Bard**\
 `Tennessee Williams’s darkly operatic one-act play becomes a proper opera in a new adaptation by the composer Courtney Bryan.`\
 https://www.nytimes.com/2026/07/10/arts/music/suddenly-last-summer-opera-bard-review.html
