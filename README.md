@@ -1,3 +1,7 @@
+**Trump Cuts Habitat Protections for Endangered Species**\
+`The move could open up habitats to drilling and mining, and hasten the demise of many imperiled animals, experts say.`\
+https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
+
 **China lanza un cohete y avanza en la carrera contra SpaceX**\
 `El lanzamiento y la recuperación del Long March 10B podrían suponer un avance muy esperado para las empresas chinas de satélites.`\
 https://www.nytimes.com/es/2026/07/10/espanol/mundo/china-cohete-long-march-10b.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011023383/spain-wildfire-deaths
 **How Terrorist Groups Are Using A.I. to Gain an Edge in Battle**\
 `A.I. chatbots are not just a propaganda tool for violent extremists but are aiding in bomb construction and attack planning, new research finds.`\
 https://www.nytimes.com/2026/07/10/us/politics/ai-terrorism-boko-haram-nigeria.html
-
-**Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 17 at 9 a.m. Eastern. This week’s winners will be announced by July 29.`\
-https://www.nytimes.com/2026/07/10/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
 
