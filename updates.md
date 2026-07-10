@@ -1,3 +1,19 @@
+**She Studied Ways to Make People Smarter. Then Her Grant Was Cut.**\
+`Jessica Cantlon had a grant with the U.S. Navy to explore whether people could improve spatial problem-solving skills through training. Then the program was cut.`\
+https://www.nytimes.com/2026/07/10/climate/lost-science-brain-navy-intelligence.html
+
+**A.I. Has Rewarded Investors. It May Now Pose Their Greatest Risk.**\
+`Near the midpoint of the year, stocks and bonds both report good returns. But the global stock market has become highly concentrated, our columnist says.`\
+https://www.nytimes.com/2026/07/10/business/ai-stocks-bonds-investing-markets.html
+
+**How Volkswagen’s Troubles Were Made in China**\
+`The German auto giant’s push into China powered it for decades, but now the company faces fierce competition from Chinese automakers in markets around the world.`\
+https://www.nytimes.com/2026/07/10/business/volkswagen-china-problems-restructuring.html
+
+**Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
+`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators in Iran seek to salvage the tattered truce.`\
+https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
+
 **Ticks Are on the Move. Here Are the Risks in Your Region.**\
 `Changing deer populations, rising temperatures and other factors are driving ticks and their diseases into new areas.`\
 https://www.nytimes.com/2026/07/10/well/tick-borne-disease-risks-regions.html

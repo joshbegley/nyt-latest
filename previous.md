@@ -1,3 +1,15 @@
+**She Studied Ways to Make People Smarter. Then Her Grant Was Cut.**\
+`Jessica Cantlon had a grant with the U.S. Navy to explore whether people could improve spatial problem-solving skills through training. Then the program was cut.`\
+https://www.nytimes.com/2026/07/10/climate/lost-science-brain-navy-intelligence.html
+
+**A.I. Has Rewarded Investors. It May Now Pose Their Greatest Risk.**\
+`Near the midpoint of the year, stocks and bonds both report good returns. But the global stock market has become highly concentrated, our columnist says.`\
+https://www.nytimes.com/2026/07/10/business/ai-stocks-bonds-investing-markets.html
+
+**How Volkswagen’s Troubles Were Made in China**\
+`The German auto giant’s push into China powered it for decades, but now the company faces fierce competition from Chinese automakers in markets around the world.`\
+https://www.nytimes.com/2026/07/10/business/volkswagen-china-problems-restructuring.html
+
 **Ticks Are on the Move. Here Are the Risks in Your Region.**\
 `Changing deer populations, rising temperatures and other factors are driving ticks and their diseases into new areas.`\
 https://www.nytimes.com/2026/07/10/well/tick-borne-disease-risks-regions.html
@@ -63,7 +75,7 @@ https://www.nytimes.com/2026/07/10/podcasts/world-cup-quarterfinals-lamine-yamal
 https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
 
 **Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
-`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators seek to salvage the tattered U.S.-Iran truce.`\
+`Days of strikes by the two countries have given way to an uneasy pause as Qatari mediators in Iran seek to salvage the tattered truce.`\
 https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
 
 **Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/arts/television/the-ghost-in-the-shell.html
 **A Look at a Private Firm That Inspected the Buckling Building**\
 `A New York Times review of city records shows that a private firm that conducted inspections of alterations to a Midtown office tower had repeatedly been accused of breaking city rules.`\
 https://www.nytimes.com/2026/07/10/nyregion/a-look-at-a-private-firm-that-inspected-the-buckling-building.html
-
-**How American Socialism Changed, and Stormed the Democratic Party**\
-`The movement was better at critiquing the system than reshaping it. But it has never had this much mainstream political power.`\
-https://www.nytimes.com/2026/07/10/magazine/american-socialism-democratic-party.html
-
-**After Venezuela Earthquakes, a Struggle to Find Safety**\
-`Around 16,300 people have been displaced after two deadly earthquakes struck Venezuela. The New York Times spoke with the mother of a 10-year-old girl, who has been struggling to find a safe shelter for her family.`\
-https://www.nytimes.com/video/world/americas/100000011010539/venezuela-earthquakes-displaced.html
-
-**There’s Now No Place for Me in America, the Only Country I’ve Ever Known**\
-`Children of authorized visa holders in the United States have few means to remain after they age out of their parents’ work protections.`\
-https://www.nytimes.com/2026/07/10/opinion/immigration-us-citizenship-visa-children.html
 
