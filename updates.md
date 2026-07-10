@@ -1,3 +1,7 @@
+**Crews Drape Tarp Over White House in Latest Trump Restoration**\
+`Construction workers unfurled a large printed tarp to cover scaffolding installed at the White House’s front entrance. Doug Burgum, the interior secretary, said President Trump had ordered the repairs after noticing damage to columns.`\
+https://www.nytimes.com/video/us/politics/100000011023436/white-house-construction-trump.html
+
 **Wall St. Sets Limits on Prediction Market Trading**\
 `Goldman Sachs is the latest firm to restrict how employees use the popular betting platforms.`\
 https://www.nytimes.com/2026/07/10/business/dealbook/goldman-prediction-markets-wall-street.html
