@@ -1,3 +1,7 @@
+**Which Jay-Z Album Is Better? ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
+`Watch the full debate here.`\
+https://www.nytimes.com/video/podcasts/100000011017923/which-jay-z-album-is-better-reasonable-doubt-vs-the-blueprint.html
+
 **12 People Die in Southern Spain Wildfire**\
 `The blaze broke out in Almería province in Andalusia and prompted a major operation to contain it. Heat waves across Europe this summer have raised the risk of wildfires, forecasters say.`\
 https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011021514/kirk-hearing-twiggs-robinson-in
 **Olivia Rodrigo’s New Album “Is a Vibe”**\
 `Caryn Ganz, a pop music journalist, talks about Olivia Rodrigo’s approach to music with Wesley Morris on “Cannonball.”`\
 https://www.nytimes.com/video/podcasts/100000011016503/olivia-rodrigos-new-album-is-a-vibe.html
-
-**This Star Just Ate a Planet, and It’s Not Done Yet**\
-`A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
-https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
 
