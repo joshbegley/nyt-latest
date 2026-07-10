@@ -1,3 +1,7 @@
+**Houston Residents Mourn Neighbor Killed by ICE**\
+`Residents of Houston’s Magnolia Park neighborhood set up a memorial on the street where an ICE agent fatally shot Lorenzo Salgado Araujo, who was not the agency’s intended target, officials said.`\
+https://www.nytimes.com/video/us/100000011023142/houston-texas-ice-shooting-memorial.html
+
 **Indian Diaspora, Now the Largest Foreign-Born Group in Australia, Welcomes Modi**\
 `A large, festive reception for the Indian prime minister in Melbourne belied tensions over migration in the country.`\
 https://www.nytimes.com/2026/07/10/world/asia/australia-modi-india-diaspora.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/climate/advanced-recycling.html
 **Art Gallery Shows to See in July**\
 `This week in Newly Reviewed, Travis Diehl covers the ramblings of Tinmantis, Jill Magid’s politics, a gory group show and Erin Johnson’s look at Lawrence, Kan., after “The Day After.”`\
 https://www.nytimes.com/2026/07/09/arts/art-gallery-shows-to-see-in-july.html
-
-**Favorite Song on Olivia Rodrigo’s New Album?**\
-`On “Cannonball,” Caryn Ganz, a pop music journalist, talks about “Expectations,” her favorite song on Olivia Rodrigo’s new album, “You Seem Pretty Sad for a Girl So in Love.”`\
-https://www.nytimes.com/video/podcasts/100000011022646/favorite-song-on-olivia-rodrigos-new-album.html
 

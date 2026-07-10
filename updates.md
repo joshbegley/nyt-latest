@@ -1,3 +1,7 @@
+**The Beautiful Truth About Helen of Troy**\
+`She was a legendary beauty, but also so much more.`\
+https://www.nytimes.com/2026/07/10/opinion/odyssey-movie-lupita-nyongo-nolan.html
+
 **Indian Diaspora, Now the Largest Foreign-Born Group in Australia, Welcomes Modi**\
 `A large, festive reception for the Indian prime minister in Melbourne belied tensions over migration in the country.`\
 https://www.nytimes.com/2026/07/10/world/asia/australia-modi-india-diaspora.html
