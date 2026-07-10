@@ -1,3 +1,7 @@
+**Watch Live: Day 5 of Preliminary Hearing for Man Accused of Killing Charlie Kirk**\
+`Watch live coverage of the fifth day of a hearing in Charlie Kirk’s murder case in Utah, where prosecutors lay out their case against Tyler Robinson.`\
+https://www.nytimes.com/video/embedded/us/100000011023681/kirk-robinson-hearing-day5.html
+
 **She Studied Ways to Make People Smarter. Then Her Grant Was Cut.**\
 `Jessica Cantlon had a grant with the U.S. Navy to explore whether people could improve spatial problem-solving skills through training. Then the program was cut.`\
 https://www.nytimes.com/2026/07/10/climate/lost-science-brain-navy-intelligence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/arts/television/chosen-investors-lawsuit.html
 **‘The Ghost in the Shell’ Director Wanted Humans in Charge**\
 `In an interview, Mokochan discusses his new adaptation of the classic cyberpunk manga and why this story continues to resonate.`\
 https://www.nytimes.com/2026/07/10/arts/television/the-ghost-in-the-shell.html
-
-**A Look at a Private Firm That Inspected the Buckling Building**\
-`A New York Times review of city records shows that a private firm that conducted inspections of alterations to a Midtown office tower had repeatedly been accused of breaking city rules.`\
-https://www.nytimes.com/2026/07/10/nyregion/a-look-at-a-private-firm-that-inspected-the-buckling-building.html
 
