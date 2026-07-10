@@ -1,3 +1,27 @@
+**Mango Soft Serve**\
+`When an ice cream craving hits at home, you’ll find near-instant joy in this quick, fruity mango soft serve. Juicy, creamy, tangy or anywhere in between, any frozen fruit will work here; strawberry, peaches, raspberries and blueberries are also excellent choices.`\
+https://www.nytimes.com/video/dining/100000011024966/mango-soft-serve.html
+
+**N.Y.C. Official Planned Unauthorized Meeting With Iran’s U.N. Ambassador**\
+`Mayor Zohran Mamdani said the proposed meeting involving the mayor’s commissioner for international affairs, Ana María Archila, and the Iranian official had not taken place.`\
+https://www.nytimes.com/2026/07/10/nyregion/nyc-iran-ambassador-meeting.html
+
+**Trump Promotes ‘Freedom Fuel’ Gas Stations as Gas Prices Rise Again**\
+`President Trump has promoted a chain of newly rebranded gas stations across the Philadelphia area with lower gas prices. The New York Times has not been able to get detailed information about who is behind the stations. The Trump administration says it did not fund or subsidize the company.`\
+https://www.nytimes.com/video/us/politics/100000011024195/trump-promotes-freedom-fuel-gas-stations-as-gas-prices-rise-again.html
+
+**What China’s Successful Rocket Launch Means for the Future of the Space Race**\
+`A space neophyte not long ago, China is now the United State’s main competitor for supremacy throughout the solar system.`\
+https://www.nytimes.com/2026/07/10/science/china-space-race.html
+
+**Dutch Museum Spreads 800 Pounds of Peanut Butter on the Floor to Honor a Late Artist**\
+`The Boijmans Van Beuningen Museum in Rotterdam, the Netherlands, unveiled an exhibit on Thursday featuring a 270-square-foot hexagon made of peanut butter. The installation was a tribute to Wim T. Schippers, the artist who first conceptualized the project and who died last month at 83.`\
+https://www.nytimes.com/video/arts/100000011023996/peanut-butter-art-netherlands.html
+
+**F.C.C. Approves Test of Space Mirror to Light Night Sky Despite Outcry**\
+`A start-up company has permission to try its plan to bounce solar rays onto the dark side of Earth, turning night to day for a three-mile-wide patch.`\
+https://www.nytimes.com/2026/07/10/climate/fcc-space-mirror.html
+
 **Witnesses to ICE Killing Dispute the Official Account**\
 `Also, a major housing bill could become law without Trump’s signature. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/07/10/briefing/ice-shooting-houston-trump-housing-bill.html
