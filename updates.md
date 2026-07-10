@@ -1,3 +1,11 @@
+**Trump Cuts Habitat Protections for Endangered Species**\
+`The rule change ends a safeguard that had been in place for 50 years and could hasten the demise of imperiled animals.`\
+https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
+
+**Trump Administration Taps Climate Science Critic to Oversee National Climate Assessment**\
+`Matthew M. Wielicki has criticized the scientific consensus on global warming as alarmist. Now he’ll oversee a major federal report on the topic.`\
+https://www.nytimes.com/2026/07/10/climate/trump-climate-assessment-wielicki.html
+
 **How a Deadly Storm Surprised Wisconsin Boaters**\
 `Three children died last weekend when a storm whipped up 80 mile-per-hour winds and large waves on Geneva Lake in Wisconsin.`\
 https://www.nytimes.com/2026/07/10/weather/lake-geneva-wisconsin-storm-what-happened.html

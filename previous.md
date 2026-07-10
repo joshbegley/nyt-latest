@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/07/10/world/europe/harry-meghan-visit-charles-camil
 https://www.nytimes.com/2026/07/10/business/sk-hynix-stock.html
 
 **Trump Cuts Habitat Protections for Endangered Species**\
-`The move ends a safeguard that had been in place for 50 years and could open up crucial habitats to drilling and mining.`\
+`The rule change ends a safeguard that had been in place for 50 years and could hasten the demise of imperiled animals.`\
 https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
 
 **China lanza un cohete y avanza en la carrera contra SpaceX**\
@@ -30,7 +30,7 @@ https://www.nytimes.com/video/podcasts/100000011023936/is-u-dont-know-the-quinte
 `Minnesota state officials had granted a pardon to Tou Lue Vang, a Hmong man, drawing criticism that Democratic leaders were thwarting efforts to expel criminals.`\
 https://www.nytimes.com/2026/07/10/us/politics/ice-deports-immigrant-pardoned-minnesota.html
 
-**Trump Administration Taps Climate Science Critic to Oversee Flagship Report**\
+**Trump Administration Taps Climate Science Critic to Oversee National Climate Assessment**\
 `Matthew M. Wielicki has criticized the scientific consensus on global warming as alarmist. Now he’ll oversee a major federal report on the topic.`\
 https://www.nytimes.com/2026/07/10/climate/trump-climate-assessment-wielicki.html
 
