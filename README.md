@@ -1,3 +1,19 @@
+**Mango Soft Serve**\
+`When an ice cream craving hits at home, you’ll find near-instant joy in this quick, fruity mango soft serve. Juicy, creamy, tangy or anywhere in between, any frozen fruit will work here; strawberry, peaches, raspberries and blueberries are also excellent choices.`\
+https://www.nytimes.com/video/dining/100000011024966/mango-soft-serve.html
+
+**N.Y.C. Official Planned Unauthorized Meeting With Iran’s U.N. Ambassador**\
+`Mayor Zohran Mamdani said the proposed meeting involving the mayor’s commissioner for international affairs, Ana María Archila, and the Iranian official had not taken place.`\
+https://www.nytimes.com/2026/07/10/nyregion/nyc-iran-ambassador-meeting.html
+
+**Trump Promotes ‘Freedom Fuel’ Gas Stations as Gas Prices Rise Again**\
+`President Trump has promoted a chain of newly rebranded gas stations across the Philadelphia area with lower gas prices. The New York Times has not been able to get detailed information about who is behind the stations. The Trump administration says it did not fund or subsidize the company.`\
+https://www.nytimes.com/video/us/politics/100000011024195/trump-promotes-freedom-fuel-gas-stations-as-gas-prices-rise-again.html
+
+**What China’s Successful Rocket Launch Means for the Future of the Space Race**\
+`A space neophyte not long ago, China is now the United State’s main competitor for supremacy throughout the solar system.`\
+https://www.nytimes.com/2026/07/10/science/china-space-race.html
+
 **Dutch Museum Spreads 800 Pounds of Peanut Butter on the Floor to Honor a Late Artist**\
 `The Boijmans Van Beuningen Museum in Rotterdam, the Netherlands, unveiled an exhibit on Thursday featuring a 270-square-foot hexagon made of peanut butter. The installation was a tribute to Wim T. Schippers, the artist who first conceptualized the project and who died last month at 83.`\
 https://www.nytimes.com/video/arts/100000011023996/peanut-butter-art-netherlands.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/10/us/freedom-fuel-gas-stations.html
 **The Liminal Lyricism of Liim**\
 `Liim, an up-and-coming rapper from Harlem, explores the tension of life’s in-between moments in “Machete Summer” with a slow-burning, surprisingly soft rap style. Our critic Jon Caramanica dives into his musicality on the “Popcast” Song of the Week.`\
 https://www.nytimes.com/video/podcasts/100000011022815/the-liminal-lyricism-of-liim.html
-
-**Jay-Z’s Definitive Album? Debating ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
-`Ahead of the rapper’s three celebratory nights at Yankee Stadium, our “Popcast” hosts debate two major Jay-Z albums.`\
-https://www.nytimes.com/2026/07/10/podcasts/best-jay-z-album-popcast.html
-
-**Review: ‘Suddenly Last Summer’ Opera Premieres at Bard**\
-`Tennessee Williams’s darkly operatic one-act play becomes a proper opera in a new adaptation by the composer Courtney Bryan.`\
-https://www.nytimes.com/2026/07/10/arts/music/suddenly-last-summer-opera-bard-review.html
-
-**Ghanaian Influencer Is Extradited Over Romance Scam Targeting Older Americans**\
-`Prosecutors accused Frederick Kumi of running a scheme that defrauded Americans out of $8 million. He was flown to the United States on Thursday, his lawyer said.`\
-https://www.nytimes.com/2026/07/10/us/ghana-romance-scam-us-extradition-abu-trica.html
-
-**An Aging Assassin Was Caught by ICE. Will the U.S. Deport Him?**\
-`He helped plot a car bombing in Washington that killed two people in 1976. Fifty years later, old government secrets could decide his fate.`\
-https://www.nytimes.com/2026/07/10/us/politics/assassin-caught-by-ice-chile.html
 
