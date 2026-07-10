@@ -1,3 +1,11 @@
+**Trump Is Promoting ‘Freedom Fuel’ for $3.47 a Gallon. Who’s Behind It?**\
+`The president has praised a network of 25 recently rebranded gas stations in the Philadelphia region that have been selling gas for considerably less than the national average.`\
+https://www.nytimes.com/2026/07/10/us/freedom-fuel-gas-stations.html
+
+**The Liminal Lyricism of Liim**\
+`Liim, an up-and-coming rapper from Harlem, explores the tension of life’s in-between moments in “Machete Summer” with a slow-burning, surprisingly soft rap style. Our critic Jon Caramanica dives into his musicality on the “Popcast” Song of the Week.`\
+https://www.nytimes.com/video/podcasts/100000011022815/the-liminal-lyricism-of-liim.html
+
 **Jay-Z’s Definitive Album? Debating ‘Reasonable Doubt’ vs. ‘The Blueprint’**\
 `Ahead of the rapper’s three celebratory nights at Yankee Stadium, our “Popcast” hosts debate two major Jay-Z albums.`\
 https://www.nytimes.com/2026/07/10/podcasts/best-jay-z-album-popcast.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/crosswords/strands-sidekick-860.html
 **The Best, Worst and Sexiest Trophies in Sports**\
 `Legendary art critic Jerry Saltz reviews the World Cup — and much more — as sculpture.`\
 https://www.nytimes.com/2026/07/10/podcasts/best-worst-and-sexiest-trophies-sports-world-cup.html
-
-**Los terremotos en Venezuela golpean el corazón del béisbol infantil**\
-`Los Criollitos, una liga infantil y juvenil que durante décadas simbolizó esperanza y ascenso social, ahora cuenta a sus muertos y busca a sus jugadores entre los escombros de La Guaira.`\
-https://www.nytimes.com/es/2026/07/10/espanol/america-latina/terremotos-la-guaira-criollitos-beisbol.html
-
-**Europa se prepara para combatir incendios con datos**\
-`Un equipo de ingenieros, silvicultores y científicos está ayudando al continente a prepararse para los incendios forestales desde un gigantesco parque científico en Italia. Su arsenal incluye satélites, modelos meteorológicos y análisis de expertos.`\
-https://www.nytimes.com/es/2026/07/10/espanol/mundo/europa-prevencion-incendios-forestales.html
 
