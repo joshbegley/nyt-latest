@@ -1,3 +1,15 @@
+**Wall St. Sets Limits on Prediction Market Trading**\
+`Goldman Sachs is the latest firm to restrict how employees use the popular betting platforms.`\
+https://www.nytimes.com/2026/07/10/business/dealbook/goldman-prediction-markets-wall-street.html
+
+**Greece Arrests 3 in Connection With Bombings Targeting Governing Party**\
+`The attacks killed one person and injured others. The Greek authorities said an investigation would continue.`\
+https://www.nytimes.com/2026/07/10/world/europe/greece-bombing-arrests.html
+
+**The World Cup Enters the Quarterfinal Stage**\
+`Lamine Yamal and Spain prepare for the USMNT’s conquerors, Belgium.`\
+https://www.nytimes.com/2026/07/10/podcasts/world-cup-quarterfinals-lamine-yamal.html
+
 **The Housing Crisis**\
 `Happy Friday. I want to tell you about a rare instance of bipartisan cooperation in Congress.`\
 https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/learning/word-of-the-day-querulous.html
 **10 Kids’ Books for Fans of the Magic Tree House Series**\
 `Ten recommendations for fans of Mary Pope Osborne’s time-travel chapter book series.`\
 https://www.nytimes.com/2026/07/10/books/review/magic-tree-house-books-kids.html
-
-**Can Hungarian Holocaust Survivors Find Justice in the U.S.?**\
-`For more than a decade, a group of survivors have fought a legal battle to get American courts to hear their suit against Hungary’s national railroad over its role in the atrocities.`\
-https://www.nytimes.com/2026/07/10/world/europe/hungarian-holocaust-us-lawsuit.html
-
-**The Message From Barcelona’s New Sustainable Tourism Leader: ‘Not One Tourist More.’**\
-`As the commissioner for sustainable tourism, José Antonio Donaire’s job is to diminish the impact of the nearly 16 million annual visitors to the Catalan capital. Here’s what he’s planning.`\
-https://www.nytimes.com/2026/07/10/travel/barcelona-overtourism-jose-antonio-donaire.html
-
-**Overlooked No More: Garrincha, Brazil’s Brilliant and Broken World Cup Hero**\
-`He helped lead Brazil to two championships alongside Pelé, but his on-field brilliance was eclipsed by a tragic personal life.`\
-https://www.nytimes.com/2026/07/10/obituaries/garrincha-overlooked.html
 
