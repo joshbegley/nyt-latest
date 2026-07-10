@@ -1,3 +1,7 @@
+**Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 17 at 9 a.m. Eastern. This week’s winners will be announced by July 29.`\
+https://www.nytimes.com/2026/07/10/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
+
 **Crews Drape Tarp Over White House in Latest Trump Restoration**\
 `Construction workers unfurled a large printed tarp to cover scaffolding installed at the White House’s front entrance. Doug Burgum, the interior secretary, said President Trump had ordered the repairs after noticing damage to columns.`\
 https://www.nytimes.com/video/us/politics/100000011023436/white-house-construction-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/movies/the-invite-clip-olivia-wilde.html
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include two 2026 animated adventures and the finale to a Guillermo del Toro franchise.`\
 https://www.nytimes.com/2026/07/10/movies/kids-movies-streaming-now.html
-
-**Word of the Day: querulous**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/10/learning/word-of-the-day-querulous.html
 
