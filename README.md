@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/07/10/climate/nuclear-bomb-energy-department-lab.ht
 `A huge soccer upset in 1981 was immortalized by a famous radio call in Norway, directed at Prime Minister Margaret Thatcher.`\
 https://www.nytimes.com/2026/07/10/sports/soccer/world-cup-norway-england-commentary.html
 
-**Two Days of U.S. Strikes in Iran Signal a Sharp Escalation**\
+**Trump Says Negotiations With Iran Will Continue as U.S. Ramps Up Strikes**\
 `U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
 https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
 
