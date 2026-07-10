@@ -1,3 +1,7 @@
+**A Top OpenAI Executive, Fidji Simo, Steps Down**\
+`Ms. Simo, who was Sam Altman’s second in command before taking a medical leave in April, will become a part-time adviser to the company.`\
+https://www.nytimes.com/2026/07/09/technology/openai-fidji-simo-exit.html
+
 **‘This One Is Going in the Forever Rotation’**\
 `That’s a reader describing this tomato and cottage cheese salad, a protein-packed take on a favorite bagel sandwich.`\
 https://www.nytimes.com/2026/07/09/dining/this-one-is-going-in-the-forever-rotation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011021474/dc-reflection-pool-ren
 **Trump Begins New Construction Project on White House Front Columns**\
 `Restoration work began after the president saw “door dings in the pillars” and ordered up repairs, the interior secretary said.`\
 https://www.nytimes.com/2026/07/09/us/trump-white-house-columns.html
-
-**Two Telehealth Executives Sentenced for Scheme to Distribute Adderall**\
-`The Justice Department said Done Global’s clinicians signed prescriptions for the stimulant drug, which is used to treat A.D.H.D., every 30 seconds.`\
-https://www.nytimes.com/2026/07/09/well/telehealth-executives-sentenced-adderall-scheme.html
 

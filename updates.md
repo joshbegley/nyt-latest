@@ -1,3 +1,7 @@
+**A Top OpenAI Executive, Fidji Simo, Steps Down**\
+`Ms. Simo, who was Sam Altman’s second in command before taking a medical leave in April, will become a part-time adviser to the company.`\
+https://www.nytimes.com/2026/07/09/technology/openai-fidji-simo-exit.html
+
 **Mexican Man Fatally Shot by ICE Wasn’t the Intended Target**\
 `Officials say agents believed a passenger resembled one suspect, but the encounter quickly escalated into a fatal shooting.`\
 https://www.nytimes.com/2026/07/09/us/witnesses-houston-ice-shooting.html
