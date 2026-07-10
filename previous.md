@@ -1,3 +1,7 @@
+**China lanza un cohete y avanza en la carrera contra SpaceX**\
+`El lanzamiento y la recuperación del Long March 10B podrían suponer un avance muy esperado para las empresas chinas de satélites.`\
+https://www.nytimes.com/es/2026/07/10/espanol/mundo/china-cohete-long-march-10b.html
+
 **Is ‘U Don’t Know’ the Quintessential Jay-Z Song?**\
 `Our reporter and “Popcast” host Joe Coscarelli makes his argument for why Jay-Z’s “U Don’t Know” is best track on his 2001 album “The Blueprint.”`\
 https://www.nytimes.com/video/podcasts/100000011023936/is-u-dont-know-the-quintessential-jay-z-song.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/us/politics/ai-terrorism-boko-haram-nigeria.h
 **Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 17 at 9 a.m. Eastern. This week’s winners will be announced by July 29.`\
 https://www.nytimes.com/2026/07/10/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
-
-**Crews Drape Tarp Over White House in Latest Trump Restoration**\
-`Construction workers unfurled a large printed tarp to cover scaffolding installed at the White House’s front entrance. Doug Burgum, the interior secretary, said President Trump had ordered the repairs after noticing damage to columns.`\
-https://www.nytimes.com/video/us/politics/100000011023436/white-house-construction-trump.html
 
