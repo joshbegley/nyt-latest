@@ -1,3 +1,11 @@
+**The Platner Drama Is Reviving Debate Among Democrats Over a Double Standard**\
+`His candidacy stoked tensions among Democrats over gender and how to win back working-class voters.`\
+https://www.nytimes.com/2026/07/10/us/politics/platner-democrats-women-double-standard.html
+
+**Graham Platner Files Paperwork to Withdraw From Maine Senate Race**\
+`The move paved the way for Democrats to choose a new nominee to challenge Senator Susan Collins in a race both parties see as key to the control of the Senate.`\
+https://www.nytimes.com/2026/07/10/us/politics/graham-platner-maine-senate-withdraw.html
+
 **Arrest Made in Connection to Former U.K. Politician’s Murder**\
 `British police on Friday arrested a 26-year-old man on suspicion of murdering Ann Widdecombe, a 78-year-old former right-wing politician.`\
 https://www.nytimes.com/video/world/europe/100000011024339/ann-widdecombe-politician-murder.html
