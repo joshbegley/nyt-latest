@@ -1,3 +1,7 @@
+**Oil Prices Wobble As a Week of Hostilities Derails Shipping**\
+`The latest turmoil, sparked by attacks on three commercial ships in the strait days ago, pushed the price of crude back above prewar levels.`\
+https://www.nytimes.com/2026/07/10/business/oil-gas-stocks-shipping-iran-hormuz.html
+
 **Balenciaga’s Couture Was Beautiful, But Very Familiar**\
 `Pierpaolo Piccioli’s debut couture was beautiful, but very familiar.`\
 https://www.nytimes.com/2026/07/10/style/pierpaolo-piccioli-balenciaga-couture.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011022081/are-we-living-under-therap
 **Olivia Rodrigo Is the Jalen Brunson of Pop**\
 `On “Cannonball,” Wesley Morris and the pop music journalist Caryn Ganz find the right metaphor to describe Olivia Rodrigo’s place in pop music.`\
 https://www.nytimes.com/video/podcasts/100000011022644/olivia-rodrigo-is-the-jalen-brunson-of-pop.html
-
-**After Several Days, Ayatollah Khamenei’s Funeral Comes to an End**\
-`A huge crowd surrounded Ayatollah Ali Khamenei’s coffin in his hometown, Mashhad, on Thursday, the final day of his funeral procession. The supreme leader’s body was transported to the Imam Reza Shrine, where it will be buried.`\
-https://www.nytimes.com/video/world/middleeast/100000011022031/iran-funeral-burial-khamenei-supreme-leader.html
 
