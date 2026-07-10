@@ -1,3 +1,7 @@
+**Bombing Iran, Then a Tentative Accord Didn’t Work. Does Trump Have a Plan C?**\
+`The administration appears to be reverting to an all-stick, no-carrot approach. But it has yet to answer why it believes economic warfare and bombing will yield a different result this time.`\
+https://www.nytimes.com/2026/07/09/us/politics/trump-iran-war.html
+
 **New Air Force One Lacks Defensive Countermeasures of Previous Model, Officials Say**\
 `Experts said the lack of such capabilities poses a potential risk when the president travels overseas. The White House defended the aircraft’s safety.`\
 https://www.nytimes.com/2026/07/09/us/politics/new-air-force-one-defensive-countermeasures.html
