@@ -1,3 +1,7 @@
+**What Is the Best Verse on Jay-Z’s ‘Reasonable Doubt’?**\
+`Music critic and “Popcast” host, Jon Caramanica, makes his argument for why Jay-Z’s “Friend or Foe” is the best verse on his 1996 album “Reasonable Doubt.”`\
+https://www.nytimes.com/video/podcasts/100000011017931/what-is-the-quintessential-jay-z-song.html
+
 **Easy Chicken Tacos**\
 `Tender chicken tacos using boneless, skinless thighs make a flavorful weeknight meal that, if you warm up your tortillas while the chicken cooks, will be ready in about half an hour.`\
 https://www.nytimes.com/video/dining/100000011024946/easy-chicken-tacos.html
