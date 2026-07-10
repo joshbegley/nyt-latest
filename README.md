@@ -1,3 +1,7 @@
+**How Olivia Wilde Directed an Awkward Dance in ‘The Invite’**\
+`The director and actress Olivia Wilde breaks down a tension-filled scene from her new film “The Invite” for Anatomy of a Scene.`\
+https://www.nytimes.com/video/movies/100000010974506/the-invite-scene-olivia-wilde.html
+
 **Oil Prices Wobble As a Week of Hostilities Derails Shipping**\
 `The latest turmoil, sparked by attacks on three commercial ships in the strait days ago, pushed the price of crude back above prewar levels.`\
 https://www.nytimes.com/2026/07/10/business/oil-gas-stocks-shipping-iran-hormuz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/us/world-cup-morocco-african-fans.html
 **Are We Living Under Therapeutic Totalitarianism?**\
 `We’re in an age of “therapeutic totalitarianism,” the writer Rod Dreher argues, “where they give you everything you want, all the drugs, the porn, the sex, the entertainment.” All that’s required in return? “You just have to surrender your humanity,” he says on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000011022081/are-we-living-under-therapeutic-totalitarianism.html
-
-**Olivia Rodrigo Is the Jalen Brunson of Pop**\
-`On “Cannonball,” Wesley Morris and the pop music journalist Caryn Ganz find the right metaphor to describe Olivia Rodrigo’s place in pop music.`\
-https://www.nytimes.com/video/podcasts/100000011022644/olivia-rodrigo-is-the-jalen-brunson-of-pop.html
 
