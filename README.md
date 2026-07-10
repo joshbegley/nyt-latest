@@ -1,3 +1,7 @@
+**Democrats Haunted by Biden-Harris Switch as They Replace Platner in Maine**\
+`The last-minute scramble to name a replacement reminds some in the party of the challenges they faced in 2024.`\
+https://www.nytimes.com/2026/07/10/us/platner-replacement-maine-biden-harris.html
+
 **This Is One of the Loneliest Jobs in America**\
 `Times Opinion interviewed dozens of family caregivers across the country to reveal the emotional toll and personal sacrifices at the heart of America‘s elder care crisis.`\
 https://www.nytimes.com/video/opinion/100000011004945/family-caregiver-aging-parents-feed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/podcasts/hardfork-social-media-bans.html
 **‘The Headlines’ News Quiz: Jul. 10, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/07/10/podcasts/the-headlines/the-headlines-news-quiz-jul-10-2026.html
-
-**Meta Ordered by E.U. to Alter ‘Addictive Design’ of Instagram and Facebook**\
-`European Union authorities said the company’s use of “addictive design” violated a digital safety law.`\
-https://www.nytimes.com/2026/07/10/business/meta-instagram-facebook-europe.html
 
