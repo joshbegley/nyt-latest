@@ -1,3 +1,11 @@
+**Buckling Manhattan High Rise Becomes Focus of Criminal Investigation**\
+`The inquiry, being conducted by the New York City Department of Investigation and the Manhattan district attorney’s office, was in an early stage, and its focus was unclear.`\
+https://www.nytimes.com/2026/07/10/nyregion/nyc-building-conversion-investigation.html
+
+**China Launches Reusable Rocket in Race With SpaceX**\
+`Video released by Chinese state media shows a state-owned aerospace company launching a rocket and recovering part of it on Friday. The successful launch of a reusable rocket was a major step for China toward challenging SpaceX’s satellite internet dominance.`\
+https://www.nytimes.com/video/science/space/100000011024092/china-reusable-rocket-challenge-spacex.html
+
 **New York Times Accuses Federal Employment Agency of Retaliation**\
 `A May lawsuit by the Equal Employment Opportunity Commission claims the newspaper discriminated against a white male employee who did not get a promotion.`\
 https://www.nytimes.com/2026/07/10/business/media/new-york-times-eeoc-lawsuit.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011004945/family-caregiver-aging-par
 **Farewells to the Platner Campaign**\
 `Readers respond to an editorial about lessons from Graham Platner’s failed Senate campaign. Also: The Smithsonian’s goal.`\
 https://www.nytimes.com/2026/07/10/opinion/graham-platner-campaign.html
-
-**El Air Force One nuevo carece de las medidas defensivas del anterior**\
-`Los expertos dijeron que la falta de estas capacidades supone un riesgo potencial cuando el presidente Trump viaja al extranjero. La Casa Blanca ha defendido la seguridad del avión.`\
-https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/airforce-one-trump-catar.html
-
-**Incendios en España: hay al menos 12 muertos en Andalucía**\
-`Más de 20 personas seguían desaparecidas tras el incendio en Andalucía, uno de los más mortíferos de la historia del país. Muchas de las víctimas eran turistas extranjeros, dijo la policía española.`\
-https://www.nytimes.com/es/2026/07/10/espanol/mundo/incendios-espana-muertos-andalucia.html
 

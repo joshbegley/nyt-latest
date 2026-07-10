@@ -1,3 +1,11 @@
+**Buckling Manhattan High Rise Becomes Focus of Criminal Investigation**\
+`The inquiry, being conducted by the New York City Department of Investigation and the Manhattan district attorney’s office, was in an early stage, and its focus was unclear.`\
+https://www.nytimes.com/2026/07/10/nyregion/nyc-building-conversion-investigation.html
+
+**China Launches Reusable Rocket in Race With SpaceX**\
+`Video released by Chinese state media shows a state-owned aerospace company launching a rocket and recovering part of it on Friday. The successful launch of a reusable rocket was a major step for China toward challenging SpaceX’s satellite internet dominance.`\
+https://www.nytimes.com/video/science/space/100000011024092/china-reusable-rocket-challenge-spacex.html
+
 **New York Times Accuses Federal Employment Agency of Retaliation**\
 `A May lawsuit by the Equal Employment Opportunity Commission claims the newspaper discriminated against a white male employee who did not get a promotion.`\
 https://www.nytimes.com/2026/07/10/business/media/new-york-times-eeoc-lawsuit.html

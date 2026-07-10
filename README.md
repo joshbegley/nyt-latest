@@ -1,3 +1,11 @@
+**Historian Kerri K. Greenidge and Her Book ‘The Grimkes’ Come Under Fire**\
+`Kerri K. Greenidge appeared to lose her professorship at Tufts University after scholars began scrutinizing her 2022 book, “The Grimkes,” which is no longer listed on its publisher’s website.`\
+https://www.nytimes.com/2026/07/10/books/kerri-greenidge-the-grimkes.html
+
+**Ten Killed in Plane Crash on the Bahamas’ Largest Island**\
+`The crash occurred as the country celebrated its independence from Britain.`\
+https://www.nytimes.com/2026/07/10/world/americas/bahamas-plane-crash-deaths.html
+
 **Buckling Manhattan High Rise Becomes Focus of Criminal Investigation**\
 `The inquiry, being conducted by the New York City Department of Investigation and the Manhattan district attorney’s office, was in an early stage, and its focus was unclear.`\
 https://www.nytimes.com/2026/07/10/nyregion/nyc-building-conversion-investigation.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
 **Democrats Haunted by Biden-Harris Switch as They Replace Platner in Maine**\
 `The last-minute scramble to name a replacement reminds some in the party of the challenges they faced in 2024.`\
 https://www.nytimes.com/2026/07/10/us/platner-replacement-maine-biden-harris.html
-
-**This Is One of the Loneliest Jobs in America**\
-`Times Opinion interviewed dozens of family caregivers across the country to reveal the emotional toll and personal sacrifices at the heart of America‘s elder care crisis.`\
-https://www.nytimes.com/video/opinion/100000011004945/family-caregiver-aging-parents-feed.html
-
-**Farewells to the Platner Campaign**\
-`Readers respond to an editorial about lessons from Graham Platner’s failed Senate campaign. Also: The Smithsonian’s goal.`\
-https://www.nytimes.com/2026/07/10/opinion/graham-platner-campaign.html
 
