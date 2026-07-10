@@ -1,3 +1,7 @@
+**New York Times Accuses Federal Employment Agency of Retaliation**\
+`A May lawsuit by the Equal Employment Opportunity Commission claims the newspaper discriminated against a white male employee who did not get a promotion.`\
+https://www.nytimes.com/2026/07/10/business/media/new-york-times-eeoc-lawsuit.html
+
 **Energy Abundance Is Here. Can the U.S. Catch Up?**\
 `The green energy transition is fully underway in countries like Australia and China, the environmentalist Bill McKibben explains. Can the U.S. catch up? He talks about his latest book, “Here Comes the Sun: A Last Chance for the Climate and a Fresh Chance for Civilization,” on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011018059/energy-abundance-is-here-can-the-us-catch-up.html

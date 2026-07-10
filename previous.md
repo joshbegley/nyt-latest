@@ -1,3 +1,7 @@
+**New York Times Accuses Federal Employment Agency of Retaliation**\
+`A May lawsuit by the Equal Employment Opportunity Commission claims the newspaper discriminated against a white male employee who did not get a promotion.`\
+https://www.nytimes.com/2026/07/10/business/media/new-york-times-eeoc-lawsuit.html
+
 **Energy Abundance Is Here. Can the U.S. Catch Up?**\
 `The green energy transition is fully underway in countries like Australia and China, the environmentalist Bill McKibben explains. Can the U.S. catch up? He talks about his latest book, “Here Comes the Sun: A Last Chance for the Climate and a Fresh Chance for Civilization,” on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011018059/energy-abundance-is-here-can-the-us-catch-up.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/airforce-one-trump-
 **Incendios en España: hay al menos 12 muertos en Andalucía**\
 `Más de 20 personas seguían desaparecidas tras el incendio en Andalucía, uno de los más mortíferos de la historia del país. Muchas de las víctimas eran turistas extranjeros, dijo la policía española.`\
 https://www.nytimes.com/es/2026/07/10/espanol/mundo/incendios-espana-muertos-andalucia.html
-
-**Atlassian Illegally Fired Worker in Rare Legal Victory for Tech Worker**\
-`A federal labor law judge determined last week that the software maker Atlassian had illegally fired an employee who questioned company policy changes.`\
-https://www.nytimes.com/2026/07/10/business/atlassian-tech-worker-wrongful-termination.html
 
