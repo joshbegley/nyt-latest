@@ -1,3 +1,11 @@
+**Anti-Ozempic Dressing at Chanel**\
+`Chief Fashion Critic Vanessa Friedman outlines how designer Matthieu Blazy explored fairy-tales like ‘The Ugly Duckling’ and ‘Jack and the Beanstalk’ in his latest collection.`\
+https://www.nytimes.com/video/style/100000010990404/chanel-couture-week-2026.html
+
+**EE. UU. subestima el peligro en caso de fuga de plutonio en Los Álamos, según un estudio**\
+`Un accidente en el laboratorio que fabrica los núcleos de las bombas nucleares de EE. UU. provocaría más víctimas mortales de las que el gobierno federal había previsto, aseguran los autores de una nueva investigación.`\
+https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/peligro-nuclear-los-alamos.html
+
 **Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Gulf**\
 `Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
 https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/podcasts/world-cup-quarterfinals-lamine-yamal
 **The Housing Crisis**\
 `Happy Friday. I want to tell you about a rare instance of bipartisan cooperation in Congress.`\
 https://www.nytimes.com/2026/07/10/briefing/the-housing-crisis.html
-
-**Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
-`Qatari mediators were in Iran seeking to salvage the tattered truce. President Trump said talks with Tehran would continue, even if the cease-fire was “over.”`\
-https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
-
-**Do Social Media Bans Work? + A Conversation About A.I. Consciousness + Tool Time**\
-`“If the net result is that all the teens in Australia are still using social media, even after they’re technically banned from doing it, why are we doing any of this?”`\
-https://www.nytimes.com/2026/07/10/podcasts/hardfork-social-media-bans.html
 
