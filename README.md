@@ -52,7 +52,7 @@ https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
 
 **Trump Administration Fires Members of Independent Election Group**\
 `The firings and a resignation render the Election Assistance Commission useless. The moves come as President Trump seeks to impose control over how ballots will be counted in the midterms.`\
-https://www.nytimes.com/2026/07/10/us/politics/trump-administration-fires-members-of-independent-election-group.html
+https://www.nytimes.com/2026/07/10/us/politics/trump-fires-election-assistance-commission-members.html
 
 **Meet Neil, Australia’s Celebrity Seal**\
 `The young elephant seal has gained fans around the world. But the authorities warn he could be in danger of being loved to death.`\
