@@ -1,3 +1,27 @@
+**Meta Ordered by E.U. to Alter ‘Addictive Design’ of Instagram and Facebook**\
+`European Union authorities said the company’s use of “addictive design” violated a digital safety law.`\
+https://www.nytimes.com/2026/07/10/business/meta-instagram-facebook-europe.html
+
+**Cuba Under Siege**\
+`Amid the worst fuel shortage and humanitarian crisis Cuba has endured in decades, one man living in its capital discusses a typical day.`\
+https://www.nytimes.com/2026/07/10/podcasts/the-daily/cuba-oil-blockade-humanitarian-crisis.html
+
+**How Trump Is Trying to Tip the Scales for the Midterms, and Why Grocery Stores Are Scrambling**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/10/podcasts/the-headlines/trump-midterms-grocery-store-prices.html
+
+**NYT Connections Answers for July 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/10/crosswords/connections-companion-1126.html
+
+**Today’s Wordle Hints for July 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/10/crosswords/wordle-review-1848.html
+
+**NYT Strands Hints for July 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/10/crosswords/strands-sidekick-860.html
+
 **The Best, Worst and Sexiest Trophies in Sports**\
 `Legendary art critic Jerry Saltz reviews the World Cup — and much more — as sculpture.`\
 https://www.nytimes.com/2026/07/10/podcasts/best-worst-and-sexiest-trophies-sports-world-cup.html
@@ -28,7 +52,7 @@ https://www.nytimes.com/2026/07/10/well/tips-cutting-screen-time.html
 
 **Top Senate Democratic PAC Stockpiles Record Sum, as Money Chase Heats Up**\
 `Senate Majority PAC says it entered July with $126 million, a new midyear high, after raising $147 million with an affiliated nonprofit from April through June. But can it keep pace with the G.O.P.?`\
-https://www.nytimes.com/2026/07/10/us/politics/top-senate-democratic-pac-stockpiles-record-sum-as-money-chase-heats-up.html
+https://www.nytimes.com/2026/07/10/us/politics/senate-majority-pac-democrat-fundraising.html
 
 **La semana laboral de cuatro días sigue siendo una promesa difícil de cumplir**\
 `Mientras elogian la idea de trabajar menos días, muchos líderes exigen cada vez más tiempo y dedicación a sus empleados.`\
@@ -88,7 +112,7 @@ https://www.nytimes.com/2026/07/10/nyregion/a-look-at-a-private-firm-that-inspec
 
 **How American Socialism Changed, and Stormed the Democratic Party**\
 `The movement was better at critiquing the system than reshaping it. But it has never had this much mainstream political power.`\
-https://www.nytimes.com/2026/07/10/magazine/how-american-socialism-changed-and-stormed-the-democratic-party.html
+https://www.nytimes.com/2026/07/10/magazine/american-socialism-democratic-party.html
 
 **After Venezuela Earthquakes, a Struggle to Find Safety**\
 `Around 16,300 people have been displaced after two deadly earthquakes struck Venezuela. The New York Times spoke with the mother of a 10-year-old girl, who has been struggling to find a safe shelter for her family.`\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/10/travel/vienna-public-pools.html
 **Inside a Theater Sheltering Families in Lebanon**\
 `Our reporter Christina Goldbaum visits the Lebanese National Theater in Beirut to meet displaced families who have been sheltering there during the war.`\
 https://www.nytimes.com/video/world/100000010937075/inside-a-theater-sheltering-families-in-lebanon.html
-
-**From A.I. to the Deep State, Michel Foucault Foresaw It All**\
-`One hundred years after his birth, the French philosopher remains hugely influential, both revered and reviled for ideas that eerily anticipated our day.`\
-https://www.nytimes.com/2026/07/10/books/review/michel-foucault-ai-tech-power.html
-
-**In the Pathologic Game Series, Failure Is Inevitable**\
-`In the psychological horror series Pathologic, eerie theatrics and impossible decisions unfold in a Russian town overrun by plague.`\
-https://www.nytimes.com/2026/07/10/arts/pathologic-horror-video-games.html
-
-**Iran’s Supreme Leader Remains Absent, a Void at the Top of the Regime**\
-`Ayatollah Mojtaba Khamenei did not appear at his father’s funeral this week, fueling speculation about his physical condition and leaving a power vacuum in a divided country.`\
-https://www.nytimes.com/2026/07/10/world/middleeast/iran-supreme-leader-mojtaba-khamenei.html
-
-**Bayeux Tapestry Arrives in U.K. After Maximum-Security Operation**\
-`The 11th-century tapestry will go on display at the British Museum in September. Tickets for the exhibition have already been selling rapidly.`\
-https://www.nytimes.com/2026/07/10/arts/design/bayeux-tapestry-british-museum.html
-
-**How Olivia Wilde Directed an Awkward Dance in ‘The Invite’**\
-`The director and actress Olivia Wilde breaks down a tension-filled scene from her new film “The Invite” for Anatomy of a Scene.`\
-https://www.nytimes.com/video/movies/100000010974506/the-invite-scene-olivia-wilde.html
-
-**Oil Prices Wobble As a Week of Hostilities Derails Shipping**\
-`The latest turmoil, sparked by attacks on three commercial ships in the strait days ago, pushed the price of crude back above prewar levels.`\
-https://www.nytimes.com/2026/07/10/business/oil-gas-stocks-shipping-iran-hormuz.html
 
