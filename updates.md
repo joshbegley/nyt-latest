@@ -1,3 +1,7 @@
+**N.Y.P.D. Inspector Charged with Attempted Rape of a Female Officer**\
+`Inspector Jeremy Scheublin, 45, is accused of trying to sexually assault an officer who worked in his precinct. He pleaded not guilty on Friday.`\
+https://www.nytimes.com/2026/07/10/nyregion/nypd-inspector-sexual-assault.html
+
 **Judge Allows News Site to Publish School Lockdown Video but Sets Limits**\
 `Lawyers for the outlet, New Brunswick Today, said that the order, while a partial victory, still violated the First Amendment. They plan to appeal.`\
 https://www.nytimes.com/2026/07/10/nyregion/school-video-news-story-censorship.html
