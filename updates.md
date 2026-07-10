@@ -1,3 +1,7 @@
+**Trump Cuts Habitat Protections for Endangered Species**\
+`The move could open up habitats to drilling and mining, and hasten the demise of many imperiled animals, experts say.`\
+https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
+
 **China lanza un cohete y avanza en la carrera contra SpaceX**\
 `El lanzamiento y la recuperación del Long March 10B podrían suponer un avance muy esperado para las empresas chinas de satélites.`\
 https://www.nytimes.com/es/2026/07/10/espanol/mundo/china-cohete-long-march-10b.html
