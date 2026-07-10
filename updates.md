@@ -1,3 +1,7 @@
+**New Air Force One Lacks Defensive Countermeasures of Previous Model, Officials Say**\
+`Experts said the lack of such capabilities poses a potential risk when the president travels overseas. The White House defended the aircraft’s safety.`\
+https://www.nytimes.com/2026/07/09/us/politics/new-air-force-one-defensive-countermeasures.html
+
 **A Top OpenAI Executive, Fidji Simo, Steps Down**\
 `Ms. Simo, who was Sam Altman’s second in command before taking a medical leave in April, will become a part-time adviser to the company.`\
 https://www.nytimes.com/2026/07/09/technology/openai-fidji-simo-exit.html

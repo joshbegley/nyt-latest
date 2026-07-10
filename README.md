@@ -1,3 +1,7 @@
+**Bombing Iran, Then a Tentative Accord Didn’t Work. Does Trump Have a Plan C?**\
+`The administration appears to be reverting to an all-stick, no-carrot approach. But it has yet to answer why it believes economic warfare and bombing will yield a different result this time.`\
+https://www.nytimes.com/2026/07/09/us/politics/trump-iran-war.html
+
 **New Air Force One Lacks Defensive Countermeasures of Previous Model, Officials Say**\
 `Experts said the lack of such capabilities poses a potential risk when the president travels overseas. The White House defended the aircraft’s safety.`\
 https://www.nytimes.com/2026/07/09/us/politics/new-air-force-one-defensive-countermeasures.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/09/espanol/partido-francia-marruecos-mundial.
 **In Exchange of Strikes With Iran, U.S. Lands Most of the Blows**\
 `This difference reflects Iran’s limited firepower and degraded air defenses, and highlights how the war is taking a disproportionate toll on Iranians.`\
 https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes-cease-fire.html
-
-**Former Olympian Pleads Not Guilty To Reflecting Pool Vandalism**\
-`David Hearn, a former Olympic canoeist, pleaded not guilty on Thursday to vandalizing the Lincoln Memorial Reflecting Pool. Hearn was one of at least four people who were arrested after the police said they peeled paint off the pool, which recently underwent a costly renovation project led by the Trump administration.`\
-https://www.nytimes.com/video/us/politics/100000011021474/dc-reflection-pool-renovation-trump-hearn.html
 
