@@ -1,3 +1,15 @@
+**Easy Chicken Tacos**\
+`Tender chicken tacos using boneless, skinless thighs make a flavorful weeknight meal that, if you warm up your tortillas while the chicken cooks, will be ready in about half an hour.`\
+https://www.nytimes.com/video/dining/100000011024946/easy-chicken-tacos.html
+
+**Green Smoothie**\
+`For a green smoothie that’s neither too sweet nor reminiscent of gazpacho, make the “Stew” from Veggies Natural Juice Bar & Cafe in Brooklyn.`\
+https://www.nytimes.com/video/dining/100000011024924/green-smoothie.html
+
+**At Least 100 Are Rescued After Heavy Rain in Missouri**\
+`Gov. Mike Kehoe declared a state of emergency after up to a foot of rain fell overnight in the southeastern part of the state. More storms are in the forecast.`\
+https://www.nytimes.com/2026/07/10/weather/missouri-rain-flooding.html
+
 **The Platner Drama Is Reviving Debate Among Democrats Over a Double Standard**\
 `His candidacy stoked tensions among Democrats over gender and how to win back working-class voters.`\
 https://www.nytimes.com/2026/07/10/us/politics/platner-democrats-women-double-standard.html

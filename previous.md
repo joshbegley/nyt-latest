@@ -1,3 +1,15 @@
+**Easy Chicken Tacos**\
+`Tender chicken tacos using boneless, skinless thighs make a flavorful weeknight meal that, if you warm up your tortillas while the chicken cooks, will be ready in about half an hour.`\
+https://www.nytimes.com/video/dining/100000011024946/easy-chicken-tacos.html
+
+**Green Smoothie**\
+`For a green smoothie that’s neither too sweet nor reminiscent of gazpacho, make the “Stew” from Veggies Natural Juice Bar & Cafe in Brooklyn.`\
+https://www.nytimes.com/video/dining/100000011024924/green-smoothie.html
+
+**At Least 100 Are Rescued After Heavy Rain in Missouri**\
+`Gov. Mike Kehoe declared a state of emergency after up to a foot of rain fell overnight in the southeastern part of the state. More storms are in the forecast.`\
+https://www.nytimes.com/2026/07/10/weather/missouri-rain-flooding.html
+
 **The Platner Drama Is Reviving Debate Among Democrats Over a Double Standard**\
 `His candidacy stoked tensions among Democrats over gender and how to win back working-class voters.`\
 https://www.nytimes.com/2026/07/10/us/politics/platner-democrats-women-double-standard.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/science/cat-grooming-licking-research.html
 **Flashback: Your Weekly History Quiz, July 11, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
-
-**El migrante abatido por ICE no era la persona que buscaban**\
-`La muerte de Lorenzo Salgado Araujo forma parte de un número cada vez mayor de incidentes violentos en los que se ven involucrados civiles y agentes de inmigración.`\
-https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-houston-inmigrante-mexicano.html
-
-**Man Arrested on Suspicion of Murdering Ann Widdecombe, Former U.K. Politician**\
-`The police said they had arrested a 26-year-old British man after Ann Widdecombe, a 78-year-old former lawmaker, was found dead with serious injuries on Thursday.`\
-https://www.nytimes.com/2026/07/10/world/europe/murder-investigation-uk-ann-widdecombe.html
-
-**U.S. Department of Energy Underestimated Potential Los Alamos Plutonium Leak Danger, Study Finds**\
-`An accident at the lab that produces America’s nuclear bomb cores could lead to more fatalities than previously estimated by the federal government, according to new research.`\
-https://www.nytimes.com/2026/07/10/climate/nuclear-bomb-energy-department-lab.html
 

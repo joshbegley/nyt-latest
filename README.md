@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/07/10/t-magazine/europe-hotels-heatwave-cool-travel
 `Armando Fernández Larios ayudó a planear un ataque con coche bomba en Washington que mató a dos personas en 1976. Cincuenta años después, antiguos secretos del gobierno podrían decidir su destino.`\
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-asesino-detencion-chile.html
 
-**What Is the Quintessential Jay-Z Song?**\
-`Joe Coscarelli argues Jay-Z’s “U Don’t Know” is the best song on “The Blueprint” album — and maybe even the best example of what rap music is.`\
+**What Is the Best Verse on Jay-Z’s ‘Reasonable Doubt’?**\
+`Music critic and “Popcast” host, Jon Caramanica, makes his argument for why Jay-Z’s “Friend or Foe” is the best verse on his 1996 album “Reasonable Doubt.”`\
 https://www.nytimes.com/video/podcasts/100000011017931/what-is-the-quintessential-jay-z-song.html
 
 **N.Y.P.D. Inspector Charged with Attempted Rape of a Female Officer**\
