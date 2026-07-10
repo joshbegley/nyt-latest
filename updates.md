@@ -1,3 +1,7 @@
+**Mexico to File Criminal Complaints in U.S. Over Immigrant Deaths**\
+`The nation’s president vowed to go “beyond diplomatic notes” after a U.S. immigration agent fatally shot Lorenzo Salgado Araujo, a Mexican man, in Texas this week.`\
+https://www.nytimes.com/2026/07/10/world/americas/mexico-criminal-complaints-immigration-deaths-usa.html
+
 **Kirk Murder Suspect Declines to Testify in Court Examination of Evidence**\
 `A weeklong hearing disclosed new details about Charlie Kirk’s assassination and the ensuing investigation. A judge will decide later this year if Tyler Robinson, 23, will stand trial for the killing.`\
 https://www.nytimes.com/2026/07/10/us/charlie-kirk-shooting-hearing.html
