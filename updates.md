@@ -1,3 +1,11 @@
+**Volkswagen recortará la mitad de sus modelos ante la caída de las ventas**\
+`El fabricante de coches alemán ha tenido dificultades para competir con las empresas chinas en rápido crecimiento que ofrecen vehículos eléctricos más asequibles y sofisticados.`\
+https://www.nytimes.com/es/2026/07/10/espanol/negocios/volkswagen-recortes-caida-ventas.html
+
+**Trump Administration Fires Members of Independent Election Group**\
+`The firings and a resignation render the Election Assistance Commission useless. The moves come as President Trump seeks to impose control over how ballots will be counted in the midterms.`\
+https://www.nytimes.com/2026/07/10/us/politics/trump-fires-election-assistance-commission-members.html
+
 **China Launches Reusable Rocket, Clearing a Key Hurdle in Race With SpaceX**\
 `The launch and recovery of the Long March 10B could represent a long-awaited breakthrough for Chinese satellite companies.`\
 https://www.nytimes.com/2026/07/10/world/asia/china-space-reusable-rocket-launch-spacex.html

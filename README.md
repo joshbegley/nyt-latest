@@ -1,3 +1,11 @@
+**Balenciaga’s Couture Was Beautiful, But Very Familiar**\
+`Pierpaolo Piccioli’s debut couture was beautiful, but very familiar.`\
+https://www.nytimes.com/2026/07/10/style/pierpaolo-piccioli-balenciaga-couture.html
+
+**At Fendi, Solving the Fur Problem**\
+`In her Fendi debut, Maria Grazia Chiuri makes the case — and wrestles with a complicated legacy.`\
+https://www.nytimes.com/2026/07/10/style/fendi-fur-couture.html
+
 **Volkswagen recortará la mitad de sus modelos ante la caída de las ventas**\
 `El fabricante de coches alemán ha tenido dificultades para competir con las empresas chinas en rápido crecimiento que ofrecen vehículos eléctricos más asequibles y sofisticados.`\
 https://www.nytimes.com/es/2026/07/10/espanol/negocios/volkswagen-recortes-caida-ventas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011022644/olivia-rodrigo-is-the-jal
 **After Several Days, Ayatollah Khamenei’s Funeral Comes to an End**\
 `A huge crowd surrounded Ayatollah Ali Khamenei’s coffin in his hometown, Mashhad, on Thursday, the final day of his funeral procession. The supreme leader’s body was transported to the Imam Reza Shrine, where it will be buried.`\
 https://www.nytimes.com/video/world/middleeast/100000011022031/iran-funeral-burial-khamenei-supreme-leader.html
-
-**Are We Becoming ‘Weimar America’?**\
-`America is at risk of extreme political upheaval, the conservative writer Rod Dreher argues on “Interesting Times.” “It may not be Hitler 2.0, it may not be Stalin 2.0, it might be something all American, but it’s not going to be what we’re used to,” he says.`\
-https://www.nytimes.com/video/opinion/100000011008022/are-we-becoming-weimar-america.html
-
-**Suspect in Charlie Kirk Killing Admitted to the Crime in Text Messages, Prosecutors Say**\
-`In messages that prosecutors say were sent to his romantic partner, Tyler Robinson admitted he was the person who shot Charlie Kirk during an event at a Utah university.`\
-https://www.nytimes.com/2026/07/09/us/tyler-robinson-text-messages-charlie-kirk-assassination.html
 
