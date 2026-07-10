@@ -1,3 +1,7 @@
+**Volkswagen recortará la mitad de sus modelos ante la caída de las ventas**\
+`El fabricante de coches alemán ha tenido dificultades para competir con las empresas chinas en rápido crecimiento que ofrecen vehículos eléctricos más asequibles y sofisticados.`\
+https://www.nytimes.com/es/2026/07/10/espanol/negocios/volkswagen-recortes-caida-ventas.html
+
 **China Launches Reusable Rocket, Clearing a Key Hurdle in Race With SpaceX**\
 `The launch and recovery of the Long March 10B could represent a long-awaited breakthrough for Chinese satellite companies.`\
 https://www.nytimes.com/2026/07/10/world/asia/china-space-reusable-rocket-launch-spacex.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011008022/are-we-becoming-weimar-ame
 **Suspect in Charlie Kirk Killing Admitted to the Crime in Text Messages, Prosecutors Say**\
 `In messages that prosecutors say were sent to his romantic partner, Tyler Robinson admitted he was the person who shot Charlie Kirk during an event at a Utah university.`\
 https://www.nytimes.com/2026/07/09/us/tyler-robinson-text-messages-charlie-kirk-assassination.html
-
-**Nobel-Winning U.S. Chemist Omar Yaghi Will Move to China to Lead A.I. Institute**\
-`Omar Yaghi of the University of California, Berkeley, will head an initiative to apply artificial intelligence to the discovery of new materials.`\
-https://www.nytimes.com/2026/07/09/science/nobel-winning-us-chemist-will-move-to-china-to-lead-ai-institute.html
 
