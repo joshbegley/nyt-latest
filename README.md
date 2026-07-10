@@ -1,3 +1,7 @@
+**Graham Platner Files Paperwork to Withdraw From Maine Senate Race**\
+`The move paved the way for the party to choose a new nominee to challenge Senator Susan Collins in a race both parties see as key to the control of the Senate.`\
+https://www.nytimes.com/2026/07/10/us/politics/graham-platner-maine-senate-withdraw.html
+
 **México presentará denuncias penales en EE. UU. por las muertes de migrantes**\
 `La presidenta del país prometió ir “más allá de las notas diplomáticas” después de que un agente de inmigración estadounidense matara a Lorenzo Salgado Araujo, un ciudadano mexicano, en Texas esta semana.`\
 https://www.nytimes.com/es/2026/07/10/espanol/america-latina/mexico-muertes-migrantes-salgado-araujo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/movies/five-action-movies-to-stream-now.html
 **This Is a Lot More Worrying Than the Supreme Court’s Ruling on Executive Power**\
 `The White House is sidestepping Congress to make huge decisions for even the most important private industries.`\
 https://www.nytimes.com/2026/07/10/opinion/executive-power-supreme-court-trump.html
-
-**Why Democrats Are Tripping All Over Themselves**\
-`A longtime observer of the party tries to make sense of where the party is, and where it is going.`\
-https://www.nytimes.com/2026/07/10/opinion/democrats-platner-maine-midterms.html
 
