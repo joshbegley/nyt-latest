@@ -1,3 +1,15 @@
+**Ghanaian Influencer Is Extradited Over Romance Scam Targeting Older Americans**\
+`Prosecutors accused Frederick Kumi of running a scheme that defrauded Americans out of $8 million. He was flown to the United States on Thursday, his lawyer said.`\
+https://www.nytimes.com/2026/07/10/us/ghana-romance-scam-us-extradition-abu-trica.html
+
+**An Aging Assassin Was Caught by ICE. Will the U.S. Deport Him?**\
+`He helped plot a car bombing in Washington that killed two people in 1976. Fifty years later, old government secrets could decide his fate.`\
+https://www.nytimes.com/2026/07/10/us/politics/assassin-caught-by-ice-chile.html
+
+**Iris van Herpen Reaches for the Stars**\
+`For Iris van Herpen, couture is a laboratory as much as a runway. Our chief fashion critic, Vanessa Friedman, takes us inside this Dutch designer’s latest Paris show — from sci-fi-inspired gowns to an audacious attempt at a dress made of charged plasma.`\
+https://www.nytimes.com/video/style/100000011004430/iris-van-herpen-reaches-for-the-stars.html
+
 **Your Cat Is Being Nice? Think Again.**\
 `A new study finds that sometimes cats groom each other specifically to be annoying.`\
 https://www.nytimes.com/2026/07/10/science/cat-grooming-licking-research.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/world/europe/russia-moscow-ukraine-war.html
 **The Very Good and Very Bad News on Climate**\
 `Advancements in renewable energy are paving the way for a new climate politics. The environmentalist Bill McKibben articulates some of the possibilities in this new era of energy abundance.`\
 https://www.nytimes.com/2026/07/10/opinion/ezra-klein-podcast-bill-mckibben.html
-
-**The New York Times News Quiz, July 10, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/07/10/briefing/quiz-iran-platner-emmys-nato.html
-
-**Readers Give Tips for Cutting Screen Time**\
-`Readers shared a few ways they’ve managed to stop scrolling.`\
-https://www.nytimes.com/2026/07/10/well/tips-cutting-screen-time.html
-
-**Top Senate Democratic PAC Stockpiles Record Sum, as Money Chase Heats Up**\
-`Senate Majority PAC says it entered July with $126 million, a new midyear high, after raising $147 million with an affiliated nonprofit from April through June. But can it keep pace with the G.O.P.?`\
-https://www.nytimes.com/2026/07/10/us/politics/senate-majority-pac-democrat-fundraising.html
 
