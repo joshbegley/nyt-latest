@@ -1,3 +1,11 @@
+**12 People Die in Southern Spain Wildfire**\
+`The blaze broke out in Almería province in Andalusia and prompted a major operation to contain it. Heat waves across Europe this summer have raised the risk of wildfires, forecasters say.`\
+https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
+
+**Trump Administration Fires Members of Independent Election Group**\
+`The firings and a resignation render the Election Assistance Commission useless. The moves come as President Trump seeks to impose control over how ballots will be counted in the midterms.`\
+https://www.nytimes.com/2026/07/10/us/politics/trump-administration-fires-members-of-independent-election-group.html
+
 **Meet Neil, Australia’s Celebrity Seal**\
 `The young elephant seal has gained fans around the world. But the authorities warn he could be in danger of being loved to death.`\
 https://www.nytimes.com/2026/07/10/world/australia/neil-seal-australia-tasmania.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011016503/olivia-rodrigos-new-album
 **This Star Just Ate a Planet, and It’s Not Done Yet**\
 `A star 1,300 light-years away appears to have just consumed one world and is gearing up for seconds.`\
 https://www.nytimes.com/2026/07/09/science/space/planetary-engulfment-hungry-star.html
-
-**Israel Investigating After Photo of Stripped and Bound Detainee Is Shared**\
-`The Israeli military confirmed the authenticity of the photo, which circulated widely after it was shared by a Palestinian activist. Israeli rights groups said it depicted a war crime.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/photo-detainee-bound.html
-
-**Factory Fire in China Kills at Least 28 People, Chinese State Media Says**\
-`A fire at a shoe factory in southeastern China killed at least 28 people on Thursday, Chinese state media said. China’s leader, Xi Jinping, called on authorities to investigate the blaze and hold those responsible accountable, according to CCTV.`\
-https://www.nytimes.com/video/world/asia/100000011021681/china-fire-shoe-factory.html
 
