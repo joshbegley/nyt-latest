@@ -1,3 +1,11 @@
+**Is ‘U Don’t Know’ the Quintessential Jay-Z Song?**\
+`Our reporter and “Popcast” host Joe Coscarelli makes his argument for why Jay-Z’s “U Don’t Know” is best track on his 2001 album “The Blueprint.”`\
+https://www.nytimes.com/video/podcasts/100000011023936/is-u-dont-know-the-quintessential-jay-z-song.html
+
+**ICE Deports Immigrant Who Was Pardoned for Sex Abuse Conviction**\
+`Minnesota state officials had granted a pardon to Tou Lue Vang, a Hmong man, drawing criticism that Democratic leaders were thwarting efforts to expel criminals.`\
+https://www.nytimes.com/2026/07/10/us/politics/ice-deports-immigrant-pardoned-minnesota.html
+
 **Trump Administration Taps Climate Science Critic to Oversee Flagship Report**\
 `Matthew M. Wielicki has criticized the scientific consensus on global warming as alarmist. Now he’ll oversee a major federal report on the topic.`\
 https://www.nytimes.com/2026/07/10/climate/trump-climate-assessment-wielicki.html
@@ -154,13 +162,13 @@ https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-b
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/07/10/movies/new-movies-this-week-critics.html
 
-**Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
-`The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
-https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
-
 **The Work of Helping A.I. Destroy Work**\
 `Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
 https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
+
+**Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
+`The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
+https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
 
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu was leading a literary group that has been divided by its response to the war in Gaza.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/learning/summer-reading-contest-week-6-what-g
 **Crews Drape Tarp Over White House in Latest Trump Restoration**\
 `Construction workers unfurled a large printed tarp to cover scaffolding installed at the White House’s front entrance. Doug Burgum, the interior secretary, said President Trump had ordered the repairs after noticing damage to columns.`\
 https://www.nytimes.com/video/us/politics/100000011023436/white-house-construction-trump.html
-
-**Wall St. Sets Limits on Prediction Market Trading**\
-`Goldman Sachs is the latest firm to restrict how employees use the popular betting platforms.`\
-https://www.nytimes.com/2026/07/10/business/dealbook/goldman-prediction-markets-wall-street.html
-
-**Greece Arrests 3 in Connection With Bombings Targeting Governing Party**\
-`The attacks killed one person and injured others. The Greek authorities said an investigation would continue.`\
-https://www.nytimes.com/2026/07/10/world/europe/greece-bombing-arrests.html
 
