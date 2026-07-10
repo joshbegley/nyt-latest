@@ -1,3 +1,11 @@
+**Energy Abundance Is Here. Can the U.S. Catch Up?**\
+`The green energy transition is fully underway in countries like Australia and China, the environmentalist Bill McKibben explains. Can the U.S. catch up? He talks about his latest book, “Here Comes the Sun: A Last Chance for the Climate and a Fresh Chance for Civilization,” on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011018059/energy-abundance-is-here-can-the-us-catch-up.html
+
+**Flooding in Missouri Prompts State of Emergency and at Least 100 Rescues**\
+`Gov. Mike Kehoe declared a state of emergency after up to a foot of rain fell overnight in the southeastern part of the state. More storms are in the forecast.`\
+https://www.nytimes.com/2026/07/10/weather/missouri-rain-flooding.html
+
 **Green Tech’s ‘Small Miracles’**\
 `Green technology advancements in everything from water desalination to vertical farming are making it possible to tackle previously intractable environmental challenges. On “The Ezra Klein Show,” Bill McKibben, a founder of the environmental groups 350.org and Third Act, shares some of the success stories he’s seen through his work.`\
 https://www.nytimes.com/video/opinion/100000011018056/green-techs-small-miracles.html
