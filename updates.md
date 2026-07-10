@@ -1,3 +1,7 @@
+**Your Cat Is Being Nice? Think Again.**\
+`A new study finds that sometimes cats groom each other specifically to be annoying.`\
+https://www.nytimes.com/2026/07/10/science/cat-grooming-licking-research.html
+
 **Flashback: Your Weekly History Quiz, July 11, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/10/upshot/flashback.html
