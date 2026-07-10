@@ -1,3 +1,7 @@
+**12 People Die in Southern Spain Wildfire**\
+`The blaze in Andalusia prompted a major containment operation. Heat waves across Europe this summer have raised the risk of such fires, forecasters say.`\
+https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
+
 **Balenciaga’s Couture Was Beautiful, But Very Familiar**\
 `Pierpaolo Piccioli’s debut couture was beautiful, but very familiar.`\
 https://www.nytimes.com/2026/07/10/style/pierpaolo-piccioli-balenciaga-couture.html

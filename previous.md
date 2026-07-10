@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/07/10/opinion/trade-war-economy-globalization.html
 https://www.nytimes.com/video/podcasts/100000011017923/which-jay-z-album-is-better-reasonable-doubt-vs-the-blueprint.html
 
 **12 People Die in Southern Spain Wildfire**\
-`The blaze broke out in Almería province in Andalusia and prompted a major operation to contain it. Heat waves across Europe this summer have raised the risk of wildfires, forecasters say.`\
+`The blaze in Andalusia prompted a major containment operation. Heat waves across Europe this summer have raised the risk of such fires, forecasters say.`\
 https://www.nytimes.com/2026/07/10/world/europe/spain-wildfire-deaths.html
 
 **Trump Administration Fires Members of Independent Election Group**\
