@@ -1,3 +1,7 @@
+**China Launches Reusable Rocket, Clearing a Key Hurdle in Race With SpaceX**\
+`The launch and recovery of the Long March 10B could represent a long-awaited breakthrough for Chinese satellite companies.`\
+https://www.nytimes.com/2026/07/10/world/asia/china-space-reusable-rocket-launch-spacex.html
+
 **Que la ‘Odisea’ se convierta en tu próxima lectura**\
 `La epopeya más famosa del mundo tiene algo que ofrecer a cada lector.`\
 https://www.nytimes.com/es/2026/07/10/espanol/cultura/la-odisea.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/us/tyler-robinson-text-messages-charlie-kirk-
 **Nobel-Winning U.S. Chemist Omar Yaghi Will Move to China to Lead A.I. Institute**\
 `Omar Yaghi of the University of California, Berkeley, will head an initiative to apply artificial intelligence to the discovery of new materials.`\
 https://www.nytimes.com/2026/07/09/science/nobel-winning-us-chemist-will-move-to-china-to-lead-ai-institute.html
-
-**Albanian Leader Rejects Complaints About Kanye West Concert**\
-`Prime Minister Edi Rama is under fire over a proposed resort with Trump ties, and a planned concert by the controversial musician known as Ye. In both cases, he cites the need for tourism.`\
-https://www.nytimes.com/2026/07/09/world/europe/albania-kanye-west-concert.html
 

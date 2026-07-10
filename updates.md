@@ -1,3 +1,7 @@
+**Que la ‘Odisea’ se convierta en tu próxima lectura**\
+`La epopeya más famosa del mundo tiene algo que ofrecer a cada lector.`\
+https://www.nytimes.com/es/2026/07/10/espanol/cultura/la-odisea.html
+
 **Rusia capturó Chernóbil. Las cámaras del bosque siguieron filmando**\
 `La región radiactiva en Ucrania se ha convertido en un refugio para la fauna silvestre. Un estudio registró los efectos de la ocupación rusa de 2022 sobre los animales del territorio.`\
 https://www.nytimes.com/es/2026/07/10/espanol/ciencia-y-tecnologia/rusia-chernobil-camaras-videos-animales.html
