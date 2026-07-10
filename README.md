@@ -1,3 +1,7 @@
+**Los terremotos en Venezuela golpean el corazón del béisbol infantil**\
+`Los Criollitos, una liga infantil y juvenil que durante décadas simbolizó esperanza y ascenso social, ahora cuenta a sus muertos y busca a sus jugadores entre los escombros de La Guaira.`\
+https://www.nytimes.com/es/2026/07/10/espanol/america-latina/terremotos-la-guaira-criollitos-beisbol.html
+
 **Europa se prepara para combatir incendios con datos**\
 `Un equipo de ingenieros, silvicultores y científicos está ayudando al continente a prepararse para los incendios forestales desde un gigantesco parque científico en Italia. Su arsenal incluye satélites, modelos meteorológicos y análisis de expertos.`\
 https://www.nytimes.com/es/2026/07/10/espanol/mundo/europa-prevencion-incendios-forestales.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/business/oil-gas-stocks-shipping-iran-hormuz.
 **Balenciaga’s Couture Was Beautiful, But Very Familiar**\
 `Pierpaolo Piccioli’s debut couture was beautiful, but very familiar.`\
 https://www.nytimes.com/2026/07/10/style/pierpaolo-piccioli-balenciaga-couture.html
-
-**At Fendi, Solving the Fur Problem**\
-`In her Fendi debut, Maria Grazia Chiuri makes the case — and wrestles with a complicated legacy.`\
-https://www.nytimes.com/2026/07/10/style/fendi-fur-couture.html
 
