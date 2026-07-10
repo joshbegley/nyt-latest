@@ -1,3 +1,11 @@
+**The Work of Helping A.I. Destroy Work**\
+`Start-ups are paying white-collar professionals to teach their jobs to artificial intelligence models. It’s a bonanza. It’s bleak. Where will it end?`\
+https://www.nytimes.com/2026/07/10/business/ai-white-collar-jobs.html
+
+**Hershel Parker, Melville Scholar of Ahab-Like Obsessiveness, Dies at 90**\
+`The author of an exhaustive two-volume biography, he was “fanatical about his approach to scholarship and infatuated with Melville,” a colleague said.`\
+https://www.nytimes.com/2026/07/10/books/hershel-parker-dead.html
+
 **Dinaw Mengestu Resigns as PEN America President After 7 Months in Role**\
 `The novelist Dinaw Mengestu was leading a literary group that has been divided by its response to the war in Gaza.`\
 https://www.nytimes.com/2026/07/10/arts/pen-america-dinaw-mengestu-resigns.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/realestate/pick-your-favorite-1-1-million-hom
 **Jerrold Nadler: Penn Station Won’t Fund Itself**\
 `Penn Station needs massive fixes, but the Trump administration is going about it all wrong.`\
 https://www.nytimes.com/2026/07/10/opinion/penn-station-new-york-trump.html
-
-**How to Quiet a Noisy House**\
-`Home inspectors often overlook them, and building codes rarely address them, but a home’s moans and groans can drive you crazy. Here’s how to silence some of the noise.`\
-https://www.nytimes.com/2026/07/10/realestate/house-noise-solutions-foosteps-thin-walls.html
-
-**He Wanted to Track Microplastics in the Sea. The E.P.A. Fired Him.**\
-`The official urged requiring a fish farm to monitor for the tiny plastic particles. The E.P.A. said he had taken steps to embarrass the agency.`\
-https://www.nytimes.com/2026/07/10/climate/fish-farm-microplastics-maha-epa-firing.html
 
