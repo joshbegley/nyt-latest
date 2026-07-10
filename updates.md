@@ -1,3 +1,7 @@
+**Witnesses of ICE Killing in Houston Dispute the Official Account**\
+`The agency said a Mexican resident driving a van tried to ram agents before they shot him dead. A lawyer for three passengers said that was untrue.`\
+https://www.nytimes.com/2026/07/10/us/houston-ice-shooting-witnesses.html
+
 **Watch Live: Day 5 of Preliminary Hearing for Man Accused of Killing Charlie Kirk**\
 `Watch live coverage of the fifth day of a hearing in Charlie Kirk’s murder case in Utah, where prosecutors lay out their case against Tyler Robinson.`\
 https://www.nytimes.com/video/embedded/us/100000011023681/kirk-robinson-hearing-day5.html
