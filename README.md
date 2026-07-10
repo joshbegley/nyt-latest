@@ -1,3 +1,11 @@
+**Several People Dead in Southern Spain Wildfire**\
+`A blaze in Spain’s southern Andalusia region left several people dead and nearly two dozen missing. Many of the victims were foreigners, the Spanish authorities said.`\
+https://www.nytimes.com/video/world/europe/100000011023383/spain-wildfire-deaths-andalusia.html
+
+**How Terrorist Groups Are Using A.I. to Gain an Edge in Battle**\
+`A.I. chatbots are not just a propaganda tool for violent extremists but are aiding in bomb construction and attack planning, new research finds.`\
+https://www.nytimes.com/2026/07/10/us/politics/ai-terrorism-boko-haram-nigeria.html
+
 **Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 17 at 9 a.m. Eastern. This week’s winners will be announced by July 29.`\
 https://www.nytimes.com/2026/07/10/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/movies/noir-films-paris-theater-festival-stre
 **How Florida’s Dream of Ever-Lower Taxes Flew Too Close to the Sun**\
 `Gov. Ron DeSantis pushed for a proposal to slash property taxes. But after some local Republican officials protested, he backpedaled, sort of.`\
 https://www.nytimes.com/2026/07/10/us/desantis-property-taxes-florida-republicans.html
-
-**How Olivia Wilde Builds Comic Tension in ‘The Invite’**\
-`The director and actress discusses a tense scene from her dinner-party comedy, in which she stars with Seth Rogen, Penélope Cruz and Edward Norton.`\
-https://www.nytimes.com/2026/07/10/movies/the-invite-clip-olivia-wilde.html
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include two 2026 animated adventures and the finale to a Guillermo del Toro franchise.`\
-https://www.nytimes.com/2026/07/10/movies/kids-movies-streaming-now.html
 
