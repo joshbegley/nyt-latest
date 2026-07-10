@@ -1,3 +1,11 @@
+**Rusia capturó Chernóbil. Las cámaras del bosque siguieron filmando**\
+`La región radiactiva en Ucrania se ha convertido en un refugio para la fauna silvestre. Un estudio registró los efectos de la ocupación rusa de 2022 sobre los animales del territorio.`\
+https://www.nytimes.com/es/2026/07/10/espanol/ciencia-y-tecnologia/rusia-chernobil-camaras-videos-animales.html
+
+**Contaminated Food, Unwashed Hands: Inside an ICE Detention Facility**\
+`Detainees at the Delaney Hall center in Newark have complained for months about dirty, unhealthy living conditions. Documents echo their claims.`\
+https://www.nytimes.com/2026/07/10/nyregion/delaney-hall-ice-conditions-unsanitary.html
+
 **NYT Spelling Bee Answers for July 10, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/10/crosswords/spelling-bee-forum.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/09/world/europe/albania-kanye-west-concert.html
 **John Deere Farm Equipment Owners Have Right-to-Repair, F.T.C. Says**\
 `A settlement by the company with the Federal Trade Commission will allow farmers and local mechanics to make their own fixes, instead of relying on authorized dealers.`\
 https://www.nytimes.com/2026/07/09/business/john-deere-ftc-right-to-repair.html
-
-**As U.S. Steps Up Attacks on Iran, Prospect of All-Out War Rises**\
-`American officials said they were trying to safeguard maritime traffic in the Strait of Hormuz. Iran said it had responded by firing at U.S. bases in Qatar, Bahrain and Kuwait.`\
-https://www.nytimes.com/2026/07/09/world/middleeast/us-iran-war-strikes.html
-
-**Advanced Recycling Hits a Rough Patch**\
-`In the past weeks, two sites in the United States have halted operations.`\
-https://www.nytimes.com/2026/07/09/climate/advanced-recycling.html
 
