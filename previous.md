@@ -1,3 +1,7 @@
+**Man Charged in National Guard Shooting Is Hospitalized for Refusing Food**\
+`The “dire” condition of the suspect, who has pleaded not guilty to murder and other charges, was “self-inflicted,” a judge said.`\
+https://www.nytimes.com/2026/07/09/us/lakanwal-national-guard-shooting-refuse-eat.html
+
 **Esta estrella se tragó a un planeta y eso fue apenas el aperitivo**\
 `El planeta engullido a 1300 años luz de distancia pudo haber sido lanzado hacia la estrella por su vecina, una enana marrón que los científicos creen que también será devorada.`\
 https://www.nytimes.com/es/2026/07/09/espanol/ciencia-y-tecnologia/planeta-estrella-engullimiento-planetario.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/09/world/middleeast/palestinian-authority-electi
 **Warsh Announces Slate of New Advisers for Fed Task Forces**\
 `The five task forces are focused on topics that Kevin M. Warsh, the chairman of the Federal Reserve, has said are “central to the broad conduct of monetary policy.”`\
 https://www.nytimes.com/2026/07/09/business/warsh-announces-slate-of-new-advisers-for-fed-task-forces.html
-
-**Euphemism Won’t Save Young Black Men’s Lives**\
-`The term ‘gun violence’ makes murder seem abstract, not a tragic daily occurrence.`\
-https://www.nytimes.com/2026/07/09/opinion/gun-violence-euphemism-homicide.html
 

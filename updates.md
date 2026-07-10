@@ -1,3 +1,7 @@
+**Man Charged in National Guard Shooting Is Hospitalized for Refusing Food**\
+`The “dire” condition of the suspect, who has pleaded not guilty to murder and other charges, was “self-inflicted,” a judge said.`\
+https://www.nytimes.com/2026/07/09/us/lakanwal-national-guard-shooting-refuse-eat.html
+
 **Esta estrella se tragó a un planeta y eso fue apenas el aperitivo**\
 `El planeta engullido a 1300 años luz de distancia pudo haber sido lanzado hacia la estrella por su vecina, una enana marrón que los científicos creen que también será devorada.`\
 https://www.nytimes.com/es/2026/07/09/espanol/ciencia-y-tecnologia/planeta-estrella-engullimiento-planetario.html
