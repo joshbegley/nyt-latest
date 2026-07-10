@@ -1,3 +1,7 @@
+**México presentará denuncias penales en EE. UU. por las muertes de migrantes**\
+`La presidenta del país prometió ir “más allá de las notas diplomáticas” después de que un agente de inmigración estadounidense matara a Lorenzo Salgado Araujo, un ciudadano mexicano, en Texas esta semana.`\
+https://www.nytimes.com/es/2026/07/10/espanol/america-latina/mexico-muertes-migrantes-salgado-araujo.html
+
 **5 European Hotels Where You Can Beat the Heat**\
 `Whether hidden in the mountains or nestled by the sea, these spots offer some respite from the continent’s high temperatures.`\
 https://www.nytimes.com/2026/07/10/t-magazine/europe-hotels-heatwave-cool-travel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/opinion/executive-power-supreme-court-trump.h
 **Why Democrats Are Tripping All Over Themselves**\
 `A longtime observer of the party tries to make sense of where the party is, and where it is going.`\
 https://www.nytimes.com/2026/07/10/opinion/democrats-platner-maine-midterms.html
-
-**Witnesses of ICE Killing in Houston Dispute the Official Account**\
-`The agency said a Mexican immigrant driving a van tried to ram agents before they shot him dead. A lawyer for three passengers said that was untrue.`\
-https://www.nytimes.com/2026/07/10/us/houston-ice-shooting-witnesses.html
 
