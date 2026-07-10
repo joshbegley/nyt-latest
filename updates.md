@@ -1,3 +1,7 @@
+**Green Tech’s ‘Small Miracles’**\
+`Green technology advancements in everything from water desalination to vertical farming are making it possible to tackle previously intractable environmental challenges. On “The Ezra Klein Show,” Bill McKibben, a founder of the environmental groups 350.org and Third Act, shares some of the success stories he’s seen through his work.`\
+https://www.nytimes.com/video/opinion/100000011018056/green-techs-small-miracles.html
+
 **Charlie Cunningham, Mountain Bike Innovator, Dies at 77**\
 `In the late 1970s, he built what is considered the first off-road bicycle with a frame that was aluminum rather than steel, one of his many inventions.`\
 https://www.nytimes.com/2026/07/10/sports/cycling/charlie-cunningham-dead.html
