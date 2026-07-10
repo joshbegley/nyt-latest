@@ -1,3 +1,7 @@
+**The Best, Worst and Sexiest Trophies in Sports**\
+`Legendary art critic Jerry Saltz reviews the World Cup — and much more — as sculpture.`\
+https://www.nytimes.com/2026/07/10/podcasts/best-worst-and-sexiest-trophies-sports-world-cup.html
+
 **Los terremotos en Venezuela golpean el corazón del béisbol infantil**\
 `Los Criollitos, una liga infantil y juvenil que durante décadas simbolizó esperanza y ascenso social, ahora cuenta a sus muertos y busca a sus jugadores entre los escombros de La Guaira.`\
 https://www.nytimes.com/es/2026/07/10/espanol/america-latina/terremotos-la-guaira-criollitos-beisbol.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/movies/100000010974506/the-invite-scene-olivia-wil
 **Oil Prices Wobble As a Week of Hostilities Derails Shipping**\
 `The latest turmoil, sparked by attacks on three commercial ships in the strait days ago, pushed the price of crude back above prewar levels.`\
 https://www.nytimes.com/2026/07/10/business/oil-gas-stocks-shipping-iran-hormuz.html
-
-**Balenciaga’s Couture Was Beautiful, But Very Familiar**\
-`Pierpaolo Piccioli’s debut couture was beautiful, but very familiar.`\
-https://www.nytimes.com/2026/07/10/style/pierpaolo-piccioli-balenciaga-couture.html
 
