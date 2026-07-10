@@ -1,3 +1,15 @@
+**Is ‘U Don’t Know’ the Quintessential Jay-Z Song?**\
+`Our reporter and “Popcast” host Joe Coscarelli makes his argument for why Jay-Z’s “U Don’t Know” is best track on his 2001 album “The Blueprint.”`\
+https://www.nytimes.com/video/podcasts/100000011023936/is-u-dont-know-the-quintessential-jay-z-song.html
+
+**ICE Deports Immigrant Who Was Pardoned for Sex Abuse Conviction**\
+`Minnesota state officials had granted a pardon to Tou Lue Vang, a Hmong man, drawing criticism that Democratic leaders were thwarting efforts to expel criminals.`\
+https://www.nytimes.com/2026/07/10/us/politics/ice-deports-immigrant-pardoned-minnesota.html
+
+**Trump Administration Taps Climate Science Critic to Oversee Flagship Report**\
+`Matthew M. Wielicki has criticized the scientific consensus on global warming as alarmist. Now he’ll oversee a major federal report on the topic.`\
+https://www.nytimes.com/2026/07/10/climate/trump-climate-assessment-wielicki.html
+
 **Sexual Assault and Killing of Girl Set Off Days of Protest in West Bengal**\
 `After promising to improve safety for women in the Indian state, the party of Prime Minister Narendra Modi is facing public anger after the death of an 11-year-old girl.`\
 https://www.nytimes.com/2026/07/10/world/asia/girl-riots-west-bengal-baruipur.html
