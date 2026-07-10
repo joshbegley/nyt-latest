@@ -1,3 +1,7 @@
+**N.Y.P.D. Inspector Charged with Attempted Rape of a Female Officer**\
+`Inspector Jeremy Scheublin, 45, is accused of trying to sexually assault an officer who worked in his precinct. He pleaded not guilty on Friday.`\
+https://www.nytimes.com/2026/07/10/nyregion/nypd-inspector-sexual-assault.html
+
 **Judge Allows News Site to Publish School Lockdown Video but Sets Limits**\
 `Lawyers for the outlet, New Brunswick Today, said that the order, while a partial victory, still violated the First Amendment. They plan to appeal.`\
 https://www.nytimes.com/2026/07/10/nyregion/school-video-news-story-censorship.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/climate/lost-science-brain-navy-intelligence.
 **A.I. Has Rewarded Investors. It May Now Pose Their Greatest Risk.**\
 `Near the midpoint of the year, stocks and bonds both report good returns. But the global stock market has become highly concentrated, our columnist says.`\
 https://www.nytimes.com/2026/07/10/business/ai-stocks-bonds-investing-markets.html
-
-**How Volkswagen’s Troubles Were Made in China**\
-`The German auto giant’s push into China powered it for decades, but now the company faces fierce competition from Chinese automakers in markets around the world.`\
-https://www.nytimes.com/2026/07/10/business/volkswagen-china-problems-restructuring.html
 

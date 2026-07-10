@@ -1,3 +1,7 @@
+**Judge Allows News Site to Publish School Lockdown Video but Sets Limits**\
+`Lawyers for the outlet, New Brunswick Today, said that the order, while a partial victory, still violated the First Amendment. They plan to appeal.`\
+https://www.nytimes.com/2026/07/10/nyregion/school-video-news-story-censorship.html
+
 **Mexico to File Criminal Complaints in U.S. Over Immigrant Deaths**\
 `The nation’s president vowed to go “beyond diplomatic notes” after a U.S. immigration agent fatally shot Lorenzo Salgado Araujo, a Mexican man, in Texas this week.`\
 https://www.nytimes.com/2026/07/10/world/americas/mexico-criminal-complaints-immigration-deaths-usa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/business/ai-stocks-bonds-investing-markets.ht
 **How Volkswagen’s Troubles Were Made in China**\
 `The German auto giant’s push into China powered it for decades, but now the company faces fierce competition from Chinese automakers in markets around the world.`\
 https://www.nytimes.com/2026/07/10/business/volkswagen-china-problems-restructuring.html
-
-**Ticks Are on the Move. Here Are the Risks in Your Region.**\
-`Changing deer populations, rising temperatures and other factors are driving ticks and their diseases into new areas.`\
-https://www.nytimes.com/2026/07/10/well/tick-borne-disease-risks-regions.html
 

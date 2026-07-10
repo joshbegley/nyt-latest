@@ -1,3 +1,7 @@
+**Judge Allows News Site to Publish School Lockdown Video but Sets Limits**\
+`Lawyers for the outlet, New Brunswick Today, said that the order, while a partial victory, still violated the First Amendment. They plan to appeal.`\
+https://www.nytimes.com/2026/07/10/nyregion/school-video-news-story-censorship.html
+
 **Charlie Kirk Murder Suspect Declines to Testify in Court Examination of Evidence**\
 `A weeklong hearing disclosed new details about Charlie Kirk’s assassination and the ensuing investigation. A judge will decide later this year if Tyler Robinson, 23, will stand trial for the killing.`\
 https://www.nytimes.com/2026/07/10/us/charlie-kirk-shooting-hearing.html
