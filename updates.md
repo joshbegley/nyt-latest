@@ -1,3 +1,23 @@
+**U.S. Department of Energy Underestimated Potential Los Alamos Plutonium Leak Danger, Study Finds**\
+`An accident at the lab that produces America’s nuclear bomb cores could lead to more fatalities than previously estimated by the federal government, according to new research.`\
+https://www.nytimes.com/2026/07/10/climate/nuclear-bomb-energy-department-lab.html
+
+**When Norway Gave England a ‘Hell of a Beating’**\
+`A huge soccer upset in 1981 was immortalized by a famous radio call in Norway, directed at Prime Minister Margaret Thatcher.`\
+https://www.nytimes.com/2026/07/10/sports/soccer/world-cup-norway-england-commentary.html
+
+**Witnesses of ICE Killing in Houston Dispute the Official Account**\
+`The agency said a Mexican immigrant driving a van tried to ram agents before they shot him dead. A lawyer for three passengers said that was untrue.`\
+https://www.nytimes.com/2026/07/10/us/houston-ice-shooting-witnesses.html
+
+**Passenger Is Partly Sucked Through Window on Ryanair Subsidiary Flight, Reports Say**\
+`A 61-year-old man was being treated for friction burns after a window was damaged during a flight from Greece to Germany. The flight was operated by the Ryanair subsidiary Malta Air.`\
+https://www.nytimes.com/2026/07/10/world/europe/ryanair-plane-greece-passenger-broken-window.html
+
+**Mediators Trying to Pull U.S. and Iran Back From Brink, Officials Say**\
+`Qatari mediators were in Iran seeking to salvage the tattered truce. President Trump said talks with Tehran would continue, even if the cease-fire was “over.”`\
+https://www.nytimes.com/2026/07/10/world/middleeast/iran-us-ceasefire-talks.html
+
 **Two Days of U.S. Strikes in Iran Signal a Sharp Escalation**\
 `U.S. forces hit more than 170 targets, including air defense systems, drone and missile storage sites, and military speedboats.`\
 https://www.nytimes.com/2026/07/10/us/politics/iran-war-escalation.html
