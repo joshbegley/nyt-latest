@@ -1,3 +1,39 @@
+**Meet Neil, Australia’s Celebrity Seal**\
+`The young elephant seal has gained fans around the world. But the authorities warn he could be in danger of being loved to death.`\
+https://www.nytimes.com/2026/07/10/world/australia/neil-seal-australia-tasmania.html
+
+**Seal’s Mischievous Antics Draws Crowds and Caution**\
+`Neil the seal has smashed fences and lounged in the middle of the road, drawing crowds of adoring fans. Wildlife experts warn that too much popularity can be dangerous.`\
+https://www.nytimes.com/video/world/australia/100000011020930/neil-seal-australia.html
+
+**Los ataques de Irán corren el riesgo de reavivar la guerra a gran escala con EE. UU.**\
+`La historia de Irán muestra que el régimen del país ha estado dispuesto a atacar y prolongar conflictos, incluso cuando eso pueda implicar derrotas importantes.`\
+https://www.nytimes.com/es/2026/07/10/espanol/mundo/iran-trump-ataques-estrecho-ormuz.html
+
+**Quote of the Day: The Man Who Cried ‘Goooooooooal’**\
+`Quotation of the Day for Friday, July 10, 2026.`\
+https://www.nytimes.com/2026/07/10/pageoneplus/quote-of-the-day-the-man-who-cried-goooooooooal.html
+
+**Through Sickness, They Remained ‘Healthy With Each Other’**\
+`Ron Zofnat and Trevor Jacobson dated for three months before Zofnat was diagnosed with cancer. They then embarked on a “dual track” life.`\
+https://www.nytimes.com/2026/07/10/style/ron-zofnat-trevor-jacobson-wedding.html
+
+**He Annoyed Me, Which Is Exactly What I Needed in a Man**\
+`My anxiety made it too hard to date. Then I met a perfectly irritating guy on Bumble.`\
+https://www.nytimes.com/2026/07/10/style/modern-love-he-annoyed-me-which-is-exactly-what-i-needed.html
+
+**Love and Hockey Kept Them Moving, Often Together**\
+`Lane Radovan and Nate Clurman, a professional hockey player, first met as high school freshmen in 2013, but didn’t become official until 2019.`\
+https://www.nytimes.com/2026/07/10/style/lane-radovan-nate-clurman-wedding.html
+
+**A Rough Introduction, a Fast Friendship and One Very Cozy Cat**\
+`Jonathan Samuel Masci was a bit standoffish during his first encounter with Nadia Tiffany Gakou, but their relationship flourished when he finally understood the assignment.`\
+https://www.nytimes.com/2026/07/10/style/nadia-gakou-jonathan-masci-wedding.html
+
+**A Wedding That Recaptured Their Carefree Camp Days**\
+`Jackie Miller and Matt Hochberg were born in the same hospital and attended the same preschool, but first met as teens at summer camp.`\
+https://www.nytimes.com/2026/07/10/style/jackie-miller-matt-hochberg-wedding.html
+
 **What Graham Platner’s Implosion Reveals About the Democratic Party**\
 `Lisa Lerer, a New York Times national political correspondent, explains how recent allegations against the Senate candidate Graham Platner and his subsequent withdrawal from Maine’s primary race have reignited a longstanding conflict between the progressive and establishment wings of the Democratic Party.`\
 https://www.nytimes.com/video/us/politics/100000011019093/what-graham-platners-implosion-reveals-about-the-democratic-party.html
