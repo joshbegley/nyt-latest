@@ -1,3 +1,7 @@
+**An American Politician is Blocked by Israeli Settlers in the West Bank**\
+`Representative Ro Khanna was barred from leaving for 90 minutes. Where past U.S. leaders toured the region to show support for Israel, today’s Democratic presidential aspirants are going to bolster their credentials as critics.`\
+https://www.nytimes.com/2026/07/11/us/politics/ro-khanna-west-bank.html
+
 **Gravitational Pull**\
 `We think and dream and fuss and project entire worlds into existence. Meanwhile, the earth’s orbit continues and the sun goes on shining.`\
 https://www.nytimes.com/2026/07/11/briefing/gravitational-pull.html
