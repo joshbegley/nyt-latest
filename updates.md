@@ -1,3 +1,7 @@
+**La tristeza, la rabia y la loca alegría de la fase eliminatoria del Mundial**\
+`La mejor forma de entender esta fase del torneo es imaginar un túnel de autolavado hecho con ralladores de queso.`\
+https://www.nytimes.com/es/2026/07/11/espanol/mundo/haaland-noruega-brasil-mundial.html
+
 **Jayson Conner, 48, and Jeffrey Newman, 58, Die; Gave Thousands of Backpacks to Those in Need**\
 `The couple, who died within a few days of each other, provided needed supplies, like socks and wet wipes, to people living on New York City’s streets.`\
 https://www.nytimes.com/2026/07/11/nyregion/jeffrey-newman-jayson-connor-dead.html
