@@ -1,3 +1,7 @@
+**Flooding in Missouri Prompts State of Emergency and at Least 100 Rescues**\
+`Gov. Mike Kehoe declared a state of emergency after up to a foot of rain fell in the southeastern part of the state. More storms are in the forecast.`\
+https://www.nytimes.com/2026/07/10/weather/missouri-rain-flooding.html
+
 **La muerte de un inmigrante en Houston aviva el debate sobre la estrategia de ICE**\
 `La muerte a tiros de Lorenzo Salgado Araujo se produjo en un momento en el que se han intensificado las medidas de control de inmigración en todo el país, con miles de detenciones diarias.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/ice-muerte-migrante.html
