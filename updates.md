@@ -1,3 +1,7 @@
+**Reseña de ‘Moana’: un remake que pierde el rumbo**\
+`Disney vuelve sobre uno de sus mayores éxitos, pero esta versión de acción real ofrece muy poco que justifique su existencia.`\
+https://www.nytimes.com/es/2026/07/11/espanol/cultura/resena-moana.html
+
 **After Being Delayed by Trump, a Canada-U.S. Bridge is Set to Open**\
 `A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
 https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html
