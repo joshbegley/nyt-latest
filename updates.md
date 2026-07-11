@@ -1,3 +1,7 @@
+**Slight Adjustments**\
+`Collin Drown’s debut Times puzzle doesn’t mince words.`\
+https://www.nytimes.com/2026/07/11/crosswords/daily-puzzle-2026-07-12.html
+
 **White House Directed Patel to Oversee Investigation Involving Times Reporting**\
 `The F.B.I. director spent about eight hours at the White House Friday focused on the effort, which led to the subpoenaing of several Times reporters who wrote about the security of Air Force One.`\
 https://www.nytimes.com/2026/07/11/us/politics/white-house-patel-investigation-times.html
