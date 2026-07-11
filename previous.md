@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/07/11/world/canada/wildfires-prevention-testing-can
 `Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
 https://www.nytimes.com/2026/07/11/crosswords/strands-sidekick-861.html
 
-**Mick Jagger Isn’t Sure He Ever Lets the World See the Real Him**\
+**Mick Jagger Knows He May Have Played His Last Rolling Stones Show**\
 `The legendary rock star, now 82, on how fame, touring and aging have changed him.`\
 https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html
 

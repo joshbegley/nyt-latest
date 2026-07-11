@@ -1,3 +1,7 @@
+**Mick Jagger Knows He May Have Played His Last Rolling Stones Show**\
+`The legendary rock star, now 82, on how fame, touring and aging have changed him.`\
+https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html
+
 **Inside the Secret Factory That Supplies Ukraine’s War Drones**\
 `With its mass-produced and inexpensive A.I. powered war machines, the German start-up Helsing SE illustrates a profound shift in military spending.`\
 https://www.nytimes.com/2026/07/11/business/dealbook/drone-factory-helsing.html
