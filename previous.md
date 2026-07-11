@@ -1,3 +1,7 @@
+**Gravitational Pull**\
+`We think and dream and fuss and project entire worlds into existence. Meanwhile, the earth’s orbit continues and the sun goes on shining.`\
+https://www.nytimes.com/2026/07/11/briefing/gravitational-pull.html
+
 **My Aunt Pretends My Cousin Doesn’t Have a Drug Problem. Do I Have to Play Along?**\
 `I am sick of the charade we are expected to maintain around them.`\
 https://www.nytimes.com/2026/07/11/magazine/family-drug-addiction-ethics.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/world/africa/dr-congo-ebola-american-us-citiz
 **Randolph Mantooth, Who Played John Gage in ‘Emergency!,’ Dies at 80**\
 `His portrayal of the firefighter and paramedic in the 1970s television hit helped expand the American public’s familiarity with emergency medicine.`\
 https://www.nytimes.com/2026/07/11/obituaries/randolph-mantooth-dead.html
-
-**Reseña de ‘Moana’: un remake que pierde el rumbo**\
-`Disney vuelve sobre uno de sus mayores éxitos, pero esta versión de acción real ofrece muy poco que justifique su existencia.`\
-https://www.nytimes.com/es/2026/07/11/espanol/cultura/resena-moana.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\

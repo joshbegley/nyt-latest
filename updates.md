@@ -1,3 +1,7 @@
+**Gravitational Pull**\
+`We think and dream and fuss and project entire worlds into existence. Meanwhile, the earth’s orbit continues and the sun goes on shining.`\
+https://www.nytimes.com/2026/07/11/briefing/gravitational-pull.html
+
 **My Aunt Pretends My Cousin Doesn’t Have a Drug Problem. Do I Have to Play Along?**\
 `I am sick of the charade we are expected to maintain around them.`\
 https://www.nytimes.com/2026/07/11/magazine/family-drug-addiction-ethics.html
