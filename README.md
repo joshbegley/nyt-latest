@@ -1,3 +1,7 @@
+**Marco Rubio gestiona a Venezuela desde Washington**\
+`El secretario de Estado de EE. UU. controla de facto las finanzas de Venezuela, la distribución de sus recursos naturales y su gobierno. Su control es una clara muestra del poder estadounidense en la era Trump.`\
+https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/venezuela-rodriguez-rubio-trump.html
+
 **How The Times Reported on Graham Platner**\
 `Two senior editors discuss the difficult effort to track down allegations against the leading Democrat for Senate in Maine and the questions that soon followed.`\
 https://www.nytimes.com/2026/07/11/insider/11-insider-platner-main-rape-allegation-reporting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/crosswords/daily-puzzle-2026-07-11.html
 **U.S. Employers Told to Dismiss Thousands of Immigrant Workers**\
 `Shifting deadlines are confusing businesses as the end of Temporary Protected Status for Haitians and others looms, making them ineligible to live and work in the United States.`\
 https://www.nytimes.com/2026/07/10/us/politics/tps-workers-dismissals.html
-
-**‘Giulia’ Review: Jennifer Nettles Delivers Empowerment (and Poison)**\
-`A stirring but tonally muddled new musical about the “poison queen of Palermo” gets an elegant Off Broadway production.`\
-https://www.nytimes.com/2026/07/10/theater/giulia-poison-queen-of-palermo-review-nettles.html
 
