@@ -1,3 +1,7 @@
+**Videos Shed Light on Pursuit Before ICE Killing in Houston**\
+`Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
+https://www.nytimes.com/2026/07/11/world/houston-ice-video-shooting-salgado-araujo.html
+
 **Trump-Appointed Judge Reluctantly Grants Dismissal of Proud Boys Case**\
 `Judge Timothy J. Kelly, a federal judge in Washington, noted that he had little choice but to accept the Trump administration’s move to end the case.`\
 https://www.nytimes.com/2026/07/11/us/politics/judge-proud-boys-sedition-dismissal.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/07/11/world/europe/london-outdoor-swimming-heat-wav
 `As Paris swooned, fashion entered something of a flow state, with couturiers flexing on the runway and onlookers doing anything they could to keep cool.`\
 https://www.nytimes.com/2026/07/11/style/paris-couture-week-photos.html
 
-**What Slate Auto’s $25,000 Electric Pickup Truck Is Like in Person**\
-`The Slate Auto truck is making a splash for its lack of frills and its relatively affordable price, but it’s jumping into a difficult market.`\
-https://www.nytimes.com/2026/07/11/business/slate-auto-electric-pickup-truck.html
-
-**World Cup Updates: Kansas City Seizes Its Moment**\
+**World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 

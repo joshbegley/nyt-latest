@@ -1,3 +1,11 @@
+**Videos Shed Light on Pursuit Before ICE Killing in Houston**\
+`Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
+https://www.nytimes.com/2026/07/11/world/houston-ice-video-shooting-salgado-araujo.html
+
+**World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman For Talks**\
 `The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged to avenge his father’s killing, trading threats with President Trump.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
