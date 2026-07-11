@@ -1,3 +1,7 @@
+**U.S. Citizen Tests Positive for Ebola in Democratic Republic of Congo**\
+`The American works for a humanitarian organization in Congo, the Centers for Disease Control and Prevention said.`\
+https://www.nytimes.com/2026/07/11/world/africa/dr-congo-ebola-american-us-citizen.html
+
 **Randolph Mantooth, Who Played John Gage in ‘Emergency!,’ Dies at 80**\
 `His portrayal of the firefighter and paramedic in the 1970s television hit helped expand the American public’s familiarity with emergency medicine.`\
 https://www.nytimes.com/2026/07/11/obituaries/randolph-mantooth-dead.html
