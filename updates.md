@@ -1,3 +1,7 @@
+**White House Directed Patel to Oversee Investigation Involving Times Reporting**\
+`The F.B.I. director spent about eight hours at the White House Friday focused on the effort, which led to the subpoenaing of several Times reporters who wrote about the security of Air Force One.`\
+https://www.nytimes.com/2026/07/11/us/politics/white-house-patel-investigation-times.html
+
 **At Vigil, Sons of Man Killed by ICE in Houston Call for Accountability**\
 `The sons of Lorenzo Salgado Araujo recalled their father’s love of soccer and said they would “continue to keep fighting for him.”`\
 https://www.nytimes.com/2026/07/11/us/houston-ice-shooting-vigil.html
