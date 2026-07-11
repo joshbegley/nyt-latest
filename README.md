@@ -1,3 +1,7 @@
+**Reseña de ‘Moana’: un remake que pierde el rumbo**\
+`Disney vuelve sobre uno de sus mayores éxitos, pero esta versión de acción real ofrece muy poco que justifique su existencia.`\
+https://www.nytimes.com/es/2026/07/11/espanol/cultura/resena-moana.html
+
 **¿Qué planes tiene Trump para Irán después del fracaso de la tregua?**\
 `A menos de un mes de la firma del acuerdo provisional, una serie de ataques contra tres barcos que atravesaban el estrecho de Ormuz llevaron a Trump a revocar la exención que permitía a Irán vender petróleo.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/trump-iran-guerra-tregua.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/well/eye-drop-recall-prednisolone-fda.html
 **How a Deadly Storm Surprised Wisconsin Boaters**\
 `Three children died last weekend when a storm whipped up 80 mile-per-hour winds and large waves on Geneva Lake in Wisconsin.`\
 https://www.nytimes.com/2026/07/10/weather/lake-geneva-wisconsin-storm-what-happened.html
-
-**Law Enforcement Search for Survivors After a Boat Capsized in Wisconsin Lake**\
-`Three children died on July 3 after a boat capsized on Geneva Lake in Wisconsin during a storm.`\
-https://www.nytimes.com/video/us/100000011018989/boat-capsized-wisconsin.html
 
