@@ -1,3 +1,7 @@
+**Man Arrested in Killing of U.K. Ex-Lawmaker Is Released**\
+`The police said the 26-year-old was no longer part of the investigation into the death of Ann Widdecombe and urged anyone with information about the crime to come forward.`\
+https://www.nytimes.com/2026/07/11/world/europe/uk-ann-widdecombe-suspect-released.html
+
 **La muerte de un inmigrante en Houston aviva el debate sobre la estrategia de ICE**\
 `La muerte a tiros de Lorenzo Salgado Araujo se produjo en un momento en el que se han intensificado las medidas de control de inmigración en todo el país, con miles de detenciones diarias.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/ice-muerte-migrante.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011017931/what-is-the-quintessentia
 **N.Y.P.D. Inspector Charged with Attempted Rape of a Female Officer**\
 `Inspector Jeremy Scheublin, 45, is accused of trying to sexually assault an officer who worked in his precinct. He pleaded not guilty on Friday.`\
 https://www.nytimes.com/2026/07/10/nyregion/nypd-inspector-sexual-assault.html
-
-**Judge Allows News Site to Publish School Lockdown Video but Sets Limits**\
-`Lawyers for the outlet, New Brunswick Today, said that the order, while a partial victory, still violated the First Amendment. They plan to appeal.`\
-https://www.nytimes.com/2026/07/10/nyregion/school-video-news-story-censorship.html
 

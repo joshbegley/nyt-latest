@@ -1,3 +1,7 @@
+**Man Arrested in Killing of U.K. Ex-Lawmaker Is Released**\
+`The police said the 26-year-old was no longer part of the investigation into the death of Ann Widdecombe and urged anyone with information about the crime to come forward.`\
+https://www.nytimes.com/2026/07/11/world/europe/uk-ann-widdecombe-suspect-released.html
+
 **Flooding in Missouri Prompts State of Emergency and at Least 100 Rescues**\
 `Gov. Mike Kehoe declared a state of emergency after up to a foot of rain fell in the southeastern part of the state. More storms are in the forecast.`\
 https://www.nytimes.com/2026/07/10/weather/missouri-rain-flooding.html
