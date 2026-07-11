@@ -1,3 +1,7 @@
+**¿Matt Damon parece griego? No. Entonces deja de quejarte de Lupita Nyong’o**\
+`Helena de Troya era una belleza legendaria, pero también mucho más que eso.`\
+https://www.nytimes.com/es/2026/07/11/espanol/opinion/helena-troya-lupita-nyongo.html
+
 **Videos Shed Light on Pursuit Before ICE Killing in Houston**\
 `Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
 https://www.nytimes.com/2026/07/11/us/houston-ice-video-shooting-salgado-araujo.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/business/kansas-city-world-cup-host.html
 **Hot Weather Sets Off Scramble for Outdoor Swimming in London**\
 `In an ever hotter city, the competition for pools is fierce. Some swimmers are turning to ponds and canals, which come with their own problems.`\
 https://www.nytimes.com/2026/07/11/world/europe/london-outdoor-swimming-heat-wave-uk.html
-
-**Photos: At Paris Couture Week, the Looks Were as Extreme as the Heat**\
-`As Paris swooned, fashion entered something of a flow state, with couturiers flexing on the runway and onlookers doing anything they could to keep cool.`\
-https://www.nytimes.com/2026/07/11/style/paris-couture-week-photos.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\
