@@ -1,3 +1,7 @@
+**Maine Democrats Announce July 25 Convention to Pick Platner Replacement**\
+`The gathering will take place in Bangor, the state party announced.`\
+https://www.nytimes.com/2026/07/10/us/maine-democrats-platner-replacement-convention.html
+
 **U.S. Employers Told to Dismiss Thousands of Immigrant Workers**\
 `Shifting deadlines are confusing businesses as the end of Temporary Protected Status for Haitians and others looms, making them ineligible to live and work in the United States.`\
 https://www.nytimes.com/2026/07/10/us/politics/tps-workers-dismissals.html
