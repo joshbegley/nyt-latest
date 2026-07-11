@@ -1,3 +1,7 @@
+**A California Man Took a Selfie at a Crime Scene. It Led to His Arrest.**\
+`Two men were taken into custody this week after $100,000 in tools, copper and vehicles was taken from a business in the Napa Valley. A selfie that one of them took served as evidence.`\
+https://www.nytimes.com/2026/07/11/us/california-burglary-arrest-selfie.html
+
 **¿Matt Damon parece griego? No. Entonces deja de quejarte de Lupita Nyong’o**\
 `Helena de Troya era una belleza legendaria, pero también mucho más que eso.`\
 https://www.nytimes.com/es/2026/07/11/espanol/opinion/helena-troya-lupita-nyongo.html
