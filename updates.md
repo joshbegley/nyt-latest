@@ -1,3 +1,7 @@
+**World Cup Updates: Kansas City Seizes Its Moment**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Mick Jagger Isn’t Sure He Ever Lets the World See the Real Him**\
 `The legendary rock star, now 82, on how fame, touring and aging have changed him.`\
 https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html
