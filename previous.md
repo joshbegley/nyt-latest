@@ -1,3 +1,7 @@
+**What’s Kraken?**\
+`Dive into Jim Quinlan’s swell new themeless puzzle.`\
+https://www.nytimes.com/2026/07/10/crosswords/daily-puzzle-2026-07-11.html
+
 **U.S. Employers Told to Dismiss Thousands of Immigrant Workers**\
 `Shifting deadlines are confusing businesses as the end of Temporary Protected Status for Haitians and others looms, making them ineligible to live and work in the United States.`\
 https://www.nytimes.com/2026/07/10/us/politics/tps-workers-dismissals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/10/espanol/mundo/china-cohete-long-march-10b.
 **Is ‘U Don’t Know’ the Quintessential Jay-Z Song?**\
 `Our reporter and “Popcast” host Joe Coscarelli makes his argument for why Jay-Z’s “U Don’t Know” is best track on his 2001 album “The Blueprint.”`\
 https://www.nytimes.com/video/podcasts/100000011023936/is-u-dont-know-the-quintessential-jay-z-song.html
-
-**ICE Deports Immigrant Who Was Pardoned for Sex Abuse Conviction**\
-`Minnesota state officials had granted a pardon to Tou Lue Vang, a Hmong man, drawing criticism that Democratic leaders were thwarting efforts to expel criminals.`\
-https://www.nytimes.com/2026/07/10/us/politics/ice-deports-immigrant-pardoned-minnesota.html
 

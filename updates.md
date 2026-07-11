@@ -1,3 +1,7 @@
+**What’s Kraken?**\
+`Dive into Jim Quinlan’s swell new themeless puzzle.`\
+https://www.nytimes.com/2026/07/10/crosswords/daily-puzzle-2026-07-11.html
+
 **Maine Democrats Announce July 25 Convention to Pick Platner Replacement**\
 `The gathering will take place in Bangor, the state party announced.`\
 https://www.nytimes.com/2026/07/10/us/maine-democrats-platner-replacement-convention.html
