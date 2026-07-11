@@ -1,3 +1,7 @@
+**Inside the Secret Factory That Supplies Ukraine’s War Drones**\
+`With its mass-produced and inexpensive A.I. powered war machines, the German start-up Helsing SE illustrates a profound shift in military spending.`\
+https://www.nytimes.com/2026/07/11/business/dealbook/drone-factory-helsing.html
+
 **In Sudan, a Preventable Atrocity**\
 `Hundreds of thousands of people in Sudan are bracing for their city to be overrun by a militia notorious for committing atrocities.`\
 https://www.nytimes.com/2026/07/11/opinion/sudan-atrocity-africa-rsf.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/well/years-after-he-quit-smoking-a-lung-cance
 **Orna Guralnik of ‘Couples Therapy’ Considers Kendrick Lamar a Genius**\
 `Outside of her job as the therapist on the series “Couples Therapy,” she has a favorite clip of the rapper performing and shows it to everyone she knows.`\
 https://www.nytimes.com/2026/07/11/arts/television/orna-guralnik-couples-therapy.html
-
-**Our Insatiable Appetite for Stories About Cannibalism**\
-`Why do the characters in so many new novels insist upon eating each other?`\
-https://www.nytimes.com/2026/07/11/books/cannibalism-fiction.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\

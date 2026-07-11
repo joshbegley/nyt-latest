@@ -1,3 +1,7 @@
+**Inside the Secret Factory That Supplies Ukraine’s War Drones**\
+`With its mass-produced and inexpensive A.I. powered war machines, the German start-up Helsing SE illustrates a profound shift in military spending.`\
+https://www.nytimes.com/2026/07/11/business/dealbook/drone-factory-helsing.html
+
 **In Sudan, a Preventable Atrocity**\
 `Hundreds of thousands of people in Sudan are bracing for their city to be overrun by a militia notorious for committing atrocities.`\
 https://www.nytimes.com/2026/07/11/opinion/sudan-atrocity-africa-rsf.html
