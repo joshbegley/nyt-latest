@@ -1,3 +1,7 @@
+**An American Politician is Blocked by Israeli Settlers in the West Bank**\
+`Representative Ro Khanna was barred from leaving for 90 minutes. Where past U.S. leaders toured the region to show support for Israel, today’s Democratic presidential aspirants are going to bolster their credentials as critics.`\
+https://www.nytimes.com/2026/07/11/us/politics/ro-khanna-west-bank.html
+
 **Gravitational Pull**\
 `We think and dream and fuss and project entire worlds into existence. Meanwhile, the earth’s orbit continues and the sun goes on shining.`\
 https://www.nytimes.com/2026/07/11/briefing/gravitational-pull.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/11/nyregion/routine-jamie-hector.htm
 **U.S. Citizen Tests Positive for Ebola in Democratic Republic of Congo**\
 `The American works for a humanitarian organization in Congo, the Centers for Disease Control and Prevention said.`\
 https://www.nytimes.com/2026/07/11/world/africa/dr-congo-ebola-american-us-citizen.html
-
-**Randolph Mantooth, Who Played John Gage in ‘Emergency!,’ Dies at 80**\
-`His portrayal of the firefighter and paramedic in the 1970s television hit helped expand the American public’s familiarity with emergency medicine.`\
-https://www.nytimes.com/2026/07/11/obituaries/randolph-mantooth-dead.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
