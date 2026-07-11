@@ -1,3 +1,15 @@
+**‘They Don’t Need People’: The Workers Left Behind by China’s Robot Drive**\
+`For out-of-work factory workers in Kunshan, a region made rich by electronics manufacturing, a park is the only place to go.`\
+https://www.nytimes.com/2026/07/11/world/asia/china-workers-robots-factories.html
+
+**Quote of the Day: Estonia Beat Fentanyl. Next Scourge Was Worse.**\
+`Quotation of the Day for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/11/pageoneplus/quote-of-the-day-estonia-beat-fentanyl-next-scourge-was-worse.html
+
+**Book Review: ‘Fixer Chao,’ by Han Ong**\
+`Han Ong’s barbed, irreverent portrait of identity, class envy and flimflam deception in turn-of-the-21st-century Manhattan still resonates.`\
+https://www.nytimes.com/2026/07/11/books/review/fixer-chao-han-ong.html
+
 **What’s Kraken?**\
 `Dive into Jim Quinlan’s swell new themeless puzzle.`\
 https://www.nytimes.com/2026/07/10/crosswords/daily-puzzle-2026-07-11.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/world/europe/harry-meghan-visit-charles-camil
 **SK Hynix Stock Rises on First Day of US Trading**\
 `SK Hynix began trading at $170 a share, above its initial public offering price of $149, in the latest test of investor demand for A.I.-related companies.`\
 https://www.nytimes.com/2026/07/10/business/sk-hynix-stock.html
-
-**Trump Cuts Habitat Protections for Endangered Species**\
-`The rule change ends a safeguard that had been in place for 50 years and could hasten the demise of imperiled animals.`\
-https://www.nytimes.com/2026/07/10/climate/endangered-species-act-harm.html
-
-**China lanza un cohete y avanza en la carrera contra SpaceX**\
-`El lanzamiento y la recuperación del Long March 10B podrían suponer un avance muy esperado para las empresas chinas de satélites.`\
-https://www.nytimes.com/es/2026/07/10/espanol/mundo/china-cohete-long-march-10b.html
-
-**Is ‘U Don’t Know’ the Quintessential Jay-Z Song?**\
-`Our reporter and “Popcast” host Joe Coscarelli makes his argument for why Jay-Z’s “U Don’t Know” is best track on his 2001 album “The Blueprint.”`\
-https://www.nytimes.com/video/podcasts/100000011023936/is-u-dont-know-the-quintessential-jay-z-song.html
 
