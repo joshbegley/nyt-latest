@@ -1,3 +1,15 @@
+**We Have 7-Eleven Snacks at Home**\
+`Skip the prepackaged stuff and make your own Pop-Tarts and Hostess cupcakes at home.`\
+https://www.nytimes.com/2026/07/11/dining/we-have-7-eleven-snacks-at-home.html
+
+**¿Pasas mucho tiempo en el teléfono? Estas sugerencias pueden servirte**\
+`Nuestros lectores han compartido algunas estrategias que les han servido para reducir su tiempo con las pantallas.`\
+https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/reducir-tiempo-pantalla-consejos.html
+
+**Iran’s Top Diplomat Is in Oman for Talks on Strait as Ayatollah Vows Revenge**\
+`The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged to avenge his father’s killing, trading threats with President Trump.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **Iran’s Top Diplomat in Oman for Talks on Strait, As Ayatollah Vows Revenge**\
 `The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged  to avenge his father’s killing, trading threats with President Trump.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
