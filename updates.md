@@ -1,3 +1,7 @@
+**Iranians Bury Slain Leader Amid Renewed Fighting**\
+`Iranians mourning the country’s supreme leader condemned U.S. strikes that Washington called retaliation for Iran’s attacks on commercial ships in the Strait of Hormuz. At a tightly controlled state funeral in Mashhad — one of Iran’s most conservative cities, where opponents of the government were unlikely to be found in the crowd — mourners voiced defiance and called for revenge.`\
+https://www.nytimes.com/video/world/middleeast/100000011023379/iran-supreme-leader-khamenei-buried.html
+
 **D.S.A. Members Blast Mamdani Adviser for Elevating Graham Platner**\
 `A letter circulated by Democratic Socialists of America members asked that candidates sever ties with Morris Katz, a consultant for Mr. Platner and Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/07/10/nyregion/platner-katz-mamdani-dsa.html
