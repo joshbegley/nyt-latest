@@ -102,7 +102,7 @@ https://www.nytimes.com/video/podcasts/100000011024540/mick-jagger-how-fame-dama
 `Jeff era mi pareja y amigo de Billy. ¿Era también Cupido?`\
 https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/muerte-duelo-amigo.html
 
-**England and Norway, Old Friends, Resurrect a Rivalry for the World Cup**\
+**England and Norway Resurrect a Rivalry for the World Cup**\
 `Along with historic and diplomatic ties, England’s club soccer teams have loyal fans in Norway. On Saturday, supporters will have to pick a side.`\
 https://www.nytimes.com/2026/07/11/world/europe/england-norway-world-cup.html
 
