@@ -1,3 +1,7 @@
+**Times Journalists Subpoenaed as Trump Escalates Pressure on Media**\
+`The Justice Department is seeking to compel testimony from reporters who wrote about the new Air Force One. The Times called the move a “brazen act.”`\
+https://www.nytimes.com/2026/07/11/business/media/new-york-times-trump-subpoenas.html
+
 **‘They Don’t Need People’: The Workers Left Behind by China’s Robot Drive**\
 `For out-of-work factory workers in Kunshan, a region made rich by electronics manufacturing, a park is the only place to go.`\
 https://www.nytimes.com/2026/07/11/world/asia/china-workers-robots-factories.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011018989/boat-capsized-wisconsin.html
 **Royal Rapprochement: Harry and Meghan Pay a Rare Visit to the King and Queen**\
 `Friday’s visit to King Charles and Queen Camilla signaled a détente in relations with Prince Harry and his wife, who stepped down from royal duties and moved to the United States in 2020.`\
 https://www.nytimes.com/2026/07/10/world/europe/harry-meghan-visit-charles-camilla.html
-
-**SK Hynix Stock Rises on First Day of US Trading**\
-`SK Hynix began trading at $170 a share, above its initial public offering price of $149, in the latest test of investor demand for A.I.-related companies.`\
-https://www.nytimes.com/2026/07/10/business/sk-hynix-stock.html
 
