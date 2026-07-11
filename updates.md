@@ -1,3 +1,31 @@
+**In Sudan, a Preventable Atrocity**\
+`Hundreds of thousands of people in Sudan are bracing for their city to be overrun by a militia notorious for committing atrocities.`\
+https://www.nytimes.com/2026/07/11/opinion/sudan-atrocity-africa-rsf.html
+
+**‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
+`What America’s embarrassments have in common.`\
+https://www.nytimes.com/2026/07/11/opinion/trump-iran-ceasefire-mcconnell-platner.html
+
+**We Must Address the Growing Rage Against the A.I. Machine**\
+`A.I. demands a populist approach that treats the technology as a public project.`\
+https://www.nytimes.com/2026/07/11/opinion/ai-populism-china-open-source.html
+
+**We’re Living in a Tick Nightmare. It’s Time to Go to War.**\
+`With ticks, we’ve barely begun to fight back. The longer we wait, the more territory they will claim across both our geographic and psychic maps.`\
+https://www.nytimes.com/2026/07/11/opinion/ticks-disease-lyme-alpha-gal.html
+
+**The Population Forecasts Are Grim. They’re Still Too Optimistic.**\
+`America is not prepared for population decline.`\
+https://www.nytimes.com/2026/07/11/opinion/population-forecast-birth-rate.html
+
+**Looksmaxxers Actually Don’t Care What Women Think**\
+`Social pressure for men to look a certain way is coming primarily from other men.`\
+https://www.nytimes.com/2026/07/11/opinion/plastic-surgery-looksmaxxing-male-gaze.html
+
+**More Than One Way to Fix Social Security**\
+`Readers respond to two guest essays about how to cover the shortfall in the program’s funding before it’s too late.`\
+https://www.nytimes.com/2026/07/11/opinion/social-security.html
+
 **‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
 `What America’s embarrassments have in common.`\
 https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
