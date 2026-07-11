@@ -1,3 +1,7 @@
+**La tristeza, la rabia y la loca alegría de la fase eliminatoria del Mundial**\
+`La mejor forma de entender esta fase del torneo es imaginar un túnel de autolavado hecho con ralladores de queso.`\
+https://www.nytimes.com/es/2026/07/11/espanol/mundo/haaland-noruega-brasil-mundial.html
+
 **Jayson Conner, 48, and Jeffrey Newman, 58, Die; Gave Thousands of Backpacks to Those in Need**\
 `The couple, who died within a few days of each other, provided needed supplies, like socks and wet wipes, to people living on New York City’s streets.`\
 https://www.nytimes.com/2026/07/11/nyregion/jeffrey-newman-jayson-connor-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/business/trump-accounts-investing-kids.html
 **In the Hamptons, Even the Chicken Tenders Are Living Fancy**\
 `It’s summer on the South Fork. Care for some nuggets and caviar?`\
 https://www.nytimes.com/2026/07/11/nyregion/hamptons-chicken-tenders.html
-
-**Yaacov Agam, Who Made Kinetic, Kaleidoscopic Art, Dies at 98**\
-`An Israeli artist, he became a global sensation, creating sculptures, paintings, toys and public works that delighted the eye and confounded perception.`\
-https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\
