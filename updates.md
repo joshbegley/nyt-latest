@@ -1,3 +1,7 @@
+**Iran’s Top Diplomat Is in Oman for Talks on Strait of Hormuz**\
+`The visit comes after heavy clashes this week between the U.S. and Iran. On Saturday, the country’s supreme leader vowed revenge for his father’s killing.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **Mick Jagger Knows He May Have Played His Last Rolling Stones Show**\
 `The legendary rock star, now 82, on how fame, touring and aging have changed him.`\
 https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html

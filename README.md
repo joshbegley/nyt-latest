@@ -146,7 +146,7 @@ https://www.nytimes.com/2026/07/11/nyregion/hamptons-chicken-tenders.html
 `A pioneer of Op Art, he became a global sensation, creating sculptures, paintings, toys and public works that delighted the eye and confounded perception.`\
 https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
 
-**How Marco Rubio is Running Venezuela From Afar**\
+**How Marco Rubio Is Running Venezuela From Afar**\
 `The secretary of state effectively controls Venezuela’s finances, the distribution of its natural resources and its government. His grip on the country is a vivid manifestation of American power in the Trump era.`\
 https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html
 
