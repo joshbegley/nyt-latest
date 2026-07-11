@@ -1,3 +1,7 @@
+**Jayson Conner, 48, and Jeffrey Newman, 58, Die; Gave Thousands of Backpacks to Those in Need**\
+`The couple, who died within a few days of each other, provided needed supplies, like socks and wet wipes, to people living on New York City’s streets.`\
+https://www.nytimes.com/2026/07/11/nyregion/jeffrey-newman-jayson-connor-dead.html
+
 **Inglaterra y Noruega reavivan su rivalidad de cara al Mundial**\
 `Además de los lazos históricos y diplomáticos, los equipos de fútbol de Inglaterra tienen seguidores fieles en Noruega. Este sábado, los aficionados tendrán que elegir un bando.`\
 https://www.nytimes.com/es/2026/07/11/espanol/mundo/inglaterra-noruega-rivalidad-mundial.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/nyregion/hamptons-chicken-tenders.html
 **Yaacov Agam, Who Made Kinetic, Kaleidoscopic Art, Dies at 98**\
 `An Israeli artist, he became a global sensation, creating sculptures, paintings, toys and public works that delighted the eye and confounded perception.`\
 https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
-
-**How Marco Rubio Is Running Venezuela From Afar**\
-`The secretary of state effectively controls Venezuela’s finances, the distribution of its natural resources and its government. His grip on the country is a vivid manifestation of American power in the Trump era.`\
-https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\

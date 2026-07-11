@@ -1,3 +1,7 @@
+**Jayson Conner, 48, and Jeffrey Newman, 58, Die; Gave Thousands of Backpacks to Those in Need**\
+`The couple, who died within a few days of each other, provided needed supplies, like socks and wet wipes, to people living on New York City’s streets.`\
+https://www.nytimes.com/2026/07/11/nyregion/jeffrey-newman-jayson-connor-dead.html
+
 **Inglaterra y Noruega reavivan su rivalidad de cara al Mundial**\
 `Además de los lazos históricos y diplomáticos, los equipos de fútbol de Inglaterra tienen seguidores fieles en Noruega. Este sábado, los aficionados tendrán que elegir un bando.`\
 https://www.nytimes.com/es/2026/07/11/espanol/mundo/inglaterra-noruega-rivalidad-mundial.html
