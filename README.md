@@ -1,3 +1,7 @@
+**Boat Carrying Dozens of Tourists Capsizes in Vietnam**\
+`A speedboat carrying 36 people overturned near the island of Phu Quoc in southern Vietnam. Local media reported that 15 people had died and that the others had been rescued.`\
+https://www.nytimes.com/2026/07/11/world/asia/vietnam-speedboat-tourists-capsize.html
+
 **Inside the Secret Factory That Supplies Ukraine’s War Drones**\
 `With its mass-produced and inexpensive A.I. powered war machines, the German start-up Helsing SE illustrates a profound shift in military spending.`\
 https://www.nytimes.com/2026/07/11/business/dealbook/drone-factory-helsing.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/us/elections/kansas-supreme-court-justices-el
 **Years After He Quit Smoking, a Lung Cancer Scan Saved His Life**\
 `Lung cancer remains the leading cause of cancer deaths in the United States and older adults are at higher risk. But only about a quarter of patients eligible for screening are up-to-date.`\
 https://www.nytimes.com/2026/07/11/well/years-after-he-quit-smoking-a-lung-cancer-scan-saved-his-life.html
-
-**Orna Guralnik of ‘Couples Therapy’ Considers Kendrick Lamar a Genius**\
-`Outside of her job as the therapist on the series “Couples Therapy,” she has a favorite clip of the rapper performing and shows it to everyone she knows.`\
-https://www.nytimes.com/2026/07/11/arts/television/orna-guralnik-couples-therapy.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
