@@ -1,3 +1,23 @@
+**My Aunt Pretends My Cousin Doesn’t Have a Drug Problem. Do I Have to Play Along?**\
+`I am sick of the charade we are expected to maintain around them.`\
+https://www.nytimes.com/2026/07/11/magazine/family-drug-addiction-ethics.html
+
+**NYT Connections Answers for July 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/11/crosswords/connections-companion-1127.html
+
+**Today’s Wordle Hints for July 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/11/crosswords/wordle-review-1849.html
+
+**Inside the Canadian Lab Burning Down Buildings to Save Them**\
+`At the national fire safety facility in Ottawa, scientists and engineers are increasingly focused on the threat from the forest.`\
+https://www.nytimes.com/2026/07/11/world/canada/wildfires-prevention-testing-canada.html
+
+**NYT Strands Hints for July 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/11/crosswords/strands-sidekick-861.html
+
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup

@@ -1,3 +1,23 @@
+**My Aunt Pretends My Cousin Doesn’t Have a Drug Problem. Do I Have to Play Along?**\
+`I am sick of the charade we are expected to maintain around them.`\
+https://www.nytimes.com/2026/07/11/magazine/family-drug-addiction-ethics.html
+
+**NYT Connections Answers for July 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/11/crosswords/connections-companion-1127.html
+
+**Today’s Wordle Hints for July 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/11/crosswords/wordle-review-1849.html
+
+**Inside the Canadian Lab Burning Down Buildings to Save Them**\
+`At the national fire safety facility in Ottawa, scientists and engineers are increasingly focused on the threat from the forest.`\
+https://www.nytimes.com/2026/07/11/world/canada/wildfires-prevention-testing-canada.html
+
+**NYT Strands Hints for July 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/11/crosswords/strands-sidekick-861.html
+
 **Mick Jagger Isn’t Sure He Ever Lets the World See the Real Him**\
 `The legendary rock star, now 82, on how fame, touring and aging have changed him.`\
 https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/07/11/obituaries/randolph-mantooth-dead.html
 **Reseña de ‘Moana’: un remake que pierde el rumbo**\
 `Disney vuelve sobre uno de sus mayores éxitos, pero esta versión de acción real ofrece muy poco que justifique su existencia.`\
 https://www.nytimes.com/es/2026/07/11/espanol/cultura/resena-moana.html
-
-**¿Qué planes tiene Trump para Irán después del fracaso de la tregua?**\
-`A menos de un mes de la firma del acuerdo provisional, una serie de ataques contra tres barcos que atravesaban el estrecho de Ormuz llevaron a Trump a revocar la exención que permitía a Irán vender petróleo.`\
-https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/trump-iran-guerra-tregua.html
-
-**Times Journalists Subpoenaed as Trump Escalates Pressure on Media**\
-`The Justice Department is seeking to compel testimony from reporters who wrote about the new Air Force One. The Times called the move a “brazen act.”`\
-https://www.nytimes.com/2026/07/11/business/media/new-york-times-trump-subpoenas.html
-
-**‘They Don’t Need People’: The Workers Left Behind by China’s Robot Drive**\
-`For out-of-work factory workers in Kunshan, a region made rich by electronics manufacturing, a park is the only place to go.`\
-https://www.nytimes.com/2026/07/11/world/asia/china-workers-robots-factories.html
-
-**Quote of the Day: Estonia Beat Fentanyl. Next Scourge Was Worse.**\
-`Quotation of the Day for Saturday, July 11, 2026.`\
-https://www.nytimes.com/2026/07/11/pageoneplus/quote-of-the-day-estonia-beat-fentanyl-next-scourge-was-worse.html
-
-**Book Review: ‘Fixer Chao,’ by Han Ong**\
-`Han Ong’s barbed, irreverent portrait of identity, class envy and flimflam deception in turn-of-the-21st-century Manhattan still resonates.`\
-https://www.nytimes.com/2026/07/11/books/review/fixer-chao-han-ong.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
