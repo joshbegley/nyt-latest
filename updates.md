@@ -1,3 +1,11 @@
+**Maine Democrats Will Replace Graham Platner. Here’s What to Know.**\
+`Mr. Platner’s withdrawal from a marquee Senate race, under pressure from his party, has set in motion an unusual competition to become the new nominee.`\
+https://www.nytimes.com/2026/07/11/us/politics/maine-senate-nomination-democrats-convention.html
+
+**World Cup Updates: England and Norway Battle Like Old Friends**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman for Talks**\
 `Hours after a meeting between the foreign ministers of Iran and Oman, Iran announced it had fired a warning shot on a vessel taking an “unapproved route.”`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html

@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/11/us/politics/white-house-patel-investigation-t
 `The sons of Lorenzo Salgado Araujo recalled their father’s love of soccer and said they would “continue to keep fighting for him.”`\
 https://www.nytimes.com/2026/07/11/us/houston-ice-shooting-vigil.html
 
-**How Will Maine Democrats Replace Graham Platner? Here’s What to Know.**\
+**Maine Democrats Will Replace Graham Platner. Here’s What to Know.**\
 `Mr. Platner’s withdrawal from a marquee Senate race, under pressure from his party, has set in motion an unusual competition to become the new nominee.`\
 https://www.nytimes.com/2026/07/11/us/politics/maine-senate-nomination-democrats-convention.html
 
@@ -194,7 +194,7 @@ https://www.nytimes.com/interactive/2026/07/11/realestate/elin-hilderbrand-house
 `Beyoncé gets amorous, the Rolling Stones stay loud and the Linda Lindas team up with Hayley Williams.`\
 https://www.nytimes.com/2026/07/11/arts/music/beyonce-rolling-stones-songs.html
 
-**World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
+**World Cup Updates: England and Norway Battle Like Old Friends**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 
