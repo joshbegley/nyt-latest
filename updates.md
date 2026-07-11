@@ -1,3 +1,7 @@
+**Boat Carrying Dozens of Tourists Capsizes in Vietnam**\
+`A speedboat carrying 36 people overturned near the island of Phu Quoc in southern Vietnam. Local media reported that 15 people had died and that the others had been rescued.`\
+https://www.nytimes.com/2026/07/11/world/asia/vietnam-speedboat-tourists-capsize.html
+
 **How Marco Rubio Is Running Venezuela From Afar**\
 `The secretary of state effectively controls Venezuela’s finances, the distribution of its natural resources and its government. His grip on the country is a vivid manifestation of American power in the Trump era.`\
 https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html
