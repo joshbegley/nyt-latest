@@ -1,3 +1,11 @@
+**We Have 7-Eleven Snacks at Home**\
+`Skip the prepackaged stuff and make your own Pop-Tarts and Hostess cupcakes at home.`\
+https://www.nytimes.com/2026/07/11/dining/we-have-7-eleven-snacks-at-home.html
+
+**¿Pasas mucho tiempo en el teléfono? Estas sugerencias pueden servirte**\
+`Nuestros lectores han compartido algunas estrategias que les han servido para reducir su tiempo con las pantallas.`\
+https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/reducir-tiempo-pantalla-consejos.html
+
 **Boat Carrying Dozens of Tourists Capsizes in Vietnam**\
 `A speedboat carrying 36 people overturned near the island of Phu Quoc in southern Vietnam. Local media reported that 15 people had died and that the others had been rescued.`\
 https://www.nytimes.com/2026/07/11/world/asia/vietnam-speedboat-tourists-capsize.html
@@ -38,8 +46,8 @@ https://www.nytimes.com/2026/07/11/opinion/social-security.html
 `What America’s embarrassments have in common.`\
 https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
 
-**Iran’s Top Diplomat in Oman for Talks on Strait, As Ayatollah Vows Revenge**\
-`The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged  to avenge his father’s killing, trading threats with President Trump.`\
+**Iran’s Top Diplomat Is in Oman for Talks on Strait as Ayatollah Vows Revenge**\
+`The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged to avenge his father’s killing, trading threats with President Trump.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
 
 **An American Politician is Blocked by Israeli Settlers in the West Bank**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/11/us/trump-roswell-ufo.html
 **What’s in the Housing Bill That Just Became Law**\
 `It is no Great Society measure, but the new law offers local governments and builders incentives to make incremental changes.`\
 https://www.nytimes.com/2026/07/11/business/economy/housing-bill-affordability.html
-
-**Kansans Will Vote on an Elected Supreme Court. The Target: Abortion.**\
-`Frustrated by the appointed court’s support of abortion rights, which has been affirmed resoundingly by voters, Republicans are pushing an Aug. 4 referendum to elect Kansas justices.`\
-https://www.nytimes.com/2026/07/11/us/elections/kansas-supreme-court-justices-election-abortion.html
-
-**Years After He Quit Smoking, a Lung Cancer Scan Saved His Life**\
-`Lung cancer remains the leading cause of cancer deaths in the United States and older adults are at higher risk. But only about a quarter of patients eligible for screening are up-to-date.`\
-https://www.nytimes.com/2026/07/11/well/years-after-he-quit-smoking-a-lung-cancer-scan-saved-his-life.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
