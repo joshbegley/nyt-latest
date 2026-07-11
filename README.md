@@ -1,3 +1,31 @@
+**In Sudan, a Preventable Atrocity**\
+`Hundreds of thousands of people in Sudan are bracing for their city to be overrun by a militia notorious for committing atrocities.`\
+https://www.nytimes.com/2026/07/11/opinion/sudan-atrocity-africa-rsf.html
+
+**‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
+`What America’s embarrassments have in common.`\
+https://www.nytimes.com/2026/07/11/opinion/trump-iran-ceasefire-mcconnell-platner.html
+
+**We Must Address the Growing Rage Against the A.I. Machine**\
+`A.I. demands a populist approach that treats the technology as a public project.`\
+https://www.nytimes.com/2026/07/11/opinion/ai-populism-china-open-source.html
+
+**We’re Living in a Tick Nightmare. It’s Time to Go to War.**\
+`With ticks, we’ve barely begun to fight back. The longer we wait, the more territory they will claim across both our geographic and psychic maps.`\
+https://www.nytimes.com/2026/07/11/opinion/ticks-disease-lyme-alpha-gal.html
+
+**The Population Forecasts Are Grim. They’re Still Too Optimistic.**\
+`America is not prepared for population decline.`\
+https://www.nytimes.com/2026/07/11/opinion/population-forecast-birth-rate.html
+
+**Looksmaxxers Actually Don’t Care What Women Think**\
+`Social pressure for men to look a certain way is coming primarily from other men.`\
+https://www.nytimes.com/2026/07/11/opinion/plastic-surgery-looksmaxxing-male-gaze.html
+
+**More Than One Way to Fix Social Security**\
+`Readers respond to two guest essays about how to cover the shortfall in the program’s funding before it’s too late.`\
+https://www.nytimes.com/2026/07/11/opinion/social-security.html
+
 **‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
 `What America’s embarrassments have in common.`\
 https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
@@ -165,34 +193,6 @@ https://www.nytimes.com/2026/07/11/arts/television/orna-guralnik-couples-therapy
 **Our Insatiable Appetite for Stories About Cannibalism**\
 `Why do the characters in so many new novels insist upon eating each other?`\
 https://www.nytimes.com/2026/07/11/books/cannibalism-fiction.html
-
-**Israel Struck an Iranian Steel Facility. Was It a Valid Military Target?**\
-`During the war, Israel attacked Iran’s steel plants, saying they provided forces with revenue and the means to make weapons, but it also hurt the civilian economy.`\
-https://www.nytimes.com/2026/07/11/world/middleeast/iran-steel-plant-civilian-military.html
-
-**Kids Can’t Stop Watching ‘Moana.’ There’s a Scientific Explanation.**\
-`The 2016 release has become the most watched movie on Disney+. Parents and experts explain why kids can’t get enough.`\
-https://www.nytimes.com/2026/07/11/movies/moana-kids-obsession.html
-
-**Beach Workout: How to Get the Most Out of Your Exercise**\
-`Working out on sand is not only fun, it also brings extra fitness benefits.`\
-https://www.nytimes.com/2026/07/11/well/move/beach-workout-exercise-benefits.html
-
-**Man Arrested in Killing of U.K. Ex-Lawmaker Is Released**\
-`The police said the 26-year-old was no longer part of the investigation into the death of Ann Widdecombe and urged anyone with information about the crime to come forward.`\
-https://www.nytimes.com/2026/07/11/world/europe/uk-ann-widdecombe-suspect-released.html
-
-**La muerte de un inmigrante en Houston aviva el debate sobre la estrategia de ICE**\
-`La muerte a tiros de Lorenzo Salgado Araujo se produjo en un momento en el que se han intensificado las medidas de control de inmigración en todo el país, con miles de detenciones diarias.`\
-https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/ice-muerte-migrante.html
-
-**Developer of Troubled Midtown High-Rise Had Tried to Avoid the Spotlight**\
-`Nathan Berman has shied away from the showy ways necessary to succeed in New York real estate. Now, his largest project is in limbo.`\
-https://www.nytimes.com/2026/07/11/nyregion/nathan-berman-metroloft-developer.html
-
-**NYT Spelling Bee Answers for July 11, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/11/crosswords/spelling-bee-forum.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
