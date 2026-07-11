@@ -1,3 +1,7 @@
+**How Marco Rubio Is Running Venezuela From Afar**\
+`The secretary of state effectively controls Venezuela’s finances, the distribution of its natural resources and its government. His grip on the country is a vivid manifestation of American power in the Trump era.`\
+https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html
+
 **Iran’s Top Diplomat Is in Oman for Talks on Strait of Hormuz**\
 `The visit comes after heavy clashes this week between the U.S. and Iran. On Saturday, the country’s supreme leader vowed revenge for his father’s killing.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
