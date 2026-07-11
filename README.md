@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/07/11/pageoneplus/quote-of-the-day-estonia-beat-fen
 `Han Ong’s barbed, irreverent portrait of identity, class envy and flimflam deception in turn-of-the-21st-century Manhattan still resonates.`\
 https://www.nytimes.com/2026/07/11/books/review/fixer-chao-han-ong.html
 
-**World Cup Updates: 2028 Olympics Beckon for L.A. After Strong Tournament Showing**\
+**World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 
