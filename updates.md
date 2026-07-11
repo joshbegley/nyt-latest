@@ -1,3 +1,7 @@
+**U.S. Employers Told to Dismiss Thousands of Immigrant Workers**\
+`Shifting deadlines are confusing businesses as the end of Temporary Protected Status for Haitians and others looms, making them ineligible to live and work in the United States.`\
+https://www.nytimes.com/2026/07/10/us/politics/tps-workers-dismissals.html
+
 **Trump Tried to Block Canada’s New Bridge to Detroit. It’s Opening Anyway.**\
 `A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
 https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html

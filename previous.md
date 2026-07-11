@@ -1,3 +1,7 @@
+**U.S. Employers Told to Dismiss Thousands of Immigrant Workers**\
+`Shifting deadlines are confusing businesses as the end of Temporary Protected Status for Haitians and others looms, making them ineligible to live and work in the United States.`\
+https://www.nytimes.com/2026/07/10/us/politics/tps-workers-dismissals.html
+
 **‘Giulia’ Review: Jennifer Nettles Delivers Empowerment (and Poison)**\
 `A stirring but tonally muddled new musical about the “poison queen of Palermo” gets an elegant Off Broadway production.`\
 https://www.nytimes.com/2026/07/10/theater/giulia-poison-queen-of-palermo-review-nettles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011023936/is-u-dont-know-the-quinte
 **ICE Deports Immigrant Who Was Pardoned for Sex Abuse Conviction**\
 `Minnesota state officials had granted a pardon to Tou Lue Vang, a Hmong man, drawing criticism that Democratic leaders were thwarting efforts to expel criminals.`\
 https://www.nytimes.com/2026/07/10/us/politics/ice-deports-immigrant-pardoned-minnesota.html
-
-**Trump Administration Taps Climate Science Critic to Oversee National Climate Assessment**\
-`Matthew M. Wielicki has criticized the scientific consensus on global warming as alarmist. Now he’ll oversee a major federal report on the topic.`\
-https://www.nytimes.com/2026/07/10/climate/trump-climate-assessment-wielicki.html
 
