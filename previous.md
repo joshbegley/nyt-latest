@@ -1,7 +1,3 @@
-**Iranians Bury Slain Leader Amid Renewed Fighting**\
-`Iranians mourning the country’s supreme leader condemned U.S. strikes that Washington called retaliation for Iran’s attacks on commercial ships in the Strait of Hormuz. At a tightly controlled state funeral in Mashhad — one of Iran’s most conservative cities, where opponents of the government were unlikely to be found in the crowd — mourners voiced defiance and called for revenge.`\
-https://www.nytimes.com/video/world/middleeast/100000011023379/iran-supreme-leader-khamenei-buried.html
-
 **D.S.A. Members Blast Mamdani Adviser for Elevating Graham Platner**\
 `A letter circulated by Democratic Socialists of America members asked that candidates sever ties with Morris Katz, a consultant for Mr. Platner and Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/07/10/nyregion/platner-katz-mamdani-dsa.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/video/style/100000010990404/chanel-couture-week-2026.htm
 **EE. UU. subestima el peligro en caso de fuga de plutonio en Los Álamos, según un estudio**\
 `Un accidente en el laboratorio que fabrica los núcleos de las bombas nucleares de EE. UU. provocaría más víctimas mortales de las que el gobierno federal había previsto, aseguran los autores de una nueva investigación.`\
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/peligro-nuclear-los-alamos.html
+
+**Shippers Face Deepening Dilemma as U.S. and Iran Vie for Control of the Strait**\
+`Companies desperately want to get their ships moving through the Strait of Hormuz, but face mounting risks. “Things are becoming uglier by the minute,” one executive said.`\
+https://www.nytimes.com/2026/07/10/business/iran-shipping-strait-of-hormuz.html
 
