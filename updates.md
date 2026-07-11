@@ -1,3 +1,7 @@
+**After Being Delayed by Trump, a Canada-U.S. Bridge is Set to Open**\
+`A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
+https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html
+
 **¿Qué planes tiene Trump para Irán después del fracaso de la tregua?**\
 `A menos de un mes de la firma del acuerdo provisional, una serie de ataques contra tres barcos que atravesaban el estrecho de Ormuz llevaron a Trump a revocar la exención que permitía a Irán vender petróleo.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/trump-iran-guerra-tregua.html
