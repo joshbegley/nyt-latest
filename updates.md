@@ -1,3 +1,7 @@
+**¿Matt Damon parece griego? No. Entonces deja de quejarte de Lupita Nyong’o**\
+`Helena de Troya era una belleza legendaria, pero también mucho más que eso.`\
+https://www.nytimes.com/es/2026/07/11/espanol/opinion/helena-troya-lupita-nyongo.html
+
 **Videos Shed Light on Pursuit Before ICE Killing in Houston**\
 `Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
 https://www.nytimes.com/2026/07/11/us/houston-ice-video-shooting-salgado-araujo.html
