@@ -1,3 +1,7 @@
+**Randolph Mantooth, Who Played John Gage in ‘Emergency!,’ Dies at 80**\
+`His portrayal of the firefighter and paramedic in the 1970s television hit helped expand the American public’s familiarity with emergency medicine.`\
+https://www.nytimes.com/2026/07/11/obituaries/randolph-mantooth-dead.html
+
 **Reseña de ‘Moana’: un remake que pierde el rumbo**\
 `Disney vuelve sobre uno de sus mayores éxitos, pero esta versión de acción real ofrece muy poco que justifique su existencia.`\
 https://www.nytimes.com/es/2026/07/11/espanol/cultura/resena-moana.html
