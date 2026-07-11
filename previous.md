@@ -1,3 +1,7 @@
+**¿Qué planes tiene Trump para Irán después del fracaso de la tregua?**\
+`A menos de un mes de la firma del acuerdo provisional, una serie de ataques contra tres barcos que atravesaban el estrecho de Ormuz llevaron a Trump a revocar la exención que permitía a Irán vender petróleo.`\
+https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/trump-iran-guerra-tregua.html
+
 **Times Journalists Subpoenaed as Trump Escalates Pressure on Media**\
 `The Justice Department is seeking to compel testimony from reporters who wrote about the new Air Force One. The Times called the move a “brazen act.”`\
 https://www.nytimes.com/2026/07/11/business/media/new-york-times-trump-subpoenas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/weather/lake-geneva-wisconsin-storm-what-happ
 **Law Enforcement Search for Survivors After a Boat Capsized in Wisconsin Lake**\
 `Three children died on July 3 after a boat capsized on Geneva Lake in Wisconsin during a storm.`\
 https://www.nytimes.com/video/us/100000011018989/boat-capsized-wisconsin.html
-
-**Royal Rapprochement: Harry and Meghan Pay a Rare Visit to the King and Queen**\
-`Friday’s visit to King Charles and Queen Camilla signaled a détente in relations with Prince Harry and his wife, who stepped down from royal duties and moved to the United States in 2020.`\
-https://www.nytimes.com/2026/07/10/world/europe/harry-meghan-visit-charles-camilla.html
 

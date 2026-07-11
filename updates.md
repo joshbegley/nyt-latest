@@ -1,3 +1,7 @@
+**¿Qué planes tiene Trump para Irán después del fracaso de la tregua?**\
+`A menos de un mes de la firma del acuerdo provisional, una serie de ataques contra tres barcos que atravesaban el estrecho de Ormuz llevaron a Trump a revocar la exención que permitía a Irán vender petróleo.`\
+https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/trump-iran-guerra-tregua.html
+
 **Times Journalists Subpoenaed as Trump Escalates Pressure on Media**\
 `The Justice Department is seeking to compel testimony from reporters who wrote about the new Air Force One. The Times called the move a “brazen act.”`\
 https://www.nytimes.com/2026/07/11/business/media/new-york-times-trump-subpoenas.html
