@@ -1,3 +1,7 @@
+**La muerte de un inmigrante en Houston aviva el debate sobre la estrategia de ICE**\
+`La muerte a tiros de Lorenzo Salgado Araujo se produjo en un momento en el que se han intensificado las medidas de control de inmigración en todo el país, con miles de detenciones diarias.`\
+https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/ice-muerte-migrante.html
+
 **Developer of Troubled Midtown High-Rise Had Tried to Avoid the Spotlight**\
 `Nathan Berman has shied away from the showy ways necessary to succeed in New York real estate. Now, his largest project is in limbo.`\
 https://www.nytimes.com/2026/07/11/nyregion/nathan-berman-metroloft-developer.html

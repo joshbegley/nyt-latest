@@ -1,3 +1,7 @@
+**La muerte de un inmigrante en Houston aviva el debate sobre la estrategia de ICE**\
+`La muerte a tiros de Lorenzo Salgado Araujo se produjo en un momento en el que se han intensificado las medidas de control de inmigración en todo el país, con miles de detenciones diarias.`\
+https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/ice-muerte-migrante.html
+
 **Developer of Troubled Midtown High-Rise Had Tried to Avoid the Spotlight**\
 `Nathan Berman has shied away from the showy ways necessary to succeed in New York real estate. Now, his largest project is in limbo.`\
 https://www.nytimes.com/2026/07/11/nyregion/nathan-berman-metroloft-developer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/10/nyregion/nypd-inspector-sexual-assault.html
 **Judge Allows News Site to Publish School Lockdown Video but Sets Limits**\
 `Lawyers for the outlet, New Brunswick Today, said that the order, while a partial victory, still violated the First Amendment. They plan to appeal.`\
 https://www.nytimes.com/2026/07/10/nyregion/school-video-news-story-censorship.html
-
-**Mexico to File Criminal Complaints in U.S. Over Immigrant Deaths**\
-`The nation’s president vowed to go “beyond diplomatic notes” after a U.S. immigration agent fatally shot Lorenzo Salgado Araujo, a Mexican man, in Texas this week.`\
-https://www.nytimes.com/2026/07/10/world/americas/mexico-criminal-complaints-immigration-deaths-usa.html
 
