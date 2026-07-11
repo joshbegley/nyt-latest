@@ -1,3 +1,7 @@
+**A California Man Took a Selfie at a Crime Scene. It Led to His Arrest.**\
+`Two men were taken into custody this week after $100,000 in tools, copper and vehicles was taken from a business in the Napa Valley. A selfie that one of them took served as evidence.`\
+https://www.nytimes.com/2026/07/11/us/california-burglary-arrest-selfie.html
+
 **¿Matt Damon parece griego? No. Entonces deja de quejarte de Lupita Nyong’o**\
 `Helena de Troya era una belleza legendaria, pero también mucho más que eso.`\
 https://www.nytimes.com/es/2026/07/11/espanol/opinion/helena-troya-lupita-nyongo.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/realestate/taxes-capital-gains-home-sales.htm
 **Kansas City, the Smallest World Cup Host, Has the World at Its Feet**\
 `The city has a proud history with the sport thanks to Lamar Hunt, who owned the Kansas City Chiefs and co-founded Major League Soccer.`\
 https://www.nytimes.com/2026/07/11/business/kansas-city-world-cup-host.html
-
-**Hot Weather Sets Off Scramble for Outdoor Swimming in London**\
-`In an ever hotter city, the competition for pools is fierce. Some swimmers are turning to ponds and canals, which come with their own problems.`\
-https://www.nytimes.com/2026/07/11/world/europe/london-outdoor-swimming-heat-wave-uk.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\
