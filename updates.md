@@ -1,5 +1,17 @@
 **Videos Shed Light on Pursuit Before ICE Killing in Houston**\
 `Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
+https://www.nytimes.com/2026/07/11/us/houston-ice-video-shooting-salgado-araujo.html
+
+**We Returned From China. We Realized Our Century’s Biggest Challenge.**\
+`A.I. demands a populist approach that treats the technology as a public project.`\
+https://www.nytimes.com/2026/07/11/opinion/ai-populism-china-open-source.html
+
+**The Population Bust Is Coming Sooner Than Anyone Is Prepared For**\
+`America is not prepared for population decline.`\
+https://www.nytimes.com/2026/07/11/opinion/population-forecast-birth-rate.html
+
+**Videos Shed Light on Pursuit Before ICE Killing in Houston**\
+`Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
 https://www.nytimes.com/2026/07/11/world/houston-ice-video-shooting-salgado-araujo.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
