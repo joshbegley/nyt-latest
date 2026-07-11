@@ -1,3 +1,7 @@
+**What China’s Successful Rocket Launch Means for the Future of the Space Race**\
+`A space neophyte not long ago, China is now the United States’s main competitor for supremacy throughout the solar system.`\
+https://www.nytimes.com/2026/07/10/science/china-space-race.html
+
 **Trump Tried to Stop Canada’s Bridge to Detroit From Opening. It Will Open Anyway.**\
 `A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
 https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html
