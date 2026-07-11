@@ -1,3 +1,15 @@
+**At Vigil, Sons of Man Killed by ICE in Houston Call for Accountability**\
+`The sons of Lorenzo Salgado Araujo recalled their father’s love of soccer and said they would “continue to keep fighting for him.”`\
+https://www.nytimes.com/2026/07/11/us/houston-ice-shooting-vigil.html
+
+**How Will Maine Democrats Replace Graham Platner? Here’s What to Know.**\
+`Mr. Platner’s withdrawal from a marquee Senate race, under pressure from his party, has set in motion an unusual competition to become the new nominee.`\
+https://www.nytimes.com/2026/07/11/us/politics/maine-senate-nomination-democrats-convention.html
+
+**Black Hawk Helicopters Rescue Hundreds From Summer Camp During Floods**\
+`The National Guard evacuated campers after flooding in Missouri that reminded some families of the devastating floods at Camp Mystic in central Texas last year.`\
+https://www.nytimes.com/2026/07/11/us/missouri-rescue-summer-camp-flood.html
+
 **Whistle-Blowers Accuse Kennedy Center of Contracting Flaws Under Trump**\
 `Documents submitted to Congress detailed concerns about competitive bidding processes and a White House order to tear up new bathroom tile because of its color.`\
 https://www.nytimes.com/2026/07/11/arts/design/kennedy-center-trump-renovations.html
