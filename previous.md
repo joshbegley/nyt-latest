@@ -1,3 +1,11 @@
+**Trump-Appointed Judge Reluctantly Grants Dismissal of Proud Boys Case**\
+`Judge Timothy J. Kelly, a federal judge in Washington, noted that he had little choice but to accept the Trump administration’s move to end the case.`\
+https://www.nytimes.com/2026/07/11/us/politics/judge-proud-boys-sedition-dismissal.html
+
+**Have You Made This Cake Yet?**\
+`This simple strawberry spoon cake is currently our most popular strawberry dessert on New York Times Cooking, and it’s easy to see why.`\
+https://www.nytimes.com/2026/07/11/dining/have-you-made-this-cake-yet.html
+
 **A Wildfire Killed 12 People in Southern Spain. Here’s the Latest.**\
 `Officials said more than 20 people were still missing because of the fire, one of the deadliest in Spain’s history. Most of those confirmed to have been killed were from Belgium or Britain.`\
 https://www.nytimes.com/2026/07/11/world/europe/spain-wildfire-kills-12-what-to-know.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/11/style/paris-couture-week-photos.html
 **What Slate Auto’s $25,000 Electric Pickup Truck Is Like in Person**\
 `The Slate Auto truck is making a splash for its lack of frills and its relatively affordable price, but it’s jumping into a difficult market.`\
 https://www.nytimes.com/2026/07/11/business/slate-auto-electric-pickup-truck.html
-
-**How Good Is Jon Hamm at Playing Jon Hamm?**\
-`Inside the high-wire act of casting celebrities to play themselves, including in movies like “Gail Daughtry and the Celebrity Sex Pass.”`\
-https://www.nytimes.com/2026/07/11/movies/actors-playing-themselves-jon-hamm.html
-
-**Non-Disclosure: In Roswell, New U.F.O. Docs Are a Declassified Bummer**\
-`Roswell’s annual U.F.O. festival was supposed to be full of triumphant “told you so’s” after the Trump administration declassified its alien files. Instead, apparently, the coverup continues.`\
-https://www.nytimes.com/2026/07/11/us/trump-roswell-ufo.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\

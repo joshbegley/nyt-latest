@@ -1,3 +1,11 @@
+**Trump-Appointed Judge Reluctantly Grants Dismissal of Proud Boys Case**\
+`Judge Timothy J. Kelly, a federal judge in Washington, noted that he had little choice but to accept the Trump administration’s move to end the case.`\
+https://www.nytimes.com/2026/07/11/us/politics/judge-proud-boys-sedition-dismissal.html
+
+**Have You Made This Cake Yet?**\
+`This simple strawberry spoon cake is currently our most popular strawberry dessert on New York Times Cooking, and it’s easy to see why.`\
+https://www.nytimes.com/2026/07/11/dining/have-you-made-this-cake-yet.html
+
 **A Wildfire Killed 12 People in Southern Spain. Here’s the Latest.**\
 `Officials said more than 20 people were still missing because of the fire, one of the deadliest in Spain’s history. Most of those confirmed to have been killed were from Belgium or Britain.`\
 https://www.nytimes.com/2026/07/11/world/europe/spain-wildfire-kills-12-what-to-know.html
