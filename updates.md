@@ -1,3 +1,7 @@
+**Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman For Talks**\
+`The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged to avenge his father’s killing, trading threats with President Trump.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **15 Killed as Speedboat Capsizes in Vietnam**\
 `A speedboat was carrying 36 people when it overturned near the island of Phu Quoc in southern Vietnam. The other people onboard were rescued alive.`\
 https://www.nytimes.com/2026/07/11/world/asia/vietnam-speedboat-tourists-capsize.html
