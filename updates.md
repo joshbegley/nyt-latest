@@ -1,3 +1,7 @@
+**Trump Tried to Stop Canada’s Bridge to Detroit From Opening. It Will Open Anyway.**\
+`A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
+https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html
+
 **Iranians Bury Slain Leader Amid Renewed Fighting**\
 `Iranians mourning the country’s supreme leader condemned U.S. strikes that Washington called retaliation for Iran’s attacks on commercial ships in the Strait of Hormuz. At a tightly controlled state funeral in Mashhad — one of Iran’s most conservative cities, where opponents of the government were unlikely to be found in the crowd — mourners voiced defiance and called for revenge.`\
 https://www.nytimes.com/video/world/middleeast/100000011023379/iran-supreme-leader-khamenei-buried.html
