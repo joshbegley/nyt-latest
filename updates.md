@@ -1,3 +1,15 @@
+**‘They Don’t Need People’: The Workers Left Behind by China’s Robot Drive**\
+`For out-of-work factory workers in Kunshan, a region made rich by electronics manufacturing, a park is the only place to go.`\
+https://www.nytimes.com/2026/07/11/world/asia/china-workers-robots-factories.html
+
+**Quote of the Day: Estonia Beat Fentanyl. Next Scourge Was Worse.**\
+`Quotation of the Day for Saturday, July 11, 2026.`\
+https://www.nytimes.com/2026/07/11/pageoneplus/quote-of-the-day-estonia-beat-fentanyl-next-scourge-was-worse.html
+
+**Book Review: ‘Fixer Chao,’ by Han Ong**\
+`Han Ong’s barbed, irreverent portrait of identity, class envy and flimflam deception in turn-of-the-21st-century Manhattan still resonates.`\
+https://www.nytimes.com/2026/07/11/books/review/fixer-chao-han-ong.html
+
 **What’s Kraken?**\
 `Dive into Jim Quinlan’s swell new themeless puzzle.`\
 https://www.nytimes.com/2026/07/10/crosswords/daily-puzzle-2026-07-11.html
