@@ -180,7 +180,7 @@ https://www.nytimes.com/2026/07/11/us/politics/bernie-sanders-graham-platner-mai
 
 **Whistle-Blowers Accuse Kennedy Center of Contracting Flaws Under Trump**\
 `Documents submitted to Congress detailed concerns about competitive bidding processes and a White House order to tear up new bathroom tile because of its color.`\
-https://www.nytimes.com/2026/07/11/arts/design/whistle-blowers-accuse-kennedy-center-of-contracting-flaws-under-trump.html
+https://www.nytimes.com/2026/07/11/arts/design/kennedy-center-trump-renovations.html
 
 **How a Beer Hall Keeps Up With a World Cup Crowd**\
 `The fans see the games, the crowds, the food and the beer. But behind every World Cup watch party is a team working long before kickoff and well after the final whistle. We go behind the scenes at a beer hall in Brooklyn to see what it takes to serve a room full of soccer fans on game day.`\

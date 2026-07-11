@@ -1,3 +1,7 @@
+**Whistle-Blowers Accuse Kennedy Center of Contracting Flaws Under Trump**\
+`Documents submitted to Congress detailed concerns about competitive bidding processes and a White House order to tear up new bathroom tile because of its color.`\
+https://www.nytimes.com/2026/07/11/arts/design/kennedy-center-trump-renovations.html
+
 **Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman For Talks**\
 `Recent clashes between the U.S. and Iran, and a vow by the ayatollah to avenge his father’s death, further eroded a shaky cease-fire signed last month.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
