@@ -1,3 +1,7 @@
+**Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman For Talks**\
+`Recent clashes between the U.S. and Iran, and a vow by the ayatollah to avenge his father’s death, further eroded a shaky cease-fire signed last month.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **La tristeza, la rabia y la loca alegría de la fase eliminatoria del Mundial**\
 `La mejor forma de entender esta fase del torneo es imaginar un túnel de autolavado hecho con ralladores de queso.`\
 https://www.nytimes.com/es/2026/07/11/espanol/mundo/haaland-noruega-brasil-mundial.html
