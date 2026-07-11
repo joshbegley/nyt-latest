@@ -143,7 +143,7 @@ https://www.nytimes.com/video/dining/100000011024946/easy-chicken-tacos.html
 https://www.nytimes.com/video/dining/100000011024924/green-smoothie.html
 
 **Flooding in Missouri Prompts State of Emergency and at Least 100 Rescues**\
-`Gov. Mike Kehoe declared a state of emergency after up to a foot of rain fell overnight in the southeastern part of the state. More storms are in the forecast.`\
+`Gov. Mike Kehoe declared a state of emergency after up to a foot of rain fell in the southeastern part of the state. More storms are in the forecast.`\
 https://www.nytimes.com/2026/07/10/weather/missouri-rain-flooding.html
 
 **The Platner Drama Is Reviving Debate Among Democrats Over a Double Standard**\
