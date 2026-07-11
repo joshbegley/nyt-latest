@@ -1,3 +1,7 @@
+**A Wildfire Killed 12 People in Southern Spain. Here’s the Latest.**\
+`Officials said more than 20 people were still missing because of the fire, one of the deadliest in Spain’s history. Most of those confirmed to have been killed were from Belgium or Britain.`\
+https://www.nytimes.com/2026/07/11/world/europe/spain-wildfire-kills-12-what-to-know.html
+
 **We Have 7-Eleven Snacks at Home**\
 `Skip the prepackaged stuff and make your own Pop-Tarts and Hostess cupcakes at home.`\
 https://www.nytimes.com/2026/07/11/dining/we-have-7-eleven-snacks-at-home.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/movies/actors-playing-themselves-jon-hamm.htm
 **Non-Disclosure: In Roswell, New U.F.O. Docs Are a Declassified Bummer**\
 `Roswell’s annual U.F.O. festival was supposed to be full of triumphant “told you so’s” after the Trump administration declassified its alien files. Instead, apparently, the coverup continues.`\
 https://www.nytimes.com/2026/07/11/us/trump-roswell-ufo.html
-
-**What’s in the Housing Bill That Just Became Law**\
-`It is no Great Society measure, but the new law offers local governments and builders incentives to make incremental changes.`\
-https://www.nytimes.com/2026/07/11/business/economy/housing-bill-affordability.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
