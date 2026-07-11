@@ -1,3 +1,7 @@
+**Mick Jagger Isn’t Sure He Ever Lets the World See the Real Him**\
+`The legendary rock star, now 82, on how fame, touring and aging have changed him.`\
+https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html
+
 **Marco Rubio gestiona a Venezuela desde Washington**\
 `El secretario de Estado de EE. UU. controla de facto las finanzas de Venezuela, la distribución de sus recursos naturales y su gobierno. Su control es una clara muestra del poder estadounidense en la era Trump.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/venezuela-rodriguez-rubio-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/11/books/review/fixer-chao-han-ong.html
 **What’s Kraken?**\
 `Dive into Jim Quinlan’s swell new themeless puzzle.`\
 https://www.nytimes.com/2026/07/10/crosswords/daily-puzzle-2026-07-11.html
-
-**U.S. Employers Told to Dismiss Thousands of Immigrant Workers**\
-`Shifting deadlines are confusing businesses as the end of Temporary Protected Status for Haitians and others looms, making them ineligible to live and work in the United States.`\
-https://www.nytimes.com/2026/07/10/us/politics/tps-workers-dismissals.html
 
