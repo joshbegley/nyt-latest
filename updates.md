@@ -1,3 +1,7 @@
+**Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman for Talks**\
+`Hours after a meeting between the foreign ministers of Iran and Oman, Iran announced it had fired a warning shot on a vessel taking an “unapproved route.”`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **Slight Adjustments**\
 `Collin Drown’s debut Times puzzle doesn’t mince words.`\
 https://www.nytimes.com/2026/07/11/crosswords/daily-puzzle-2026-07-12.html
