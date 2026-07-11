@@ -1,3 +1,15 @@
+**Developer of Troubled Midtown High-Rise Had Tried to Avoid the Spotlight**\
+`Nathan Berman has shied away from the showy ways necessary to succeed in New York real estate. Now, his largest project is in limbo.`\
+https://www.nytimes.com/2026/07/11/nyregion/nathan-berman-metroloft-developer.html
+
+**NYT Spelling Bee Answers for July 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/11/crosswords/spelling-bee-forum.html
+
+**How ‘The Wire’ Star Jamie Hector Spends a Hot Day in Brooklyn**\
+`Bike rides, ice cream, museum, dinner with his wife: Mr. Hector’s busy day even included helping the next generation of actors.`\
+https://www.nytimes.com/interactive/2026/07/11/nyregion/routine-jamie-hector.html
+
 **U.S. Citizen Tests Positive for Ebola in Democratic Republic of Congo**\
 `The American works for a humanitarian organization in Congo, the Centers for Disease Control and Prevention said.`\
 https://www.nytimes.com/2026/07/11/world/africa/dr-congo-ebola-american-us-citizen.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/10/nyregion/school-video-news-story-censorship.h
 **Mexico to File Criminal Complaints in U.S. Over Immigrant Deaths**\
 `The nation’s president vowed to go “beyond diplomatic notes” after a U.S. immigration agent fatally shot Lorenzo Salgado Araujo, a Mexican man, in Texas this week.`\
 https://www.nytimes.com/2026/07/10/world/americas/mexico-criminal-complaints-immigration-deaths-usa.html
-
-**Charlie Kirk Murder Suspect Declines to Testify in Court Examination of Evidence**\
-`A weeklong hearing disclosed new details about Charlie Kirk’s assassination and the ensuing investigation. A judge will decide later this year if Tyler Robinson, 23, will stand trial for the killing.`\
-https://www.nytimes.com/2026/07/10/us/charlie-kirk-shooting-hearing.html
-
-**Maine Democrats Announce July 25 Convention to Pick Platner Replacement**\
-`The gathering will take place in Bangor, the state party announced.`\
-https://www.nytimes.com/2026/07/10/us/maine-democrats-platner-replacement-convention.html
-
-**ICE Killing in Houston Puts Focus on Surge in Immigration Arrests**\
-`The shooting death of Lorenzo Salgado Araujo occurred as immigration enforcement has ramped up across the country, with thousands being arrested daily.`\
-https://www.nytimes.com/2026/07/10/us/ice-immigration-arrests-surge.html
 

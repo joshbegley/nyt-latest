@@ -1,3 +1,15 @@
+**Developer of Troubled Midtown High-Rise Had Tried to Avoid the Spotlight**\
+`Nathan Berman has shied away from the showy ways necessary to succeed in New York real estate. Now, his largest project is in limbo.`\
+https://www.nytimes.com/2026/07/11/nyregion/nathan-berman-metroloft-developer.html
+
+**NYT Spelling Bee Answers for July 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/11/crosswords/spelling-bee-forum.html
+
+**How ‘The Wire’ Star Jamie Hector Spends a Hot Day in Brooklyn**\
+`Bike rides, ice cream, museum, dinner with his wife: Mr. Hector’s busy day even included helping the next generation of actors.`\
+https://www.nytimes.com/interactive/2026/07/11/nyregion/routine-jamie-hector.html
+
 **U.S. Citizen Tests Positive for Ebola in Democratic Republic of Congo**\
 `The American works for a humanitarian organization in Congo, the Centers for Disease Control and Prevention said.`\
 https://www.nytimes.com/2026/07/11/world/africa/dr-congo-ebola-american-us-citizen.html
