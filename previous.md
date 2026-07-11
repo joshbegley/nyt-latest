@@ -1,3 +1,11 @@
+**Inglaterra y Noruega reavivan su rivalidad de cara al Mundial**\
+`Además de los lazos históricos y diplomáticos, los equipos de fútbol de Inglaterra tienen seguidores fieles en Noruega. Este sábado, los aficionados tendrán que elegir un bando.`\
+https://www.nytimes.com/es/2026/07/11/espanol/mundo/inglaterra-noruega-rivalidad-mundial.html
+
+**Trump’s Posts on Singing Somali Schoolchildren Stir Anger in Minnesota**\
+`The state’s large Muslim and Somali communities expressed indignation after the president reposted a video of a kindergarten promotion ceremony, including comments noting the girls were in hijabs.`\
+https://www.nytimes.com/2026/07/11/us/politics/trump-somali-kindergartners.html
+
 **A California Man Took a Selfie at a Crime Scene. It Led to His Arrest.**\
 `Two men were taken into custody this week after $100,000 in tools, copper and vehicles was taken from a business in the Napa Valley. A selfie that one of them took served as evidence.`\
 https://www.nytimes.com/2026/07/11/us/california-burglary-arrest-selfie.html
@@ -74,7 +82,7 @@ https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-
 `The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged to avenge his father’s killing, trading threats with President Trump.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
 
-**An American Politician is Blocked by Israeli Settlers in the West Bank**\
+**An American Politician Is Blocked by Israeli Settlers in the West Bank**\
 `Representative Ro Khanna was barred from leaving for 90 minutes. Where past U.S. leaders toured the region to show support for Israel, today’s Democratic presidential aspirants are going to bolster their credentials as critics.`\
 https://www.nytimes.com/2026/07/11/us/politics/ro-khanna-west-bank.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
 **How Marco Rubio Is Running Venezuela From Afar**\
 `The secretary of state effectively controls Venezuela’s finances, the distribution of its natural resources and its government. His grip on the country is a vivid manifestation of American power in the Trump era.`\
 https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html
-
-**Looking to Sell Your Home? Grab This Big Tax Break if You Can.**\
-`Selling a primary residence can net thousands in capital gains deductions. But you need to gather the evidence.`\
-https://www.nytimes.com/2026/07/11/realestate/taxes-capital-gains-home-sales.html
-
-**Kansas City, the Smallest World Cup Host, Has the World at Its Feet**\
-`The city has a proud history with the sport thanks to Lamar Hunt, who owned the Kansas City Chiefs and co-founded Major League Soccer.`\
-https://www.nytimes.com/2026/07/11/business/kansas-city-world-cup-host.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\

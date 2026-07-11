@@ -1,3 +1,15 @@
+**Inglaterra y Noruega reavivan su rivalidad de cara al Mundial**\
+`Además de los lazos históricos y diplomáticos, los equipos de fútbol de Inglaterra tienen seguidores fieles en Noruega. Este sábado, los aficionados tendrán que elegir un bando.`\
+https://www.nytimes.com/es/2026/07/11/espanol/mundo/inglaterra-noruega-rivalidad-mundial.html
+
+**Trump’s Posts on Singing Somali Schoolchildren Stir Anger in Minnesota**\
+`The state’s large Muslim and Somali communities expressed indignation after the president reposted a video of a kindergarten promotion ceremony, including comments noting the girls were in hijabs.`\
+https://www.nytimes.com/2026/07/11/us/politics/trump-somali-kindergartners.html
+
+**An American Politician Is Blocked by Israeli Settlers in the West Bank**\
+`Representative Ro Khanna was barred from leaving for 90 minutes. Where past U.S. leaders toured the region to show support for Israel, today’s Democratic presidential aspirants are going to bolster their credentials as critics.`\
+https://www.nytimes.com/2026/07/11/us/politics/ro-khanna-west-bank.html
+
 **A California Man Took a Selfie at a Crime Scene. It Led to His Arrest.**\
 `Two men were taken into custody this week after $100,000 in tools, copper and vehicles was taken from a business in the Napa Valley. A selfie that one of them took served as evidence.`\
 https://www.nytimes.com/2026/07/11/us/california-burglary-arrest-selfie.html
