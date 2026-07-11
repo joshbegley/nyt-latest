@@ -1,3 +1,7 @@
+**A Wildfire Killed 12 People in Southern Spain. Here’s the Latest.**\
+`Officials said more than 20 people were still missing because of the fire, one of the deadliest in Spain’s history. Most of those confirmed to have been killed were from Belgium or Britain.`\
+https://www.nytimes.com/2026/07/11/world/europe/spain-wildfire-kills-12-what-to-know.html
+
 **Yaacov Agam, Who Made Kinetic, Kaleidoscopic Art, Dies at 98**\
 `An Israeli artist, he became a global sensation, creating sculptures, paintings, toys and public works that delighted the eye and confounded perception.`\
 https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
