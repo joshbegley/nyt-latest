@@ -1,3 +1,11 @@
+**‘Giulia’ Review: Jennifer Nettles Delivers Empowerment (and Poison)**\
+`A stirring but tonally muddled new musical about the “poison queen of Palermo” gets an elegant Off Broadway production.`\
+https://www.nytimes.com/2026/07/10/theater/giulia-poison-queen-of-palermo-review-nettles.html
+
+**Meta Removes A.I. Feature on Instagram After Days of Backlash**\
+`Users and Hollywood agencies raised privacy and copyright concerns about the new tool, Muse Image.`\
+https://www.nytimes.com/2026/07/10/technology/meta-muse-images-instagram-removal.html
+
 **Trump Tried to Stop Canada’s Bridge to Detroit From Opening. It Will Open Anyway.**\
 `A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
 https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/us/politics/ice-deports-immigrant-pardoned-mi
 **Trump Administration Taps Climate Science Critic to Oversee National Climate Assessment**\
 `Matthew M. Wielicki has criticized the scientific consensus on global warming as alarmist. Now he’ll oversee a major federal report on the topic.`\
 https://www.nytimes.com/2026/07/10/climate/trump-climate-assessment-wielicki.html
-
-**Sexual Assault and Killing of Girl Set Off Days of Protest in West Bengal**\
-`After promising to improve safety for women in the Indian state, the party of Prime Minister Narendra Modi is facing public anger after the death of an 11-year-old girl.`\
-https://www.nytimes.com/2026/07/10/world/asia/girl-riots-west-bengal-baruipur.html
-
-**Anti-Ozempic Dressing at Chanel**\
-`Chief Fashion Critic Vanessa Friedman outlines how designer Matthieu Blazy explored fairy-tales like ‘The Ugly Duckling’ and ‘Jack and the Beanstalk’ in his latest collection.`\
-https://www.nytimes.com/video/style/100000010990404/chanel-couture-week-2026.html
 

@@ -1,3 +1,11 @@
+**‘Giulia’ Review: Jennifer Nettles Delivers Empowerment (and Poison)**\
+`A stirring but tonally muddled new musical about the “poison queen of Palermo” gets an elegant Off Broadway production.`\
+https://www.nytimes.com/2026/07/10/theater/giulia-poison-queen-of-palermo-review-nettles.html
+
+**Meta Removes A.I. Feature on Instagram After Days of Backlash**\
+`Users and Hollywood agencies raised privacy and copyright concerns about the new tool, Muse Image.`\
+https://www.nytimes.com/2026/07/10/technology/meta-muse-images-instagram-removal.html
+
 **What China’s Successful Rocket Launch Means for the Future of the Space Race**\
 `A space neophyte not long ago, China is now the United States’s main competitor for supremacy throughout the solar system.`\
 https://www.nytimes.com/2026/07/10/science/china-space-race.html
