@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/07/11/business/trump-accounts-investing-kids.html
 https://www.nytimes.com/2026/07/11/nyregion/hamptons-chicken-tenders.html
 
 **Yaacov Agam, Who Made Kinetic, Kaleidoscopic Art, Dies at 98**\
-`A pioneer of Op Art, he became a global sensation, creating sculptures, paintings, toys and public works that delighted the eye and confounded perception.`\
+`An Israeli artist, he became a global sensation, creating sculptures, paintings, toys and public works that delighted the eye and confounded perception.`\
 https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
 
 **How Marco Rubio Is Running Venezuela From Afar**\

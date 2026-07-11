@@ -1,3 +1,7 @@
+**Yaacov Agam, Who Made Kinetic, Kaleidoscopic Art, Dies at 98**\
+`An Israeli artist, he became a global sensation, creating sculptures, paintings, toys and public works that delighted the eye and confounded perception.`\
+https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
+
 **We Have 7-Eleven Snacks at Home**\
 `Skip the prepackaged stuff and make your own Pop-Tarts and Hostess cupcakes at home.`\
 https://www.nytimes.com/2026/07/11/dining/we-have-7-eleven-snacks-at-home.html
