@@ -1,3 +1,7 @@
+**Inglaterra y Noruega reavivan su rivalidad de cara al Mundial**\
+`Además de los lazos históricos y diplomáticos, los equipos de fútbol de Inglaterra tienen seguidores fieles en Noruega. Este sábado, los aficionados tendrán que elegir un bando.`\
+https://www.nytimes.com/es/2026/07/11/espanol/mundo/inglaterra-noruega-rivalidad-mundial.html
+
 **Trump’s Posts on Singing Somali Schoolchildren Stir Anger in Minnesota**\
 `The state’s large Muslim and Somali communities expressed indignation after the president reposted a video of a kindergarten promotion ceremony, including comments noting the girls were in hijabs.`\
 https://www.nytimes.com/2026/07/11/us/politics/trump-somali-kindergartners.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/arts/design/yaacov-agam-dead.html
 **How Marco Rubio Is Running Venezuela From Afar**\
 `The secretary of state effectively controls Venezuela’s finances, the distribution of its natural resources and its government. His grip on the country is a vivid manifestation of American power in the Trump era.`\
 https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html
-
-**Looking to Sell Your Home? Grab This Big Tax Break if You Can.**\
-`Selling a primary residence can net thousands in capital gains deductions. But you need to gather the evidence.`\
-https://www.nytimes.com/2026/07/11/realestate/taxes-capital-gains-home-sales.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\
