@@ -1,3 +1,11 @@
+**‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
+`What America’s embarrassments have in common.`\
+https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
+
+**Iran’s Top Diplomat in Oman for Talks on Strait of Hormuz**\
+`The Iranian foreign minister landed in Muscat on Saturday. A standoff over the strait this week set off heavy clashes between the U.S. and Iran.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **An American Politician is Blocked by Israeli Settlers in the West Bank**\
 `Representative Ro Khanna was barred from leaving for 90 minutes. Where past U.S. leaders toured the region to show support for Israel, today’s Democratic presidential aspirants are going to bolster their credentials as critics.`\
 https://www.nytimes.com/2026/07/11/us/politics/ro-khanna-west-bank.html

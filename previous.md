@@ -1,3 +1,11 @@
+**‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
+`What America’s embarrassments have in common.`\
+https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
+
+**Iran’s Top Diplomat in Oman for Talks on Strait of Hormuz**\
+`The Iranian foreign minister landed in Muscat on Saturday. A standoff over the strait this week set off heavy clashes between the U.S. and Iran.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **An American Politician is Blocked by Israeli Settlers in the West Bank**\
 `Representative Ro Khanna was barred from leaving for 90 minutes. Where past U.S. leaders toured the region to show support for Israel, today’s Democratic presidential aspirants are going to bolster their credentials as critics.`\
 https://www.nytimes.com/2026/07/11/us/politics/ro-khanna-west-bank.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/11/nyregion/nathan-berman-metroloft-developer.ht
 **NYT Spelling Bee Answers for July 11, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/11/crosswords/spelling-bee-forum.html
-
-**How ‘The Wire’ Star Jamie Hector Spends a Hot Day in Brooklyn**\
-`Bike rides, ice cream, museum, dinner with his wife: Mr. Hector’s busy day even included helping the next generation of actors.`\
-https://www.nytimes.com/interactive/2026/07/11/nyregion/routine-jamie-hector.html
-
-**U.S. Citizen Tests Positive for Ebola in Democratic Republic of Congo**\
-`The American works for a humanitarian organization in Congo, the Centers for Disease Control and Prevention said.`\
-https://www.nytimes.com/2026/07/11/world/africa/dr-congo-ebola-american-us-citizen.html
 
 **World Cup Updates: Kansas City Seizes Its Moment**\
 `(No description)`\
