@@ -1,3 +1,7 @@
+**White House Directed Patel to Oversee Investigation Involving Times Reporting**\
+`The F.B.I. director spent about eight hours at the White House Friday focused on the effort, which led to the subpoenaing of several Times reporters who wrote about the security of Air Force One.`\
+https://www.nytimes.com/2026/07/11/us/politics/white-house-patel-investigation-times.html
+
 **At Vigil, Sons of Man Killed by ICE in Houston Call for Accountability**\
 `The sons of Lorenzo Salgado Araujo recalled their father’s love of soccer and said they would “continue to keep fighting for him.”`\
 https://www.nytimes.com/2026/07/11/us/houston-ice-shooting-vigil.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/arts/music/beyonce-rolling-stones-songs.html
 **Platner’s Rise and Fall Revives Old Questions About ‘Bernie Bros’ and Women**\
 `The collapse of Graham Platner’s Senate bid in Maine after a rape allegation renewed attention to a movement built by Senator Bernie Sanders that some say is too forgiving of male misconduct.`\
 https://www.nytimes.com/2026/07/11/us/politics/bernie-sanders-graham-platner-maine.html
-
-**Whistle-Blowers Accuse Kennedy Center of Contracting Flaws Under Trump**\
-`Documents submitted to Congress detailed concerns about competitive bidding processes and a White House order to tear up new bathroom tile because of its color.`\
-https://www.nytimes.com/2026/07/11/arts/design/kennedy-center-trump-renovations.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\
