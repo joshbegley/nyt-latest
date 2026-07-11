@@ -1,3 +1,15 @@
+**At Vigil, Sons of Man Killed by ICE in Houston Call for Accountability**\
+`The sons of Lorenzo Salgado Araujo recalled their father’s love of soccer and said they would “continue to keep fighting for him.”`\
+https://www.nytimes.com/2026/07/11/us/houston-ice-shooting-vigil.html
+
+**How Will Maine Democrats Replace Graham Platner? Here’s What to Know.**\
+`Mr. Platner’s withdrawal from a marquee Senate race, under pressure from his party, has set in motion an unusual competition to become the new nominee.`\
+https://www.nytimes.com/2026/07/11/us/politics/maine-senate-nomination-democrats-convention.html
+
+**Black Hawk Helicopters Rescue Hundreds From Summer Camp During Floods**\
+`The National Guard evacuated campers after flooding in Missouri that reminded some families of the devastating floods at Camp Mystic in central Texas last year.`\
+https://www.nytimes.com/2026/07/11/us/missouri-rescue-summer-camp-flood.html
+
 **La tristeza, la rabia y la loca alegría de la fase eliminatoria del Mundial**\
 `La mejor forma de entender esta fase del torneo es imaginar un túnel de autolavado hecho con ralladores de queso.`\
 https://www.nytimes.com/es/2026/07/11/espanol/mundo/haaland-noruega-brasil-mundial.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/11/us/politics/bernie-sanders-graham-platner-mai
 **Whistle-Blowers Accuse Kennedy Center of Contracting Flaws Under Trump**\
 `Documents submitted to Congress detailed concerns about competitive bidding processes and a White House order to tear up new bathroom tile because of its color.`\
 https://www.nytimes.com/2026/07/11/arts/design/kennedy-center-trump-renovations.html
-
-**How a Beer Hall Keeps Up With a World Cup Crowd**\
-`The fans see the games, the crowds, the food and the beer. But behind every World Cup watch party is a team working long before kickoff and well after the final whistle. We go behind the scenes at a beer hall in Brooklyn to see what it takes to serve a room full of soccer fans on game day.`\
-https://www.nytimes.com/video/us/100000011016232/world-cup-beer-hall-brooklyn.html
-
-**Trump Accounts Prompt Parents to Start Saving Early for Their Kids**\
-`Between Trump accounts and child-friendly investment platforms, it has become much easier for parents to invest for their children’s future.`\
-https://www.nytimes.com/2026/07/11/business/trump-accounts-investing-kids.html
-
-**In the Hamptons, Even the Chicken Tenders Are Living Fancy**\
-`It’s summer on the South Fork. Care for some nuggets and caviar?`\
-https://www.nytimes.com/2026/07/11/nyregion/hamptons-chicken-tenders.html
 
 **World Cup Updates: England vs. Norway Is a Battle of Old Friends**\
 `(No description)`\
