@@ -1,3 +1,11 @@
+**Iran’s Top Diplomat in Oman for Talks on Strait, As Ayatollah Vows Revenge**\
+`The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged  to avenge his father’s killing, trading threats with President Trump.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
+**England and Norway Resurrect a Rivalry for the World Cup**\
+`Along with historic and diplomatic ties, England’s club soccer teams have loyal fans in Norway. On Saturday, supporters will have to pick a side.`\
+https://www.nytimes.com/2026/07/11/world/europe/england-norway-world-cup.html
+
 **Boat Carrying Dozens of Tourists Capsizes in Vietnam**\
 `A speedboat carrying 36 people overturned near the island of Phu Quoc in southern Vietnam. Local media reported that 15 people had died and that the others had been rescued.`\
 https://www.nytimes.com/2026/07/11/world/asia/vietnam-speedboat-tourists-capsize.html
