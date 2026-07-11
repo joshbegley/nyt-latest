@@ -1,3 +1,7 @@
+**Trump Tried to Block Canada’s New Bridge to Detroit. It’s Opening Anyway.**\
+`A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
+https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html
+
 **‘Giulia’ Review: Jennifer Nettles Delivers Empowerment (and Poison)**\
 `A stirring but tonally muddled new musical about the “poison queen of Palermo” gets an elegant Off Broadway production.`\
 https://www.nytimes.com/2026/07/10/theater/giulia-poison-queen-of-palermo-review-nettles.html

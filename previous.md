@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/07/10/theater/giulia-poison-queen-of-palermo-review
 `Users and Hollywood agencies raised privacy and copyright concerns about the new tool, Muse Image.`\
 https://www.nytimes.com/2026/07/10/technology/meta-muse-images-instagram-removal.html
 
-**Trump Tried to Stop Canada’s Bridge to Detroit From Opening. It Will Open Anyway.**\
+**Trump Tried to Block Canada’s New Bridge to Detroit. It’s Opening Anyway.**\
 `A deal ended the Trump administration’s blocking of a new bridge that will ease congestion at the busiest trade corridor between the United States and Canada.`\
 https://www.nytimes.com/2026/07/10/world/canada/gordie-howe-bridge-canada-us-michigan.html
 
