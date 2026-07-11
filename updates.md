@@ -1,3 +1,7 @@
+**Boat Carrying Tourists Capsizes in Vietnam, Killing 15**\
+`A speedboat was carrying 36 people when it overturned near the island of Phu Quoc in southern Vietnam. The other people onboard were rescued alive.`\
+https://www.nytimes.com/2026/07/11/world/asia/vietnam-speedboat-tourists-capsize.html
+
 **Trump-Appointed Judge Reluctantly Grants Dismissal of Proud Boys Case**\
 `Judge Timothy J. Kelly, a federal judge in Washington, noted that he had little choice but to accept the Trump administration’s move to end the case.`\
 https://www.nytimes.com/2026/07/11/us/politics/judge-proud-boys-sedition-dismissal.html
