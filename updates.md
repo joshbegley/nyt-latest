@@ -1,3 +1,11 @@
+**Kids Can’t Stop Watching ‘Moana.’ There’s a Scientific Explanation.**\
+`The 2016 release has become the most watched movie on Disney+. Parents and experts explain why kids can’t get enough.`\
+https://www.nytimes.com/2026/07/11/movies/moana-kids-obsession.html
+
+**Beach Workout: How to Get the Most Out of Your Exercise**\
+`Working out on sand is not only fun, it also brings extra fitness benefits.`\
+https://www.nytimes.com/2026/07/11/well/move/beach-workout-exercise-benefits.html
+
 **Man Arrested in Killing of U.K. Ex-Lawmaker Is Released**\
 `The police said the 26-year-old was no longer part of the investigation into the death of Ann Widdecombe and urged anyone with information about the crime to come forward.`\
 https://www.nytimes.com/2026/07/11/world/europe/uk-ann-widdecombe-suspect-released.html

@@ -1,3 +1,11 @@
+**Kids Can’t Stop Watching ‘Moana.’ There’s a Scientific Explanation.**\
+`The 2016 release has become the most watched movie on Disney+. Parents and experts explain why kids can’t get enough.`\
+https://www.nytimes.com/2026/07/11/movies/moana-kids-obsession.html
+
+**Beach Workout: How to Get the Most Out of Your Exercise**\
+`Working out on sand is not only fun, it also brings extra fitness benefits.`\
+https://www.nytimes.com/2026/07/11/well/move/beach-workout-exercise-benefits.html
+
 **Man Arrested in Killing of U.K. Ex-Lawmaker Is Released**\
 `The police said the 26-year-old was no longer part of the investigation into the death of Ann Widdecombe and urged anyone with information about the crime to come forward.`\
 https://www.nytimes.com/2026/07/11/world/europe/uk-ann-widdecombe-suspect-released.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/10/t-magazine/europe-hotels-heatwave-cool-travel
 **ICE detuvo a un antiguo aliado de Pinochet. ¿Será deportado?**\
 `Armando Fernández Larios ayudó a planear un ataque con coche bomba en Washington que mató a dos personas en 1976. Cincuenta años después, antiguos secretos del gobierno podrían decidir su destino.`\
 https://www.nytimes.com/es/2026/07/10/espanol/estados-unidos/ice-asesino-detencion-chile.html
-
-**What Is the Best Verse on Jay-Z’s ‘Reasonable Doubt’?**\
-`Music critic and “Popcast” host, Jon Caramanica, makes his argument for why Jay-Z’s “Friend or Foe” is the best verse on his 1996 album “Reasonable Doubt.”`\
-https://www.nytimes.com/video/podcasts/100000011017931/what-is-the-quintessential-jay-z-song.html
-
-**N.Y.P.D. Inspector Charged with Attempted Rape of a Female Officer**\
-`Inspector Jeremy Scheublin, 45, is accused of trying to sexually assault an officer who worked in his precinct. He pleaded not guilty on Friday.`\
-https://www.nytimes.com/2026/07/10/nyregion/nypd-inspector-sexual-assault.html
 
