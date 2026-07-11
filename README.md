@@ -38,8 +38,8 @@ https://www.nytimes.com/2026/07/11/opinion/social-security.html
 `What America’s embarrassments have in common.`\
 https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
 
-**Iran’s Top Diplomat Is in Oman for Talks on Strait of Hormuz**\
-`The visit comes after heavy clashes this week between the U.S. and Iran. On Saturday, the country’s supreme leader vowed revenge for his father’s killing.`\
+**Iran’s Top Diplomat in Oman for Talks on Strait, As Ayatollah Vows Revenge**\
+`The visit comes after heavy clashes this week between the U.S. and Iran. The country’s supreme leader pledged  to avenge his father’s killing, trading threats with President Trump.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
 
 **An American Politician is Blocked by Israeli Settlers in the West Bank**\
