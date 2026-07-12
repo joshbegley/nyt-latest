@@ -1,3 +1,7 @@
+**‘Moana’ Falters at the Box Office, Casting Doubt on Disney’s Formula**\
+`The live-action remake took in roughly $43 million over the weekend in North America, about 30 percent less than Disney had expected.`\
+https://www.nytimes.com/2026/07/12/business/media/moana-box-office-disney.html
+
 **Lindsey Graham Championed Israel, Even as Wars Eroded American Support**\
 `The Republican senator from South Carolina had an intense interest in the Middle East, and was a staunch supporter of U.S. strikes on Iran.`\
 https://www.nytimes.com/2026/07/12/world/middleeast/lindsey-graham-iran-israel-gaza-war.html
