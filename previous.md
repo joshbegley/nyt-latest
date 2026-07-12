@@ -1,3 +1,7 @@
+**Why Dior’s Jonathan Anderson Is Inspired by Lynda Benglis**\
+`Lynda Benglis redefined sculpture in the 1960s. No longer overlooked, her audacious talent moves from museums to runways, transformed by Dior’s Jonathan Anderson.`\
+https://www.nytimes.com/2026/07/12/arts/design/lynda-benglis-dior-jonathan-anderson-art.html
+
 **‘Moana’ Falters at the Box Office, Casting Doubt on Disney’s Formula**\
 `The live-action remake took in roughly $43 million over the weekend in North America, about 30 percent less than Disney had expected.`\
 https://www.nytimes.com/2026/07/12/business/media/moana-box-office-disney.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/12/espanol/platano-banana-salud-recetas.html
 **Younger Voters Are Propelling the Democratic Socialist Surge in New York**\
 `Age seemed to be the predominant factor in the Democratic Socialists of America’s primary wins in House races in New York City.`\
 https://www.nytimes.com/2026/07/12/nyregion/dsa-young-voters-primary-ny.html
-
-**The Democratic Socialists Winning Elections Far From New York City**\
-`They won Democratic state legislative primaries in Buffalo and Syracuse, showing how the party’s messaging and ground game can work outside New York City.`\
-https://www.nytimes.com/2026/07/12/nyregion/dsa-upstate-new-york.html
 

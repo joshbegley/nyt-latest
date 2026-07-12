@@ -1,3 +1,7 @@
+**Why Dior’s Jonathan Anderson Is Inspired by Lynda Benglis**\
+`Lynda Benglis redefined sculpture in the 1960s. No longer overlooked, her audacious talent moves from museums to runways, transformed by Dior’s Jonathan Anderson.`\
+https://www.nytimes.com/2026/07/12/arts/design/lynda-benglis-dior-jonathan-anderson-art.html
+
 **‘Moana’ Falters at the Box Office, Casting Doubt on Disney’s Formula**\
 `The live-action remake took in roughly $43 million over the weekend in North America, about 30 percent less than Disney had expected.`\
 https://www.nytimes.com/2026/07/12/business/media/moana-box-office-disney.html
