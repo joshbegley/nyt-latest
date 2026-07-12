@@ -190,7 +190,3 @@ https://www.nytimes.com/es/2026/07/11/espanol/opinion/helena-troya-lupita-nyongo
 `Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
 https://www.nytimes.com/2026/07/11/us/houston-ice-video-shooting-salgado-araujo.html
 
-**Trump-Appointed Judge Reluctantly Grants Dismissal of Proud Boys Case**\
-`Judge Timothy J. Kelly, a federal judge in Washington, noted that he had little choice but to accept the Trump administration’s move to end the case.`\
-https://www.nytimes.com/2026/07/11/us/politics/judge-proud-boys-sedition-dismissal.html
-
