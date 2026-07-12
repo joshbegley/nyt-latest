@@ -1,5 +1,9 @@
 **Fire in Bangkok Pub Kills Dozens**\
 `The cause of the fire was still unknown, but it began as a band was performing onstage and spread very rapidly, killing least 27 people.`\
+https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
+
+**Fire in Bangkok Pub Kills Dozens**\
+`The cause of the fire was still unknown, but it began as a band was performing onstage and spread very rapidly, killing least 27 people.`\
 https://www.nytimes.com/2026/07/12/world/asia/fire-in-bangkok-pub-kills-dozens.html
 
 **After Weeks of Silence, McConnell Says He Is Recovering From a Fall**\
