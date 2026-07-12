@@ -194,7 +194,7 @@ https://www.nytimes.com/interactive/2026/07/11/realestate/elin-hilderbrand-house
 `Beyoncé gets amorous, the Rolling Stones stay loud and the Linda Lindas team up with Hayley Williams.`\
 https://www.nytimes.com/2026/07/11/arts/music/beyonce-rolling-stones-songs.html
 
-**World Cup Updates: England and Norway Battle Like Old Friends**\
+**World Cup Updates: Kansas City Takes Center Stage as Global Host**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 

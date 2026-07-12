@@ -1,3 +1,7 @@
+**World Cup Updates: Kansas City Takes Center Stage as Global Host**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Slight Adjustments**\
 `Collin Drown’s debut Times puzzle doesn’t mince words.`\
 https://www.nytimes.com/2026/07/11/crosswords/daily-puzzle-2026-07-12.html
