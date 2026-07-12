@@ -1,3 +1,7 @@
+**El gobierno de Trump cita a periodistas del Times en una nueva ofensiva contra la prensa**\
+`El Departamento de Justicia busca obligar a declarar a reporteros que informaron sobre el nuevo Air Force One. El Times calificó la medida como un “acto descarado”.`\
+https://www.nytimes.com/es/2026/07/12/espanol/negocios/new-york-times-trump-citacion.html
+
 **Young Campers Describe Helicopter Rescue From Missouri Floodwaters**\
 `Roughly 200 campers and counselors were evacuated from Camp Taum Sauk in Black Hawk helicopters on Friday after southeastern Missouri experienced a foot of rainfall.`\
 https://www.nytimes.com/video/us/100000011025747/campers-evacuated-missouri-floodwaters.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/us/san-quentin-inmates-prosecutors-crime-prev
 **Big-Box Retailers Have a New Strategy for Breaking Into Urban Markets**\
 `As more states and municipalities continue their push to build affordable housing, companies like Costco and Target are riding along and getting their stores into crowded cities.`\
 https://www.nytimes.com/2026/07/12/business/costco-target-affordable-housing.html
-
-**En Roswell, los recientes archivos ovni desclasificados decepcionan**\
-`Se suponía que el festival de ovnis de Roswell, celebrado durante el fin de semana del 4 de julio, iba a ser una dulce reivindicación para miles de ufólogos. En cambio, se lamentaron del encubrimiento que temían que nunca acabará.`\
-https://www.nytimes.com/es/2026/07/12/espanol/estados-unidos/roswell-festival-ovni.html
 

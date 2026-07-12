@@ -1,3 +1,7 @@
+**El gobierno de Trump cita a periodistas del Times en una nueva ofensiva contra la prensa**\
+`El Departamento de Justicia busca obligar a declarar a reporteros que informaron sobre el nuevo Air Force One. El Times calificó la medida como un “acto descarado”.`\
+https://www.nytimes.com/es/2026/07/12/espanol/negocios/new-york-times-trump-citacion.html
+
 **Young Campers Describe Helicopter Rescue From Missouri Floodwaters**\
 `Roughly 200 campers and counselors were evacuated from Camp Taum Sauk in Black Hawk helicopters on Friday after southeastern Missouri experienced a foot of rainfall.`\
 https://www.nytimes.com/video/us/100000011025747/campers-evacuated-missouri-floodwaters.html
