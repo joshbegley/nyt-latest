@@ -1,3 +1,11 @@
+**How Trump Failed to Secure the Strait of Hormuz in His Iran Deal**\
+`President Trump signed an agreement that Iran said gave it control of the waterway — and global energy supplies. Now, Iran’s military is violently asserting authority.`\
+https://www.nytimes.com/2026/07/12/us/politics/trump-strait-of-hormuz-iran-deal.html
+
+**Trump Mourns Graham as ‘Great Politician’ and ‘Member of the Family’**\
+`In an interview on Sunday, President Trump recounted his last conversation with Senator Lindsey Graham, hours before his death. Mr. Graham sounded “perfect,” he said.`\
+https://www.nytimes.com/2026/07/12/us/politics/donald-trump-lindsey-graham-death-interview.html
+
 **Map: 4.1-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/12/us/quake-tracker-southern-california.html

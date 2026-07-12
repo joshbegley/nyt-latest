@@ -1,3 +1,11 @@
+**How Trump Failed to Secure the Strait of Hormuz in His Iran Deal**\
+`President Trump signed an agreement that Iran said gave it control of the waterway — and global energy supplies. Now, Iran’s military is violently asserting authority.`\
+https://www.nytimes.com/2026/07/12/us/politics/trump-strait-of-hormuz-iran-deal.html
+
+**Trump Mourns Graham as ‘Great Politician’ and ‘Member of the Family’**\
+`In an interview on Sunday, President Trump recounted his last conversation with Senator Lindsey Graham, hours before his death. Mr. Graham sounded “perfect,” he said.`\
+https://www.nytimes.com/2026/07/12/us/politics/donald-trump-lindsey-graham-death-interview.html
+
 **Residents of Spanish Towns Caught in Fierce Blazes Recount Harrowing Escapes**\
 `Many say communication was chaotic and even nonexistent as flames tore through the area, taking 12 lives in one of the deadliest wildfires on record in Spain.`\
 https://www.nytimes.com/2026/07/12/world/europe/spain-wildfire-almeria-province.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/12/nyregion/tracee-ellis-ross-broadway-every-bri
 **‘I Lifted One Arm, Palmed the Ball and Shot It Straight Back’**\
 `More Metropolitan Diary friends, including the astrophysicist Neil deGrasse Tyson and the actress Rebecca Wisocky, share their New York stories to help mark the column’s 50th anniversary.`\
 https://www.nytimes.com/2026/07/12/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answer July 12, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/12/crosswords/spelling-bee-forum.html
-
-**Lindsey Graham, Republican Senator and Trump Ally, Dies From ‘Sudden Illness’**\
-`He died from “a brief and sudden illness,” his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
-https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
 
