@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/07/12/nyregion/metropolitan-diary.html
 https://www.nytimes.com/2026/07/12/crosswords/spelling-bee-forum.html
 
 **Lindsey Graham, Republican Senator and Trump Ally, Dies From ‘Sudden Illness’**\
-`He died from “a brief and sudden illness” on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
+`He died from “a brief and sudden illness,” his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
 
 **Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\

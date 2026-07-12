@@ -1,3 +1,7 @@
+**Lindsey Graham, Republican Senator and Trump Ally, Dies From ‘Sudden Illness’**\
+`He died from “a brief and sudden illness,” his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
+
 **This Healthy Roasted Fish Al Pastor Is Already Earning Raves**\
 `“This is absolutely delicious! Sweet, citrusy, pungent, smoky. And looks gorgeous too,” writes a reader.`\
 https://www.nytimes.com/2026/07/12/dining/this-healthy-roasted-fish-al-pastor-is-already-earning-raves.html
