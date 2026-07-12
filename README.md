@@ -1,3 +1,7 @@
+**It Takes Coordination (and Many Arms) to Unfurl a World Cup Flag**\
+`Teams of stagehands work to coordinate how the giant flags are brought onto the field and displayed before each match. The prep takes days.`\
+https://www.nytimes.com/2026/07/12/us/world-cup-giant-flags.html
+
 **After Weeks of Silence, McConnell Says He Is Recovering From a Fall**\
 `The Republican senator denied that he had suffered a heart attack and said he had left the hospital and moved to a physical rehabilitation center. He did not give a timetable for returning to Capitol Hill.`\
 https://www.nytimes.com/2026/07/12/us/politics/mitch-mcconnell-hospital-announcement.html
@@ -91,7 +95,7 @@ https://www.nytimes.com/2026/07/12/dining/this-healthy-roasted-fish-al-pastor-is
 https://www.nytimes.com/2026/07/12/world/europe/ukraine-zelensky-leadership.html
 
 **Tim Scott and Other South Carolina Leaders Mourn Lindsey Graham**\
-`The senator had sometimes struggled to maintain support from his party’s most right-wing voters. But leaders paid tribute to his wit and stalwart support of South Carolina.`\
+`The senator had sometimes struggled to maintain support from his party’s most right-wing voters. But leaders and supporters paid tribute to his wit and stalwart support of South Carolina.`\
 https://www.nytimes.com/2026/07/12/us/south-carolina-lindsey-graham-reaction.html
 
 **Melbourne Symphony Wins Discrimination Case Over Gaza Comments**\
@@ -138,13 +142,13 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
 
-**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
-`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
-https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
-
 **The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
 `A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
 https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
+
+**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
+`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
+https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
 
 **Today’s Wordle Hints for July 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/12/espanol/estilos-de-vida/bano-inmersion-agu
 **Meet the Milliner Making Hats for the Modern Bride**\
 `Dua Lipa turned heads this spring with a striking wedding topper. Rowell Concepcion has been making them for years.`\
 https://www.nytimes.com/2026/07/12/style/rowell-concepcion-binata-milinery-bridal.html
-
-**Fans of ‘Love Island USA’ Ask: ‘Are These Couples for Real?’**\
-`For many viewers of the hit reality TV show, lively debates over whether the competing couples are truly in love is a central part of being a fan.`\
-https://www.nytimes.com/2026/07/12/arts/television/love-island-finale-trinity-bryce.html
 
