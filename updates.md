@@ -1,3 +1,7 @@
+**Iran War Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
+`Iran said it was responding to the attack with strikes on U.S. assets in the Middle East. The defense ministries of the United Arab Emirates and Qatar both said they were intercepting strikes.`\
+https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
+
 **Hard-Liners in Iran Want to Keep Fighting America**\
 `With much of their leadership killed in the war, Iran’s conservatives have sought to fill the void and intensify the fight against the United States.`\
 https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-liners.html
