@@ -1,3 +1,11 @@
+**It Takes Coordination (and Many Arms) to Unfurl a World Cup Flag**\
+`Teams of stagehands work to coordinate how the giant flags are brought onto the field and displayed before each match. The prep takes days.`\
+https://www.nytimes.com/2026/07/12/us/world-cup-giant-flags.html
+
+**Tim Scott and Other South Carolina Leaders Mourn Lindsey Graham**\
+`The senator had sometimes struggled to maintain support from his party’s most right-wing voters. But leaders and supporters paid tribute to his wit and stalwart support of South Carolina.`\
+https://www.nytimes.com/2026/07/12/us/south-carolina-lindsey-graham-reaction.html
+
 **After Weeks of Silence, McConnell Says He Is Recovering From a Fall**\
 `The Republican senator denied that he had suffered a heart attack and said he had left the hospital and moved to a physical rehabilitation center. He did not give a timetable for returning to Capitol Hill.`\
 https://www.nytimes.com/2026/07/12/us/politics/mitch-mcconnell-hospital-announcement.html

@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/07/12/us/world-cup-giant-flags.html
 
 **After Weeks of Silence, McConnell Says He Is Recovering From a Fall**\
 `The Republican senator denied that he had suffered a heart attack and said he had left the hospital and moved to a physical rehabilitation center. He did not give a timetable for returning to Capitol Hill.`\
-https://www.nytimes.com/2026/07/12/us/politics/mitch-mcconnell-hospital-announcement.html
+https://www.nytimes.com/2026/07/12/us/politics/mitch-mcconnell-fall-hospitalized-statement.html
 
 **Oil Rises After Weekend of Back-and-Forth Strikes by U.S. and Iran**\
 `The renewed hostilities posed fresh risks to ships seeking to navigate the Strait of Hormuz.`\
