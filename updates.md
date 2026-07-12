@@ -1,3 +1,39 @@
+**Trump’s Corruption Stains, From Texas to Maine**\
+`Something is wrong if vice is all them and virtue is all you.`\
+https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
+
+**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
+`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
+https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
+
+**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
+`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
+https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
+
+**Today’s Wordle Hints for July 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/12/crosswords/wordle-review-1850.html
+
+**NYT Connections Answers for July 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/12/crosswords/connections-companion-1128.html
+
+**NYT Strands Hints for July 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/12/crosswords/strands-sidekick-862.html
+
+**Seneca’s Solution to the Crisis of Attention**\
+`Devote your attention to one idea a day.`\
+https://www.nytimes.com/2026/07/12/opinion/attention-crisis-seneca.html
+
+**Fitness Influencers Are Not Making Men More Fit**\
+`Manosphere fitness influencers are the wrong model. Health requires looking at life as a whole, not as an exercise in “optimization.”`\
+https://www.nytimes.com/2026/07/12/opinion/fitness-influencer-manosphere-health.html
+
+**Live Updates: Iran Targets Gulf States After Night of Intense U.S. Strikes**\
+`U.S. Central Command said it had hit about 140 targets in Iran overnight after Tehran attacked a ship in the Strait of Hormuz. Iran’s military said it had responded by firing at U.S. targets in Jordan, Oman and Qatar.`\
+https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
+
 **Iran War Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
 `Iran said it was responding to the attack with strikes on U.S. assets in the Middle East. The defense ministries of the United Arab Emirates and Qatar both said they were intercepting strikes.`\
 https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
