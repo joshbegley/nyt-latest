@@ -1,3 +1,11 @@
+**Young Campers Describe Helicopter Rescue From Missouri Floodwaters**\
+`Roughly 200 campers and counselors were evacuated from Camp Taum Sauk in Black Hawk helicopters on Friday after southeastern Missouri experienced a foot of rainfall.`\
+https://www.nytimes.com/video/us/100000011025747/campers-evacuated-missouri-floodwaters.html
+
+**Senator Lindsey Graham of South Carolina Dead at 71**\
+`Senator Lindsey Graham, a South Carolina Republican and staunch ally of President Trump, died from “a brief and sudden illness” on Saturday, his office said in a statement.`\
+https://www.nytimes.com/video/us/politics/100000011026304/lindsey-graham-us-senate-obituary.html
+
 **Michael Cohen Helped Convict Trump. Now, He’s Making Nice Again.**\
 `A previously unreported encounter last summer set the stage for a rapprochement between the president and his former fixer, who has so far avoided the diatribes and prosecutions that President Trump has directed at other critics.`\
 https://www.nytimes.com/2026/07/12/us/politics/trump-cohen-meeting-show.html
@@ -90,13 +98,13 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
 
-**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
-`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
-https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
-
 **Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
 `Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
 https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
+
+**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
+`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
+https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
 
 **Today’s Wordle Hints for July 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/12/business/costco-target-affordable-housing.htm
 **En Roswell, los recientes archivos ovni desclasificados decepcionan**\
 `Se suponía que el festival de ovnis de Roswell, celebrado durante el fin de semana del 4 de julio, iba a ser una dulce reivindicación para miles de ufólogos. En cambio, se lamentaron del encubrimiento que temían que nunca acabará.`\
 https://www.nytimes.com/es/2026/07/12/espanol/estados-unidos/roswell-festival-ovni.html
-
-**Joe Hisaishi, la voz musical de Studio Ghibli, retoma su amor por la música clásica**\
-`Hisaishi, cuya obra ayudó a definir la sensibilidad de las películas de Miyazaki, está redirigiendo su carrera hacia conciertos y grabaciones con grandes orquestas.`\
-https://www.nytimes.com/es/2026/07/12/espanol/cultura/joe-hisaishi-musica-ghibli.html
-
-**Cómo los medicamentos GLP-1 alimentan nuestra cultura enferma**\
-`En un entorno que premia la delgadez, recurrir a estos fármacos puede parecer una elección perfectamente lógica.`\
-https://www.nytimes.com/es/2026/07/12/espanol/opinion/medicamentos-glp-1-cultura-delgadez.html
 
