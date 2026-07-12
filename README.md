@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-s
 `A writer reflects on the healing powers of trying new things.`\
 https://www.nytimes.com/2026/07/12/briefing/cold-plunging.html
 
-**Map: 4.2-Magnitude Earthquake Shakes Southern California**\
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/12/us/quake-tracker-southern-california.html
 
