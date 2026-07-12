@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 13, 2026**\
+`Lynn Lempel makes a scene.`\
+https://www.nytimes.com/2026/07/12/crosswords/daily-puzzle-2026-07-13.html
+
 **With Lindsey Graham Gone, Ukraine Loses an Ally in Trump’s Ear**\
 `The South Carolina Republican was Ukraine’s most influential champion inside President Trump’s mostly ”America First” political orbit.`\
 https://www.nytimes.com/2026/07/12/us/lindsey-graham-ukraine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/books/review/golden-age-mysteries-starter-pac
 **How an Election Fight in Arizona Could Affect the Nation’s Midterms**\
 `A bitter struggle between Maricopa County’s Republican-dominated Board of Supervisors and a Trump-allied official over control of elections has ramifications far beyond Greater Phoenix.`\
 https://www.nytimes.com/2026/07/12/us/elections/maricopa-county-election-security.html
-
-**Blanche Stares Down Confirmation Hurdle: Lingering G.O.P. Doubts**\
-`Key Republicans on the Judiciary Committee could push for concessions from Todd Blanche, in line to be attorney general, though they did not appear in revolt.`\
-https://www.nytimes.com/2026/07/12/us/politics/todd-blanche-attorney-general-confirmation.html
 
