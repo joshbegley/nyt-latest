@@ -1,3 +1,55 @@
+**Trump Sought an Iran War Exit. Putin Pushed On in Ukraine. Now Both Are Stuck.**\
+`The Iran and Ukraine wars underline the common limits of military force in achieving political ends, but also the differences between a dug-in Russian president and a vacillating American one.`\
+https://www.nytimes.com/2026/07/12/world/europe/trump-putin-war-iran-ukraine.html
+
+**Sobreviví a un chapuzón en agua helada y conseguí todo lo que siempre había querido**\
+`Me resistí a la moda hasta que ya no pude más.`\
+https://www.nytimes.com/es/2026/07/12/espanol/estilos-de-vida/bano-inmersion-agua-fria.html
+
+**Meet the Milliner Making Hats for the Modern Bride**\
+`Dua Lipa turned heads this spring with a striking wedding topper. Rowell Concepcion has been making them for years.`\
+https://www.nytimes.com/2026/07/12/style/rowell-concepcion-binata-milinery-bridal.html
+
+**Fans of ‘Love Island USA’ Ask: ‘Are These Couples for Real?’**\
+`For many viewers of the hit reality TV show, lively debates over whether the competing couples are truly in love is a central part of being a fan.`\
+https://www.nytimes.com/2026/07/12/arts/television/love-island-finale-trinity-bryce.html
+
+**Golden Age Mysteries: A Starter Pack**\
+`Interested in these classic novels, but not sure where to start? Let our expert guide you.`\
+https://www.nytimes.com/2026/07/12/books/review/golden-age-mysteries-starter-pack.html
+
+**How an Election Fight in Arizona Could Affect the Nation’s Midterms**\
+`A bitter struggle between Maricopa County’s Republican-dominated Board of Supervisors and a Trump-allied official over control of elections has ramifications far beyond Greater Phoenix.`\
+https://www.nytimes.com/2026/07/12/us/elections/maricopa-county-election-security.html
+
+**Blanche Stares Down Confirmation Hurdle: Lingering G.O.P. Doubts**\
+`Key Republicans on the Judiciary Committee could push for concessions from Todd Blanche, in line to be attorney general, though they did not appear in revolt.`\
+https://www.nytimes.com/2026/07/12/us/politics/todd-blanche-attorney-general-confirmation.html
+
+**Book Review: ‘Every Inch a Lady,’ by Audrey Smaltz**\
+`In “Every Inch a Lady,” Audrey Smaltz shares her incredible story — if not her inimitable voice.`\
+https://www.nytimes.com/2026/07/12/books/review/every-inch-a-lady-audrey-smaltz.html
+
+**How a Gang of Thieves Pulled Off a Multimillion-Dollar Data Center Heist**\
+`The world’s most valuable assets are stored on rows of servers in giant, anonymous buildings. And they can be stolen.`\
+https://www.nytimes.com/2026/07/12/magazine/data-center-heist.html
+
+**‘Michael’ Crosses $1 Billion at the Box Office as Lionsgate Roars Back**\
+`Shunned by bigger studios as too risky, “Michael” and other hits have revived Hollywood’s last major independent studio. But is it enough?`\
+https://www.nytimes.com/2026/07/12/business/media/michael-movie-lionsgate.html
+
+**Don’t Try This at Home: How Performers Turn Stunts Into Movie Magic**\
+`At the International Stunt School in Seattle, veterans of TV and film teach newcomers the art of falls, fights and fire.`\
+https://www.nytimes.com/2026/07/12/arts/film-stunts-school-action-movies.html
+
+**Prosecutors Went to Prison to Ask the Prisoners How to Fight Crime**\
+`What might stop kids from committing crimes? A group of district attorneys went to San Quentin, once one of California’s most infamous prisons, to ask the inmates for advice.`\
+https://www.nytimes.com/2026/07/12/us/san-quentin-inmates-prosecutors-crime-prevention.html
+
+**Big-Box Retailers Have a New Strategy for Breaking Into Urban Markets**\
+`As more states and municipalities continue their push to build affordable housing, companies like Costco and Target are riding along and getting their stores into crowded cities.`\
+https://www.nytimes.com/2026/07/12/business/costco-target-affordable-housing.html
+
 **En Roswell, los recientes archivos ovni desclasificados decepcionan**\
 `Se suponía que el festival de ovnis de Roswell, celebrado durante el fin de semana del 4 de julio, iba a ser una dulce reivindicación para miles de ufólogos. En cambio, se lamentaron del encubrimiento que temían que nunca acabará.`\
 https://www.nytimes.com/es/2026/07/12/espanol/estados-unidos/roswell-festival-ovni.html
@@ -141,56 +193,4 @@ https://www.nytimes.com/2026/07/11/dining/have-you-made-this-cake-yet.html
 **A Wildfire Killed 12 People in Southern Spain. Here’s the Latest.**\
 `Officials said more than 20 people were still missing because of the fire, one of the deadliest in Spain’s history. Most of those confirmed to have been killed were from Belgium or Britain.`\
 https://www.nytimes.com/2026/07/11/world/europe/spain-wildfire-kills-12-what-to-know.html
-
-**We Have 7-Eleven Snacks at Home**\
-`Skip the prepackaged stuff and make your own Pop-Tarts and Hostess cupcakes at home.`\
-https://www.nytimes.com/2026/07/11/dining/we-have-7-eleven-snacks-at-home.html
-
-**¿Pasas mucho tiempo en el teléfono? Estas sugerencias pueden servirte**\
-`Nuestros lectores han compartido algunas estrategias que les han servido para reducir su tiempo con las pantallas.`\
-https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/reducir-tiempo-pantalla-consejos.html
-
-**15 Killed as Speedboat Capsizes in Vietnam**\
-`A speedboat was carrying 36 people when it overturned near the island of Phu Quoc in southern Vietnam. The other people onboard were rescued alive.`\
-https://www.nytimes.com/2026/07/11/world/asia/vietnam-speedboat-tourists-capsize.html
-
-**Inside the Secret Factory That Supplies Ukraine’s War Drones**\
-`With its mass-produced and inexpensive A.I. powered war machines, the German start-up Helsing SE illustrates a profound shift in military spending.`\
-https://www.nytimes.com/2026/07/11/business/dealbook/drone-factory-helsing.html
-
-**In Sudan, a Preventable Atrocity**\
-`Hundreds of thousands of people in Sudan are bracing for their city to be overrun by a militia notorious for committing atrocities.`\
-https://www.nytimes.com/2026/07/11/opinion/sudan-atrocity-africa-rsf.html
-
-**‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
-`What America’s embarrassments have in common.`\
-https://www.nytimes.com/2026/07/11/opinion/trump-iran-ceasefire-mcconnell-platner.html
-
-**We Returned From China. We Realized Our Century’s Biggest Challenge.**\
-`A.I. demands a populist approach that treats the technology as a public project.`\
-https://www.nytimes.com/2026/07/11/opinion/ai-populism-china-open-source.html
-
-**We’re Living in a Tick Nightmare. It’s Time to Go to War.**\
-`With ticks, we’ve barely begun to fight back. The longer we wait, the more territory they will claim across both our geographic and psychic maps.`\
-https://www.nytimes.com/2026/07/11/opinion/ticks-disease-lyme-alpha-gal.html
-
-**The Population Bust Is Coming Sooner Than Anyone Is Prepared For**\
-`America is not prepared for population decline.`\
-https://www.nytimes.com/2026/07/11/opinion/population-forecast-birth-rate.html
-
-**Looksmaxxers Actually Don’t Care What Women Think**\
-`Social pressure for men to look a certain way is coming primarily from other men.`\
-https://www.nytimes.com/2026/07/11/opinion/plastic-surgery-looksmaxxing-male-gaze.html
-
-**More Than One Way to Fix Social Security**\
-`Readers respond to two guest essays about how to cover the shortfall in the program’s funding before it’s too late.`\
-https://www.nytimes.com/2026/07/11/opinion/social-security.html
-
-**‘Platner Is Vile.’ McConnell Is Missing. Welcome to American Politics.**\
-`What America’s embarrassments have in common.`\
-https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
-
-**U.S. Strikes Iran After Iran Fires on Ship in Strait of Hormuz**\
-`Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
-https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
 
