@@ -1,3 +1,11 @@
+**With Lindsey Graham Gone, Ukraine Loses an Ally in Trump’s Ear**\
+`The South Carolina Republican was Ukraine’s most influential champion inside President Trump’s mostly ”America First” political orbit.`\
+https://www.nytimes.com/2026/07/12/us/lindsey-graham-ukraine.html
+
+**Here's what we know about Lindsey Graham’s death**\
+`Senator Lindsey Graham died on Saturday night, a day after returning from Ukraine and four months before he was to face re-election.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-final-days.html
+
 **Venezuela’s Post-Quake Politics**\
 `People are openly and forcefully voicing their anger at the government for the first time in years.`\
 https://www.nytimes.com/2026/07/12/world/venezuela-earthquake-iran.html

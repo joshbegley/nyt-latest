@@ -1,3 +1,11 @@
+**With Lindsey Graham Gone, Ukraine Loses an Ally in Trump’s Ear**\
+`The South Carolina Republican was Ukraine’s most influential champion inside President Trump’s mostly ”America First” political orbit.`\
+https://www.nytimes.com/2026/07/12/us/lindsey-graham-ukraine.html
+
+**Here's what we know about Lindsey Graham’s death**\
+`Senator Lindsey Graham died on Saturday night, a day after returning from Ukraine and four months before he was to face re-election.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-final-days.html
+
 **Venezuela’s Post-Quake Politics**\
 `People are openly and forcefully voicing their anger at the government for the first time in years.`\
 https://www.nytimes.com/2026/07/12/world/venezuela-earthquake-iran.html
@@ -118,13 +126,13 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
 
-**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
-`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
-https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
-
 **Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
 `Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
 https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
+
+**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
+`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
+https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
 
 **Today’s Wordle Hints for July 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/12/us/elections/maricopa-county-election-securit
 **Blanche Stares Down Confirmation Hurdle: Lingering G.O.P. Doubts**\
 `Key Republicans on the Judiciary Committee could push for concessions from Todd Blanche, in line to be attorney general, though they did not appear in revolt.`\
 https://www.nytimes.com/2026/07/12/us/politics/todd-blanche-attorney-general-confirmation.html
-
-**Book Review: ‘Every Inch a Lady,’ by Audrey Smaltz**\
-`In “Every Inch a Lady,” Audrey Smaltz shares her incredible story — if not her inimitable voice.`\
-https://www.nytimes.com/2026/07/12/books/review/every-inch-a-lady-audrey-smaltz.html
-
-**How a Gang of Thieves Pulled Off a Multimillion-Dollar Data Center Heist**\
-`The world’s most valuable assets are stored on rows of servers in giant, anonymous buildings. And they can be stolen.`\
-https://www.nytimes.com/2026/07/12/magazine/data-center-heist.html
 
