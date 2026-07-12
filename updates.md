@@ -1,3 +1,7 @@
+**States Prepare Lawsuit to Block Paramount’s Merger With Warner Bros.**\
+`State attorneys general are preparing to file a lawsuit as soon as this week to halt the $111 billion deal, a potential major obstacle.`\
+https://www.nytimes.com/2026/07/12/business/state-ag-lawsuit-paramount-warner-bros.html
+
 **El gobierno de Trump cita a periodistas del Times en una nueva ofensiva contra la prensa**\
 `El Departamento de Justicia busca obligar a declarar a reporteros que informaron sobre el nuevo Air Force One. El Times calificó la medida como un “acto descarado”.`\
 https://www.nytimes.com/es/2026/07/12/espanol/negocios/new-york-times-trump-citacion.html

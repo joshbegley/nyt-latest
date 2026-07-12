@@ -1,3 +1,7 @@
+**States Prepare Lawsuit to Block Paramount’s Merger With Warner Bros.**\
+`State attorneys general are preparing to file a lawsuit as soon as this week to halt the $111 billion deal, a potential major obstacle.`\
+https://www.nytimes.com/2026/07/12/business/state-ag-lawsuit-paramount-warner-bros.html
+
 **El gobierno de Trump cita a periodistas del Times en una nueva ofensiva contra la prensa**\
 `El Departamento de Justicia busca obligar a declarar a reporteros que informaron sobre el nuevo Air Force One. El Times calificó la medida como un “acto descarado”.`\
 https://www.nytimes.com/es/2026/07/12/espanol/negocios/new-york-times-trump-citacion.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/arts/film-stunts-school-action-movies.html
 **Prosecutors Went to Prison to Ask the Prisoners How to Fight Crime**\
 `What might stop kids from committing crimes? A group of district attorneys went to San Quentin, once one of California’s most infamous prisons, to ask the inmates for advice.`\
 https://www.nytimes.com/2026/07/12/us/san-quentin-inmates-prosecutors-crime-prevention.html
-
-**Big-Box Retailers Have a New Strategy for Breaking Into Urban Markets**\
-`As more states and municipalities continue their push to build affordable housing, companies like Costco and Target are riding along and getting their stores into crowded cities.`\
-https://www.nytimes.com/2026/07/12/business/costco-target-affordable-housing.html
 
