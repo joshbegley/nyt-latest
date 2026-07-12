@@ -1,3 +1,7 @@
+**Fire in Bangkok Pub Kills Dozens**\
+`The cause of the fire was still unknown, but it began as a band was performing onstage and spread very rapidly, killing least 27 people.`\
+https://www.nytimes.com/2026/07/12/world/asia/fire-in-bangkok-pub-kills-dozens.html
+
 **After Weeks of Silence, McConnell Says He Is Recovering From a Fall**\
 `The Republican senator denied that he had suffered a heart attack and said he had left the hospital and moved to a physical rehabilitation center. He did not give a timetable for returning to Capitol Hill.`\
 https://www.nytimes.com/2026/07/12/us/politics/mitch-mcconnell-fall-hospitalized-statement.html

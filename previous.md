@@ -1,3 +1,7 @@
+**Fire in Bangkok Pub Kills Dozens**\
+`The cause of the fire was still unknown, but it began as a band was performing onstage and spread very rapidly, killing least 27 people.`\
+https://www.nytimes.com/2026/07/12/world/asia/fire-in-bangkok-pub-kills-dozens.html
+
 **It Takes Coordination (and Many Arms) to Unfurl a World Cup Flag**\
 `Teams of stagehands work to coordinate how the giant flags are brought onto the field and displayed before each match. The prep takes days.`\
 https://www.nytimes.com/2026/07/12/us/world-cup-giant-flags.html
@@ -142,13 +146,13 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
 
-**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
-`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
-https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
-
 **Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
 `Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
 https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
+
+**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
+`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
+https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
 
 **Today’s Wordle Hints for July 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/world/europe/trump-putin-war-iran-ukraine.htm
 **Sobreviví a un chapuzón en agua helada y conseguí todo lo que siempre había querido**\
 `Me resistí a la moda hasta que ya no pude más.`\
 https://www.nytimes.com/es/2026/07/12/espanol/estilos-de-vida/bano-inmersion-agua-fria.html
-
-**Meet the Milliner Making Hats for the Modern Bride**\
-`Dua Lipa turned heads this spring with a striking wedding topper. Rowell Concepcion has been making them for years.`\
-https://www.nytimes.com/2026/07/12/style/rowell-concepcion-binata-milinery-bridal.html
 

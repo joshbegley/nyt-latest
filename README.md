@@ -1,6 +1,6 @@
 **Fire in Bangkok Pub Kills Dozens**\
 `The cause of the fire was still unknown, but it began as a band was performing onstage and spread very rapidly, killing least 27 people.`\
-https://www.nytimes.com/2026/07/12/world/asia/fire-in-bangkok-pub-kills-dozens.html
+https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
 
 **It Takes Coordination (and Many Arms) to Unfurl a World Cup Flag**\
 `Teams of stagehands work to coordinate how the giant flags are brought onto the field and displayed before each match. The prep takes days.`\
