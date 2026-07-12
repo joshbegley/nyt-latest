@@ -1,3 +1,7 @@
+**In Terrifying Seconds, a Bison Charges Campers at Yellowstone**\
+`A tourist was hospitalized after a visibly agitated bull bison flipped him about eight feet in the air near a campground road.`\
+https://www.nytimes.com/2026/07/12/us/yellowstone-bison-injures-tourist.html
+
 **States Prepare Lawsuit to Block Paramount’s Merger With Warner Bros.**\
 `State attorneys general are said to be getting ready to file a lawsuit as soon as this week to halt the $111 billion deal, a potential major obstacle.`\
 https://www.nytimes.com/2026/07/12/business/state-ag-lawsuit-paramount-warner-bros.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/business/media/michael-movie-lionsgate.html
 **Don’t Try This at Home: How Performers Turn Stunts Into Movie Magic**\
 `At the International Stunt School in Seattle, veterans of TV and film teach newcomers the art of falls, fights and fire.`\
 https://www.nytimes.com/2026/07/12/arts/film-stunts-school-action-movies.html
-
-**Prosecutors Went to Prison to Ask the Prisoners How to Fight Crime**\
-`What might stop kids from committing crimes? A group of district attorneys went to San Quentin, once one of California’s most infamous prisons, to ask the inmates for advice.`\
-https://www.nytimes.com/2026/07/12/us/san-quentin-inmates-prosecutors-crime-prevention.html
 
