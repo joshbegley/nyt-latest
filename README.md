@@ -1,4 +1,4 @@
-**Empty Seats for Messi’s Argentina Put Focus on World Cup Ticket Prices**\
+**At World Cup Ticket Prices, Even Messi Can’t Fill a Stadium**\
 `The Argentine team and its superstar, Lionel Messi, have been among the biggest draws at the World Cup, but that was not enough to prevent vacant seats at its quarterfinal on Saturday.`\
 https://www.nytimes.com/2026/07/12/world/europe/messi-argentina-world-cup-empty-seats.html
 
