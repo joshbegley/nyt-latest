@@ -1,3 +1,7 @@
+**Tributes Pour In for Senator Lindsey Graham**\
+`Mr. Graham’s sudden death on Saturday prompted a wave of tributes for an outsize and often divisive figure in U.S. foreign policy for two decades.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
+
 **Trump’s Corruption Stains, From Texas to Maine**\
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/11/crosswords/daily-puzzle-2026-07-12.html
 **White House Directed Patel to Oversee Investigation Involving Times Reporting**\
 `The F.B.I. director spent about eight hours at the White House Friday focused on the effort, which led to the subpoenaing of several Times reporters who wrote about the security of Air Force One.`\
 https://www.nytimes.com/2026/07/11/us/politics/white-house-patel-investigation-times.html
-
-**At Vigil, Sons of Man Killed by ICE in Houston Call for Accountability**\
-`The sons of Lorenzo Salgado Araujo recalled their father’s love of soccer and said they would “continue to keep fighting for him.”`\
-https://www.nytimes.com/2026/07/11/us/houston-ice-shooting-vigil.html
 
