@@ -190,7 +190,7 @@ https://www.nytimes.com/video/podcasts/100000011024649/mick-jagger-how-sex-is-li
 `Los hospitales están atendiendo casos de niños con quemaduras graves a raíz de una tendencia en las redes sociales que consiste en meter cubos de NeeDoh en el microondas.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/squishy-juguetes-quemaduras.html
 
-**World Cup Updates: Kansas City Takes Center Stage as Global Host**\
+**World Cup Updates: Kansas City Takes Center Stage as Argentina Beats Switzerland**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 

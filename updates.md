@@ -1,3 +1,7 @@
+**World Cup Updates: Kansas City Takes Center Stage as Argentina Beats Switzerland**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **As India Erases Its Colonial Past, Delhi’s Elite Feel Targeted**\
 `India’s government wants to shut down Delhi’s Gymkhana Club, which the prime minister calls a vestige of colonialism. Some members suspect a different motive.`\
 https://www.nytimes.com/2026/07/12/world/asia/india-gymkhana-club-eviction-colonialism.html
