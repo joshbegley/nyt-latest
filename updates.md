@@ -1,3 +1,7 @@
+**Lindsey Graham, Republican Senator and Staunch Trump Ally, Dies From ‘Sudden Illness’**\
+`He died from “a brief and sudden illness” on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
+
 **Tim Scott and Other South Carolina Leaders Mourn Lindsey Graham**\
 `The senator had sometimes struggled to maintain support from his party’s most right-wing voters. But leaders paid tribute to his wit and stalwart support of South Carolina.`\
 https://www.nytimes.com/2026/07/12/us/south-carolina-lindsey-graham-reaction.html
