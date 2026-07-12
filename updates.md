@@ -1,3 +1,7 @@
+**Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
+`A fresh round of attacks by the U.S. on Sunday was the latest volley in a familiar pattern of back-and-forth strikes fueled by disputes over the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
+
 **Sheikh Hamad bin Khalifa, Ruler Who Transformed Qatar, Dies at 74**\
 `Under Sheikh Hamad, the tiny nation of Qatar developed immense natural gas wealth and cultivated influence far beyond its borders.`\
 https://www.nytimes.com/2026/07/12/world/middleeast/sheikh-hamad-bin-khalifa-qatar-dead.html
