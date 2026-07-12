@@ -1,3 +1,7 @@
+**Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
+`The senator’s death triggers an Aug. 11 special Republican primary election, and South Carolina’s governor can appoint a replacement to serve out the remaining term, through early January.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
+
 **What Is an Aortic Dissection?**\
 `The condition that killed Senator Lindsey Graham is deadly, sudden and difficult to treat — “like a knife to the back,” one expert said.`\
 https://www.nytimes.com/2026/07/12/science/lindsey-graham-aortic-dissection.html

@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/07/12/dining/the-summeriest-skillet-pork-chops-cour
 https://www.nytimes.com/2026/07/12/opinion/siblings-big-families.html
 
 **Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
-`The senator’s death triggers an Aug. 11 special Republican primary election, and South Carolina’s governor can appoint a replacement to serve out the remainder of his term, through early January.`\
+`The senator’s death triggers an Aug. 11 special Republican primary election, and South Carolina’s governor can appoint a replacement to serve out the remaining term, through early January.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
 
 **Cold Plunging**\
