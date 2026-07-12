@@ -1,3 +1,7 @@
+**Typhoon Bavi Hits China, Causing Evacuations, Floods and Flight Delays**\
+`Typhoon Bavi made landfall in China after killing 17 in the Philippines, skirting Japan and hitting Taiwan. At its largest, the storm was about the width of France.`\
+https://www.nytimes.com/2026/07/12/world/asia/typhoon-bavi-china.html
+
 **La fiebre por las bananas**\
 `La fruta fresca más consumida de Estados Unidos ha irrumpido con una fuerza inesperada en los menús de las cafeterías. ¿Será el próximo “sabor de temporada”?`\
 https://www.nytimes.com/es/2026/07/12/espanol/platano-banana-salud-recetas.html
