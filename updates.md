@@ -1,3 +1,15 @@
+**En Roswell, los recientes archivos ovni desclasificados decepcionan**\
+`Se suponía que el festival de ovnis de Roswell, celebrado durante el fin de semana del 4 de julio, iba a ser una dulce reivindicación para miles de ufólogos. En cambio, se lamentaron del encubrimiento que temían que nunca acabará.`\
+https://www.nytimes.com/es/2026/07/12/espanol/estados-unidos/roswell-festival-ovni.html
+
+**Joe Hisaishi, la voz musical de Studio Ghibli, retoma su amor por la música clásica**\
+`Hisaishi, cuya obra ayudó a definir la sensibilidad de las películas de Miyazaki, está redirigiendo su carrera hacia conciertos y grabaciones con grandes orquestas.`\
+https://www.nytimes.com/es/2026/07/12/espanol/cultura/joe-hisaishi-musica-ghibli.html
+
+**Cómo los medicamentos GLP-1 alimentan nuestra cultura enferma**\
+`En un entorno que premia la delgadez, recurrir a estos fármacos puede parecer una elección perfectamente lógica.`\
+https://www.nytimes.com/es/2026/07/12/espanol/opinion/medicamentos-glp-1-cultura-delgadez.html
+
 **Typhoon Bavi Hits China, Causing Evacuations, Floods and Flight Delays**\
 `Typhoon Bavi made landfall in China after killing 17 in the Philippines, skirting Japan and hitting Taiwan. At its largest, the storm was about the width of France.`\
 https://www.nytimes.com/2026/07/12/world/asia/typhoon-bavi-china.html
