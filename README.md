@@ -1,3 +1,7 @@
+**Melbourne Symphony Wins Discrimination Case Over Gaza Comments**\
+`The pianist Jayson Gillham had sued the orchestra after it canceled his performance in the wake of comments he made against Israel’s war with Hamas.`\
+https://www.nytimes.com/2026/07/12/arts/music/jayson-gillham-melbourne-symphony-orchestra-gaza.html
+
 **Pop Stars are Confessing Their Secrets**\
 `And so are you.`\
 https://www.nytimes.com/2026/07/12/briefing/pop-stars-are-confessing-their-secrets.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/opinion/serena-williams-returns-tennis-wimble
 **As India Erases Its Colonial Past, Delhi’s Elite Feel Targeted**\
 `India’s government wants to shut down Delhi’s Gymkhana Club, which the prime minister calls a vestige of colonialism. Some members suspect a different motive.`\
 https://www.nytimes.com/2026/07/12/world/asia/india-gymkhana-club-eviction-colonialism.html
-
-**How Putin Turned Japan Into a Den of Spies**\
-`Operating out of a Tokyo high-rise, a military intelligence unit finds the high-tech equipment that Russia needs to wage war.`\
-https://www.nytimes.com/2026/07/12/world/asia/russia-spies-japan-war-drones-electronics.html
 

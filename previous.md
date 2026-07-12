@@ -1,3 +1,7 @@
+**Pop Stars are Confessing Their Secrets**\
+`And so are you.`\
+https://www.nytimes.com/2026/07/12/briefing/pop-stars-are-confessing-their-secrets.html
+
 **At World Cup Ticket Prices, Even Messi Can’t Fill a Stadium**\
 `The Argentine team and its superstar, Lionel Messi, have been among the biggest draws at the World Cup, but that was not enough to prevent vacant seats at its quarterfinal on Saturday.`\
 https://www.nytimes.com/2026/07/12/world/europe/messi-argentina-world-cup-empty-seats.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/world/asia/india-gymkhana-club-eviction-colon
 **How Putin Turned Japan Into a Den of Spies**\
 `Operating out of a Tokyo high-rise, a military intelligence unit finds the high-tech equipment that Russia needs to wage war.`\
 https://www.nytimes.com/2026/07/12/world/asia/russia-spies-japan-war-drones-electronics.html
-
-**No Corrections: July 12, 2026**\
-`No corrections appeared in print on Sunday, July 12, 2026.`\
-https://www.nytimes.com/2026/07/12/pageoneplus/no-corrections-july-12-2026.html
 
