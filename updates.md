@@ -1,4 +1,8 @@
 **States Prepare Lawsuit to Block Paramount’s Merger With Warner Bros.**\
+`State attorneys general are said to be getting ready to file a lawsuit as soon as this week to halt the $111 billion deal, a potential major obstacle.`\
+https://www.nytimes.com/2026/07/12/business/state-ag-lawsuit-paramount-warner-bros.html
+
+**States Prepare Lawsuit to Block Paramount’s Merger With Warner Bros.**\
 `State attorneys general are preparing to file a lawsuit as soon as this week to halt the $111 billion deal, a potential major obstacle.`\
 https://www.nytimes.com/2026/07/12/business/state-ag-lawsuit-paramount-warner-bros.html
 
