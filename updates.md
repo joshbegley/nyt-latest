@@ -1,3 +1,11 @@
+**This Healthy Roasted Fish Al Pastor Is Already Earning Raves**\
+`“This is absolutely delicious! Sweet, citrusy, pungent, smoky. And looks gorgeous too,” writes a reader.`\
+https://www.nytimes.com/2026/07/12/dining/this-healthy-roasted-fish-al-pastor-is-already-earning-raves.html
+
+**Leaders From Home and Abroad Remember Senator Lindsey Graham**\
+`Mr. Graham’s unexpected death on Saturday prompted a wave of tributes for an outsize and often divisive figure in U.S. foreign policy.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
+
 **Zelensky Announces Leadership Shuffle as War Turns in Ukraine’s Favor**\
 `President Volodymyr Zelensky said Ukraine’s prime minister, Yuliia Svyrydenko, would step down amid a broader shake-up in Ukraine’s senior leadership.`\
 https://www.nytimes.com/2026/07/12/world/europe/ukraine-zelensky-leadership.html
