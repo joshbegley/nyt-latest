@@ -1,3 +1,7 @@
+**Hard-Liners in Iran Want to Keep Fighting America**\
+`With much of their leadership killed in the war, Iran’s conservatives have sought to fill the void and intensify the fight against the United States.`\
+https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-liners.html
+
 **Inside Herat, Where a Taliban Campaign Targets a Cosmopolitan Outpost**\
 `Afghanistan’s leader has exerted full control over a city that once enjoyed looser social norms, even under Taliban rule.`\
 https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-protests.html

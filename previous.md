@@ -1,3 +1,7 @@
+**Hard-Liners in Iran Want to Keep Fighting America**\
+`With much of their leadership killed in the war, Iran’s conservatives have sought to fill the void and intensify the fight against the United States.`\
+https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-liners.html
+
 **Inside Herat, Where a Taliban Campaign Targets a Cosmopolitan Outpost**\
 `Afghanistan’s leader has exerted full control over a city that once enjoyed looser social norms, even under Taliban rule.`\
 https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-protests.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/11/us/houston-ice-video-shooting-salgado-araujo.
 **Trump-Appointed Judge Reluctantly Grants Dismissal of Proud Boys Case**\
 `Judge Timothy J. Kelly, a federal judge in Washington, noted that he had little choice but to accept the Trump administration’s move to end the case.`\
 https://www.nytimes.com/2026/07/11/us/politics/judge-proud-boys-sedition-dismissal.html
-
-**Have You Made This Cake Yet?**\
-`This simple strawberry spoon cake is currently our most popular strawberry dessert on New York Times Cooking, and it’s easy to see why.`\
-https://www.nytimes.com/2026/07/11/dining/have-you-made-this-cake-yet.html
 
