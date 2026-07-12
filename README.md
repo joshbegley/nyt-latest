@@ -1,3 +1,39 @@
+**Trump’s Corruption Stains, From Texas to Maine**\
+`Something is wrong if vice is all them and virtue is all you.`\
+https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
+
+**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
+`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
+https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
+
+**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
+`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
+https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
+
+**Today’s Wordle Hints for July 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/12/crosswords/wordle-review-1850.html
+
+**NYT Connections Answers for July 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/12/crosswords/connections-companion-1128.html
+
+**NYT Strands Hints for July 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/12/crosswords/strands-sidekick-862.html
+
+**Seneca’s Solution to the Crisis of Attention**\
+`Devote your attention to one idea a day.`\
+https://www.nytimes.com/2026/07/12/opinion/attention-crisis-seneca.html
+
+**Fitness Influencers Are Not Making Men More Fit**\
+`Manosphere fitness influencers are the wrong model. Health requires looking at life as a whole, not as an exercise in “optimization.”`\
+https://www.nytimes.com/2026/07/12/opinion/fitness-influencer-manosphere-health.html
+
+**Live Updates: Iran Targets Gulf States After Night of Intense U.S. Strikes**\
+`U.S. Central Command said it had hit about 140 targets in Iran overnight after Tehran attacked a ship in the Strait of Hormuz. Iran’s military said it had responded by firing at U.S. targets in Jordan, Oman and Qatar.`\
+https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
+
 **Hard-Liners in Iran Want to Keep Fighting America**\
 `With much of their leadership killed in the war, Iran’s conservatives have sought to fill the void and intensify the fight against the United States.`\
 https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-liners.html
@@ -157,36 +193,4 @@ https://www.nytimes.com/2026/07/11/us/houston-ice-shooting-vigil.html
 **Maine Democrats Will Replace Graham Platner. Here’s What to Know.**\
 `Mr. Platner’s withdrawal from a marquee Senate race, under pressure from his party, has set in motion an unusual competition to become the new nominee.`\
 https://www.nytimes.com/2026/07/11/us/politics/maine-senate-nomination-democrats-convention.html
-
-**Black Hawk Helicopters Rescue Hundreds From Summer Camp During Floods**\
-`The National Guard evacuated campers after flooding in Missouri that reminded some families of the devastating floods at Camp Mystic in central Texas last year.`\
-https://www.nytimes.com/2026/07/11/us/missouri-rescue-summer-camp-flood.html
-
-**La tristeza, la rabia y la loca alegría de la fase eliminatoria del Mundial**\
-`La mejor forma de entender esta fase del torneo es imaginar un túnel de autolavado hecho con ralladores de queso.`\
-https://www.nytimes.com/es/2026/07/11/espanol/mundo/haaland-noruega-brasil-mundial.html
-
-**Jayson Conner, 48, and Jeffrey Newman, 58, Die; Gave Thousands of Backpacks to Those in Need**\
-`The couple, who died within a few days of each other, provided needed supplies, like socks and wet wipes, to people living on New York City’s streets.`\
-https://www.nytimes.com/2026/07/11/nyregion/jeffrey-newman-jayson-connor-dead.html
-
-**Inglaterra y Noruega reavivan su rivalidad de cara al Mundial**\
-`Además de los lazos históricos y diplomáticos, los equipos de fútbol de Inglaterra tienen seguidores fieles en Noruega. Este sábado, los aficionados tendrán que elegir un bando.`\
-https://www.nytimes.com/es/2026/07/11/espanol/mundo/inglaterra-noruega-rivalidad-mundial.html
-
-**Trump’s Posts on Singing Somali Schoolchildren Stir Anger in Minnesota**\
-`The state’s large Muslim and Somali communities expressed indignation after the president reposted a video of a kindergarten promotion ceremony, including comments noting the girls were in hijabs.`\
-https://www.nytimes.com/2026/07/11/us/politics/trump-somali-kindergartners.html
-
-**A California Man Took a Selfie at a Crime Scene. It Led to His Arrest.**\
-`Two men were taken into custody this week after $100,000 in tools, copper and vehicles was taken from a business in the Napa Valley. A selfie that one of them took served as evidence.`\
-https://www.nytimes.com/2026/07/11/us/california-burglary-arrest-selfie.html
-
-**¿Matt Damon parece griego? No. Entonces deja de quejarte de Lupita Nyong’o**\
-`Helena de Troya era una belleza legendaria, pero también mucho más que eso.`\
-https://www.nytimes.com/es/2026/07/11/espanol/opinion/helena-troya-lupita-nyongo.html
-
-**Videos Shed Light on Pursuit Before ICE Killing in Houston**\
-`Surveillance footage obtained by The Times shows ICE agents driving aggressively in unmarked vehicles, but the moment of the fatal shooting of Lorenzo Salgado Araujo remains murky.`\
-https://www.nytimes.com/2026/07/11/us/houston-ice-video-shooting-salgado-araujo.html
 
