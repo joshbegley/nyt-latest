@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/07/11/world/middleeast/strait-hormuz-shipping-oil-p
 https://www.nytimes.com/2026/07/11/world/canada/toronto-shooting-salsa-festival-canada.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
-`Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
+`Iran said it was responding to the attack with strikes on U.S. assets in the Middle East. The defense ministries of the United Arab Emirates and Qatar both said they were intercepting strikes.`\
 https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
 
 **Slight Adjustments**\

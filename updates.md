@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
+`Iran said it was responding to the attack with strikes on U.S. assets in the Middle East. The defense ministries of the United Arab Emirates and Qatar both said they were intercepting strikes.`\
+https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
+
 **Oil Prices Set for More Volatility After Latest Iranian Attack in Strait of Hormuz**\
 `Crude oil prices jumped above prewar levels this week, demonstrating Iran’s capacity to move energy prices by projecting power in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/strait-hormuz-shipping-oil-prices.html
