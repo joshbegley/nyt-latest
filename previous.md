@@ -1,3 +1,7 @@
+**Inside Herat, Where a Taliban Campaign Targets a Cosmopolitan Outpost**\
+`Afghanistan’s leader has exerted full control over a city that once enjoyed looser social norms, even under Taliban rule.`\
+https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-protests.html
+
 **Trump Sought an Iran War Exit. Putin Pushed On in Ukraine. Now Both Are Stuck.**\
 `The Iran and Ukraine wars underline the common limits of military force in achieving political ends, but also the differences between a dug-in Russian president and a vacillating American one.`\
 https://www.nytimes.com/2026/07/12/world/europe/trump-putin-war-iran-ukraine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/11/us/politics/judge-proud-boys-sedition-dismiss
 **Have You Made This Cake Yet?**\
 `This simple strawberry spoon cake is currently our most popular strawberry dessert on New York Times Cooking, and it’s easy to see why.`\
 https://www.nytimes.com/2026/07/11/dining/have-you-made-this-cake-yet.html
-
-**A Wildfire Killed 12 People in Southern Spain. Here’s the Latest.**\
-`Officials said more than 20 people were still missing because of the fire, one of the deadliest in Spain’s history. Most of those confirmed to have been killed were from Belgium or Britain.`\
-https://www.nytimes.com/2026/07/11/world/europe/spain-wildfire-kills-12-what-to-know.html
 

@@ -1,3 +1,7 @@
+**Inside Herat, Where a Taliban Campaign Targets a Cosmopolitan Outpost**\
+`Afghanistan’s leader has exerted full control over a city that once enjoyed looser social norms, even under Taliban rule.`\
+https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-protests.html
+
 **Trump Sought an Iran War Exit. Putin Pushed On in Ukraine. Now Both Are Stuck.**\
 `The Iran and Ukraine wars underline the common limits of military force in achieving political ends, but also the differences between a dug-in Russian president and a vacillating American one.`\
 https://www.nytimes.com/2026/07/12/world/europe/trump-putin-war-iran-ukraine.html
