@@ -1,8 +1,12 @@
+**Lindsey Graham Championed Israel, Even as Wars Eroded American Support**\
+`The Republican senator from South Carolina had an intense interest in the Middle East, and was a staunch supporter of U.S. strikes on Iran.`\
+https://www.nytimes.com/2026/07/12/world/middleeast/lindsey-graham-iran-israel-gaza-war.html
+
 **How Trump Failed to Secure the Strait of Hormuz in His Iran Deal**\
 `President Trump signed an agreement that Iran said gave it control of the waterway — and global energy supplies. Now, Iran’s military is violently asserting authority.`\
 https://www.nytimes.com/2026/07/12/us/politics/trump-strait-of-hormuz-iran-deal.html
 
-**Trump Mourns Graham as ‘Great Politician’ and ‘Member of the Family’**\
+**Trump Recalls Last Conversation With Lindsey Graham Before His Death**\
 `In an interview on Sunday, President Trump recounted his last conversation with Senator Lindsey Graham, hours before his death. Mr. Graham sounded “perfect,” he said.`\
 https://www.nytimes.com/2026/07/12/us/politics/donald-trump-lindsey-graham-death-interview.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/nyregion/dsa-upstate-new-york.html
 **Tracee Ellis Ross Is Back in New York City, Living a Dream Come True**\
 `The actress and entrepreneur got an apartment in the city for the summer while she makes her Broadway debut in “Every Brilliant Thing.”`\
 https://www.nytimes.com/2026/07/12/nyregion/tracee-ellis-ross-broadway-every-brilliant-thing.html
-
-**‘I Lifted One Arm, Palmed the Ball and Shot It Straight Back’**\
-`More Metropolitan Diary friends, including the astrophysicist Neil deGrasse Tyson and the actress Rebecca Wisocky, share their New York stories to help mark the column’s 50th anniversary.`\
-https://www.nytimes.com/2026/07/12/nyregion/metropolitan-diary.html
 

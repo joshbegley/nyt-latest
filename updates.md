@@ -1,3 +1,11 @@
+**Lindsey Graham Championed Israel, Even as Wars Eroded American Support**\
+`The Republican senator from South Carolina had an intense interest in the Middle East, and was a staunch supporter of U.S. strikes on Iran.`\
+https://www.nytimes.com/2026/07/12/world/middleeast/lindsey-graham-iran-israel-gaza-war.html
+
+**Trump Recalls Last Conversation With Lindsey Graham Before His Death**\
+`In an interview on Sunday, President Trump recounted his last conversation with Senator Lindsey Graham, hours before his death. Mr. Graham sounded “perfect,” he said.`\
+https://www.nytimes.com/2026/07/12/us/politics/donald-trump-lindsey-graham-death-interview.html
+
 **How Trump Failed to Secure the Strait of Hormuz in His Iran Deal**\
 `President Trump signed an agreement that Iran said gave it control of the waterway — and global energy supplies. Now, Iran’s military is violently asserting authority.`\
 https://www.nytimes.com/2026/07/12/us/politics/trump-strait-of-hormuz-iran-deal.html
