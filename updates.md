@@ -1,3 +1,27 @@
+**La fiebre por las bananas**\
+`La fruta fresca más consumida de Estados Unidos ha irrumpido con una fuerza inesperada en los menús de las cafeterías. ¿Será el próximo “sabor de temporada”?`\
+https://www.nytimes.com/es/2026/07/12/espanol/platano-banana-salud-recetas.html
+
+**Younger Voters Are Propelling the Democratic Socialist Surge in New York**\
+`Age seemed to be the predominant factor in the Democratic Socialists of America’s primary wins in House races in New York City.`\
+https://www.nytimes.com/2026/07/12/nyregion/dsa-young-voters-primary-ny.html
+
+**The Democratic Socialists Winning Elections Far From New York City**\
+`They won Democratic state legislative primaries in Buffalo and Syracuse, showing how the party’s messaging and ground game can work outside New York City.`\
+https://www.nytimes.com/2026/07/12/nyregion/dsa-upstate-new-york.html
+
+**Tracee Ellis Ross Is Back in New York City, Living a Dream Come True**\
+`The actress and entrepreneur got an apartment in the city for the summer while she makes her Broadway debut in “Every Brilliant Thing.”`\
+https://www.nytimes.com/2026/07/12/nyregion/tracee-ellis-ross-broadway-every-brilliant-thing.html
+
+**‘I Lifted One Arm, Palmed the Ball and Shot It Straight Back’**\
+`More Metropolitan Diary friends, including the astrophysicist Neil deGrasse Tyson and the actress Rebecca Wisocky, share their New York stories to help mark the column’s 50th anniversary.`\
+https://www.nytimes.com/2026/07/12/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answer July 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/12/crosswords/spelling-bee-forum.html
+
 **Senator Lindsey Graham, Republican of South Carolina, Dies at 71**\
 `Mr. Graham died of a “brief and sudden” illness on Saturday evening, his office said. He served in the Senate for more than two decades.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html

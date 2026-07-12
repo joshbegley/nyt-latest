@@ -1,3 +1,27 @@
+**La fiebre por las bananas**\
+`La fruta fresca más consumida de Estados Unidos ha irrumpido con una fuerza inesperada en los menús de las cafeterías. ¿Será el próximo “sabor de temporada”?`\
+https://www.nytimes.com/es/2026/07/12/espanol/platano-banana-salud-recetas.html
+
+**Younger Voters Are Propelling the Democratic Socialist Surge in New York**\
+`Age seemed to be the predominant factor in the Democratic Socialists of America’s primary wins in House races in New York City.`\
+https://www.nytimes.com/2026/07/12/nyregion/dsa-young-voters-primary-ny.html
+
+**The Democratic Socialists Winning Elections Far From New York City**\
+`They won Democratic state legislative primaries in Buffalo and Syracuse, showing how the party’s messaging and ground game can work outside New York City.`\
+https://www.nytimes.com/2026/07/12/nyregion/dsa-upstate-new-york.html
+
+**Tracee Ellis Ross Is Back in New York City, Living a Dream Come True**\
+`The actress and entrepreneur got an apartment in the city for the summer while she makes her Broadway debut in “Every Brilliant Thing.”`\
+https://www.nytimes.com/2026/07/12/nyregion/tracee-ellis-ross-broadway-every-brilliant-thing.html
+
+**‘I Lifted One Arm, Palmed the Ball and Shot It Straight Back’**\
+`More Metropolitan Diary friends, including the astrophysicist Neil deGrasse Tyson and the actress Rebecca Wisocky, share their New York stories to help mark the column’s 50th anniversary.`\
+https://www.nytimes.com/2026/07/12/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answer July 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/12/crosswords/spelling-bee-forum.html
+
 **Senator Lindsey Graham, Republican of South Carolina, Dies at 71**\
 `Mr. Graham died of a “brief and sudden” illness on Saturday evening, his office said. He served in the Senate for more than two decades.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/07/11/magazine/family-drug-addiction-ethics.html
 **NYT Connections Answers for July 12, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
 https://www.nytimes.com/2026/07/11/crosswords/connections-companion-1127.html
-
-**Today’s Wordle Hints for July 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
-https://www.nytimes.com/2026/07/11/crosswords/wordle-review-1849.html
-
-**Inside the Canadian Lab Burning Down Buildings to Save Them**\
-`At the national fire safety facility in Ottawa, scientists and engineers are increasingly focused on the threat from the forest.`\
-https://www.nytimes.com/2026/07/11/world/canada/wildfires-prevention-testing-canada.html
-
-**NYT Strands Hints for July 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
-https://www.nytimes.com/2026/07/11/crosswords/strands-sidekick-861.html
-
-**Mick Jagger Knows He May Have Played His Last Rolling Stones Show**\
-`The legendary rock star, now 82, on how fame, touring and aging have changed him.`\
-https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html
-
-**Marco Rubio gestiona a Venezuela desde Washington**\
-`El secretario de Estado de EE. UU. controla de facto las finanzas de Venezuela, la distribución de sus recursos naturales y su gobierno. Su control es una clara muestra del poder estadounidense en la era Trump.`\
-https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/venezuela-rodriguez-rubio-trump.html
-
-**World Cup Updates: Kansas City Takes Center Stage as Argentina Beats Switzerland**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
