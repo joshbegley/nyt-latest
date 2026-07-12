@@ -1,3 +1,19 @@
+**As India Erases Its Colonial Past, Delhi’s Elite Feel Targeted**\
+`India’s government wants to shut down Delhi’s Gymkhana Club, which the prime minister calls a vestige of colonialism. Some members suspect a different motive.`\
+https://www.nytimes.com/2026/07/12/world/asia/india-gymkhana-club-eviction-colonialism.html
+
+**How Putin Turned Japan Into a Den of Spies**\
+`Operating out of a Tokyo high-rise, a military intelligence unit finds the high-tech equipment that Russia needs to wage war.`\
+https://www.nytimes.com/2026/07/12/world/asia/russia-spies-japan-war-drones-electronics.html
+
+**No Corrections: July 12, 2026**\
+`No corrections appeared in print on Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/12/pageoneplus/no-corrections-july-12-2026.html
+
+**Quote of the Day: Couples Comedy Needed Therapy**\
+`Quotation of the Day for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/12/pageoneplus/quote-of-the-day-couples-comedy-needed-therapy.html
+
 **Oil Prices Set for More Volatility After Latest Iranian Attack in Strait of Hormuz**\
 `Crude oil prices jumped above prewar levels this week, demonstrating Iran’s capacity to move energy prices by projecting power in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/strait-hormuz-shipping-oil-prices.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/video/podcasts/100000011024649/mick-jagger-how-sex-is-li
 **Una moda peligrosa: meter en el microondas un juguete popular**\
 `Los hospitales están atendiendo casos de niños con quemaduras graves a raíz de una tendencia en las redes sociales que consiste en meter cubos de NeeDoh en el microondas.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/squishy-juguetes-quemaduras.html
-
-**Mick Jagger: How Fame Damages Your State of Mind**\
-`How do decades in the limelight change a person? Mick Jagger, the Rolling Stones frontman, talked about his experience on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011024540/mick-jagger-how-fame-damages-your-state-of-mind.html
-
-**Lo que descubrimos cuando él se fue**\
-`Jeff era mi pareja y amigo de Billy. ¿Era también Cupido?`\
-https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/muerte-duelo-amigo.html
-
-**England and Norway Resurrect a Rivalry for the World Cup**\
-`Along with historic and diplomatic ties, England’s club soccer teams have loyal fans in Norway. On Saturday, supporters will have to pick a side.`\
-https://www.nytimes.com/2026/07/11/world/europe/england-norway-world-cup.html
-
-**The University Where Kirk Died Ponders How to Remember His Killing**\
-`Utah Valley University doesn’t want to be known as the place where Charlie Kirk was assassinated, and even a discussion of memorializing that day has provoked division.`\
-https://www.nytimes.com/2026/07/11/us/utah-valley-university-charlie-kirk-assassination.html
 
 **World Cup Updates: Kansas City Takes Center Stage as Global Host**\
 `(No description)`\
