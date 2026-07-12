@@ -1,3 +1,7 @@
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/12/us/quake-tracker-southern-california.html
+
 **Residents of Spanish Towns Caught in Fierce Blazes Recount Harrowing Escapes**\
 `Many say communication was chaotic and even nonexistent as flames tore through the area, taking 12 lives in one of the deadliest wildfires on record in Spain.`\
 https://www.nytimes.com/2026/07/12/world/europe/spain-wildfire-almeria-province.html
