@@ -1,3 +1,19 @@
+**As India Erases Its Colonial Past, Delhi’s Elite Feel Targeted**\
+`India’s government wants to shut down Delhi’s Gymkhana Club, which the prime minister calls a vestige of colonialism. Some members suspect a different motive.`\
+https://www.nytimes.com/2026/07/12/world/asia/india-gymkhana-club-eviction-colonialism.html
+
+**How Putin Turned Japan Into a Den of Spies**\
+`Operating out of a Tokyo high-rise, a military intelligence unit finds the high-tech equipment that Russia needs to wage war.`\
+https://www.nytimes.com/2026/07/12/world/asia/russia-spies-japan-war-drones-electronics.html
+
+**No Corrections: July 12, 2026**\
+`No corrections appeared in print on Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/12/pageoneplus/no-corrections-july-12-2026.html
+
+**Quote of the Day: Couples Comedy Needed Therapy**\
+`Quotation of the Day for Sunday, July 12, 2026.`\
+https://www.nytimes.com/2026/07/12/pageoneplus/quote-of-the-day-couples-comedy-needed-therapy.html
+
 **Iran War Live Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
 `Iran said it was responding to the attack with strikes on U.S. assets in the Middle East. The defense ministries of the United Arab Emirates and Qatar both said they were intercepting strikes.`\
 https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
