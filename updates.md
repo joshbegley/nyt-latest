@@ -1,3 +1,11 @@
+**Young Campers Describe Helicopter Rescue From Missouri Floodwaters**\
+`Roughly 200 campers and counselors were evacuated from Camp Taum Sauk in Black Hawk helicopters on Friday after southeastern Missouri experienced a foot of rainfall.`\
+https://www.nytimes.com/video/us/100000011025747/campers-evacuated-missouri-floodwaters.html
+
+**Senator Lindsey Graham of South Carolina Dead at 71**\
+`Senator Lindsey Graham, a South Carolina Republican and staunch ally of President Trump, died from “a brief and sudden illness” on Saturday, his office said in a statement.`\
+https://www.nytimes.com/video/us/politics/100000011026304/lindsey-graham-us-senate-obituary.html
+
 **Michael Cohen Helped Convict Trump. Now, He’s Making Nice Again.**\
 `A previously unreported encounter last summer set the stage for a rapprochement between the president and his former fixer, who has so far avoided the diatribes and prosecutions that President Trump has directed at other critics.`\
 https://www.nytimes.com/2026/07/12/us/politics/trump-cohen-meeting-show.html
