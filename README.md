@@ -1,3 +1,7 @@
+**This Healthy Roasted Fish Al Pastor Is Already Earning Raves**\
+`“This is absolutely delicious! Sweet, citrusy, pungent, smoky. And looks gorgeous too,” writes a reader.`\
+https://www.nytimes.com/2026/07/12/dining/this-healthy-roasted-fish-al-pastor-is-already-earning-raves.html
+
 **Zelensky Announces Leadership Shuffle as War Turns in Ukraine’s Favor**\
 `President Volodymyr Zelensky said Ukraine’s prime minister, Yuliia Svyrydenko, would step down amid a broader shake-up in Ukraine’s senior leadership.`\
 https://www.nytimes.com/2026/07/12/world/europe/ukraine-zelensky-leadership.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
 **Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\
 `Aunque el microbioma humano desempeña un papel fundamental en nuestra salud, sigue siendo un territorio poco conocido. Dos investigadores buscan revelar sus secretos.`\
 https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-intestinal-salud.html
-
-**The World Is Cutting Ties With America. It’s Already Costing Us.**\
-`When other countries cut ties, Americans pay.`\
-https://www.nytimes.com/2026/07/12/opinion/america-trump-nato-europe-world.html
 
