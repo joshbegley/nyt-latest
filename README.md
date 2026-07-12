@@ -1,3 +1,7 @@
+**Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
+`South Carolina law suggests his death triggers an Aug. 11 special Republican primary election, and the state’s governor can appoint a replacement to serve out the rest of his term, through early January.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
+
 **Cold Plunging**\
 `A writer reflects on the healing powers of trying new things.`\
 https://www.nytimes.com/2026/07/12/briefing/cold-plunging.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/11/world/middleeast/strait-hormuz-shipping-oil-p
 **Toronto Police Search For Active Shooter After 2 Killed at Street Festival**\
 `The shooting disrupted a weekend Latino celebration where hundreds had gathered on Saturday evening.`\
 https://www.nytimes.com/2026/07/11/world/canada/toronto-shooting-salsa-festival-canada.html
-
-**Iran War Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
-`Iran said it was responding to the attack with strikes on U.S. assets in the Middle East. The defense ministries of the United Arab Emirates and Qatar both said they were intercepting strikes.`\
-https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
 
