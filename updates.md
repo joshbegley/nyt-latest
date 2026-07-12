@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 13, 2026**\
+`Lynn Lempel makes a scene.`\
+https://www.nytimes.com/2026/07/12/crosswords/daily-puzzle-2026-07-13.html
+
 **With Lindsey Graham Gone, Ukraine Loses an Ally in Trump’s Ear**\
 `The South Carolina Republican was Ukraine’s most influential champion inside President Trump’s mostly ”America First” political orbit.`\
 https://www.nytimes.com/2026/07/12/us/lindsey-graham-ukraine.html
