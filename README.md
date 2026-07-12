@@ -1,3 +1,7 @@
+**Sheikh Hamad bin Khalifa, Ruler Who Transformed Qatar, Dies at 74**\
+`Under Sheikh Hamad, the tiny nation of Qatar developed immense natural gas wealth and cultivated influence far beyond its borders.`\
+https://www.nytimes.com/2026/07/12/world/middleeast/sheikh-hamad-bin-khalifa-qatar-dead.html
+
 **Why Dior’s Jonathan Anderson Is Inspired by Lynda Benglis**\
 `Lynda Benglis redefined sculpture in the 1960s. No longer overlooked, her audacious talent moves from museums to runways, transformed by Dior’s Jonathan Anderson.`\
 https://www.nytimes.com/2026/07/12/arts/design/lynda-benglis-dior-jonathan-anderson-art.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/world/asia/typhoon-bavi-china.html
 **La fiebre por las bananas**\
 `La fruta fresca más consumida de Estados Unidos ha irrumpido con una fuerza inesperada en los menús de las cafeterías. ¿Será el próximo “sabor de temporada”?`\
 https://www.nytimes.com/es/2026/07/12/espanol/platano-banana-salud-recetas.html
-
-**Younger Voters Are Propelling the Democratic Socialist Surge in New York**\
-`Age seemed to be the predominant factor in the Democratic Socialists of America’s primary wins in House races in New York City.`\
-https://www.nytimes.com/2026/07/12/nyregion/dsa-young-voters-primary-ny.html
 
