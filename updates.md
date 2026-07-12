@@ -1,3 +1,11 @@
+**Venezuela’s Post-Quake Politics**\
+`People are openly and forcefully voicing their anger at the government for the first time in years.`\
+https://www.nytimes.com/2026/07/12/world/venezuela-earthquake-iran.html
+
+**Mick Jagger sabe que puede que haya dado su última gira con los Rolling Stones**\
+`La legendaria estrella del rock, que ahora tiene 82 años, habla de cómo la fama, las giras y el paso del tiempo lo han cambiado.`\
+https://www.nytimes.com/es/2026/07/12/espanol/cultura/mick-jagger-rolling-stones-nuevo-album.html
+
 **In Terrifying Seconds, a Bison Charges Campers at Yellowstone**\
 `A tourist was hospitalized after a visibly agitated bull bison flipped him about eight feet in the air near a campground road.`\
 https://www.nytimes.com/2026/07/12/us/yellowstone-bison-injures-tourist.html

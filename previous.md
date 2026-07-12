@@ -1,3 +1,11 @@
+**Venezuela’s Post-Quake Politics**\
+`People are openly and forcefully voicing their anger at the government for the first time in years.`\
+https://www.nytimes.com/2026/07/12/world/venezuela-earthquake-iran.html
+
+**Mick Jagger sabe que puede que haya dado su última gira con los Rolling Stones**\
+`La legendaria estrella del rock, que ahora tiene 82 años, habla de cómo la fama, las giras y el paso del tiempo lo han cambiado.`\
+https://www.nytimes.com/es/2026/07/12/espanol/cultura/mick-jagger-rolling-stones-nuevo-album.html
+
 **In Terrifying Seconds, a Bison Charges Campers at Yellowstone**\
 `A tourist was hospitalized after a visibly agitated bull bison flipped him about eight feet in the air near a campground road.`\
 https://www.nytimes.com/2026/07/12/us/yellowstone-bison-injures-tourist.html
@@ -110,13 +118,13 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
 
-**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
-`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
-https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
-
 **The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
 `A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
 https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
+
+**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
+`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
+https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
 
 **Today’s Wordle Hints for July 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/12/books/review/every-inch-a-lady-audrey-smaltz.
 **How a Gang of Thieves Pulled Off a Multimillion-Dollar Data Center Heist**\
 `The world’s most valuable assets are stored on rows of servers in giant, anonymous buildings. And they can be stolen.`\
 https://www.nytimes.com/2026/07/12/magazine/data-center-heist.html
-
-**‘Michael’ Crosses $1 Billion at the Box Office as Lionsgate Roars Back**\
-`Shunned by bigger studios as too risky, “Michael” and other hits have revived Hollywood’s last major independent studio. But is it enough?`\
-https://www.nytimes.com/2026/07/12/business/media/michael-movie-lionsgate.html
-
-**Don’t Try This at Home: How Performers Turn Stunts Into Movie Magic**\
-`At the International Stunt School in Seattle, veterans of TV and film teach newcomers the art of falls, fights and fire.`\
-https://www.nytimes.com/2026/07/12/arts/film-stunts-school-action-movies.html
 
