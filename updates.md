@@ -1,3 +1,7 @@
+**Melbourne Symphony Wins Discrimination Case Over Gaza Comments**\
+`The pianist Jayson Gillham had sued the orchestra after it canceled his performance in the wake of comments he made against Israel’s war with Hamas.`\
+https://www.nytimes.com/2026/07/12/arts/music/jayson-gillham-melbourne-symphony-orchestra-gaza.html
+
 **Pop Stars are Confessing Their Secrets**\
 `And so are you.`\
 https://www.nytimes.com/2026/07/12/briefing/pop-stars-are-confessing-their-secrets.html

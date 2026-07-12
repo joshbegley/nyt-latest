@@ -1,3 +1,7 @@
+**Tim Scott and Other South Carolina Leaders Mourn Lindsey Graham**\
+`The senator had sometimes struggled to maintain support from his party’s most right-wing voters. But leaders paid tribute to his wit and stalwart support of South Carolina.`\
+https://www.nytimes.com/2026/07/12/us/south-carolina-lindsey-graham-reaction.html
+
 **Melbourne Symphony Wins Discrimination Case Over Gaza Comments**\
 `The pianist Jayson Gillham had sued the orchestra after it canceled his performance in the wake of comments he made against Israel’s war with Hamas.`\
 https://www.nytimes.com/2026/07/12/arts/music/jayson-gillham-melbourne-symphony-orchestra-gaza.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/opinion/america-trump-nato-europe-world.html
 **Serena Williams Is Back. Thank Goodness.**\
 `Until Serena Williams announced her return to tennis at 44, I never realized how much I needed her.`\
 https://www.nytimes.com/2026/07/12/opinion/serena-williams-returns-tennis-wimbledon.html
-
-**As India Erases Its Colonial Past, Delhi’s Elite Feel Targeted**\
-`India’s government wants to shut down Delhi’s Gymkhana Club, which the prime minister calls a vestige of colonialism. Some members suspect a different motive.`\
-https://www.nytimes.com/2026/07/12/world/asia/india-gymkhana-club-eviction-colonialism.html
 
