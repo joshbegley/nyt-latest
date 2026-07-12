@@ -1,3 +1,7 @@
+**Graham’s Death Highlights Congress’s Age Issue**\
+`By the standards of the aging Senate, where the average age is more than 65, the South Carolina Republican wasn’t particularly old.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-aging-congress.html
+
 **Sheikh Hamad bin Khalifa, Ruler Who Transformed Qatar, Dies at 74**\
 `Under Sheikh Hamad, the tiny nation of Qatar developed immense natural gas wealth and cultivated influence far beyond its borders.`\
 https://www.nytimes.com/2026/07/12/world/middleeast/sheikh-hamad-bin-khalifa-qatar-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/12/espanol/opinion/medicamentos-glp-1-cultura
 **Typhoon Bavi Hits China, Causing Evacuations, Floods and Flight Delays**\
 `Typhoon Bavi made landfall in China after killing 17 in the Philippines, skirting Japan and hitting Taiwan. At its largest, the storm was about the width of France.`\
 https://www.nytimes.com/2026/07/12/world/asia/typhoon-bavi-china.html
-
-**La fiebre por las bananas**\
-`La fruta fresca más consumida de Estados Unidos ha irrumpido con una fuerza inesperada en los menús de las cafeterías. ¿Será el próximo “sabor de temporada”?`\
-https://www.nytimes.com/es/2026/07/12/espanol/platano-banana-salud-recetas.html
 

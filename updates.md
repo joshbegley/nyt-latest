@@ -1,3 +1,7 @@
+**Graham’s Death Highlights Congress’s Age Issue**\
+`By the standards of the aging Senate, where the average age is more than 65, the South Carolina Republican wasn’t particularly old.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-aging-congress.html
+
 **Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
 `A fresh round of attacks by the U.S. on Sunday was the latest volley in a familiar pattern of back-and-forth strikes fueled by disputes over the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
