@@ -1,3 +1,7 @@
+**Oil Prices Set for More Volatility After Latest Iranian Attack in Strait of Hormuz**\
+`Crude oil prices jumped above prewar levels this week, demonstrating Iran’s capacity to move energy prices by projecting power in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/strait-hormuz-shipping-oil-prices.html
+
 **Toronto Police Search For Active Shooter After 2 Killed at Street Festival**\
 `The shooting disrupted a weekend Latino celebration where hundreds had gathered on Saturday evening.`\
 https://www.nytimes.com/2026/07/11/world/canada/toronto-shooting-salsa-festival-canada.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/11/world/europe/england-norway-world-cup.html
 **The University Where Kirk Died Ponders How to Remember His Killing**\
 `Utah Valley University doesn’t want to be known as the place where Charlie Kirk was assassinated, and even a discussion of memorializing that day has provoked division.`\
 https://www.nytimes.com/2026/07/11/us/utah-valley-university-charlie-kirk-assassination.html
-
-**Corrections: July 11, 2026**\
-`Corrections that appeared in print on Saturday, July 11, 2026.`\
-https://www.nytimes.com/2026/07/11/pageoneplus/corrections-july-11-2026.html
 
 **World Cup Updates: Kansas City Takes Center Stage as Global Host**\
 `(No description)`\
