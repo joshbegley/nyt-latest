@@ -42,8 +42,8 @@ https://www.nytimes.com/interactive/2026/07/12/us/quake-tracker-southern-califor
 `A 28-year-old man was detained on Saturday in connection with the death of Ann Widdecombe, a former Parliament member, the police said. Another man arrested on Friday was later released.`\
 https://www.nytimes.com/2026/07/12/world/europe/ann-widdecombe-arrest-uk.html
 
-**World Leaders Remember Senator Lindsey Graham**\
-`Mr. Graham’s sudden death on Saturday prompted a wave of tributes for an outsize and often divisive figure in U.S. foreign policy for two decades.`\
+**Leaders From Home and Abroad Remember Senator Lindsey Graham**\
+`Mr. Graham’s unexpected death on Saturday prompted a wave of tributes for an outsize and often divisive figure in U.S. foreign policy.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 
 **Trump’s Corruption Stains, From Texas to Maine**\

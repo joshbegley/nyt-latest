@@ -1,3 +1,7 @@
+**Zelensky Announces Leadership Shuffle as War Turns in Ukraine’s Favor**\
+`President Volodymyr Zelensky said Ukraine’s prime minister, Yuliia Svyrydenko, would step down amid a broader shake-up in Ukraine’s senior leadership.`\
+https://www.nytimes.com/2026/07/12/world/europe/ukraine-zelensky-leadership.html
+
 **Tim Scott and Other South Carolina Leaders Mourn Lindsey Graham**\
 `The senator had sometimes struggled to maintain support from his party’s most right-wing voters. But leaders paid tribute to his wit and stalwart support of South Carolina.`\
 https://www.nytimes.com/2026/07/12/us/south-carolina-lindsey-graham-reaction.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-in
 **The World Is Cutting Ties With America. It’s Already Costing Us.**\
 `When other countries cut ties, Americans pay.`\
 https://www.nytimes.com/2026/07/12/opinion/america-trump-nato-europe-world.html
-
-**Serena Williams Is Back. Thank Goodness.**\
-`Until Serena Williams announced her return to tennis at 44, I never realized how much I needed her.`\
-https://www.nytimes.com/2026/07/12/opinion/serena-williams-returns-tennis-wimbledon.html
 

@@ -1,3 +1,7 @@
+**Zelensky Announces Leadership Shuffle as War Turns in Ukraine’s Favor**\
+`President Volodymyr Zelensky said Ukraine’s prime minister, Yuliia Svyrydenko, would step down amid a broader shake-up in Ukraine’s senior leadership.`\
+https://www.nytimes.com/2026/07/12/world/europe/ukraine-zelensky-leadership.html
+
 **Lindsey Graham, Republican Senator and Trump Ally, Dies From ‘Sudden Illness’**\
 `He died from “a brief and sudden illness” on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
