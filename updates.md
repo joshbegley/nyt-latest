@@ -1,3 +1,7 @@
+**Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
+`South Carolina law suggests his death triggers an Aug. 11 special Republican primary election, and the state’s governor can appoint a replacement to serve out the rest of his term, through early January.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
+
 **World Leaders Remember Senator Lindsey Graham**\
 `Mr. Graham’s sudden death on Saturday prompted a wave of tributes for an outsize and often divisive figure in U.S. foreign policy for two decades.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
