@@ -1,3 +1,7 @@
+**‘Moana’ Falters at the Box Office, Casting Doubt on Disney’s Formula**\
+`The live-action remake took in roughly $43 million over the weekend in North America, about 30 percent less than Disney had expected.`\
+https://www.nytimes.com/2026/07/12/business/media/moana-box-office-disney.html
+
 **Lindsey Graham Championed Israel, Even as Wars Eroded American Support**\
 `The Republican senator from South Carolina had an intense interest in the Middle East, and was a staunch supporter of U.S. strikes on Iran.`\
 https://www.nytimes.com/2026/07/12/world/middleeast/lindsey-graham-iran-israel-gaza-war.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/nyregion/dsa-young-voters-primary-ny.html
 **The Democratic Socialists Winning Elections Far From New York City**\
 `They won Democratic state legislative primaries in Buffalo and Syracuse, showing how the party’s messaging and ground game can work outside New York City.`\
 https://www.nytimes.com/2026/07/12/nyregion/dsa-upstate-new-york.html
-
-**Tracee Ellis Ross Is Back in New York City, Living a Dream Come True**\
-`The actress and entrepreneur got an apartment in the city for the summer while she makes her Broadway debut in “Every Brilliant Thing.”`\
-https://www.nytimes.com/2026/07/12/nyregion/tracee-ellis-ross-broadway-every-brilliant-thing.html
 
