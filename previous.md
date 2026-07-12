@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
+`Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
+https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
+
 **Slight Adjustments**\
 `Collin Drown’s debut Times puzzle doesn’t mince words.`\
 https://www.nytimes.com/2026/07/11/crosswords/daily-puzzle-2026-07-12.html
@@ -106,7 +110,7 @@ https://www.nytimes.com/2026/07/11/opinion/social-security.html
 `What America’s embarrassments have in common.`\
 https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
 
-**Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman for Talks**\
+**U.S. Strikes Iran After Iran Fires on Ship in Strait of Hormuz**\
 `Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/11/us/politics/trump-money-crypto-financial-gain
 **Inside the Nantucket Home of Best-Selling Author Elin Hilderbrand**\
 `Inside the home where the best-selling author has written many of her books — and is secretly working on a new novel.`\
 https://www.nytimes.com/interactive/2026/07/11/realestate/elin-hilderbrand-house-tour-nantucket.html
-
-**Beyoncé, the Rolling Stones: Songs to Know This Week**\
-`Beyoncé gets amorous, the Rolling Stones stay loud and the Linda Lindas team up with Hayley Williams.`\
-https://www.nytimes.com/2026/07/11/arts/music/beyonce-rolling-stones-songs.html
 
 **World Cup Updates: Kansas City Takes Center Stage as Global Host**\
 `(No description)`\

@@ -1,3 +1,11 @@
+**Iran War Live Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
+`Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
+https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
+
+**U.S. Strikes Iran After Iran Fires on Ship in Strait of Hormuz**\
+`Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
+
 **Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman for Talks**\
 `Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
