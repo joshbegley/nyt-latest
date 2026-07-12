@@ -1,3 +1,7 @@
+**Michael Cohen Helped Convict Trump. Now, He’s Making Nice Again.**\
+`A previously unreported encounter last summer set the stage for a rapprochement between the president and his former fixer, who has so far avoided the diatribes and prosecutions that President Trump has directed at other critics.`\
+https://www.nytimes.com/2026/07/12/us/politics/trump-cohen-meeting-show.html
+
 **Graham’s Death Highlights Congress’s Age Issue**\
 `By the standards of the aging Senate, where the average age is more than 65, the South Carolina Republican wasn’t particularly old.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-aging-congress.html

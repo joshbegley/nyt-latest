@@ -1,3 +1,7 @@
+**Michael Cohen Helped Convict Trump. Now, He’s Making Nice Again.**\
+`A previously unreported encounter last summer set the stage for a rapprochement between the president and his former fixer, who has so far avoided the diatribes and prosecutions that President Trump has directed at other critics.`\
+https://www.nytimes.com/2026/07/12/us/politics/trump-cohen-meeting-show.html
+
 **Graham’s Death Highlights Congress’s Age Issue**\
 `By the standards of the aging Senate, where the average age is more than 65, the South Carolina Republican wasn’t particularly old.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-aging-congress.html
@@ -86,13 +90,13 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
 
-**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
-`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
-https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
-
 **The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
 `A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
 https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
+
+**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
+`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
+https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
 
 **Today’s Wordle Hints for July 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/12/espanol/cultura/joe-hisaishi-musica-ghibli
 **Cómo los medicamentos GLP-1 alimentan nuestra cultura enferma**\
 `En un entorno que premia la delgadez, recurrir a estos fármacos puede parecer una elección perfectamente lógica.`\
 https://www.nytimes.com/es/2026/07/12/espanol/opinion/medicamentos-glp-1-cultura-delgadez.html
-
-**Typhoon Bavi Hits China, Causing Evacuations, Floods and Flight Delays**\
-`Typhoon Bavi made landfall in China after killing 17 in the Philippines, skirting Japan and hitting Taiwan. At its largest, the storm was about the width of France.`\
-https://www.nytimes.com/2026/07/12/world/asia/typhoon-bavi-china.html
 
