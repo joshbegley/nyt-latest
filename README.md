@@ -110,8 +110,8 @@ https://www.nytimes.com/2026/07/12/opinion/attention-crisis-seneca.html
 `Manosphere fitness influencers are the wrong model. Health requires looking at life as a whole, not as an exercise in “optimization.”`\
 https://www.nytimes.com/2026/07/12/opinion/fitness-influencer-manosphere-health.html
 
-**Live Updates: Iran Targets Gulf States After Night of Intense U.S. Strikes**\
-`U.S. Central Command said it had hit about 140 targets in Iran overnight after Tehran attacked a ship in the Strait of Hormuz. Iran’s military said it had responded by firing at U.S. targets in Jordan, Oman and Qatar.`\
+**Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
+`A fresh round of attacks by the U.S. on Sunday was the latest volley in a familiar pattern of back-and-forth strikes fueled by disputes over the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
 
 **Hard-Liners in Iran Want to Keep Fighting America**\
