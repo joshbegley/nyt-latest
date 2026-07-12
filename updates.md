@@ -1,3 +1,7 @@
+**Oil Prices Set for More Volatility After Latest Iranian Attack in Strait of Hormuz**\
+`Crude oil prices jumped above prewar levels this week, demonstrating Iran’s capacity to move energy prices by projecting power in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/11/world/middleeast/strait-hormuz-shipping-oil-prices.html
+
 **Toronto Police Search For Active Shooter After 2 Killed at Street Festival**\
 `The shooting disrupted a weekend Latino celebration where hundreds had gathered on Saturday evening.`\
 https://www.nytimes.com/2026/07/11/world/canada/toronto-shooting-salsa-festival-canada.html
