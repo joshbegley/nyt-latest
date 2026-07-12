@@ -1,3 +1,7 @@
+**Typhoon Bavi Hits China, Causing Evacuations, Floods and Flight Delays**\
+`Typhoon Bavi made landfall in China after killing 17 in the Philippines, skirting Japan and hitting Taiwan. At its largest, the storm was about the width of France.`\
+https://www.nytimes.com/2026/07/12/world/asia/typhoon-bavi-china.html
+
 **La fiebre por las bananas**\
 `La fruta fresca más consumida de Estados Unidos ha irrumpido con una fuerza inesperada en los menús de las cafeterías. ¿Será el próximo “sabor de temporada”?`\
 https://www.nytimes.com/es/2026/07/12/espanol/platano-banana-salud-recetas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/11/briefing/gravitational-pull.html
 **My Aunt Pretends My Cousin Doesn’t Have a Drug Problem. Do I Have to Play Along?**\
 `I am sick of the charade we are expected to maintain around them.`\
 https://www.nytimes.com/2026/07/11/magazine/family-drug-addiction-ethics.html
-
-**NYT Connections Answers for July 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 12, 2026.`\
-https://www.nytimes.com/2026/07/11/crosswords/connections-companion-1127.html
 
