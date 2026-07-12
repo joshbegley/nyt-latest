@@ -1,4 +1,12 @@
-**U.K. Police Make 2nd Arrest in Killing of Ex-Lawmaker**\
+**Cold Plunging**\
+`A writer reflects on the healing powers of trying new things.`\
+https://www.nytimes.com/2026/07/12/briefing/cold-plunging.html
+
+**Map: 4.2-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/12/us/quake-tracker-southern-california.html
+
+**U.K. Police Make New Arrest in Killing of Ex-Lawmaker**\
 `A 26-year-old man was detained on Saturday in connection with the death of Ann Widdecombe, a former Parliament member, the police said. Another man arrested on Friday was later released.`\
 https://www.nytimes.com/2026/07/12/world/europe/ann-widdecombe-arrest-uk.html
 
@@ -185,8 +193,4 @@ https://www.nytimes.com/2026/07/11/world/canada/toronto-shooting-salsa-festival-
 **Iran War Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
 `Iran said it was responding to the attack with strikes on U.S. assets in the Middle East. The defense ministries of the United Arab Emirates and Qatar both said they were intercepting strikes.`\
 https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
-
-**Slight Adjustments**\
-`Collin Drown’s debut Times puzzle doesn’t mince words.`\
-https://www.nytimes.com/2026/07/11/crosswords/daily-puzzle-2026-07-12.html
 
