@@ -1,3 +1,7 @@
+**Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
+`The senator’s death triggers an Aug. 11 special Republican primary election, and South Carolina’s governor can appoint a replacement to serve out the remainder of his term, through early January.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
+
 **Fire in Bangkok Pub Kills Dozens**\
 `The cause of the fire was still unknown, but it began as a band was performing onstage and spread very rapidly, killing least 27 people.`\
 https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
