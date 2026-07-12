@@ -1,3 +1,15 @@
+**Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\
+`Aunque el microbioma humano desempeña un papel fundamental en nuestra salud, sigue siendo un territorio poco conocido. Dos investigadores buscan revelar sus secretos.`\
+https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-intestinal-salud.html
+
+**The World Is Cutting Ties With America. It’s Already Costing Us.**\
+`When other countries cut ties, Americans pay.`\
+https://www.nytimes.com/2026/07/12/opinion/america-trump-nato-europe-world.html
+
+**Serena Williams Is Back. Thank Goodness.**\
+`Until Serena Williams announced her return to tennis at 44, I never realized how much I needed her.`\
+https://www.nytimes.com/2026/07/12/opinion/serena-williams-returns-tennis-wimbledon.html
+
 **World Cup Updates: Kansas City Takes Center Stage as Argentina Beats Switzerland**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup

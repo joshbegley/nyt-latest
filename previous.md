@@ -1,3 +1,15 @@
+**Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\
+`Aunque el microbioma humano desempeña un papel fundamental en nuestra salud, sigue siendo un territorio poco conocido. Dos investigadores buscan revelar sus secretos.`\
+https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-intestinal-salud.html
+
+**The World Is Cutting Ties With America. It’s Already Costing Us.**\
+`When other countries cut ties, Americans pay.`\
+https://www.nytimes.com/2026/07/12/opinion/america-trump-nato-europe-world.html
+
+**Serena Williams Is Back. Thank Goodness.**\
+`Until Serena Williams announced her return to tennis at 44, I never realized how much I needed her.`\
+https://www.nytimes.com/2026/07/12/opinion/serena-williams-returns-tennis-wimbledon.html
+
 **As India Erases Its Colonial Past, Delhi’s Elite Feel Targeted**\
 `India’s government wants to shut down Delhi’s Gymkhana Club, which the prime minister calls a vestige of colonialism. Some members suspect a different motive.`\
 https://www.nytimes.com/2026/07/12/world/asia/india-gymkhana-club-eviction-colonialism.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/venezuela-rodriguez
 **How The Times Reported on Graham Platner**\
 `Two senior editors discuss the difficult effort to track down allegations against the leading Democrat for Senate in Maine and the questions that soon followed.`\
 https://www.nytimes.com/2026/07/11/insider/11-insider-platner-main-rape-allegation-reporting.html
-
-**Mick Jagger Is Not a Fan of Getting Old**\
-`Mick Jagger, 82, and his bandmates in the Rolling Stones are still making new music, but he was candid about his dislike of getting older on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011024716/mick-jagger-is-not-a-fan-of-getting-old.html
-
-**Mick Jagger: How Sex Is Like Art**\
-`Mick Jagger, the frontman for the Rolling Stones, talked about how our attitudes toward sex and art change over time on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011024649/mick-jagger-how-sex-is-like-art.html
-
-**Una moda peligrosa: meter en el microondas un juguete popular**\
-`Los hospitales están atendiendo casos de niños con quemaduras graves a raíz de una tendencia en las redes sociales que consiste en meter cubos de NeeDoh en el microondas.`\
-https://www.nytimes.com/es/2026/07/11/espanol/estilos-de-vida/squishy-juguetes-quemaduras.html
 
 **World Cup Updates: Kansas City Takes Center Stage as Argentina Beats Switzerland**\
 `(No description)`\
