@@ -1,3 +1,7 @@
+**Toronto Police Search For Active Shooter After 2 Killed at Street Festival**\
+`The shooting disrupted a weekend Latino celebration where hundreds had gathered on Saturday evening.`\
+https://www.nytimes.com/2026/07/11/world/canada/toronto-shooting-salsa-festival-canada.html
+
 **Iran War Live Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
 `Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
 https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/11/us/utah-valley-university-charlie-kirk-assass
 **Corrections: July 11, 2026**\
 `Corrections that appeared in print on Saturday, July 11, 2026.`\
 https://www.nytimes.com/2026/07/11/pageoneplus/corrections-july-11-2026.html
-
-**Trump Justifies $2 Billion Made as President With Inaccurate Claims**\
-`President Trump has wrongly attributed the $2 billion windfall he gained during his second term to a hot stock market and claimed that he was the only president to donate his salary.`\
-https://www.nytimes.com/2026/07/11/us/politics/trump-money-crypto-financial-gains.html
 
 **World Cup Updates: Kansas City Takes Center Stage as Global Host**\
 `(No description)`\

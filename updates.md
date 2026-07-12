@@ -1,3 +1,7 @@
+**Toronto Police Search For Active Shooter After 2 Killed at Street Festival**\
+`The shooting disrupted a weekend Latino celebration where hundreds had gathered on Saturday evening.`\
+https://www.nytimes.com/2026/07/11/world/canada/toronto-shooting-salsa-festival-canada.html
+
 **Iran War Live Updates: U.S. Launches Strikes After Iran Fires on Ship in Strait of Hormuz**\
 `Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
 https://www.nytimes.com/live/2026/07/11/world/iran-war-us-trump
