@@ -1,3 +1,11 @@
+**The Summeriest Skillet Pork Chops, Courtesy of Ali Slagle**\
+`And the fettuccine Alfredo my teenager makes over and over.`\
+https://www.nytimes.com/2026/07/12/dining/the-summeriest-skillet-pork-chops-courtesy-of-ali-slagle.html
+
+**The Burdens and Benefits of Big Families**\
+`Readers respond to “Life Is Better With Siblings,” an Opinion guest essay by Catherine Ruth Pakaluk.`\
+https://www.nytimes.com/2026/07/12/opinion/siblings-big-families.html
+
 **Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
 `South Carolina law suggests his death triggers an Aug. 11 special Republican primary election, and the state’s governor can appoint a replacement to serve out the rest of his term, through early January.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
