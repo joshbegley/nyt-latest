@@ -190,10 +190,6 @@ https://www.nytimes.com/2026/07/11/pageoneplus/corrections-july-11-2026.html
 `President Trump has wrongly attributed the $2 billion windfall he gained during his second term to a hot stock market and claimed that he was the only president to donate his salary.`\
 https://www.nytimes.com/2026/07/11/us/politics/trump-money-crypto-financial-gains.html
 
-**Inside the Nantucket Home of Best-Selling Author Elin Hilderbrand**\
-`Inside the home where the best-selling author has written many of her books — and is secretly working on a new novel.`\
-https://www.nytimes.com/interactive/2026/07/11/realestate/elin-hilderbrand-house-tour-nantucket.html
-
 **World Cup Updates: Kansas City Takes Center Stage as Global Host**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
