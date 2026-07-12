@@ -1,3 +1,7 @@
+**Senator Lindsey Graham, Republican of South Carolina, Dies at 71**\
+`Mr. Graham died of a “brief and sudden” illness on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
+
 **Trump’s Corruption Stains, From Texas to Maine**\
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
