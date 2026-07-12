@@ -1,3 +1,11 @@
+**U.K. Police Make 2nd Arrest in Killing of Ex-Lawmaker**\
+`A 26-year-old man was detained on Saturday in connection with the death of Ann Widdecombe, a former Parliament member, the police said. Another man arrested on Friday was later released.`\
+https://www.nytimes.com/2026/07/12/world/europe/ann-widdecombe-arrest-uk.html
+
+**Tributes Pour In for Senator Lindsey Graham**\
+`Mr. Graham’s sudden death on Saturday prompted a wave of tributes for an outsize and often divisive figure in U.S. foreign policy for two decades.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
+
 **Senator Lindsey Graham, Republican of South Carolina, Dies at 71**\
 `Mr. Graham died of a “brief and sudden” illness on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
