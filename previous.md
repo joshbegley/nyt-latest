@@ -1,3 +1,7 @@
+**Residents of Spanish Towns Caught in Fierce Blazes Recount Harrowing Escapes**\
+`Many say communication was chaotic and even nonexistent as flames tore through the area, taking 12 lives in one of the deadliest wildfires on record in Spain.`\
+https://www.nytimes.com/2026/07/12/world/europe/spain-wildfire-almeria-province.html
+
 **This Healthy Roasted Fish Al Pastor Is Already Earning Raves**\
 `“This is absolutely delicious! Sweet, citrusy, pungent, smoky. And looks gorgeous too,” writes a reader.`\
 https://www.nytimes.com/2026/07/12/dining/this-healthy-roasted-fish-al-pastor-is-already-earning-raves.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/crosswords/spelling-bee-forum.html
 **Lindsey Graham, Republican Senator and Trump Ally, Dies From ‘Sudden Illness’**\
 `He died from “a brief and sudden illness,” his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
-
-**Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\
-`Aunque el microbioma humano desempeña un papel fundamental en nuestra salud, sigue siendo un territorio poco conocido. Dos investigadores buscan revelar sus secretos.`\
-https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-intestinal-salud.html
 

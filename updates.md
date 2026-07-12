@@ -1,3 +1,7 @@
+**Residents of Spanish Towns Caught in Fierce Blazes Recount Harrowing Escapes**\
+`Many say communication was chaotic and even nonexistent as flames tore through the area, taking 12 lives in one of the deadliest wildfires on record in Spain.`\
+https://www.nytimes.com/2026/07/12/world/europe/spain-wildfire-almeria-province.html
+
 **Lindsey Graham, Republican Senator and Trump Ally, Dies From ‘Sudden Illness’**\
 `He died from “a brief and sudden illness,” his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
