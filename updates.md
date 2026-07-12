@@ -1,3 +1,7 @@
+**Senator Lindsey Graham, Republican of South Carolina, Dies at 71**\
+`Mr. Graham died of a “brief and sudden” illness on Saturday evening, his office said. He served in the Senate for more than two decades.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
+
 **Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\
 `Aunque el microbioma humano desempeña un papel fundamental en nuestra salud, sigue siendo un territorio poco conocido. Dos investigadores buscan revelar sus secretos.`\
 https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-intestinal-salud.html

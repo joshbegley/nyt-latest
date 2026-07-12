@@ -1,3 +1,7 @@
+**Senator Lindsey Graham, Republican of South Carolina, Dies at 71**\
+`Mr. Graham died of a “brief and sudden” illness on Saturday evening, his office said. He served in the Senate for more than two decades.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
+
 **Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\
 `Aunque el microbioma humano desempeña un papel fundamental en nuestra salud, sigue siendo un territorio poco conocido. Dos investigadores buscan revelar sus secretos.`\
 https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-intestinal-salud.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/11/magazine/mick-jagger-interview.html
 **Marco Rubio gestiona a Venezuela desde Washington**\
 `El secretario de Estado de EE. UU. controla de facto las finanzas de Venezuela, la distribución de sus recursos naturales y su gobierno. Su control es una clara muestra del poder estadounidense en la era Trump.`\
 https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/venezuela-rodriguez-rubio-trump.html
-
-**How The Times Reported on Graham Platner**\
-`Two senior editors discuss the difficult effort to track down allegations against the leading Democrat for Senate in Maine and the questions that soon followed.`\
-https://www.nytimes.com/2026/07/11/insider/11-insider-platner-main-rape-allegation-reporting.html
 
 **World Cup Updates: Kansas City Takes Center Stage as Argentina Beats Switzerland**\
 `(No description)`\
