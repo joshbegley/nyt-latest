@@ -162,8 +162,8 @@ https://www.nytimes.com/2026/07/12/nyregion/metropolitan-diary.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/12/crosswords/spelling-bee-forum.html
 
-**Senator Lindsey Graham, Republican of South Carolina, Dies at 71**\
-`Mr. Graham died of a “brief and sudden” illness on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
+**Lindsey Graham, Republican Senator and Staunch Trump Ally, Dies From ‘Sudden Illness’**\
+`He died of “a brief and sudden illness” on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
 
 **Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\

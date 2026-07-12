@@ -1,3 +1,7 @@
+**Lindsey Graham, Republican Senator and Staunch Trump Ally, Dies From ‘Sudden Illness’**\
+`He died of “a brief and sudden illness” on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
+https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html
+
 **The Summeriest Skillet Pork Chops, Courtesy of Ali Slagle**\
 `And the fettuccine Alfredo my teenager makes over and over.`\
 https://www.nytimes.com/2026/07/12/dining/the-summeriest-skillet-pork-chops-courtesy-of-ali-slagle.html
