@@ -1,3 +1,7 @@
+**Las bacterias del cuerpo tienen un lenguaje. Apenas empezamos a entender lo que dicen**\
+`Aunque el microbioma humano desempeña un papel fundamental en nuestra salud, sigue siendo un territorio poco conocido. Dos investigadores buscan revelar sus secretos.`\
+https://www.nytimes.com/es/2026/07/12/espanol/ciencia-y-tecnologia/microbioma-intestinal-salud.html
+
 **The World Is Cutting Ties With America. It’s Already Costing Us.**\
 `When other countries cut ties, Americans pay.`\
 https://www.nytimes.com/2026/07/12/opinion/america-trump-nato-europe-world.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/07/11/espanol/estados-unidos/venezuela-rodriguez
 **How The Times Reported on Graham Platner**\
 `Two senior editors discuss the difficult effort to track down allegations against the leading Democrat for Senate in Maine and the questions that soon followed.`\
 https://www.nytimes.com/2026/07/11/insider/11-insider-platner-main-rape-allegation-reporting.html
-
-**Mick Jagger Is Not a Fan of Getting Old**\
-`Mick Jagger, 82, and his bandmates in the Rolling Stones are still making new music, but he was candid about his dislike of getting older on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011024716/mick-jagger-is-not-a-fan-of-getting-old.html
 
 **World Cup Updates: Kansas City Takes Center Stage as Argentina Beats Switzerland**\
 `(No description)`\
