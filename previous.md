@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/07/11/opinion/social-security.html
 https://www.nytimes.com/video/opinion/100000011019454/platner-is-vile-mcconnell-is-missing-welcome-to-american-politics.html
 
 **Mojtaba Khamenei Vows Revenge as Iran’s Top Diplomat Is in Oman for Talks**\
-`Hours after a meeting between the foreign ministers of Iran and Oman, Iran announced it had fired a warning shot on a vessel taking an “unapproved route.”`\
+`Iran’s attack on a container ship came hours after a meeting between the foreign ministers of Iran and Oman about opening the strait to traffic.`\
 https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html
 
 **An American Politician Is Blocked by Israeli Settlers in the West Bank**\
