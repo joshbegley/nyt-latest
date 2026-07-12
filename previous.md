@@ -1,3 +1,7 @@
+**What Is an Aortic Dissection?**\
+`The condition that killed Senator Lindsey Graham is deadly, sudden and difficult to treat — “like a knife to the back,” one expert said.`\
+https://www.nytimes.com/2026/07/12/science/lindsey-graham-aortic-dissection.html
+
 **Fire in Bangkok Pub Kills Dozens**\
 `The cause of the fire was still unknown, but it began as a band was performing onstage and spread very rapidly, killing least 27 people.`\
 https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-prot
 **Trump Sought an Iran War Exit. Putin Pushed On in Ukraine. Now Both Are Stuck.**\
 `The Iran and Ukraine wars underline the common limits of military force in achieving political ends, but also the differences between a dug-in Russian president and a vacillating American one.`\
 https://www.nytimes.com/2026/07/12/world/europe/trump-putin-war-iran-ukraine.html
-
-**Sobreviví a un chapuzón en agua helada y conseguí todo lo que siempre había querido**\
-`Me resistí a la moda hasta que ya no pude más.`\
-https://www.nytimes.com/es/2026/07/12/espanol/estilos-de-vida/bano-inmersion-agua-fria.html
 
