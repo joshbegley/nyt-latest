@@ -1,3 +1,7 @@
+**Empty Seats for Messi’s Argentina Put Focus on World Cup Ticket Prices**\
+`The Argentine team and its superstar, Lionel Messi, have been among the biggest draws at the World Cup, but that was not enough to prevent vacant seats at its quarterfinal on Saturday.`\
+https://www.nytimes.com/2026/07/12/world/europe/messi-argentina-world-cup-empty-seats.html
+
 **Lindsey Graham, Republican Senator and Staunch Trump Ally, Dies From ‘Sudden Illness’**\
 `He died of “a brief and sudden illness” on Saturday evening, his office said. Over more than two decades in the Senate, he consistently pushed for the use of U.S. military power overseas.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-dead.html

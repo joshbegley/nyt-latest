@@ -1,3 +1,7 @@
+**Empty Seats for Messi’s Argentina Put Focus on World Cup Ticket Prices**\
+`The Argentine team and its superstar, Lionel Messi, have been among the biggest draws at the World Cup, but that was not enough to prevent vacant seats at its quarterfinal on Saturday.`\
+https://www.nytimes.com/2026/07/12/world/europe/messi-argentina-world-cup-empty-seats.html
+
 **The Summeriest Skillet Pork Chops, Courtesy of Ali Slagle**\
 `And the fettuccine Alfredo my teenager makes over and over.`\
 https://www.nytimes.com/2026/07/12/dining/the-summeriest-skillet-pork-chops-courtesy-of-ali-slagle.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/world/asia/russia-spies-japan-war-drones-elec
 **No Corrections: July 12, 2026**\
 `No corrections appeared in print on Sunday, July 12, 2026.`\
 https://www.nytimes.com/2026/07/12/pageoneplus/no-corrections-july-12-2026.html
-
-**Quote of the Day: Couples Comedy Needed Therapy**\
-`Quotation of the Day for Sunday, July 12, 2026.`\
-https://www.nytimes.com/2026/07/12/pageoneplus/quote-of-the-day-couples-comedy-needed-therapy.html
 
