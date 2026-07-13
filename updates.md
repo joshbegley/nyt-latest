@@ -1,3 +1,7 @@
+**Fire in Bangkok Bar Leaves at Least 27 Dead**\
+`The fast-moving blaze sent people fleeing toward the bathrooms to hide, officials said. Their bodies were found there, raising questions about safety standards.`\
+https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
+
 **‘Lucky’ and 6 More Shows to Watch on TV this Week**\
 `A new crime thriller comes to Apple TV. And Sean Evans hosts “Hot Ones: Extra Heat.”`\
 https://www.nytimes.com/2026/07/13/arts/television/lucky-and-6-more-shows-to-watch-on-tv-this-week.html
