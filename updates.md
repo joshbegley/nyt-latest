@@ -1,3 +1,11 @@
+**Democratic Senate Candidates in Maine Denounce Deadly ICE Shooting**\
+`The killing of a man in Biddeford quickly became an issue in the Senate race, with Democrats aiming to tie Senator Susan Collins to President Trump’s immigration crackdown.`\
+https://www.nytimes.com/2026/07/13/us/politics/maine-ice-shooting-senate-graham-platner.html
+
+**South Carolina Governor Appoints Lindsey Graham’s Sister to Finish Senate Term**\
+`Gov. Henry McMaster of South Carolina appointed Senator Lindsey Graham’s sister, Darline Graham Nordone, to finish his Senate term.`\
+https://www.nytimes.com/video/us/politics/100000011028488/lindsey-graham-sister-senate-replacement.html
+
 **The Ridiculous Rise of Victor Marx**\
 `Once started, the process of voter radicalization isn’t easy to modulate.`\
 https://www.nytimes.com/2026/07/13/opinion/victor-marx-colorado-republican.html
