@@ -26,7 +26,7 @@ https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stad
 `Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
 https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
 
-**Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
+**Hungary’s Parliament Votes to Remove Orban Loyalist From Presidential Post**\
 `Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former right-wing leader.`\
 https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
 

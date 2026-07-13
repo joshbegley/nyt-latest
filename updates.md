@@ -1,3 +1,7 @@
+**Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
+`Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former right-wing leader.`\
+https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
+
 **Hamas Forces Interfered With Aid Distribution, U.N. Says**\
 `A raid by armed personnel led the World Food Program to suspend its operations in one part of Gaza, the U.N. said. Hamas disputed the accusations.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/un-says-hamas-forces-interfered-with-aid-distribution-at-a-gaza-site.html

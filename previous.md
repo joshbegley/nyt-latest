@@ -27,7 +27,7 @@ https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stad
 https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
 
 **Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
-`Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former far-right leader.`\
+`Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former right-wing leader.`\
 https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
 
 **Trump Administration Announces New Attack on the International Criminal Court**\
