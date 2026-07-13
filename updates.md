@@ -1,3 +1,11 @@
+**Jay-Z Concert at Yankee Stadium Is Delayed for Hours**\
+`The rapper apologized to fans when the show began after midnight on Monday, citing crowd safety issues.`\
+https://www.nytimes.com/2026/07/13/nyregion/jay-z-concert-yankee-stadium.html
+
+**Tributes to Lindsey Graham Pour In**\
+`Colleagues, world leaders and constituents remembered Senator Lindsey Graham, who died on Saturday, for his commitment to South Carolina and U.S. foreign policy.`\
+https://www.nytimes.com/video/us/politics/100000011026923/lindsey-graham-death-tributes.html
+
 **Muere Sam Neill, protagonista de ‘Parque Jurásico’**\
 `A lo largo de cinco décadas de carrera, participó en más de 150 producciones, aunque quizá se le recuerde sobre todo por su papel protagonista en la saga de los dinosaurios.`\
 https://www.nytimes.com/es/2026/07/13/espanol/cultura/muere-sam-neill-parque-jurasico.html
