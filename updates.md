@@ -1,3 +1,7 @@
+**El misterio del frío en la oficina: sensores, termostatos y bolsas de aire**\
+`Expertos explican por qué los edificios corporativos siguen siendo demasiado fríos en verano, y cómo los nuevos sistemas de climatización podrían cambiar la experiencia de millones de trabajadores.`\
+https://www.nytimes.com/es/2026/07/13/espanol/negocios/frio-oficina-termostatos-verano.html
+
 **Economists Warn of A.I. Threat**\
 `Nearly 200 economists signed a letter calling for policymakers to do more to understand and respond to potential A.I. disruptions.`\
 https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
