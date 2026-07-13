@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
 https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html
 
 **Trump Backs Lindsey Graham’s Sister to Finish His Senate Term in South Carolina**\
-`Gov. Henry McMaster of South Carolina will name a replacement for Senator Lindsey Graham, who died on Saturday.`\
+`Gov. Henry McMaster of South Carolina named Darline Graham Nordone to replace Mr. Graham, who died on Saturday.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
 
 **Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\

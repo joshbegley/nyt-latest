@@ -1,3 +1,19 @@
+**Los científicos encuentran azúcar en el centro de la Vía Láctea**\
+`Es la primera vez que se detecta una molécula de azúcar en el espacio interestelar. El descubrimiento ofrece pistas nuevas y fascinantes pistas sobre cómo pudo haber surgido la vida en la Tierra.`\
+https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/azucar-espacio-via-lactea.html
+
+**Would a Social Media Ban in the U.S. Be Effective?**\
+`On the “Hard Fork” podcast, the co-host Casey Newton argues that a new law won’t necessarily be ineffective just because adherence to it is low initially. The same could be true if a social media ban were enacted in the United States.`\
+https://www.nytimes.com/video/podcasts/100000011028469/would-a-social-media-ban-in-the-us-be-effective.html
+
+**Should You Be Polite to A.I.?**\
+`Should you say please and thank you to chatbots? This week on “Hard Fork,” Kevin and Casey talk with professor and A.I. expert Jeff Sebo about why he feels it’s important to be nice to your future robot overlords.`\
+https://www.nytimes.com/video/podcasts/100000011027443/should-you-be-polite-to-ai.html
+
+**This California Oil Pipeline Was Dormant for 11 Years. Trump Reopened It.**\
+`The move in Santa Barbara by the Trump administration has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
+https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
+
 **Jay-Z Concert Delay Leaves Thousands Stuck Outside Yankee Stadium**\
 `Thousands of ticket holders were stuck outside Yankee Stadium for hours after people without tickets stormed the stadium’s entrances, delaying Jay-Z’s performance.`\
 https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stadium-delay.html
