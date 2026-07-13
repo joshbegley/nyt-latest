@@ -15,7 +15,7 @@ https://www.nytimes.com/es/2026/07/13/espanol/pepinos-son-saludables.html
 https://www.nytimes.com/es/2026/07/13/espanol/negocios/frio-oficina-termostatos-verano.html
 
 **Nearly 200 Economists and Tech Leaders Warn of A.I. Threats**\
-`Letter calls for policymakers to do more to understand and respond to potential  disruptions from artificial intelligence.`\
+`A letter calls for policymakers to do more to understand and respond to potential disruptions from artificial intelligence.`\
 https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
 
 **The Viceroy of Venezuela**\
