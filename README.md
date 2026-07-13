@@ -2,8 +2,8 @@
 `Major music industry groups, including the organization behind the Grammy Awards, have proposed labels for tracks made with some degree of artificial intelligence.`\
 https://www.nytimes.com/2026/07/13/arts/music/ai-labels-warnings-riaa.html
 
-**Trump Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
-`Some tech executives are nervous that recent scrutiny of artificial intelligence models could be a prelude to a demand by the Trump administration for an ownership stake.`\
+**Trump Administration Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
+`Some tech executives are nervous that the administration’s recent scrutiny of artificial intelligence models could be a prelude to a demand for an ownership stake.`\
 https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
 
 **Conflict Over Iranian Planes Imperils Yemen’s Fragile Peace**\
