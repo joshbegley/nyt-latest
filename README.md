@@ -1,3 +1,7 @@
+**Man Hospitalized After Bison Attack in Yellowstone National Park**\
+`A photographer at Yellowstone National Park captured the moment a charging bull bison tossed a man about eight feet in the air. The animal may have been experiencing a surge of testosterone at the start of the mating season.`\
+https://www.nytimes.com/video/us/100000011027456/bison-yellowstone-national-park-wyoming.html
+
 **Trump’s Threat to Impose Fees in the Strait of Hormuz Contradicts His Aides**\
 `President Trump said the United States could collect tolls or fees, despite Vice President JD Vance and Secretary of State Marco Rubio saying no country could do so.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-contradicts-his-aides-on-hormuz.html
@@ -10,8 +14,8 @@ https://www.nytimes.com/2026/07/13/arts/music/ai-labels-warnings-riaa.html
 `Some tech executives are nervous that the administration’s recent scrutiny of artificial intelligence models could be a prelude to a demand for an ownership stake.`\
 https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
 
-**Conflict Over Iranian Planes Imperils Yemen’s Fragile Peace**\
-`The Iran-backed Houthi rebels in Yemen accused Saudi Arabia of striking an airport in the Yemeni capital, Sana. The escalation came after a dispute over an Iranian plane that carried Houthi officials to Tehran.`\
+**Yemen’s Fragile Peace in Peril as Houthis Accuse Saudi Arabia of Bombing**\
+`The Iran-backed Houthi rebels in Yemen accused Saudi Arabia of striking Yemen’s main international airport in a dispute over an Iranian plane that tried to land in the capital, Sana.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/yemen-houthis-saudi-arabia-iran-war.html
 
 **El mundo rompe relaciones con EE. UU. El costo lo pagarán los estadounidenses**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
 **The Viceroy of Venezuela**\
 `We look into who’s really running the country.`\
 https://www.nytimes.com/2026/07/13/briefing/the-viceroy-of-venezuela.html
-
-**Lindsey Graham’s Unexpected Death, and How Marco Rubio Is Running Venezuela**\
-`Plus, Sam Neill of “Jurassic Park” fame dies at 78.`\
-https://www.nytimes.com/2026/07/13/podcasts/the-headlines/lindsey-graham-death-marco-rubio-venezuela-sam-neill.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `After more escalatory rhetoric and attacks, President Trump said the United States was renewing its shipping blockade of Iranian ports, and would charge a 20 percent fee on goods passing through the Strait of Hormuz.`\
