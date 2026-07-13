@@ -1,3 +1,7 @@
+**Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
+`Sam Neill, the versatile New Zealand actor who portrayed Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
+https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
+
 **Nearly 200 Economists and Tech Leaders Warn of A.I. Threats**\
 `A letter calls for policymakers to do more to understand and respond to potential disruptions from artificial intelligence.`\
 https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html

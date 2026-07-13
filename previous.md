@@ -1,3 +1,7 @@
+**Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
+`Sam Neill, the versatile New Zealand actor who portrayed Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
+https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
+
 **Heat Waves in Europe Linked to Thousands of Excess Deaths**\
 `While the full toll will take months to calculate, death statistics already look substantial compared with historical averages.`\
 https://www.nytimes.com/2026/07/13/world/europe/heat-europe-excess-death-fire.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
 **Jay-Z Concert at Yankee Stadium Is Delayed for Hours**\
 `The rapper apologized to fans when the show began after midnight on Monday, citing crowd safety issues.`\
 https://www.nytimes.com/2026/07/13/nyregion/jay-z-concert-yankee-stadium.html
-
-**Tributes to Lindsey Graham Pour In**\
-`Colleagues, world leaders and constituents remembered Senator Lindsey Graham, who died on Saturday, for his commitment to South Carolina and U.S. foreign policy.`\
-https://www.nytimes.com/video/us/politics/100000011026923/lindsey-graham-death-tributes.html
 
