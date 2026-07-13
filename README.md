@@ -1,3 +1,7 @@
+**Would a Social Media Ban in the U.S. Be Effective?**\
+`On the “Hard Fork” podcast, the co-host Casey Newton argues that a new law won’t necessarily be ineffective just because adherence to it is low initially. The same could be true if a social media ban were enacted in the United States.`\
+https://www.nytimes.com/video/podcasts/100000011028469/would-a-social-media-ban-in-the-us-be-effective.html
+
 **Jay-Z Concert Delay Leaves Thousands Stuck Outside Yankee Stadium**\
 `Thousands of ticket holders were stuck outside Yankee Stadium for hours after people without tickets stormed the stadium’s entrances, delaying Jay-Z’s performance.`\
 https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stadium-delay.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/13/world/europe/uk-iran-irgc-terrorist-antisemit
 **Iranian Hard-Liners Threaten Trump as U.S.-Iran Strikes Continue**\
 `Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/iran-hard-liners-threats-trump-us.html
-
-**UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
-`The police said new information had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
-https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
 

@@ -1,3 +1,11 @@
+**Jay-Z Concert Delay Leaves Thousands Stuck Outside Yankee Stadium**\
+`Thousands of ticket holders were stuck outside Yankee Stadium for hours after people without tickets stormed the stadium’s entrances, delaying Jay-Z’s performance.`\
+https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stadium-delay.html
+
+**ICE Agent Kills Person in Vehicle in Biddeford, Maine, State Officials Say**\
+`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has stepped up immigration enforcement nationally in recent weeks.`\
+https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
+
 **For 35 Years, Undocumented, and Chasing the American Dream**\
 `Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
 https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
