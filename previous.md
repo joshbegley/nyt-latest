@@ -1,3 +1,19 @@
+**Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\
+`France’s president, Emmanuel Macron, spoke before a meeting of more than 25 allies in Paris, in a show of support for Ukraine and against Russia.`\
+https://www.nytimes.com/2026/07/13/world/europe/macron-defend-blood-ukraine-europe.html
+
+**Should you be polite to A.I.?**\
+`Should you say please and thank you to chatbots? This week on “Hard Fork,” Kevin and Casey talk with professor and A.I. expert Jeff Sebo about why he feels it’s important to be nice to your future robot overlords.`\
+https://www.nytimes.com/video/podcasts/100000011027443/should-you-be-polite-to-ai.html
+
+**Do You Know These Greek Plays and Poems That Were Turned Into Movies?**\
+`Homer’s “Odyssey” is back in the headlines with this summer’s movie production, but how many other ancient works do you recognize on the big screen?`\
+https://www.nytimes.com/interactive/2026/07/13/books/review/greek-text-movies.html
+
+**Today, In Short**\
+`“Love Island USA.” Bananas. And the latest from the Middle East.`\
+https://www.nytimes.com/2026/07/13/briefing/today-in-short.html
+
 **How a Teacher Revived Backyard Baseball**\
 `Backyard Baseball, a favorite game for 1990s kids, had been off the market for years. But Lindsay Barnett was determined.`\
 https://www.nytimes.com/2026/07/13/style/backyard-baseball-video-game-teacher.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/07/13/arts/murder-mystery-audrey-gelman-wing.html
 **Who Will Win the Midterms? Nate Silver and 5 Other Experts Have Thoughts.**\
 `If the election were held today, which party would win a majority in the House and Senate?`\
 https://www.nytimes.com/interactive/2026/07/13/opinion/midterms-pollsters-pundits-scorecard.html
-
-**The Next Phase in Ukraine’s War With Russia: The Battle for Minds**\
-`Ukrainians, already drone innovators, are turning their focus to psychological operations aimed at undercutting Russian support for the war.`\
-https://www.nytimes.com/2026/07/13/world/europe/ukraine-war-russia-cognitive-warfare.html
-
-**Reviving a ‘Lost’ Icon of Organic Architecture in Encinitas, Calif.**\
-`A renovation of a Kendrick Bangs Kellogg house aimed to honor its past while evolving it for the future.`\
-https://www.nytimes.com/2026/07/13/realestate/kendricks-bang-kellogg-encinitas-regenerative-renovation.html
-
-**Justin and Hailey Bieber Buy $12 Million West Village Condo**\
-`The pop star and his entrepreneur wife bought a condo in a luxury building on the edge of the Hudson River, and other celebrity real estate deals.`\
-https://www.nytimes.com/2026/07/13/realestate/justin-and-hailey-bieber-buy-12-million-west-village-condo.html
-
-**What the Fight With Anthropic Reveals About Free Speech in America**\
-`We won’t get the A.I. regulation we deserve until we change how we think about the right to code.`\
-https://www.nytimes.com/2026/07/13/opinion/ai-code-free-speech.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\

@@ -1,3 +1,19 @@
+**Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\
+`France’s president, Emmanuel Macron, spoke before a meeting of more than 25 allies in Paris, in a show of support for Ukraine and against Russia.`\
+https://www.nytimes.com/2026/07/13/world/europe/macron-defend-blood-ukraine-europe.html
+
+**Should you be polite to A.I.?**\
+`Should you say please and thank you to chatbots? This week on “Hard Fork,” Kevin and Casey talk with professor and A.I. expert Jeff Sebo about why he feels it’s important to be nice to your future robot overlords.`\
+https://www.nytimes.com/video/podcasts/100000011027443/should-you-be-polite-to-ai.html
+
+**Do You Know These Greek Plays and Poems That Were Turned Into Movies?**\
+`Homer’s “Odyssey” is back in the headlines with this summer’s movie production, but how many other ancient works do you recognize on the big screen?`\
+https://www.nytimes.com/interactive/2026/07/13/books/review/greek-text-movies.html
+
+**Today, In Short**\
+`“Love Island USA.” Bananas. And the latest from the Middle East.`\
+https://www.nytimes.com/2026/07/13/briefing/today-in-short.html
+
 **How a Teacher Revived Backyard Baseball**\
 `Backyard Baseball, a favorite game for 1990s kids, had been off the market for years. But Lindsay Barnett was determined.`\
 https://www.nytimes.com/2026/07/13/style/backyard-baseball-video-game-teacher.html

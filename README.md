@@ -1,3 +1,7 @@
+**Trump Backs Lindsey Graham’s Sister to Finish His Senate Term in South Carolina**\
+`Gov. Henry McMaster of South Carolina will name a replacement for Senator Lindsey Graham, who died on Saturday.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
+
 **Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\
 `France’s president, Emmanuel Macron, spoke before a meeting of more than 25 allies in Paris, in a show of support for Ukraine and against Russia.`\
 https://www.nytimes.com/2026/07/13/world/europe/macron-defend-blood-ukraine-europe.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/nyregion/when-chicken-nuggets-arent-just-chic
 **A Murder Mystery Evening at Audrey Gelman’s Guesthouse**\
 `At her Hudson Valley guesthouse, Audrey Gelman, a co-founder of the Wing, channels her childlike love of play with murder mystery evenings.`\
 https://www.nytimes.com/2026/07/13/arts/murder-mystery-audrey-gelman-wing.html
-
-**Who Will Win the Midterms? Nate Silver and 5 Other Experts Have Thoughts.**\
-`If the election were held today, which party would win a majority in the House and Senate?`\
-https://www.nytimes.com/interactive/2026/07/13/opinion/midterms-pollsters-pundits-scorecard.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
