@@ -1,3 +1,7 @@
+**Nearly 200 Economists and Tech Leaders Warn of A.I. Threats**\
+`Letter calls for policymakers to do more to understand and respond to potential  disruptions from artificial intelligence.`\
+https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
+
 **Wall Street’s Big Week for Earnings and Economic Data**\
 `Earnings season kicks off in earnest on Tuesday with big banks up first. Corporate America faces a high bar to beat investor expectations.`\
 https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
