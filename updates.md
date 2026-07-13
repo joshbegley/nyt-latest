@@ -1,3 +1,7 @@
+**Conflict Over Iranian Planes Imperils Yemen’s Fragile Peace**\
+`The Iran-backed Houthi rebels in Yemen accused Saudi Arabia of striking an airport in the Yemeni capital, Sana. The escalation came after a dispute over an Iranian plane that carried Houthi officials to Tehran.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/yemen-houthis-saudi-arabia-iran-war.html
+
 **El mundo rompe relaciones con EE. UU. El costo lo pagarán los estadounidenses**\
 `Reducir el riesgo que implican las superpotencias depredadoras es el reto fundamental de muchos países. Ahora el principal motivo de preocupación es Estados Unidos.`\
 https://www.nytimes.com/es/2026/07/13/espanol/opinion/trump-estados-unidos-mundo.html
