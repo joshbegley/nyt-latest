@@ -1,3 +1,23 @@
+**Why Are Grocery Store Prices So High**\
+`Motivated to keep prices low, the general manager of a food co-op in Pittsburgh tells us how the store is navigating the steep costs.`\
+https://www.nytimes.com/2026/07/13/podcasts/the-daily/grocery-store-prices-high-inflation.html
+
+**NYT Connections Answers for July 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/13/crosswords/connections-companion-1129.html
+
+**NYT Strands Hints for July 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/13/crosswords/strands-sidekick-863.html
+
+**Today’s Wordle Hints for July 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/13/crosswords/wordle-review-1851.html
+
+**Europe Takes Step Toward Possible Social Media Ban for Children**\
+`After the release of a new report, the European Commission is considering changing the rules across the 27-nation bloc.`\
+https://www.nytimes.com/2026/07/13/technology/europe-teen-social-media-ban.html
+
 **Lebanese Hold Fast to Their Land Despite Threat of Long Israeli Occupation**\
 `Entire towns in southern Lebanon have been hollowed out by the war between Israel and Hezbollah. Some residents have stayed, fearing permanent displacement.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/lebanon-south-israel.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/13/arts/television/lucky-and-6-more-shows-to-wat
 **The World Must Not Forget About the Genocide in Sudan**\
 `The longer the fighting drags on, the greater the chance that regional instability will spread.`\
 https://www.nytimes.com/2026/07/13/opinion/sudan-genocide-atrocities-international.html
-
-**It’s the Scent of Manure to Most, but ‘the Smell of Money’ to Them**\
-`The Netherlands has been trying to figure out what to do with manure it can no longer use thanks to environmental rules. Volatile fertilizer costs may help.`\
-https://www.nytimes.com/2026/07/13/world/europe/its-the-scent-of-manure-to-most-but-the-smell-of-money-to-them.html
-
-**Japan Is Building a New Intelligence Agency With Help From the West**\
-`Facing threats from Russia and China, Prime Minister Sanae Takaichi is breaking with World War II-era limits on security.`\
-https://www.nytimes.com/2026/07/13/world/asia/japan-intelligence-agency.html
-
-**No Corrections: July 13, 2026**\
-`No corrections appeared in print on Monday, July 13, 2026.`\
-https://www.nytimes.com/2026/07/13/corrections/no-corrections-july-13-2026.html
-
-**Why Young People in China Are Buying Feelings**\
-`Young people in China are increasingly anxious about the future and spending on feel-good experiences and products that provide “emotional value.” A companion hiker and cosplayer show what it’s like to be part of this booming consumer market.`\
-https://www.nytimes.com/video/world/asia/100000010988376/china-emotional-value.html
-
-**Quote of the Day: A Newly Declassified Trove Underwhelms a U.F.O. Capital**\
-`Quotation of the Day for Monday, July 13, 2026.`\
-https://www.nytimes.com/2026/07/13/pageoneplus/quote-of-the-day-a-newly-declassified-trove-underwhelms-a-ufo-capital.html
 
