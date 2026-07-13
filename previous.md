@@ -194,7 +194,3 @@ https://www.nytimes.com/es/2026/07/13/espanol/mundo/hitler-bunker-berlin.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/13/crosswords/spelling-bee-forum.html
 
-**Housing or Flood Protection? In Brooklyn, Housing Is Winning.**\
-`A towering apartment development has been approved for the waterfront, even though some residents would have preferred parkland.`\
-https://www.nytimes.com/2026/07/13/nyregion/brooklyn-housing-development-flooding.html
-
