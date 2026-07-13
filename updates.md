@@ -1,3 +1,7 @@
+**Texas Faces Days and Days of Heavy Rain**\
+`Meteorologists with the National Weather Service called the forecast “bleak” and warned that some spots could record up to 10 inches of rain this week.`\
+https://www.nytimes.com/2026/07/13/weather/texas-rain-forecast-flooding.html
+
 **Trump’s Cease-Fire Effectively Collapses as He Vows to Restart Blockade and Tolls**\
 `After several days of strikes, the president notified Congress that fighting had begun again and announced shipping fees that his administration previously deemed illegal.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-iran-ceasefire.html
