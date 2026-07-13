@@ -1,3 +1,7 @@
+**Shooting in Southern Illinois Leaves Five Family Members Dead**\
+`Two other people were wounded. The Illinois State Police said on Sunday that two teenage suspects were in custody.`\
+https://www.nytimes.com/2026/07/12/us/shooting-illinois-five-family-members-dead.html
+
 **Fire in Bangkok Bar Kills Dozens**\
 `The fast-moving blaze sent people fleeing into the bathroom to hide, officials said. Their bodies were found there, raising questions about fire safety standards.`\
 https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
