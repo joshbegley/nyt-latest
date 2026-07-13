@@ -1,3 +1,7 @@
+**Bangkok Bar Fire Kills Over Two Dozen People**\
+`As flames burst out of the front entrance of a bar in Bangkok, a deadly fire killed dozens of patrons and left many more injured on Sunday night.`\
+https://www.nytimes.com/video/world/asia/100000011026922/bangkok-thailand-fire.html
+
 **Live Updates: Iran Insists It Controls Strait of Hormuz as It Launches New Strikes**\
 `The Iranian military said it had fired at U.S. targets across the Persian Gulf as the two sides engaged in another day of hostilities. President Trump on Sunday denied Iran’s claim to have closed the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/12/briefing/pop-stars-are-confessing-their-secre
 **At World Cup Ticket Prices, Even Messi Can’t Fill a Stadium**\
 `The Argentine team and its superstar, Lionel Messi, have been among the biggest draws at the World Cup, but that was not enough to prevent vacant seats at its quarterfinal on Saturday.`\
 https://www.nytimes.com/2026/07/12/world/europe/messi-argentina-world-cup-empty-seats.html
-
-**The Summeriest Skillet Pork Chops, Courtesy of Ali Slagle**\
-`And the fettuccine Alfredo my teenager makes over and over.`\
-https://www.nytimes.com/2026/07/12/dining/the-summeriest-skillet-pork-chops-courtesy-of-ali-slagle.html
 

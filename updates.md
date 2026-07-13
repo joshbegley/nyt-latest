@@ -1,3 +1,7 @@
+**Bangkok Bar Fire Kills Over Two Dozen People**\
+`As flames burst out of the front entrance of a bar in Bangkok, a deadly fire killed dozens of patrons and left many more injured on Sunday night.`\
+https://www.nytimes.com/video/world/asia/100000011026922/bangkok-thailand-fire.html
+
 **Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
 `He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
 https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
