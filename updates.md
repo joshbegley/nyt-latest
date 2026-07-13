@@ -1,3 +1,11 @@
+**Ed King, 89, Scarred Veteran of Mississippi’s Civil Rights Struggle, Dies**\
+`A minister disfigured in an attack on his life, he became what one historian called “the most visible white activist in the Mississippi movement.”`\
+https://www.nytimes.com/2026/07/13/us/ed-king-dead.html
+
+**Lindsey Graham’s Sister Appointed to Finish His Senate Term After Trump’s Backing**\
+`Gov. Henry McMaster of South Carolina named Darline Graham Nordone to replace Mr. Graham, who died on Saturday.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
+
 **Los científicos encuentran azúcar en el centro de la Vía Láctea**\
 `Es la primera vez que se detecta una molécula de azúcar en el espacio interestelar. El descubrimiento ofrece pistas nuevas y fascinantes pistas sobre cómo pudo haber surgido la vida en la Tierra.`\
 https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/azucar-espacio-via-lactea.html

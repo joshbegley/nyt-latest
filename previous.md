@@ -1,3 +1,7 @@
+**Ed King, 89, Scarred Veteran of Mississippi’s Civil Rights Struggle, Dies**\
+`A minister disfigured in an attack on his life, he became what one historian called “the most visible white activist in the Mississippi movement.”`\
+https://www.nytimes.com/2026/07/13/us/ed-king-dead.html
+
 **Los científicos encuentran azúcar en el centro de la Vía Láctea**\
 `Es la primera vez que se detecta una molécula de azúcar en el espacio interestelar. El descubrimiento ofrece pistas nuevas y fascinantes pistas sobre cómo pudo haber surgido la vida en la Tierra.`\
 https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/azucar-espacio-via-lactea.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
 `El presidente de EE. UU. firmó un acuerdo que, según Irán, daba a los iraníes el control de esa vía navegable. Ahora, su ejército está imponiendo su autoridad a la fuerza.`\
 https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html
 
-**Trump Backs Lindsey Graham’s Sister to Finish His Senate Term in South Carolina**\
-`Gov. Henry McMaster of South Carolina will name a replacement for Senator Lindsey Graham, who died on Saturday.`\
+**Lindsey Graham’s Sister Appointed to Finish His Senate Term After Trump’s Backing**\
+`Gov. Henry McMaster of South Carolina named Darline Graham Nordone to replace Mr. Graham, who died on Saturday.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
 
 **Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-c
 **Fire in Bangkok Bar Was a Death Trap With Inaccessible Exits and Flammable Foam**\
 `Huge flames tore out of the entrance to the venue, which one investigator said had used inappropriate material for soundproofing. More than two dozen people died.`\
 https://www.nytimes.com/2026/07/13/world/asia/bangkok-thailand-pub-fire.html
-
-**UK Links Iran to Antisemitic Attacks and Calls IRGC Terrorist Group**\
-`The designation gives the government additional national security powers to tackle foreign threats under a new law.`\
-https://www.nytimes.com/2026/07/13/world/europe/uk-iran-irgc-terrorist-antisemitic-attacks.html
 
