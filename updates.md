@@ -1,3 +1,7 @@
+**Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
+`He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
+https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
+
 **Live Updates: Iran Insists It Controls Strait of Hormuz as It Launches New Strikes**\
 `The Iranian military said it had fired at U.S. targets across the Persian Gulf as the two sides engaged in another day of hostilities. President Trump on Sunday denied Iran’s claim to have closed the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
