@@ -1,3 +1,7 @@
+**Trump Administration Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
+`Some tech executives are nervous that the administration’s recent scrutiny of artificial intelligence models could be a prelude to a demand for an ownership stake.`\
+https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
+
 **The Fed’s Christopher Waller Warns of Higher Rates Soon if Inflation Stays High**\
 `Christopher J. Waller, a governor at the Federal Reserve, said he needed to see several months of lower inflation data to feel confident about the outlook.`\
 https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
