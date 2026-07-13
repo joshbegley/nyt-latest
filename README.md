@@ -1,3 +1,7 @@
+**Una película ensalza a un Bolsonaro. Su hijo paga el precio político**\
+`Una película biográfica sobre el expresidente Jair Bolsonaro ha destrozado las esperanzas presidenciales de su hijo, Flávio Bolsonaro, después de que se filtrara que negoció la financiación de la película con un banquero caído en desgracia.`\
+https://www.nytimes.com/es/2026/07/13/espanol/america-latina/bolsonaro-pelicula-filtracion-hijo-presidencia.html
+
 **How Lindsey Graham’s Journey From Trump Critic to Ally Made Him a Power Player**\
 `He initially called Donald Trump a “kook” who was “unfit for office,” only to join the new president’s Mar-a-Lago circle. “I’m still in the game,” Mr. Graham once explained of his much-analyzed turnabout.`\
 https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-donald-trump.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/crosswords/wordle-review-1851.html
 **Europe Takes Step Toward Possible Social Media Ban for Children**\
 `After the release of a new report, the European Commission is considering changing the rules across the 27-nation bloc.`\
 https://www.nytimes.com/2026/07/13/technology/europe-teen-social-media-ban.html
-
-**Lebanese Hold Fast to Their Land Despite Threat of Long Israeli Occupation**\
-`Entire towns in southern Lebanon have been hollowed out by the war between Israel and Hezbollah. Some residents have stayed, fearing permanent displacement.`\
-https://www.nytimes.com/2026/07/13/world/middleeast/lebanon-south-israel.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
