@@ -1,3 +1,7 @@
+**Trump Administration Announces New Attack on the International Criminal Court**\
+`Secretary of State Marco Rubio said that the United States will “dismantle” the international court that tries grave crimes “brick by brick, if necessary.”`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-international-criminal-court.html
+
 **10 of the Best Wimbledon 2026 Fashion Moments**\
 `With athletes limited to wearing tennis whites on the court, the best fashion moments — head scarves, double-breasted suits and leather waistcoats — happened in the stands.`\
 https://www.nytimes.com/2026/07/13/style/wimbledon-fashion-outfits-2026-celebrities.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-
 **Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
 `Sam Neill, the versatile New Zealand actor who played Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
 https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
-
-**Heat Waves in Europe Linked to Thousands of Excess Deaths**\
-`While the full toll will take months to calculate, death statistics already look substantial compared with historical averages.`\
-https://www.nytimes.com/2026/07/13/world/europe/heat-europe-excess-death-fire.html
 
