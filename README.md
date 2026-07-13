@@ -1,13 +1,13 @@
-**Una película ensalza a un Bolsonaro. Su hijo paga el precio político**\
-`Una película biográfica sobre el expresidente Jair Bolsonaro ha destrozado las esperanzas presidenciales de su hijo, Flávio Bolsonaro, después de que se filtrara que negoció la financiación de la película con un banquero caído en desgracia.`\
+**Una película ensalza a Jair Bolsonaro. Su hijo paga el precio político**\
+`Un documental sobre el expresidente brasileño ha destrozado las esperanzas presidenciales de su hijo, Flávio Bolsonaro, después de que se filtrara que negoció la financiación de la película con un banquero caído en desgracia.`\
 https://www.nytimes.com/es/2026/07/13/espanol/america-latina/bolsonaro-pelicula-filtracion-hijo-presidencia.html
 
 **How Lindsey Graham’s Journey From Trump Critic to Ally Made Him a Power Player**\
 `He initially called Donald Trump a “kook” who was “unfit for office,” only to join the new president’s Mar-a-Lago circle. “I’m still in the game,” Mr. Graham once explained of his much-analyzed turnabout.`\
 https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-donald-trump.html
 
-**Judge Denounces I.R.S. Suit as Improper Exercise in Self-Dealing**\
-`The decision did not explicitly kill the deal that President Trump had worked out with his own government to receive what amounted to amnesty from investigations into tax returns that he, his family and their businesses have already filed.`\
+**Judge Denounces Trump’s I.R.S. Suit as Improper Exercise in Self-Dealing**\
+`The decision also recommended disciplinary action against the lawyers involved, including the acting attorney general, Todd Blanche.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
 
 **The Fed’s Christopher Waller Warns of Higher Rates if Inflation Stays High**\
