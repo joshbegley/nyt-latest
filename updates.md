@@ -1,3 +1,7 @@
+**Fire in Bangkok Bar Kills Dozens**\
+`The rapid blaze sent people fleeing into the bathroom to hide, officials said. Their bodies were found there, raising questions about fire safety standards.`\
+https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
+
 **What Is an Aortic Dissection?**\
 `The condition that killed Senator Lindsey Graham is deadly, sudden and difficult to treat — “like a knife to the back,” one expert said.`\
 https://www.nytimes.com/2026/07/12/science/lindsey-graham-aortic-dissection.html
