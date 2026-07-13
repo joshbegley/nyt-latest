@@ -1,3 +1,19 @@
+**Fed Official Warns of Higher Rates if Inflation Stays Elevated**\
+`Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
+https://www.nytimes.com/2026/07/13/business/fed-official-warns-of-higher-rates-if-inflation-stays-elevated.html
+
+**D.O.J. Turns Over Evidence in Minnesota Shootings by Immigration Agents**\
+`Investigators had for months refused to share information with their state counterparts about three shootings involving federal agents.`\
+https://www.nytimes.com/2026/07/13/us/minnesota-ice-shootings-evidence-pretti-renee-good.html
+
+**A Sweet Surprise: Scientists Find Sugar Deep in Our Galaxy**\
+`It’s the first time a sugar molecule has been detected in interstellar space. The discovery provides tantalizing new clues into how life may have arisen on Earth.`\
+https://www.nytimes.com/2026/07/13/science/space/sugar-milky-way.html
+
+**The Tears, the Songs and the Memories**\
+`Readers respond to an Opinion guest essay by Roger Rosenblatt about why we cry. Also: Abortion prosecutions; Presidents Trump and Nixon.`\
+https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
+
 **Appeals Court Revives Lawsuits Tying Tylenol Use in Pregnancy to Autism and A.D.H.D.**\
 `A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html

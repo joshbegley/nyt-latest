@@ -1,3 +1,19 @@
+**Fed Official Warns of Higher Rates if Inflation Stays Elevated**\
+`Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
+https://www.nytimes.com/2026/07/13/business/fed-official-warns-of-higher-rates-if-inflation-stays-elevated.html
+
+**D.O.J. Turns Over Evidence in Minnesota Shootings by Immigration Agents**\
+`Investigators had for months refused to share information with their state counterparts about three shootings involving federal agents.`\
+https://www.nytimes.com/2026/07/13/us/minnesota-ice-shootings-evidence-pretti-renee-good.html
+
+**A Sweet Surprise: Scientists Find Sugar Deep in Our Galaxy**\
+`It’s the first time a sugar molecule has been detected in interstellar space. The discovery provides tantalizing new clues into how life may have arisen on Earth.`\
+https://www.nytimes.com/2026/07/13/science/space/sugar-milky-way.html
+
+**The Tears, the Songs and the Memories**\
+`Readers respond to an Opinion guest essay by Roger Rosenblatt about why we cry. Also: Abortion prosecutions; Presidents Trump and Nixon.`\
+https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
+
 **Appeals Court Revives Lawsuits Tying Tylenol Use in Pregnancy to Autism and A.D.H.D.**\
 `A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/07/13/us/lindsey-graham-sister-darline-nordone.html
 **Lindsey Graham Had a Complicated Relationship With Black Voters**\
 `Mr. Graham, a long-serving senator from South Carolina, was known for his ability to maintain relationships even with his political foes. But the support of Black voters remained elusive.`\
 https://www.nytimes.com/2026/07/13/us/lindsey-graham-black-voters.html
-
-**Mercurial and Magnetic, Lindsey Graham Was a Force in the Senate**\
-`The sharp-witted South Carolinian repaired relations with President Trump to advance his foreign policy goals, was willing to cut deals with Democrats and tried to insert himself into every legislative fight.`\
-https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-senate-force.html
-
-**Maine Democrats to Chuck Schumer: Stay Out of Our Senate Race**\
-`Local Democrats are warning the top Senate Democrat to keep away as they replace Graham Platner, and the candidates are giving his leadership in Washington low marks.`\
-https://www.nytimes.com/2026/07/13/us/politics/maine-democrats-schumer-stay-out-senate-race.html
-
-**I Teach at an Elite College and I Inflate Grades. Help Me.**\
-`Easy A’s are an easy out.`\
-https://www.nytimes.com/2026/07/13/opinion/college-grade-inflation.html
-
-**How a Family of 5 Lives on $46,000 a Year in Wakefield**\
-`After a career spent working primarily as a teacher’s assistant, Glennys Torres and her family took a risk starting a new business.`\
-https://www.nytimes.com/interactive/2026/07/13/nyregion/nyc-budgeting-affordability-torres.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
