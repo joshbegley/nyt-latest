@@ -1,8 +1,12 @@
-**Iranian hard-liners threaten Trump as U.S.-Iran strikes continue**\
-`Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
-https://www.nytimes.com/2026/07/13/world/middleeast/iranian-hard-liners-escalate-threats-against-us-and-trump.html
+**U.K. links Iran to antisemitic attacks, calls IRGC terrorist group**\
+`The designation gives the government additional national security powers to tackle foreign threats under a new law.`\
+https://www.nytimes.com/2026/07/13/world/europe/uk-links-iran-to-wave-of-antisemitic-attacks-calls-irgc-terrorist-organization.html
 
-**Counterterrorism Police Take Over Investigation Into U.K. Lawmaker’s Death**\
+**Iranian Hard-Liners Threaten Trump as U.S.-Iran Strikes Continue**\
+`Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/iran-hard-liners-threats-trump-us.html
+
+**UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
 `The police said new information and evidence had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
 https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
 
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-pres
 https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-war.html
 
 **Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
-`Sam Neill, the versatile New Zealand actor who portrayed Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
+`Sam Neill, the versatile New Zealand actor who played Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
 https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
 
 **Heat Waves in Europe Linked to Thousands of Excess Deaths**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/13/books/review/catch-the-devil-pamela-colloff.h
 **In Turning to Trade School, Gen Z Confronts an Enduring Stigma**\
 `Gen Z is increasingly turning to trade schools in hopes of future-proofing their careers against A.I. But getting their parents and peers on board can be a challenge.`\
 https://www.nytimes.com/2026/07/13/style/gen-z-trade-school-careers-ai-college.html
-
-**A Robot Army Remakes Ground Warfare in Ukraine**\
-`They began as supply mules. Now ground robots evacuate the wounded, hold trenches and even do the killing.`\
-https://www.nytimes.com/2026/07/13/world/europe/ukraine-ground-robots.html
 
 **Live Updates: U.S. and Iran Ramp Up Threats After New Strikes**\
 `President Trump claimed that the United States would seek to take control of the Strait of Hormuz, hours after Iranian officials called for revenge for the killing of Ayatollah Ali Khamenei. The heated rhetoric came after both sides launched fresh attacks, pushing the cease-fire closer to collapse.`\

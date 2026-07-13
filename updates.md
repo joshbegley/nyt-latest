@@ -1,3 +1,19 @@
+**U.K. links Iran to antisemitic attacks, calls IRGC terrorist group**\
+`The designation gives the government additional national security powers to tackle foreign threats under a new law.`\
+https://www.nytimes.com/2026/07/13/world/europe/uk-links-iran-to-wave-of-antisemitic-attacks-calls-irgc-terrorist-organization.html
+
+**Iranian Hard-Liners Threaten Trump as U.S.-Iran Strikes Continue**\
+`Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/iran-hard-liners-threats-trump-us.html
+
+**UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
+`The police said new information and evidence had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
+https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
+
+**Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
+`Sam Neill, the versatile New Zealand actor who played Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
+https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
+
 **Iranian hard-liners threaten Trump as U.S.-Iran strikes continue**\
 `Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/iranian-hard-liners-escalate-threats-against-us-and-trump.html
