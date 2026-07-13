@@ -1,3 +1,7 @@
+**U.A.W. President Says He’s the Victim of ‘Bogus Allegations’**\
+`A grand jury is investigating whether Shawn Fain used his position to seek favors for his fiancée and retaliated against the union official who denied them.`\
+https://www.nytimes.com/2026/07/12/business/uaw-shawn-fain-investigation.html
+
 **‘House of the Dragon’ Season 3, Episode 4 Recap: Heavy Is the Head**\
 `In her attempts to establish order, Rhaenyra is already alienating some of her most vital allies, including the Sea Snake.`\
 https://www.nytimes.com/2026/07/12/arts/television/house-of-the-dragon-recap-season-3-episode-4.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/opinion/fitness-influencer-manosphere-health.
 **Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
 `A fresh round of attacks by the U.S. on Sunday was the latest volley in a familiar pattern of back-and-forth strikes fueled by disputes over the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
-
-**Hard-Liners in Iran Want to Keep Fighting America**\
-`With much of their leadership killed in the war, Iran’s conservatives have sought to fill the void and intensify the fight against the United States.`\
-https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-liners.html
 
