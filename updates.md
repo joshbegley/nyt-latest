@@ -1,3 +1,15 @@
+**Paramount-Warner Bros. Merger Is Challenged in Court by California and 11 Other States**\
+`The lawsuit, filed by California and 11 other states, argues that the deal would harm movie theaters and damage America’s entertainment industry.`\
+https://www.nytimes.com/2026/07/13/business/paramount-warner-bros-lawsuit.html
+
+**¿Qué es una disección aórtica?**\
+`La enfermedad que le costó la vida al senador Lindsey Graham es mortal, repentina y difícil de tratar.`\
+https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/diseccion-aortica-que-es-aorta-corazon.html
+
+**Another Heat Wave Brings Unbearable Temperatures to Parts of the U.S.**\
+`Salt Lake City reached its highest temperature ever recorded this weekend.`\
+https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
+
 **Another Heat Wave Brings Unbearable Temperatures to Much of the U.S.**\
 `Salt Lake City reached its highest temperature ever recorded this weekend.`\
 https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html

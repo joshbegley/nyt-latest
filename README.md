@@ -1,3 +1,7 @@
+**Maine Authorities Investigate a Fatal Shooting Involving Federal Agents**\
+`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has been conducting a surge of immigration enforcement.`\
+https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
+
 **Paramount-Warner Bros. Merger Is Challenged in Court by California and 11 Other States**\
 `The lawsuit, filed by California and 11 other states, argues that the deal would harm movie theaters and damage America’s entertainment industry.`\
 https://www.nytimes.com/2026/07/13/business/paramount-warner-bros-lawsuit.html
@@ -99,7 +103,7 @@ https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widd
 https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-presidential-campaign.html
 
 **Strait of Hormuz Ship Traffic Falls to Lowest Point in a Month After Strikes**\
-`Shipping activity plummeted after Iran attacked a ship, setting off U.S. strikes. Little crude oil is being transported through the critical waterway.`\
+`Shipping activity in the critical waterway has plunged after Iran attacked a vessel, setting off U.S. strikes. President Trump said he would reinstate a blockade of Iranian ports.`\
 https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-war.html
 
 **Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/07/13/nyregion/nyc-budgeting-affordabil
 **Inside Israel’s Secret Operation to Cultivate Ahmadinejad**\
 `The yearslong effort to groom the former Iranian president as an intelligence asset culminated in a dramatic effort to take him to an Israeli safe house in the early days of the war. But the plan fell apart.`\
 https://www.nytimes.com/2026/07/13/us/politics/israel-mahmoud-ahmadinejad-iran.html
-
-**Book Review: ‘It Will Come Back to You,’ by Sigrid Nunez**\
-`Her first collection of short fiction, “It Will Come Back to You,” is threaded with erudition but never pretentious.`\
-https://www.nytimes.com/2026/07/13/books/review/sigrid-nunez-it-will-come-back-to-you.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
