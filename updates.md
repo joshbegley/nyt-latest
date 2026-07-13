@@ -1,3 +1,11 @@
+**The Viceroy of Venezuela**\
+`We look into who’s really running the country.`\
+https://www.nytimes.com/2026/07/13/briefing/the-viceroy-of-venezuela.html
+
+**Live Updates: Iran Ramps Up Threats as It Retaliates Against U.S. Strikes**\
+`Senior Iranian officials called for revenge against the United States and Israel for killing the late supreme leader, Ayatollah Ali Khamenei, as a new exchange of attacks pushed the region into deeper uncertainty.`\
+https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
+
 **Lindsey Graham’s Unexpected Death, and How Marco Rubio Is Running Venezuela**\
 `Plus, Sam Neill of “Jurassic Park” fame dies at 78.`\
 https://www.nytimes.com/2026/07/13/podcasts/the-headlines/lindsey-graham-death-marco-rubio-venezuela-sam-neill.html
