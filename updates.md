@@ -1,3 +1,7 @@
+**Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
+`The U.S. military said that it had hit dozens of Iranian targets in its latest salvo. Iran’s army said that it had fired more drones at American military sites in the region, as the two sides tussle over the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
+
 **It’s the Scent of Manure to Most, but ‘the Smell of Money’ to Them**\
 `The Netherlands has been trying to figure out what to do with manure it can no longer use thanks to environmental rules. Volatile fertilizer costs may help.`\
 https://www.nytimes.com/2026/07/13/world/europe/its-the-scent-of-manure-to-most-but-the-smell-of-money-to-them.html
