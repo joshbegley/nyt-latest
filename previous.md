@@ -1,3 +1,11 @@
+**Read the Ruling**\
+`A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
+https://www.nytimes.com/interactive/2026/07/13/us/govuscourtsflsd7061721060.html
+
+**La operación secreta de Israel para reclutar a un expresidente iraní**\
+`El esfuerzo de varios años para convertir a Mahmud Ahmadineyad en un agente de inteligencia culminó en una dramática operación para llevarlo a un refugio israelí en los primeros días de la guerra. Pero el plan se vino abajo.`\
+https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/israel-iran-cambio-regimen.html
+
 **U.K. to Change Law to Allow Deportation of ‘Grooming Gang’ Leader**\
 `The British government on Monday laid out steps enabling the deportation to Pakistan of Shabir Ahmed, the leader of a gang that raped dozens of girls in Northern England.`\
 https://www.nytimes.com/2026/07/13/world/europe/uk-deportation-law-change-grooming-gang.html
@@ -67,7 +75,7 @@ https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
 
 **Authorities Investigate Fatal Shooting in Biddeford, Maine, Involving Federal Agents**\
-`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has been conducting a surge of immigration enforcement.`\
+`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has stepped up immigration enforcement nationally in recent weeks.`\
 https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
 
 **Paramount-Warner Bros. Merger Is Challenged in Court by California and 11 Other States**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/13/world/europe/heat-europe-excess-death-fire.ht
 **Wall Street’s Big Week for Earnings and Economic Data**\
 `Earnings season kicks off in earnest on Tuesday with big banks up first. Corporate America faces a high bar to beat investor expectations.`\
 https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
-
-**¿Qué tan saludables son los pepinos?**\
-`No es que sean precisamente una fuente de nutrientes. Pero te contamos por qué, de todas formas, a los nutricionistas les encantan.`\
-https://www.nytimes.com/es/2026/07/13/espanol/pepinos-son-saludables.html
-
-**Live Updates: U.S. and Iran Edge Toward War Again**\
-`After more escalatory rhetoric and attacks, President Trump said the United States was renewing its shipping blockade of Iranian ports, and would charge a 20 percent fee on goods passing through the Strait of Hormuz.`\
-https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
 

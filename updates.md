@@ -1,3 +1,15 @@
+**Read the Ruling**\
+`A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
+https://www.nytimes.com/interactive/2026/07/13/us/govuscourtsflsd7061721060.html
+
+**La operación secreta de Israel para reclutar a un expresidente iraní**\
+`El esfuerzo de varios años para convertir a Mahmud Ahmadineyad en un agente de inteligencia culminó en una dramática operación para llevarlo a un refugio israelí en los primeros días de la guerra. Pero el plan se vino abajo.`\
+https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/israel-iran-cambio-regimen.html
+
+**Authorities Investigate Fatal Shooting in Biddeford, Maine, Involving Federal Agents**\
+`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has stepped up immigration enforcement nationally in recent weeks.`\
+https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
+
 **U.K. to Change Law to Allow Deportation of ‘Grooming Gang’ Leader**\
 `The British government on Monday laid out steps enabling the deportation to Pakistan of Shabir Ahmed, the leader of a gang that raped dozens of girls in Northern England.`\
 https://www.nytimes.com/2026/07/13/world/europe/uk-deportation-law-change-grooming-gang.html
