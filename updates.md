@@ -1,3 +1,7 @@
+**Economists Warn of A.I. Threat**\
+`Nearly 200 economists signed a letter calling for policymakers to do more to understand and respond to potential A.I. disruptions.`\
+https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
+
 **Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
 `He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
 https://www.nytimes.com/2026/07/13/movies/sam-neill-dead.html
