@@ -1,3 +1,23 @@
+**Why Are Grocery Store Prices So High**\
+`Motivated to keep prices low, the general manager of a food co-op in Pittsburgh tells us how the store is navigating the steep costs.`\
+https://www.nytimes.com/2026/07/13/podcasts/the-daily/grocery-store-prices-high-inflation.html
+
+**NYT Connections Answers for July 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/13/crosswords/connections-companion-1129.html
+
+**NYT Strands Hints for July 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/13/crosswords/strands-sidekick-863.html
+
+**Today’s Wordle Hints for July 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/13/crosswords/wordle-review-1851.html
+
+**Europe Takes Step Toward Possible Social Media Ban for Children**\
+`After the release of a new report, the European Commission is considering changing the rules across the 27-nation bloc.`\
+https://www.nytimes.com/2026/07/13/technology/europe-teen-social-media-ban.html
+
 **Lebanese Hold Fast to Their Land Despite Threat of Long Israeli Occupation**\
 `Entire towns in southern Lebanon have been hollowed out by the war between Israel and Hezbollah. Some residents have stayed, fearing permanent displacement.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/lebanon-south-israel.html
