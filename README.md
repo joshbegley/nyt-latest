@@ -1,3 +1,7 @@
+**Jay-Z Concert Delay Leaves Thousands Stuck Outside Yankee Stadium**\
+`Thousands of ticket holders were stuck outside Yankee Stadium for hours after people without tickets stormed the stadium’s entrances, delaying Jay-Z’s performance.`\
+https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stadium-delay.html
+
 **For 35 Years, Undocumented, and Chasing the American Dream**\
 `Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
 https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/13/world/middleeast/iran-hard-liners-threats-tru
 **UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
 `The police said new information had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
 https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
-
-**A Brazilian Biopic About Jair Bolsonaro Is Threatening His Son’s Presidential Campaign**\
-`A Brazilian biopic about Jair Bolsonaro has upended his son Flávio Bolsonaro’s presidential hopes after leaks showed he negotiated money for the film with a disgraced banker.`\
-https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-presidential-campaign.html
 
