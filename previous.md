@@ -1,3 +1,11 @@
+**U.K. to Change Law to Allow Deportation of ‘Grooming Gang’ Leader**\
+`The British government on Monday laid out steps enabling the deportation to Pakistan of Shabir Ahmed, the leader of a gang that raped dozens of girls in Northern England.`\
+https://www.nytimes.com/2026/07/13/world/europe/uk-deportation-law-change-grooming-gang.html
+
+**In a First, U.S. Forces Used Naval Drones in Combat Operations**\
+`The use of unmanned vessels to attack Iranian naval installations offers new evidence of how drones are taking over modern warfare.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/us-naval-drone-first-attack.html
+
 **Tony Rayns, Who Helped Bring Asian Film to the World, Dies at 77**\
 `In reviews and at festivals, he played a key role in introducing English-speaking audiences to directors like Wong Kar-wai, Jia Zhangke and Bong Joon Ho.`\
 https://www.nytimes.com/2026/07/13/movies/tony-rayns-dead.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
 **¿Qué tan saludables son los pepinos?**\
 `No es que sean precisamente una fuente de nutrientes. Pero te contamos por qué, de todas formas, a los nutricionistas les encantan.`\
 https://www.nytimes.com/es/2026/07/13/espanol/pepinos-son-saludables.html
-
-**El misterio del frío en la oficina: sensores, termostatos y bolsas de aire**\
-`Expertos explican por qué los edificios corporativos siguen siendo demasiado fríos en verano, y cómo los nuevos sistemas de climatización podrían cambiar la experiencia de millones de trabajadores.`\
-https://www.nytimes.com/es/2026/07/13/espanol/negocios/frio-oficina-termostatos-verano.html
-
-**Nearly 200 Economists and Tech Leaders Warn of A.I. Threats**\
-`A letter calls for policymakers to do more to understand and respond to potential disruptions from artificial intelligence.`\
-https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `After more escalatory rhetoric and attacks, President Trump said the United States was renewing its shipping blockade of Iranian ports, and would charge a 20 percent fee on goods passing through the Strait of Hormuz.`\

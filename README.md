@@ -191,6 +191,6 @@ https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
 https://www.nytimes.com/es/2026/07/13/espanol/pepinos-son-saludables.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
-`After more escalatory rhetoric and attacks, President Trump said the United States was renewing its shipping blockade of Iranian ports, and would charge a 20 percent fee on goods passing through the Strait of Hormuz.`\
+`After more escalatory rhetoric and attacks, President Trump said the United States was renewing its shipping blockade of Iranian ports and would charge a 20 percent fee on goods passing through the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
 

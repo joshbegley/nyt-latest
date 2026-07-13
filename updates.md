@@ -1,3 +1,11 @@
+**U.K. to Change Law to Allow Deportation of ‘Grooming Gang’ Leader**\
+`The British government on Monday laid out steps enabling the deportation to Pakistan of Shabir Ahmed, the leader of a gang that raped dozens of girls in Northern England.`\
+https://www.nytimes.com/2026/07/13/world/europe/uk-deportation-law-change-grooming-gang.html
+
+**In a First, U.S. Forces Used Naval Drones in Combat Operations**\
+`The use of unmanned vessels to attack Iranian naval installations offers new evidence of how drones are taking over modern warfare.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/us-naval-drone-first-attack.html
+
 **Tony Rayns, Who Helped Bring Asian Film to the World, Dies at 77**\
 `In reviews and at festivals, he played a key role in introducing English-speaking audiences to directors like Wong Kar-wai, Jia Zhangke and Bong Joon Ho.`\
 https://www.nytimes.com/2026/07/13/movies/tony-rayns-dead.html
