@@ -1,8 +1,12 @@
+**Trump’s Cease-Fire Effectively Collapses as He Vows to Restart Blockade and Tolls**\
+`After several days of strikes, the president notified Congress that fighting had begun again and announced shipping fees that his administration previously deemed illegal.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-iran-ceasefire.html
+
 **Un agente del ICE dispara y mata a un hombre en un operativo migratorio de Maine**\
 `Las autoridades estatales investigan lo ocurrido en Biddeford. Es el segundo tiroteo mortal relacionado con agentes migratorios en menos de una semana.`\
 https://www.nytimes.com/es/2026/07/13/espanol/ice-mata-hombre-colombiano-maine.html
 
-**Witnesses Say ICE Fired Fatal Shot Into Open Passenger Window in Houston**\
+**ICE Shot Lorenzo Salgado Araujo Through Open Passenger Window in Houston, Witnesses Say**\
 `A congresswoman and a lawyer relayed witness accounts that diverge from Immigration and Customs Enforcement’s version of the fatal encounter.`\
 https://www.nytimes.com/2026/07/13/us/houston-ice-shooting-video-witnesses.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolin
 **Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\
 `France’s president, Emmanuel Macron, spoke before a meeting of more than 25 allies in Paris, in a show of support for Ukraine and against Russia.`\
 https://www.nytimes.com/2026/07/13/world/europe/macron-defend-blood-ukraine-europe.html
-
-**Should You Be Polite to A.I.?**\
-`Should you say please and thank you to chatbots? This week on “Hard Fork,” Kevin and Casey talk with professor and A.I. expert Jeff Sebo about why he feels it’s important to be nice to your future robot overlords.`\
-https://www.nytimes.com/video/podcasts/100000011027443/should-you-be-polite-to-ai.html
 
