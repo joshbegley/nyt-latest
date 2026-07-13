@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup
 https://www.nytimes.com/2026/07/12/crosswords/wordle-review-1850.html
 
 **Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
-`A fresh round of attacks by the U.S. on Sunday was the latest volley in a familiar pattern of back-and-forth strikes fueled by disputes over the Strait of Hormuz.`\
+`The U.S. military said that it had hit dozens of Iranian targets in its latest salvo. Iran’s army said that it had fired more drones at American military sites in the region, as the two sides tussle over the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
 
