@@ -1,3 +1,11 @@
+**Tony Rayns, Who Helped Bring Asian Film to the World, Dies at 77**\
+`In reviews and at festivals, he played a key role in introducing English-speaking audiences to directors like Wong Kar-wai, Jia Zhangke and Bong Joon Ho.`\
+https://www.nytimes.com/2026/07/13/movies/tony-rayns-dead.html
+
+**Trump’s Threat to Impose Fees in the Strait of Hormuz Contradicts His Aides**\
+`President Trump said the United States could collect tolls or fees, despite Vice President JD Vance and Secretary of State Marco Rubio saying no country could do so.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-iran-hormuz-fees-vance-rubio.html
+
 **Man Hospitalized After Bison Attack in Yellowstone National Park**\
 `A photographer at Yellowstone National Park captured the moment a charging bull bison tossed a man about eight feet in the air. The animal may have been experiencing a surge of testosterone at the start of the mating season.`\
 https://www.nytimes.com/video/us/100000011027456/bison-yellowstone-national-park-wyoming.html
