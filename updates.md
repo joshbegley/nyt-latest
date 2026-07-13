@@ -1,3 +1,23 @@
+**Judge Denounces I.R.S. Suit as Improper Exercise in Self-Dealing**\
+`The decision did not explicitly kill the deal that President Trump had worked out with his own government to receive what amounted to amnesty from investigations into tax returns that he, his family and their businesses have already filed.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
+
+**Fed Official Warns of Higher Rates if Inflation Stays Elevated**\
+`Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
+https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
+
+**Authorities Investigate Fatal Shooting in Biddeford, Maine, Involving Federal Agents**\
+`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has been conducting a surge of immigration enforcement.`\
+https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
+
+**Women Have Earned Our Menopause Revolution**\
+`A new generation is not willing to settle for being invisible.`\
+https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
+
+**Will Oil Prices Rise as the US-Iran Truce Frays? The Answer Lies With China.**\
+`For decades, OPEC influenced the market by how much oil it produced. But China, the largest importer, is demonstrating its remarkable power over prices.`\
+https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-china.html
+
 **Fed Official Warns of Higher Rates if Inflation Stays Elevated**\
 `Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
 https://www.nytimes.com/2026/07/13/business/fed-official-warns-of-higher-rates-if-inflation-stays-elevated.html

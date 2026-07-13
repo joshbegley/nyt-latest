@@ -1,6 +1,10 @@
+**Judge Denounces I.R.S. Suit as Improper Exercise in Self-Dealing**\
+`The decision did not explicitly kill the deal that President Trump had worked out with his own government to receive what amounted to amnesty from investigations into tax returns that he, his family and their businesses have already filed.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
+
 **Fed Official Warns of Higher Rates if Inflation Stays Elevated**\
 `Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
-https://www.nytimes.com/2026/07/13/business/fed-official-warns-of-higher-rates-if-inflation-stays-elevated.html
+https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
 
 **D.O.J. Turns Over Evidence in Minnesota Shootings by Immigration Agents**\
 `Investigators had for months refused to share information with their state counterparts about three shootings involving federal agents.`\
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
 `A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
 
-**Maine Authorities Investigate a Fatal Shooting Involving Federal Agents**\
+**Authorities Investigate Fatal Shooting in Biddeford, Maine, Involving Federal Agents**\
 `The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has been conducting a surge of immigration enforcement.`\
 https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
 
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/07/13/dining/this-recipe-changed-my-mind-about-orzo
 `Here’s why you should get comfortable leaving your watch at home.`\
 https://www.nytimes.com/2026/07/13/well/move/running-fitness-tracker-watch-data.html
 
-**Welcome to the Golden Age of the Crone**\
+**Women Have Earned Our Menopause Revolution**\
 `A new generation is not willing to settle for being invisible.`\
 https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
 
@@ -98,7 +102,7 @@ https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/muere-lindsey-graha
 `The reopening of the pipeline has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
 https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
 
-**Will Oil Prices Soar as the U.S.-Iran Truce Frays? The Answer Lies With China.**\
+**Will Oil Prices Rise as the US-Iran Truce Frays? The Answer Lies With China.**\
 `For decades, OPEC influenced the market by how much oil it produced. But China, the largest importer, is demonstrating its remarkable power over prices.`\
 https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-china.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/world/middleeast/lebanon-south-israel.html
 **Lindsey Graham’s Sister Darline Nordone Was His Family**\
 `After the senator and his sister, Darline, lost their parents, he guided her through the teenage years and into college. He called her success the highlight of his life.`\
 https://www.nytimes.com/2026/07/13/us/lindsey-graham-sister-darline-nordone.html
-
-**Lindsey Graham Had a Complicated Relationship With Black Voters**\
-`Mr. Graham, a long-serving senator from South Carolina, was known for his ability to maintain relationships even with his political foes. But the support of Black voters remained elusive.`\
-https://www.nytimes.com/2026/07/13/us/lindsey-graham-black-voters.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
