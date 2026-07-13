@@ -1,3 +1,7 @@
+**Heat Waves in Europe Linked to Thousands of Excess Deaths**\
+`While the full toll will take months to calculate, death statistics already look substantial compared with historical averages.`\
+https://www.nytimes.com/2026/07/13/world/europe/heat-europe-excess-death-fire.html
+
 **Nearly 200 Economists and Tech Leaders Warn of A.I. Threats**\
 `Letter calls for policymakers to do more to understand and respond to potential  disruptions from artificial intelligence.`\
 https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
