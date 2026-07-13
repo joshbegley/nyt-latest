@@ -1,3 +1,15 @@
+**The Ridiculous Rise of Victor Marx**\
+`Once started, the process of voter radicalization isn’t easy to modulate.`\
+https://www.nytimes.com/2026/07/13/opinion/victor-marx-colorado-republican.html
+
+**La hermana de Lindsey Graham ocupará el cargo de él en el Senado**\
+`El nombramiento de Darline Graham Nordone ocurrió horas después de que el presidente Donald Trump indicó que la había recomendado para ocupar el puesto de su difunto hermano.`\
+https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/lindsey-graham-hermana-senado.html
+
+**Health Officials in Michigan Identify ‘Potential Source’ of Cyclospora Outbreak**\
+`The illness, which has sickened thousands across much of the United States, is on track to contribute to the largest outbreak in recent history.`\
+https://www.nytimes.com/2026/07/13/well/eat/michigan-cyclospora-outbreak-lettuce-salad-greens.html
+
 **The Dangerous Appeal of Cruelty**\
 `When did politics get so cruel? On “The Opinions,” David French argues that we’ve started confusing cruelty with courage, rewarding politicians who break norms and mistake outrage for strength.`\
 https://www.nytimes.com/video/opinion/100000011019463/the-dangerous-appeal-of-cruelty.html
