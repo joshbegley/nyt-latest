@@ -1,3 +1,11 @@
+**A Brazilian Biopic About Jair Bolsonaro Is Threatening His Son’s Presidential Campaign**\
+`A Brazilian biopic about Jair Bolsonaro has upended his son Flávio Bolsonaro’s presidential hopes after leaks showed he negotiated money for the film with a disgraced banker.`\
+https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-presidential-campaign.html
+
+**Strait of Hormuz Ship Traffic Falls to Lowest Point in a Month After Strikes**\
+`Shipping activity plummeted after Iran attacked a ship, setting off U.S. strikes. Little crude oil is being transported through the critical waterway.`\
+https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-war.html
+
 **Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
 `Sam Neill, the versatile New Zealand actor who portrayed Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
 https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
@@ -186,11 +194,7 @@ https://www.nytimes.com/2026/07/13/well/eat/cucumber-health-benefits.html
 `As flames burst out of the front entrance of a bar in Bangkok, a deadly fire killed dozens of patrons and left many more injured on Sunday night.`\
 https://www.nytimes.com/video/world/asia/100000011026922/bangkok-thailand-fire.html
 
-**Live Updates: Iran Ramps Up Threats as It Retaliates Against U.S. Strikes**\
-`Senior Iranian officials called for revenge against the United States and Israel for killing the late supreme leader, Ayatollah Ali Khamenei, as a new exchange of attacks pushed the region into deeper uncertainty.`\
+**Live Updates: U.S. and Iran Ramp Up Threats After New Strikes**\
+`President Trump claimed that the United States would seek to take control of the Strait of Hormuz, hours after Iranian officials called for revenge for the killing of Ayatollah Ali Khamenei. The heated rhetoric came after both sides launched fresh attacks, pushing the cease-fire closer to collapse.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
-
-**Jay-Z Concert at Yankee Stadium Is Delayed for Hours**\
-`The rapper apologized to fans when the show began after midnight on Monday, citing crowd safety issues.`\
-https://www.nytimes.com/2026/07/13/nyregion/jay-z-concert-yankee-stadium.html
 
