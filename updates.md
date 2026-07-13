@@ -1,3 +1,11 @@
+**Fire in Bangkok Bar Was a Death Trap With Inaccessible Exits and Flammable Foam**\
+`Huge flames tore out of the entrance to the venue, which one investigator said had used inappropriate material for soundproofing. More than two dozen people died.`\
+https://www.nytimes.com/2026/07/13/world/asia/bangkok-thailand-pub-fire.html
+
+**UK Links Iran to Antisemitic Attacks and Calls IRGC Terrorist Group**\
+`The designation gives the government additional national security powers to tackle foreign threats under a new law.`\
+https://www.nytimes.com/2026/07/13/world/europe/uk-iran-irgc-terrorist-antisemitic-attacks.html
+
 **U.K. links Iran to antisemitic attacks, calls IRGC terrorist group**\
 `The designation gives the government additional national security powers to tackle foreign threats under a new law.`\
 https://www.nytimes.com/2026/07/13/world/europe/uk-links-iran-to-wave-of-antisemitic-attacks-calls-irgc-terrorist-organization.html
