@@ -1,3 +1,15 @@
+**California Blocked an Oil Pipeline in Santa Barbara. Trump Forced It Open.**\
+`The reopening of the pipeline has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
+https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
+
+**Will Oil Prices Soar as the U.S.-Iran Truce Frays? The Answer Lies With China.**\
+`For decades, OPEC influenced the market by how much oil it produced. But China, the largest importer, is demonstrating its remarkable power over prices.`\
+https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-china.html
+
+**Live Updates: U.S. and Iran Edge Toward War Again**\
+`The two sides exchanged escalatory rhetoric on Monday, hours after fresh attacks pushed the cease-fire closer to collapse.`\
+https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
+
 **Fire in Bangkok Bar Was a Death Trap With Inaccessible Exits and Flammable Foam**\
 `Huge flames tore out of the entrance to the venue, which one investigator said had used inappropriate material for soundproofing. More than two dozen people died.`\
 https://www.nytimes.com/2026/07/13/world/asia/bangkok-thailand-pub-fire.html
