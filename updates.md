@@ -1,4 +1,8 @@
 **Fire in Bangkok Bar Kills Dozens**\
+`The fast-moving blaze sent people fleeing into the bathroom to hide, officials said. Their bodies were found there, raising questions about fire safety standards.`\
+https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
+
+**Fire in Bangkok Bar Kills Dozens**\
 `The rapid blaze sent people fleeing into the bathroom to hide, officials said. Their bodies were found there, raising questions about fire safety standards.`\
 https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
 
