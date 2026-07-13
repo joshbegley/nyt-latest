@@ -1,3 +1,7 @@
+**California Blocked an Oil Pipeline in Santa Barbara. Trump Forced It Open.**\
+`The reopening of the pipeline has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
+https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
+
 **Will Oil Prices Soar as the U.S.-Iran Truce Frays? The Answer Lies With China.**\
 `For decades, OPEC influenced the market by how much oil it produced. But China, the largest importer, is demonstrating its remarkable power over prices.`\
 https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-china.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/2026/07/13/travel/new-roller-coasters-six-flags-universa
 **Culottes Are Cool Again**\
 `The deceptive shorts that look like a skirt were huge in the 1970s. Now they have returned to help solve a number of fashion crises.`\
 https://www.nytimes.com/2026/07/13/style/culottes-long-shorts-trend.html
-
-**Book Review: ‘Aging Out,’ by Lucy Schiller**\
-`From assisted living to elder activism and her own experience as a caregiver, Lucy Schiller investigates aging’s myriad challenges in her first book.`\
-https://www.nytimes.com/2026/07/13/books/review/aging-out-lucy-schiller.html
-
-**There’s an Injury Epidemic in Pro Sports. There’s Also a Recovery Revolution.**\
-`Athletes are pushing their bodies to astonishing feats, knowing that medical advances can heal them quickly.`\
-https://www.nytimes.com/2026/07/13/magazine/theres-an-injury-epidemic-in-pro-sports-theres-also-a-recovery-revolution.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `The two sides exchanged escalatory rhetoric on Monday, hours after fresh attacks pushed the cease-fire closer to collapse.`\
