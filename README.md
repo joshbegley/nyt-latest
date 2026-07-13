@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/07/12/us/shooting-illinois-five-family-members-dead
 `The condition that killed Senator Lindsey Graham is deadly, sudden and difficult to treat — “like a knife to the back,” one expert said.`\
 https://www.nytimes.com/2026/07/12/science/lindsey-graham-aortic-dissection.html
 
-**Fire in Bangkok Bar Kills Dozens**\
-`The fast-moving blaze sent people fleeing into the bathroom to hide, officials said. Their bodies were found there, raising questions about fire safety standards.`\
+**Fire in Bangkok Bar Leaves at Least 27 Dead**\
+`The fast-moving blaze sent people fleeing toward the bathroom to hide, officials said. Their bodies were found there, raising questions about safety standards.`\
 https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
 
 **It Takes Coordination (and Many Arms) to Unfurl a World Cup Flag**\
