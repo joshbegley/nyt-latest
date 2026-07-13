@@ -1,3 +1,7 @@
+**El mundo rompe relaciones con EE. UU. El costo lo pagarán los estadounidenses**\
+`Reducir el riesgo que implican las superpotencias depredadoras es el reto fundamental de muchos países. Ahora el principal motivo de preocupación es Estados Unidos.`\
+https://www.nytimes.com/es/2026/07/13/espanol/opinion/trump-estados-unidos-mundo.html
+
 **Una película ensalza a Jair Bolsonaro. Su hijo paga el precio político**\
 `Un documental sobre el expresidente brasileño ha destrozado las esperanzas presidenciales de su hijo, Flávio Bolsonaro, después de que se filtrara que negoció la financiación de la película con un banquero caído en desgracia.`\
 https://www.nytimes.com/es/2026/07/13/espanol/america-latina/bolsonaro-pelicula-filtracion-hijo-presidencia.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/07/13/crosswords/strands-sidekick-863.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
 https://www.nytimes.com/2026/07/13/crosswords/wordle-review-1851.html
 
-**Europe Takes Step Toward Possible Social Media Ban for Children**\
-`After the release of a new report, the European Commission is considering changing the rules across the 27-nation bloc.`\
-https://www.nytimes.com/2026/07/13/technology/europe-teen-social-media-ban.html
-
 **Live Updates: U.S. and Iran Edge Toward War Again**\
-`President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
+`After more escalatory rhetoric and attacks, President Trump said the United States was renewing its shipping blockade of Iranian ports, and would charge a 20 percent fee on goods passing through the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
 
