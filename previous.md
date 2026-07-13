@@ -1,3 +1,7 @@
+**Muere Sam Neill, protagonista de ‘Parque Jurásico’**\
+`A lo largo de cinco décadas de carrera, participó en más de 150 producciones, aunque quizá se le recuerde sobre todo por su papel protagonista en la saga de los dinosaurios.`\
+https://www.nytimes.com/es/2026/07/13/espanol/cultura/muere-sam-neill-parque-jurasico.html
+
 **Un búnker de Hitler podría ser demolido en un Berlín que necesita viviendas**\
 `La posible demolición del sitio pone de relieve el debate en Alemania entre proteger su patrimonio histórico y hacer frente a la crisis de vivienda.`\
 https://www.nytimes.com/es/2026/07/13/espanol/mundo/hitler-bunker-berlin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-s
 **Cold Plunging**\
 `A writer reflects on the healing powers of trying new things.`\
 https://www.nytimes.com/2026/07/12/briefing/cold-plunging.html
-
-**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/12/us/quake-tracker-southern-california.html
 

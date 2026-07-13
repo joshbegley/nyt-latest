@@ -1,3 +1,7 @@
+**Muere Sam Neill, protagonista de ‘Parque Jurásico’**\
+`A lo largo de cinco décadas de carrera, participó en más de 150 producciones, aunque quizá se le recuerde sobre todo por su papel protagonista en la saga de los dinosaurios.`\
+https://www.nytimes.com/es/2026/07/13/espanol/cultura/muere-sam-neill-parque-jurasico.html
+
 **Un búnker de Hitler podría ser demolido en un Berlín que necesita viviendas**\
 `La posible demolición del sitio pone de relieve el debate en Alemania entre proteger su patrimonio histórico y hacer frente a la crisis de vivienda.`\
 https://www.nytimes.com/es/2026/07/13/espanol/mundo/hitler-bunker-berlin.html
