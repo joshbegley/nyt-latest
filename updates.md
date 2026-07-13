@@ -1,3 +1,15 @@
+**Butter Mochi**\
+`Tender and chewy, this big-batch dessert — as comforting as cake and as fun as bar cookies — is always a hit at parties.`\
+https://www.nytimes.com/video/dining/100000011028589/butter-mochi.html
+
+**A Guide to the Uncanny 2026 Midterm Elections, and How We Got Here**\
+`A lot of things have changed in American politics since our writer went on parental leave.`\
+https://www.nytimes.com/2026/07/13/us/politics/midterms-elections-trump.html
+
+**Lindsey Graham’s Death Transforms the Race for His Democratic Challenger**\
+`Annie Andrews, a pediatrician, has offered condolences to those who loved Mr. Graham while considering the political fallout from his death. Republicans are scrambling to arrange a new primary election.`\
+https://www.nytimes.com/2026/07/13/us/politics/annie-andrews-south-carolina-senate.html
+
 **Europe Hit With Wildfires Amid Heat Waves**\
 `Wildfires have hit countries across Europe, including France and Spain, as heat waves have been thought to be linked to thousands of excess deaths, officials say.`\
 https://www.nytimes.com/video/weather/100000011027302/europe-wildfires-heat-waves-deaths.html

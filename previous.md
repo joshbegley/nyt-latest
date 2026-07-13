@@ -1,8 +1,16 @@
+**Butter Mochi**\
+`Tender and chewy, this big-batch dessert — as comforting as cake and as fun as bar cookies — is always a hit at parties.`\
+https://www.nytimes.com/video/dining/100000011028589/butter-mochi.html
+
+**A Guide to the Uncanny 2026 Midterm Elections, and How We Got Here**\
+`A lot of things have changed in American politics since our writer went on parental leave.`\
+https://www.nytimes.com/2026/07/13/us/politics/midterms-elections-trump.html
+
 **Europe Hit With Wildfires Amid Heat Waves**\
 `Wildfires have hit countries across Europe, including France and Spain, as heat waves have been thought to be linked to thousands of excess deaths, officials say.`\
 https://www.nytimes.com/video/weather/100000011027302/europe-wildfires-heat-waves-deaths.html
 
-**Democratic Senate Candidate in South Carolina Awaits Lindsey Graham’s Successor**\
+**Lindsey Graham’s Death Transforms the Race for His Democratic Challenger**\
 `Annie Andrews, a pediatrician, has offered condolences to those who loved Mr. Graham while considering the political fallout from his death. Republicans are scrambling to arrange a new primary election.`\
 https://www.nytimes.com/2026/07/13/us/politics/annie-andrews-south-carolina-senate.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/well/move/running-fitness-tracker-watch-data.
 **Women Have Earned Our Menopause Revolution**\
 `A new generation is not willing to settle for being invisible.`\
 https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
-
-**Shahrnush Parsipur, Iranian Writer Imprisoned for Her Novels, Dies at 80**\
-`Her best-known work, “Women Without Men,” was longlisted for the International Booker Prize this year.`\
-https://www.nytimes.com/2026/07/13/books/shahrnush-parsipur-dead.html
-
-**Did Australia’s Social Media Ban Fail?**\
-`A new study shows that most Australian teens gained access to social media after the ban took effect last December, leading critics of the law to call it a failure. The “Hard Fork” co-host Casey Newton discusses how it may eventually succeed.`\
-https://www.nytimes.com/video/podcasts/100000011027400/did-australias-social-media-ban-fail.html
 
