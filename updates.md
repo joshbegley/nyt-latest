@@ -1,3 +1,35 @@
+**Lebanese Hold Fast to Their Land Despite Threat of Long Israeli Occupation**\
+`Entire towns in southern Lebanon have been hollowed out by the war between Israel and Hezbollah. Some residents have stayed, fearing permanent displacement.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/lebanon-south-israel.html
+
+**Lindsey Graham’s Sister Darline Nordone Was His Family**\
+`After the senator and his sister, Darline, lost their parents, he guided her through the teenage years and into college. He called her success the highlight of his life.`\
+https://www.nytimes.com/2026/07/13/us/lindsey-graham-sister-darline-nordone.html
+
+**Lindsey Graham Had a Complicated Relationship With Black Voters**\
+`Mr. Graham, a long-serving senator from South Carolina, was known for his ability to maintain relationships even with his political foes. But the support of Black voters remained elusive.`\
+https://www.nytimes.com/2026/07/13/us/lindsey-graham-black-voters.html
+
+**Mercurial and Magnetic, Lindsey Graham Was a Force in the Senate**\
+`The sharp-witted South Carolinian repaired relations with President Trump to advance his foreign policy goals, was willing to cut deals with Democrats and tried to insert himself into every legislative fight.`\
+https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-senate-force.html
+
+**Maine Democrats to Chuck Schumer: Stay Out of Our Senate Race**\
+`Local Democrats are warning the top Senate Democrat to keep away as they replace Graham Platner, and the candidates are giving his leadership in Washington low marks.`\
+https://www.nytimes.com/2026/07/13/us/politics/maine-democrats-schumer-stay-out-senate-race.html
+
+**I Teach at an Elite College and I Inflate Grades. Help Me.**\
+`Easy A’s are an easy out.`\
+https://www.nytimes.com/2026/07/13/opinion/college-grade-inflation.html
+
+**How a Family of 5 Lives on $46,000 a Year in Wakefield**\
+`After a career spent working primarily as a teacher’s assistant, Glennys Torres and her family took a risk starting a new business.`\
+https://www.nytimes.com/interactive/2026/07/13/nyregion/nyc-budgeting-affordability-torres.html
+
+**Inside Israel’s Secret Operation to Cultivate Ahmadinejad**\
+`The yearslong effort to groom the former Iranian president as an intelligence asset culminated in a dramatic effort to take him to an Israeli safe house in the early days of the war. But the plan fell apart.`\
+https://www.nytimes.com/2026/07/13/us/politics/israel-mahmoud-ahmadinejad-iran.html
+
 **Book Review: ‘It Will Come Back to You,’ by Sigrid Nunez**\
 `Her first collection of short fiction, “It Will Come Back to You,” is threaded with erudition but never pretentious.`\
 https://www.nytimes.com/2026/07/13/books/review/sigrid-nunez-it-will-come-back-to-you.html
