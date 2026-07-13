@@ -1,3 +1,7 @@
+**U.A.W. President Says He’s the Victim of ‘Bogus Allegations’**\
+`A grand jury is investigating whether Shawn Fain used his position to seek favors for his fiancée and retaliated against the union official who denied them.`\
+https://www.nytimes.com/2026/07/12/business/uaw-shawn-fain-investigation.html
+
 **Oil Prices Surge After Iran and U.S. Trade Strikes**\
 `The renewed hostilities posed fresh risks to ships seeking to navigate the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/12/business/oil-shipping-iran-hormuz.html
