@@ -1,3 +1,27 @@
+**How a Teacher Revived Backyard Baseball**\
+`Backyard Baseball, a favorite game for 1990s kids, had been off the market for years. But Lindsay Barnett was determined.`\
+https://www.nytimes.com/2026/07/13/style/backyard-baseball-video-game-teacher.html
+
+**U.S. Electric Vehicle Sales are Down but E.V. Chargers are Booming**\
+`Electric vehicle chargers are proliferating in Southern states as fast food restaurants, stores and other businesses try to lure customers.`\
+https://www.nytimes.com/2026/07/13/business/electric-vehicles-charging-stations.html
+
+**This Recipe Changed My Mind About Orzo**\
+`Who knew that cooking it in one pan with browned zucchini and onions and topping it with marinated tomatoes would be so delicious? Melissa Clark, that’s who.`\
+https://www.nytimes.com/2026/07/13/dining/this-recipe-changed-my-mind-about-orzo.html
+
+**Welcome to the Golden Age of the Crone**\
+`A new generation is not willing to settle for being invisible.`\
+https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
+
+**Why You Should Try Running Without a Fitness Tracker**\
+`Here’s why you should get comfortable leaving your watch at home.`\
+https://www.nytimes.com/2026/07/13/well/move/running-fitness-tracker-watch-data.html
+
+**Shahrnush Parsipur, Iranian Writer Imprisoned for Her Novels, Dies at 80**\
+`Her best-known work, “Women Without Men,” was longlisted for the International Booker Prize this year.`\
+https://www.nytimes.com/2026/07/13/books/shahrnush-parsipur-dead.html
+
 **Did Australia’s Social Media Ban Fail?**\
 `A new study shows that most Australian teens gained access to social media after the ban took effect last December, leading critics of the law to call it a failure. The “Hard Fork” co-host Casey Newton discusses how it may eventually succeed.`\
 https://www.nytimes.com/video/podcasts/100000011027400/did-australias-social-media-ban-fail.html
