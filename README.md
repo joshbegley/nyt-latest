@@ -1,3 +1,11 @@
+**A Sweet Surprise: Scientists Find Sugar Deep in Our Galaxy**\
+`It’s the first time a sugar molecule has been detected in interstellar space. The discovery provides tantalizing new clues into how life may have arisen on Earth.`\
+https://www.nytimes.com/2026/07/13/science/space/sugar-milky-way.html
+
+**The Tears, the Songs and the Memories**\
+`Readers respond to an Opinion guest essay by Roger Rosenblatt about why we cry. Also: Abortion prosecutions; Presidents Trump and Nixon.`\
+https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
+
 **Appeals Court Revives Lawsuits Tying Tylenol Use in Pregnancy to Autism and A.D.H.D.**\
 `A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-senate-force.html
 **Maine Democrats to Chuck Schumer: Stay Out of Our Senate Race**\
 `Local Democrats are warning the top Senate Democrat to keep away as they replace Graham Platner, and the candidates are giving his leadership in Washington low marks.`\
 https://www.nytimes.com/2026/07/13/us/politics/maine-democrats-schumer-stay-out-senate-race.html
-
-**I Teach at an Elite College and I Inflate Grades. Help Me.**\
-`Easy A’s are an easy out.`\
-https://www.nytimes.com/2026/07/13/opinion/college-grade-inflation.html
-
-**How a Family of 5 Lives on $46,000 a Year in Wakefield**\
-`After a career spent working primarily as a teacher’s assistant, Glennys Torres and her family took a risk starting a new business.`\
-https://www.nytimes.com/interactive/2026/07/13/nyregion/nyc-budgeting-affordability-torres.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\

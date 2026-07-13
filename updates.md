@@ -1,3 +1,15 @@
+**Appeals Court Revives Lawsuits Tying Tylenol Use in Pregnancy to Autism and A.D.H.D.**\
+`A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
+https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
+
+**Maine Authorities Investigate a Fatal Shooting Involving Federal Agents**\
+`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has been conducting a surge of immigration enforcement.`\
+https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
+
+**Strait of Hormuz Ship Traffic Falls to Lowest Point in a Month After Strikes**\
+`Shipping activity in the critical waterway has plunged after Iran attacked a vessel, setting off U.S. strikes. President Trump said he would reinstate a blockade of Iranian ports.`\
+https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-war.html
+
 **Paramount-Warner Bros. Merger Is Challenged in Court by California and 11 Other States**\
 `The lawsuit, filed by California and 11 other states, argues that the deal would harm movie theaters and damage America’s entertainment industry.`\
 https://www.nytimes.com/2026/07/13/business/paramount-warner-bros-lawsuit.html
