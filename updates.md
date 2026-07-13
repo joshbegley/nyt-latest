@@ -1,3 +1,7 @@
+**Shooting in Southern Illinois Leaves 5 Family Members Dead**\
+`Two other people were wounded. The Illinois State Police said on Sunday that two teenage suspects were in custody.`\
+https://www.nytimes.com/2026/07/12/us/shooting-illinois-five-family-members-dead.html
+
 **‘House of the Dragon’ Season 3, Episode 4 Recap: Heavy Is the Head**\
 `In her attempts to establish order, Rhaenyra is already alienating some of her most vital allies, including the Sea Snake.`\
 https://www.nytimes.com/2026/07/12/arts/television/house-of-the-dragon-recap-season-3-episode-4.html
