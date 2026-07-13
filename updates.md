@@ -1,3 +1,7 @@
+**¿Qué tan saludables son los pepinos?**\
+`No es que sean precisamente una fuente de nutrientes. Pero te contamos por qué, de todas formas, a los nutricionistas les encantan.`\
+https://www.nytimes.com/es/2026/07/13/espanol/pepinos-son-saludables.html
+
 **El misterio del frío en la oficina: sensores, termostatos y bolsas de aire**\
 `Expertos explican por qué los edificios corporativos siguen siendo demasiado fríos en verano, y cómo los nuevos sistemas de climatización podrían cambiar la experiencia de millones de trabajadores.`\
 https://www.nytimes.com/es/2026/07/13/espanol/negocios/frio-oficina-termostatos-verano.html
