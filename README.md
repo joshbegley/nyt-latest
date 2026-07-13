@@ -1,3 +1,7 @@
+**Will Oil Prices Soar as the U.S.-Iran Truce Frays? The Answer Lies With China.**\
+`For decades, OPEC influenced the market by how much oil it produced. But China, the largest importer, is demonstrating its remarkable power over prices.`\
+https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-china.html
+
 **Fire in Bangkok Bar Was a Death Trap With Inaccessible Exits and Flammable Foam**\
 `Huge flames tore out of the entrance to the venue, which one investigator said had used inappropriate material for soundproofing. More than two dozen people died.`\
 https://www.nytimes.com/2026/07/13/world/asia/bangkok-thailand-pub-fire.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/07/13/books/review/aging-out-lucy-schiller.html
 `Athletes are pushing their bodies to astonishing feats, knowing that medical advances can heal them quickly.`\
 https://www.nytimes.com/2026/07/13/magazine/theres-an-injury-epidemic-in-pro-sports-theres-also-a-recovery-revolution.html
 
-**Book Review: ‘Catch the Devil,’ by Pamela Colloff**\
-`In “Catch the Devil,” Pamela Colloff vividly tells the true story of the con man who traded on other prisoners’ “confessions” for clemency.`\
-https://www.nytimes.com/2026/07/13/books/review/catch-the-devil-pamela-colloff.html
-
-**Live Updates: U.S. and Iran Ramp Up Threats After New Strikes**\
-`President Trump claimed that the United States would seek to take control of the Strait of Hormuz, hours after Iranian officials called for revenge for the killing of Ayatollah Ali Khamenei. The heated rhetoric came after both sides launched fresh attacks, pushing the cease-fire closer to collapse.`\
+**Live Updates: U.S. and Iran Edge Toward War Again**\
+`The two sides exchanged escalatory rhetoric on Monday, hours after fresh attacks pushed the cease-fire closer to collapse.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
 
