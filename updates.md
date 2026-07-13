@@ -1,3 +1,15 @@
+**Sam Neill’s Best Movie Performances: Where to Stream**\
+`From his global breakthrough in “Jurassic Park” to the more recent “Peaky Blinders,” the actor’s range was always on display.`\
+https://www.nytimes.com/2026/07/13/movies/sam-neill-movies-streaming.html
+
+**Israel’s Regime-Change Plan for Iran**\
+`Here’s the wild back story behind a failed plan to install Mahmoud Ahmadinejad as Iran’s next leader.`\
+https://www.nytimes.com/2026/07/13/world/iran-israel-ahmadinejad-bangkok-fire.html
+
+**Hungary’s Parliament Votes to Remove Orban Loyalist From Presidential Post**\
+`Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former right-wing leader.`\
+https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
+
 **Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
 `Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former right-wing leader.`\
 https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
