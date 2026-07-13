@@ -1,3 +1,11 @@
+**Man Hospitalized After Bison Attack in Yellowstone National Park**\
+`A photographer at Yellowstone National Park captured the moment a charging bull bison tossed a man about eight feet in the air. The animal may have been experiencing a surge of testosterone at the start of the mating season.`\
+https://www.nytimes.com/video/us/100000011027456/bison-yellowstone-national-park-wyoming.html
+
+**Yemen’s Fragile Peace in Peril as Houthis Accuse Saudi Arabia of Bombing**\
+`The Iran-backed Houthi rebels in Yemen accused Saudi Arabia of striking Yemen’s main international airport in a dispute over an Iranian plane that tried to land in the capital, Sana.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/yemen-houthis-saudi-arabia-iran-war.html
+
 **Trump’s Threat to Impose Fees in the Strait of Hormuz Contradicts His Aides**\
 `President Trump said the United States could collect tolls or fees, despite Vice President JD Vance and Secretary of State Marco Rubio saying no country could do so.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-contradicts-his-aides-on-hormuz.html
