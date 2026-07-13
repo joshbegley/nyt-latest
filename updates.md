@@ -1,3 +1,7 @@
+**Oil Prices Surge After Iran and U.S. Trade Strikes**\
+`The renewed hostilities posed fresh risks to ships seeking to navigate the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/12/business/oil-shipping-iran-hormuz.html
+
 **Shooting in Southern Illinois Leaves 5 Family Members Dead**\
 `Two other people were wounded. The Illinois State Police said on Sunday that two teenage suspects were in custody.`\
 https://www.nytimes.com/2026/07/12/us/shooting-illinois-five-family-members-dead.html
