@@ -1,8 +1,8 @@
-**Iranian hard-liners threaten Trump as U.S.-Iran strikes continue**\
+**Iranian Hard-Liners Threaten Trump as U.S.-Iran Strikes Continue**\
 `Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
-https://www.nytimes.com/2026/07/13/world/middleeast/iranian-hard-liners-escalate-threats-against-us-and-trump.html
+https://www.nytimes.com/2026/07/13/world/middleeast/iran-hard-liners-threats-trump-us.html
 
-**Counterterrorism Police Take Over Investigation Into U.K. Lawmaker’s Death**\
+**UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
 `The police said new information and evidence had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
 https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
 
@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-pres
 https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-war.html
 
 **Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
-`Sam Neill, the versatile New Zealand actor who portrayed Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
+`Sam Neill, the versatile New Zealand actor who played Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
 https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
 
 **Heat Waves in Europe Linked to Thousands of Excess Deaths**\

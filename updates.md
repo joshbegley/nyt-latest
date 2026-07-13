@@ -1,3 +1,11 @@
+**Iranian hard-liners threaten Trump as U.S.-Iran strikes continue**\
+`Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/iranian-hard-liners-escalate-threats-against-us-and-trump.html
+
+**Counterterrorism Police Take Over Investigation Into U.K. Lawmaker’s Death**\
+`The police said new information and evidence had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
+https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
+
 **A Brazilian Biopic About Jair Bolsonaro Is Threatening His Son’s Presidential Campaign**\
 `A Brazilian biopic about Jair Bolsonaro has upended his son Flávio Bolsonaro’s presidential hopes after leaks showed he negotiated money for the film with a disgraced banker.`\
 https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-presidential-campaign.html
