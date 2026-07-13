@@ -1,3 +1,7 @@
+**Lindsey Graham’s Unexpected Death, and How Marco Rubio Is Running Venezuela**\
+`Plus, Sam Neill of “Jurassic Park” fame dies at 78.`\
+https://www.nytimes.com/2026/07/13/podcasts/the-headlines/lindsey-graham-death-marco-rubio-venezuela-sam-neill.html
+
 **Why Are Grocery Store Prices So High**\
 `Motivated to keep prices low, the general manager of a food co-op in Pittsburgh tells us how the store is navigating the steep costs.`\
 https://www.nytimes.com/2026/07/13/podcasts/the-daily/grocery-store-prices-high-inflation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
 **‘Lucky’ and 6 More Shows to Watch on TV this Week**\
 `A new crime thriller comes to Apple TV. And Sean Evans hosts “Hot Ones: Extra Heat.”`\
 https://www.nytimes.com/2026/07/13/arts/television/lucky-and-6-more-shows-to-watch-on-tv-this-week.html
-
-**The World Must Not Forget About the Genocide in Sudan**\
-`The longer the fighting drags on, the greater the chance that regional instability will spread.`\
-https://www.nytimes.com/2026/07/13/opinion/sudan-genocide-atrocities-international.html
 
