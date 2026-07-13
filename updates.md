@@ -1,3 +1,7 @@
+**Wall Street’s Big Week for Earnings and Economic Data**\
+`Earnings season kicks off in earnest on Tuesday with big banks up first. Corporate America faces a high bar to beat investor expectations.`\
+https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
+
 **¿Qué tan saludables son los pepinos?**\
 `No es que sean precisamente una fuente de nutrientes. Pero te contamos por qué, de todas formas, a los nutricionistas les encantan.`\
 https://www.nytimes.com/es/2026/07/13/espanol/pepinos-son-saludables.html

@@ -1,3 +1,7 @@
+**Wall Street’s Big Week for Earnings and Economic Data**\
+`Earnings season kicks off in earnest on Tuesday with big banks up first. Corporate America faces a high bar to beat investor expectations.`\
+https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
+
 **¿Qué tan saludables son los pepinos?**\
 `No es que sean precisamente una fuente de nutrientes. Pero te contamos por qué, de todas formas, a los nutricionistas les encantan.`\
 https://www.nytimes.com/es/2026/07/13/espanol/pepinos-son-saludables.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011026923/lindsey-graham-death-t
 **Muere Sam Neill, protagonista de ‘Parque Jurásico’**\
 `A lo largo de cinco décadas de carrera, participó en más de 150 producciones, aunque quizá se le recuerde sobre todo por su papel protagonista en la saga de los dinosaurios.`\
 https://www.nytimes.com/es/2026/07/13/espanol/cultura/muere-sam-neill-parque-jurasico.html
-
-**Un búnker de Hitler podría ser demolido en un Berlín que necesita viviendas**\
-`La posible demolición del sitio pone de relieve el debate en Alemania entre proteger su patrimonio histórico y hacer frente a la crisis de vivienda.`\
-https://www.nytimes.com/es/2026/07/13/espanol/mundo/hitler-bunker-berlin.html
 
