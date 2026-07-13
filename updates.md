@@ -1,3 +1,11 @@
+**It’s the Scent of Manure to Most, but ‘the Smell of Money’ to Them**\
+`The Netherlands has been trying to figure out what to do with manure it can no longer use thanks to environmental rules. Volatile fertilizer costs may help.`\
+https://www.nytimes.com/2026/07/13/world/europe/its-the-scent-of-manure-to-most-but-the-smell-of-money-to-them.html
+
+**Japan Is Building a New Intelligence Agency With Help From the West**\
+`Facing threats from Russia and China, Prime Minister Sanae Takaichi is breaking with World War II-era limits on security.`\
+https://www.nytimes.com/2026/07/13/world/asia/japan-is-building-a-new-intelligence-agency-with-help-from-the-west.html
+
 **No Corrections: July 13, 2026**\
 `No corrections appeared in print on Monday, July 13, 2026.`\
 https://www.nytimes.com/2026/07/13/corrections/no-corrections-july-13-2026.html
