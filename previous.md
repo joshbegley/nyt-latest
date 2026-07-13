@@ -1,3 +1,7 @@
+**Hamas Forces Interfered With Aid Distribution, U.N. Says**\
+`A raid by armed personnel led the World Food Program to suspend its operations in one part of Gaza, the U.N. said. Hamas disputed the accusations.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/un-says-hamas-forces-interfered-with-aid-distribution-at-a-gaza-site.html
+
 **Trump Reimposes Naval Blockade, as U.S. and Iran Escalate Strikes**\
 `After several days of attacks, Tehran and Washington have effectively reverted to the state of open conflict that existed before the United States and Iran agreed to a cease-fire in June.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/trump-iran-naval-blockade-strikes.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/video/podcasts/100000011028469/would-a-social-media-ban-
 `Thousands of ticket holders were stuck outside Yankee Stadium for hours after people without tickets stormed the stadium’s entrances, delaying Jay-Z’s performance.`\
 https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stadium-delay.html
 
-**For 35 Years, Undocumented, and Chasing the American Dream**\
+**Lorenzo Salgado Araujo Chased the American Dream for 35 Years Before Fatal ICE Shooting**\
 `Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
 https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/muere-lindsey-graha
 **This California Oil Pipeline Was Dormant for 11 Years. Trump Reopened It.**\
 `The move in Santa Barbara by the Trump administration has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
 https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
-
-**Will Oil Prices Rise as the US-Iran Truce Frays? The Answer Lies With China.**\
-`For decades, OPEC influenced the market by how much oil it produced. But China, the largest importer, is demonstrating its remarkable power over prices.`\
-https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-china.html
 

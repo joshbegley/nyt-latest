@@ -1,3 +1,11 @@
+**Hamas Forces Interfered With Aid Distribution, U.N. Says**\
+`A raid by armed personnel led the World Food Program to suspend its operations in one part of Gaza, the U.N. said. Hamas disputed the accusations.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/un-says-hamas-forces-interfered-with-aid-distribution-at-a-gaza-site.html
+
+**Lorenzo Salgado Araujo Chased the American Dream for 35 Years Before Fatal ICE Shooting**\
+`Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
+https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
+
 **Trump Reimposes Naval Blockade, as U.S. and Iran Escalate Strikes**\
 `After several days of attacks, Tehran and Washington have effectively reverted to the state of open conflict that existed before the United States and Iran agreed to a cease-fire in June.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/trump-iran-naval-blockade-strikes.html
