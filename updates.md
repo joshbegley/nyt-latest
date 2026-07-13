@@ -1,3 +1,7 @@
+**Trump’s Threat to Impose Fees in the Strait of Hormuz Contradicts His Aides**\
+`President Trump said the United States could collect tolls or fees, despite Vice President JD Vance and Secretary of State Marco Rubio saying no country could do so.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-contradicts-his-aides-on-hormuz.html
+
 **Trump Administration Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
 `Some tech executives are nervous that the administration’s recent scrutiny of artificial intelligence models could be a prelude to a demand for an ownership stake.`\
 https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
