@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
 `A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
 
-**Authorities Investigate Fatal ICE Shooting in Biddeford, Maine**\
+**ICE Agent Kills Person in Vehicle in Biddeford, Maine, State Officials Say**\
 `The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has stepped up immigration enforcement nationally in recent weeks.`\
 https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
 
