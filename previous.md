@@ -1,3 +1,7 @@
+**10 of the Best Wimbledon 2026 Fashion Moments**\
+`With athletes limited to wearing tennis whites on the court, the best fashion moments — head scarves, double-breasted suits and leather waistcoats — happened in the stands.`\
+https://www.nytimes.com/2026/07/13/style/wimbledon-fashion-outfits-2026-celebrities.html
+
 **Read the Ruling**\
 `A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
 https://www.nytimes.com/interactive/2026/07/13/us/govuscourtsflsd7061721060.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
 `A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
 
-**Authorities Investigate Fatal Shooting in Biddeford, Maine, Involving Federal Agents**\
+**Authorities Investigate Fatal ICE Shooting in Biddeford, Maine**\
 `The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has stepped up immigration enforcement nationally in recent weeks.`\
 https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic
 **Heat Waves in Europe Linked to Thousands of Excess Deaths**\
 `While the full toll will take months to calculate, death statistics already look substantial compared with historical averages.`\
 https://www.nytimes.com/2026/07/13/world/europe/heat-europe-excess-death-fire.html
-
-**Wall Street’s Big Week for Earnings and Economic Data**\
-`Earnings season kicks off in earnest on Tuesday with big banks up first. Corporate America faces a high bar to beat investor expectations.`\
-https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
 
