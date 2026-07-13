@@ -1,3 +1,7 @@
+**Butter Mochi**\
+`Tender and chewy, this big-batch dessert — as comforting as cake and as fun as bar cookies — is always a hit at parties.`\
+https://www.nytimes.com/video/dining/100000011028589/butter-mochi.html
+
 **A Guide to the Uncanny 2026 Midterm Elections, and How We Got Here**\
 `A lot of things have changed in American politics since our writer went on parental leave.`\
 https://www.nytimes.com/2026/07/13/us/politics/midterms-elections-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/well/move/running-fitness-tracker-watch-data.
 **Women Have Earned Our Menopause Revolution**\
 `A new generation is not willing to settle for being invisible.`\
 https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
-
-**Shahrnush Parsipur, Iranian Writer Imprisoned for Her Novels, Dies at 80**\
-`Her best-known work, “Women Without Men,” was longlisted for the International Booker Prize this year.`\
-https://www.nytimes.com/2026/07/13/books/shahrnush-parsipur-dead.html
 
