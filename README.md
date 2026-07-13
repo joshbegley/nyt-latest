@@ -196,5 +196,5 @@ https://www.nytimes.com/2026/07/13/nyregion/open-primaries-ny-bloomberg-mamdani.
 
 **Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
 `He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
-https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
+https://www.nytimes.com/2026/07/13/movies/sam-neill-dead.html
 
