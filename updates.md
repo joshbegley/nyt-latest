@@ -1,3 +1,7 @@
+**Trump Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
+`Some tech executives are nervous that recent scrutiny of artificial intelligence models could be a prelude to a demand by the Trump administration for an ownership stake.`\
+https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
+
 **Conflict Over Iranian Planes Imperils Yemen’s Fragile Peace**\
 `The Iran-backed Houthi rebels in Yemen accused Saudi Arabia of striking an airport in the Yemeni capital, Sana. The escalation came after a dispute over an Iranian plane that carried Houthi officials to Tehran.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/yemen-houthis-saudi-arabia-iran-war.html
