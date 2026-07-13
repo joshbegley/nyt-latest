@@ -1,3 +1,7 @@
+**Live Updates: Iran Insists It Controls Strait of Hormuz as It Launches New Strikes**\
+`The Iranian military said it had fired at U.S. targets across the Persian Gulf as the two sides engaged in another day of hostilities. President Trump on Sunday denied Iran’s claim to have closed the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
+
 **Jay-Z Concert at Yankee Stadium Is Delayed for Hours**\
 `The rapper apologized to fans when the show began after midnight on Monday, citing crowd safety issues.`\
 https://www.nytimes.com/2026/07/13/nyregion/jay-z-concert-yankee-stadium.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/12/world/europe/messi-argentina-world-cup-empty-
 **The Summeriest Skillet Pork Chops, Courtesy of Ali Slagle**\
 `And the fettuccine Alfredo my teenager makes over and over.`\
 https://www.nytimes.com/2026/07/12/dining/the-summeriest-skillet-pork-chops-courtesy-of-ali-slagle.html
-
-**The Burdens and Benefits of Big Families**\
-`Readers respond to “Life Is Better With Siblings,” an Opinion guest essay by Catherine Ruth Pakaluk.`\
-https://www.nytimes.com/2026/07/12/opinion/siblings-big-families.html
 
