@@ -1,3 +1,7 @@
+**Heat Waves in Europe Linked to Thousands of Excess Deaths**\
+`While the full toll will take months to calculate, death statistics already look substantial compared with historical averages.`\
+https://www.nytimes.com/2026/07/13/world/europe/heat-europe-excess-death-fire.html
+
 **Wall Street’s Big Week for Earnings and Economic Data**\
 `Earnings season kicks off in earnest on Tuesday with big banks up first. Corporate America faces a high bar to beat investor expectations.`\
 https://www.nytimes.com/2026/07/13/business/dealbook/wall-street-earnings.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/13/nyregion/jay-z-concert-yankee-stadium.html
 **Tributes to Lindsey Graham Pour In**\
 `Colleagues, world leaders and constituents remembered Senator Lindsey Graham, who died on Saturday, for his commitment to South Carolina and U.S. foreign policy.`\
 https://www.nytimes.com/video/us/politics/100000011026923/lindsey-graham-death-tributes.html
-
-**Muere Sam Neill, protagonista de ‘Parque Jurásico’**\
-`A lo largo de cinco décadas de carrera, participó en más de 150 producciones, aunque quizá se le recuerde sobre todo por su papel protagonista en la saga de los dinosaurios.`\
-https://www.nytimes.com/es/2026/07/13/espanol/cultura/muere-sam-neill-parque-jurasico.html
 
