@@ -1,3 +1,7 @@
+**Japan Is Building a New Intelligence Agency With Help From the West**\
+`Facing threats from Russia and China, Prime Minister Sanae Takaichi is breaking with World War II-era limits on security.`\
+https://www.nytimes.com/2026/07/13/world/asia/japan-intelligence-agency.html
+
 **Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
 `The U.S. military said that it had hit dozens of Iranian targets in its latest salvo. Iran’s army said that it had fired more drones at American military sites in the region, as the two sides tussle over the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
