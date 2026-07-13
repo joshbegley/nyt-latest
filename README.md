@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/07/12/us/world-cup-giant-flags.html
 `The Republican senator denied that he had suffered a heart attack and said he had left the hospital and moved to a physical rehabilitation center. He did not give a timetable for returning to Capitol Hill.`\
 https://www.nytimes.com/2026/07/12/us/politics/mitch-mcconnell-fall-hospitalized-statement.html
 
-**Oil Rises After Weekend of Back-and-Forth Strikes by U.S. and Iran**\
+**Oil Prices Surge After Iran and U.S. Trade Strikes**\
 `The renewed hostilities posed fresh risks to ships seeking to navigate the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/12/business/oil-shipping-iran-hormuz.html
 
