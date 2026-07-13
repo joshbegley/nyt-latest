@@ -1,3 +1,15 @@
+**The Ridiculous Rise of Victor Marx**\
+`Once started, the process of voter radicalization isn’t easy to modulate.`\
+https://www.nytimes.com/2026/07/13/opinion/victor-marx-colorado-republican.html
+
+**La hermana de Lindsey Graham ocupará el cargo de él en el Senado**\
+`El nombramiento de Darline Graham Nordone ocurrió horas después de que el presidente Donald Trump indicó que la había recomendado para ocupar el puesto de su difunto hermano.`\
+https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/lindsey-graham-hermana-senado.html
+
+**Health Officials in Michigan Identify ‘Potential Source’ of Cyclospora Outbreak**\
+`The illness, which has sickened thousands across much of the United States, is on track to contribute to the largest outbreak in recent history.`\
+https://www.nytimes.com/2026/07/13/well/eat/michigan-cyclospora-outbreak-lettuce-salad-greens.html
+
 **The Dangerous Appeal of Cruelty**\
 `When did politics get so cruel? On “The Opinions,” David French argues that we’ve started confusing cruelty with courage, rewarding politicians who break norms and mistake outrage for strength.`\
 https://www.nytimes.com/video/opinion/100000011019463/the-dangerous-appeal-of-cruelty.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
 **Appeals Court Revives Lawsuits Tying Tylenol Use in Pregnancy to Autism and A.D.H.D.**\
 `A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
-
-**ICE Agent Kills Person in Vehicle in Biddeford, Maine, State Officials Say**\
-`The shooting occurred in Biddeford, south of Portland. It was the second death in a week involving an Immigration and Customs Enforcement agent firing into a vehicle.`\
-https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
-
-**Paramount-Warner Bros. Merger Is Challenged in Court by California and 11 Other States**\
-`The lawsuit, filed by California and 11 other states, argues that the deal would harm movie theaters and damage America’s entertainment industry.`\
-https://www.nytimes.com/2026/07/13/business/paramount-warner-bros-lawsuit.html
-
-**¿Qué es una disección aórtica?**\
-`La enfermedad que le costó la vida al senador Lindsey Graham es mortal, repentina y difícil de tratar.`\
-https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/diseccion-aortica-que-es-aorta-corazon.html
 
