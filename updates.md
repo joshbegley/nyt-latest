@@ -1,3 +1,7 @@
+**Read the Judge’s Ruling on Trump’s IRS Lawsuit**\
+`A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
+https://www.nytimes.com/interactive/2026/07/13/us/judge-ruling-trump-irs-lawsuit.html
+
 **Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
 `Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former far-right leader.`\
 https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
