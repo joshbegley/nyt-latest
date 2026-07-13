@@ -1,3 +1,7 @@
+**Appeals Court Revives Lawsuits Tying Tylenol Use in Pregnancy to Autism and A.D.H.D.**\
+`A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
+https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
+
 **Maine Authorities Investigate a Fatal Shooting Involving Federal Agents**\
 `The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has been conducting a surge of immigration enforcement.`\
 https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/opinion/college-grade-inflation.html
 **How a Family of 5 Lives on $46,000 a Year in Wakefield**\
 `After a career spent working primarily as a teacher’s assistant, Glennys Torres and her family took a risk starting a new business.`\
 https://www.nytimes.com/interactive/2026/07/13/nyregion/nyc-budgeting-affordability-torres.html
-
-**Inside Israel’s Secret Operation to Cultivate Ahmadinejad**\
-`The yearslong effort to groom the former Iranian president as an intelligence asset culminated in a dramatic effort to take him to an Israeli safe house in the early days of the war. But the plan fell apart.`\
-https://www.nytimes.com/2026/07/13/us/politics/israel-mahmoud-ahmadinejad-iran.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
