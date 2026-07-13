@@ -1,3 +1,11 @@
+**‘Lucky’ and 6 More Shows to Watch on TV this Week**\
+`A new crime thriller comes to Apple TV. And Sean Evans hosts “Hot Ones: Extra Heat.”`\
+https://www.nytimes.com/2026/07/13/arts/television/lucky-and-6-more-shows-to-watch-on-tv-this-week.html
+
+**The World Must Not Forget About the Genocide in Sudan**\
+`The longer the fighting drags on, the greater the chance that regional instability will spread.`\
+https://www.nytimes.com/2026/07/13/opinion/sudan-genocide-atrocities-international.html
+
 **Japan Is Building a New Intelligence Agency With Help From the West**\
 `Facing threats from Russia and China, Prime Minister Sanae Takaichi is breaking with World War II-era limits on security.`\
 https://www.nytimes.com/2026/07/13/world/asia/japan-intelligence-agency.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
 **Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
 `Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
 https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
-
-**The City That Never Sleeps Suits Up to Play Late-Night Soccer**\
-`A pilot program invites people to play soccer under the lights overnight for the duration of the World Cup. The fields have seen no shortage of action.`\
-https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup.html
-
-**Today’s Wordle Hints for July 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
-https://www.nytimes.com/2026/07/12/crosswords/wordle-review-1850.html
 
 **Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
 `The U.S. military said that it had hit dozens of Iranian targets in its latest salvo. Iran’s army said that it had fired more drones at American military sites in the region, as the two sides tussle over the Strait of Hormuz.`\
