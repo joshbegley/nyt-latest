@@ -1,3 +1,7 @@
+**Live Updates: U.S. and Iran Edge Toward War Again**\
+`President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
+https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
+
 **California Blocked an Oil Pipeline in Santa Barbara. Trump Forced It Open.**\
 `The reopening of the pipeline has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
 https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html

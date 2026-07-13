@@ -191,6 +191,6 @@ https://www.nytimes.com/2026/07/13/travel/new-roller-coasters-six-flags-universa
 https://www.nytimes.com/2026/07/13/style/culottes-long-shorts-trend.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
-`The two sides exchanged escalatory rhetoric on Monday, hours after fresh attacks pushed the cease-fire closer to collapse.`\
+`President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
 
