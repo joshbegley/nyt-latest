@@ -1,3 +1,11 @@
+**The Best Hairbrushes, and How to Clean Them**\
+`Expert advice on choosing — and caring for — one of the hardest-working beauty tools.`\
+https://www.nytimes.com/2026/07/13/t-magazine/best-hairbrush-how-to-clean.html
+
+**Corn and Miso Pasta Salad**\
+`The interplay between the crunch of the celery, the chew of the pasta and the pop of the corn kernels makes this (potentially vegan) pasta salad a textural pleasure to eat.`\
+https://www.nytimes.com/video/dining/100000011028611/corn-and-miso-pasta-salad.html
+
 **Butter Mochi**\
 `Tender and chewy, this big-batch dessert — as comforting as cake and as fun as bar cookies — is always a hit at parties.`\
 https://www.nytimes.com/video/dining/100000011028589/butter-mochi.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/business/electric-vehicles-charging-stations.
 **This Recipe Changed My Mind About Orzo**\
 `Who knew that cooking it in one pan with browned zucchini and onions and topping it with marinated tomatoes would be so delicious? Melissa Clark, that’s who.`\
 https://www.nytimes.com/2026/07/13/dining/this-recipe-changed-my-mind-about-orzo.html
-
-**Why You Should Try Running Without a Fitness Tracker**\
-`Here’s why you should get comfortable leaving your watch at home.`\
-https://www.nytimes.com/2026/07/13/well/move/running-fitness-tracker-watch-data.html
-
-**Women Have Earned Our Menopause Revolution**\
-`A new generation is not willing to settle for being invisible.`\
-https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
 
