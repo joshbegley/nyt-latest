@@ -1,3 +1,7 @@
+**Iranian hard-liners threaten Trump as U.S.-Iran strikes continue**\
+`Some Iranians are calling for revenge against President Trump and Prime Minister Benjamin Netanyahu of Israel for the February killing the country’s supreme leader.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/iranian-hard-liners-escalate-threats-against-us-and-trump.html
+
 **Counterterrorism Police Take Over Investigation Into U.K. Lawmaker’s Death**\
 `The police said new information and evidence had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
 https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/13/style/gen-z-trade-school-careers-ai-college.h
 **A Robot Army Remakes Ground Warfare in Ukraine**\
 `They began as supply mules. Now ground robots evacuate the wounded, hold trenches and even do the killing.`\
 https://www.nytimes.com/2026/07/13/world/europe/ukraine-ground-robots.html
-
-**How Healthy Are Cucumbers?**\
-`They’re not exactly packed with nutrition. Here’s why dietitians love them anyway.`\
-https://www.nytimes.com/2026/07/13/well/eat/cucumber-health-benefits.html
 
 **Live Updates: U.S. and Iran Ramp Up Threats After New Strikes**\
 `President Trump claimed that the United States would seek to take control of the Strait of Hormuz, hours after Iranian officials called for revenge for the killing of Ayatollah Ali Khamenei. The heated rhetoric came after both sides launched fresh attacks, pushing the cease-fire closer to collapse.`\
