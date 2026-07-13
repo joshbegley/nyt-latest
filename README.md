@@ -1,3 +1,7 @@
+**Trump Reimposes Naval Blockade, as U.S. and Iran Escalate Strikes**\
+`After several days of attacks, Tehran and Washington have effectively reverted to the state of open conflict that existed before the United States and Iran agreed to a cease-fire in June.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/trump-iran-naval-blockade-strikes.html
+
 **Ed King, 89, Scarred Veteran of Mississippi’s Civil Rights Struggle, Dies**\
 `A minister disfigured in an attack on his life, he became what one historian called “the most visible white activist in the Mississippi movement.”`\
 https://www.nytimes.com/2026/07/13/us/ed-king-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
 **Will Oil Prices Rise as the US-Iran Truce Frays? The Answer Lies With China.**\
 `For decades, OPEC influenced the market by how much oil it produced. But China, the largest importer, is demonstrating its remarkable power over prices.`\
 https://www.nytimes.com/2026/07/13/business/energy-environment/oil-prices-iran-china.html
-
-**Fire in Bangkok Bar Was a Death Trap With Inaccessible Exits and Flammable Foam**\
-`Huge flames tore out of the entrance to the venue, which one investigator said had used inappropriate material for soundproofing. More than two dozen people died.`\
-https://www.nytimes.com/2026/07/13/world/asia/bangkok-thailand-pub-fire.html
 
