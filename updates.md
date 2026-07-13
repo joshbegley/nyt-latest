@@ -1,3 +1,7 @@
+**Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
+`He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
+https://www.nytimes.com/2026/07/13/movies/sam-neill-dead.html
+
 **The Viceroy of Venezuela**\
 `We look into who’s really running the country.`\
 https://www.nytimes.com/2026/07/13/briefing/the-viceroy-of-venezuela.html

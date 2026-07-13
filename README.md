@@ -1,3 +1,7 @@
+**Economists Warn of A.I. Threat**\
+`Nearly 200 economists signed a letter calling for policymakers to do more to understand and respond to potential A.I. disruptions.`\
+https://www.nytimes.com/2026/07/13/business/economists-ai-threat-jobs.html
+
 **The Viceroy of Venezuela**\
 `We look into who’s really running the country.`\
 https://www.nytimes.com/2026/07/13/briefing/the-viceroy-of-venezuela.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/nyregion/brooklyn-housing-development-floodin
 **Civics Groups Are at Odds With Mamdani Over Push for Open Primaries**\
 `If a new effort to persuade voters to change New York City’s closed primary system gains steam, a potential showdown between its backers and the mayor awaits.`\
 https://www.nytimes.com/2026/07/13/nyregion/open-primaries-ny-bloomberg-mamdani.html
-
-**Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
-`He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
-https://www.nytimes.com/2026/07/13/movies/sam-neill-dead.html
 
