@@ -1,3 +1,11 @@
+**The Dangerous Appeal of Cruelty**\
+`When did politics get so cruel? On “The Opinions,” David French argues that we’ve started confusing cruelty with courage, rewarding politicians who break norms and mistake outrage for strength.`\
+https://www.nytimes.com/video/opinion/100000011019463/the-dangerous-appeal-of-cruelty.html
+
+**Are Fears of American Gerontocracy Fair?**\
+`Donald Trump. Mitch McConnell. American politics is once again grappling with the realities of aging leadership. On “The Opinions,” David Wallace-Wells argues that the United States has become a gerontocracy — and that as leaders stay in power longer, concerns about their health, transparency and ability to govern become harder to ignore.`\
+https://www.nytimes.com/video/opinion/100000011027782/are-fears-of-american-gerontocracy-fair.html
+
 **Trump’s Strait of Hormuz Fee Could Double the Cost of Shipping**\
 `The potential expense of a 20 percent charge to move oil and other goods through the strait has stirred concern among shippers.`\
 https://www.nytimes.com/2026/07/13/business/trump-hormuz-shipping-fee.html
