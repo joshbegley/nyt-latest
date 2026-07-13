@@ -1,3 +1,7 @@
+**UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
+`The police said new information had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
+https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
+
 **Cómo Trump no logró asegurar el estrecho de Ormuz en su acuerdo con Irán**\
 `El presidente de EE. UU. firmó un acuerdo que, según Irán, daba a los iraníes el control de esa vía navegable. Ahora, su ejército está imponiendo su autoridad a la fuerza.`\
 https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html

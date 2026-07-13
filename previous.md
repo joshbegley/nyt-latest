@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/07/13/world/europe/uk-iran-irgc-terrorist-antisemit
 https://www.nytimes.com/2026/07/13/world/middleeast/iran-hard-liners-threats-trump-us.html
 
 **UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
-`The police said new information and evidence had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
+`The police said new information had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
 https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
 
 **A Brazilian Biopic About Jair Bolsonaro Is Threatening His Son’s Presidential Campaign**\
