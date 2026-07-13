@@ -1,3 +1,7 @@
+**Sam Neill, New Zealand Screen Actor and Leading Man, Dies at 78**\
+`He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
+https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
+
 **‘Lucky’ and 6 More Shows to Watch on TV this Week**\
 `A new crime thriller comes to Apple TV. And Sean Evans hosts “Hot Ones: Extra Heat.”`\
 https://www.nytimes.com/2026/07/13/arts/television/lucky-and-6-more-shows-to-watch-on-tv-this-week.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
 **Trump’s Corruption Stains, From Texas to Maine**\
 `Something is wrong if vice is all them and virtue is all you.`\
 https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
-
-**Madeline Miller and Emily Wilson Tell Us What Is Epic About the ‘Odyssey’**\
-`Before the movie’s release, the writers Madeline Miller and Emily Wilson discuss why Homer’s poem remains a thrilling, swashbuckling masterpiece.`\
-https://www.nytimes.com/2026/07/12/podcasts/the-daily/whats-epic-about-the-odyssey-everything.html
 
 **Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
 `The U.S. military said that it had hit dozens of Iranian targets in its latest salvo. Iran’s army said that it had fired more drones at American military sites in the region, as the two sides tussle over the Strait of Hormuz.`\
