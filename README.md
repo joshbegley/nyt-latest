@@ -1,3 +1,19 @@
+**Un búnker de Hitler podría ser demolido en un Berlín que necesita viviendas**\
+`La posible demolición del sitio pone de relieve el debate en Alemania entre proteger su patrimonio histórico y hacer frente a la crisis de vivienda.`\
+https://www.nytimes.com/es/2026/07/13/espanol/mundo/hitler-bunker-berlin.html
+
+**NYT Spelling Bee Answers for July 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/13/crosswords/spelling-bee-forum.html
+
+**Housing or Flood Protection? In Brooklyn, Housing Is Winning.**\
+`A towering apartment development has been approved for the waterfront, even though some residents would have preferred parkland.`\
+https://www.nytimes.com/2026/07/13/nyregion/brooklyn-housing-development-flooding.html
+
+**Civics Groups Are at Odds With Mamdani Over Push for Open Primaries**\
+`If a new effort to persuade voters to change New York City’s closed primary system gains steam, a potential showdown between its backers and the mayor awaits.`\
+https://www.nytimes.com/2026/07/13/nyregion/open-primaries-ny-bloomberg-mamdani.html
+
 **Sam Neill, New Zealand Screen Actor and Leading Man, Dies at 78**\
 `He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
 https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/12/briefing/cold-plunging.html
 **Map: 4.1-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/12/us/quake-tracker-southern-california.html
-
-**U.K. Police Make New Arrest in Killing of Ex-Lawmaker**\
-`A 28-year-old man was detained on Saturday in connection with the death of Ann Widdecombe, a former Parliament member, the police said. Another man arrested on Friday was later released.`\
-https://www.nytimes.com/2026/07/12/world/europe/ann-widdecombe-arrest-uk.html
-
-**Leaders From Home and Abroad Remember Senator Lindsey Graham**\
-`Mr. Graham’s unexpected death on Saturday prompted a wave of tributes for an outsize and often divisive figure in U.S. foreign policy.`\
-https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-world-react.html
-
-**Trump’s Corruption Stains, From Texas to Maine**\
-`Something is wrong if vice is all them and virtue is all you.`\
-https://www.nytimes.com/2026/07/12/opinion/paxton-talarico-platner-trump.html
-
-**Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
-`The U.S. military said that it had hit dozens of Iranian targets in its latest salvo. Iran’s army said that it had fired more drones at American military sites in the region, as the two sides tussle over the Strait of Hormuz.`\
-https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
 
