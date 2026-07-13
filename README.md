@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/07/13/nyregion/brooklyn-housing-development-floodin
 `If a new effort to persuade voters to change New York City’s closed primary system gains steam, a potential showdown between its backers and the mayor awaits.`\
 https://www.nytimes.com/2026/07/13/nyregion/open-primaries-ny-bloomberg-mamdani.html
 
-**Sam Neill, New Zealand Screen Actor and Leading Man, Dies at 78**\
+**Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
 `He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
 https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
 
