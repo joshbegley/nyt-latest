@@ -1,3 +1,7 @@
+**Trump’s Strait of Hormuz Fee Could Double the Cost of Shipping**\
+`The potential expense of a 20 percent charge to move oil and other goods through the strait has stirred concern among shippers.`\
+https://www.nytimes.com/2026/07/13/business/trump-hormuz-shipping-fee.html
+
 **Texas Faces Days and Days of Heavy Rain**\
 `Meteorologists with the National Weather Service called the forecast “bleak” and warned that some spots could record up to 10 inches of rain this week.`\
 https://www.nytimes.com/2026/07/13/weather/texas-rain-forecast-flooding.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
 **Cómo Trump no logró asegurar el estrecho de Ormuz en su acuerdo con Irán**\
 `El presidente de EE. UU. firmó un acuerdo que, según Irán, daba a los iraníes el control de esa vía navegable. Ahora, su ejército está imponiendo su autoridad a la fuerza.`\
 https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html
-
-**Lindsey Graham’s Sister Appointed to Finish His Senate Term After Trump’s Backing**\
-`Gov. Henry McMaster of South Carolina named Darline Graham Nordone to replace Mr. Graham, who died on Saturday.`\
-https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
 
