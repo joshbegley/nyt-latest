@@ -1,3 +1,7 @@
+**The Viceroy of Venezuela**\
+`We look into who’s really running the country.`\
+https://www.nytimes.com/2026/07/13/briefing/the-viceroy-of-venezuela.html
+
 **Lindsey Graham’s Unexpected Death, and How Marco Rubio Is Running Venezuela**\
 `Plus, Sam Neill of “Jurassic Park” fame dies at 78.`\
 https://www.nytimes.com/2026/07/13/podcasts/the-headlines/lindsey-graham-death-marco-rubio-venezuela-sam-neill.html
@@ -158,8 +162,8 @@ https://www.nytimes.com/2026/07/13/well/eat/cucumber-health-benefits.html
 `As flames burst out of the front entrance of a bar in Bangkok, a deadly fire killed dozens of patrons and left many more injured on Sunday night.`\
 https://www.nytimes.com/video/world/asia/100000011026922/bangkok-thailand-fire.html
 
-**Live Updates: Iran Insists It Controls Strait of Hormuz as It Launches New Strikes**\
-`The Iranian military said it had fired at U.S. targets across the Persian Gulf as the two sides engaged in another day of hostilities. President Trump on Sunday denied Iran’s claim to have closed the Strait of Hormuz.`\
+**Live Updates: Iran Ramps Up Threats as It Retaliates Against U.S. Strikes**\
+`Senior Iranian officials called for revenge against the United States and Israel for killing the late supreme leader, Ayatollah Ali Khamenei, as a new exchange of attacks pushed the region into deeper uncertainty.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
 
 **Jay-Z Concert at Yankee Stadium Is Delayed for Hours**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/nyregion/open-primaries-ny-bloomberg-mamdani.
 **Sam Neill, New Zealand Actor Known for ‘Jurassic Park,’ Dies at 78**\
 `He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
 https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
-
-**‘Lucky’ and 6 More Shows to Watch on TV this Week**\
-`A new crime thriller comes to Apple TV. And Sean Evans hosts “Hot Ones: Extra Heat.”`\
-https://www.nytimes.com/2026/07/13/arts/television/lucky-and-6-more-shows-to-watch-on-tv-this-week.html
 
