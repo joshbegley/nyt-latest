@@ -1,3 +1,11 @@
+**It’s the Scent of Manure to Most, but ‘the Smell of Money’ to Them**\
+`The Netherlands has been trying to figure out what to do with manure it can no longer use thanks to environmental rules. Volatile fertilizer costs may help.`\
+https://www.nytimes.com/2026/07/13/world/europe/its-the-scent-of-manure-to-most-but-the-smell-of-money-to-them.html
+
+**Japan Is Building a New Intelligence Agency With Help From the West**\
+`Facing threats from Russia and China, Prime Minister Sanae Takaichi is breaking with World War II-era limits on security.`\
+https://www.nytimes.com/2026/07/13/world/asia/japan-is-building-a-new-intelligence-agency-with-help-from-the-west.html
+
 **No Corrections: July 13, 2026**\
 `No corrections appeared in print on Monday, July 13, 2026.`\
 https://www.nytimes.com/2026/07/13/corrections/no-corrections-july-13-2026.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/12/nyregion/new-york-city-night-soccer-world-cup
 **Today’s Wordle Hints for July 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
 https://www.nytimes.com/2026/07/12/crosswords/wordle-review-1850.html
-
-**NYT Connections Answers for July 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
-https://www.nytimes.com/2026/07/12/crosswords/connections-companion-1128.html
-
-**NYT Strands Hints for July 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 13, 2026.`\
-https://www.nytimes.com/2026/07/12/crosswords/strands-sidekick-862.html
 
 **Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again**\
 `A fresh round of attacks by the U.S. on Sunday was the latest volley in a familiar pattern of back-and-forth strikes fueled by disputes over the Strait of Hormuz.`\

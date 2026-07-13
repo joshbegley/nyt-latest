@@ -1,3 +1,19 @@
+**No Corrections: July 13, 2026**\
+`No corrections appeared in print on Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/13/corrections/no-corrections-july-13-2026.html
+
+**Why Young People in China Are Buying Feelings**\
+`Young people in China are increasingly anxious about the future and spending on feel-good experiences and products that provide “emotional value.” A companion hiker and cosplayer show what it’s like to be part of this booming consumer market.`\
+https://www.nytimes.com/video/world/asia/100000010988376/china-emotional-value.html
+
+**Quote of the Day: A Newly Declassified Trove Underwhelms a U.F.O. Capital**\
+`Quotation of the Day for Monday, July 13, 2026.`\
+https://www.nytimes.com/2026/07/13/pageoneplus/quote-of-the-day-a-newly-declassified-trove-underwhelms-a-ufo-capital.html
+
+**Fire in Bangkok Bar Leaves at Least 27 Dead**\
+`The fast-moving blaze sent people fleeing toward the bathroom to hide, officials said. Their bodies were found there, raising questions about safety standards.`\
+https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
+
 **U.A.W. President Says He’s the Victim of ‘Bogus Allegations’**\
 `A grand jury is investigating whether Shawn Fain used his position to seek favors for his fiancée and retaliated against the union official who denied them.`\
 https://www.nytimes.com/2026/07/12/business/uaw-shawn-fain-investigation.html
