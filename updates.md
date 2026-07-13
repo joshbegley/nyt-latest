@@ -1,3 +1,7 @@
+**The Fed’s Christopher Waller Warns of Higher Rates Soon if Inflation Stays High**\
+`Christopher J. Waller, a governor at the Federal Reserve, said he needed to see several months of lower inflation data to feel confident about the outlook.`\
+https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
+
 **Labels for Music Created With A.I. Could Join Explicit Lyrics Warnings**\
 `Major music industry groups, including the organization behind the Grammy Awards, have proposed labels for tracks made with some degree of artificial intelligence.`\
 https://www.nytimes.com/2026/07/13/arts/music/ai-labels-warnings-riaa.html

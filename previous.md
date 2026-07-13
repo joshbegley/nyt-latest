@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-donald-trump
 `The decision also recommended disciplinary action against the lawyers involved, including the acting attorney general, Todd Blanche.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
 
-**The Fed’s Christopher Waller Warns of Higher Rates if Inflation Stays High**\
-`Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
+**The Fed’s Christopher Waller Warns of Higher Rates Soon if Inflation Stays High**\
+`Christopher J. Waller, a governor at the Federal Reserve, said he needed to see several months of lower inflation data to feel confident about the outlook.`\
 https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
 
 **D.O.J. Turns Over Evidence in Minnesota D.H.S. Shootings**\
