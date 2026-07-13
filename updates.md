@@ -1,3 +1,11 @@
+**‘Lucky’ and 6 More Shows to Watch on TV this Week**\
+`A new crime thriller comes to Apple TV. And Sean Evans hosts “Hot Ones: Extra Heat.”`\
+https://www.nytimes.com/2026/07/13/arts/television/lucky-and-6-more-shows-to-watch-on-tv-this-week.html
+
+**The World Must Not Forget About the Genocide in Sudan**\
+`The longer the fighting drags on, the greater the chance that regional instability will spread.`\
+https://www.nytimes.com/2026/07/13/opinion/sudan-genocide-atrocities-international.html
+
 **Japan Is Building a New Intelligence Agency With Help From the West**\
 `Facing threats from Russia and China, Prime Minister Sanae Takaichi is breaking with World War II-era limits on security.`\
 https://www.nytimes.com/2026/07/13/world/asia/japan-intelligence-agency.html
