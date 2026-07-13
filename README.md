@@ -1,3 +1,11 @@
+**Europe Hit With Wildfires Amid Heat Waves**\
+`Wildfires have hit countries across Europe, including France and Spain, as heat waves have been thought to be linked to thousands of excess deaths, officials say.`\
+https://www.nytimes.com/video/weather/100000011027302/europe-wildfires-heat-waves-deaths.html
+
+**Democratic Senate Candidate in South Carolina Awaits Lindsey Graham’s Successor**\
+`Annie Andrews, a pediatrician, has offered condolences to those who loved Mr. Graham while considering the political fallout from his death. Republicans are scrambling to arrange a new primary election.`\
+https://www.nytimes.com/2026/07/13/us/politics/annie-andrews-south-carolina-senate.html
+
 **Sam Neill’s Best Movie Performances: Where to Stream**\
 `From his global breakthrough in “Jurassic Park” to the more recent “Peaky Blinders,” the actor’s range was always on display.`\
 https://www.nytimes.com/2026/07/13/movies/sam-neill-movies-streaming.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/books/shahrnush-parsipur-dead.html
 **Did Australia’s Social Media Ban Fail?**\
 `A new study shows that most Australian teens gained access to social media after the ban took effect last December, leading critics of the law to call it a failure. The “Hard Fork” co-host Casey Newton discusses how it may eventually succeed.`\
 https://www.nytimes.com/video/podcasts/100000011027400/did-australias-social-media-ban-fail.html
-
-**Jay-Z Yankee Stadium Review: Three Nights of Legacy and Guest Stars**\
-`The rap mogul convened his starriest collaborators, showed off his still-dazzling skills and made a convincing argument for his singular legacy.`\
-https://www.nytimes.com/2026/07/13/arts/music/jayz-review-yankee-stadium-concerts.html
-
-**Muere el senador Lyndsey Graham: lo que hay que saber**\
-`El senador por Carolina del Sur falleció días después de cumplir 71 años, justo cuando buscaba un quinto mandato.`\
-https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/muere-lindsey-graham.html
 
