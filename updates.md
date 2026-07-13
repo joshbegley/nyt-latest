@@ -1,3 +1,19 @@
+**Un búnker de Hitler podría ser demolido en un Berlín que necesita viviendas**\
+`La posible demolición del sitio pone de relieve el debate en Alemania entre proteger su patrimonio histórico y hacer frente a la crisis de vivienda.`\
+https://www.nytimes.com/es/2026/07/13/espanol/mundo/hitler-bunker-berlin.html
+
+**NYT Spelling Bee Answers for July 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/13/crosswords/spelling-bee-forum.html
+
+**Housing or Flood Protection? In Brooklyn, Housing Is Winning.**\
+`A towering apartment development has been approved for the waterfront, even though some residents would have preferred parkland.`\
+https://www.nytimes.com/2026/07/13/nyregion/brooklyn-housing-development-flooding.html
+
+**Civics Groups Are at Odds With Mamdani Over Push for Open Primaries**\
+`If a new effort to persuade voters to change New York City’s closed primary system gains steam, a potential showdown between its backers and the mayor awaits.`\
+https://www.nytimes.com/2026/07/13/nyregion/open-primaries-ny-bloomberg-mamdani.html
+
 **Sam Neill, New Zealand Screen Actor and Leading Man, Dies at 78**\
 `He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
 https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
