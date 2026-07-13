@@ -1,3 +1,7 @@
+**Jay-Z Concert at Yankee Stadium Is Delayed for Hours**\
+`The rapper apologized to fans when the show began after midnight on Monday, citing crowd safety issues.`\
+https://www.nytimes.com/2026/07/13/nyregion/jay-z-concert-yankee-stadium.html
+
 **Tributes to Lindsey Graham Pour In**\
 `Colleagues, world leaders and constituents remembered Senator Lindsey Graham, who died on Saturday, for his commitment to South Carolina and U.S. foreign policy.`\
 https://www.nytimes.com/video/us/politics/100000011026923/lindsey-graham-death-tributes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/12/dining/the-summeriest-skillet-pork-chops-cour
 **The Burdens and Benefits of Big Families**\
 `Readers respond to “Life Is Better With Siblings,” an Opinion guest essay by Catherine Ruth Pakaluk.`\
 https://www.nytimes.com/2026/07/12/opinion/siblings-big-families.html
-
-**Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
-`The senator’s death triggers an Aug. 11 special Republican primary election, and South Carolina’s governor can appoint a replacement to serve out the remaining term, through early January.`\
-https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
 
