@@ -1,3 +1,7 @@
+**Labels for Music Created With A.I. Could Join Explicit Lyrics Warnings**\
+`Major music industry groups, including the organization behind the Grammy Awards, have proposed labels for tracks made with some degree of artificial intelligence.`\
+https://www.nytimes.com/2026/07/13/arts/music/ai-labels-warnings-riaa.html
+
 **Trump Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
 `Some tech executives are nervous that recent scrutiny of artificial intelligence models could be a prelude to a demand by the Trump administration for an ownership stake.`\
 https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/podcasts/the-headlines/lindsey-graham-death-m
 **Why Are Grocery Store Prices So High**\
 `Motivated to keep prices low, the general manager of a food co-op in Pittsburgh tells us how the store is navigating the steep costs.`\
 https://www.nytimes.com/2026/07/13/podcasts/the-daily/grocery-store-prices-high-inflation.html
-
-**NYT Connections Answers for July 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 14, 2026.`\
-https://www.nytimes.com/2026/07/13/crosswords/connections-companion-1129.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `After more escalatory rhetoric and attacks, President Trump said the United States was renewing its shipping blockade of Iranian ports, and would charge a 20 percent fee on goods passing through the Strait of Hormuz.`\
