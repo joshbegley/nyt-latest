@@ -1,3 +1,7 @@
+**Cómo Trump no logró asegurar el estrecho de Ormuz en su acuerdo con Irán**\
+`El presidente de EE. UU. firmó un acuerdo que, según Irán, daba a los iraníes el control de esa vía navegable. Ahora, su ejército está imponiendo su autoridad a la fuerza.`\
+https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html
+
 **Trump Backs Lindsey Graham’s Sister to Finish His Senate Term in South Carolina**\
 `Gov. Henry McMaster of South Carolina will name a replacement for Senator Lindsey Graham, who died on Saturday.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/us/politics/supreme-court-security-budget-tes
 **When Chicken Nuggets Aren’t Just Chicken Nuggets**\
 `Fancy stores in the Hamptons are stocking nuggets and tenders for adults and are sometimes serving them with caviar.`\
 https://www.nytimes.com/2026/07/13/nyregion/when-chicken-nuggets-arent-just-chicken-nuggets.html
-
-**A Murder Mystery Evening at Audrey Gelman’s Guesthouse**\
-`At her Hudson Valley guesthouse, Audrey Gelman, a co-founder of the Wing, channels her childlike love of play with murder mystery evenings.`\
-https://www.nytimes.com/2026/07/13/arts/murder-mystery-audrey-gelman-wing.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
