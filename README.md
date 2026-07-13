@@ -1,12 +1,16 @@
+**How Lindsey Graham’s Journey From Trump Critic to Ally Made Him a Power Player**\
+`He initially called Donald Trump a “kook” who was “unfit for office,” only to join the new president’s Mar-a-Lago circle. “I’m still in the game,” Mr. Graham once explained of his much-analyzed turnabout.`\
+https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-donald-trump.html
+
 **Judge Denounces I.R.S. Suit as Improper Exercise in Self-Dealing**\
 `The decision did not explicitly kill the deal that President Trump had worked out with his own government to receive what amounted to amnesty from investigations into tax returns that he, his family and their businesses have already filed.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
 
-**Fed Official Warns of Higher Rates if Inflation Stays Elevated**\
+**The Fed’s Christopher Waller Warns of Higher Rates if Inflation Stays High**\
 `Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
 https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
 
-**D.O.J. Turns Over Evidence in Minnesota Shootings by Immigration Agents**\
+**D.O.J. Turns Over Evidence in Minnesota D.H.S. Shootings**\
 `Investigators had for months refused to share information with their state counterparts about three shootings involving federal agents.`\
 https://www.nytimes.com/2026/07/13/us/minnesota-ice-shootings-evidence-pretti-renee-good.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/technology/europe-teen-social-media-ban.html
 **Lebanese Hold Fast to Their Land Despite Threat of Long Israeli Occupation**\
 `Entire towns in southern Lebanon have been hollowed out by the war between Israel and Hezbollah. Some residents have stayed, fearing permanent displacement.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/lebanon-south-israel.html
-
-**Lindsey Graham’s Sister Darline Nordone Was His Family**\
-`After the senator and his sister, Darline, lost their parents, he guided her through the teenage years and into college. He called her success the highlight of his life.`\
-https://www.nytimes.com/2026/07/13/us/lindsey-graham-sister-darline-nordone.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
