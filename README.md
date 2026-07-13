@@ -1,3 +1,7 @@
+**Muere el senador Lyndsey Graham: lo que hay que saber**\
+`El senador por Carolina del Sur falleció días después de cumplir 71 años, justo cuando buscaba un quinto mandato.`\
+https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/muere-lindsey-graham.html
+
 **California Blocked an Oil Pipeline in Santa Barbara. Trump Forced It Open.**\
 `The reopening of the pipeline has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
 https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/business/world-cup-transportation-wealthy.htm
 **5 New Roller Coasters to Make You Scream This Summer**\
 `Let the adrenaline flow on coasters that will shoot you high in the air, spin you around and turn you upside down. You’ll definitely want a second ride.`\
 https://www.nytimes.com/2026/07/13/travel/new-roller-coasters-six-flags-universal-legoland.html
-
-**Culottes Are Cool Again**\
-`The deceptive shorts that look like a skirt were huge in the 1970s. Now they have returned to help solve a number of fashion crises.`\
-https://www.nytimes.com/2026/07/13/style/culottes-long-shorts-trend.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
