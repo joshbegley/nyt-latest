@@ -1,3 +1,11 @@
+**Democratic Senate Candidates in Maine Denounce Deadly ICE Shooting**\
+`The killing of a man in Biddeford quickly became an issue in the Senate race, with Democrats aiming to tie Senator Susan Collins to President Trump’s immigration crackdown.`\
+https://www.nytimes.com/2026/07/13/us/politics/maine-ice-shooting-senate-graham-platner.html
+
+**South Carolina Governor Appoints Lindsey Graham’s Sister to Finish Senate Term**\
+`Gov. Henry McMaster of South Carolina appointed Senator Lindsey Graham’s sister, Darline Graham Nordone, to finish his Senate term.`\
+https://www.nytimes.com/video/us/politics/100000011028488/lindsey-graham-sister-senate-replacement.html
+
 **The Ridiculous Rise of Victor Marx**\
 `Once started, the process of voter radicalization isn’t easy to modulate.`\
 https://www.nytimes.com/2026/07/13/opinion/victor-marx-colorado-republican.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/us/minnesota-ice-shootings-evidence-pretti-re
 **A Sweet Surprise: Scientists Find Sugar Deep in Our Galaxy**\
 `It’s the first time a sugar molecule has been detected in interstellar space. The discovery provides tantalizing new clues into how life may have arisen on Earth.`\
 https://www.nytimes.com/2026/07/13/science/space/sugar-milky-way.html
-
-**The Tears, the Songs and the Memories**\
-`Readers respond to an Opinion guest essay by Roger Rosenblatt about why we cry. Also: Abortion prosecutions; Presidents Trump and Nixon.`\
-https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
-
-**Appeals Court Revives Lawsuits Tying Tylenol Use in Pregnancy to Autism and A.D.H.D.**\
-`A federal appeals court overruled a district court judge who dismissed the lawsuits, citing unreliable scientific evidence.`\
-https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
 
