@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/13/us/politics/trump-international-criminal-cour
 `With athletes limited to wearing tennis whites on the court, the best fashion moments — head scarves, double-breasted suits and leather waistcoats — happened in the stands.`\
 https://www.nytimes.com/2026/07/13/style/wimbledon-fashion-outfits-2026-celebrities.html
 
-**Read the Ruling**\
+**Read the Judge’s Ruling on Trump’s IRS Lawsuit**\
 `A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
 https://www.nytimes.com/interactive/2026/07/13/us/judge-ruling-trump-irs-lawsuit.html
 

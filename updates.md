@@ -1,3 +1,15 @@
+**Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
+`Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former far-right leader.`\
+https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
+
+**Trump Administration Announces New Attack on the International Criminal Court**\
+`Secretary of State Marco Rubio said that the United States will “dismantle” the international court that tries grave crimes “brick by brick, if necessary.”`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-international-criminal-court.html
+
+**Read the Ruling**\
+`A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
+https://www.nytimes.com/interactive/2026/07/13/us/judge-ruling-trump-irs-lawsuit.html
+
 **10 of the Best Wimbledon 2026 Fashion Moments**\
 `With athletes limited to wearing tennis whites on the court, the best fashion moments — head scarves, double-breasted suits and leather waistcoats — happened in the stands.`\
 https://www.nytimes.com/2026/07/13/style/wimbledon-fashion-outfits-2026-celebrities.html

@@ -1,10 +1,18 @@
+**Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
+`Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former far-right leader.`\
+https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
+
+**Trump Administration Announces New Attack on the International Criminal Court**\
+`Secretary of State Marco Rubio said that the United States will “dismantle” the international court that tries grave crimes “brick by brick, if necessary.”`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-international-criminal-court.html
+
 **10 of the Best Wimbledon 2026 Fashion Moments**\
 `With athletes limited to wearing tennis whites on the court, the best fashion moments — head scarves, double-breasted suits and leather waistcoats — happened in the stands.`\
 https://www.nytimes.com/2026/07/13/style/wimbledon-fashion-outfits-2026-celebrities.html
 
 **Read the Ruling**\
 `A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
-https://www.nytimes.com/interactive/2026/07/13/us/govuscourtsflsd7061721060.html
+https://www.nytimes.com/interactive/2026/07/13/us/judge-ruling-trump-irs-lawsuit.html
 
 **La operación secreta de Israel para reclutar a un expresidente iraní**\
 `El esfuerzo de varios años para convertir a Mahmud Ahmadineyad en un agente de inteligencia culminó en una dramática operación para llevarlo a un refugio israelí en los primeros días de la guerra. Pero el plan se vino abajo.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-pres
 **Strait of Hormuz Ship Traffic Falls to Lowest Point in a Month After Strikes**\
 `Shipping activity in the critical waterway has plunged after Iran attacked a vessel, setting off U.S. strikes. President Trump said he would reinstate a blockade of Iranian ports.`\
 https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-war.html
-
-**Sam Neill, ‘Jurassic Park’ Actor, Dies at 78**\
-`Sam Neill, the versatile New Zealand actor who played Dr. Alan Grant in the “Jurassic Park” series, died on Monday in Sydney, Australia, his family said.`\
-https://www.nytimes.com/video/obituaries/100000011027115/sam-neill-dead-jurassic-park.html
-
-**Heat Waves in Europe Linked to Thousands of Excess Deaths**\
-`While the full toll will take months to calculate, death statistics already look substantial compared with historical averages.`\
-https://www.nytimes.com/2026/07/13/world/europe/heat-europe-excess-death-fire.html
 
