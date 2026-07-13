@@ -1,3 +1,11 @@
+**Cómo Trump no logró asegurar el estrecho de Ormuz en su acuerdo con Irán**\
+`El presidente de EE. UU. firmó un acuerdo que, según Irán, daba a los iraníes el control de esa vía navegable. Ahora, su ejército está imponiendo su autoridad a la fuerza.`\
+https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html
+
+**Trump Backs Lindsey Graham’s Sister to Finish His Senate Term in South Carolina**\
+`Gov. Henry McMaster of South Carolina will name a replacement for Senator Lindsey Graham, who died on Saturday.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
+
 **Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\
 `France’s president, Emmanuel Macron, spoke before a meeting of more than 25 allies in Paris, in a show of support for Ukraine and against Russia.`\
 https://www.nytimes.com/2026/07/13/world/europe/macron-defend-blood-ukraine-europe.html
