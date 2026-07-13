@@ -1,3 +1,15 @@
+**How Lindsey Graham’s Journey From Trump Critic to Ally Made Him a Power Player**\
+`He initially called Donald Trump a “kook” who was “unfit for office,” only to join the new president’s Mar-a-Lago circle. “I’m still in the game,” Mr. Graham once explained of his much-analyzed turnabout.`\
+https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-donald-trump.html
+
+**The Fed’s Christopher Waller Warns of Higher Rates if Inflation Stays High**\
+`Christopher J. Waller, a governor at the Federal Reserve, said he needs to see several months of lower inflation data to feel confident about the outlook.`\
+https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
+
+**D.O.J. Turns Over Evidence in Minnesota D.H.S. Shootings**\
+`Investigators had for months refused to share information with their state counterparts about three shootings involving federal agents.`\
+https://www.nytimes.com/2026/07/13/us/minnesota-ice-shootings-evidence-pretti-renee-good.html
+
 **Judge Denounces I.R.S. Suit as Improper Exercise in Self-Dealing**\
 `The decision did not explicitly kill the deal that President Trump had worked out with his own government to receive what amounted to amnesty from investigations into tax returns that he, his family and their businesses have already filed.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
