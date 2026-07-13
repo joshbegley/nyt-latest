@@ -1,3 +1,11 @@
+**Trump’s Cease-Fire Effectively Collapses as He Vows to Restart Blockade and Tolls**\
+`After several days of strikes, the president notified Congress that fighting had begun again and announced shipping fees that his administration previously deemed illegal.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-iran-ceasefire.html
+
+**ICE Shot Lorenzo Salgado Araujo Through Open Passenger Window in Houston, Witnesses Say**\
+`A congresswoman and a lawyer relayed witness accounts that diverge from Immigration and Customs Enforcement’s version of the fatal encounter.`\
+https://www.nytimes.com/2026/07/13/us/houston-ice-shooting-video-witnesses.html
+
 **Un agente del ICE dispara y mata a un hombre en un operativo migratorio de Maine**\
 `Las autoridades estatales investigan lo ocurrido en Biddeford. Es el segundo tiroteo mortal relacionado con agentes migratorios en menos de una semana.`\
 https://www.nytimes.com/es/2026/07/13/espanol/ice-mata-hombre-colombiano-maine.html

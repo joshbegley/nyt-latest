@@ -1,3 +1,7 @@
+**Texas Faces Days and Days of Heavy Rain**\
+`Meteorologists with the National Weather Service called the forecast “bleak” and warned that some spots could record up to 10 inches of rain this week.`\
+https://www.nytimes.com/2026/07/13/weather/texas-rain-forecast-flooding.html
+
 **Trump’s Cease-Fire Effectively Collapses as He Vows to Restart Blockade and Tolls**\
 `After several days of strikes, the president notified Congress that fighting had begun again and announced shipping fees that his administration previously deemed illegal.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-iran-ceasefire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuer
 **Lindsey Graham’s Sister Appointed to Finish His Senate Term After Trump’s Backing**\
 `Gov. Henry McMaster of South Carolina named Darline Graham Nordone to replace Mr. Graham, who died on Saturday.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-graham-sister-south-carolina-senate.html
-
-**Europe Will Defend Itself ‘With Blood, if Necessary,’ Macron Says**\
-`France’s president, Emmanuel Macron, spoke before a meeting of more than 25 allies in Paris, in a show of support for Ukraine and against Russia.`\
-https://www.nytimes.com/2026/07/13/world/europe/macron-defend-blood-ukraine-europe.html
 
