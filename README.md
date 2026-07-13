@@ -1,3 +1,7 @@
+**Tributes to Lindsey Graham Pour In**\
+`Colleagues, world leaders and constituents remembered Senator Lindsey Graham, who died on Saturday, for his commitment to South Carolina and U.S. foreign policy.`\
+https://www.nytimes.com/video/us/politics/100000011026923/lindsey-graham-death-tributes.html
+
 **Muere Sam Neill, protagonista de ‘Parque Jurásico’**\
 `A lo largo de cinco décadas de carrera, participó en más de 150 producciones, aunque quizá se le recuerde sobre todo por su papel protagonista en la saga de los dinosaurios.`\
 https://www.nytimes.com/es/2026/07/13/espanol/cultura/muere-sam-neill-parque-jurasico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/12/opinion/siblings-big-families.html
 **Lindsey Graham Was Facing Re-election in November. What Happens Now?**\
 `The senator’s death triggers an Aug. 11 special Republican primary election, and South Carolina’s governor can appoint a replacement to serve out the remaining term, through early January.`\
 https://www.nytimes.com/2026/07/12/us/politics/lindsey-graham-death-reelection-seat.html
-
-**Cold Plunging**\
-`A writer reflects on the healing powers of trying new things.`\
-https://www.nytimes.com/2026/07/12/briefing/cold-plunging.html
 
