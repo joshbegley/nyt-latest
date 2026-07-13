@@ -1,3 +1,7 @@
+**Sam Neill, New Zealand Screen Actor and Leading Man, Dies at 78**\
+`He appeared in more than 150 productions over a five-decade career but was perhaps best known for his star turn in the “Jurassic Park” series.`\
+https://www.nytimes.com/2026/07/13/obituaries/sam-neill-dead.html
+
 **Fire in Bangkok Bar Leaves at Least 27 Dead**\
 `The fast-moving blaze sent people fleeing toward the bathrooms to hide, officials said. Their bodies were found there, raising questions about safety standards.`\
 https://www.nytimes.com/2026/07/12/world/asia/deadly-fire-bangkok-thailand.html
