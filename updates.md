@@ -1,3 +1,7 @@
+**For 35 Years, Undocumented, and Chasing the American Dream**\
+`Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
+https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
+
 **Read the Judge’s Ruling on Trump’s IRS Lawsuit**\
 `A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
 https://www.nytimes.com/interactive/2026/07/13/us/judge-ruling-trump-irs-lawsuit.html

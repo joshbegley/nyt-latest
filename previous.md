@@ -1,3 +1,7 @@
+**For 35 Years, Undocumented, and Chasing the American Dream**\
+`Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
+https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
+
 **Hungary’s Parliament Removes Orban Loyalist From Presidential Post**\
 `Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former far-right leader.`\
 https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widd
 **A Brazilian Biopic About Jair Bolsonaro Is Threatening His Son’s Presidential Campaign**\
 `A Brazilian biopic about Jair Bolsonaro has upended his son Flávio Bolsonaro’s presidential hopes after leaks showed he negotiated money for the film with a disgraced banker.`\
 https://www.nytimes.com/2026/07/13/world/americas/jair-bolsonaro-biopic-son-presidential-campaign.html
-
-**Strait of Hormuz Ship Traffic Falls to Lowest Point in a Month After Strikes**\
-`Shipping activity in the critical waterway has plunged after Iran attacked a vessel, setting off U.S. strikes. President Trump said he would reinstate a blockade of Iranian ports.`\
-https://www.nytimes.com/2026/07/13/business/strait-hormuz-shipping-traffic-iran-war.html
 
