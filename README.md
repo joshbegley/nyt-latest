@@ -1,3 +1,11 @@
+**Sam Neill’s Best Movie Performances: Where to Stream**\
+`From his global breakthrough in “Jurassic Park” to the more recent “Peaky Blinders,” the actor’s range was always on display.`\
+https://www.nytimes.com/2026/07/13/movies/sam-neill-movies-streaming.html
+
+**Israel’s Regime-Change Plan for Iran**\
+`Here’s the wild back story behind a failed plan to install Mahmoud Ahmadinejad as Iran’s next leader.`\
+https://www.nytimes.com/2026/07/13/world/iran-israel-ahmadinejad-bangkok-fire.html
+
 **Hamas Forces Interfered With Aid Distribution, U.N. Says**\
 `A raid by armed personnel led the World Food Program to suspend its operations in one part of Gaza, the U.N. said. Hamas disputed the accusations.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/un-says-hamas-forces-interfered-with-aid-distribution-at-a-gaza-site.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/07/13/arts/music/jayz-review-yankee-stadium-concert
 **Muere el senador Lyndsey Graham: lo que hay que saber**\
 `El senador por Carolina del Sur falleció días después de cumplir 71 años, justo cuando buscaba un quinto mandato.`\
 https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/muere-lindsey-graham.html
-
-**This California Oil Pipeline Was Dormant for 11 Years. Trump Reopened It.**\
-`The move in Santa Barbara by the Trump administration has made residents anxious in a region prized for its gorgeous beaches and ocean views.`\
-https://www.nytimes.com/2026/07/13/us/santa-barbara-california-oil-pipeline.html
 
