@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3, Episode 4 Recap: Heavy Is the Head**\
+`In her attempts to establish order, Rhaenyra is already alienating some of her most vital allies, including the Sea Snake.`\
+https://www.nytimes.com/2026/07/12/arts/television/house-of-the-dragon-recap-season-3-episode-4.html
+
 **Shooting in Southern Illinois Leaves Five Family Members Dead**\
 `Two other people were wounded. The Illinois State Police said on Sunday that two teenage suspects were in custody.`\
 https://www.nytimes.com/2026/07/12/us/shooting-illinois-five-family-members-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz
 **Hard-Liners in Iran Want to Keep Fighting America**\
 `With much of their leadership killed in the war, Iran’s conservatives have sought to fill the void and intensify the fight against the United States.`\
 https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-liners.html
-
-**Inside Herat, Where a Taliban Campaign Targets a Cosmopolitan Outpost**\
-`Afghanistan’s leader has exerted full control over a city that once enjoyed looser social norms, even under Taliban rule.`\
-https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-protests.html
 
