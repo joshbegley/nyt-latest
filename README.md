@@ -1,3 +1,7 @@
+**Shooting in Southern Illinois Leaves Five Family Members Dead**\
+`Two other people were wounded. The Illinois State Police said on Sunday that two teenage suspects were in custody.`\
+https://www.nytimes.com/2026/07/12/us/shooting-illinois-five-family-members-dead.html
+
 **What Is an Aortic Dissection?**\
 `The condition that killed Senator Lindsey Graham is deadly, sudden and difficult to treat — “like a knife to the back,” one expert said.`\
 https://www.nytimes.com/2026/07/12/science/lindsey-graham-aortic-dissection.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-line
 **Inside Herat, Where a Taliban Campaign Targets a Cosmopolitan Outpost**\
 `Afghanistan’s leader has exerted full control over a city that once enjoyed looser social norms, even under Taliban rule.`\
 https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-protests.html
-
-**Trump Sought an Iran War Exit. Putin Pushed On in Ukraine. Now Both Are Stuck.**\
-`The Iran and Ukraine wars underline the common limits of military force in achieving political ends, but also the differences between a dug-in Russian president and a vacillating American one.`\
-https://www.nytimes.com/2026/07/12/world/europe/trump-putin-war-iran-ukraine.html
 
