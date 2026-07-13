@@ -1,3 +1,15 @@
+**Helicopter Pilot Dies While Fighting Wildfire in Western Colorado**\
+`The pilot was the only person onboard when his helicopter crashed into a remote reserve during a firefighting mission.`\
+https://www.nytimes.com/2026/07/13/us/colorado-wildfire-pilot-dead-crash.html
+
+**Trump Reimposes a Naval Blockade of Iran**\
+`Plus, Lindsey Graham’s sister was appointed to his Senate seat. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/13/briefing/hormuz-fee-graham.html
+
+**ICE Agent Kills Person in Vehicle in Biddeford, Maine, State Officials Say**\
+`The shooting occurred in Biddeford, south of Portland. It was the second death in a week involving an Immigration and Customs Enforcement agent firing into a vehicle.`\
+https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
+
 **The Best Hairbrushes, and How to Clean Them**\
 `Expert advice on choosing — and caring for — one of the hardest-working beauty tools.`\
 https://www.nytimes.com/2026/07/13/t-magazine/best-hairbrush-how-to-clean.html

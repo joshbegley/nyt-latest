@@ -1,3 +1,11 @@
+**Helicopter Pilot Dies While Fighting Wildfire in Western Colorado**\
+`The pilot was the only person onboard when his helicopter crashed into a remote reserve during a firefighting mission.`\
+https://www.nytimes.com/2026/07/13/us/colorado-wildfire-pilot-dead-crash.html
+
+**Trump Reimposes a Naval Blockade of Iran**\
+`Plus, Lindsey Graham’s sister was appointed to his Senate seat. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/13/briefing/hormuz-fee-graham.html
+
 **The Best Hairbrushes, and How to Clean Them**\
 `Expert advice on choosing — and caring for — one of the hardest-working beauty tools.`\
 https://www.nytimes.com/2026/07/13/t-magazine/best-hairbrush-how-to-clean.html
@@ -147,7 +155,7 @@ https://www.nytimes.com/2026/07/13/opinion/crying-elderly.html
 https://www.nytimes.com/2026/07/13/science/court-lawsuits-tylenol-pregnancy.html
 
 **ICE Agent Kills Person in Vehicle in Biddeford, Maine, State Officials Say**\
-`The killing occurred in Biddeford, about 20 miles south of Portland. The Trump administration has stepped up immigration enforcement nationally in recent weeks.`\
+`The shooting occurred in Biddeford, south of Portland. It was the second death in a week involving an Immigration and Customs Enforcement agent firing into a vehicle.`\
 https://www.nytimes.com/2026/07/13/us/biddeford-maine-ice-shooting.html
 
 **Paramount-Warner Bros. Merger Is Challenged in Court by California and 11 Other States**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/briefing/today-in-short.html
 **How a Teacher Revived Backyard Baseball**\
 `Backyard Baseball, a favorite game for 1990s kids, had been off the market for years. But Lindsay Barnett was determined.`\
 https://www.nytimes.com/2026/07/13/style/backyard-baseball-video-game-teacher.html
-
-**U.S. Electric Vehicle Sales are Down but E.V. Chargers are Booming**\
-`Electric vehicle chargers are proliferating in Southern states as fast food restaurants, stores and other businesses try to lure customers.`\
-https://www.nytimes.com/2026/07/13/business/electric-vehicles-charging-stations.html
-
-**This Recipe Changed My Mind About Orzo**\
-`Who knew that cooking it in one pan with browned zucchini and onions and topping it with marinated tomatoes would be so delicious? Melissa Clark, that’s who.`\
-https://www.nytimes.com/2026/07/13/dining/this-recipe-changed-my-mind-about-orzo.html
 
