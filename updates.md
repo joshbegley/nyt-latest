@@ -1,3 +1,7 @@
+**Trump Sharply Cuts the Size of Two National Monuments in Utah**\
+`Native American tribes and environmental groups are expected to challenge the move to shrink the Bears Ears and Grand Staircase-Escalante National Monuments.`\
+https://www.nytimes.com/2026/07/13/climate/trump-national-monuments-utah.html
+
 **Helicopter Pilot Dies While Fighting Wildfire in Western Colorado**\
 `The pilot was the only person onboard when his helicopter crashed into a remote reserve during a firefighting mission.`\
 https://www.nytimes.com/2026/07/13/us/colorado-wildfire-pilot-dead-crash.html
