@@ -1,3 +1,27 @@
+**How a Teacher Revived Backyard Baseball**\
+`Backyard Baseball, a favorite game for 1990s kids, had been off the market for years. But Lindsay Barnett was determined.`\
+https://www.nytimes.com/2026/07/13/style/backyard-baseball-video-game-teacher.html
+
+**U.S. Electric Vehicle Sales are Down but E.V. Chargers are Booming**\
+`Electric vehicle chargers are proliferating in Southern states as fast food restaurants, stores and other businesses try to lure customers.`\
+https://www.nytimes.com/2026/07/13/business/electric-vehicles-charging-stations.html
+
+**This Recipe Changed My Mind About Orzo**\
+`Who knew that cooking it in one pan with browned zucchini and onions and topping it with marinated tomatoes would be so delicious? Melissa Clark, that’s who.`\
+https://www.nytimes.com/2026/07/13/dining/this-recipe-changed-my-mind-about-orzo.html
+
+**Welcome to the Golden Age of the Crone**\
+`A new generation is not willing to settle for being invisible.`\
+https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
+
+**Why You Should Try Running Without a Fitness Tracker**\
+`Here’s why you should get comfortable leaving your watch at home.`\
+https://www.nytimes.com/2026/07/13/well/move/running-fitness-tracker-watch-data.html
+
+**Shahrnush Parsipur, Iranian Writer Imprisoned for Her Novels, Dies at 80**\
+`Her best-known work, “Women Without Men,” was longlisted for the International Booker Prize this year.`\
+https://www.nytimes.com/2026/07/13/books/shahrnush-parsipur-dead.html
+
 **Did Australia’s Social Media Ban Fail?**\
 `A new study shows that most Australian teens gained access to social media after the ban took effect last December, leading critics of the law to call it a failure. The “Hard Fork” co-host Casey Newton discusses how it may eventually succeed.`\
 https://www.nytimes.com/video/podcasts/100000011027400/did-australias-social-media-ban-fail.html
@@ -165,30 +189,6 @@ https://www.nytimes.com/2026/07/13/realestate/justin-and-hailey-bieber-buy-12-mi
 **What the Fight With Anthropic Reveals About Free Speech in America**\
 `We won’t get the A.I. regulation we deserve until we change how we think about the right to code.`\
 https://www.nytimes.com/2026/07/13/opinion/ai-code-free-speech.html
-
-**Word of the Day: remission**\
-`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/13/learning/word-of-the-day-remission.html
-
-**The eBay Scandal Gets a Thriller-Like Documentary**\
-`A newly available documentary, ‘Whatever It Takes,’ examines eBay workers’ plot to cyberstalk journalists and critics.`\
-https://www.nytimes.com/2026/07/13/technology/ebay-documentary-scandal-whatever-it-takes.html
-
-**“The Decline and Fall of the Roman Empire” Isn’t Saying What You Think It Is**\
-`In the same year as America’s founding, Edward Gibbon wrote “Decline and Fall.” 250 years later, it still holds lessons for us.`\
-https://www.nytimes.com/2026/07/13/opinion/edward-gibbon-empires-fall.html
-
-**When Vital Weather Data Is Needed, Muppets Take Flight**\
-`“For the most part, the aircraft have their own souls,” said a pilot of the meteorological research planes, which are known as Kermit, Miss Piggy and Gonzo.`\
-https://www.nytimes.com/2026/07/13/us/hurricane-hunters-planes-muppets.html
-
-**I Hate My Arms. Where Are All the Clothes With Sleeves?**\
-`A reader wonders what’s behind the rise of sleeveless clothing and how to manage the trend.`\
-https://www.nytimes.com/2026/07/13/fashion/sleeveless-trend-arms.html
-
-**Sizzling, Sexy Age-Gap Romance Novels**\
-`The best-selling author Rachel Lynn Solomon recommends forbidden love stories full of fiery desire, shifting power dynamics and so-wrong-it’s-right drama.`\
-https://www.nytimes.com/2026/07/13/books/age-gap-romance-books.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\

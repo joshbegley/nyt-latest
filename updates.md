@@ -1,3 +1,15 @@
+**Did Australia’s Social Media Ban Fail?**\
+`A new study shows that most Australian teens gained access to social media after the ban took effect last December, leading critics of the law to call it a failure. The “Hard Fork” co-host Casey Newton discusses how it may eventually succeed.`\
+https://www.nytimes.com/video/podcasts/100000011027400/did-australias-social-media-ban-fail.html
+
+**Jay-Z Yankee Stadium Review: Three Nights of Legacy and Guest Stars**\
+`The rap mogul convened his starriest collaborators, showed off his still-dazzling skills and made a convincing argument for his singular legacy.`\
+https://www.nytimes.com/2026/07/13/arts/music/jayz-review-yankee-stadium-concerts.html
+
+**Muere el senador Lyndsey Graham: lo que hay que saber**\
+`El senador por Carolina del Sur falleció días después de cumplir 71 años, justo cuando buscaba un quinto mandato.`\
+https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/muere-lindsey-graham.html
+
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
 https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz
