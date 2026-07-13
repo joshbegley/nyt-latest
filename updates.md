@@ -1,3 +1,7 @@
+**Trump Reimposes Naval Blockade, as U.S. and Iran Escalate Strikes**\
+`After several days of attacks, Tehran and Washington have effectively reverted to the state of open conflict that existed before the United States and Iran agreed to a cease-fire in June.`\
+https://www.nytimes.com/2026/07/13/world/middleeast/trump-iran-naval-blockade-strikes.html
+
 **Ed King, 89, Scarred Veteran of Mississippi’s Civil Rights Struggle, Dies**\
 `A minister disfigured in an attack on his life, he became what one historian called “the most visible white activist in the Mississippi movement.”`\
 https://www.nytimes.com/2026/07/13/us/ed-king-dead.html
