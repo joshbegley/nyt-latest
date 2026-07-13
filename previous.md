@@ -1,3 +1,7 @@
+**Another Heat Wave Brings Unbearable Temperatures to Much of the U.S.**\
+`Salt Lake City reached its highest temperature ever recorded this weekend.`\
+https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
+
 **Cómo Trump no logró asegurar el estrecho de Ormuz en su acuerdo con Irán**\
 `El presidente de EE. UU. firmó un acuerdo que, según Irán, daba a los iraníes el control de esa vía navegable. Ahora, su ejército está imponiendo su autoridad a la fuerza.`\
 https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html
@@ -34,13 +38,13 @@ https://www.nytimes.com/2026/07/13/business/electric-vehicles-charging-stations.
 `Who knew that cooking it in one pan with browned zucchini and onions and topping it with marinated tomatoes would be so delicious? Melissa Clark, that’s who.`\
 https://www.nytimes.com/2026/07/13/dining/this-recipe-changed-my-mind-about-orzo.html
 
-**Welcome to the Golden Age of the Crone**\
-`A new generation is not willing to settle for being invisible.`\
-https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
-
 **Why You Should Try Running Without a Fitness Tracker**\
 `Here’s why you should get comfortable leaving your watch at home.`\
 https://www.nytimes.com/2026/07/13/well/move/running-fitness-tracker-watch-data.html
+
+**Welcome to the Golden Age of the Crone**\
+`A new generation is not willing to settle for being invisible.`\
+https://www.nytimes.com/2026/07/13/opinion/menopause-influencers-womens-health.html
 
 **Shahrnush Parsipur, Iranian Writer Imprisoned for Her Novels, Dies at 80**\
 `Her best-known work, “Women Without Men,” was longlisted for the International Booker Prize this year.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/science/south-carolina-yellow-legged-hornets.
 **With Threats Rising, Supreme Court Asks Congress to Increase Security Funds**\
 `Justices Amy Coney Barrett and Elena Kagan are scheduled to make a rare appearance at the Capitol to testify about the court’s more than $200 million request.`\
 https://www.nytimes.com/2026/07/13/us/politics/supreme-court-security-budget-testimony.html
-
-**When Chicken Nuggets Aren’t Just Chicken Nuggets**\
-`Fancy stores in the Hamptons are stocking nuggets and tenders for adults and are sometimes serving them with caviar.`\
-https://www.nytimes.com/2026/07/13/nyregion/when-chicken-nuggets-arent-just-chicken-nuggets.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\

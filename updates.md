@@ -1,3 +1,7 @@
+**Another Heat Wave Brings Unbearable Temperatures to Much of the U.S.**\
+`Salt Lake City reached its highest temperature ever recorded this weekend.`\
+https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
+
 **UK Counterterrorism Police Take Over Investigation Into Ann Widdecombe’s Death**\
 `The police said new information had come to light in the murder investigation into the death of Ann Widdecombe, a right-wing former lawmaker.`\
 https://www.nytimes.com/2026/07/13/world/europe/counterterrorism-police-ann-widdecombe-death.html
