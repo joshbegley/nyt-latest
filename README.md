@@ -1,4 +1,12 @@
-**Another Heat Wave Brings Unbearable Temperatures to Much of the U.S.**\
+**Paramount-Warner Bros. Merger Is Challenged in Court by California and 11 Other States**\
+`The lawsuit, filed by California and 11 other states, argues that the deal would harm movie theaters and damage America’s entertainment industry.`\
+https://www.nytimes.com/2026/07/13/business/paramount-warner-bros-lawsuit.html
+
+**¿Qué es una disección aórtica?**\
+`La enfermedad que le costó la vida al senador Lindsey Graham es mortal, repentina y difícil de tratar.`\
+https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/diseccion-aortica-que-es-aorta-corazon.html
+
+**Another Heat Wave Brings Unbearable Temperatures to Parts of the U.S.**\
 `Salt Lake City reached its highest temperature ever recorded this weekend.`\
 https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/13/us/politics/israel-mahmoud-ahmadinejad-iran.h
 **Book Review: ‘It Will Come Back to You,’ by Sigrid Nunez**\
 `Her first collection of short fiction, “It Will Come Back to You,” is threaded with erudition but never pretentious.`\
 https://www.nytimes.com/2026/07/13/books/review/sigrid-nunez-it-will-come-back-to-you.html
-
-**‘We’re Fighting Satan’: The War to Save Bees From a Hornet Invasion**\
-`As yellow-legged hornets spread through South Carolina’s Lowcountry region, threatening the local honey crop, a state team of bee defenders is racing to the rescue.`\
-https://www.nytimes.com/2026/07/13/science/south-carolina-yellow-legged-hornets.html
-
-**With Threats Rising, Supreme Court Asks Congress to Increase Security Funds**\
-`Justices Amy Coney Barrett and Elena Kagan are scheduled to make a rare appearance at the Capitol to testify about the court’s more than $200 million request.`\
-https://www.nytimes.com/2026/07/13/us/politics/supreme-court-security-budget-testimony.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
