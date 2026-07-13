@@ -1,3 +1,7 @@
+**Another Heat Wave Brings Unbearable Temperatures to Much of the U.S.**\
+`Salt Lake City reached its highest temperature ever recorded this weekend.`\
+https://www.nytimes.com/2026/07/13/weather/heat-wave-forecast.html
+
 **Cómo Trump no logró asegurar el estrecho de Ormuz en su acuerdo con Irán**\
 `El presidente de EE. UU. firmó un acuerdo que, según Irán, daba a los iraníes el control de esa vía navegable. Ahora, su ejército está imponiendo su autoridad a la fuerza.`\
 https://www.nytimes.com/es/2026/07/13/espanol/iran-trump-estrecho-de-ormuz-acuerdo.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/13/science/south-carolina-yellow-legged-hornets.
 **With Threats Rising, Supreme Court Asks Congress to Increase Security Funds**\
 `Justices Amy Coney Barrett and Elena Kagan are scheduled to make a rare appearance at the Capitol to testify about the court’s more than $200 million request.`\
 https://www.nytimes.com/2026/07/13/us/politics/supreme-court-security-budget-testimony.html
-
-**When Chicken Nuggets Aren’t Just Chicken Nuggets**\
-`Fancy stores in the Hamptons are stocking nuggets and tenders for adults and are sometimes serving them with caviar.`\
-https://www.nytimes.com/2026/07/13/nyregion/when-chicken-nuggets-arent-just-chicken-nuggets.html
 
 **Live Updates: U.S. and Iran Edge Toward War Again**\
 `President Trump said the United States was renewing its blockade of shipping to and from Iran, after the two sides exchanged escalatory rhetoric and fresh attacks.`\
