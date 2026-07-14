@@ -1,3 +1,7 @@
+**Expelled from China**\
+`A New York Times correspondent was kicked out of the country after reporting on the struggles of everyday Chinese. Here’s her story.`\
+https://www.nytimes.com/2026/07/14/world/china-journalist-expelled-spain-world-cup.html
+
 **Lindsey Graham’s Choice**\
 `Would the world have been safer if Graham hadn’t cozied up to Trump?`\
 https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-ukraine-trump.html
@@ -83,7 +87,7 @@ https://www.nytimes.com/2026/07/14/world/europe/six-dead-in-fire-central-brussel
 https://www.nytimes.com/2026/07/14/nyregion/nyc-specialized-schools-black-hispanic.html
 
 **Takeaways From Justices Kagan and Barrett’s Congressional Testimony on Supreme Court Security**\
-`Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during a collegial hearing.`\
+`Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during collegial hearings.`\
 https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
 
 **La campaña de represalias de Trump**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/style/sun-valley-conference-style.html
 **Antonio Rattín, Whose World Cup Expulsion Led to Penalty-Card System, Dies at 89**\
 `The ejection of the Argentine soccer star during a 1966 match against England led to the introduction of yellow and red cards.`\
 https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
-
-**E. Jean Carroll Receives $5.6 Million Payment From Trump in Civil Case**\
-`A federal jury found President Trump liable for sexually abusing and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
-https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html
 

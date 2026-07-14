@@ -1,3 +1,11 @@
+**Expelled from China**\
+`A New York Times correspondent was kicked out of the country after reporting on the struggles of everyday Chinese. Here’s her story.`\
+https://www.nytimes.com/2026/07/14/world/china-journalist-expelled-spain-world-cup.html
+
+**Takeaways From Justices Kagan and Barrett’s Congressional Testimony on Supreme Court Security**\
+`Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during collegial hearings.`\
+https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
+
 **Lindsey Graham’s Choice**\
 `Would the world have been safer if Graham hadn’t cozied up to Trump?`\
 https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-ukraine-trump.html

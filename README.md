@@ -1,3 +1,11 @@
+****\
+`Axuan Bu, a food stall owner in Jinhua, has absorbed rising egg costs rather than raise prices for customers.`\
+https://www.nytimes.com/video/embedded/business/100000011031317/China-Eggs_Jianbing_Man-video.html
+
+**Climate: An extraordinary White House meeting**\
+`A new book sheds light on President Trump’s affinity for fossil fuels.`\
+https://www.nytimes.com/2026/07/14/climate/climate-an-extraordinary-white-house-meeting.html
+
 **Expelled from China**\
 `A New York Times correspondent was kicked out of the country after reporting on the struggles of everyday Chinese. Here’s her story.`\
 https://www.nytimes.com/2026/07/14/world/china-journalist-expelled-spain-world-cup.html
@@ -22,7 +30,7 @@ https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
 `A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing`\
 https://www.nytimes.com/2026/07/14/learning/138-picture-prompts-to-inspire-student-writing.html
 
-**N.Y.C. Council Speaker Backs Ban on Horse-Drawn Carriages**\
+**Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
 `Julie Menin said she would support a bill, formerly known as Ryder’s Law, to ban the rides in Central Park after a tourist was killed in an accident last month.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/14/nyregion/mahmoud-khalil-trump-conspiracy-laws
 **ICE Ordered to Cease Most Vehicle Stops After Fatal Shootings in Maine and Houston**\
 `Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles. The killings were the latest in a string of ICE shootings during President Trump’s second term.`\
 https://www.nytimes.com/2026/07/14/us/ice-agents-traffic-stops.html
-
-**Lessons in Rich Guy Style from Sun Valley**\
-`What went down at the equivalent of Fashion Week for tech bros. Plus, Jay-Z’s still got it.`\
-https://www.nytimes.com/2026/07/14/style/sun-valley-conference-style.html
-
-**Antonio Rattín, Whose World Cup Expulsion Led to Penalty-Card System, Dies at 89**\
-`The ejection of the Argentine soccer star during a 1966 match against England led to the introduction of yellow and red cards.`\
-https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
 
