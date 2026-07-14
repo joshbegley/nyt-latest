@@ -1,3 +1,7 @@
+**Pat Oliphant, Cartoonist Who Skewered the Powerful, Dies at 90**\
+`The winner of countless awards, including a Pulitzer Prize, he was described in 1990 as “the most influential political cartoonist now working.”`\
+https://www.nytimes.com/2026/07/13/arts/pat-oliphant-dead.html
+
 **Maine ICE Shooting: What We Know About the Death of Joan Sebastian Guerrero**\
 `A federal immigration agent shot and killed a man in a car on Monday morning in Biddeford, Maine. It was the second fatal encounter in a week involving an agent and a person in a vehicle.`\
 https://www.nytimes.com/2026/07/13/us/ice-shooting-maine-guerrero.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/arts/music/ai-labels-warnings-riaa.html
 **Trump Administration Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
 `Some tech executives are nervous that the administration’s recent scrutiny of artificial intelligence models could be a prelude to a demand for an ownership stake.`\
 https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
-
-**Yemen’s Fragile Peace in Peril as Houthis Accuse Saudi Arabia of Bombing**\
-`The Iran-backed Houthi rebels in Yemen accused Saudi Arabia of striking Yemen’s main international airport in a dispute over an Iranian plane that tried to land in the capital, Sana.`\
-https://www.nytimes.com/2026/07/13/world/middleeast/yemen-houthis-saudi-arabia-iran-war.html
 

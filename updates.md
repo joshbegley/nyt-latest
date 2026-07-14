@@ -1,3 +1,7 @@
+**Pat Oliphant, Cartoonist Who Skewered the Powerful, Dies at 90**\
+`The winner of countless awards, including a Pulitzer Prize, he was described in 1990 as “the most influential political cartoonist now working.”`\
+https://www.nytimes.com/2026/07/13/arts/pat-oliphant-dead.html
+
 **Maine ICE Shooting: What We Know About the Death of Joan Sebastian Guerrero**\
 `A federal immigration agent shot and killed a man in a car on Monday morning in Biddeford, Maine. It was the second fatal encounter in a week involving an agent and a person in a vehicle.`\
 https://www.nytimes.com/2026/07/13/us/ice-shooting-maine-guerrero.html
