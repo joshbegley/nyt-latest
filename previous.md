@@ -1,3 +1,119 @@
+**In ‘The Westies,’ Chris Brancato Expands His ‘Scumbag Universe’ (Again)**\
+`For his new series, the co-creator of “Narcos” and “Godfather of Harlem” turns his focus to a violent gang of Irish New Yorkers in the early 1980s.`\
+https://www.nytimes.com/2026/07/14/arts/television/the-westies.html
+
+**‘Difficult People’ a Decade Later: A Sarcastic Time Capsule**\
+`This cult comedy about two snide show-business outsiders has a new Blu-ray edition, and a reunion this fall. The creator Julie Klausner discusses why she’d love to revive it.`\
+https://www.nytimes.com/2026/07/14/arts/television/difficult-people.html
+
+**As White House Leans on Smithsonian, Little Uproar Over Board Vacancies**\
+`An odd silence has surrounded a delay to fill several open seats on the board of the Smithsonian, even as a fierce battle to control the institution ensues.`\
+https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.html
+
+**Trump Will Let Ukraine Build Patriots. Ukraine Wants to Make Homegrown Missiles Too.**\
+`The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
+https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
+
+**Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem**\
+`Scientists have argued over the question since 1883.`\
+https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
+
+**Who Would Benefit From Open Primaries in New York?**\
+`Proponents of primaries where voters can cast ballots regardless of party affiliation tend to be wealthier interests, including developers. Left-leaning groups tend to oppose them.`\
+https://www.nytimes.com/2026/07/14/nyregion/who-would-benefit-from-open-primaries-in-new-york.html
+
+**Red State, Blue Governor: It Could Happen in Iowa. Would It Matter?**\
+`Democrats have real hope for candidates for governor in red states like Iowa and Ohio, but if Republicans seize supermajorities in the legislatures, their power would be limited.`\
+https://www.nytimes.com/2026/07/14/us/politics/republican-supermajority-iowa-ohio.html
+
+**How to Grow Vegetables All Year Round**\
+`An organic farmer reveals his system for sowing seeds, mapping crops and keeping your favorite lettuces, carrots and radishes sprouting from summer into winter.`\
+https://www.nytimes.com/2026/07/14/realestate/a-methodic-way-to-keep-the-vegetables-coming.html
+
+**A Beastie Boy Returns to the Mic, With Some Help**\
+`Thanks to an assist from his sons, Mike D is set to release “Thank You,” the first new music from a member of the pioneering rap trio in 15 years.`\
+https://www.nytimes.com/2026/07/14/arts/music/mike-d-new-album-beastie-boys.html
+
+**Restaurant Review: Ambassadors Clubhouse in New York**\
+`At the high-flying New York outpost of Ambassadors Clubhouse, the Punjabi cooking is beguiling and the city feels miles away.`\
+https://www.nytimes.com/2026/07/14/dining/restaurant-review-ambassadors-clubhouse-nyc.html
+
+**Seeking Control of the House, Democrats Try Again in Rural Districts**\
+`Candidates like Beth Macy, author of “Dopesick,” have crafted messages based on lifetimes in rural regions. But messages need an audience, and many minds are closed to the party.`\
+https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html
+
+**I Have Varicose Veins. Should I Worry?**\
+`They can ache, itch and sometimes need surgery. We asked experts why they happen and what helps.`\
+https://www.nytimes.com/2026/07/14/well/varicose-veins.html
+
+**The Democratic Establishment Is Finally Getting the Reckoning It Deserves**\
+`The Democratic Party needs shaking up.`\
+https://www.nytimes.com/2026/07/14/opinion/democrats-platner-midterms.html
+
+**Dark Sky Defenders Raise Alarm Along the Border of West Texas**\
+`Residents fear that the Trump administration’s plans to build a border wall will threaten the region’s spectacular starry skies.`\
+https://www.nytimes.com/2026/07/14/science/texas-astronomy-dark-sky-border.html
+
+**For Many First-Time Home Buyers, the Vacation Home Comes First**\
+`City dwellers priced out of owning locally look to vacation and weekend homes as a path to home ownership.`\
+https://www.nytimes.com/2026/07/14/realestate/purchasing-second-home-vacation-home-first.html
+
+**A Heated Rivalry Over Bull Mascots Is Dividing a Brazilian Town**\
+`Deep in the Amazon rainforest, a heated rivalry has split a town for a century. It’s got nothing to do with sports or politics.`\
+https://www.nytimes.com/2026/07/14/world/americas/bull-mascots-red-blue-parintins-brazil.html
+
+**Word of the Day: vagary**\
+`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/14/learning/word-of-the-day-vagary.html
+
+**The Strange Phenomenon of ‘Terminal Lucidity’**\
+`As they near death, some dementia patients recover mental faculties assumed to be long lost. Researchers want to know why.`\
+https://www.nytimes.com/2026/07/14/magazine/terminal-lucidity.html
+
+**Book Review: ‘Cloudthief,’ by Nathaniel Rich**\
+`“Cloudthief,” by Nathaniel Rich, follows a dispirited writer into a scheme to get rich and find romance along the way.`\
+https://www.nytimes.com/2026/07/14/books/review/nathaniel-rich-cloudthief.html
+
+**Book Review: ‘Famous Men,’ by Julie Buntin**\
+`Julie Buntin’s novel “Famous Men” complicates an old story with questions of ambition and consent.`\
+https://www.nytimes.com/2026/07/14/books/review/julie-buntin-famous-men.html
+
+**75 Years Later, ‘The Catcher in the Rye’ Remains a Great American Novel**\
+`Sure, “Catcher in the Rye” has its detractors. But the influence of its wised-up yet winningly innocent hero keeps it among the Great American Novels.`\
+https://www.nytimes.com/2026/07/14/books/review/catcher-in-the-rye-75th-anniversary-salinger.html
+
+**U.S. Workers Are More Productive Than Ever. And That’s Without A.I.**\
+`Companies have been getting more out of employees for several years. Tight labor markets, digitization and remote work are among the reasons.`\
+https://www.nytimes.com/2026/07/14/business/worker-productivity-artificial-intelligence-economy.html
+
+**All-You-Can-Eat Goes Luxe**\
+`Unlimited dining experiences, once a thrifty move, are evolving for those hungry for status.`\
+https://www.nytimes.com/2026/07/14/dining/luxury-all-you-can-eat-dining.html
+
+**Book Review: ‘The Gospel According to Hobby Lobby,’ by Michael Blanding**\
+`A new book by Michael Blanding chronicles the history of Hobby Lobby and its billionaire founder’s campaign to promote conservative Christian values.`\
+https://www.nytimes.com/2026/07/14/books/review/the-gospel-according-to-hobby-lobby-michael-blanding.html
+
+**How a Promising Navy Drone Boat Program Got Mired in Politics**\
+`Navy acquisition reforms upended a $2.1 billion contract competition. When it was over, several companies with ties to the Trump administration had made the cut.`\
+https://www.nytimes.com/2026/07/14/us/politics/navy-drone-boat-acquisitions.html
+
+**3 Trips Near Venice, Without the Crowds**\
+`There is more to the northeastern Italian region of Veneto than its famous capital. We explore the area’s many treasures by bike, boat, train and on foot.`\
+https://www.nytimes.com/2026/07/14/travel/3-trips-near-venice-without-crowds.html
+
+**The Housing Crisis Is Also a Retirement Crisis**\
+`A home has stopped being just a place to live — it has also become an asset.`\
+https://www.nytimes.com/2026/07/14/opinion/housing-retirement-crisis.html
+
+**What Happens if Pernambuco Wood Becomes Illegal in Music?**\
+`For centuries, the standard wood used to make string instruments’ bows has come from the pernambuco tree in Brazil. Its future is uncertain.`\
+https://www.nytimes.com/2026/07/14/arts/music/pernambuco-wood-bows.html
+
+**At 91, He’s Hiking the Appalachian Trail. Again.**\
+`Dale “Grey Beard” Sanders once set the record as the oldest person to complete the roughly 2,190-mile trail. Now, he’s back for his title.`\
+https://www.nytimes.com/2026/07/14/well/appalachian-trail-hiking-record-grey-beard.html
+
 **Oil Rises Above $85 a Barrel as Gulf Clash Escalates**\
 `Brent crude, the international benchmark, breached $85 per barrel for the first time in a month.`\
 https://www.nytimes.com/2026/07/14/business/oil-prices-iran-war.html
@@ -77,124 +193,4 @@ https://www.nytimes.com/2026/07/13/arts/pat-oliphant-dead.html
 **Maine ICE Shooting: What We Know About the Death of Joan Sebastian Guerrero**\
 `A federal immigration agent shot and killed a man in a car on Monday morning in Biddeford, Maine. It was the second fatal encounter in a week involving an agent and a person in a vehicle.`\
 https://www.nytimes.com/2026/07/13/us/ice-shooting-maine-guerrero.html
-
-**NYT Crossword Answers for July 14, 2026**\
-`Gus Bloxham and Bharati Hemmady make their New York Times Crossword debut.`\
-https://www.nytimes.com/2026/07/13/crosswords/daily-puzzle-2026-07-14.html
-
-**Health Dept. Rescinds Freeze on $10 Billion for 5 Democratic States**\
-`The reversal of the funding pause came after the administration faced repeated setbacks in a suit challenging the decision, which could have jeopardized programs for low-income households.`\
-https://www.nytimes.com/2026/07/13/us/politics/trump-health-dept-funding-freeze-democratic-states.html
-
-**Brote de ciclosporiasis: autoridades de salud señalan a las lechugas como posible fuente**\
-`La enfermedad, que ha afectado a miles de personas en gran parte de Estados Unidos, va camino de convertirse en el mayor brote de la historia reciente.`\
-https://www.nytimes.com/es/2026/07/13/espanol/cyclospora-brote-lechuga.html
-
-**Wildfires Close Popular National Forest Area in Minnesota**\
-`Several fires in northeastern Minnesota are causing dangerous conditions and smoke in the Boundary Waters Canoe Area, which is used for camping and other outdoor recreation.`\
-https://www.nytimes.com/2026/07/13/us/wildfires-boundary-waters-forest-minnesota.html
-
-**Graham’s Death Complicates G.O.P. Agenda in Congress**\
-`Senators returned to the Capitol mourning their colleague, who played pivotal roles on multiple issues confronting lawmakers.`\
-https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-complications-gop-agenda.html
-
-**Tension Emerges Among Democratic Socialists Over 2028 Endorsement**\
-`A meeting to decide on a plan to back a presidential candidate, most likely Representative Alexandria Ocasio-Cortez, turned acrimonious, and a proposal to poll members was rejected.`\
-https://www.nytimes.com/2026/07/13/nyregion/dsa-endorsement-aoc-new-york.html
-
-**Democratic Senate Candidates in Maine Denounce Deadly ICE Shooting**\
-`The killing of a man in Biddeford quickly became an issue in the Senate race, with Democrats aiming to tie Senator Susan Collins to President Trump’s immigration crackdown.`\
-https://www.nytimes.com/2026/07/13/us/politics/maine-ice-shooting-senate-graham-platner.html
-
-**South Carolina Governor Appoints Lindsey Graham’s Sister to Finish Senate Term**\
-`Gov. Henry McMaster of South Carolina appointed Senator Lindsey Graham’s sister, Darline Graham Nordone, to finish his Senate term.`\
-https://www.nytimes.com/video/us/politics/100000011028488/lindsey-graham-sister-senate-replacement.html
-
-**The Ridiculous Rise of Victor Marx**\
-`Once started, the process of voter radicalization isn’t easy to modulate.`\
-https://www.nytimes.com/2026/07/13/opinion/victor-marx-colorado-republican.html
-
-**La hermana de Lindsey Graham ocupará el cargo de él en el Senado**\
-`El nombramiento de Darline Graham Nordone ocurrió horas después de que el presidente Donald Trump indicó que la había recomendado para ocupar el puesto de su difunto hermano.`\
-https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/lindsey-graham-hermana-senado.html
-
-**‘Lettuce or Salad Greens’ Identified as Potential Source of Cyclospora Outbreak**\
-`Michigan health officials announced the preliminary findings, but they cautioned that other foods could not be ruled out. The illness has sickened thousands across the United States.`\
-https://www.nytimes.com/2026/07/13/well/eat/michigan-cyclospora-outbreak-lettuce-salad-greens.html
-
-**The Dangerous Appeal of Cruelty**\
-`When did politics get so cruel? On “The Opinions,” David French argues that we’ve started confusing cruelty with courage, rewarding politicians who break norms and mistake outrage for strength.`\
-https://www.nytimes.com/video/opinion/100000011019463/the-dangerous-appeal-of-cruelty.html
-
-**Are Fears of American Gerontocracy Fair?**\
-`Donald Trump. Mitch McConnell. American politics is once again grappling with the realities of aging leadership. On “The Opinions,” David Wallace-Wells argues that the United States has become a gerontocracy — and that as leaders stay in power longer, concerns about their health, transparency and ability to govern become harder to ignore.`\
-https://www.nytimes.com/video/opinion/100000011027782/are-fears-of-american-gerontocracy-fair.html
-
-**Trump’s Strait of Hormuz Fee Could Double the Cost of Shipping**\
-`The potential expense of a 20 percent charge to move oil and other goods through the strait has stirred concern among shippers.`\
-https://www.nytimes.com/2026/07/13/business/trump-hormuz-shipping-fee.html
-
-**Texas Faces Days and Days of Heavy Rain**\
-`Meteorologists with the National Weather Service called the forecast “bleak” and warned that some spots could record up to 10 inches of rain this week.`\
-https://www.nytimes.com/2026/07/13/weather/texas-rain-forecast-flooding.html
-
-**Trump Says Fighting With Iran Has Resumed as He Orders Blockade and Tolls**\
-`After several days of strikes, the president notified Congress that fighting had begun again and announced shipping fees that his administration previously deemed illegal.`\
-https://www.nytimes.com/2026/07/13/us/politics/trump-iran-ceasefire.html
-
-**Un agente del ICE dispara y mata a un hombre que conducía un vehículo en Maine**\
-`Las autoridades estatales investigan lo ocurrido en Biddeford. Es el segundo tiroteo mortal relacionado con agentes migratorios en menos de una semana. No está claro si el conductor era la persona a la que buscaba el ICE.`\
-https://www.nytimes.com/es/2026/07/13/espanol/ice-mata-hombre-colombiano-maine.html
-
-**ICE Shot Lorenzo Salgado Araujo Through Open Passenger Window in Houston, Witnesses Say**\
-`A congresswoman and a lawyer relayed witness accounts that diverge from Immigration and Customs Enforcement’s version of the fatal encounter.`\
-https://www.nytimes.com/2026/07/13/us/houston-ice-shooting-video-witnesses.html
-
-**Trump Sharply Cuts the Size of Two National Monuments in Utah**\
-`Native American tribes and environmental groups are expected to challenge the move to shrink the Bears Ears and Grand Staircase-Escalante National Monuments.`\
-https://www.nytimes.com/2026/07/13/climate/trump-national-monuments-utah.html
-
-**Helicopter Pilot Dies While Fighting Wildfire in Western Colorado**\
-`The pilot was the only person onboard when his helicopter crashed into a remote reserve during a firefighting mission.`\
-https://www.nytimes.com/2026/07/13/us/colorado-wildfire-pilot-dead-crash.html
-
-**Trump Reimposes a Naval Blockade of Iran**\
-`Plus, Lindsey Graham’s sister was appointed to his Senate seat. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/07/13/briefing/hormuz-fee-graham.html
-
-**The Best Hairbrushes, and How to Clean Them**\
-`Expert advice on choosing — and caring for — one of the hardest-working beauty tools.`\
-https://www.nytimes.com/2026/07/13/t-magazine/best-hairbrush-how-to-clean.html
-
-**Corn and Miso Pasta Salad**\
-`The interplay between the crunch of the celery, the chew of the pasta and the pop of the corn kernels makes this (potentially vegan) pasta salad a textural pleasure to eat.`\
-https://www.nytimes.com/video/dining/100000011028611/corn-and-miso-pasta-salad.html
-
-**Butter Mochi**\
-`Tender and chewy, this big-batch dessert — as comforting as cake and as fun as bar cookies — is always a hit at parties.`\
-https://www.nytimes.com/video/dining/100000011028589/butter-mochi.html
-
-**A Guide to the Uncanny 2026 Midterm Elections, and How We Got Here**\
-`A lot of things have changed in American politics since our writer went on parental leave.`\
-https://www.nytimes.com/2026/07/13/us/politics/midterms-elections-trump.html
-
-**Europe Hit With Wildfires Amid Heat Waves**\
-`Wildfires have hit countries across Europe, including France and Spain, as heat waves have been thought to be linked to thousands of excess deaths, officials say.`\
-https://www.nytimes.com/video/weather/100000011027302/europe-wildfires-heat-waves-deaths.html
-
-**Lindsey Graham’s Death Transforms the Race for His Democratic Challenger**\
-`Annie Andrews, a pediatrician, has offered condolences to those who loved Mr. Graham while considering the political fallout from his death. Republicans are scrambling to arrange a new primary election.`\
-https://www.nytimes.com/2026/07/13/us/politics/annie-andrews-south-carolina-senate.html
-
-**Sam Neill’s Best Movie Performances: Where to Stream**\
-`From his global breakthrough in “Jurassic Park” to the more recent “Peaky Blinders,” the actor’s range was always on display.`\
-https://www.nytimes.com/2026/07/13/movies/sam-neill-movies-streaming.html
-
-**Israel’s Regime-Change Plan for Iran**\
-`Here’s the wild back story behind a failed plan to install Mahmoud Ahmadinejad as Iran’s next leader.`\
-https://www.nytimes.com/2026/07/13/world/iran-israel-ahmadinejad-bangkok-fire.html
-
-**Hamas Forces Interfered With Aid Distribution, U.N. Says**\
-`A raid by armed personnel led the World Food Program to suspend its operations in one part of Gaza, the U.N. said. Hamas disputed the accusations.`\
-https://www.nytimes.com/2026/07/13/world/middleeast/un-says-hamas-forces-interfered-with-aid-distribution-at-a-gaza-site.html
 
