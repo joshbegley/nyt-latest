@@ -1,3 +1,19 @@
+**Quote of the Day: Some New York City Parks Leave the Light on for Soccer Camaraderie**\
+`Quotation of the Day for Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/14/pageoneplus/quote-of-the-day-some-new-york-city-parks-leave-the-light-on-for-soccer-camaraderie.html
+
+**Los robots ucranianos revolucionan la guerra terrestre**\
+`Empezaron como vehículos de transporte de materiales. Ahora, los robots terrestres evacuan heridos, defienden trincheras e incluso matan.`\
+https://www.nytimes.com/es/2026/07/14/espanol/mundo/guerra-ucrania-rusia-robots.html
+
+**Agitation in Dementia Can Be Helped by Medical Cannabis, Study Suggests**\
+`A combination of THC and CBD eased symptoms in an especially frail population: patients with advanced dementia near the end of their lives.`\
+https://www.nytimes.com/2026/07/14/well/agitation-dementia-medical-cannabis-study.html
+
+**Deportations by India Cause Tension Along Border with Bangladesh**\
+`India is driving out Bangladeshi immigrants it says are in the country illegally. Bangladesh is pushing back, leaving people stranded along the border amid increasing tensions between the countries.`\
+https://www.nytimes.com/2026/07/14/world/asia/india-bangladesh-border-migration.html
+
 **OpenAI Is Showing Kalshi’s World Cup Odds in ChatGPT**\
 `The partnership, a first of its kind for the artificial intelligence company, will use the prediction market’s data to power some search results about the soccer tournament.`\
 https://www.nytimes.com/2026/07/13/technology/kalshi-openai-chatgpt-world-cup-odds.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/13/world/europe/uk-deportation-law-change-groomi
 **In a First, U.S. Forces Used Naval Drones in Combat Operations**\
 `The use of unmanned vessels to attack Iranian naval installations offers new evidence of how drones are taking over modern warfare.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/us-naval-drone-first-attack.html
-
-**Tony Rayns, Who Helped Bring Asian Film to the World, Dies at 77**\
-`In reviews and at festivals, he played a key role in introducing English-speaking audiences to directors like Wong Kar-wai, Jia Zhangke and Bong Joon Ho.`\
-https://www.nytimes.com/2026/07/13/movies/tony-rayns-dead.html
-
-**Man Hospitalized After Bison Attack in Yellowstone National Park**\
-`A photographer at Yellowstone National Park captured the moment a charging bull bison tossed a man about eight feet in the air. The animal may have been experiencing a surge of testosterone at the start of the mating season.`\
-https://www.nytimes.com/video/us/100000011027456/bison-yellowstone-national-park-wyoming.html
-
-**Trump’s Threat to Impose Fees in the Strait of Hormuz Contradicts His Aides**\
-`President Trump said the United States could collect tolls or fees, despite Vice President JD Vance and Secretary of State Marco Rubio saying no country could do so.`\
-https://www.nytimes.com/2026/07/13/us/politics/trump-iran-hormuz-fees-vance-rubio.html
-
-**Labels for Music Created With A.I. Could Join Explicit Lyrics Warnings**\
-`Major music industry groups, including the organization behind the Grammy Awards, have proposed labels for tracks made with some degree of artificial intelligence.`\
-https://www.nytimes.com/2026/07/13/arts/music/ai-labels-warnings-riaa.html
 
