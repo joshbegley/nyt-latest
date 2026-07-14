@@ -1,3 +1,7 @@
+**Live Updates: Inflation Data to Show Effects of Volatile Energy Prices**\
+`The Consumer Price Index for June will provide the latest look at how higher oil and gas prices are rippling through the economy.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
 **In the Public Interest**\
 `We look at the Trump administration’s attempts to pressure news organizations.`\
 https://www.nytimes.com/2026/07/14/briefing/in-the-public-interest.html
