@@ -1,3 +1,11 @@
+**Tornadoes in Maine? A Rare Forecast for Parts of U.S. and Canada**\
+`Storms on Tuesday could produce damaging winds, large hail and even tornadoes in areas where they are not common.`\
+https://www.nytimes.com/2026/07/14/weather/maine-vermont-tornado-quebec.html
+
+**At Young World Festival, Rap’s Avant-Garde Takes Shape**\
+`The Brooklyn festival Young World spotlights emergent indie rappers and veteran artists. It was the brainchild of Mike, an artist and label head who has become a fulcrum of the alt-rap scene.`\
+https://www.nytimes.com/2026/07/14/arts/music/young-world-festival-mike.html
+
 **Mahmoud Khalil Accuses Trump Officials of Conspiring Against Him**\
 `Mr. Khalil will now have to convince a judge that the defendants coordinated to take action against him and other pro-Palestinian activists.`\
 https://www.nytimes.com/2026/07/14/nyregion/mahmoud-khalil-trump-conspiracy-lawsuit.html
