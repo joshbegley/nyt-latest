@@ -15,7 +15,7 @@ https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thaila
 https://www.nytimes.com/interactive/polls/nevada-us-house-2-polls-2026.html
 
 **N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
-`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at and what they were looking for.`\
+`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
 
 **Warsh to Reiterate Fed’s Pledge to Get Inflation Down**\
@@ -47,7 +47,7 @@ https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
 https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
 
 **Live Updates: Inflation Slows on Lower Energy Prices**\
-`The Consumer Price Index dropped to an 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
+`The Consumer Price Index dropped to a 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
 **In the Public Interest**\
