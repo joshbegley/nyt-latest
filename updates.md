@@ -1,3 +1,7 @@
+**ICE Ordered to Cease Most Vehicle Stops After Fatal Shootings in Maine and Houston**\
+`Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles. The killings were the latest in a string of ICE shootings during President Trump’s second term.`\
+https://www.nytimes.com/2026/07/14/us/ice-agents-traffic-stops.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011030433/14vid-Trump-embed-99470.html
