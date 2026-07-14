@@ -1,3 +1,7 @@
+**Jon Stewart Mocks Mitch McConnell’s Recovery Photo**\
+`The “Daily Show” host called the image “totally believable evidence that Mitch McConnell is not only alive, but the happiest boy in the hospital.”`\
+https://www.nytimes.com/2026/07/14/arts/television/jon-stewart-mitch-mcconnell-recovery.html
+
 **La foca más famosa de Australia es un fenómeno viral que preocupa a los expertos**\
 `Neil, un elefante marino de más de 1000 kilos, visita dos veces al año la costa de Tasmania y se ha convertido en estrella de internet, aunque los especialistas piden mantener la distancia.`\
 https://www.nytimes.com/es/2026/07/14/espanol/mundo/foca-neil-australia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
 **Hungary’s Parliament Votes to Remove Orban Loyalist From Presidential Post**\
 `Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former right-wing leader.`\
 https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
-
-**Trump Administration Announces New Attack on the International Criminal Court**\
-`Secretary of State Marco Rubio said that the United States will “dismantle” the international court that tries grave crimes “brick by brick, if necessary.”`\
-https://www.nytimes.com/2026/07/13/us/politics/trump-international-criminal-court.html
 
