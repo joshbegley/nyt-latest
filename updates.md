@@ -1,3 +1,7 @@
+**The House passes daylight-saving Sunshine Protection Act**\
+`House Republicans and Democrats united in favor of a bill to eliminate semiannual clock-changing, but it faces an uncertain fate in the Senate.`\
+https://www.nytimes.com/2026/07/14/us/politics/house-votes-for-permanent-daylight-saving-time.html
+
 **Kevin Warsh Pledges to Bring Inflation Down but Doesn’t Specify How**\
 `Kevin M. Warsh, the new chairman of the Federal Reserve, reiterated his commitment to get inflation down but did not provide specifics during his first testimony to Congress.`\
 https://www.nytimes.com/video/us/100000011030763/fed-kevin-warsh-inflation.html

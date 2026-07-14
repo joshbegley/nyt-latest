@@ -1,3 +1,7 @@
+**At War With Iran Again, Trump Finds an Opponent He Cannot Easily Dominate**\
+`The president is accustomed to forcing other countries to bend to his will. But he is struggling to come up with a strategy to extract Iranian concessions as the cease-fire he brokered collapses.`\
+https://www.nytimes.com/2026/07/14/us/politics/iran-trump-war.html
+
 **The House passes daylight-saving Sunshine Protection Act**\
 `House Republicans and Democrats united in favor of a bill to eliminate semiannual clock-changing, but it faces an uncertain fate in the Senate.`\
 https://www.nytimes.com/2026/07/14/us/politics/house-votes-for-permanent-daylight-saving-time.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/us/politics/trump-speech-voting-elections.htm
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011030433/14vid-Trump-embed-99470.html
-
-**Trump ordena un bloqueo y el cobro de peajes en el estrecho de Ormuz**\
-`El presidente de EE. UU. ha notificado al Congreso que el enfrentamiento con Irán se ha reanudado y ha anunciado unas tasas de transporte marítimo que antes su gobierno había considerado ilegales.`\
-https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-guerra-estrecho-ormuz.html
 
