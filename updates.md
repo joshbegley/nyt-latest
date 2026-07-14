@@ -1,3 +1,23 @@
+**Chipotle Is Bringing Its Mexican-Inspired Fast Food to Monterrey, Mexico**\
+`The California-based restaurant chain is opening its first location south of the U.S.-Mexico border this week, bringing its bowls and burritos to Monterrey.`\
+https://www.nytimes.com/2026/07/14/business/chipotle-open-mexico-monterrey.html
+
+**A Soundtrack to the 2026 World Cup Semifinals**\
+`Listen to songs from Rosalía, Mauvais Djo, Ca7riel & Paco Amoroso and the Beatles.`\
+https://www.nytimes.com/2026/07/14/arts/music/amplifier-newsletter-world-cup-rosalia.html
+
+**‘The Whoopi Monologues’ Review: Expanding a One-Woman Show**\
+`Instead of one Whoopi Goldberg, audiences now experience five actresses: Kerry Washington, Kara Young, Dominique Fishback, Danielle Pinnock and Kecia Lewis.`\
+https://www.nytimes.com/2026/07/14/theater/the-whoopi-monologues-review-kerry-washington-kara-young.html
+
+**Trump Says He’ll Discuss Elections and Voting Machines in Speech on Thursday**\
+`The planned prime-time address comes as the president has intensified his focus on election security in advance of the midterms and repeated false claims about the integrity of voting systems.`\
+https://www.nytimes.com/2026/07/14/us/politics/trump-speech-voting-elections.html
+
+**Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
+`The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
 **ICE Ordered to Cease Most Vehicle Stops After Fatal Shootings in Maine and Houston**\
 `Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles. The killings were the latest in a string of ICE shootings during President Trump’s second term.`\
 https://www.nytimes.com/2026/07/14/us/ice-agents-traffic-stops.html
