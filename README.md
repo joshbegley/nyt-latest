@@ -1,3 +1,7 @@
+**Why Supreme Court Justices Are Asking for More Security**\
+`Supreme Court justices are asking lawmakers on Capitol Hill to increase their 2027 budget, with most of the additional funding earmarked for security. Ann E. Marimow, a New York Times reporter, explains why the justices say these measures are necessary to protect them from rising threats.`\
+https://www.nytimes.com/video/us/politics/100000011017774/why-supreme-court-justices-are-asking-for-more-security.html
+
 **¿Por qué a los niños les encanta ver ‘Moana’?**\
 `Esta película de 2016 se ha convertido en la más vista en Disney+. Los padres y los expertos explican por qué los niños no paran de verla.`\
 https://www.nytimes.com/es/2026/07/14/espanol/cultura/ninos-moana-explicacion.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/mundo/foca-neil-australia.html
 **Ataque de bisonte en Yellowstone: un turista sale volando por los aires**\
 `Un hombre de 65 años fue hospitalizado con múltiples fracturas tras ser embestido por un toro bisonte que deambulaba por un campamento del Parque Nacional de Yellowstone visiblemente agitado.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/ataque-bisonte-yellowstone.html
-
-**Así es como Putin hizo de Japón un centro de espionaje**\
-`Desde un rascacielos de Tokio, una unidad de inteligencia militar localiza el equipo de alta tecnología que Rusia necesita para librar la guerra.`\
-https://www.nytimes.com/es/2026/07/14/espanol/mundo/putin-espias-rusia-japon.html
 

@@ -1,3 +1,7 @@
+**¿Por qué a los niños les encanta ver ‘Moana’?**\
+`Esta película de 2016 se ha convertido en la más vista en Disney+. Los padres y los expertos explican por qué los niños no paran de verla.`\
+https://www.nytimes.com/es/2026/07/14/espanol/cultura/ninos-moana-explicacion.html
+
 **The ‘Pay-to-Play’ Scheme That (Almost) Ruined Video Games**\
 `The backlash against EA Sports’ in-game “microtransactions.”`\
 https://www.nytimes.com/2026/07/14/podcasts/ea-sports-video-games-college-football.html
