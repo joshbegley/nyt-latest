@@ -1,3 +1,7 @@
+**Live Updates: 2 Justices to Testify on Supreme Court’s Need for More Security**\
+`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are seeking millions of dollars to address security concerns amid rising threats.`\
+https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
+
 **Largest Landlord in the U.S. Accused of Widespread Fair Housing Violations**\
 `Greystar turned away apartment applicants trying to use housing vouchers to pay rent, according to a watchdog group.`\
 https://www.nytimes.com/2026/07/14/realestate/greystar-fair-housing-complaints.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/14/well/varicose-veins.html
 **The Democratic Establishment Had This Coming**\
 `The Democratic Party needs shaking up.`\
 https://www.nytimes.com/2026/07/14/opinion/democrats-platner-midterms.html
-
-**Dark Sky Defenders Raise Alarm Along the Border of West Texas**\
-`Residents fear that the Trump administration’s plans to build a border wall will threaten the region’s spectacular starry skies.`\
-https://www.nytimes.com/2026/07/14/science/texas-astronomy-dark-sky-border.html
 
