@@ -1,3 +1,11 @@
+**Paramount vs. the States**\
+`An effort to block media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
+https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.html
+
+**Chai Discovery, an A.I. Drug Start-Up, Raises $400 Million**\
+`The fund-raising values the company at $3.8 billion and underscores investor interest in using artificial intelligence to tackle problems like drug discovery.`\
+https://www.nytimes.com/2026/07/14/business/dealbook/chai-discovery-ai-drug-development.html
+
 **Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
 `The largest banks in the United States collectively raked in tens of billions of profits in the second quarter, despite the war in Iran and persistent inflation.`\
 https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
