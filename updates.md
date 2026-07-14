@@ -1,3 +1,7 @@
+**Graham’s Death Complicates G.O.P. Agenda in Congress**\
+`Senators returned to the Capitol mourning their colleague, who played pivotal roles on multiple issues confronting lawmakers.`\
+https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-complications-gop-agenda.html
+
 **Tension Emerges Among Democratic Socialists Over 2028 Endorsement**\
 `A meeting to decide on a plan to back a presidential candidate, most likely Representative Alexandria Ocasio-Cortez, turned acrimonious, and a proposal to poll members was rejected.`\
 https://www.nytimes.com/2026/07/13/nyregion/dsa-endorsement-aoc-new-york.html
