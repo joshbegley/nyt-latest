@@ -1,3 +1,7 @@
+**¿Por qué a los niños les encanta ver ‘Moana’?**\
+`Esta película de 2016 se ha convertido en la más vista en Disney+. Los padres y los expertos explican por qué los niños no paran de verla.`\
+https://www.nytimes.com/es/2026/07/14/espanol/cultura/ninos-moana-explicacion.html
+
 **The ‘Pay-to-Play’ Scheme That (Almost) Ruined Video Games**\
 `The backlash against EA Sports’ in-game “microtransactions.”`\
 https://www.nytimes.com/2026/07/14/podcasts/ea-sports-video-games-college-football.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/ataque-bisonte-yell
 **Así es como Putin hizo de Japón un centro de espionaje**\
 `Desde un rascacielos de Tokio, una unidad de inteligencia militar localiza el equipo de alta tecnología que Rusia necesita para librar la guerra.`\
 https://www.nytimes.com/es/2026/07/14/espanol/mundo/putin-espias-rusia-japon.html
-
-**The Ukraine-Russia War Reaches a New Phase**\
-`The ground war in Ukraine has stalemated and the crucial fight has shifted to the skies — missiles and interceptors.`\
-https://www.nytimes.com/2026/07/14/opinion/ukraine-russia-patriots-drones.html
 
