@@ -1,3 +1,7 @@
+**E. Jean Carroll Receives $5.6 Million Payment From Trump in Civil Case**\
+`A federal jury found President Trump liable for sexually abusing and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
+https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html
+
 **‘We Love Iraq,’ Trump Tells New Prime Minister in Oval Office Meeting**\
 `The meeting comes as President Trump’s administration has been ratcheting up pressure on Baghdad to diminish Iran’s influence in Iraq.`\
 https://www.nytimes.com/2026/07/14/us/politics/iraq-trump-oval-office-meeting.html

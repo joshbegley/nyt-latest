@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/07/14/style/sun-valley-conference-style.html
 https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
 
 **E. Jean Carroll Receives $5.6 Million Payment From Trump in Civil Case**\
-`A federal jury found President Trump liable for sexually assaulting and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
+`A federal jury found President Trump liable for sexually abusing and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
 https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html
 
 **Warren Buffet Declines to Donate to Gates Foundation Amid Epstein Revelations**\
