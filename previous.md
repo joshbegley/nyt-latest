@@ -1,3 +1,7 @@
+**Leonard Abramson, Health Care Innovator and Philanthropist, Dies at 93**\
+`He created U.S. Healthcare, one of the first H.M.O.s, and used his great wealth from the sale of the company for causes like advancing cancer research.`\
+https://www.nytimes.com/2026/07/14/health/leonard-abramson-dead.html
+
 **Trump Paid $2 Million by South Korean Company Facing Trade Investigation**\
 `The payment illustrates the minefield Mr. Trump has created by maintaining personal financial ties with foreign businesses while he is in office.`\
 https://www.nytimes.com/2026/07/14/us/politics/trump-south-korea-aluminum.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/mundo/plan-israel-cambio-regimen-i
 **The Lo-Fi Way I Broke My Scrolling Habit**\
 `I tried many remedies to break my social media habit. A homemade hack worked best.`\
 https://www.nytimes.com/2026/07/14/opinion/culture/phone-algorithm-addiction.html
-
-**China Purges Top Official Over Corruption and Sex Charges**\
-`Ma Xingrui is the third member of the Politburo to be purged since 2022. He once led the Xinjiang region and was previously head of China’s space program.`\
-https://www.nytimes.com/2026/07/14/world/asia/china-expels-politburo-official-sex-corruption.html
 
