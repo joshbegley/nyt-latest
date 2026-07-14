@@ -1,3 +1,7 @@
+**Iran War Live Updates: Clash Over Strait Intensifies With Strikes and Trump Threats**\
+`President Trump ordered more attacks on Iran and announced a 20 percent fee on cargo through the Strait of Hormuz. Iran said it had attacked two oil tankers and fired at U.S. military sites, as the two sides slid back to open war.`\
+https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
+
 **Trump Orders Tolls and Blockade as Fighting With Iran Resumes**\
 `President Trump notified Congress that he had resumed strikes on Iran, as the cease-fire effectively collapsed. He also ordered a naval blockade and announced shipping tolls in the Strait of Hormuz.`\
 https://www.nytimes.com/video/world/asia/100000011029063/iran-trump-strait-hormuz-toll.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/us/ed-king-dead.html
 **Los científicos encuentran azúcar en el centro de la Vía Láctea**\
 `Es la primera vez que se detecta una molécula de azúcar en el espacio interestelar. El descubrimiento ofrece pistas nuevas y fascinantes pistas sobre cómo pudo haber surgido la vida en la Tierra.`\
 https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/azucar-espacio-via-lactea.html
-
-**Would a Social Media Ban in the U.S. Be Effective?**\
-`On the “Hard Fork” podcast, the co-host Casey Newton argues that a new law won’t necessarily be ineffective just because adherence to it is low initially. The same could be true if a social media ban were enacted in the United States.`\
-https://www.nytimes.com/video/podcasts/100000011028469/would-a-social-media-ban-in-the-us-be-effective.html
 
