@@ -1,3 +1,15 @@
+**With Lizzo and Calm Flair, a Storied Venue Reopens for Summer**\
+`The gorgeously renovated Hunter Pavilion at Ravinia, the Chicago Symphony Orchestra’s off-season home, was inaugurated with a gala last weekend.`\
+https://www.nytimes.com/2026/07/14/arts/music/ravinia-festival-hunter-pavilion-chicago-symphony.html
+
+**New Winged Robot Can Fly and Swim Like a Puffin**\
+`Scientists hoped for years to make a machine that could emulate the movements of diving birds, such as puffins, and offer an affordable, unobtrusive way to monitor fragile marine ecosystems. A team of researchers at M.I.T. has been able to create such a waterproof winged robot, according to a study published July 9 in the journal Science.`\
+https://www.nytimes.com/video/science/100000011021746/winged-robot-diving-birds-science.html
+
+**Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
+`The quarterly results reflect the dichotomy between geopolitical uncertainty and the stable American economy.`\
+https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
+
 **Israel and Lebanon Meet to Advance Peace Talks, as Broader Truce Unravels**\
 `Expectations are low for the latest round of U.S.-mediated talks, aimed at ending months of war between Israel and t Hezbollah.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/israel-lebanon-peace-talks.html

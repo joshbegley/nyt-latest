@@ -1,8 +1,12 @@
+**With Lizzo and Calm Flair, a Storied Venue Reopens for Summer**\
+`The gorgeously renovated Hunter Pavilion at Ravinia, the Chicago Symphony Orchestra’s off-season home, was inaugurated with a gala last weekend.`\
+https://www.nytimes.com/2026/07/14/arts/music/ravinia-festival-hunter-pavilion-chicago-symphony.html
+
 **New Winged Robot Can Fly and Swim Like a Puffin**\
 `Inspired by the physical feats of diving birds, researchers have created a robot that can plunge into the water and flap back into the air.`\
 https://www.nytimes.com/2026/07/14/science/new-winged-robot-can-fly-and-swim-like-a-puffin.html
 
-**New Winged Robot Can Fly And Swim Like a Puffin**\
+**New Winged Robot Can Fly and Swim Like a Puffin**\
 `Scientists hoped for years to make a machine that could emulate the movements of diving birds, such as puffins, and offer an affordable, unobtrusive way to monitor fragile marine ecosystems. A team of researchers at M.I.T. has been able to create such a waterproof winged robot, according to a study published July 9 in the journal Science.`\
 https://www.nytimes.com/video/science/100000011021746/winged-robot-diving-birds-science.html
 
@@ -79,7 +83,7 @@ https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.
 https://www.nytimes.com/2026/07/14/business/dealbook/chai-discovery-ai-drug-development.html
 
 **Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
-`The largest banks in the United States collectively raked in tens of billions of profits in the second quarter, despite the war in Iran and persistent inflation.`\
+`The quarterly results reflect the dichotomy between geopolitical uncertainty and the stable American economy.`\
 https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
 
 **Bloomberg Loses Landmark Libel Case in Singapore**\
