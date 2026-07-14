@@ -1,3 +1,11 @@
+**Mahmoud Khalil Accuses Trump Officials of Conspiring Against Him**\
+`Mr. Khalil will now have to convince a judge that the defendants coordinated to take action against him and other pro-Palestinian activists.`\
+https://www.nytimes.com/2026/07/14/nyregion/mahmoud-khalil-trump-conspiracy-lawsuit.html
+
+**ICE Ordered to Cease Most Vehicle Stops After 2 Killings in a Week**\
+`Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles. The killings were the latest in a string of ICE shootings during President Trump’s second term.`\
+https://www.nytimes.com/2026/07/14/us/ice-agents-traffic-stops.html
+
 **Lessons in Rich Guy Style from Sun Valley**\
 `What went down at the equivalent of Fashion Week for tech bros. Plus, Jay-Z’s still got it.`\
 https://www.nytimes.com/2026/07/14/style/sun-valley-conference-style.html
