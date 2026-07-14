@@ -1,3 +1,11 @@
+**Israel and Lebanon Meet to Advance Peace Talks, as Broader Truce Unravels**\
+`Expectations are low for the latest round of U.S.-mediated talks, aimed at ending months of war between Israel and t Hezbollah.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/israel-lebanon-peace-talks.html
+
+**Live Updates: Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
+`The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
 **New Winged Robot Can Fly and Swim Like a Puffin**\
 `Inspired by the physical feats of diving birds, researchers have created a robot that can plunge into the water and flap back into the air.`\
 https://www.nytimes.com/2026/07/14/science/new-winged-robot-can-fly-and-swim-like-a-puffin.html
