@@ -1,3 +1,23 @@
+**Graham’s Sister Is Sworn In to Finish His Senate Term**\
+`Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
+https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html
+
+****\
+`Axuan Bu, a food stall owner in Jinhua, has absorbed rising egg costs rather than raise prices for customers.`\
+https://www.nytimes.com/video/embedded/business/100000011031317/China-Eggs_Jianbing_Man-video.html
+
+**Climate: An extraordinary White House meeting**\
+`A new book sheds light on President Trump’s affinity for fossil fuels.`\
+https://www.nytimes.com/2026/07/14/climate/climate-an-extraordinary-white-house-meeting.html
+
+****\
+`A vendor prepares jianbing, a popular Chinese savory pancake, as rising egg and fuel costs increase operating expenses.`\
+https://www.nytimes.com/video/embedded/business/100000011031314/China-Eggs_Jianbing_Opener.html
+
+**Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
+`Julie Menin, the City Council speaker, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
+
 **Expelled from China**\
 `A New York Times correspondent was kicked out of the country after reporting on the struggles of everyday Chinese. Here’s her story.`\
 https://www.nytimes.com/2026/07/14/world/china-journalist-expelled-spain-world-cup.html

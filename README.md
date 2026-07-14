@@ -1,4 +1,4 @@
-**Graham’s Sister Is Sworn In to Finish His Senate Term**\
+**Lindsey Graham’s Sister, Darline Graham, Is Sworn In to Finish His Senate Term**\
 `Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
 https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html
 
