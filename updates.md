@@ -1,3 +1,31 @@
+**Three Things Democrats Have to Do if They Actually Want to Win**\
+`It is these issues that serve to reinforce the perception that Democrats are willing to sacrifice the interests of the working and middle classes.`\
+https://www.nytimes.com/2026/07/14/opinion/project-2026-2028-democratic-platform.html
+
+**What Xi Jinping Wants**\
+`Kevin Rudd, a former prime minister of Australia, went back to school to try to understand how the Chinese president thinks.`\
+https://www.nytimes.com/2026/07/14/opinion/ezra-klein-podcast-kevin-rudd.html
+
+**The World Cup, in Photos**\
+`See some of the best images from the world’s most popular sporting event.`\
+https://www.nytimes.com/2026/07/14/sports/soccer/world-cup-photos.html
+
+**New York to Enact Nation’s First Statewide Moratorium on Data Centers**\
+`Gov. Kathy Hochul will sign an executive order pausing the construction of the largest data centers for one year while the state assesses their effects on the environment and energy use.`\
+https://www.nytimes.com/2026/07/14/nyregion/new-york-data-center-moratorium-hochul.html
+
+**Corrections: July 14, 2026**\
+`Corrections that appeared in print on Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/14/pageoneplus/corrections-july-14-2026.html
+
+**In Rare Testimony, Supreme Court Justices Will Ask Congress for Security Funds**\
+`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are requesting millions of dollars to address security concerns amid rising threats.`\
+https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-testimony-security.html
+
+**Blanche Was a Driving Force in Retribution Campaign, Emails Show**\
+`The cooperation of Todd Blanche in President Trump’s retribution against enemies will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
+https://www.nytimes.com/2026/07/14/us/politics/blanche-was-a-driving-force-in-retribution-campaign-emails-show.html
+
 **In ‘The Westies,’ Chris Brancato Expands His ‘Scumbag Universe’ (Again)**\
 `For his new series, the co-creator of “Narcos” and “Godfather of Harlem” turns his focus to a violent gang of Irish New Yorkers in the early 1980s.`\
 https://www.nytimes.com/2026/07/14/arts/television/the-westies.html

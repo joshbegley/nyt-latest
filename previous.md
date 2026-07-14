@@ -1,3 +1,31 @@
+**Three Things Democrats Have to Do if They Actually Want to Win**\
+`It is these issues that serve to reinforce the perception that Democrats are willing to sacrifice the interests of the working and middle classes.`\
+https://www.nytimes.com/2026/07/14/opinion/project-2026-2028-democratic-platform.html
+
+**What Xi Jinping Wants**\
+`Kevin Rudd, a former prime minister of Australia, went back to school to try to understand how the Chinese president thinks.`\
+https://www.nytimes.com/2026/07/14/opinion/ezra-klein-podcast-kevin-rudd.html
+
+**The World Cup, in Photos**\
+`See some of the best images from the world’s most popular sporting event.`\
+https://www.nytimes.com/2026/07/14/sports/soccer/world-cup-photos.html
+
+**New York to Enact Nation’s First Statewide Moratorium on Data Centers**\
+`Gov. Kathy Hochul will sign an executive order pausing the construction of the largest data centers for one year while the state assesses their effects on the environment and energy use.`\
+https://www.nytimes.com/2026/07/14/nyregion/new-york-data-center-moratorium-hochul.html
+
+**Corrections: July 14, 2026**\
+`Corrections that appeared in print on Tuesday, July 14, 2026.`\
+https://www.nytimes.com/2026/07/14/pageoneplus/corrections-july-14-2026.html
+
+**In Rare Testimony, Supreme Court Justices Will Ask Congress for Security Funds**\
+`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are requesting millions of dollars to address security concerns amid rising threats.`\
+https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-testimony-security.html
+
+**Blanche Was a Driving Force in Retribution Campaign, Emails Show**\
+`The cooperation of Todd Blanche in President Trump’s retribution against enemies will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
+https://www.nytimes.com/2026/07/14/us/politics/blanche-was-a-driving-force-in-retribution-campaign-emails-show.html
+
 **In ‘The Westies,’ Chris Brancato Expands His ‘Scumbag Universe’ (Again)**\
 `For his new series, the co-creator of “Narcos” and “Godfather of Harlem” turns his focus to a violent gang of Irish New Yorkers in the early 1980s.`\
 https://www.nytimes.com/2026/07/14/arts/television/the-westies.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/2026/07/14/opinion/ukraine-russia-patriots-drones.html
 **Protests Break Out After ICE Agent Kills Person in Maine**\
 `People took to the streets to protest after a federal agent fatally shot a person during a vehicle stop in Biddeford, Maine, on Monday.`\
 https://www.nytimes.com/video/us/100000011027748/maine-ice-fatal-shooting.html
-
-**Quote of the Day: Some New York City Parks Leave the Light on for Soccer Camaraderie**\
-`Quotation of the Day for Tuesday, July 14, 2026.`\
-https://www.nytimes.com/2026/07/14/pageoneplus/quote-of-the-day-some-new-york-city-parks-leave-the-light-on-for-soccer-camaraderie.html
-
-**Los robots ucranianos revolucionan la guerra terrestre**\
-`Empezaron como vehículos de transporte de materiales. Ahora, los robots terrestres evacuan heridos, defienden trincheras e incluso matan.`\
-https://www.nytimes.com/es/2026/07/14/espanol/mundo/guerra-ucrania-rusia-robots.html
-
-**Agitation in Dementia Can Be Helped by Medical Cannabis, Study Suggests**\
-`A combination of THC and CBD eased symptoms in an especially frail population: patients with advanced dementia near the end of their lives.`\
-https://www.nytimes.com/2026/07/14/well/agitation-dementia-medical-cannabis-study.html
-
-**Deportations by India Cause Tension Along Border with Bangladesh**\
-`India is driving out Bangladeshi immigrants it says are in the country illegally. Bangladesh is pushing back, leaving people stranded along the border amid increasing tensions between the countries.`\
-https://www.nytimes.com/2026/07/14/world/asia/india-bangladesh-border-migration.html
-
-**OpenAI Is Showing Kalshi’s World Cup Odds in ChatGPT**\
-`The partnership, a first of its kind for the artificial intelligence company, will use the prediction market’s data to power some search results about the soccer tournament.`\
-https://www.nytimes.com/2026/07/13/technology/kalshi-openai-chatgpt-world-cup-odds.html
-
-**Pat Oliphant, Cartoonist Who Skewered the Powerful, Dies at 90**\
-`The winner of countless awards, including a Pulitzer Prize, he was described in 1990 as “the most influential political cartoonist now working.”`\
-https://www.nytimes.com/2026/07/13/arts/pat-oliphant-dead.html
-
-**Maine ICE Shooting: What We Know About the Death of Joan Sebastian Guerrero**\
-`A federal immigration agent shot and killed a man in a car on Monday morning in Biddeford, Maine. It was the second fatal encounter in a week involving an agent and a person in a vehicle.`\
-https://www.nytimes.com/2026/07/13/us/ice-shooting-maine-guerrero.html
 
