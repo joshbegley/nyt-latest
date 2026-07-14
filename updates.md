@@ -1,3 +1,23 @@
+**White House Cheers Inflation Data While Iran War Sparks New Price Surge**\
+`The news of an improvement in consumer prices in June came as the U.S. and Iran escalated attacks, risking a return to high energy prices.`\
+https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-price-surge.html
+
+**Justice Kagan Tells House Panel That ‘Threats Have Come Very Close’**\
+`In her prepared remarks, Justice Elena Kagan said the Supreme Court Police estimated a 38 percent increase in threats this year.`\
+https://www.nytimes.com/2026/07/14/us/politics/kagan-house-testimony-supreme-court.html
+
+**Jeffries Says He Will Oppose Proposal to Cut Off U.S. Aid to Israel**\
+`The New York Democrat and minority leader indicated that he would not seek to persuade other Democrats to vote against the measure, which has divided the party amid a deep rift over support for Israel.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/jeffries-israel-aid.html
+
+**Warsh Reiterates Fed’s Pledge to Get Inflation Down**\
+`Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
+https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
+
+**Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
+`The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
 **What to know about the report.**\
 `(No description)`\
 https://www.nytimes.com/2026/07/14/business/economy/inflation-cpi.html

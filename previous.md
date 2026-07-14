@@ -1,3 +1,15 @@
+**White House Cheers Inflation Data While Iran War Sparks New Price Surge**\
+`The news of an improvement in consumer prices in June came as the U.S. and Iran escalated attacks, risking a return to high energy prices.`\
+https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-price-surge.html
+
+**Justice Kagan Tells House Panel That ‘Threats Have Come Very Close’**\
+`In her prepared remarks, Justice Elena Kagan said the Supreme Court Police estimated a 38 percent increase in threats this year.`\
+https://www.nytimes.com/2026/07/14/us/politics/kagan-house-testimony-supreme-court.html
+
+**Jeffries Says He Will Oppose Proposal to Cut Off U.S. Aid to Israel**\
+`The New York Democrat and minority leader indicated that he would not seek to persuade other Democrats to vote against the measure, which has divided the party amid a deep rift over support for Israel.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/jeffries-israel-aid.html
+
 **Roger Worthington Is Suing Over a Heat Wave**\
 `Roger Worthington is helping to lead a $50 billion lawsuit against oil producers. This week he’ll face powerful critics in Congress.`\
 https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-industry-lawyer.html
@@ -30,7 +42,7 @@ https://www.nytimes.com/interactive/polls/nevada-us-house-2-polls-2026.html
 `The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
 
-**Warsh to Reiterate Fed’s Pledge to Get Inflation Down**\
+**Warsh Reiterates Fed’s Pledge to Get Inflation Down**\
 `Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
 https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
 
@@ -58,8 +70,8 @@ https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
 `In a show of collective strength, President Emmanuel Macron of France hosted European allies at the annual Bastille Day parade in Paris. Yet Europe is still a hostage to America’s foreign policy.`\
 https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
 
-**Live Updates: Inflation Slows on Lower Energy Prices**\
-`The Consumer Price Index dropped to a 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
+**Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
+`The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
 **What to know about the report.**\
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.htm
 **Who Would Benefit From Open Primaries in New York?**\
 `Proponents of primaries where voters can cast ballots regardless of party affiliation tend to be wealthier interests, including developers. Left-leaning groups tend to oppose them.`\
 https://www.nytimes.com/2026/07/14/nyregion/who-would-benefit-from-open-primaries-in-new-york.html
-
-**Red State, Blue Governor: It Could Happen in Iowa. Would It Matter?**\
-`Democrats have real hope for candidates for governor in red states like Iowa and Ohio, but if Republicans seize supermajorities in the legislatures, their power would be limited.`\
-https://www.nytimes.com/2026/07/14/us/politics/republican-supermajority-iowa-ohio.html
-
-**How to Grow Vegetables All Year Round**\
-`An organic farmer reveals his system for sowing seeds, mapping crops and keeping your favorite lettuces, carrots and radishes sprouting from summer into winter.`\
-https://www.nytimes.com/2026/07/14/realestate/a-methodic-way-to-keep-the-vegetables-coming.html
-
-**A Beastie Boy Returns to the Mic, With Some Help**\
-`Thanks to an assist from his sons, Mike D is set to release “Thank You,” the first new music from a member of the pioneering rap trio in 15 years.`\
-https://www.nytimes.com/2026/07/14/arts/music/mike-d-new-album-beastie-boys.html
 
