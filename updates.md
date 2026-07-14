@@ -1,3 +1,7 @@
+**Oil Rises Above $85 a Barrel as Gulf Clash Escalates**\
+`Brent crude, the international benchmark, breached $85 per barrel for the first time in a month.`\
+https://www.nytimes.com/2026/07/14/business/oil-prices-iran-war.html
+
 **This 91-Year-Old Is Hiking 2,190 Miles. Again.**\
 `Dale Sanders, known as Grey Beard, is setting out to reclaim his record as the oldest person to hike the entire Appalachian Trail. He has 12 months to complete the roughly 2,190-mile trail for it to count as a thru-hike record – and is on track to finish in time.`\
 https://www.nytimes.com/video/well/move/100000010991871/this-91-year-old-is-hiking-2190-miles-again.html
