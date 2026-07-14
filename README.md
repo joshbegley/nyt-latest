@@ -1,3 +1,7 @@
+**Lessons in Rich Guy Style from Sun Valley**\
+`What went down at the equivalent of Fashion Week for tech bros. Plus, Jay-Z’s still got it.`\
+https://www.nytimes.com/2026/07/14/style/sun-valley-conference-style.html
+
 **Antonio Rattín, Whose World Cup Expulsion Led to Penalty-Card System, Dies at 89**\
 `The ejection of the Argentine soccer star during a 1966 match against England led to the introduction of yellow and red cards.`\
 https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
 `A federal jury found President Trump liable for sexually assaulting and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
 https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html
 
-**Warren Buffet Declines to Donate to Gates Foundation**\
+**Warren Buffet Declines to Donate to Gates Foundation Amid Epstein Revelations**\
 `The decision by the Berkshire Hathaway founder comes in the wake of Epstein revelations that have troubled the Gates Foundation.`\
 https://www.nytimes.com/2026/07/14/business/media/warren-buffett-gates-foundation-gift.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/14/crosswords/connections-companion-1130.html
 **NYT Strands Hints for July 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
 https://www.nytimes.com/2026/07/14/crosswords/strands-sidekick-864.html
-
-**Today’s Wordle Hints for July 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
-https://www.nytimes.com/2026/07/14/crosswords/wordle-review-1852.html
 
