@@ -1,3 +1,7 @@
+**Graciela Has Fired Up the Parrilla for Argentine Cooking**\
+`Casa Felix serves up esquites risotto, Granola Bar expands and more restaurant news.`\
+https://www.nytimes.com/2026/07/14/dining/nyc-restaurant-news.html
+
 **Leonard Abramson, Health Care Innovator and Philanthropist, Dies at 93**\
 `He created U.S. Healthcare, one of the first H.M.O.s, and used his great wealth from the sale of the company for causes like advancing cancer research.`\
 https://www.nytimes.com/2026/07/14/health/leonard-abramson-dead.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/14/briefing/in-the-public-interest.html
 **El plan de Israel para cambiar de régimen en Irán**\
 `Esta es la insólita historia detrás de una operación fallida para instalar a Mahmud Ahmadineyad como el próximo líder de Irán.`\
 https://www.nytimes.com/es/2026/07/14/espanol/mundo/plan-israel-cambio-regimen-iran.html
-
-**The Lo-Fi Way I Broke My Scrolling Habit**\
-`I tried many remedies to break my social media habit. A homemade hack worked best.`\
-https://www.nytimes.com/2026/07/14/opinion/culture/phone-algorithm-addiction.html
 
