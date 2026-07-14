@@ -1,3 +1,7 @@
+**Trump paga 5,6 millones de dólares a E. Jean Carroll por caso civil**\
+`Un jurado federal determinó que el presidente Trump era responsable de abuso sexual y difamación contra Carroll. Luego de que él agotó todas las vías de apelación el mes pasado, un juez ordenó que se efectuara el pago.`\
+https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-paga-e-jean-carroll.html
+
 **At War With Iran Again, Trump Finds an Opponent He Cannot Easily Dominate**\
 `The president is accustomed to forcing other countries to bend to his will. But he is struggling to come up with a strategy to extract Iranian concessions as the cease-fire he brokered collapses.`\
 https://www.nytimes.com/2026/07/14/us/politics/iran-trump-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/theater/the-whoopi-monologues-review-kerry-wa
 **Trump Says His Thursday Speech Will Focus on Election Security and Voting Machines**\
 `The planned prime-time address comes as the president has intensified his focus on election security in advance of the midterms and repeated false claims about the integrity of voting systems.`\
 https://www.nytimes.com/2026/07/14/us/politics/trump-speech-voting-elections.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011030433/14vid-Trump-embed-99470.html
 
