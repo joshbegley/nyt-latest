@@ -1,3 +1,23 @@
+**Why the Cease-Fire With Iran Keeps Crumbling**\
+`The rushed U.S.-Iran agreement is sliding backward, potentially transforming a short-term crisis into a long, intractable war.`\
+https://www.nytimes.com/2026/07/14/podcasts/the-daily/iran-war-ceasefire-crumbling.html
+
+**Trump Says U.S. Will ‘Take Over’ Strait of Hormuz, and How Russia Made Japan a Den of Spies**\
+`Plus, scientists find sugar in outer space.`\
+https://www.nytimes.com/2026/07/14/podcasts/the-headlines/trump-strait-of-hormuz-russia-japan-ukraine-war-space-sugar.html
+
+**NYT Connections Answers for July 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/14/crosswords/connections-companion-1130.html
+
+**NYT Strands Hints for July 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/14/crosswords/strands-sidekick-864.html
+
+**Today’s Wordle Hints for July 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/14/crosswords/wordle-review-1852.html
+
 **Trump’s Plan to Charge a Toll in the Strait of Hormuz: What to Know**\
 `President Trump announced a 20 percent fee on cargo through the waterway, despite his own administration’s position that such fees violate international law.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/trump-iran-strait-hormuz-toll-oil.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/video/well/move/100000010991871/this-91-year-old-is-hiki
 **Una solución ancestral para nuestra crisis moderna de atención**\
 `Séneca nos señala que cuando dejamos que las ideas vayan y vengan a toda velocidad, agotamos nuestras mentes.`\
 https://www.nytimes.com/es/2026/07/14/espanol/opinion/atencion-distracciones-tiktok-solucion.html
-
-**Iran Live Updates: U.S. and Iran Reignite War Over Strait of Hormuz**\
-`The two countries slid back to open war over the waterway, as the U.S. planned to reinstate a blockade on Iranian ports on Tuesday. Iran said it had attacked two tankers and fired at U.S. military sites.`\
-https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
-
-**Trump Orders Tolls and Blockade as Fighting With Iran Resumes**\
-`President Trump notified Congress that he had resumed strikes on Iran, as the cease-fire effectively collapsed. He also ordered a naval blockade and announced shipping tolls in the Strait of Hormuz.`\
-https://www.nytimes.com/video/world/asia/100000011029063/iran-trump-strait-hormuz-toll.html
-
-**New York Is Having a Legionnaires’ Outbreak. Here’s What to Know.**\
-`Health officials had not identified the source of the bacteria but said they were optimistic about finding a culprit.`\
-https://www.nytimes.com/2026/07/14/nyregion/legionnaires-disease-nyc-what-to-know.html
-
-**NYT Spelling Bee Answers for July 14, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/14/crosswords/spelling-bee-forum.html
-
-**Jon Stewart Mocks Mitch McConnell’s Recovery Photo**\
-`The “Daily Show” host called the image “totally believable evidence that Mitch McConnell is not only alive, but the happiest boy in the hospital.”`\
-https://www.nytimes.com/2026/07/14/arts/television/jon-stewart-mitch-mcconnell-recovery.html
 
