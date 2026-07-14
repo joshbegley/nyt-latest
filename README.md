@@ -1,3 +1,7 @@
+**Graham’s Death Complicates G.O.P. Agenda in Congress**\
+`Senators returned to the Capitol mourning their colleague, who played pivotal roles on multiple issues confronting lawmakers.`\
+https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-complications-gop-agenda.html
+
 **Tension Emerges Among Democratic Socialists Over 2028 Endorsement**\
 `A meeting to decide on a plan to back a presidential candidate, most likely Representative Alexandria Ocasio-Cortez, turned acrimonious, and a proposal to poll members was rejected.`\
 https://www.nytimes.com/2026/07/13/nyregion/dsa-endorsement-aoc-new-york.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
 **The Fed’s Christopher Waller Warns of Higher Rates Soon if Inflation Stays High**\
 `Christopher J. Waller, a governor at the Federal Reserve, said he needed to see several months of lower inflation data to feel confident about the outlook.`\
 https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
-
-**D.O.J. Turns Over Evidence in Minnesota D.H.S. Shootings**\
-`Investigators had for months refused to share information with their state counterparts about three shootings involving federal agents.`\
-https://www.nytimes.com/2026/07/13/us/minnesota-ice-shootings-evidence-pretti-renee-good.html
 
