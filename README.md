@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/07/14/arts/television/difficult-people.html
 `An odd silence has surrounded a delay to fill several open seats on the board of the Smithsonian, even as a fierce battle to control the institution ensues.`\
 https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.html
 
-**Trump Will Let Ukraine Build Patriots. Ukraine Wants to Make Homegrown Missiles, Too.**\
+**Ukraine Wants to Make Its Own Antimissile System, Not Just Patriots**\
 `The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
 https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
 
