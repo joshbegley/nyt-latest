@@ -1,3 +1,7 @@
+**Muere Antonio Rattín, futbolista de Argentina**\
+`La expulsión del astro del fútbol argentino durante un partido contra Inglaterra en 1966 llevó a la introducción de las tarjetas amarillas y rojas.`\
+https://www.nytimes.com/es/2026/07/14/espanol/deportes/muere-antonio-rattin-argentina-mundial.html
+
 **Restaurant Review: Demo in New York**\
 `Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
 https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
