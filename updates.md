@@ -1,3 +1,11 @@
+**New York Is Having a Legionnaires’ Outbreak. Here’s What to Know.**\
+`Health officials had not identified the source of the bacteria but said they were optimistic about finding a culprit.`\
+https://www.nytimes.com/2026/07/14/nyregion/legionnaires-disease-nyc-what-to-know.html
+
+**NYT Spelling Bee Answers for July 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/14/crosswords/spelling-bee-forum.html
+
 **Jon Stewart Mocks Mitch McConnell’s Recovery Photo**\
 `The “Daily Show” host called the image “totally believable evidence that Mitch McConnell is not only alive, but the happiest boy in the hospital.”`\
 https://www.nytimes.com/2026/07/14/arts/television/jon-stewart-mitch-mcconnell-recovery.html
