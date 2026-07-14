@@ -1,3 +1,7 @@
+**Un agente del ICE dispara y mata a un hombre que conducía un vehículo en Maine**\
+`Las autoridades estatales investigan lo ocurrido en Biddeford. Es el segundo tiroteo mortal relacionado con agentes migratorios en menos de una semana. No está claro si el conductor era la persona a la que buscaba el ICE.`\
+https://www.nytimes.com/es/2026/07/13/espanol/ice-mata-hombre-colombiano-maine.html
+
 **Graham’s Death Complicates G.O.P. Agenda in Congress**\
 `Senators returned to the Capitol mourning their colleague, who played pivotal roles on multiple issues confronting lawmakers.`\
 https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-complications-gop-agenda.html
