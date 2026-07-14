@@ -151,7 +151,7 @@ https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thaila
 https://www.nytimes.com/interactive/polls/nevada-us-house-2-polls-2026.html
 
 **N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
-`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at.`\
+`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at and what they were looking for.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
 
 **Warsh Reiterates Fed’s Pledge to Get Inflation Down but Doesn’t Specify How**\

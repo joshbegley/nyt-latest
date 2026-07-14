@@ -1,3 +1,7 @@
+**N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
+`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at and what they were looking for.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
+
 **The Wild West of Ultraprocessed Food**\
 `Salt and sugar taste great, and Big Food knows that. While ultraprocessed foods are formulated to keep us coming back for more, the Times Opinion writer Jessica Grose argues that a lack of regulation in the food industry means consumers pay the cost, not corporations.`\
 https://www.nytimes.com/video/opinion/100000010999988/the-wild-west-of-ultraprocessed-food.html
