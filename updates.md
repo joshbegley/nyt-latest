@@ -1,3 +1,15 @@
+**Trump Drops Plan to Tax Ships as Fighting with Iran escalates**\
+`The president’s proposal to impose a fee on shipping in the Strait of Hormuz threatened to increase global energy prices.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/trump-drops-plan-to-tax-ships-as-fighting-with-iran-escalates.html
+
+**Graham’s Death Leaves Fate of Russia Sanctions Bill Uncertain**\
+`Supporters in both parties hope the measure to penalize Russia, championed by Senator Lindsey Graham, will gain momentum in his honor.`\
+https://www.nytimes.com/2026/07/14/us/politics/graham-death-russia-sanctions-trump.html
+
+**Chipotle abrirá su primera sucursal en México**\
+`Uno podría preguntarse si México necesita una versión de su comida creada por estadounidenses. La empresa con sede en California apuesta por que sí.`\
+https://www.nytimes.com/es/2026/07/14/espanol/negocios/mexico-chipotle-burritos-monterrey.html
+
 **Senate Democrats Block Defense Bill Over War in Iran**\
 `The vote reflected how the political debate over the conflict in the Middle East has sapped bipartisan support for a normally popular measure.`\
 https://www.nytimes.com/2026/07/14/us/politics/senate-democrats-defense-bill.html
