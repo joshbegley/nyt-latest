@@ -1,3 +1,7 @@
+**Gambling Figure Indicted in 3 Major Cases Is Expected to Plead Guilty**\
+`Prosecutors have tied Shane Hennen to rigged outcomes in high-stakes poker as well as in the N.B.A. and N.C.A.A.`\
+https://www.nytimes.com/2026/07/14/nyregion/shane-hennen-poker-nba-gambling-scandal.html
+
 **Gold Trader Who Helped Iran Dodge Sanctions Avoids Prison Sentence**\
 `Reza Zarrab’s cooperation exposed a financial pipeline to Iran’s regime, threatening to bring down powerful people in Turkey. A decade later, the case has been closed.`\
 https://www.nytimes.com/2026/07/14/nyregion/turkey-zarrab-halkbank-erdogan-iran.html
