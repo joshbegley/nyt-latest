@@ -1,3 +1,7 @@
+**How Erling Haaland’s Brand of Weird Resonates in China**\
+`The Norwegian striker has drawn an ardent following for his silly, self-deprecating online presence. Chinese fans, who have dubbed him “Baby Ha,” show their affection in memes.`\
+https://www.nytimes.com/2026/07/14/sports/soccer/how-erling-haalands-brand-of-weird-resonates-in-china.html
+
 **Why the Cease-Fire With Iran Keeps Crumbling**\
 `The rushed U.S.-Iran agreement is sliding backward, potentially transforming a short-term crisis into a long, intractable war.`\
 https://www.nytimes.com/2026/07/14/podcasts/the-daily/iran-war-ceasefire-crumbling.html
@@ -82,8 +86,8 @@ https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.htm
 `The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
 https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
 
-**Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem**\
-`Scientists have argued over the question since 1883.`\
+**Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
+`For more than a century, physicists have argued about which way a submerged sprinkler sucking in water would spin. Careful experiments provide a clear answer.`\
 https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
 
 **Who Would Benefit From Open Primaries in New York?**\
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html
 `They can ache, itch and sometimes need surgery. We asked experts why they happen and what helps.`\
 https://www.nytimes.com/2026/07/14/well/varicose-veins.html
 
-**The Democratic Establishment Is Finally Getting the Reckoning It Deserves**\
+**The Democratic Establishment Had This Coming**\
 `The Democratic Party needs shaking up.`\
 https://www.nytimes.com/2026/07/14/opinion/democrats-platner-midterms.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/14/business/oil-prices-iran-war.html
 **This 91-Year-Old Is Hiking 2,190 Miles. Again.**\
 `Dale Sanders, known as Grey Beard, is setting out to reclaim his record as the oldest person to hike the entire Appalachian Trail. He has 12 months to complete the roughly 2,190-mile trail for it to count as a thru-hike record – and is on track to finish in time.`\
 https://www.nytimes.com/video/well/move/100000010991871/this-91-year-old-is-hiking-2190-miles-again.html
-
-**Una solución ancestral para nuestra crisis moderna de atención**\
-`Séneca nos señala que cuando dejamos que las ideas vayan y vengan a toda velocidad, agotamos nuestras mentes.`\
-https://www.nytimes.com/es/2026/07/14/espanol/opinion/atencion-distracciones-tiktok-solucion.html
 

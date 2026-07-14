@@ -1,3 +1,23 @@
+**Why the Cease-Fire With Iran Keeps Crumbling**\
+`The rushed U.S.-Iran agreement is sliding backward, potentially transforming a short-term crisis into a long, intractable war.`\
+https://www.nytimes.com/2026/07/14/podcasts/the-daily/iran-war-ceasefire-crumbling.html
+
+**Trump Says U.S. Will ‘Take Over’ Strait of Hormuz, and How Russia Made Japan a Den of Spies**\
+`Plus, scientists find sugar in outer space.`\
+https://www.nytimes.com/2026/07/14/podcasts/the-headlines/trump-strait-of-hormuz-russia-japan-ukraine-war-space-sugar.html
+
+**NYT Connections Answers for July 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/14/crosswords/connections-companion-1130.html
+
+**NYT Strands Hints for July 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/14/crosswords/strands-sidekick-864.html
+
+**Today’s Wordle Hints for July 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/14/crosswords/wordle-review-1852.html
+
 **Trump’s Plan to Charge a Toll in the Strait of Hormuz: What to Know**\
 `President Trump announced a 20 percent fee on cargo through the waterway, despite his own administration’s position that such fees violate international law.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/trump-iran-strait-hormuz-toll-oil.html
