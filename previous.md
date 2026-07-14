@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-pric
 https://www.nytimes.com/2026/07/14/us/politics/kagan-house-testimony-supreme-court.html
 
 **Jeffries Says He Will Oppose Proposal to Cut Off U.S. Aid to Israel**\
-`The New York Democrat and minority leader indicated that he would not seek to persuade other Democrats to vote against the measure, which has divided the party amid a deep rift over support for Israel.`\
+`The House Democratic leader said he would not seek to persuade other Democrats to vote against the measure, which has divided the party amid a deep rift over support for Israel.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/jeffries-israel-aid.html
 
 **Roger Worthington Is Suing Over a Heat Wave**\
@@ -74,8 +74,8 @@ https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-indust
 `Justices Amy Coney Barrett and Elena Kagan testify about the Supreme Court’s over $200 million request for more security.`\
 https://www.nytimes.com/video/us/politics/100000011028276/watch-live-supreme-court-asks-congress-for-more-security-funds.html
 
-**Live Updates: 2 Justices Testify on Supreme Court’s Need for More Security**\
-`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are seeking millions of dollars to address security concerns amid rising threats.`\
+**Live Updates: 2 Justices Tell Congress Supreme Court Needs Millions More for Security**\
+`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
 https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
 
 **Largest Landlord in the U.S. Accused of Widespread Fair Housing Violations**\
@@ -98,8 +98,8 @@ https://www.nytimes.com/interactive/polls/nevada-us-house-2-polls-2026.html
 `The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
 
-**Warsh Reiterates Fed’s Pledge to Get Inflation Down**\
-`Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
+**Warsh Reiterates Fed’s Pledge to Get Inflation Down but Doesn’t Specify How**\
+`Kevin M. Warsh, in his first testimony to Congress as chairman of the Federal Reserve, did not shed light on whether he supported higher interest rates to tame price pressures.`\
 https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
 
 **Paramount vs. the States**\

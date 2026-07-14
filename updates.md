@@ -1,3 +1,15 @@
+**Jeffries Says He Will Oppose Proposal to Cut Off U.S. Aid to Israel**\
+`The House Democratic leader said he would not seek to persuade other Democrats to vote against the measure, which has divided the party amid a deep rift over support for Israel.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/jeffries-israel-aid.html
+
+**Live Updates: 2 Justices Tell Congress Supreme Court Needs Millions More for Security**\
+`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
+https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
+
+**Warsh Reiterates Fed’s Pledge to Get Inflation Down but Doesn’t Specify How**\
+`Kevin M. Warsh, in his first testimony to Congress as chairman of the Federal Reserve, did not shed light on whether he supported higher interest rates to tame price pressures.`\
+https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
+
 **Some Positive (and Negative) Thinking About Therapy**\
 `Readers respond to “Not Everyone Should Be in Therapy,” an Opinion guest essay by Harvey Lieberman.`\
 https://www.nytimes.com/2026/07/14/opinion/therapy-mental-health.html
