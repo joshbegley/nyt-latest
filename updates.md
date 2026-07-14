@@ -1,3 +1,7 @@
+**Graciela Has Fired Up the Parrilla for Argentine Cooking**\
+`Casa Felix serves up esquites risotto, Granola Bar expands and more restaurant news.`\
+https://www.nytimes.com/2026/07/14/dining/nyc-restaurant-news.html
+
 **Leonard Abramson, Health Care Innovator and Philanthropist, Dies at 93**\
 `He created U.S. Healthcare, one of the first H.M.O.s, and used his great wealth from the sale of the company for causes like advancing cancer research.`\
 https://www.nytimes.com/2026/07/14/health/leonard-abramson-dead.html
