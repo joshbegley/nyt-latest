@@ -1,3 +1,11 @@
+**Restaurant Review: Demin in New York**\
+`Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
+https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
+
+**Culottes Are So Back**\
+`Culottes are back. Our Styles reporter Yola Mzizi explains their history and what they mean today.`\
+https://www.nytimes.com/video/style/100000011017153/culottes-are-so-back.html
+
 **Trump Drops Plan to Tax Ships as Fighting with Iran escalates**\
 `The president’s proposal to impose a fee on shipping in the Strait of Hormuz threatened to increase global energy prices.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/trump-drops-plan-to-tax-ships-as-fighting-with-iran-escalates.html

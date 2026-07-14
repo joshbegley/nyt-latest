@@ -1,3 +1,11 @@
+**Restaurant Review: Demin in New York**\
+`Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
+https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
+
+**Culottes Are So Back**\
+`Culottes are back. Our Styles reporter Yola Mzizi explains their history and what they mean today.`\
+https://www.nytimes.com/video/style/100000011017153/culottes-are-so-back.html
+
 **Trump Drops Plan to Tax Ships as Fighting with Iran escalates**\
 `The president’s proposal to impose a fee on shipping in the Strait of Hormuz threatened to increase global energy prices.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/trump-drops-plan-to-tax-ships-as-fighting-with-iran-escalates.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/14/world/canada/inky-mark-arrested-guns-manitoba
 **Today, In Short**\
 `Trade school. Fancy chicken tenders. And the World Cup.`\
 https://www.nytimes.com/2026/07/14/briefing/today-in-short.html
-
-**With Lizzo and Calm Flair, a Storied Venue Reopens for Summer**\
-`The gorgeously renovated Hunter Pavilion at Ravinia, the Chicago Symphony Orchestra’s off-season home, was inaugurated with a gala last weekend.`\
-https://www.nytimes.com/2026/07/14/arts/music/ravinia-festival-hunter-pavilion-chicago-symphony.html
-
-**New Winged Robot Can Fly and Swim Like a Puffin**\
-`Inspired by the physical feats of diving birds, researchers have created a robot that can plunge into the water and flap back into the air.`\
-https://www.nytimes.com/2026/07/14/science/new-winged-robot-can-fly-and-swim-like-a-puffin.html
 
