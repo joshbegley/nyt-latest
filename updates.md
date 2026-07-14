@@ -1,3 +1,11 @@
+**Brote de ciclosporiasis: autoridades de salud señalan a las lechugas como posible fuente**\
+`La enfermedad, que ha afectado a miles de personas en gran parte de Estados Unidos, va camino de convertirse en el mayor brote de la historia reciente.`\
+https://www.nytimes.com/es/2026/07/13/espanol/cyclospora-brote-lechuga.html
+
+**Wildfires Close Popular National Forest Area in Minnesota**\
+`Several fires in northeastern Minnesota are causing dangerous conditions and smoke in the Boundary Waters Canoe Area, which is used for camping and other outdoor recreation.`\
+https://www.nytimes.com/2026/07/13/us/wildfires-boundary-waters-forest-minnesota.html
+
 **Trump Says Fighting With Iran Has Resumed as He Orders Blockade and Tolls**\
 `After several days of strikes, the president notified Congress that fighting had begun again and announced shipping fees that his administration previously deemed illegal.`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-iran-ceasefire.html

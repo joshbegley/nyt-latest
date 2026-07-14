@@ -1,3 +1,11 @@
+**Brote de ciclosporiasis: autoridades de salud señalan a las lechugas como posible fuente**\
+`La enfermedad, que ha afectado a miles de personas en gran parte de Estados Unidos, va camino de convertirse en el mayor brote de la historia reciente.`\
+https://www.nytimes.com/es/2026/07/13/espanol/cyclospora-brote-lechuga.html
+
+**Wildfires Close Popular National Forest Area in Minnesota**\
+`Several fires in northeastern Minnesota are causing dangerous conditions and smoke in the Boundary Waters Canoe Area, which is used for camping and other outdoor recreation.`\
+https://www.nytimes.com/2026/07/13/us/wildfires-boundary-waters-forest-minnesota.html
+
 **Graham’s Death Complicates G.O.P. Agenda in Congress**\
 `Senators returned to the Capitol mourning their colleague, who played pivotal roles on multiple issues confronting lawmakers.`\
 https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-complications-gop-agenda.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/13/espanol/america-latina/bolsonaro-pelicula-
 **How Lindsey Graham’s Journey From Trump Critic to Ally Made Him a Power Player**\
 `He initially called Donald Trump a “kook” who was “unfit for office,” only to join the new president’s Mar-a-Lago circle. “I’m still in the game,” Mr. Graham once explained of his much-analyzed turnabout.`\
 https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-donald-trump.html
-
-**Judge Denounces Trump’s I.R.S. Suit as Improper Exercise in Self-Dealing**\
-`The decision also recommended disciplinary action against the lawyers involved, including the acting attorney general, Todd Blanche.`\
-https://www.nytimes.com/2026/07/13/us/politics/trump-irs-suit.html
-
-**The Fed’s Christopher Waller Warns of Higher Rates Soon if Inflation Stays High**\
-`Christopher J. Waller, a governor at the Federal Reserve, said he needed to see several months of lower inflation data to feel confident about the outlook.`\
-https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates.html
 
