@@ -1,3 +1,7 @@
+**Trump Orders Tolls and Blockade as Fighting With Iran Resumes**\
+`President Trump notified Congress that he had resumed strikes on Iran, as the cease-fire effectively collapsed. He also ordered a naval blockade and announced shipping tolls in the Strait of Hormuz.`\
+https://www.nytimes.com/video/world/asia/100000011029063/iran-trump-strait-hormuz-toll.html
+
 **New York Is Having a Legionnaires’ Outbreak. Here’s What to Know.**\
 `Health officials had not identified the source of the bacteria but said they were optimistic about finding a culprit.`\
 https://www.nytimes.com/2026/07/14/nyregion/legionnaires-disease-nyc-what-to-know.html
