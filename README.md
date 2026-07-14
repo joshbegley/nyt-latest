@@ -1,3 +1,11 @@
+**New York Is Having a Legionnaires’ Outbreak. Here’s What to Know.**\
+`Health officials had not identified the source of the bacteria but said they were optimistic about finding a culprit.`\
+https://www.nytimes.com/2026/07/14/nyregion/legionnaires-disease-nyc-what-to-know.html
+
+**NYT Spelling Bee Answers for July 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/14/crosswords/spelling-bee-forum.html
+
 **Jon Stewart Mocks Mitch McConnell’s Recovery Photo**\
 `The “Daily Show” host called the image “totally believable evidence that Mitch McConnell is not only alive, but the happiest boy in the hospital.”`\
 https://www.nytimes.com/2026/07/14/arts/television/jon-stewart-mitch-mcconnell-recovery.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011028469/would-a-social-media-ban-
 **Jay-Z Concert Delay Leaves Thousands Stuck Outside Yankee Stadium**\
 `Thousands of ticket holders were stuck outside Yankee Stadium for hours after people without tickets stormed the stadium’s entrances, delaying Jay-Z’s performance.`\
 https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stadium-delay.html
-
-**Lorenzo Salgado Araujo Chased the American Dream for 35 Years Before Fatal ICE Shooting**\
-`Lorenzo Salgado Araujo hoped to obtain legal status, his family said. He was killed last week by an immigration agent who was looking for a different man.`\
-https://www.nytimes.com/2026/07/13/us/lorenzo-salgado-araujo-houston.html
-
-**Hungary’s Parliament Votes to Remove Orban Loyalist From Presidential Post**\
-`Peter Magyar, Hungary’s prime minister, defended the extraordinary move, which has been criticized by human rights groups and by allies of Viktor Orban, the former right-wing leader.`\
-https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parliament-magyar-orban.html
 
