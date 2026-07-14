@@ -1,3 +1,15 @@
+**In the Public Interest**\
+`We look at the Trump administration’s attempts to pressure news organizations.`\
+https://www.nytimes.com/2026/07/14/briefing/in-the-public-interest.html
+
+**El plan de Israel para cambiar de régimen en Irán**\
+`Esta es la insólita historia detrás de una operación fallida para instalar a Mahmud Ahmadineyad como el próximo líder de Irán.`\
+https://www.nytimes.com/es/2026/07/14/espanol/mundo/plan-israel-cambio-regimen-iran.html
+
+**The Lo-Fi Way I Broke My Scrolling Habit**\
+`I tried many remedies to break my social media habit. A homemade hack worked best.`\
+https://www.nytimes.com/2026/07/14/opinion/culture/phone-algorithm-addiction.html
+
 **China Purges Top Official Over Corruption and Sex Charges**\
 `Ma Xingrui is the third member of the Politburo to be purged since 2022. He once led the Xinjiang region and was previously head of China’s space program.`\
 https://www.nytimes.com/2026/07/14/world/asia/china-expels-politburo-official-sex-corruption.html

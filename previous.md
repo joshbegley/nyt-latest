@@ -1,3 +1,15 @@
+**In the Public Interest**\
+`We look at the Trump administration’s attempts to pressure news organizations.`\
+https://www.nytimes.com/2026/07/14/briefing/in-the-public-interest.html
+
+**El plan de Israel para cambiar de régimen en Irán**\
+`Esta es la insólita historia detrás de una operación fallida para instalar a Mahmud Ahmadineyad como el próximo líder de Irán.`\
+https://www.nytimes.com/es/2026/07/14/espanol/mundo/plan-israel-cambio-regimen-iran.html
+
+**The Lo-Fi Way I Broke My Scrolling Habit**\
+`I tried many remedies to break my social media habit. A homemade hack worked best.`\
+https://www.nytimes.com/2026/07/14/opinion/culture/phone-algorithm-addiction.html
+
 **China Purges Top Official Over Corruption and Sex Charges**\
 `Ma Xingrui is the third member of the Politburo to be purged since 2022. He once led the Xinjiang region and was previously head of China’s space program.`\
 https://www.nytimes.com/2026/07/14/world/asia/china-expels-politburo-official-sex-corruption.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/14/travel/3-trips-near-venice-without-crowds.htm
 **The Housing Crisis Is Also a Retirement Crisis**\
 `A home has stopped being just a place to live — it has also become an asset.`\
 https://www.nytimes.com/2026/07/14/opinion/housing-retirement-crisis.html
-
-**What Happens if Pernambuco Wood Becomes Illegal in Music?**\
-`For centuries, the standard wood used to make string instruments’ bows has come from the pernambuco tree in Brazil. Its future is uncertain.`\
-https://www.nytimes.com/2026/07/14/arts/music/pernambuco-wood-bows.html
-
-**At 91, He’s Hiking the Appalachian Trail. Again.**\
-`Dale “Grey Beard” Sanders once set the record as the oldest person to complete the roughly 2,190-mile trail. Now, he’s back for his title.`\
-https://www.nytimes.com/2026/07/14/well/appalachian-trail-hiking-record-grey-beard.html
-
-**Oil Rises Above $85 a Barrel as Gulf Clash Escalates**\
-`Brent crude, the international benchmark, breached $85 per barrel for the first time in a month.`\
-https://www.nytimes.com/2026/07/14/business/oil-prices-iran-war.html
 
