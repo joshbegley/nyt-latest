@@ -1,3 +1,19 @@
+**Trump’s Plan to Charge a Toll in the Strait of Hormuz: What to Know**\
+`President Trump announced a 20 percent fee on cargo through the waterway, despite his own administration’s position that such fees violate international law.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/trump-iran-strait-hormuz-toll-oil.html
+
+**In Bangkok Bar Blaze, Signs of Fatal Lapses Repeated Across the World**\
+`After a fire killed 30 people, the scrutiny has turned to whether the venue used flammable foam on its ceilings and had blocked exits.`\
+https://www.nytimes.com/2026/07/14/world/asia/bangkok-bar-fire-flammable-foam.html
+
+**Why Supreme Court Justices Are Asking for More Security**\
+`Supreme Court justices are asking lawmakers on Capitol Hill to increase their 2027 budget, with most of the additional funding earmarked for security. Ann E. Marimow, a New York Times reporter, explains why the justices say these measures are necessary to protect them from rising threats.`\
+https://www.nytimes.com/video/us/politics/100000011017774/why-supreme-court-justices-are-asking-for-more-security.html
+
+**Iran Live Updates: U.S. and Iran Reignite War Over Strait of Hormuz**\
+`The two countries slid back to open war over the waterway, as the U.S. planned to reinstate a blockade on Iranian ports on Tuesday. Iran said it had attacked two tankers and fired at U.S. military sites.`\
+https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
+
 **¿Por qué a los niños les encanta ver ‘Moana’?**\
 `Esta película de 2016 se ha convertido en la más vista en Disney+. Los padres y los expertos explican por qué los niños no paran de verla.`\
 https://www.nytimes.com/es/2026/07/14/espanol/cultura/ninos-moana-explicacion.html
