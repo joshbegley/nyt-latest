@@ -1,3 +1,23 @@
+**Trump Administration Subpoenas Law Firms, Escalating Pressure Campaign**\
+`The uneasy truce between the administration and the law firms it cut deals with last year has erupted into a pitched legal battle behind closed doors.`\
+https://www.nytimes.com/2026/07/14/us/politics/trump-subpoenas-law-firms-epshteyn-aba.html
+
+**‘Sully,’ ‘Miracle on the Hudson’ Pilot, Announces Alzheimer’s Diagnosis**\
+`Captain Sullenberger said the disease was in its early stages, and that he was “in the beginning of this long journey.”`\
+https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
+
+**138 Picture Prompts to Inspire Student Writing**\
+`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing`\
+https://www.nytimes.com/2026/07/14/learning/138-picture-prompts-to-inspire-student-writing.html
+
+**N.Y.C. Council Speaker Backs Ban on Horse-Drawn Carriages**\
+`Julie Menin said she would support a bill, formerly known as Ryder’s Law, to ban the rides in Central Park after a tourist was killed in an accident last month.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
+
+**Trump Says His Thursday Speech Will Focus on Election Security and Voting Machines**\
+`The planned prime-time address comes as the president has intensified his focus on election security in advance of the midterms and repeated false claims about the integrity of voting systems.`\
+https://www.nytimes.com/2026/07/14/us/politics/trump-speech-voting-elections.html
+
 **Public Health Groups Sue F.D.A. Over Flavored E-Cigarette Policy**\
 `Executives unhappy with the agency donated and lobbied President Trump directly. Major companies have already begun to prepare and ship new products.`\
 https://www.nytimes.com/2026/07/14/health/flavored-vapes-fda.html
