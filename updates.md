@@ -1,3 +1,7 @@
+**Maine ICE Shooting: What We Know About the Death of Joan Sebastian Guerrero**\
+`A federal immigration agent shot and killed a man in a car on Monday morning in Biddeford, Maine. It was the second fatal encounter in a week involving an agent and a person in a vehicle.`\
+https://www.nytimes.com/2026/07/13/us/ice-shooting-maine-guerrero.html
+
 **NYT Crossword Answers for July 14, 2026**\
 `Gus Bloxham and Bharati Hemmady make their New York Times Crossword debut.`\
 https://www.nytimes.com/2026/07/13/crosswords/daily-puzzle-2026-07-14.html

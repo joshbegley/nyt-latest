@@ -1,3 +1,7 @@
+**Maine ICE Shooting: What We Know About the Death of Joan Sebastian Guerrero**\
+`A federal immigration agent shot and killed a man in a car on Monday morning in Biddeford, Maine. It was the second fatal encounter in a week involving an agent and a person in a vehicle.`\
+https://www.nytimes.com/2026/07/13/us/ice-shooting-maine-guerrero.html
+
 **NYT Crossword Answers for July 14, 2026**\
 `Gus Bloxham and Bharati Hemmady make their New York Times Crossword debut.`\
 https://www.nytimes.com/2026/07/13/crosswords/daily-puzzle-2026-07-14.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
 **Yemen’s Fragile Peace in Peril as Houthis Accuse Saudi Arabia of Bombing**\
 `The Iran-backed Houthi rebels in Yemen accused Saudi Arabia of striking Yemen’s main international airport in a dispute over an Iranian plane that tried to land in the capital, Sana.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/yemen-houthis-saudi-arabia-iran-war.html
-
-**El mundo rompe relaciones con EE. UU. El costo lo pagarán los estadounidenses**\
-`Reducir el riesgo que implican las superpotencias depredadoras es el reto fundamental de muchos países. Ahora el principal motivo de preocupación es Estados Unidos.`\
-https://www.nytimes.com/es/2026/07/13/espanol/opinion/trump-estados-unidos-mundo.html
 
