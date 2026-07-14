@@ -1,3 +1,11 @@
+**Trump Drops Plan to Tax Ships as Fighting with Iran escalates**\
+`The president’s proposal to impose a fee on shipping in the Strait of Hormuz threatened to increase global energy prices.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/trump-drops-plan-to-tax-ships-as-fighting-with-iran-escalates.html
+
+**Graham’s Death Leaves Fate of Russia Sanctions Bill Uncertain**\
+`Supporters in both parties hope the measure to penalize Russia, championed by Senator Lindsey Graham, will gain momentum in his honor.`\
+https://www.nytimes.com/2026/07/14/us/politics/graham-death-russia-sanctions-trump.html
+
 **Chipotle abrirá su primera sucursal en México**\
 `Uno podría preguntarse si México necesita una versión de su comida creada por estadounidenses. La empresa con sede en California apuesta por que sí.`\
 https://www.nytimes.com/es/2026/07/14/espanol/negocios/mexico-chipotle-burritos-monterrey.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/14/arts/music/ravinia-festival-hunter-pavilion-c
 **New Winged Robot Can Fly and Swim Like a Puffin**\
 `Inspired by the physical feats of diving birds, researchers have created a robot that can plunge into the water and flap back into the air.`\
 https://www.nytimes.com/2026/07/14/science/new-winged-robot-can-fly-and-swim-like-a-puffin.html
-
-**New Winged Robot Can Fly and Swim Like a Puffin**\
-`Scientists hoped for years to make a machine that could emulate the movements of diving birds, such as puffins, and offer an affordable, unobtrusive way to monitor fragile marine ecosystems. A team of researchers at M.I.T. has been able to create such a waterproof winged robot, according to a study published July 9 in the journal Science.`\
-https://www.nytimes.com/video/science/100000011021746/winged-robot-diving-birds-science.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011029884/14vid-coney-barrett-bulletproof-vest.html
 
