@@ -1,6 +1,18 @@
+**Families Collect Bodies From Bangkok Bar Fire**\
+`People on Tuesday collected the bodies of loved ones who died when a blaze tore through a popular bar in Bangkok on Sunday evening, killing at least 30 and injuring dozens more.`\
+https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thailand.html
+
+**Who Is Ahead in Nevada's 2nd Congressional District?**\
+`Track the latest polls in Nevada's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/nevada-us-house-2-polls-2026.html
+
+**N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
+`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at and what they were looking for.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
+
 **Warsh to Reiterate Fed’s Pledge to Get Inflation Down**\
 `Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
-https://www.nytimes.com/2026/07/14/business/economy/warsh-to-reiterate-feds-pledge-to-get-inflation-down.html
+https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
 
 **Paramount vs. the States**\
 `An effort to block media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/14/realestate/purchasing-second-home-vacation-ho
 **A Heated Rivalry Over Bull Mascots Is Dividing a Brazilian Town**\
 `Deep in the Amazon rainforest, a heated rivalry has split a town for a century. It’s got nothing to do with sports or politics.`\
 https://www.nytimes.com/2026/07/14/world/americas/bull-mascots-red-blue-parintins-brazil.html
-
-**Word of the Day: vagary**\
-`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/14/learning/word-of-the-day-vagary.html
-
-**The Strange Phenomenon of ‘Terminal Lucidity’**\
-`As they near death, some dementia patients recover mental faculties assumed to be long lost. Researchers want to know why.`\
-https://www.nytimes.com/2026/07/14/magazine/terminal-lucidity.html
-
-**Book Review: ‘Cloudthief,’ by Nathaniel Rich**\
-`“Cloudthief,” by Nathaniel Rich, follows a dispirited writer into a scheme to get rich and find romance along the way.`\
-https://www.nytimes.com/2026/07/14/books/review/nathaniel-rich-cloudthief.html
 

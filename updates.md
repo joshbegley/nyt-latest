@@ -1,3 +1,19 @@
+**Families Collect Bodies From Bangkok Bar Fire**\
+`People on Tuesday collected the bodies of loved ones who died when a blaze tore through a popular bar in Bangkok on Sunday evening, killing at least 30 and injuring dozens more.`\
+https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thailand.html
+
+**Who Is Ahead in Nevada's 2nd Congressional District?**\
+`Track the latest polls in Nevada's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/nevada-us-house-2-polls-2026.html
+
+**N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
+`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at and what they were looking for.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
+
+**Warsh to Reiterate Fed’s Pledge to Get Inflation Down**\
+`Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
+https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
+
 **Live Updates: Inflation Slows on Lower Energy Prices**\
 `The Consumer Price Index dropped to an 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed

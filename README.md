@@ -1,3 +1,11 @@
+**Largest Landlord in the U.S. Accused of Widespread Fair Housing Violations**\
+`Greystar turned away apartment applicants trying to use housing vouchers to pay rent, according to a watchdog group.`\
+https://www.nytimes.com/2026/07/14/realestate/greystar-fair-housing-complaints.html
+
+**Street Style Look of the Week: Homemade World Cup Swag**\
+`Tomoyo Tanaka-Ito’s connection to Senegal is mostly vibes-based. That didn’t stop her from spending days sewing shirts for its first World Cup match.`\
+https://www.nytimes.com/2026/07/14/style/street-style-look-diy-world-cup-swag.html
+
 **Families Collect Bodies From Bangkok Bar Fire**\
 `People on Tuesday collected the bodies of loved ones who died when a blaze tore through a popular bar in Bangkok on Sunday evening, killing at least 30 and injuring dozens more.`\
 https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thailand.html
@@ -147,7 +155,7 @@ https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.htm
 https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
 
 **Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
-`For more than a century, physicists debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
+`Physicists have debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
 https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
 
 **Who Would Benefit From Open Primaries in New York?**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/14/opinion/democrats-platner-midterms.html
 **Dark Sky Defenders Raise Alarm Along the Border of West Texas**\
 `Residents fear that the Trump administration’s plans to build a border wall will threaten the region’s spectacular starry skies.`\
 https://www.nytimes.com/2026/07/14/science/texas-astronomy-dark-sky-border.html
-
-**For Many First-Time Home Buyers, the Vacation Home Comes First**\
-`City dwellers priced out of owning locally look to vacation and weekend homes as a path to home ownership.`\
-https://www.nytimes.com/2026/07/14/realestate/purchasing-second-home-vacation-home-first.html
-
-**A Heated Rivalry Over Bull Mascots Is Dividing a Brazilian Town**\
-`Deep in the Amazon rainforest, a heated rivalry has split a town for a century. It’s got nothing to do with sports or politics.`\
-https://www.nytimes.com/2026/07/14/world/americas/bull-mascots-red-blue-parintins-brazil.html
 
