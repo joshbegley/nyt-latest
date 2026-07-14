@@ -1,3 +1,11 @@
+**¿Las venas varicosas son peligrosas?**\
+`Pueden causar dolor, picazón y, en ocasiones, requerir cirugía. Les preguntamos a los expertos por qué aparecen y qué puede ayudar.`\
+https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
+
+**Europe, Flexing Muscle in Ukraine, Is Still on Sidelines in Iran**\
+`In a show of collective strength, President Emmanuel Macron of France hosted European allies at the annual Bastille Day parade in Paris. Yet Europe is still a hostage to America’s foreign policy.`\
+https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
+
 **Live Updates: Inflation Data to Show Effects of Volatile Energy Prices**\
 `The Consumer Price Index for June will provide the latest look at how higher oil and gas prices are rippling through the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/14/dining/luxury-all-you-can-eat-dining.html
 **Book Review: ‘The Gospel According to Hobby Lobby,’ by Michael Blanding**\
 `A new book by Michael Blanding chronicles the history of Hobby Lobby and its billionaire founder’s campaign to promote conservative Christian values.`\
 https://www.nytimes.com/2026/07/14/books/review/the-gospel-according-to-hobby-lobby-michael-blanding.html
-
-**How a Promising Navy Drone Boat Program Got Mired in Politics**\
-`Navy acquisition reforms upended a $2.1 billion contract competition. When it was over, several companies with ties to the Trump administration had made the cut.`\
-https://www.nytimes.com/2026/07/14/us/politics/navy-drone-boat-acquisitions.html
-
-**3 Trips Near Venice, Without the Crowds**\
-`There is more to the northeastern Italian region of Veneto than its famous capital. We explore the area’s many treasures by bike, boat, train and on foot.`\
-https://www.nytimes.com/2026/07/14/travel/3-trips-near-venice-without-crowds.html
 
