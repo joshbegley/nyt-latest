@@ -1,3 +1,7 @@
+**Chipotle abrirá su primera sucursal en México**\
+`Uno podría preguntarse si México necesita una versión de su comida creada por estadounidenses. La empresa con sede en California apuesta por que sí.`\
+https://www.nytimes.com/es/2026/07/14/espanol/negocios/mexico-chipotle-burritos-monterrey.html
+
 **Senate Democrats Block Defense Bill Over War in Iran**\
 `The vote reflected how the political debate over the conflict in the Middle East has sapped bipartisan support for a normally popular measure.`\
 https://www.nytimes.com/2026/07/14/us/politics/senate-democrats-defense-bill.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/science/100000011021746/winged-robot-diving-birds-
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011029884/14vid-coney-barrett-bulletproof-vest.html
-
-**Israel and Lebanon Meet to Advance Peace Talks, as Broader Truce Unravels**\
-`Expectations are low for the latest round of U.S.-mediated talks, aimed at ending months of war between Israel and t Hezbollah.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/israel-lebanon-peace-talks.html
 

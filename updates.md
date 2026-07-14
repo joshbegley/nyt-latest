@@ -1,3 +1,15 @@
+**Senate Democrats Block Defense Bill Over War in Iran**\
+`The vote reflected how the political debate over the conflict in the Middle East has sapped bipartisan support for a normally popular measure.`\
+https://www.nytimes.com/2026/07/14/us/politics/senate-democrats-defense-bill.html
+
+**T. Rex Skeleton Sells for Record-Breaking $50.1 Million**\
+`The remains of a 12-and-a-half-foot-tall Tyrannosaurus rex, known as Gus, were sold on Tuesday by Sotheby’s in New York. The sale makes Gus the most valuable prehistoric specimen ever sold on the commercial market.`\
+https://www.nytimes.com/video/science/earth/100000011030114/t-rex-gus-auction-sold.html
+
+**Takeaways From Justices Kagan and Barrett’s Congressional Testimony on Supreme Court Security**\
+`Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during a collegial hearing.`\
+https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
+
 **Gambling Figure Indicted in 3 Major Cases Is Expected to Plead Guilty**\
 `Prosecutors have tied Shane Hennen to rigged outcomes in high-stakes poker as well as in the N.B.A. and N.C.A.A.`\
 https://www.nytimes.com/2026/07/14/nyregion/shane-hennen-poker-nba-gambling-scandal.html
