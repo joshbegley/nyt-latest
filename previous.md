@@ -1,4 +1,12 @@
-**Live Updates: 2 Justices to Testify on Supreme Court’s Need for More Security**\
+**Roger Worthington Is Suing Over a Heat Wave**\
+`Roger Worthington is helping to lead a $50 billion lawsuit against oil producers. This week he’ll face powerful critics in Congress.`\
+https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-industry-lawyer.html
+
+**Watch Live: Supreme Court Asks Congress for More Security Funds**\
+`Justices Amy Coney Barrett and Elena Kagan testify about the Supreme Court’s over $200 million request for more security.`\
+https://www.nytimes.com/video/us/politics/100000011028276/watch-live-supreme-court-asks-congress-for-more-security-funds.html
+
+**Live Updates: 2 Justices Testify on Supreme Court’s Need for More Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are seeking millions of dollars to address security concerns amid rising threats.`\
 https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
 
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.htm
 https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
 
 **Paramount vs. the States**\
-`An effort to block media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
+`An effort to block the media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
 https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.html
 
 **Chai Discovery, an A.I. Drug Start-Up, Raises $400 Million**\
@@ -173,16 +181,4 @@ https://www.nytimes.com/2026/07/14/realestate/a-methodic-way-to-keep-the-vegetab
 **A Beastie Boy Returns to the Mic, With Some Help**\
 `Thanks to an assist from his sons, Mike D is set to release “Thank You,” the first new music from a member of the pioneering rap trio in 15 years.`\
 https://www.nytimes.com/2026/07/14/arts/music/mike-d-new-album-beastie-boys.html
-
-**Restaurant Review: Ambassadors Clubhouse in New York**\
-`At the high-flying New York outpost of Ambassadors Clubhouse, the Punjabi cooking is beguiling and the city feels miles away.`\
-https://www.nytimes.com/2026/07/14/dining/restaurant-review-ambassadors-clubhouse-nyc.html
-
-**Can Democrats Win Rural Voters Turning Away From Trump? It’s a Tough Sell.**\
-`House candidates like Beth Macy, author of “Dopesick,” have crafted messages based on lifetimes in rural regions. But messages need an audience, and many minds are closed to the party.`\
-https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html
-
-**I Have Varicose Veins. Should I Worry?**\
-`They can ache, itch and sometimes need surgery. We asked experts why they happen and what helps.`\
-https://www.nytimes.com/2026/07/14/well/varicose-veins.html
 

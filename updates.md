@@ -1,3 +1,19 @@
+**Roger Worthington Is Suing Over a Heat Wave**\
+`Roger Worthington is helping to lead a $50 billion lawsuit against oil producers. This week he’ll face powerful critics in Congress.`\
+https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-industry-lawyer.html
+
+**Watch Live: Supreme Court Asks Congress for More Security Funds**\
+`Justices Amy Coney Barrett and Elena Kagan testify about the Supreme Court’s over $200 million request for more security.`\
+https://www.nytimes.com/video/us/politics/100000011028276/watch-live-supreme-court-asks-congress-for-more-security-funds.html
+
+**Live Updates: 2 Justices Testify on Supreme Court’s Need for More Security**\
+`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are seeking millions of dollars to address security concerns amid rising threats.`\
+https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
+
+**Paramount vs. the States**\
+`An effort to block the media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
+https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.html
+
 **‘I Am Frustrated’: Emails Show Blanche’s Role in Trump’s Retribution Campaign**\
 `The cooperation of Todd Blanche will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
 https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html
