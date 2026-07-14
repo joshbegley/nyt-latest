@@ -1,4 +1,8 @@
 **Gold Trader Who Helped Iran Dodge Sanctions Avoids Prison Sentence**\
+`Reza Zarrab’s cooperation exposed a financial pipeline to Iran’s regime, threatening to bring down powerful people in Turkey. A decade later, the case has been closed.`\
+https://www.nytimes.com/2026/07/14/nyregion/turkey-zarrab-halkbank-erdogan-iran.html
+
+**Gold Trader Who Helped Iran Dodge Sanctions Avoids Prison Sentence**\
 `Reza Zarrab’s cooperation exposed a financial pipeline to Iran’s regime, threatening to bring down powerful people in Turkey. But a decade later, the case is now closed.`\
 https://www.nytimes.com/2026/07/14/nyregion/turkey-zarrab-halkbank-erdogan-iran.html
 
