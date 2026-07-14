@@ -1,3 +1,7 @@
+**As Confirmation Hearing Nears, Todd Blanche’s Role in Epstein Case Draws Scrutiny**\
+`Todd Blanche’s role in interviewing Ghislaine Maxwell, a longtime associate of the convicted sex offender Jeffrey Epstein, will be front and center as he seeks to become attorney general.`\
+https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-epstein-investigation-doj.html
+
 **Trump paga 5,6 millones de dólares a E. Jean Carroll por caso civil**\
 `Un jurado federal determinó que el presidente Trump era responsable de abuso sexual y difamación contra Carroll. Luego de que él agotó todas las vías de apelación el mes pasado, un juez ordenó que se efectuara el pago.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-paga-e-jean-carroll.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/arts/music/amplifier-newsletter-world-cup-ros
 **‘The Whoopi Monologues’ Review: Expanding a One-Woman Show**\
 `Instead of one Whoopi Goldberg, audiences now experience five actresses: Kerry Washington, Kara Young, Dominique Fishback, Danielle Pinnock and Kecia Lewis.`\
 https://www.nytimes.com/2026/07/14/theater/the-whoopi-monologues-review-kerry-washington-kara-young.html
-
-**Trump Says His Thursday Speech Will Focus on Election Security and Voting Machines**\
-`The planned prime-time address comes as the president has intensified his focus on election security in advance of the midterms and repeated false claims about the integrity of voting systems.`\
-https://www.nytimes.com/2026/07/14/us/politics/trump-speech-voting-elections.html
 

@@ -1,3 +1,7 @@
+**As Confirmation Hearing Nears, Todd Blanche’s Role in Epstein Case Draws Scrutiny**\
+`Todd Blanche’s role in interviewing Ghislaine Maxwell, a longtime associate of the convicted sex offender Jeffrey Epstein, will be front and center as he seeks to become attorney general.`\
+https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-epstein-investigation-doj.html
+
 **Trump paga 5,6 millones de dólares a E. Jean Carroll por caso civil**\
 `Un jurado federal determinó que el presidente Trump era responsable de abuso sexual y difamación contra Carroll. Luego de que él agotó todas las vías de apelación el mes pasado, un juez ordenó que se efectuara el pago.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-paga-e-jean-carroll.html
