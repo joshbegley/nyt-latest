@@ -1,3 +1,7 @@
+**Live Updates: Inflation Data to Show Effects of Volatile Energy Prices**\
+`The Consumer Price Index for June will provide the latest look at how higher oil and gas prices are rippling through the economy.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
 **In the Public Interest**\
 `We look at the Trump administration’s attempts to pressure news organizations.`\
 https://www.nytimes.com/2026/07/14/briefing/in-the-public-interest.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/14/us/politics/navy-drone-boat-acquisitions.html
 **3 Trips Near Venice, Without the Crowds**\
 `There is more to the northeastern Italian region of Veneto than its famous capital. We explore the area’s many treasures by bike, boat, train and on foot.`\
 https://www.nytimes.com/2026/07/14/travel/3-trips-near-venice-without-crowds.html
-
-**The Housing Crisis Is Also a Retirement Crisis**\
-`A home has stopped being just a place to live — it has also become an asset.`\
-https://www.nytimes.com/2026/07/14/opinion/housing-retirement-crisis.html
 
