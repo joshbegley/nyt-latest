@@ -1,3 +1,7 @@
+**Trump Orders Tolls and Blockade as Fighting With Iran Resumes**\
+`President Trump notified Congress that he had resumed strikes on Iran, as the cease-fire effectively collapsed. He also ordered a naval blockade and announced shipping tolls in the Strait of Hormuz.`\
+https://www.nytimes.com/video/world/asia/100000011029063/iran-trump-strait-hormuz-toll.html
+
 **New York Is Having a Legionnaires’ Outbreak. Here’s What to Know.**\
 `Health officials had not identified the source of the bacteria but said they were optimistic about finding a culprit.`\
 https://www.nytimes.com/2026/07/14/nyregion/legionnaires-disease-nyc-what-to-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/azucar-espaci
 **Would a Social Media Ban in the U.S. Be Effective?**\
 `On the “Hard Fork” podcast, the co-host Casey Newton argues that a new law won’t necessarily be ineffective just because adherence to it is low initially. The same could be true if a social media ban were enacted in the United States.`\
 https://www.nytimes.com/video/podcasts/100000011028469/would-a-social-media-ban-in-the-us-be-effective.html
-
-**Jay-Z Concert Delay Leaves Thousands Stuck Outside Yankee Stadium**\
-`Thousands of ticket holders were stuck outside Yankee Stadium for hours after people without tickets stormed the stadium’s entrances, delaying Jay-Z’s performance.`\
-https://www.nytimes.com/video/nyregion/100000011027600/jay-z-concert-yankee-stadium-delay.html
 
