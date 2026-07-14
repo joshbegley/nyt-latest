@@ -1,3 +1,7 @@
+**OpenAI Is Showing Kalshi’s World Cup Odds in ChatGPT**\
+`The partnership, a first of its kind for the artificial intelligence company, will use the prediction market’s data to power some search results about the soccer tournament.`\
+https://www.nytimes.com/2026/07/13/technology/kalshi-openai-chatgpt-world-cup-odds.html
+
 **Pat Oliphant, Cartoonist Who Skewered the Powerful, Dies at 90**\
 `The winner of countless awards, including a Pulitzer Prize, he was described in 1990 as “the most influential political cartoonist now working.”`\
 https://www.nytimes.com/2026/07/13/arts/pat-oliphant-dead.html
