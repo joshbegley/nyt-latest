@@ -1,3 +1,11 @@
+**¿Las venas varicosas son peligrosas?**\
+`Pueden causar dolor, picazón y, en ocasiones, requerir cirugía. Les preguntamos a los expertos por qué aparecen y qué puede ayudar.`\
+https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
+
+**Europe, Flexing Muscle in Ukraine, Is Still on Sidelines in Iran**\
+`In a show of collective strength, President Emmanuel Macron of France hosted European allies at the annual Bastille Day parade in Paris. Yet Europe is still a hostage to America’s foreign policy.`\
+https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
+
 **Live Updates: Inflation Data to Show Effects of Volatile Energy Prices**\
 `The Consumer Price Index for June will provide the latest look at how higher oil and gas prices are rippling through the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
