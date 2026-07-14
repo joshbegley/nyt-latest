@@ -1,4 +1,4 @@
-**SAN FRANCISCO**\
+**OpenAI Is Showing Kalshi’s World Cup Odds in ChatGPT**\
 `The partnership, a first of its kind for the artificial intelligence company, will use the prediction market’s data to power some search results about the soccer tournament.`\
 https://www.nytimes.com/2026/07/13/technology/kalshi-openai-chatgpt-world-cup-odds.html
 
