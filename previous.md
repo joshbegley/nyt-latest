@@ -1,3 +1,11 @@
+**Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
+`The largest banks in the United States collectively raked in tens of billions of profits in the second quarter, despite the war in Iran and persistent inflation.`\
+https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
+
+**Bloomberg Loses Landmark Libel Case in Singapore**\
+`A judge ruled in favor of two Singaporean ministers in a closely watched defamation trial seen as a significant test of the country’s libel laws and their implications for press freedom.`\
+https://www.nytimes.com/2026/07/14/world/asia/singapore-bloomberg-defamation.html
+
 **¿Las venas varicosas son peligrosas?**\
 `Pueden causar dolor, picazón y, en ocasiones, requerir cirugía. Les preguntamos a los expertos por qué aparecen y qué puede ayudar.`\
 https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
@@ -110,7 +118,7 @@ https://www.nytimes.com/2026/07/14/arts/television/difficult-people.html
 `An odd silence has surrounded a delay to fill several open seats on the board of the Smithsonian, even as a fierce battle to control the institution ensues.`\
 https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.html
 
-**Trump Will Let Ukraine Build Patriots. Ukraine Wants to Make Homegrown Missiles, Too.**\
+**Ukraine Wants to Make Its Own Antimissile System, Not Just Patriots**\
 `The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
 https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/14/books/review/catcher-in-the-rye-75th-annivers
 **U.S. Workers Are More Productive Than Ever. And That’s Without A.I.**\
 `Companies have been getting more out of employees for several years. Tight labor markets, digitization and remote work are among the reasons.`\
 https://www.nytimes.com/2026/07/14/business/worker-productivity-artificial-intelligence-economy.html
-
-**All-You-Can-Eat Goes Luxe**\
-`Unlimited dining experiences, once a thrifty move, are evolving for those hungry for status.`\
-https://www.nytimes.com/2026/07/14/dining/luxury-all-you-can-eat-dining.html
-
-**Book Review: ‘The Gospel According to Hobby Lobby,’ by Michael Blanding**\
-`A new book by Michael Blanding chronicles the history of Hobby Lobby and its billionaire founder’s campaign to promote conservative Christian values.`\
-https://www.nytimes.com/2026/07/14/books/review/the-gospel-according-to-hobby-lobby-michael-blanding.html
 

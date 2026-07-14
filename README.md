@@ -1,3 +1,7 @@
+**Chai Discovery, an A.I. Drug Start-Up, Raises $400 Million**\
+`The fund-raising values the company at $3.8 billion and underscores investor interest in using artificial intelligence to tackle problems like drug discovery.`\
+https://www.nytimes.com/2026/07/14/business/dealbook/chai-discovery-ai-drug-development.html
+
 **Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
 `The largest banks in the United States collectively raked in tens of billions of profits in the second quarter, despite the war in Iran and persistent inflation.`\
 https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/14/books/review/julie-buntin-famous-men.html
 **75 Years Later, ‘The Catcher in the Rye’ Remains a Great American Novel**\
 `Sure, “Catcher in the Rye” has its detractors. But the influence of its wised-up yet winningly innocent hero keeps it among the Great American Novels.`\
 https://www.nytimes.com/2026/07/14/books/review/catcher-in-the-rye-75th-anniversary-salinger.html
-
-**U.S. Workers Are More Productive Than Ever. And That’s Without A.I.**\
-`Companies have been getting more out of employees for several years. Tight labor markets, digitization and remote work are among the reasons.`\
-https://www.nytimes.com/2026/07/14/business/worker-productivity-artificial-intelligence-economy.html
 

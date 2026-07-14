@@ -1,3 +1,15 @@
+**Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
+`The largest banks in the United States collectively raked in tens of billions of profits in the second quarter, despite the war in Iran and persistent inflation.`\
+https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
+
+**Bloomberg Loses Landmark Libel Case in Singapore**\
+`A judge ruled in favor of two Singaporean ministers in a closely watched defamation trial seen as a significant test of the country’s libel laws and their implications for press freedom.`\
+https://www.nytimes.com/2026/07/14/world/asia/singapore-bloomberg-defamation.html
+
+**Ukraine Wants to Make Its Own Antimissile System, Not Just Patriots**\
+`The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
+https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
+
 **Trump Will Let Ukraine Build Patriots. Ukraine Wants to Make Homegrown Missiles, Too.**\
 `The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
 https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
