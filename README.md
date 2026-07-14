@@ -154,8 +154,8 @@ https://www.nytimes.com/2026/07/14/arts/music/mike-d-new-album-beastie-boys.html
 `At the high-flying New York outpost of Ambassadors Clubhouse, the Punjabi cooking is beguiling and the city feels miles away.`\
 https://www.nytimes.com/2026/07/14/dining/restaurant-review-ambassadors-clubhouse-nyc.html
 
-**Seeking Control of the House, Democrats Try Again in Rural Districts**\
-`Candidates like Beth Macy, author of “Dopesick,” have crafted messages based on lifetimes in rural regions. But messages need an audience, and many minds are closed to the party.`\
+**Can Democrats Win Rural Voters Turning Away From Trump? It’s a Tough Sell.**\
+`House candidates like Beth Macy, author of “Dopesick,” have crafted messages based on lifetimes in rural regions. But messages need an audience, and many minds are closed to the party.`\
 https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html
 
 **I Have Varicose Veins. Should I Worry?**\
