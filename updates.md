@@ -1,3 +1,7 @@
+**China Purges Top Official Over Corruption and Sex Charges**\
+`Ma Xingrui is the third member of the Politburo to be purged since 2022. He once led the Xinjiang region and was previously head of China’s space program.`\
+https://www.nytimes.com/2026/07/14/world/asia/china-expels-politburo-official-sex-corruption.html
+
 **How Erling Haaland’s Brand of Weird Resonates in China**\
 `The Norwegian striker has drawn an ardent following for his silly, self-deprecating online presence. Chinese fans, who have dubbed him “Baby Ha,” show their affection in memes.`\
 https://www.nytimes.com/2026/07/14/sports/soccer/erling-haaland-world-cup-china.html
