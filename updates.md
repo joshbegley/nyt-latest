@@ -1,3 +1,7 @@
+**Trump Will Let Ukraine Build Patriots. Ukraine Wants to Make Homegrown Missiles, Too.**\
+`The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
+https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
+
 **¿Las venas varicosas son peligrosas?**\
 `Pueden causar dolor, picazón y, en ocasiones, requerir cirugía. Les preguntamos a los expertos por qué aparecen y qué puede ayudar.`\
 https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
