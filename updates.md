@@ -1,3 +1,7 @@
+**ICE Is Ordered to Pause Most Vehicle Stops**\
+`Also, Trump drops his plan for a Strait of Hormuz fee. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/07/14/briefing/ice-is-ordered-to-pause-most-vehicle-stops.html
+
 **Colombian Immigrant Killed by ICE in Maine Had Legal Status, Father Says**\
 `The father of Joan Sebastian Guerrero, the man fatally shot by a federal immigration agent on Monday, said his son had been working two jobs to support his wife and daughter.`\
 https://www.nytimes.com/2026/07/14/us/joan-sebastian-guerrero-maine-ice-shooting.html

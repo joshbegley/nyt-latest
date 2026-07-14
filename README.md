@@ -1,3 +1,7 @@
+**Security Cameras Capture Moments After Fatal ICE Shooting in Maine**\
+`Footage from nearby surveillance cameras shows federal agents pulling Joan Sebastian Guerrero from a white car after a shooting in Biddeford, Maine, on Monday.`\
+https://www.nytimes.com/video/us/100000011029964/ice-shooting-biddeford-maine-footage.html
+
 **ICE Is Ordered to Pause Most Vehicle Stops**\
 `Also, Trump drops his plan for a Strait of Hormuz fee. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/07/14/briefing/ice-is-ordered-to-pause-most-vehicle-stops.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-trump-legacy.html
 https://www.nytimes.com/2026/07/14/us/politics/trump-subpoenas-law-firms-epshteyn-aba.html
 
 **‘Sully,’ ‘Miracle on the Hudson’ Pilot, Announces Alzheimer’s Diagnosis**\
-`Captain Sullenberger said the disease was in its early stages, and that he was “in the beginning of this long journey.”`\
+`Captain Sullenberger, who is known as Sully, said that the disease was in its early stages, and that he was “in the beginning of this long journey.”`\
 https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
 
 **138 Picture Prompts to Inspire Student Writing**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/us/world-cup-semifinal-start-times.html
 **Nigel Sylvester Hates When People Pretend They Don’t Want Fries**\
 `The Queens native and professional BMX rider takes on our restaurant questionnaire.`\
 https://www.nytimes.com/2026/07/14/dining/nigel-sylvester-where-to-eat.html
-
-**Graciela Has Fired Up the Parrilla for Argentine Cooking**\
-`Casa Felix serves up esquites risotto, Granola Bar expands and more restaurant news.`\
-https://www.nytimes.com/2026/07/14/dining/nyc-restaurant-news.html
 
