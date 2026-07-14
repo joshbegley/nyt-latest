@@ -1,3 +1,7 @@
+**Some Positive (and Negative) Thinking About Therapy**\
+`Readers respond to “Not Everyone Should Be in Therapy,” an Opinion guest essay by Harvey Lieberman.`\
+https://www.nytimes.com/2026/07/14/opinion/therapy-mental-health.html
+
 **Así funcionaría el plan de Trump de cobrar peaje en el estrecho de Ormuz**\
 `El presidente Trump anunció una tasa del 20 por ciento sobre la mercancía que pase por esa vía navegable, a pesar de que su propio gobierno considera que esos peajes violan el derecho internacional.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-peaje-estrecho-ormuz.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/07/14/world/middleeast/israel-lebanon-peace-talks.h
 `In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
 https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
 
-**Is It East Village or the East Village?**\
+**Is It ‘East Village’ or ‘the East Village’?**\
 `A missing article is stirring up New Yorkers’ feelings.`\
 https://www.nytimes.com/2026/07/14/style/nyc-neighborhoods-the-village.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/14/world/asia/bangkok-bar-fire-flammable-foam.ht
 **Why Supreme Court Justices Are Asking for More Security**\
 `Supreme Court justices are asking lawmakers on Capitol Hill to increase their 2027 budget, with most of the additional funding earmarked for security. Ann E. Marimow, a New York Times reporter, explains why the justices say these measures are necessary to protect them from rising threats.`\
 https://www.nytimes.com/video/us/politics/100000011017774/why-supreme-court-justices-are-asking-for-more-security.html
-
-**¿Por qué a los niños les encanta ver ‘Moana’?**\
-`Esta película de 2016 se ha convertido en la más vista en Disney+. Los padres y los expertos explican por qué los niños no paran de verla.`\
-https://www.nytimes.com/es/2026/07/14/espanol/cultura/ninos-moana-explicacion.html
 

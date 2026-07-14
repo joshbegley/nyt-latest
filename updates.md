@@ -1,3 +1,11 @@
+**Some Positive (and Negative) Thinking About Therapy**\
+`Readers respond to “Not Everyone Should Be in Therapy,” an Opinion guest essay by Harvey Lieberman.`\
+https://www.nytimes.com/2026/07/14/opinion/therapy-mental-health.html
+
+**Is It ‘East Village’ or ‘the East Village’?**\
+`A missing article is stirring up New Yorkers’ feelings.`\
+https://www.nytimes.com/2026/07/14/style/nyc-neighborhoods-the-village.html
+
 **Así funcionaría el plan de Trump de cobrar peaje en el estrecho de Ormuz**\
 `El presidente Trump anunció una tasa del 20 por ciento sobre la mercancía que pase por esa vía navegable, a pesar de que su propio gobierno considera que esos peajes violan el derecho internacional.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-peaje-estrecho-ormuz.html
