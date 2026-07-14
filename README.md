@@ -1,3 +1,15 @@
+**New Winged Robot Can Fly and Swim Like a Puffin**\
+`Inspired by the physical feats of diving birds, researchers have created a robot that can plunge into the water and flap back into the air.`\
+https://www.nytimes.com/2026/07/14/science/new-winged-robot-can-fly-and-swim-like-a-puffin.html
+
+**New Winged Robot Can Fly And Swim Like a Puffin**\
+`Scientists hoped for years to make a machine that could emulate the movements of diving birds, such as puffins, and offer an affordable, unobtrusive way to monitor fragile marine ecosystems. A team of researchers at M.I.T. has been able to create such a waterproof winged robot, according to a study published July 9 in the journal Science.`\
+https://www.nytimes.com/video/science/100000011021746/winged-robot-diving-birds-science.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011029884/14vid-coney-barrett-bulletproof-vest.html
+
 **T. Rex Fossil Sells for $50.1 Million, Putting the King Back On Top**\
 `In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
 https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
@@ -165,18 +177,6 @@ https://www.nytimes.com/2026/07/14/nyregion/new-york-data-center-moratorium-hoch
 **Corrections: July 14, 2026**\
 `Corrections that appeared in print on Tuesday, July 14, 2026.`\
 https://www.nytimes.com/2026/07/14/pageoneplus/corrections-july-14-2026.html
-
-**‘I Am Frustrated’: Emails Show Blanche’s Role in Trump’s Retribution Campaign**\
-`The cooperation of Todd Blanche will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
-https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html
-
-**In ‘The Westies,’ Chris Brancato Expands His ‘Scumbag Universe’ (Again)**\
-`For his new series, the co-creator of “Narcos” and “Godfather of Harlem” turns his focus to a violent gang of Irish New Yorkers in the early 1980s.`\
-https://www.nytimes.com/2026/07/14/arts/television/the-westies.html
-
-**‘Difficult People’ a Decade Later: A Sarcastic Time Capsule**\
-`This cult comedy about two snide show-business outsiders has a new Blu-ray edition, and a reunion this fall. The creator Julie Klausner discusses why she’d love to revive it.`\
-https://www.nytimes.com/2026/07/14/arts/television/difficult-people.html
 
 **Iran War Live Updates: U.S. Strikes Iran As Conflict Over Strait of Hormuz Intensifies**\
 `The two countries reignited the war over the waterway, trading strikes as the United States prepared to restart a blockade of Iran’s ports on Tuesday. Earlier, Iran fired at U.S. military sites in the region.`\
