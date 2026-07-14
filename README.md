@@ -1,6 +1,6 @@
 **How Erling Haaland’s Brand of Weird Resonates in China**\
 `The Norwegian striker has drawn an ardent following for his silly, self-deprecating online presence. Chinese fans, who have dubbed him “Baby Ha,” show their affection in memes.`\
-https://www.nytimes.com/2026/07/14/sports/soccer/how-erling-haalands-brand-of-weird-resonates-in-china.html
+https://www.nytimes.com/2026/07/14/sports/soccer/erling-haaland-world-cup-china.html
 
 **Why the Cease-Fire With Iran Keeps Crumbling**\
 `The rushed U.S.-Iran agreement is sliding backward, potentially transforming a short-term crisis into a long, intractable war.`\
@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/07/14/podcasts/ea-sports-video-games-college-footba
 `It is these issues that serve to reinforce the perception that Democrats are willing to sacrifice the interests of the working and middle classes.`\
 https://www.nytimes.com/2026/07/14/opinion/project-2026-2028-democratic-platform.html
 
-**What Xi Jinping Wants**\
+**What Americans Need to Understand About China**\
 `Kevin Rudd, a former prime minister of Australia, went back to school to try to understand how the Chinese president thinks.`\
 https://www.nytimes.com/2026/07/14/opinion/ezra-klein-podcast-kevin-rudd.html
 
