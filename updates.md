@@ -1,3 +1,15 @@
+**Restaurant Review: Demo in New York**\
+`Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
+https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
+
+**Trump Drops Plan to Tax Ships in Strait of Hormuz as Fighting with Iran Escalates**\
+`The president’s proposal to impose a fee on shipping in the Strait of Hormuz threatened to increase global energy prices.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/trump-hormuz-shipping-fee-dropped.html
+
+**Lindsey Graham's Death Renews Debate Over Aging Congress**\
+`The sudden death of Senator Lindsey Graham has renewed criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\
+https://www.nytimes.com/interactive/2026/07/14/us/politics/lindsey-graham-death-congress-age.html
+
 **Restaurant Review: Demin in New York**\
 `Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
 https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
