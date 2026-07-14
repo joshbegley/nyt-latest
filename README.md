@@ -1,3 +1,7 @@
+**Graham’s Sister Is Sworn In to Finish His Senate Term**\
+`Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
+https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html
+
 ****\
 `Axuan Bu, a food stall owner in Jinhua, has absorbed rising egg costs rather than raise prices for customers.`\
 https://www.nytimes.com/video/embedded/business/100000011031317/China-Eggs_Jianbing_Man-video.html
@@ -5,6 +9,10 @@ https://www.nytimes.com/video/embedded/business/100000011031317/China-Eggs_Jianb
 **Climate: An extraordinary White House meeting**\
 `A new book sheds light on President Trump’s affinity for fossil fuels.`\
 https://www.nytimes.com/2026/07/14/climate/climate-an-extraordinary-white-house-meeting.html
+
+****\
+`A vendor prepares jianbing, a popular Chinese savory pancake, as rising egg and fuel costs increase operating expenses.`\
+https://www.nytimes.com/video/embedded/business/100000011031314/China-Eggs_Jianbing_Opener.html
 
 **Expelled from China**\
 `A New York Times correspondent was kicked out of the country after reporting on the struggles of everyday Chinese. Here’s her story.`\
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
 https://www.nytimes.com/2026/07/14/learning/138-picture-prompts-to-inspire-student-writing.html
 
 **Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
-`Julie Menin said she would support a bill, formerly known as Ryder’s Law, to ban the rides in Central Park after a tourist was killed in an accident last month.`\
+`Julie Menin, the City Council speaker, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
 
 **Public Health Groups Sue F.D.A. Over Flavored E-Cigarette Policy**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/14/weather/maine-vermont-tornado-quebec.html
 **At Young World Festival, Rap’s Avant-Garde Takes Shape**\
 `The Brooklyn festival Young World spotlights emergent indie rappers and veteran artists. It was the brainchild of Mike, an artist and label head who has become a fulcrum of the alt-rap scene.`\
 https://www.nytimes.com/2026/07/14/arts/music/young-world-festival-mike.html
-
-**Mahmoud Khalil Accuses Trump Officials of Conspiring Against Him**\
-`Mr. Khalil will now have to convince a judge that the defendants coordinated to take action against him and other pro-Palestinian activists.`\
-https://www.nytimes.com/2026/07/14/nyregion/mahmoud-khalil-trump-conspiracy-lawsuit.html
-
-**ICE Ordered to Cease Most Vehicle Stops After Fatal Shootings in Maine and Houston**\
-`Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles. The killings were the latest in a string of ICE shootings during President Trump’s second term.`\
-https://www.nytimes.com/2026/07/14/us/ice-agents-traffic-stops.html
 
