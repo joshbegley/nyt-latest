@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.
 https://www.nytimes.com/2026/07/14/business/dealbook/chai-discovery-ai-drug-development.html
 
 **Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
-`The largest banks in the United States collectively raked in tens of billions of profits in the second quarter, despite the war in Iran and persistent inflation.`\
+`The quarterly results reflect the dichotomy between geopolitical uncertainty and the stable American economy.`\
 https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
 
 **Bloomberg Loses Landmark Libel Case in Singapore**\
