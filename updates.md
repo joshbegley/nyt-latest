@@ -1,3 +1,11 @@
+**Inky Mark, Former Canada MP, Arrested After Police Find 439 Guns and Cannon in His Home**\
+`Inky Mark, a former conservative lawmaker in Manitoba, was charged with offenses including firearm trafficking.`\
+https://www.nytimes.com/2026/07/14/world/canada/inky-mark-arrested-guns-manitoba.html
+
+**Today, In Short**\
+`Trade school. Fancy chicken tenders. And the World Cup.`\
+https://www.nytimes.com/2026/07/14/briefing/today-in-short.html
+
 **With Lizzo and Calm Flair, a Storied Venue Reopens for Summer**\
 `The gorgeously renovated Hunter Pavilion at Ravinia, the Chicago Symphony Orchestra’s off-season home, was inaugurated with a gala last weekend.`\
 https://www.nytimes.com/2026/07/14/arts/music/ravinia-festival-hunter-pavilion-chicago-symphony.html
