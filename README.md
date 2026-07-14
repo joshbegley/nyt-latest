@@ -10,6 +10,10 @@ https://www.nytimes.com/video/science/100000011021746/winged-robot-diving-birds-
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011029884/14vid-coney-barrett-bulletproof-vest.html
 
+**Israel and Lebanon Meet to Advance Peace Talks, as Broader Truce Unravels**\
+`Expectations are low for the latest round of U.S.-mediated talks, aimed at ending months of war between Israel and t Hezbollah.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/israel-lebanon-peace-talks.html
+
 **T. Rex Fossil Sells for $50.1 Million, Putting the King Back On Top**\
 `In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
 https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
 `In a show of collective strength, President Emmanuel Macron of France hosted European allies at the annual Bastille Day parade in Paris. Yet Europe is still a hostage to America’s foreign policy.`\
 https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
 
-**Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
+**Live Updates: Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/07/14/nyregion/new-york-data-center-moratorium-hoch
 **Corrections: July 14, 2026**\
 `Corrections that appeared in print on Tuesday, July 14, 2026.`\
 https://www.nytimes.com/2026/07/14/pageoneplus/corrections-july-14-2026.html
-
-**Iran War Live Updates: U.S. Strikes Iran As Conflict Over Strait of Hormuz Intensifies**\
-`The two countries reignited the war over the waterway, trading strikes as the United States prepared to restart a blockade of Iran’s ports on Tuesday. Earlier, Iran fired at U.S. military sites in the region.`\
-https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
 

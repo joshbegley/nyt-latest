@@ -1,3 +1,19 @@
+**New Winged Robot Can Fly and Swim Like a Puffin**\
+`Inspired by the physical feats of diving birds, researchers have created a robot that can plunge into the water and flap back into the air.`\
+https://www.nytimes.com/2026/07/14/science/new-winged-robot-can-fly-and-swim-like-a-puffin.html
+
+**New Winged Robot Can Fly And Swim Like a Puffin**\
+`Scientists hoped for years to make a machine that could emulate the movements of diving birds, such as puffins, and offer an affordable, unobtrusive way to monitor fragile marine ecosystems. A team of researchers at M.I.T. has been able to create such a waterproof winged robot, according to a study published July 9 in the journal Science.`\
+https://www.nytimes.com/video/science/100000011021746/winged-robot-diving-birds-science.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011029884/14vid-coney-barrett-bulletproof-vest.html
+
+**Iran War Live Updates: U.S. Strikes Iran As Conflict Over Strait of Hormuz Intensifies**\
+`The two countries reignited the war over the waterway, trading strikes as the United States prepared to restart a blockade of Iran’s ports on Tuesday. Earlier, Iran fired at U.S. military sites in the region.`\
+https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
+
 **T. Rex Fossil Sells for $50.1 Million, Putting the King Back On Top**\
 `In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
 https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
