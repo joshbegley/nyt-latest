@@ -26,8 +26,8 @@ https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
 `In a show of collective strength, President Emmanuel Macron of France hosted European allies at the annual Bastille Day parade in Paris. Yet Europe is still a hostage to America’s foreign policy.`\
 https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
 
-**Live Updates: Inflation Drops on Lower Energy Prices**\
-`The Consumer Price Index rose at an 3.5 percent annual rate in June, lower than a month earlier, as energy prices moderated during a lull in the conflict in the Middle East.`\
+**Live Updates: Inflation Slows on Lower Energy Prices**\
+`The Consumer Price Index dropped to an 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
 **In the Public Interest**\
