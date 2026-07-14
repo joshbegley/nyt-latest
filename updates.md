@@ -1,3 +1,11 @@
+**La foca más famosa de Australia es un fenómeno viral que preocupa a los expertos**\
+`Neil, un elefante marino de más de 1000 kilos, visita dos veces al año la costa de Tasmania y se ha convertido en estrella de internet, aunque los especialistas piden mantener la distancia.`\
+https://www.nytimes.com/es/2026/07/14/espanol/mundo/foca-neil-australia.html
+
+**Ataque de bisonte en Yellowstone: un turista sale volando por los aires**\
+`Un hombre de 65 años fue hospitalizado con múltiples fracturas tras ser embestido por un toro bisonte que deambulaba por un campamento del Parque Nacional de Yellowstone visiblemente agitado.`\
+https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/ataque-bisonte-yellowstone.html
+
 **The Ukraine-Russia War Reaches a New Phase**\
 `The ground war in Ukraine has stalemated and the crucial fight has shifted to the skies — missiles and interceptors.`\
 https://www.nytimes.com/2026/07/14/opinion/ukraine-russia-patriots-drones.html

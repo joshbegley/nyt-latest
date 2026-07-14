@@ -1,3 +1,11 @@
+**La foca más famosa de Australia es un fenómeno viral que preocupa a los expertos**\
+`Neil, un elefante marino de más de 1000 kilos, visita dos veces al año la costa de Tasmania y se ha convertido en estrella de internet, aunque los especialistas piden mantener la distancia.`\
+https://www.nytimes.com/es/2026/07/14/espanol/mundo/foca-neil-australia.html
+
+**Ataque de bisonte en Yellowstone: un turista sale volando por los aires**\
+`Un hombre de 65 años fue hospitalizado con múltiples fracturas tras ser embestido por un toro bisonte que deambulaba por un campamento del Parque Nacional de Yellowstone visiblemente agitado.`\
+https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/ataque-bisonte-yellowstone.html
+
 **Así es como Putin hizo de Japón un centro de espionaje**\
 `Desde un rascacielos de Tokio, una unidad de inteligencia militar localiza el equipo de alta tecnología que Rusia necesita para librar la guerra.`\
 https://www.nytimes.com/es/2026/07/14/espanol/mundo/putin-espias-rusia-japon.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/world/europe/hungary-president-removed-parlia
 **Trump Administration Announces New Attack on the International Criminal Court**\
 `Secretary of State Marco Rubio said that the United States will “dismantle” the international court that tries grave crimes “brick by brick, if necessary.”`\
 https://www.nytimes.com/2026/07/13/us/politics/trump-international-criminal-court.html
-
-**10 of the Best Wimbledon 2026 Fashion Moments**\
-`With athletes limited to wearing tennis whites on the court, the best fashion moments — head scarves, double-breasted suits and leather waistcoats — happened in the stands.`\
-https://www.nytimes.com/2026/07/13/style/wimbledon-fashion-outfits-2026-celebrities.html
-
-**Read the Judge’s Ruling on Trump’s IRS Lawsuit**\
-`A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
-https://www.nytimes.com/interactive/2026/07/13/us/judge-ruling-trump-irs-lawsuit.html
 
