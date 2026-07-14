@@ -1,3 +1,7 @@
+**Muere Antonio Rattín, futbolista de Argentina**\
+`La expulsión del astro del fútbol argentino durante un partido contra Inglaterra en 1966 llevó a la introducción de las tarjetas amarillas y rojas.`\
+https://www.nytimes.com/es/2026/07/14/espanol/deportes/muere-antonio-rattin-argentina-mundial.html
+
 **Restaurant Review: Demo in New York**\
 `Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
 https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/world/middleeast/iran-killed-indian-sailors.h
 **Inky Mark, Former Canada MP, Arrested After Police Find 439 Guns and Cannon in His Home**\
 `Inky Mark, a former conservative lawmaker in Manitoba, was charged with offenses including firearm trafficking.`\
 https://www.nytimes.com/2026/07/14/world/canada/inky-mark-arrested-guns-manitoba.html
-
-**Today, In Short**\
-`Trade school. Fancy chicken tenders. And the World Cup.`\
-https://www.nytimes.com/2026/07/14/briefing/today-in-short.html
 
