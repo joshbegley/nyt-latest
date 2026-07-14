@@ -1,3 +1,7 @@
+**‘I Am Frustrated’: Emails Show Blanche’s Role in Trump’s Retribution Campaign**\
+`The cooperation of Todd Blanche will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
+https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html
+
 **Live Updates: 2 Justices to Testify on Supreme Court’s Need for More Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are seeking millions of dollars to address security concerns amid rising threats.`\
 https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
