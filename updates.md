@@ -1,3 +1,7 @@
+**Tension Emerges Among Democratic Socialists Over 2028 Endorsement**\
+`A meeting to decide on a plan to back a presidential candidate, most likely Representative Alexandria Ocasio-Cortez, turned acrimonious, and a proposal to poll members was rejected.`\
+https://www.nytimes.com/2026/07/13/nyregion/dsa-endorsement-aoc-new-york.html
+
 **Democratic Senate Candidates in Maine Denounce Deadly ICE Shooting**\
 `The killing of a man in Biddeford quickly became an issue in the Senate race, with Democrats aiming to tie Senator Susan Collins to President Trump’s immigration crackdown.`\
 https://www.nytimes.com/2026/07/13/us/politics/maine-ice-shooting-senate-graham-platner.html
