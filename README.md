@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/07/14/arts/music/young-world-festival-mike.html
 `Mr. Khalil will now have to convince a judge that the defendants coordinated to take action against him and other pro-Palestinian activists.`\
 https://www.nytimes.com/2026/07/14/nyregion/mahmoud-khalil-trump-conspiracy-lawsuit.html
 
-**ICE Ordered to Cease Most Vehicle Stops After 2 Killings in a Week**\
+**ICE Ordered to Cease Most Vehicle Stops After Fatal Shootings in Maine and Houston**\
 `Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles. The killings were the latest in a string of ICE shootings during President Trump’s second term.`\
 https://www.nytimes.com/2026/07/14/us/ice-agents-traffic-stops.html
 
