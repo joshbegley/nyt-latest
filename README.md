@@ -1,3 +1,15 @@
+**Antonio Rattín, Whose World Cup Expulsion Led to Penalty-Card System, Dies at 89**\
+`The ejection of the Argentine soccer star during a 1966 match against England led to the introduction of yellow and red cards.`\
+https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
+
+**E. Jean Carroll Receives $5.6 Million Payment From Trump in Civil Case**\
+`A federal jury found President Trump liable for sexually assaulting and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
+https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html
+
+**Warren Buffet Declines to Donate to Gates Foundation**\
+`The decision by the Berkshire Hathaway founder comes in the wake of Epstein revelations that have troubled the Gates Foundation.`\
+https://www.nytimes.com/2026/07/14/business/media/warren-buffett-gates-foundation-gift.html
+
 **Some Positive (and Negative) Thinking About Therapy**\
 `Readers respond to “Not Everyone Should Be in Therapy,” an Opinion guest essay by Harvey Lieberman.`\
 https://www.nytimes.com/2026/07/14/opinion/therapy-mental-health.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/07/14/crosswords/strands-sidekick-864.html
 **Today’s Wordle Hints for July 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 15, 2026.`\
 https://www.nytimes.com/2026/07/14/crosswords/wordle-review-1852.html
-
-**Trump’s Plan to Charge a Toll in the Strait of Hormuz: What to Know**\
-`President Trump announced a 20 percent fee on cargo through the waterway, despite his own administration’s position that such fees violate international law.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/trump-iran-strait-hormuz-toll-oil.html
-
-**In Bangkok Bar Blaze, Signs of Fatal Lapses Repeated Across the World**\
-`After a fire killed 30 people, the scrutiny has turned to whether the venue used flammable foam on its ceilings and had blocked exits.`\
-https://www.nytimes.com/2026/07/14/world/asia/bangkok-bar-fire-flammable-foam.html
-
-**Why Supreme Court Justices Are Asking for More Security**\
-`Supreme Court justices are asking lawmakers on Capitol Hill to increase their 2027 budget, with most of the additional funding earmarked for security. Ann E. Marimow, a New York Times reporter, explains why the justices say these measures are necessary to protect them from rising threats.`\
-https://www.nytimes.com/video/us/politics/100000011017774/why-supreme-court-justices-are-asking-for-more-security.html
 
