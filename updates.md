@@ -1,3 +1,11 @@
+**This 91-Year-Old Is Hiking 2,190 Miles. Again.**\
+`Dale Sanders, known as Grey Beard, is setting out to reclaim his record as the oldest person to hike the entire Appalachian Trail. He has 12 months to complete the roughly 2,190-mile trail for it to count as a thru-hike record – and is on track to finish in time.`\
+https://www.nytimes.com/video/well/move/100000010991871/this-91-year-old-is-hiking-2190-miles-again.html
+
+**Una solución ancestral para nuestra crisis moderna de atención**\
+`Séneca nos señala que cuando dejamos que las ideas vayan y vengan a toda velocidad, agotamos nuestras mentes.`\
+https://www.nytimes.com/es/2026/07/14/espanol/opinion/atencion-distracciones-tiktok-solucion.html
+
 **Iran War Live Updates: Clash Over Strait Intensifies With Strikes and Trump Threats**\
 `President Trump ordered more attacks on Iran and announced a 20 percent fee on cargo through the Strait of Hormuz. Iran said it had attacked two oil tankers and fired at U.S. military sites, as the two sides slid back to open war.`\
 https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz

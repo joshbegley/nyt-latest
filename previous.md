@@ -1,3 +1,11 @@
+**This 91-Year-Old Is Hiking 2,190 Miles. Again.**\
+`Dale Sanders, known as Grey Beard, is setting out to reclaim his record as the oldest person to hike the entire Appalachian Trail. He has 12 months to complete the roughly 2,190-mile trail for it to count as a thru-hike record – and is on track to finish in time.`\
+https://www.nytimes.com/video/well/move/100000010991871/this-91-year-old-is-hiking-2190-miles-again.html
+
+**Una solución ancestral para nuestra crisis moderna de atención**\
+`Séneca nos señala que cuando dejamos que las ideas vayan y vengan a toda velocidad, agotamos nuestras mentes.`\
+https://www.nytimes.com/es/2026/07/14/espanol/opinion/atencion-distracciones-tiktok-solucion.html
+
 **Iran War Live Updates: Clash Over Strait Intensifies With Strikes and Trump Threats**\
 `President Trump ordered more attacks on Iran and announced a 20 percent fee on cargo through the Strait of Hormuz. Iran said it had attacked two oil tankers and fired at U.S. military sites, as the two sides slid back to open war.`\
 https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/world/middleeast/un-says-hamas-forces-interfe
 **Trump Reimposes Naval Blockade, as U.S. and Iran Escalate Strikes**\
 `After several days of attacks, Tehran and Washington have effectively reverted to the state of open conflict that existed before the United States and Iran agreed to a cease-fire in June.`\
 https://www.nytimes.com/2026/07/13/world/middleeast/trump-iran-naval-blockade-strikes.html
-
-**Ed King, 89, Scarred Veteran of Mississippi’s Civil Rights Struggle, Dies**\
-`A minister disfigured in an attack on his life, he became what one historian called “the most visible white activist in the Mississippi movement.”`\
-https://www.nytimes.com/2026/07/13/us/ed-king-dead.html
-
-**Los científicos encuentran azúcar en el centro de la Vía Láctea**\
-`Es la primera vez que se detecta una molécula de azúcar en el espacio interestelar. El descubrimiento ofrece pistas nuevas y fascinantes pistas sobre cómo pudo haber surgido la vida en la Tierra.`\
-https://www.nytimes.com/es/2026/07/13/espanol/ciencia-y-tecnologia/azucar-espacio-via-lactea.html
 
