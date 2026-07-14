@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 14, 2026**\
+`Gus Bloxham and Bharati Hemmady make their New York Times Crossword debut.`\
+https://www.nytimes.com/2026/07/13/crosswords/daily-puzzle-2026-07-14.html
+
+**Health Dept. Rescinds Freeze on $10 Billion for 5 Democratic States**\
+`The reversal of the funding pause came after the administration faced repeated setbacks in a suit challenging the decision, which could have jeopardized programs for low-income households.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-health-dept-funding-freeze-democratic-states.html
+
 **Brote de ciclosporiasis: autoridades de salud señalan a las lechugas como posible fuente**\
 `La enfermedad, que ha afectado a miles de personas en gran parte de Estados Unidos, va camino de convertirse en el mayor brote de la historia reciente.`\
 https://www.nytimes.com/es/2026/07/13/espanol/cyclospora-brote-lechuga.html

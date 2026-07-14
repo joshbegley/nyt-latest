@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 14, 2026**\
+`Gus Bloxham and Bharati Hemmady make their New York Times Crossword debut.`\
+https://www.nytimes.com/2026/07/13/crosswords/daily-puzzle-2026-07-14.html
+
+**Health Dept. Rescinds Freeze on $10 Billion for 5 Democratic States**\
+`The reversal of the funding pause came after the administration faced repeated setbacks in a suit challenging the decision, which could have jeopardized programs for low-income households.`\
+https://www.nytimes.com/2026/07/13/us/politics/trump-health-dept-funding-freeze-democratic-states.html
+
 **Brote de ciclosporiasis: autoridades de salud señalan a las lechugas como posible fuente**\
 `La enfermedad, que ha afectado a miles de personas en gran parte de Estados Unidos, va camino de convertirse en el mayor brote de la historia reciente.`\
 https://www.nytimes.com/es/2026/07/13/espanol/cyclospora-brote-lechuga.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/world/middleeast/yemen-houthis-saudi-arabia-i
 **El mundo rompe relaciones con EE. UU. El costo lo pagarán los estadounidenses**\
 `Reducir el riesgo que implican las superpotencias depredadoras es el reto fundamental de muchos países. Ahora el principal motivo de preocupación es Estados Unidos.`\
 https://www.nytimes.com/es/2026/07/13/espanol/opinion/trump-estados-unidos-mundo.html
-
-**Una película ensalza a Jair Bolsonaro. Su hijo paga el precio político**\
-`Un documental sobre el expresidente brasileño ha destrozado las esperanzas presidenciales de su hijo, Flávio Bolsonaro, después de que se filtrara que negoció la financiación de la película con un banquero caído en desgracia.`\
-https://www.nytimes.com/es/2026/07/13/espanol/america-latina/bolsonaro-pelicula-filtracion-hijo-presidencia.html
-
-**How Lindsey Graham’s Journey From Trump Critic to Ally Made Him a Power Player**\
-`He initially called Donald Trump a “kook” who was “unfit for office,” only to join the new president’s Mar-a-Lago circle. “I’m still in the game,” Mr. Graham once explained of his much-analyzed turnabout.`\
-https://www.nytimes.com/2026/07/13/us/politics/lindsey-graham-death-donald-trump.html
 
