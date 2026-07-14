@@ -1,3 +1,7 @@
+**What to know about the report.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/14/business/economy/inflation-cpi.html
+
 **Roger Worthington Is Suing Over a Heat Wave**\
 `Roger Worthington is helping to lead a $50 billion lawsuit against oil producers. This week he’ll face powerful critics in Congress.`\
 https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-industry-lawyer.html
