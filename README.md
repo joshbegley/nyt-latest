@@ -1,3 +1,7 @@
+**White House Cheers Inflation Data While Iran War Sparks New Price Surge**\
+`The news of an improvement in consumer prices in June came as the U.S. and Iran escalated attacks, risking a return to high energy prices.`\
+https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-price-surge.html
+
 **Justice Kagan Tells House Panel That ‘Threats Have Come Very Close’**\
 `In her prepared remarks, Justice Elena Kagan said the Supreme Court Police estimated a 38 percent increase in threats this year.`\
 https://www.nytimes.com/2026/07/14/us/politics/kagan-house-testimony-supreme-court.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.htm
 **Who Would Benefit From Open Primaries in New York?**\
 `Proponents of primaries where voters can cast ballots regardless of party affiliation tend to be wealthier interests, including developers. Left-leaning groups tend to oppose them.`\
 https://www.nytimes.com/2026/07/14/nyregion/who-would-benefit-from-open-primaries-in-new-york.html
-
-**Red State, Blue Governor: It Could Happen in Iowa. Would It Matter?**\
-`Democrats have real hope for candidates for governor in red states like Iowa and Ohio, but if Republicans seize supermajorities in the legislatures, their power would be limited.`\
-https://www.nytimes.com/2026/07/14/us/politics/republican-supermajority-iowa-ohio.html
 
