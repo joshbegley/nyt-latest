@@ -134,10 +134,6 @@ https://www.nytimes.com/2026/07/14/nyregion/new-york-data-center-moratorium-hoch
 `Corrections that appeared in print on Tuesday, July 14, 2026.`\
 https://www.nytimes.com/2026/07/14/pageoneplus/corrections-july-14-2026.html
 
-**In Rare Testimony, Supreme Court Justices Will Ask Congress for Security Funds**\
-`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are requesting millions of dollars to address security concerns amid rising threats.`\
-https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-testimony-security.html
-
 **‘I Am Frustrated’: Emails Show Blanche’s Role in Trump’s Retribution Campaign**\
 `The cooperation of Todd Blanche will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
 https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html

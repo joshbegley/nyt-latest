@@ -1,4 +1,8 @@
-**Live Updates: 2 Justices to Testify on Supreme Court’s Need for More Security**\
+**Watch Live: Supreme Court Asks Congress for More Security Funds**\
+`Justices Amy Coney Barrett and Elena Kagan testify about the Supreme Court’s over $200 million request for more security.`\
+https://www.nytimes.com/video/us/politics/100000011028276/watch-live-supreme-court-asks-congress-for-more-security-funds.html
+
+**Live Updates: 2 Justices Testify on Supreme Court’s Need for More Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are seeking millions of dollars to address security concerns amid rising threats.`\
 https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/14/dining/restaurant-review-ambassadors-clubhous
 **Can Democrats Win Rural Voters Turning Away From Trump? It’s a Tough Sell.**\
 `House candidates like Beth Macy, author of “Dopesick,” have crafted messages based on lifetimes in rural regions. But messages need an audience, and many minds are closed to the party.`\
 https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html
-
-**I Have Varicose Veins. Should I Worry?**\
-`They can ache, itch and sometimes need surgery. We asked experts why they happen and what helps.`\
-https://www.nytimes.com/2026/07/14/well/varicose-veins.html
 
