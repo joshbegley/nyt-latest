@@ -1,3 +1,11 @@
+**Chipotle Is Bringing Its Mexican-Inspired Fast Food to Monterrey, Mexico**\
+`The California-based restaurant chain is opening its first location south of the U.S.-Mexico border this week, bringing its bowls and burritos to Monterrey.`\
+https://www.nytimes.com/2026/07/14/business/chipotle-open-mexico-monterrey.html
+
+**A Soundtrack to the 2026 World Cup Semifinals**\
+`Listen to songs from Rosalía, Mauvais Djo, Ca7riel & Paco Amoroso and the Beatles.`\
+https://www.nytimes.com/2026/07/14/arts/music/amplifier-newsletter-world-cup-rosalia.html
+
 **‘The Whoopi Monologues’ Review: Expanding a One-Woman Show**\
 `Instead of one Whoopi Goldberg, audiences now experience five actresses: Kerry Washington, Kara Young, Dominique Fishback, Danielle Pinnock and Kecia Lewis.`\
 https://www.nytimes.com/2026/07/14/theater/the-whoopi-monologues-review-kerry-washington-kara-young.html
@@ -174,15 +182,7 @@ https://www.nytimes.com/2026/07/14/style/street-style-look-diy-world-cup-swag.ht
 `People on Tuesday collected the bodies of loved ones who died when a blaze tore through a popular bar in Bangkok on Sunday evening, killing at least 30 and injuring dozens more.`\
 https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thailand.html
 
-**Who Is Ahead in Nevada's 2nd Congressional District?**\
-`Track the latest polls in Nevada's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/nevada-us-house-2-polls-2026.html
-
-**N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
-`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at and what they were looking for.`\
-https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
-
-**Live Updates: Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
+**Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
