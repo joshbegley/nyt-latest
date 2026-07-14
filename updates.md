@@ -1,3 +1,7 @@
+**Inflation Slowed During Pause in War With Iran**\
+`The Consumer Price Index fell to a 3.5 percent annual increase in June, and prices marked their biggest drop from a month earlier since 2020.`\
+https://www.nytimes.com/2026/07/14/business/economy/inflation-cpi.html
+
 **White House Cheers Inflation Data While Iran War Sparks New Price Surge**\
 `The news of an improvement in consumer prices in June came as the U.S. and Iran escalated attacks, risking a return to high energy prices.`\
 https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-price-surge.html

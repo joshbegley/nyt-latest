@@ -74,8 +74,8 @@ https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-milita
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
-**What to know about the report.**\
-`(No description)`\
+**Inflation Slowed During Pause in War With Iran**\
+`The Consumer Price Index fell to a 3.5 percent annual increase in June, and prices marked their biggest drop from a month earlier since 2020.`\
 https://www.nytimes.com/2026/07/14/business/economy/inflation-cpi.html
 
 **In the Public Interest**\
@@ -181,8 +181,4 @@ https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missi
 **Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
 `Physicists have debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
 https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
-
-**Who Would Benefit From Open Primaries in New York?**\
-`Proponents of primaries where voters can cast ballots regardless of party affiliation tend to be wealthier interests, including developers. Left-leaning groups tend to oppose them.`\
-https://www.nytimes.com/2026/07/14/nyregion/who-would-benefit-from-open-primaries-in-new-york.html
 
