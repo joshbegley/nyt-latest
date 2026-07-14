@@ -1,3 +1,7 @@
+**SAN FRANCISCO**\
+`The partnership, a first of its kind for the artificial intelligence company, will use the prediction market’s data to power some search results about the soccer tournament.`\
+https://www.nytimes.com/2026/07/13/technology/kalshi-openai-chatgpt-world-cup-odds.html
+
 **Pat Oliphant, Cartoonist Who Skewered the Powerful, Dies at 90**\
 `The winner of countless awards, including a Pulitzer Prize, he was described in 1990 as “the most influential political cartoonist now working.”`\
 https://www.nytimes.com/2026/07/13/arts/pat-oliphant-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/13/us/politics/trump-iran-hormuz-fees-vance-rubi
 **Labels for Music Created With A.I. Could Join Explicit Lyrics Warnings**\
 `Major music industry groups, including the organization behind the Grammy Awards, have proposed labels for tracks made with some degree of artificial intelligence.`\
 https://www.nytimes.com/2026/07/13/arts/music/ai-labels-warnings-riaa.html
-
-**Trump Administration Is Snapping Up Stakes in Private Companies. Could A.I. Be Next?**\
-`Some tech executives are nervous that the administration’s recent scrutiny of artificial intelligence models could be a prelude to a demand for an ownership stake.`\
-https://www.nytimes.com/2026/07/13/business/economy/trump-equity-stakes-ai.html
 
