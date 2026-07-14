@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/07/14/world/middleeast/israel-lebanon-peace-talks.h
 `In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
 https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
 
-**Is It East Village or the East Village?**\
+**Is It ‘East Village’ or ‘the East Village’?**\
 `A missing article is stirring up New Yorkers’ feelings.`\
 https://www.nytimes.com/2026/07/14/style/nyc-neighborhoods-the-village.html
 

@@ -1,3 +1,15 @@
+**Así funcionaría el plan de Trump de cobrar peaje en el estrecho de Ormuz**\
+`El presidente Trump anunció una tasa del 20 por ciento sobre la mercancía que pase por esa vía navegable, a pesar de que su propio gobierno considera que esos peajes violan el derecho internacional.`\
+https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-peaje-estrecho-ormuz.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011030000/14vid-Coney-Barrett-AI.html
+
+**Ann Widdecombe Was Killed in ‘Targeted Attack,’ UK Police Say**\
+`Counterterrorism police said that they were continuing to interview a 28-year-old man accused of killing Ann Widdecombe.`\
+https://www.nytimes.com/2026/07/14/world/europe/ann-widdecombe-targeted-attack.html
+
 **India Condemns Deadly Iranian Strike on Commercial Ship**\
 `India issued a diplomatic protest after an Indian sailor was killed and dozens more were injured in an Iranian attack on a tanker in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/iran-killed-indian-sailors.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/video/us/politics/100000011017774/why-supreme-court-just
 **¿Por qué a los niños les encanta ver ‘Moana’?**\
 `Esta película de 2016 se ha convertido en la más vista en Disney+. Los padres y los expertos explican por qué los niños no paran de verla.`\
 https://www.nytimes.com/es/2026/07/14/espanol/cultura/ninos-moana-explicacion.html
-
-**The ‘Pay-to-Play’ Scheme That (Almost) Ruined Video Games**\
-`The backlash against EA Sports’ in-game “microtransactions.”`\
-https://www.nytimes.com/2026/07/14/podcasts/ea-sports-video-games-college-football.html
-
-**Three Things Democrats Have to Do if They Actually Want to Win**\
-`It is these issues that serve to reinforce the perception that Democrats are willing to sacrifice the interests of the working and middle classes.`\
-https://www.nytimes.com/2026/07/14/opinion/project-2026-2028-democratic-platform.html
-
-**What Americans Need to Understand About China**\
-`Kevin Rudd, a former prime minister of Australia, went back to school to try to understand how the Chinese president thinks.`\
-https://www.nytimes.com/2026/07/14/opinion/ezra-klein-podcast-kevin-rudd.html
 
