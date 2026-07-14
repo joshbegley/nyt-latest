@@ -1,3 +1,15 @@
+**Warsh to Reiterate Fed’s Pledge to Get Inflation Down**\
+`Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
+https://www.nytimes.com/2026/07/14/business/economy/warsh-to-reiterate-feds-pledge-to-get-inflation-down.html
+
+**Live Updates: Inflation Drops on Lower Energy Prices**\
+`The Consumer Price Index rose at an 3.5 percent annual rate in June, lower than a month earlier, as energy prices moderated during a lull in the conflict in the Middle East.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
+**Blanche Was a Driving Force in Retribution Campaign, Emails Show**\
+`The cooperation of Todd Blanche in President Trump’s retribution against enemies will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
+https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html
+
 **Can Democrats Win Rural Voters Turning Away From Trump? It’s a Tough Sell.**\
 `House candidates like Beth Macy, author of “Dopesick,” have crafted messages based on lifetimes in rural regions. But messages need an audience, and many minds are closed to the party.`\
 https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html

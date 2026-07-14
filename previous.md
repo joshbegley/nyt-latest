@@ -1,3 +1,7 @@
+**Warsh to Reiterate Fed’s Pledge to Get Inflation Down**\
+`Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
+https://www.nytimes.com/2026/07/14/business/economy/warsh-to-reiterate-feds-pledge-to-get-inflation-down.html
+
 **Paramount vs. the States**\
 `An effort to block media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
 https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.html
@@ -22,8 +26,8 @@ https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
 `In a show of collective strength, President Emmanuel Macron of France hosted European allies at the annual Bastille Day parade in Paris. Yet Europe is still a hostage to America’s foreign policy.`\
 https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
 
-**Live Updates: Inflation Data to Show Effects of Volatile Energy Prices**\
-`The Consumer Price Index for June will provide the latest look at how higher oil and gas prices are rippling through the economy.`\
+**Live Updates: Inflation Drops on Lower Energy Prices**\
+`The Consumer Price Index rose at an 3.5 percent annual rate in June, lower than a month earlier, as energy prices moderated during a lull in the conflict in the Middle East.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
 **In the Public Interest**\
@@ -112,7 +116,7 @@ https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-testimony-
 
 **Blanche Was a Driving Force in Retribution Campaign, Emails Show**\
 `The cooperation of Todd Blanche in President Trump’s retribution against enemies will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
-https://www.nytimes.com/2026/07/14/us/politics/blanche-was-a-driving-force-in-retribution-campaign-emails-show.html
+https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html
 
 **In ‘The Westies,’ Chris Brancato Expands His ‘Scumbag Universe’ (Again)**\
 `For his new series, the co-creator of “Narcos” and “Godfather of Harlem” turns his focus to a violent gang of Irish New Yorkers in the early 1980s.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/14/magazine/terminal-lucidity.html
 **Book Review: ‘Cloudthief,’ by Nathaniel Rich**\
 `“Cloudthief,” by Nathaniel Rich, follows a dispirited writer into a scheme to get rich and find romance along the way.`\
 https://www.nytimes.com/2026/07/14/books/review/nathaniel-rich-cloudthief.html
-
-**Book Review: ‘Famous Men,’ by Julie Buntin**\
-`Julie Buntin’s novel “Famous Men” complicates an old story with questions of ambition and consent.`\
-https://www.nytimes.com/2026/07/14/books/review/julie-buntin-famous-men.html
 
