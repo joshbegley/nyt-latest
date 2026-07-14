@@ -1,3 +1,11 @@
+**Justices Say Supreme Court Needs More Security**\
+`Justices Elena Kagan and Amy Coney Barrett told lawmakers during a hearing about threats against themselves and their families.`\
+https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security.html
+
+**Man in Florida Fatally Hit by Truck While Fleeing ICE, Official Says**\
+`Details about what exactly happened at a gas station in St. Augustine before the man was hit were unclear Tuesday.`\
+https://www.nytimes.com/2026/07/14/us/florida-ice-death-immigration.html
+
 **N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
 `The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at and what they were looking for.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html

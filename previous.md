@@ -1,3 +1,11 @@
+**Justices Say Supreme Court Needs More Security**\
+`Justices Elena Kagan and Amy Coney Barrett told lawmakers during a hearing about threats against themselves and their families.`\
+https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security.html
+
+**Man in Florida Fatally Hit by Truck While Fleeing ICE, Official Says**\
+`Details about what exactly happened at a gas station in St. Augustine before the man was hit were unclear Tuesday.`\
+https://www.nytimes.com/2026/07/14/us/florida-ice-death-immigration.html
+
 **The Wild West of Ultraprocessed Food**\
 `Salt and sugar taste great, and Big Food knows that. While ultraprocessed foods are formulated to keep us coming back for more, the Times Opinion writer Jessica Grose argues that a lack of regulation in the food industry means consumers pay the cost, not corporations.`\
 https://www.nytimes.com/video/opinion/100000010999988/the-wild-west-of-ultraprocessed-food.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-ba
 **Bloomberg Loses Landmark Libel Case in Singapore**\
 `A judge ruled in favor of two Singaporean ministers in a closely watched defamation trial seen as a significant test of the country’s libel laws and their implications for press freedom.`\
 https://www.nytimes.com/2026/07/14/world/asia/singapore-bloomberg-defamation.html
-
-**¿Las venas varicosas son peligrosas?**\
-`Pueden causar dolor, picazón y, en ocasiones, requerir cirugía. Les preguntamos a los expertos por qué aparecen y qué puede ayudar.`\
-https://www.nytimes.com/es/2026/07/14/espanol/varices-son-peligrosas.html
-
-**Europe, Flexing Muscle in Ukraine, Is Still on Sidelines in Iran**\
-`In a show of collective strength, President Emmanuel Macron of France hosted European allies at the annual Bastille Day parade in Paris. Yet Europe is still a hostage to America’s foreign policy.`\
-https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html
 
 **Live Updates: Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
