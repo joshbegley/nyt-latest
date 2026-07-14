@@ -1,3 +1,23 @@
+**Largest Landlord in the U.S. Accused of Widespread Fair Housing Violations**\
+`Greystar turned away apartment applicants trying to use housing vouchers to pay rent, according to a watchdog group.`\
+https://www.nytimes.com/2026/07/14/realestate/greystar-fair-housing-complaints.html
+
+**Street Style Look of the Week: Homemade World Cup Swag**\
+`Tomoyo Tanaka-Ito’s connection to Senegal is mostly vibes-based. That didn’t stop her from spending days sewing shirts for its first World Cup match.`\
+https://www.nytimes.com/2026/07/14/style/street-style-look-diy-world-cup-swag.html
+
+**N.Y.C. Officials Inspecting Construction Sites After Building Buckles**\
+`The inspections were prompted by an incident in Midtown last week, an official said. It was unclear how many sites were being looked at.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-building-inspections-midtown.html
+
+**Live Updates: Inflation Slows on Lower Energy Prices**\
+`The Consumer Price Index dropped to a 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
+**Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
+`Physicists have debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
+https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
+
 **Families Collect Bodies From Bangkok Bar Fire**\
 `People on Tuesday collected the bodies of loved ones who died when a blaze tore through a popular bar in Bangkok on Sunday evening, killing at least 30 and injuring dozens more.`\
 https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thailand.html
