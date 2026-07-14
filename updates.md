@@ -1,3 +1,7 @@
+**Live Updates: Inflation Slows on Lower Energy Prices**\
+`The Consumer Price Index dropped to an 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
+https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
+
 **Warsh to Reiterate Fed’s Pledge to Get Inflation Down**\
 `Kevin M. Warsh, since becoming chairman of the Federal Reserve, has declined to say whether he supports higher interest rates to tame price pressures.`\
 https://www.nytimes.com/2026/07/14/business/economy/warsh-to-reiterate-feds-pledge-to-get-inflation-down.html
