@@ -1,3 +1,19 @@
+**How Erling Haaland’s Brand of Weird Resonates in China**\
+`The Norwegian striker has drawn an ardent following for his silly, self-deprecating online presence. Chinese fans, who have dubbed him “Baby Ha,” show their affection in memes.`\
+https://www.nytimes.com/2026/07/14/sports/soccer/erling-haaland-world-cup-china.html
+
+**What Americans Need to Understand About China**\
+`Kevin Rudd, a former prime minister of Australia, went back to school to try to understand how the Chinese president thinks.`\
+https://www.nytimes.com/2026/07/14/opinion/ezra-klein-podcast-kevin-rudd.html
+
+**Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
+`For more than a century, physicists have argued about which way a submerged sprinkler sucking in water would spin. Careful experiments provide a clear answer.`\
+https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
+
+**The Democratic Establishment Had This Coming**\
+`The Democratic Party needs shaking up.`\
+https://www.nytimes.com/2026/07/14/opinion/democrats-platner-midterms.html
+
 **Why the Cease-Fire With Iran Keeps Crumbling**\
 `The rushed U.S.-Iran agreement is sliding backward, potentially transforming a short-term crisis into a long, intractable war.`\
 https://www.nytimes.com/2026/07/14/podcasts/the-daily/iran-war-ceasefire-crumbling.html
