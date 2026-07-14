@@ -1,3 +1,15 @@
+**‘We Love Iraq,’ Trump Tells New Prime Minister in Oval Office Meeting**\
+`The meeting comes as President Trump’s administration has been ratcheting up pressure on Baghdad to diminish Iran’s influence in Iraq.`\
+https://www.nytimes.com/2026/07/14/us/politics/iraq-trump-oval-office-meeting.html
+
+**Six Dead in an Elevator After Fire in Central Brussels**\
+`After a fire broke out at the Oxy building in central Brussels on Tuesday morning, six bodies were found in an elevator.`\
+https://www.nytimes.com/2026/07/14/world/europe/six-dead-in-fire-central-brussels.html
+
+**An Elite N.Y.C. Public School Admitted 777 Students. Only 3 Were Black.**\
+`New York’s specialized high schools give disproportionately few seats to Black and Hispanic students, continuing a pattern that has drawn criticism.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-specialized-schools-black-hispanic.html
+
 **Takeaways From Rare Congressional Testimony by Two Supreme Court Justices**\
 `Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during a collegial hearing.`\
 https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
@@ -11,8 +23,8 @@ https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-represalias-e
 https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
 
 **Iran’s Former Leader Denies Times Report**\
-`The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad, as Iran’s leader after the war.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/office-of-irans-former-leader-denies-a-new-york-times-report-that-he-was-an-israeli-asset.html
+`The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad as Iran’s leader after the war.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/mahmoud-ahmadinejad-iran-israeli-asset.html
 
 **Lindsey Graham's Death Revives Debate Over Aging Congress**\
 `The sudden death of Senator Lindsey Graham has revived criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-pric
 `In her prepared remarks, Justice Elena Kagan said the Supreme Court Police estimated a 38 percent increase in threats this year.`\
 https://www.nytimes.com/2026/07/14/us/politics/kagan-house-testimony-supreme-court.html
 
-**Jeffries Says He Will Oppose Proposal to Cut Off U.S. Aid to Israel**\
-`The House Democratic leader said he would not seek to persuade other Democrats to vote against the measure, which has divided the party amid a deep rift over support for Israel.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/jeffries-israel-aid.html
-
-**Roger Worthington Is Suing Over a Heat Wave**\
-`Roger Worthington is helping to lead a $50 billion lawsuit against oil producers. This week he’ll face powerful critics in Congress.`\
-https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-industry-lawyer.html
-
 **Justices Tell Congress Supreme Court Needs Millions More for Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
 https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
-
-**Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
-`The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
-https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 

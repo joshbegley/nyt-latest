@@ -1,3 +1,19 @@
+**‘We Love Iraq,’ Trump Tells New Prime Minister in Oval Office Meeting**\
+`The meeting comes as President Trump’s administration has been ratcheting up pressure on Baghdad to diminish Iran’s influence in Iraq.`\
+https://www.nytimes.com/2026/07/14/us/politics/iraq-trump-oval-office-meeting.html
+
+**Six Dead in an Elevator After Fire in Central Brussels**\
+`After a fire broke out at the Oxy building in central Brussels on Tuesday morning, six bodies were found in an elevator.`\
+https://www.nytimes.com/2026/07/14/world/europe/six-dead-in-fire-central-brussels.html
+
+**An Elite N.Y.C. Public School Admitted 777 Students. Only 3 Were Black.**\
+`New York’s specialized high schools give disproportionately few seats to Black and Hispanic students, continuing a pattern that has drawn criticism.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-specialized-schools-black-hispanic.html
+
+**Iran’s Former Leader Denies Times Report**\
+`The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad as Iran’s leader after the war.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/mahmoud-ahmadinejad-iran-israeli-asset.html
+
 **Takeaways From Rare Congressional Testimony by Two Supreme Court Justices**\
 `Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during a collegial hearing.`\
 https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
