@@ -1,3 +1,7 @@
+**Trump cambia su plan en el estrecho de Ormuz y genera inquietud**\
+`Después de abandonar su propuesta de imponer tarifas a los barcos, el presidente plantea acuerdos de inversión con los países del Golfo a cambio de protección.`\
+https://www.nytimes.com/es/2026/07/14/espanol/negocios/trump-tarifas-estrecho-ormuz.html
+
 **Security Cameras Capture Moments After Fatal ICE Shooting in Maine**\
 `Footage from nearby surveillance cameras shows federal agents pulling Joan Sebastian Guerrero from a white car after a shooting in Biddeford, Maine, on Monday.`\
 https://www.nytimes.com/video/us/100000011029964/ice-shooting-biddeford-maine-footage.html
@@ -131,7 +135,7 @@ https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-represalias-enemigos-blanche-fiscal.html
 
 **Texas Faces Potentially ‘Catastrophic’ Amounts of Rain**\
-`Intense storms overnight dropped heavy rain, and more is on the way. Forecasters warned about the increasing likelihood of flooding across the state.`\
+`Intense storms overnight dropped heavy rain, and more was falling Tuesday. Forecasters warned about the increasing likelihood of flooding across the state.`\
 https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
 
 **Iran’s Former Leader Denies Times Report**\
@@ -183,7 +187,7 @@ https://www.nytimes.com/2026/07/14/dining/drinks/uncle-nearest-whiskey-federal-f
 https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security.html
 
 **Man in Florida Fatally Hit by Truck While Fleeing ICE, Official Says**\
-`Details about what exactly happened at a gas station in St. Augustine before the man was hit were unclear Tuesday.`\
+`Details were unclear on Tuesday about what exactly happened at a gas station in St. Augustine before the man was killed.`\
 https://www.nytimes.com/2026/07/14/us/florida-ice-death-immigration.html
 
 **The Wild West of Ultraprocessed Food**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000010999988/the-wild-west-of-ultraproc
 **With World Cup Semifinals Starting During the U.S. Workday, Fans Get Creative**\
 `FIFA has scheduled both semifinal matches for 3 p.m. Eastern time on Tuesday and Wednesday, when many viewers in the United States will be working.`\
 https://www.nytimes.com/2026/07/14/us/world-cup-semifinal-start-times.html
-
-**Nigel Sylvester Hates When People Pretend They Don’t Want Fries**\
-`The Queens native and professional BMX rider takes on our restaurant questionnaire.`\
-https://www.nytimes.com/2026/07/14/dining/nigel-sylvester-where-to-eat.html
 

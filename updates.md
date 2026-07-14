@@ -1,3 +1,11 @@
+**Security Cameras Capture Moments After Fatal ICE Shooting in Maine**\
+`Footage from nearby surveillance cameras shows federal agents pulling Joan Sebastian Guerrero from a white car after a shooting in Biddeford, Maine, on Monday.`\
+https://www.nytimes.com/video/us/100000011029964/ice-shooting-biddeford-maine-footage.html
+
+**‘Sully,’ ‘Miracle on the Hudson’ Pilot, Announces Alzheimer’s Diagnosis**\
+`Captain Sullenberger, who is known as Sully, said that the disease was in its early stages, and that he was “in the beginning of this long journey.”`\
+https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
+
 **ICE Is Ordered to Pause Most Vehicle Stops**\
 `Also, Trump drops his plan for a Strait of Hormuz fee. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/07/14/briefing/ice-is-ordered-to-pause-most-vehicle-stops.html
