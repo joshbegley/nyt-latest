@@ -1,3 +1,11 @@
+**Protests Break Out After ICE Agent Kills Person in Maine**\
+`People took to the streets to protest after a federal agent fatally shot a person during a vehicle stop in Biddeford, Maine, on Monday.`\
+https://www.nytimes.com/video/us/100000011027748/maine-ice-fatal-shooting.html
+
+**‘Lettuce or Salad Greens’ Identified as Potential Source of Cyclospora Outbreak**\
+`Michigan health officials announced the preliminary findings, but they cautioned that other foods could not be ruled out. The illness has sickened thousands across the United States.`\
+https://www.nytimes.com/2026/07/13/well/eat/michigan-cyclospora-outbreak-lettuce-salad-greens.html
+
 **Quote of the Day: Some New York City Parks Leave the Light on for Soccer Camaraderie**\
 `Quotation of the Day for Tuesday, July 14, 2026.`\
 https://www.nytimes.com/2026/07/14/pageoneplus/quote-of-the-day-some-new-york-city-parks-leave-the-light-on-for-soccer-camaraderie.html
