@@ -1,3 +1,7 @@
+**Iran’s Cyberattackers Tracked Phones of U.S. Military Personnel in the Mideast, Data Suggests**\
+`Researchers say Iran’s cyberwarfare capabilities have grown more advanced and aggressive during the war with the United States and Israel.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/iran-cyberattack-us-military-phones-tracking.html
+
 **Two Supreme Court Justices Spoke to Raise Security Funds in Rare Congressional Testimony**\
 `Supreme Court Justices Elena Kagan and Amy Coney Barrett spoke in rare congressional testimony to increase security funds amid rising threats.`\
 https://www.nytimes.com/video/us/politics/100000011030756/two-supreme-court-justices-spoke-to-raise-security-funds-in-a-rare-congressional-testimony.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/dining/drinks/uncle-nearest-whiskey-federal-f
 **Justices Say Supreme Court Needs More Security**\
 `Justices Elena Kagan and Amy Coney Barrett told lawmakers during a hearing about threats against themselves and their families.`\
 https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security.html
-
-**Man in Florida Fatally Hit by Truck While Fleeing ICE, Official Says**\
-`Details were unclear on Tuesday about what exactly happened at a gas station in St. Augustine before the man was killed.`\
-https://www.nytimes.com/2026/07/14/us/florida-ice-death-immigration.html
 

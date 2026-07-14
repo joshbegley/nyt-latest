@@ -1,3 +1,11 @@
+**Two Supreme Court Justices Spoke to Raise Security Funds in Rare Congressional Testimony**\
+`Supreme Court Justices Elena Kagan and Amy Coney Barrett spoke in rare congressional testimony to increase security funds amid rising threats.`\
+https://www.nytimes.com/video/us/politics/100000011030756/two-supreme-court-justices-spoke-to-raise-security-funds-in-a-rare-congressional-testimony.html
+
+**An ICE Shooting in Maine Puts Pressure on Senator Susan Collins**\
+`The Democrats hoping to challenge Ms. Collins, a vulnerable Republican, have seized on the fatal incident, drawing attention to her record on immigration matters.`\
+https://www.nytimes.com/2026/07/14/us/politics/ice-shooting-maine-susan-collins.html
+
 **Trump cambia su plan en el estrecho de Ormuz y genera inquietud**\
 `Después de abandonar su propuesta de imponer tarifas a los barcos, el presidente plantea acuerdos de inversión con los países del Golfo a cambio de protección.`\
 https://www.nytimes.com/es/2026/07/14/espanol/negocios/trump-tarifas-estrecho-ormuz.html

@@ -1,3 +1,11 @@
+**Two Supreme Court Justices Spoke to Raise Security Funds in Rare Congressional Testimony**\
+`Supreme Court Justices Elena Kagan and Amy Coney Barrett spoke in rare congressional testimony to increase security funds amid rising threats.`\
+https://www.nytimes.com/video/us/politics/100000011030756/two-supreme-court-justices-spoke-to-raise-security-funds-in-a-rare-congressional-testimony.html
+
+**An ICE Shooting in Maine Puts Pressure on Senator Susan Collins**\
+`The Democrats hoping to challenge Ms. Collins, a vulnerable Republican, have seized on the fatal incident, drawing attention to her record on immigration matters.`\
+https://www.nytimes.com/2026/07/14/us/politics/ice-shooting-maine-susan-collins.html
+
 **Trump cambia su plan en el estrecho de Ormuz y genera inquietud**\
 `Después de abandonar su propuesta de imponer tarifas a los barcos, el presidente plantea acuerdos de inversión con los países del Golfo a cambio de protección.`\
 https://www.nytimes.com/es/2026/07/14/espanol/negocios/trump-tarifas-estrecho-ormuz.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security
 **Man in Florida Fatally Hit by Truck While Fleeing ICE, Official Says**\
 `Details were unclear on Tuesday about what exactly happened at a gas station in St. Augustine before the man was killed.`\
 https://www.nytimes.com/2026/07/14/us/florida-ice-death-immigration.html
-
-**The Wild West of Ultraprocessed Food**\
-`Salt and sugar taste great, and Big Food knows that. While ultraprocessed foods are formulated to keep us coming back for more, the Times Opinion writer Jessica Grose argues that a lack of regulation in the food industry means consumers pay the cost, not corporations.`\
-https://www.nytimes.com/video/opinion/100000010999988/the-wild-west-of-ultraprocessed-food.html
-
-**With World Cup Semifinals Starting During the U.S. Workday, Fans Get Creative**\
-`FIFA has scheduled both semifinal matches for 3 p.m. Eastern time on Tuesday and Wednesday, when many viewers in the United States will be working.`\
-https://www.nytimes.com/2026/07/14/us/world-cup-semifinal-start-times.html
 
