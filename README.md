@@ -1,3 +1,7 @@
+**Opportunities Narrow for Women as Hegseth Blocks More Promotions**\
+`For the first time in more than a decade, no active-duty female Navy officers are likely to be promoted to admiral this year.`\
+https://www.nytimes.com/2026/07/14/us/hegseth-blocks-navy-promotions.html
+
 **Lindsey Graham’s Sister, Darline Graham, Is Sworn In to Finish His Senate Term**\
 `Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
 https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/us/politics/trump-south-korea-aluminum.html
 **Tornadoes in Maine? A Rare Forecast for Parts of U.S. and Canada**\
 `Storms on Tuesday could produce damaging winds, large hail and even tornadoes in areas where they are not common.`\
 https://www.nytimes.com/2026/07/14/weather/maine-vermont-tornado-quebec.html
-
-**At Young World Festival, Rap’s Avant-Garde Takes Shape**\
-`The Brooklyn festival Young World spotlights emergent indie rappers and veteran artists. It was the brainchild of Mike, an artist and label head who has become a fulcrum of the alt-rap scene.`\
-https://www.nytimes.com/2026/07/14/arts/music/young-world-festival-mike.html
 
