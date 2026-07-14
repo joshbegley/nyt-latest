@@ -62,6 +62,10 @@ https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-milita
 `The Consumer Price Index dropped to a 3.5 percent annual rate in June during a lull in fighting with Iran that now seems over. Kevin M. Warsh, the Fed’s chairman, will testify in Congress on Tuesday about the threat higher prices including energy pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
 
+**What to know about the report.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/14/business/economy/inflation-cpi.html
+
 **In the Public Interest**\
 `We look at the Trump administration’s attempts to pressure news organizations.`\
 https://www.nytimes.com/2026/07/14/briefing/in-the-public-interest.html
