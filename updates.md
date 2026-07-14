@@ -1,3 +1,7 @@
+**Kevin Warsh Pledges to Bring Inflation Down but Doesn’t Specify How**\
+`Kevin M. Warsh, the new chairman of the Federal Reserve, reiterated his commitment to get inflation down but did not provide specifics during his first testimony to Congress.`\
+https://www.nytimes.com/video/us/100000011030763/fed-kevin-warsh-inflation.html
+
 **Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
 `The City Council speaker, Julie Menin, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html

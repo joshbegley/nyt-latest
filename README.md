@@ -1,3 +1,7 @@
+**The House passes daylight-saving Sunshine Protection Act**\
+`House Republicans and Democrats united in favor of a bill to eliminate semiannual clock-changing, but it faces an uncertain fate in the Senate.`\
+https://www.nytimes.com/2026/07/14/us/politics/house-votes-for-permanent-daylight-saving-time.html
+
 **Kevin Warsh Pledges to Bring Inflation Down but Doesn’t Specify How**\
 `Kevin M. Warsh, the new chairman of the Federal Reserve, reiterated his commitment to get inflation down but did not provide specifics during his first testimony to Congress.`\
 https://www.nytimes.com/video/us/100000011030763/fed-kevin-warsh-inflation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011030433/14vid-Trump-e
 **Trump ordena un bloqueo y el cobro de peajes en el estrecho de Ormuz**\
 `El presidente de EE. UU. ha notificado al Congreso que el enfrentamiento con Irán se ha reanudado y ha anunciado unas tasas de transporte marítimo que antes su gobierno había considerado ilegales.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-guerra-estrecho-ormuz.html
-
-**The Latest in the Uncle Nearest Whiskey Saga: Federal Fraud Investigations**\
-`One of the few Black-owned operations in the spirits industry, the Tennessee distillery had grown rapidly before unraveling in recent years.`\
-https://www.nytimes.com/2026/07/14/dining/drinks/uncle-nearest-whiskey-federal-fraud-investigations.html
 
