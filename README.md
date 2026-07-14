@@ -1,3 +1,7 @@
+**Paramount vs. the States**\
+`An effort to block media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
+https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.html
+
 **Chai Discovery, an A.I. Drug Start-Up, Raises $400 Million**\
 `The fund-raising values the company at $3.8 billion and underscores investor interest in using artificial intelligence to tackle problems like drug discovery.`\
 https://www.nytimes.com/2026/07/14/business/dealbook/chai-discovery-ai-drug-development.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/14/books/review/nathaniel-rich-cloudthief.html
 **Book Review: ‘Famous Men,’ by Julie Buntin**\
 `Julie Buntin’s novel “Famous Men” complicates an old story with questions of ambition and consent.`\
 https://www.nytimes.com/2026/07/14/books/review/julie-buntin-famous-men.html
-
-**75 Years Later, ‘The Catcher in the Rye’ Remains a Great American Novel**\
-`Sure, “Catcher in the Rye” has its detractors. But the influence of its wised-up yet winningly innocent hero keeps it among the Great American Novels.`\
-https://www.nytimes.com/2026/07/14/books/review/catcher-in-the-rye-75th-anniversary-salinger.html
 
