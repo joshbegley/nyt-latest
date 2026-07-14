@@ -1,3 +1,11 @@
+**T. Rex Fossil Sells for $50.1 Million, Putting the King Back On Top**\
+`In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
+https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
+
+**Is It East Village or the East Village?**\
+`A missing article is stirring up New Yorkers’ feelings.`\
+https://www.nytimes.com/2026/07/14/style/nyc-neighborhoods-the-village.html
+
 **White House Cheers Inflation Data While Iran War Sparks New Price Surge**\
 `The news of an improvement in consumer prices in June came as the U.S. and Iran escalated attacks, risking a return to high energy prices.`\
 https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-price-surge.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/07/14/arts/television/difficult-people.html
 **As White House Leans on Smithsonian, Little Uproar Over Board Vacancies**\
 `An odd silence has surrounded a delay to fill several open seats on the board of the Smithsonian, even as a fierce battle to control the institution ensues.`\
 https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.html
-
-**Ukraine Wants to Make Its Own Antimissile System, Not Just Patriots**\
-`The Ukrainian firm Fire Point has produced weapons that hit Russian territory. Its next goal, developing an antimissile system, is a much bigger challenge, experts said.`\
-https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
-
-**Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
-`Physicists have debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
-https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
 

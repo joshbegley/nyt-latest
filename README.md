@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/07/14/arts/television/the-westies.html
 `This cult comedy about two snide show-business outsiders has a new Blu-ray edition, and a reunion this fall. The creator Julie Klausner discusses why she’d love to revive it.`\
 https://www.nytimes.com/2026/07/14/arts/television/difficult-people.html
 
-**As White House Leans on Smithsonian, Little Uproar Over Board Vacancies**\
-`An odd silence has surrounded a delay to fill several open seats on the board of the Smithsonian, even as a fierce battle to control the institution ensues.`\
-https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.html
+**Iran War Live Updates: U.S. Strikes Iran As Conflict Over Strait of Hormuz Intensifies**\
+`The two countries reignited the war over the waterway, trading strikes as the United States prepared to restart a blockade of Iran’s ports on Tuesday. Earlier, Iran fired at U.S. military sites in the region.`\
+https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
 

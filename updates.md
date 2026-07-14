@@ -1,3 +1,11 @@
+**T. Rex Fossil Sells for $50.1 Million, Putting the King Back On Top**\
+`In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
+https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
+
+**Is It East Village or the East Village?**\
+`A missing article is stirring up New Yorkers’ feelings.`\
+https://www.nytimes.com/2026/07/14/style/nyc-neighborhoods-the-village.html
+
 **Inflation Slowed During Pause in War With Iran**\
 `The Consumer Price Index fell to a 3.5 percent annual increase in June, and prices marked their biggest drop from a month earlier since 2020.`\
 https://www.nytimes.com/2026/07/14/business/economy/inflation-cpi.html
