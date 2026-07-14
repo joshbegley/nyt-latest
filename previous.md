@@ -1,3 +1,11 @@
+**Lindsey Graham’s Choice**\
+`Would the world have been safer if Graham hadn’t cozied up to Trump?`\
+https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-ukraine-trump.html
+
+**Lindsey Graham Made Trumpism in His Own Image**\
+`He bent the knee and made the most of it.`\
+https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-trump-legacy.html
+
 **Trump Administration Subpoenas Law Firms, Escalating Pressure Campaign**\
 `The uneasy truce between the administration and the law firms it cut deals with last year has erupted into a pitched legal battle behind closed doors.`\
 https://www.nytimes.com/2026/07/14/us/politics/trump-subpoenas-law-firms-epshteyn-aba.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
 **E. Jean Carroll Receives $5.6 Million Payment From Trump in Civil Case**\
 `A federal jury found President Trump liable for sexually abusing and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
 https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html
-
-**Warren Buffet Declines to Donate to Gates Foundation Amid Epstein Revelations**\
-`The decision by the Berkshire Hathaway founder comes in the wake of Epstein revelations that have troubled the Gates Foundation.`\
-https://www.nytimes.com/2026/07/14/business/media/warren-buffett-gates-foundation-gift.html
-
-**Some Positive (and Negative) Thinking About Therapy**\
-`Readers respond to “Not Everyone Should Be in Therapy,” an Opinion guest essay by Harvey Lieberman.`\
-https://www.nytimes.com/2026/07/14/opinion/therapy-mental-health.html
 

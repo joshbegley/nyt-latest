@@ -1,3 +1,11 @@
+**Lindsey Graham’s Choice**\
+`Would the world have been safer if Graham hadn’t cozied up to Trump?`\
+https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-ukraine-trump.html
+
+**Lindsey Graham Made Trumpism in His Own Image**\
+`He bent the knee and made the most of it.`\
+https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-trump-legacy.html
+
 **Trump Administration Subpoenas Law Firms, Escalating Pressure Campaign**\
 `The uneasy truce between the administration and the law firms it cut deals with last year has erupted into a pitched legal battle behind closed doors.`\
 https://www.nytimes.com/2026/07/14/us/politics/trump-subpoenas-law-firms-epshteyn-aba.html
