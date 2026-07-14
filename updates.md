@@ -1,3 +1,7 @@
+**Iran War Live Updates: Clash Over Strait Intensifies With Strikes and Trump Threats**\
+`President Trump ordered more attacks on Iran and announced a 20 percent fee on cargo through the Strait of Hormuz. Iran said it had attacked two oil tankers and fired at U.S. military sites, as the two sides slid back to open war.`\
+https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
+
 **Trump Orders Tolls and Blockade as Fighting With Iran Resumes**\
 `President Trump notified Congress that he had resumed strikes on Iran, as the cease-fire effectively collapsed. He also ordered a naval blockade and announced shipping tolls in the Strait of Hormuz.`\
 https://www.nytimes.com/video/world/asia/100000011029063/iran-trump-strait-hormuz-toll.html
