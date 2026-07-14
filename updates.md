@@ -1,3 +1,11 @@
+**Gold Trader Who Helped Iran Dodge Sanctions Avoids Prison Sentence**\
+`Reza Zarrab’s cooperation exposed a financial pipeline to Iran’s regime, threatening to bring down powerful people in Turkey. But a decade later, the case is now closed.`\
+https://www.nytimes.com/2026/07/14/nyregion/turkey-zarrab-halkbank-erdogan-iran.html
+
+**Top Tax Official to Leave Trump Administration**\
+`Ken Kies, who held two top jobs at the Treasury Department and the I.R.S., is leaving the government.`\
+https://www.nytimes.com/2026/07/14/us/politics/ken-kies-irs-departure.html
+
 **E. Jean Carroll Receives $5.6 Million Payment From Trump in Civil Case**\
 `A federal jury found President Trump liable for sexually abusing and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
 https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html

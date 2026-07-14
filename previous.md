@@ -1,3 +1,11 @@
+**Gold Trader Who Helped Iran Dodge Sanctions Avoids Prison Sentence**\
+`Reza Zarrab’s cooperation exposed a financial pipeline to Iran’s regime, threatening to bring down powerful people in Turkey. But a decade later, the case is now closed.`\
+https://www.nytimes.com/2026/07/14/nyregion/turkey-zarrab-halkbank-erdogan-iran.html
+
+**Top Tax Official to Leave Trump Administration**\
+`Ken Kies, who held two top jobs at the Treasury Department and the I.R.S., is leaving the government.`\
+https://www.nytimes.com/2026/07/14/us/politics/ken-kies-irs-departure.html
+
 **‘We Love Iraq,’ Trump Tells New Prime Minister in Oval Office Meeting**\
 `The meeting comes as President Trump’s administration has been ratcheting up pressure on Baghdad to diminish Iran’s influence in Iraq.`\
 https://www.nytimes.com/2026/07/14/us/politics/iraq-trump-oval-office-meeting.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.htm
 **‘Welcome to West Village’? The ‘the’ Is Not Optional, Say Some New Yorkers.**\
 `Some newcomers in the city say they are meeting in Bronx, or living in East Village.`\
 https://www.nytimes.com/2026/07/14/style/nyc-neighborhoods-the-village.html
-
-**White House Cheers Inflation Data While Iran War Sparks New Price Surge**\
-`The news of an improvement in consumer prices in June came as the U.S. and Iran escalated attacks, risking a return to high energy prices.`\
-https://www.nytimes.com/2026/07/14/business/economy/inflation-data-iran-war-price-surge.html
-
-**Justice Kagan Tells House Panel That ‘Threats Have Come Very Close’**\
-`In her prepared remarks, Justice Elena Kagan said the Supreme Court Police estimated a 38 percent increase in threats this year.`\
-https://www.nytimes.com/2026/07/14/us/politics/kagan-house-testimony-supreme-court.html
 
 **Justices Tell Congress Supreme Court Needs Millions More for Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
