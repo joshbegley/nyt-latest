@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
 https://www.nytimes.com/2026/07/14/learning/138-picture-prompts-to-inspire-student-writing.html
 
 **Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
-`Julie Menin, the City Council speaker, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
+`The City Council speaker, Julie Menin, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
 
 **Public Health Groups Sue F.D.A. Over Flavored E-Cigarette Policy**\

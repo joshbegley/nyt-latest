@@ -1,3 +1,7 @@
+**Kevin Warsh Pledges to Bring Inflation Down but Doesn’t Specify How**\
+`Kevin M. Warsh, the new chairman of the Federal Reserve, reiterated his commitment to get inflation down but did not provide specifics during his first testimony to Congress.`\
+https://www.nytimes.com/video/us/100000011030763/fed-kevin-warsh-inflation.html
+
 **Iran’s Cyberattackers Tracked Phones of U.S. Military Personnel in the Mideast, Data Suggests**\
 `Researchers say Iran’s cyberwarfare capabilities have grown more advanced and aggressive during the war with the United States and Israel.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/iran-cyberattack-us-military-phones-tracking.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-guerra-e
 **The Latest in the Uncle Nearest Whiskey Saga: Federal Fraud Investigations**\
 `One of the few Black-owned operations in the spirits industry, the Tennessee distillery had grown rapidly before unraveling in recent years.`\
 https://www.nytimes.com/2026/07/14/dining/drinks/uncle-nearest-whiskey-federal-fraud-investigations.html
-
-**Justices Say Supreme Court Needs More Security**\
-`Justices Elena Kagan and Amy Coney Barrett told lawmakers during a hearing about threats against themselves and their families.`\
-https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security.html
 

@@ -1,3 +1,7 @@
+**Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
+`The City Council speaker, Julie Menin, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
+
 **Iran’s Cyberattackers Tracked Phones of U.S. Military Personnel in the Mideast, Data Suggests**\
 `Researchers say Iran’s cyberwarfare capabilities have grown more advanced and aggressive during the war with the United States and Israel.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/iran-cyberattack-us-military-phones-tracking.html
