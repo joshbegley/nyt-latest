@@ -1,3 +1,15 @@
+**Colombian Immigrant Killed by ICE in Maine Had Legal Status, Father Says**\
+`The father of Joan Sebastian Guerrero, the man fatally shot by a federal immigration agent on Monday, said his son had been working two jobs to support his wife and daughter.`\
+https://www.nytimes.com/2026/07/14/us/joan-sebastian-guerrero-maine-ice-shooting.html
+
+**ICE Shootings Put Spotlight on Lack of Body Cameras**\
+`Kristi Noem, the former homeland security secretary, said five months ago that the Trump administration would “rapidly” deploy body cameras to immigration agents across the country. About half still don’t have them.`\
+https://www.nytimes.com/2026/07/14/us/politics/ice-body-cameras.html
+
+**Opportunities Narrow for Women as Hegseth Blocks More Promotions**\
+`For the first time in more than a decade, no active-duty female Navy officers are likely to be promoted to admiral this year.`\
+https://www.nytimes.com/2026/07/14/us/hegseth-blocks-navy-promotions.html
+
 **Lindsey Graham’s Sister, Darline Graham, Is Sworn In to Finish His Senate Term**\
 `Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
 https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/14/dining/nyc-restaurant-news.html
 **Leonard Abramson, Health Care Innovator and Philanthropist, Dies at 93**\
 `He created U.S. Healthcare, one of the first H.M.O.s, and used his great wealth from the sale of the company for causes like advancing cancer research.`\
 https://www.nytimes.com/2026/07/14/health/leonard-abramson-dead.html
-
-**Trump Paid $2 Million by South Korean Company Facing Trade Investigation**\
-`The payment illustrates the minefield Mr. Trump has created by maintaining personal financial ties with foreign businesses while he is in office.`\
-https://www.nytimes.com/2026/07/14/us/politics/trump-south-korea-aluminum.html
-
-**Tornadoes in Maine? A Rare Forecast for Parts of U.S. and Canada**\
-`Storms on Tuesday could produce damaging winds, large hail and even tornadoes in areas where they are not common.`\
-https://www.nytimes.com/2026/07/14/weather/maine-vermont-tornado-quebec.html
-
-**At Young World Festival, Rap’s Avant-Garde Takes Shape**\
-`The Brooklyn festival Young World spotlights emergent indie rappers and veteran artists. It was the brainchild of Mike, an artist and label head who has become a fulcrum of the alt-rap scene.`\
-https://www.nytimes.com/2026/07/14/arts/music/young-world-festival-mike.html
 

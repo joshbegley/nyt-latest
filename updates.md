@@ -1,3 +1,15 @@
+**Colombian Immigrant Killed by ICE in Maine Had Legal Status, Father Says**\
+`The father of Joan Sebastian Guerrero, the man fatally shot by a federal immigration agent on Monday, said his son had been working two jobs to support his wife and daughter.`\
+https://www.nytimes.com/2026/07/14/us/joan-sebastian-guerrero-maine-ice-shooting.html
+
+**ICE Shootings Put Spotlight on Lack of Body Cameras**\
+`Kristi Noem, the former homeland security secretary, said five months ago that the Trump administration would “rapidly” deploy body cameras to immigration agents across the country. About half still don’t have them.`\
+https://www.nytimes.com/2026/07/14/us/politics/ice-body-cameras.html
+
+**Opportunities Narrow for Women as Hegseth Blocks More Promotions**\
+`For the first time in more than a decade, no active-duty female Navy officers are likely to be promoted to admiral this year.`\
+https://www.nytimes.com/2026/07/14/us/hegseth-blocks-navy-promotions.html
+
 **Lindsey Graham’s Sister, Darline Graham, Is Sworn In to Finish His Senate Term**\
 `Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
 https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html

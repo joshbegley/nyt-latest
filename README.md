@@ -1,3 +1,7 @@
+**ICE Is Ordered to Pause Most Vehicle Stops**\
+`Also, Trump drops his plan for a Strait of Hormuz fee. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/07/14/briefing/ice-is-ordered-to-pause-most-vehicle-stops.html
+
 **Colombian Immigrant Killed by ICE in Maine Had Legal Status, Father Says**\
 `The father of Joan Sebastian Guerrero, the man fatally shot by a federal immigration agent on Monday, said his son had been working two jobs to support his wife and daughter.`\
 https://www.nytimes.com/2026/07/14/us/joan-sebastian-guerrero-maine-ice-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/dining/nigel-sylvester-where-to-eat.html
 **Graciela Has Fired Up the Parrilla for Argentine Cooking**\
 `Casa Felix serves up esquites risotto, Granola Bar expands and more restaurant news.`\
 https://www.nytimes.com/2026/07/14/dining/nyc-restaurant-news.html
-
-**Leonard Abramson, Health Care Innovator and Philanthropist, Dies at 93**\
-`He created U.S. Healthcare, one of the first H.M.O.s, and used his great wealth from the sale of the company for causes like advancing cancer research.`\
-https://www.nytimes.com/2026/07/14/health/leonard-abramson-dead.html
 
