@@ -1,3 +1,7 @@
+**Trump Paid $2 Million by South Korean Company Facing Trade Investigation**\
+`The payment illustrates the minefield Mr. Trump has created by maintaining personal financial ties with foreign businesses while he is in office.`\
+https://www.nytimes.com/2026/07/14/us/politics/trump-south-korea-aluminum.html
+
 **Tornadoes in Maine? A Rare Forecast for Parts of U.S. and Canada**\
 `Storms on Tuesday could produce damaging winds, large hail and even tornadoes in areas where they are not common.`\
 https://www.nytimes.com/2026/07/14/weather/maine-vermont-tornado-quebec.html
@@ -106,7 +110,7 @@ https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-indust
 `Justices Amy Coney Barrett and Elena Kagan testify about the Supreme Court’s over $200 million request for more security.`\
 https://www.nytimes.com/video/us/politics/100000011028276/watch-live-supreme-court-asks-congress-for-more-security-funds.html
 
-**Live Updates: 2 Justices Tell Congress Supreme Court Needs Millions More for Security**\
+**Justices Tell Congress Supreme Court Needs Millions More for Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
 https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/14/opinion/culture/phone-algorithm-addiction.htm
 **China Purges Top Official Over Corruption and Sex Charges**\
 `Ma Xingrui is the third member of the Politburo to be purged since 2022. He once led the Xinjiang region and was previously head of China’s space program.`\
 https://www.nytimes.com/2026/07/14/world/asia/china-expels-politburo-official-sex-corruption.html
-
-**How Erling Haaland’s Brand of Weird Resonates in China**\
-`The Norwegian striker has drawn an ardent following for his silly, self-deprecating online presence. Chinese fans, who have dubbed him “Baby Ha,” show their affection in memes.`\
-https://www.nytimes.com/2026/07/14/sports/soccer/erling-haaland-world-cup-china.html
 

@@ -1,3 +1,11 @@
+**Trump Paid $2 Million by South Korean Company Facing Trade Investigation**\
+`The payment illustrates the minefield Mr. Trump has created by maintaining personal financial ties with foreign businesses while he is in office.`\
+https://www.nytimes.com/2026/07/14/us/politics/trump-south-korea-aluminum.html
+
+**Justices Tell Congress Supreme Court Needs Millions More for Security**\
+`Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
+https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
+
 **Tornadoes in Maine? A Rare Forecast for Parts of U.S. and Canada**\
 `Storms on Tuesday could produce damaging winds, large hail and even tornadoes in areas where they are not common.`\
 https://www.nytimes.com/2026/07/14/weather/maine-vermont-tornado-quebec.html
