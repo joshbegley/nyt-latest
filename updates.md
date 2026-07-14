@@ -1,3 +1,7 @@
+**Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
+`For more than a century, physicists debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
+https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
+
 **Paramount vs. the States**\
 `An effort to block media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
 https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.html

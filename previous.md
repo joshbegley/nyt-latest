@@ -131,7 +131,7 @@ https://www.nytimes.com/2026/07/14/arts/smithsonian-trump-board-lonnie-bunch.htm
 https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html
 
 **Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
-`For more than a century, physicists have argued about which way a submerged sprinkler sucking in water would spin. Careful experiments provide a clear answer.`\
+`For more than a century, physicists debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
 https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html
 
 **Who Would Benefit From Open Primaries in New York?**\
