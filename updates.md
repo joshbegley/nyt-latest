@@ -1,3 +1,19 @@
+**Lindsey Graham's Death Revives Debate Over Aging Congress**\
+`The sudden death of Senator Lindsey Graham has revived criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\
+https://www.nytimes.com/interactive/2026/07/14/us/politics/lindsey-graham-death-congress-age.html
+
+**Israel Strikes Police Post, Killing 7, Gaza Officials Say**\
+`Hamas says the strike hit Gaza’s civil security, while Israel says it targeted “terrorists.” Israel has stepped up attacks in Gaza recently as a cease-fire with Hamas has floundered.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/israel-strikes-gaza-police-force-hamas.html
+
+**Trump Flip-Flops on Strait of Hormuz, Creating New Risks for Global Economy**\
+`The president now wants Gulf nations to invest in the U.S. in exchange for safe passage. Shipping industry experts worry other nations will follow that lead.`\
+https://www.nytimes.com/2026/07/14/business/trump-strait-of-hormuz.html
+
+**With World Cup Semifinals Starting During the U.S. Workday, Fans Get Creative**\
+`FIFA has scheduled both semifinal matches for 3 p.m. Eastern time on Tuesday and Wednesday, when many viewers in the United States will be working.`\
+https://www.nytimes.com/2026/07/14/us/world-cup-semifinal-start-times.html
+
 **Chipotle Is Bringing Its Mexican-Inspired Fast Food to Monterrey, Mexico**\
 `The California-based restaurant chain is opening its first location south of the U.S.-Mexico border this week, bringing its bowls and burritos to Monterrey.`\
 https://www.nytimes.com/2026/07/14/business/chipotle-open-mexico-monterrey.html

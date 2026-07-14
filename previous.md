@@ -1,3 +1,15 @@
+**Lindsey Graham's Death Revives Debate Over Aging Congress**\
+`The sudden death of Senator Lindsey Graham has revived criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\
+https://www.nytimes.com/interactive/2026/07/14/us/politics/lindsey-graham-death-congress-age.html
+
+**Israel Strikes Police Post, Killing 7, Gaza Officials Say**\
+`Hamas says the strike hit Gaza’s civil security, while Israel says it targeted “terrorists.” Israel has stepped up attacks in Gaza recently as a cease-fire with Hamas has floundered.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/israel-strikes-gaza-police-force-hamas.html
+
+**Trump Flip-Flops on Strait of Hormuz, Creating New Risks for Global Economy**\
+`The president now wants Gulf nations to invest in the U.S. in exchange for safe passage. Shipping industry experts worry other nations will follow that lead.`\
+https://www.nytimes.com/2026/07/14/business/trump-strait-of-hormuz.html
+
 **Chipotle Is Bringing Its Mexican-Inspired Fast Food to Monterrey, Mexico**\
 `The California-based restaurant chain is opening its first location south of the U.S.-Mexico border this week, bringing its bowls and burritos to Monterrey.`\
 https://www.nytimes.com/2026/07/14/business/chipotle-open-mexico-monterrey.html
@@ -38,7 +50,7 @@ https://www.nytimes.com/2026/07/14/us/florida-ice-death-immigration.html
 `Salt and sugar taste great, and Big Food knows that. While ultraprocessed foods are formulated to keep us coming back for more, the Times Opinion writer Jessica Grose argues that a lack of regulation in the food industry means consumers pay the cost, not corporations.`\
 https://www.nytimes.com/video/opinion/100000010999988/the-wild-west-of-ultraprocessed-food.html
 
-**Working From Home. Liquid Lunches. Wink, Wink. Cue the World Cup Semis.**\
+**With World Cup Semifinals Starting During the U.S. Workday, Fans Get Creative**\
 `FIFA has scheduled both semifinal matches for 3 p.m. Eastern time on Tuesday and Wednesday, when many viewers in the United States will be working.`\
 https://www.nytimes.com/2026/07/14/us/world-cup-semifinal-start-times.html
 
@@ -169,18 +181,6 @@ https://www.nytimes.com/video/us/politics/100000011028276/watch-live-supreme-cou
 **Justices Tell Congress Supreme Court Needs Millions More for Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
 https://www.nytimes.com/live/2026/07/14/us/supreme-court-kagan-barrett
-
-**Largest Landlord in the U.S. Accused of Widespread Fair Housing Violations**\
-`Greystar turned away apartment applicants trying to use housing vouchers to pay rent, according to a watchdog group.`\
-https://www.nytimes.com/2026/07/14/realestate/greystar-fair-housing-complaints.html
-
-**Street Style Look of the Week: Homemade World Cup Swag**\
-`Tomoyo Tanaka-Ito’s connection to Senegal is mostly vibes-based. That didn’t stop her from spending days sewing shirts for its first World Cup match.`\
-https://www.nytimes.com/2026/07/14/style/street-style-look-diy-world-cup-swag.html
-
-**Families Collect Bodies From Bangkok Bar Fire**\
-`People on Tuesday collected the bodies of loved ones who died when a blaze tore through a popular bar in Bangkok on Sunday evening, killing at least 30 and injuring dozens more.`\
-https://www.nytimes.com/video/world/asia/100000011029270/bangkok-bar-fire-thailand.html
 
 **Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
