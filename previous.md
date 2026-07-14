@@ -1,3 +1,15 @@
+**The Wild West of Ultraprocessed Food**\
+`Salt and sugar taste great, and Big Food knows that. While ultraprocessed foods are formulated to keep us coming back for more, the Times Opinion writer Jessica Grose argues that a lack of regulation in the food industry means consumers pay the cost, not corporations.`\
+https://www.nytimes.com/video/opinion/100000010999988/the-wild-west-of-ultraprocessed-food.html
+
+**Working From Home. Liquid Lunches. Wink, Wink. Cue the World Cup Semis.**\
+`FIFA has scheduled both semifinal matches for 3 p.m. Eastern time on Tuesday and Wednesday, when many viewers in the United States will be working.`\
+https://www.nytimes.com/2026/07/14/us/world-cup-semifinal-start-times.html
+
+**Nigel Sylvester Hates When People Pretend They Don’t Want Fries**\
+`The Queens native and professional BMX rider takes on our restaurant questionnaire.`\
+https://www.nytimes.com/2026/07/14/dining/nigel-sylvester-where-to-eat.html
+
 **Graciela Has Fired Up the Parrilla for Argentine Cooking**\
 `Casa Felix serves up esquites risotto, Granola Bar expands and more restaurant news.`\
 https://www.nytimes.com/2026/07/14/dining/nyc-restaurant-news.html
@@ -55,7 +67,7 @@ https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-peaje-es
 https://www.nytimes.com/video/embedded/us/politics/100000011030000/14vid-Coney-Barrett-AI.html
 
 **Ann Widdecombe Was Killed in ‘Targeted Attack,’ UK Police Say**\
-`Counterterrorism police said that they were continuing to interview a 28-year-old man accused of killing Ann Widdecombe.`\
+`Counterterrorism police said that they were continuing to interview a 28-year-old man accused of killing Ann Widdecombe, a prominent member of the right-wing Reform U.K. party.`\
 https://www.nytimes.com/2026/07/14/world/europe/ann-widdecombe-targeted-attack.html
 
 **India Condemns Deadly Iranian Strike on Commercial Ship**\
@@ -94,8 +106,8 @@ https://www.nytimes.com/2026/07/14/world/middleeast/israel-lebanon-peace-talks.h
 `In a booming fossil market, the T. rex had been dethroned by a stegosaurus. No longer.`\
 https://www.nytimes.com/2026/07/14/arts/design/t-rex-fossil-auction-sothebys.html
 
-**Is It ‘East Village’ or ‘the East Village’?**\
-`A missing article is stirring up New Yorkers’ feelings.`\
+**‘Welcome to West Village’? The ‘the’ Is Not Optional, Say Some New Yorkers.**\
+`Some newcomers in the city say they are meeting in Bronx, or living in East Village.`\
 https://www.nytimes.com/2026/07/14/style/nyc-neighborhoods-the-village.html
 
 **White House Cheers Inflation Data While Iran War Sparks New Price Surge**\
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-milita
 **Live Updates: Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\
 https://www.nytimes.com/live/2026/07/14/business/cpi-inflation-warsh-fed
-
-**Inflation Slowed During Pause in War With Iran**\
-`The Consumer Price Index fell to a 3.5 percent annual increase in June, and prices marked their biggest drop from a month earlier since 2020.`\
-https://www.nytimes.com/2026/07/14/business/economy/inflation-cpi.html
-
-**In the Public Interest**\
-`We look at the Trump administration’s attempts to pressure news organizations.`\
-https://www.nytimes.com/2026/07/14/briefing/in-the-public-interest.html
-
-**El plan de Israel para cambiar de régimen en Irán**\
-`Esta es la insólita historia detrás de una operación fallida para instalar a Mahmud Ahmadineyad como el próximo líder de Irán.`\
-https://www.nytimes.com/es/2026/07/14/espanol/mundo/plan-israel-cambio-regimen-iran.html
 
