@@ -1,3 +1,11 @@
+**Así es como Putin hizo de Japón un centro de espionaje**\
+`Desde un rascacielos de Tokio, una unidad de inteligencia militar localiza el equipo de alta tecnología que Rusia necesita para librar la guerra.`\
+https://www.nytimes.com/es/2026/07/14/espanol/mundo/putin-espias-rusia-japon.html
+
+**Ukraine’s War Is in the Sky Now**\
+`The ground war in Ukraine has stalemated and the crucial fight has shifted to the skies — missiles and interceptors.`\
+https://www.nytimes.com/2026/07/14/opinion/ukraine-russia-patriots-drones.html
+
 **Protests Break Out After ICE Agent Kills Person in Maine**\
 `People took to the streets to protest after a federal agent fatally shot a person during a vehicle stop in Biddeford, Maine, on Monday.`\
 https://www.nytimes.com/video/us/100000011027748/maine-ice-fatal-shooting.html

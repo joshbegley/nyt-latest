@@ -1,3 +1,11 @@
+**Así es como Putin hizo de Japón un centro de espionaje**\
+`Desde un rascacielos de Tokio, una unidad de inteligencia militar localiza el equipo de alta tecnología que Rusia necesita para librar la guerra.`\
+https://www.nytimes.com/es/2026/07/14/espanol/mundo/putin-espias-rusia-japon.html
+
+**Ukraine’s War Is in the Sky Now**\
+`The ground war in Ukraine has stalemated and the crucial fight has shifted to the skies — missiles and interceptors.`\
+https://www.nytimes.com/2026/07/14/opinion/ukraine-russia-patriots-drones.html
+
 **Protests Break Out After ICE Agent Kills Person in Maine**\
 `People took to the streets to protest after a federal agent fatally shot a person during a vehicle stop in Biddeford, Maine, on Monday.`\
 https://www.nytimes.com/video/us/100000011027748/maine-ice-fatal-shooting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/13/style/wimbledon-fashion-outfits-2026-celebrit
 **Read the Judge’s Ruling on Trump’s IRS Lawsuit**\
 `A federal judge said in a scathing ruling that President Trump’s lawsuit against the Internal Revenue Service was an improper exercise in self-dealing.`\
 https://www.nytimes.com/interactive/2026/07/13/us/judge-ruling-trump-irs-lawsuit.html
-
-**La operación secreta de Israel para reclutar a un expresidente iraní**\
-`El esfuerzo de varios años para convertir a Mahmud Ahmadineyad en un agente de inteligencia culminó en una dramática operación para llevarlo a un refugio israelí en los primeros días de la guerra. Pero el plan se vino abajo.`\
-https://www.nytimes.com/es/2026/07/13/espanol/estados-unidos/israel-iran-cambio-regimen.html
-
-**U.K. to Change Law to Allow Deportation of ‘Grooming Gang’ Leader**\
-`The British government on Monday laid out steps enabling the deportation to Pakistan of Shabir Ahmed, the leader of a gang that raped dozens of girls in Northern England.`\
-https://www.nytimes.com/2026/07/13/world/europe/uk-deportation-law-change-grooming-gang.html
 
