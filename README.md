@@ -1,3 +1,11 @@
+**Trump’s Plan to Charge a Toll in the Strait of Hormuz: What to Know**\
+`President Trump announced a 20 percent fee on cargo through the waterway, despite his own administration’s position that such fees violate international law.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/trump-iran-strait-hormuz-toll-oil.html
+
+**In Bangkok Bar Blaze, Signs of Fatal Lapses Repeated Across the World**\
+`After a fire killed 30 people, the scrutiny has turned to whether the venue used flammable foam on its ceilings and had blocked exits.`\
+https://www.nytimes.com/2026/07/14/world/asia/bangkok-bar-fire-flammable-foam.html
+
 **Why Supreme Court Justices Are Asking for More Security**\
 `Supreme Court justices are asking lawmakers on Capitol Hill to increase their 2027 budget, with most of the additional funding earmarked for security. Ann E. Marimow, a New York Times reporter, explains why the justices say these measures are necessary to protect them from rising threats.`\
 https://www.nytimes.com/video/us/politics/100000011017774/why-supreme-court-justices-are-asking-for-more-security.html
@@ -166,8 +174,8 @@ https://www.nytimes.com/video/well/move/100000010991871/this-91-year-old-is-hiki
 `Séneca nos señala que cuando dejamos que las ideas vayan y vengan a toda velocidad, agotamos nuestras mentes.`\
 https://www.nytimes.com/es/2026/07/14/espanol/opinion/atencion-distracciones-tiktok-solucion.html
 
-**Iran War Live Updates: Clash Over Strait Intensifies With Strikes and Trump Threats**\
-`President Trump ordered more attacks on Iran and announced a 20 percent fee on cargo through the Strait of Hormuz. Iran said it had attacked two oil tankers and fired at U.S. military sites, as the two sides slid back to open war.`\
+**Iran Live Updates: U.S. and Iran Reignite War Over Strait of Hormuz**\
+`The two countries slid back to open war over the waterway, as the U.S. planned to reinstate a blockade on Iranian ports on Tuesday. Iran said it had attacked two tankers and fired at U.S. military sites.`\
 https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz
 
 **Trump Orders Tolls and Blockade as Fighting With Iran Resumes**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/14/crosswords/spelling-bee-forum.html
 **Jon Stewart Mocks Mitch McConnell’s Recovery Photo**\
 `The “Daily Show” host called the image “totally believable evidence that Mitch McConnell is not only alive, but the happiest boy in the hospital.”`\
 https://www.nytimes.com/2026/07/14/arts/television/jon-stewart-mitch-mcconnell-recovery.html
-
-**La foca más famosa de Australia es un fenómeno viral que preocupa a los expertos**\
-`Neil, un elefante marino de más de 1000 kilos, visita dos veces al año la costa de Tasmania y se ha convertido en estrella de internet, aunque los especialistas piden mantener la distancia.`\
-https://www.nytimes.com/es/2026/07/14/espanol/mundo/foca-neil-australia.html
-
-**Ataque de bisonte en Yellowstone: un turista sale volando por los aires**\
-`Un hombre de 65 años fue hospitalizado con múltiples fracturas tras ser embestido por un toro bisonte que deambulaba por un campamento del Parque Nacional de Yellowstone visiblemente agitado.`\
-https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/ataque-bisonte-yellowstone.html
 
