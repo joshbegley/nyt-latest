@@ -1,3 +1,19 @@
+**Trump Administration Subpoenas Law Firms, Escalating Pressure Campaign**\
+`The uneasy truce between the administration and the law firms it cut deals with last year has erupted into a pitched legal battle behind closed doors.`\
+https://www.nytimes.com/2026/07/14/us/politics/trump-subpoenas-law-firms-epshteyn-aba.html
+
+**‘Sully,’ ‘Miracle on the Hudson’ Pilot, Announces Alzheimer’s Diagnosis**\
+`Captain Sullenberger said the disease was in its early stages, and that he was “in the beginning of this long journey.”`\
+https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
+
+**138 Picture Prompts to Inspire Student Writing**\
+`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing`\
+https://www.nytimes.com/2026/07/14/learning/138-picture-prompts-to-inspire-student-writing.html
+
+**N.Y.C. Council Speaker Backs Ban on Horse-Drawn Carriages**\
+`Julie Menin said she would support a bill, formerly known as Ryder’s Law, to ban the rides in Central Park after a tourist was killed in an accident last month.`\
+https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
+
 **Public Health Groups Sue F.D.A. Over Flavored E-Cigarette Policy**\
 `Executives unhappy with the agency donated and lobbied President Trump directly. Major companies have already begun to prepare and ship new products.`\
 https://www.nytimes.com/2026/07/14/health/flavored-vapes-fda.html
@@ -98,7 +114,7 @@ https://www.nytimes.com/2026/07/14/arts/music/amplifier-newsletter-world-cup-ros
 `Instead of one Whoopi Goldberg, audiences now experience five actresses: Kerry Washington, Kara Young, Dominique Fishback, Danielle Pinnock and Kecia Lewis.`\
 https://www.nytimes.com/2026/07/14/theater/the-whoopi-monologues-review-kerry-washington-kara-young.html
 
-**Trump Says He’ll Discuss Elections and Voting Machines in Speech on Thursday**\
+**Trump Says His Thursday Speech Will Focus on Election Security and Voting Machines**\
 `The planned prime-time address comes as the president has intensified his focus on election security in advance of the midterms and repeated false claims about the integrity of voting systems.`\
 https://www.nytimes.com/2026/07/14/us/politics/trump-speech-voting-elections.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/14/business/media/warren-buffett-gates-foundatio
 **Some Positive (and Negative) Thinking About Therapy**\
 `Readers respond to “Not Everyone Should Be in Therapy,” an Opinion guest essay by Harvey Lieberman.`\
 https://www.nytimes.com/2026/07/14/opinion/therapy-mental-health.html
-
-**Así funcionaría el plan de Trump de cobrar peaje en el estrecho de Ormuz**\
-`El presidente Trump anunció una tasa del 20 por ciento sobre la mercancía que pase por esa vía navegable, a pesar de que su propio gobierno considera que esos peajes violan el derecho internacional.`\
-https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-peaje-estrecho-ormuz.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011030000/14vid-Coney-Barrett-AI.html
-
-**Ann Widdecombe Was Killed in ‘Targeted Attack,’ UK Police Say**\
-`Counterterrorism police said that they were continuing to interview a 28-year-old man accused of killing Ann Widdecombe, a prominent member of the right-wing Reform U.K. party.`\
-https://www.nytimes.com/2026/07/14/world/europe/ann-widdecombe-targeted-attack.html
-
-**India Condemns Deadly Iranian Strike on Commercial Ship**\
-`India issued a diplomatic protest after an Indian sailor was killed and dozens more were injured in an Iranian attack on a tanker in the Strait of Hormuz.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/iran-killed-indian-sailors.html
 
