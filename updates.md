@@ -1,3 +1,7 @@
+**India Condemns Deadly Iranian Strike on Commercial Ship**\
+`India issued a diplomatic protest after an Indian sailor was killed and dozens more were injured in an Iranian attack on a tanker in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/iran-killed-indian-sailors.html
+
 **Inky Mark, Former Canada MP, Arrested After Police Find 439 Guns and Cannon in His Home**\
 `Inky Mark, a former conservative lawmaker in Manitoba, was charged with offenses including firearm trafficking.`\
 https://www.nytimes.com/2026/07/14/world/canada/inky-mark-arrested-guns-manitoba.html

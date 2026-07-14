@@ -1,3 +1,7 @@
+**India Condemns Deadly Iranian Strike on Commercial Ship**\
+`India issued a diplomatic protest after an Indian sailor was killed and dozens more were injured in an Iranian attack on a tanker in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/iran-killed-indian-sailors.html
+
 **Inky Mark, Former Canada MP, Arrested After Police Find 439 Guns and Cannon in His Home**\
 `Inky Mark, a former conservative lawmaker in Manitoba, was charged with offenses including firearm trafficking.`\
 https://www.nytimes.com/2026/07/14/world/canada/inky-mark-arrested-guns-manitoba.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/07/14/opinion/project-2026-2028-democratic-platform
 **What Americans Need to Understand About China**\
 `Kevin Rudd, a former prime minister of Australia, went back to school to try to understand how the Chinese president thinks.`\
 https://www.nytimes.com/2026/07/14/opinion/ezra-klein-podcast-kevin-rudd.html
-
-**The World Cup, in Photos**\
-`See some of the best images from the world’s most popular sporting event.`\
-https://www.nytimes.com/2026/07/14/sports/soccer/world-cup-photos.html
 
