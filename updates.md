@@ -1,3 +1,19 @@
+**Lessons in Rich Guy Style from Sun Valley**\
+`What went down at the equivalent of Fashion Week for tech bros. Plus, Jay-Z’s still got it.`\
+https://www.nytimes.com/2026/07/14/style/sun-valley-conference-style.html
+
+**Antonio Rattín, Whose World Cup Expulsion Led to Penalty-Card System, Dies at 89**\
+`The ejection of the Argentine soccer star during a 1966 match against England led to the introduction of yellow and red cards.`\
+https://www.nytimes.com/2026/07/14/world/americas/antonio-rattin-dead.html
+
+**E. Jean Carroll Receives $5.6 Million Payment From Trump in Civil Case**\
+`A federal jury found President Trump liable for sexually assaulting and defaming Ms. Carroll. He exhausted his appeals last month, prompting a judge to order that the money be paid.`\
+https://www.nytimes.com/2026/07/14/nyregion/carroll-trump-settlement-million.html
+
+**Warren Buffet Declines to Donate to Gates Foundation Amid Epstein Revelations**\
+`The decision by the Berkshire Hathaway founder comes in the wake of Epstein revelations that have troubled the Gates Foundation.`\
+https://www.nytimes.com/2026/07/14/business/media/warren-buffett-gates-foundation-gift.html
+
 **Jeffries Says He Will Oppose Proposal to Cut Off U.S. Aid to Israel**\
 `The House Democratic leader said he would not seek to persuade other Democrats to vote against the measure, which has divided the party amid a deep rift over support for Israel.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/jeffries-israel-aid.html
