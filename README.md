@@ -11,8 +11,8 @@ https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-represalias-e
 https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
 
 **Iran’s Former Leader Denies Times Report**\
-`The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad, as Iran’s leader after the war.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/office-of-irans-former-leader-denies-a-new-york-times-report-that-he-was-an-israeli-asset.html
+`The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad as Iran’s leader after the war.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/mahmoud-ahmadinejad-iran-israeli-asset.html
 
 **Lindsey Graham's Death Revives Debate Over Aging Congress**\
 `The sudden death of Senator Lindsey Graham has revived criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\

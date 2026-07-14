@@ -1,3 +1,19 @@
+**Takeaways From Rare Congressional Testimony by Two Supreme Court Justices**\
+`Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during a collegial hearing.`\
+https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
+
+**La campaña de represalias de Trump**\
+`La participación del actual fiscal general interino de EE. UU. será un punto clave en su audiencia de confirmación, que tendrá lugar el miércoles.`\
+https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-represalias-enemigos-blanche-fiscal.html
+
+**Texas Faces Potentially ‘Catastrophic’ Amounts of Rain**\
+`Intense storms overnight dropped heavy rain, and more is on the way. Forecasters warned about the increasing likelihood of flooding across the state.`\
+https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
+
+**Iran’s Former Leader Denies Times Report**\
+`The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad, as Iran’s leader after the war.`\
+https://www.nytimes.com/2026/07/14/world/middleeast/office-of-irans-former-leader-denies-a-new-york-times-report-that-he-was-an-israeli-asset.html
+
 **Lindsey Graham's Death Revives Debate Over Aging Congress**\
 `The sudden death of Senator Lindsey Graham has revived criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\
 https://www.nytimes.com/interactive/2026/07/14/us/politics/lindsey-graham-death-congress-age.html
@@ -173,10 +189,6 @@ https://www.nytimes.com/2026/07/14/world/middleeast/jeffries-israel-aid.html
 **Roger Worthington Is Suing Over a Heat Wave**\
 `Roger Worthington is helping to lead a $50 billion lawsuit against oil producers. This week he’ll face powerful critics in Congress.`\
 https://www.nytimes.com/2026/07/14/climate/roger-worthington-portland-oil-industry-lawyer.html
-
-**Watch Live: Supreme Court Asks Congress for More Security Funds**\
-`Justices Amy Coney Barrett and Elena Kagan testify about the Supreme Court’s over $200 million request for more security.`\
-https://www.nytimes.com/video/us/politics/100000011028276/watch-live-supreme-court-asks-congress-for-more-security-funds.html
 
 **Justices Tell Congress Supreme Court Needs Millions More for Security**\
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, told lawmakers about rising threats to themselves and their families during a friendly hearing.`\
