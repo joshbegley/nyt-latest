@@ -138,8 +138,8 @@ https://www.nytimes.com/2026/07/14/pageoneplus/corrections-july-14-2026.html
 `Elena Kagan and Amy Coney Barrett, the first justices to appear before lawmakers since 2019, are requesting millions of dollars to address security concerns amid rising threats.`\
 https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-testimony-security.html
 
-**Blanche Was a Driving Force in Retribution Campaign, Emails Show**\
-`The cooperation of Todd Blanche in President Trump’s retribution against enemies will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
+**‘I Am Frustrated’: Emails Show Blanche’s Role in Trump’s Retribution Campaign**\
+`The cooperation of Todd Blanche will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
 https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html
 
 **In ‘The Westies,’ Chris Brancato Expands His ‘Scumbag Universe’ (Again)**\
@@ -189,8 +189,4 @@ https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html
 **I Have Varicose Veins. Should I Worry?**\
 `They can ache, itch and sometimes need surgery. We asked experts why they happen and what helps.`\
 https://www.nytimes.com/2026/07/14/well/varicose-veins.html
-
-**The Democratic Establishment Had This Coming**\
-`The Democratic Party needs shaking up.`\
-https://www.nytimes.com/2026/07/14/opinion/democrats-platner-midterms.html
 
