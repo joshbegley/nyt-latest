@@ -1,3 +1,7 @@
+**Can Democrats Win Rural Voters Turning Away From Trump? It’s a Tough Sell.**\
+`House candidates like Beth Macy, author of “Dopesick,” have crafted messages based on lifetimes in rural regions. But messages need an audience, and many minds are closed to the party.`\
+https://www.nytimes.com/2026/07/14/us/politics/rural-democrats-midterms.html
+
 **Researchers Claim to Have Solved the Perplexing ‘Reverse Sprinkler’ Problem That Stumped Feynman**\
 `For more than a century, physicists debated which way a submerged sprinkler sucking in water would spin. Careful experiments provide an answer.`\
 https://www.nytimes.com/2026/07/14/science/reverse-sprinkler-physics-problem.html

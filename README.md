@@ -112,7 +112,7 @@ https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-testimony-
 
 **Blanche Was a Driving Force in Retribution Campaign, Emails Show**\
 `The cooperation of Todd Blanche in President Trump’s retribution against enemies will be a flashpoint in his confirmation hearing to be attorney general on Wednesday.`\
-https://www.nytimes.com/2026/07/14/us/politics/blanche-was-a-driving-force-in-retribution-campaign-emails-show.html
+https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-trump-enemies-emails.html
 
 **In ‘The Westies,’ Chris Brancato Expands His ‘Scumbag Universe’ (Again)**\
 `For his new series, the co-creator of “Narcos” and “Godfather of Harlem” turns his focus to a violent gang of Irish New Yorkers in the early 1980s.`\
