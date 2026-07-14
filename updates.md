@@ -1,7 +1,3 @@
-**Tension Emerges Among Democratic Socialists Over 2028 Endorsement**\
-`A meeting to decide on a plan to back a presidential candidate, most likely Representative Alexandria Ocasio-Cortez, turned acrimonious, and a proposal to poll members was rejected.`\
-https://www.nytimes.com/2026/07/13/nyregion/dsa-endorsement-aoc-new-york.html
-
 **Democratic Senate Candidates in Maine Denounce Deadly ICE Shooting**\
 `The killing of a man in Biddeford quickly became an issue in the Senate race, with Democrats aiming to tie Senator Susan Collins to President Trump’s immigration crackdown.`\
 https://www.nytimes.com/2026/07/13/us/politics/maine-ice-shooting-senate-graham-platner.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/07/13/business/federal-reserve-inflation-data-rates
 **D.O.J. Turns Over Evidence in Minnesota D.H.S. Shootings**\
 `Investigators had for months refused to share information with their state counterparts about three shootings involving federal agents.`\
 https://www.nytimes.com/2026/07/13/us/minnesota-ice-shootings-evidence-pretti-renee-good.html
+
+**A Sweet Surprise: Scientists Find Sugar Deep in Our Galaxy**\
+`It’s the first time a sugar molecule has been detected in interstellar space. The discovery provides tantalizing new clues into how life may have arisen on Earth.`\
+https://www.nytimes.com/2026/07/13/science/space/sugar-milky-way.html
 
