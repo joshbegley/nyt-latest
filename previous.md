@@ -1,3 +1,11 @@
+**Trump ordena un bloqueo y el cobro de peajes en el estrecho de Ormuz**\
+`El presidente de EE. UU. ha notificado al Congreso que el enfrentamiento con Irán se ha reanudado y ha anunciado unas tasas de transporte marítimo que antes su gobierno había considerado ilegales.`\
+https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-guerra-estrecho-ormuz.html
+
+**The Latest in the Uncle Nearest Whiskey Saga: Federal Fraud Investigations**\
+`One of the few Black-owned operations in the spirits industry, the Tennessee distillery had grown rapidly before unraveling in recent years.`\
+https://www.nytimes.com/2026/07/14/dining/drinks/uncle-nearest-whiskey-federal-fraud-investigations.html
+
 **Justices Say Supreme Court Needs More Security**\
 `Justices Elena Kagan and Amy Coney Barrett told lawmakers during a hearing about threats against themselves and their families.`\
 https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.
 **Chai Discovery, an A.I. Drug Start-Up, Raises $400 Million**\
 `The fund-raising values the company at $3.8 billion and underscores investor interest in using artificial intelligence to tackle problems like drug discovery.`\
 https://www.nytimes.com/2026/07/14/business/dealbook/chai-discovery-ai-drug-development.html
-
-**Big Banks Smash Earnings Records, but ‘Tectonic’ Risks Loom**\
-`The quarterly results reflect the dichotomy between geopolitical uncertainty and the stable American economy.`\
-https://www.nytimes.com/2026/07/14/business/jpmorgan-goldman-bofa-wells-fargo-bank-earnings.html
-
-**Bloomberg Loses Landmark Libel Case in Singapore**\
-`A judge ruled in favor of two Singaporean ministers in a closely watched defamation trial seen as a significant test of the country’s libel laws and their implications for press freedom.`\
-https://www.nytimes.com/2026/07/14/world/asia/singapore-bloomberg-defamation.html
 
 **Live Updates: Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\

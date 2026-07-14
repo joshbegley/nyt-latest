@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011030433/14vid-Trump-embed-99470.html
+
 **Trump ordena un bloqueo y el cobro de peajes en el estrecho de Ormuz**\
 `El presidente de EE. UU. ha notificado al Congreso que el enfrentamiento con Irán se ha reanudado y ha anunciado unas tasas de transporte marítimo que antes su gobierno había considerado ilegales.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-guerra-estrecho-ormuz.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/14/business/economy/warsh-fed-cpi-inflation.html
 **Paramount vs. the States**\
 `An effort to block the media giant’s planned takeover of Warner Bros. Discovery underscores how states are taking a more active role in antitrust regulation.`\
 https://www.nytimes.com/2026/07/14/business/dealbook/paramount-states-antitrust.html
-
-**Chai Discovery, an A.I. Drug Start-Up, Raises $400 Million**\
-`The fund-raising values the company at $3.8 billion and underscores investor interest in using artificial intelligence to tackle problems like drug discovery.`\
-https://www.nytimes.com/2026/07/14/business/dealbook/chai-discovery-ai-drug-development.html
 
 **Live Updates: Fed Chairman Speaks in Congress After Data Showing Inflation Cooled**\
 `The Consumer Price Index slowed to an annual rate of 3.5 percent in June during a lull in fighting with Iran. Also on Tuesday, Kevin M. Warsh, the Fed’s chairman, testifies in Congress about the threat higher energy prices pose to the economy.`\

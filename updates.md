@@ -1,3 +1,11 @@
+**Trump ordena un bloqueo y el cobro de peajes en el estrecho de Ormuz**\
+`El presidente de EE. UU. ha notificado al Congreso que el enfrentamiento con Irán se ha reanudado y ha anunciado unas tasas de transporte marítimo que antes su gobierno había considerado ilegales.`\
+https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-iran-guerra-estrecho-ormuz.html
+
+**The Latest in the Uncle Nearest Whiskey Saga: Federal Fraud Investigations**\
+`One of the few Black-owned operations in the spirits industry, the Tennessee distillery had grown rapidly before unraveling in recent years.`\
+https://www.nytimes.com/2026/07/14/dining/drinks/uncle-nearest-whiskey-federal-fraud-investigations.html
+
 **Justices Say Supreme Court Needs More Security**\
 `Justices Elena Kagan and Amy Coney Barrett told lawmakers during a hearing about threats against themselves and their families.`\
 https://www.nytimes.com/video/us/politics/100000011030389/supreme-court-security.html
