@@ -1,3 +1,7 @@
+**The ‘Pay-to-Play’ Scheme That (Almost) Ruined Video Games**\
+`The backlash against EA Sports’ in-game “microtransactions.”`\
+https://www.nytimes.com/2026/07/14/podcasts/ea-sports-video-games-college-football.html
+
 **Three Things Democrats Have to Do if They Actually Want to Win**\
 `It is these issues that serve to reinforce the perception that Democrats are willing to sacrifice the interests of the working and middle classes.`\
 https://www.nytimes.com/2026/07/14/opinion/project-2026-2028-democratic-platform.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/mundo/putin-espias-rusia-japon.htm
 **The Ukraine-Russia War Reaches a New Phase**\
 `The ground war in Ukraine has stalemated and the crucial fight has shifted to the skies — missiles and interceptors.`\
 https://www.nytimes.com/2026/07/14/opinion/ukraine-russia-patriots-drones.html
-
-**Protests Break Out After ICE Agent Kills Person in Maine**\
-`People took to the streets to protest after a federal agent fatally shot a person during a vehicle stop in Biddeford, Maine, on Monday.`\
-https://www.nytimes.com/video/us/100000011027748/maine-ice-fatal-shooting.html
 
