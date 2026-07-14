@@ -1,3 +1,15 @@
+**Trump cambia su plan en el estrecho de Ormuz y genera inquietud**\
+`Después de abandonar su propuesta de imponer tarifas a los barcos, el presidente plantea acuerdos de inversión con los países del Golfo a cambio de protección.`\
+https://www.nytimes.com/es/2026/07/14/espanol/negocios/trump-tarifas-estrecho-ormuz.html
+
+**Texas Faces Potentially ‘Catastrophic’ Amounts of Rain**\
+`Intense storms overnight dropped heavy rain, and more was falling Tuesday. Forecasters warned about the increasing likelihood of flooding across the state.`\
+https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
+
+**Man in Florida Fatally Hit by Truck While Fleeing ICE, Official Says**\
+`Details were unclear on Tuesday about what exactly happened at a gas station in St. Augustine before the man was killed.`\
+https://www.nytimes.com/2026/07/14/us/florida-ice-death-immigration.html
+
 **Security Cameras Capture Moments After Fatal ICE Shooting in Maine**\
 `Footage from nearby surveillance cameras shows federal agents pulling Joan Sebastian Guerrero from a white car after a shooting in Biddeford, Maine, on Monday.`\
 https://www.nytimes.com/video/us/100000011029964/ice-shooting-biddeford-maine-footage.html
