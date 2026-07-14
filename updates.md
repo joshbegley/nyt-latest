@@ -1,3 +1,11 @@
+**Public Health Groups Sue F.D.A. Over Flavored E-Cigarette Policy**\
+`Executives unhappy with the agency donated and lobbied President Trump directly. Major companies have already begun to prepare and ship new products.`\
+https://www.nytimes.com/2026/07/14/health/flavored-vapes-fda.html
+
+**Lindsey Graham’s Death Leaves Fate of Russia Sanctions Bill Uncertain**\
+`Supporters in both parties hope the measure to penalize Russia, championed by Senator Lindsey Graham, will gain momentum in his honor.`\
+https://www.nytimes.com/2026/07/14/us/politics/graham-death-russia-sanctions-trump.html
+
 **Muere Antonio Rattín, futbolista de Argentina**\
 `La expulsión del astro del fútbol argentino durante un partido contra Inglaterra en 1966 llevó a la introducción de las tarjetas amarillas y rojas.`\
 https://www.nytimes.com/es/2026/07/14/espanol/deportes/muere-antonio-rattin-argentina-mundial.html

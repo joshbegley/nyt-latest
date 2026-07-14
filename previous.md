@@ -1,3 +1,7 @@
+**Public Health Groups Sue F.D.A. Over Flavored E-Cigarette Policy**\
+`Executives unhappy with the agency donated and lobbied President Trump directly. Major companies have already begun to prepare and ship new products.`\
+https://www.nytimes.com/2026/07/14/health/flavored-vapes-fda.html
+
 **Muere Antonio Rattín, futbolista de Argentina**\
 `La expulsión del astro del fútbol argentino durante un partido contra Inglaterra en 1966 llevó a la introducción de las tarjetas amarillas y rojas.`\
 https://www.nytimes.com/es/2026/07/14/espanol/deportes/muere-antonio-rattin-argentina-mundial.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/video/style/100000011017153/culottes-are-so-back.html
 `The president’s proposal to impose a fee on shipping in the Strait of Hormuz threatened to increase global energy prices.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/trump-hormuz-shipping-fee-dropped.html
 
-**Graham’s Death Leaves Fate of Russia Sanctions Bill Uncertain**\
+**Lindsey Graham’s Death Leaves Fate of Russia Sanctions Bill Uncertain**\
 `Supporters in both parties hope the measure to penalize Russia, championed by Senator Lindsey Graham, will gain momentum in his honor.`\
 https://www.nytimes.com/2026/07/14/us/politics/graham-death-russia-sanctions-trump.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/world/europe/ann-widdecombe-targeted-attack.h
 **India Condemns Deadly Iranian Strike on Commercial Ship**\
 `India issued a diplomatic protest after an Indian sailor was killed and dozens more were injured in an Iranian attack on a tanker in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/iran-killed-indian-sailors.html
-
-**Inky Mark, Former Canada MP, Arrested After Police Find 439 Guns and Cannon in His Home**\
-`Inky Mark, a former conservative lawmaker in Manitoba, was charged with offenses including firearm trafficking.`\
-https://www.nytimes.com/2026/07/14/world/canada/inky-mark-arrested-guns-manitoba.html
 
