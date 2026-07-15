@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Some Delight to Your Day**\
+`Odysseus’ social network, performative boredom and decorated envelopes.`\
+https://www.nytimes.com/2026/07/15/briefing/15-the-good-list-odyssey-elizabeth-gilbert.html
+
 **Court Filings Describe Ongoing Contact Between ICE and Iran on Deportations**\
 `In a sworn declaration, a lawyer says an Iranian official reported receiving regular dossiers on Iranian detainees from Immigration and Customs Enforcement for months.`\
 https://www.nytimes.com/2026/07/15/us/politics/state-dept-ice-iran-deportation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploader-93567.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche-sot-epstein-files-vert.html
 

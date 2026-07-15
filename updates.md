@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Some Delight to Your Day**\
+`Odysseus’ social network, performative boredom and decorated envelopes.`\
+https://www.nytimes.com/2026/07/15/briefing/15-the-good-list-odyssey-elizabeth-gilbert.html
+
 **Treasury to Begin Minting $1 Gold Trump Coin Featuring President’s Face**\
 `Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
 https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
