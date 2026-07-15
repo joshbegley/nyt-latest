@@ -1,3 +1,15 @@
+**Federal Official Sets Deadlines to Overhaul Rikers Island**\
+`The official, Nicholas Deml, submitted the first in a series of reports to a federal judge, focusing on key areas of improvement, including safety, at the troubled facility.`\
+https://www.nytimes.com/2026/07/14/nyregion/rikers-deml-overhaul-plan.html
+
+**Videos Detail Moments Surrounding Fatal ICE Shooting in Biddeford, Maine**\
+`Footage obtained by The New York Times shows ICE agents in the moments before and after the killing of Joan Sebastian Guerrero. The circumstances of the shooting remain unclear.`\
+https://www.nytimes.com/2026/07/14/us/maine-ice-shooting-video-joan-sebastian-guerrero.html
+
+**Data Centers to Add Billions in Power Costs in 13 States**\
+`A power auction conducted by a giant grid operator is expected to add $6.3 billion in additional charges to consumers and businesses because of electricity needs of data centers.`\
+https://www.nytimes.com/2026/07/14/business/energy-environment/pjm-electricity-prices-data-centers.html
+
 **17 People Rescued in San Francisco Bay After Boat Fire Near Alcatraz**\
 `The pleasure boat sank in San Francisco Bay. Divers are searching for one person who is missing, the fire department said.`\
 https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/14/world/middleeast/mahmoud-ahmadinejad-iran-isr
 **Lindsey Graham's Death Renews Debate Over Aging Congress**\
 `The sudden death of Senator Lindsey Graham has renewed criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\
 https://www.nytimes.com/interactive/2026/07/14/us/politics/lindsey-graham-death-congress-age.html
-
-**Israel Strikes Police Post, Killing 7, Gaza Officials Say**\
-`Hamas says the strike hit Gaza’s civil security, while Israel says it targeted “terrorists.” Israel has stepped up attacks in Gaza recently as a cease-fire with Hamas has floundered.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/israel-strikes-gaza-police-force-hamas.html
-
-**Trump Flip-Flops on Strait of Hormuz, Creating New Risks for Global Economy**\
-`The president now wants Gulf nations to invest in the U.S. in exchange for safe passage. Shipping industry experts worry other nations will follow that lead.`\
-https://www.nytimes.com/2026/07/14/business/trump-strait-of-hormuz.html
-
-**Chipotle Is Bringing Its Mexican-Inspired Fast Food to Monterrey, Mexico**\
-`The California-based restaurant chain is opening its first location south of the U.S.-Mexico border this week, bringing its bowls and burritos to Monterrey.`\
-https://www.nytimes.com/2026/07/14/business/chipotle-open-mexico-monterrey.html
 
