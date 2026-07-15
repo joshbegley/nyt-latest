@@ -1,3 +1,7 @@
+**World Cup 2026: See How Spain Pulled Apart France’s Defense**\
+`View in 3-D how Spain cut through France’s defense to double its lead, securing a victory and a place in the World Cup final.`\
+https://www.nytimes.com/interactive/2026/07/14/sports/soccer/spain-france-world-cup-goal.html
+
 **Former Child Care Worker in Sydney Facing Over 300 Abuse Charges Is Identified**\
 `A Sydney court lifted the suppression order on identifying a man accused of abusing more than 100 children over 16 years.`\
 https://www.nytimes.com/2026/07/14/world/australia/sydney-child-abuse-daycare-worker.html
