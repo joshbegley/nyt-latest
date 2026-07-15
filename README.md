@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/14/us/maine-ice-shooting-video-joan-sebastian-gu
 `A power auction conducted by a giant grid operator is expected to add $6.3 billion in additional charges to consumers and businesses because of electricity needs of data centers.`\
 https://www.nytimes.com/2026/07/14/business/energy-environment/pjm-electricity-prices-data-centers.html
 
-**17 People Rescued in San Francisco Bay After Boat Fire Near Alcatraz**\
+**One Dead and Two Missing in San Francisco Bay After Boat Capsizes Near Alcatraz**\
 `Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
 https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
 

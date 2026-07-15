@@ -1,3 +1,7 @@
+**17 People Rescued in San Francisco Bay After Boat Fire Near Alcatraz**\
+`Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
+https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
+
 **Federal Official Sets Deadlines to Overhaul Rikers Island**\
 `The official, Nicholas Deml, submitted the first in a series of reports to a federal judge, focusing on key areas of improvement, including safety, at the troubled facility.`\
 https://www.nytimes.com/2026/07/14/nyregion/rikers-deml-overhaul-plan.html
