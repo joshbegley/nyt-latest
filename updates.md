@@ -1,3 +1,7 @@
+**China’s Chip Champion to Raise Billions in Race for A.I. Control**\
+`CXMT, a linchpin in China’s drive to develop homegrown artificial intelligence technology, is aiming to raise nearly $10 billion in a blockbuster public offering in Shanghai.`\
+https://www.nytimes.com/2026/07/15/business/china-chips-cxmt-ipo.html
+
 **La muerte de Joan Sebastian Guerrero en Maine desata nuevas preguntas sobre ICE**\
 `La muerte de Joan Sebastián Durán Guerrero, padre de familia y trabajador con permiso legal, ha profundizado el debate sobre el alcance y la violencia de la ofensiva migratoria.`\
 https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/colombiano-asesinado-ice-maine-migrante-legal.html
