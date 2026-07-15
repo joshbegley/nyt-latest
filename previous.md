@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-candidates
 `Mykhailo Fedorov announced he was leaving the ministry on Wednesday after conflicts with generals and military contractors over the role of innovative robot and drone weapons in war.`\
 https://www.nytimes.com/2026/07/15/world/europe/ukraine-minister-of-defense-mykhailo-fedorov-zelensky-war-russia.html
 
-**England Lost the World Cup. It Was Always Going to Lose.**\
+**England Lost in the World Cup. They Were Always Going to Lose.**\
 `The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
 https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
 

@@ -1,3 +1,7 @@
+**England Lost in the World Cup. They Were Always Going to Lose.**\
+`The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
+https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
+
 **Democrats Question Trump’s Top Intelligence Pick Over 2020 Elections**\
 `Jay Clayton, President Trump’s nominee to lead the nation’s intelligence community, was repeatedly questioned by Democrat senators about the 2020 election during his confirmation hearing.`\
 https://www.nytimes.com/video/us/politics/100000011032536/democrats-question-trumps-top-intelligence-pick-over-2020-elections.html

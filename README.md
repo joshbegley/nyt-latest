@@ -1,3 +1,11 @@
+**Iran’s Top Negotiator Signals Door to Diplomacy Is Still Open**\
+`Facing intense divisions within Iran, Gen. Mohammad Bagher Ghalibaf both struck a defiant tone and argued that diplomacy could defend Iran’s interests.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-ghalibaf-us-talks.html
+
+**Hegseth Plans to Screen All Troops, Even Women, for Low Testosterone**\
+`Pete Hegseth, as defense secretary, has sought to cultivate an image as a manosphere-friendly leader.`\
+https://www.nytimes.com/2026/07/15/us/politics/hegseth-troops-testosterone.html
+
 **Democrats Question Trump’s Top Intelligence Pick Over 2020 Elections**\
 `Jay Clayton, President Trump’s nominee to lead the nation’s intelligence community, was repeatedly questioned by Democrat senators about the 2020 election during his confirmation hearing.`\
 https://www.nytimes.com/video/us/politics/100000011032536/democrats-question-trumps-top-intelligence-pick-over-2020-elections.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.
 **Treasury to Begin Minting $1 Gold Trump Coin Featuring President’s Face**\
 `Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
 https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
-
-**U.S. Strikes Hit Greater Tunb Island in Strait of Hormuz**\
-`The U.S. military said on Wednesday it had attacked Iranian cruise missile storage and launch sites on Greater Tunb, one of several small islands in the Strait of Hormuz subject to a decades-old territorial dispute.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/us-iran-hormuz-greater-tunb-island.html
-
-**How charities fight crime**\
-`The final entry in our series on the opposite of violence.`\
-https://www.nytimes.com/2026/07/15/headway/newsletter-how-charities-fight-crime.html
 
