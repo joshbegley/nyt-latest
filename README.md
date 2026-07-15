@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-f
 `The plan faces a rocky path amid Republican divisions and would pave the way for votes months before the midterm elections to fund a war that polls show is deeply unpopular.`\
 https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
 
-**Trump Pressures ICE to Resume Traffic Stops After Agency Pulls Back**\
+**Trump Pressures ICE to Resume Traffic Stops After They Were Halted Over Fatal Shootings**\
 `Immigration and Customs Enforcement ordered its officers on Tuesday to halt most vehicle stops across the country after they shot two people over the past week.`\
 https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html
 
