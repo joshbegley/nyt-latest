@@ -1,3 +1,7 @@
+**We’re About to Find Out Whether Republican Senators Can Still Say No**\
+`Republicans should have the decency, patriotism and self-respect to vote against Mr. Blanche.`\
+https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-hearing.html
+
 **The Vague Clause That Helps Explain the U.S.-Iran Fight Over the Strait of Hormuz**\
 `The memorandum of understanding between the United States and Iran has done little to calm tension, in part because they disagree on what it actually means.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-hormuz-strait.html
