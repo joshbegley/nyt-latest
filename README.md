@@ -1,3 +1,7 @@
+**Wildfire Smoke Spreads Across the Northeast as Temperatures Spike**\
+`A heat dome is responsible for miserably high temperatures, and it’s also helping to push smoke from wildfires to the east.`\
+https://www.nytimes.com/2026/07/15/weather/heat-dome-wildfire-smoke-minnesota-canada-nyc.html
+
 **De líder revolucionario a colaborador de EE. UU.: el nuevo rol de Diosdado Cabello en Venezuela**\
 `La recompensa de 25 millones de dólares y una larga lista de presuntos delitos no ha impedido que el ministro, y otros funcionarios venezolanos, colaboren con el gobierno estadounidense que alguna vez los persiguió.`\
 https://www.nytimes.com/es/2026/07/15/espanol/america-latina/diosdado-cabello-venezuela-recompensa.html
@@ -94,13 +98,13 @@ https://www.nytimes.com/2026/07/15/theater/hadestown-theater-to-stream.html
 `A bouncer in England, where people are renowned for queuing up respectably, offers six tips on how best to move safely, if slowly, forward.`\
 https://www.nytimes.com/2026/07/15/travel/how-to-wait-in-line.html
 
-**Ukraine Pounds Russian Ships in Its Campaign to Cut Off Crimea**\
-`After striking roads and railways, Kyiv is now focusing on sea routes as it tries to disrupt fuel supplies and pressure Russia to end the war.`\
-https://www.nytimes.com/2026/07/15/world/europe/ukraine-russia-crimea-azov-sea.html
-
 **Octavia Spencer Believed in Herself Even When Hollywood Didn’t**\
 `It took years for her to be cast as “the main character,” but she considers that the industry’s loss. Her latest series is the action comedy “Ride or Die.”`\
 https://www.nytimes.com/2026/07/15/arts/television/octavia-spencer-ride-or-die.html
+
+**Ukraine Pounds Russian Ships in Its Campaign to Cut Off Crimea**\
+`After striking roads and railways, Kyiv is now focusing on sea routes as it tries to disrupt fuel supplies and pressure Russia to end the war.`\
+https://www.nytimes.com/2026/07/15/world/europe/ukraine-russia-crimea-azov-sea.html
 
 **Small Tribes Say They Lack the Clout to Secure Federal Recognition**\
 `The federal government can confer health care, education, housing and casino rights, but for small bands like many in the Pacific Northwest, recognition takes political muscle they don’t have.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/world/asia/china-seismologist-north-korea-nuc
 **House Passes Bill to Make Daylight Saving Time Permanent**\
 `The House voted on Tuesday to make daylight saving time permanent. The bill now faces an uncertain fate in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011031805/daylight-saving-time-permanent-bill-house.html
-
-**Iran War Live Updates: Fears of Return to Full-Scale Conflict As Strikes Intensify**\
-`President Trump told Fox News that American forces would keep attacking until Iran agreed to negotiate. Tehran responded to a fourth straight night of strikes by targeting American military sites in the region.`\
-https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz
 
