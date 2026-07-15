@@ -1,3 +1,11 @@
+**Democrats Question Trump’s Top Intelligence Pick Over 2020 Elections**\
+`Jay Clayton, President Trump’s nominee to lead the nation’s intelligence community, was repeatedly questioned by Democrat senators about the 2020 election during his confirmation hearing.`\
+https://www.nytimes.com/video/us/politics/100000011032536/democrats-question-trumps-top-intelligence-pick-over-2020-elections.html
+
+**PEN America Defends Israel Article That Led to President’s Resignation**\
+`A co-chief executive of the free expression group said a recent article about Israeli and Jewish writers had been “critical” to pursue.`\
+https://www.nytimes.com/2026/07/15/arts/pen-america-israel-gaza-report.html
+
 **Here Are the Maine Democrats Running to Replace Graham Platner**\
 `To win, they’ll have to convince Democrats at a July 25 convention that they’re the best candidate to take on Senator Susan Collins, a Republican.`\
 https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-candidates.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/world/middleeast/us-iran-hormuz-greater-tunb-
 **How charities fight crime**\
 `The final entry in our series on the opposite of violence.`\
 https://www.nytimes.com/2026/07/15/headway/newsletter-how-charities-fight-crime.html
-
-**Indicted Tycoon Says $10 Billion Offer Did Not Spur U.S. to Drop Charges**\
-`Gautam Adani, India’s richest man, was accused of fraud and bribery in Federal District Court in Brooklyn. Then President Trump’s Justice Department moved to drop the charges.`\
-https://www.nytimes.com/2026/07/15/nyregion/gautam-adani-corruption-dropped.html
-
-**Is Dating a Colleague a Good Idea?**\
-`Readers weigh the pros and cons of dating a co-worker, in response to an Opinion guest essay. Also: Killings in Minnesota; safety on the road.`\
-https://www.nytimes.com/2026/07/15/opinion/dating-co-workers.html
 
