@@ -1,3 +1,7 @@
+**Phil Regan, Dodgers’ Closer Known as the Vulture, Dies at 89**\
+`He won 14 games in 1966 in relief, some of them following brilliant performances by the team’s starters, including Sandy Koufax, who bestowed the nickname.`\
+https://www.nytimes.com/2026/07/15/sports/baseball/phil-regan-dead.html
+
 **U.S. and Iran Continue Trading Fire**\
 `The United States and Iran exchanged strikes for a fifth consecutive day on Wednesday, a day after President Trump threatened to target Iran’s civilian infrastructure if the country refused to negotiate.`\
 https://www.nytimes.com/video/world/middleeast/100000011032002/us-iran-strikes-mideast-war.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/us/politics/mark-kelly-arizona-democrat-fundr
 **Is This the Fastest Opinion Shift in American Politics?**\
 `David Wallace-Wells and Robinson Meyer discuss whether the gathering coalition of Americans against data centers could be the next Occupy Wall Street movement or Tea Party.`\
 https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
-
-**We’re About to Find Out Whether Republican Senators Can Still Say No**\
-`Republicans should have the decency, patriotism and self-respect to vote against Mr. Blanche.`\
-https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-hearing.html
 
