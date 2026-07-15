@@ -1,3 +1,11 @@
+**Treasury to Begin Minting $1 Gold Trump Coin Featuring President’s Face**\
+`Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
+https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
+
+**Are We Still Supposed to Take This Conservative Legal Theory Seriously?**\
+`Has the court learned nothing?`\
+https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.html
+
 **Court Filings Describe Ongoing Contact Between ICE and Iran on Deportations**\
 `In a sworn declaration, a lawyer says an Iranian official reported receiving regular dossiers on Iranian detainees from Immigration and Customs Enforcement for months.`\
 https://www.nytimes.com/2026/07/15/us/politics/state-dept-ice-iran-deportation.html
