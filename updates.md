@@ -1,4 +1,8 @@
 **Rescue Effort Underway After Boat Capsizes Near Alcatraz**\
+`A three-deck pleasure boat carrying 20 people capsized near Alcatraz Island on Tuesday. At least one person died and three were missing, officials said.`\
+https://www.nytimes.com/video/us/100000011031757/alcatraz-san-francisco-pontoon-boat-fire-sink.html
+
+**Rescue Effort Underway After Boat Capsizes Near Alcatraz**\
 `A three-story pleasure boat carrying 19 people capsized near Alcatraz Island on Tuesday. At least one person died and two were missing, officials said.`\
 https://www.nytimes.com/video/us/100000011031757/alcatraz-san-francisco-pontoon-boat-fire-sink.html
 
