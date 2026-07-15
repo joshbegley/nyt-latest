@@ -1,3 +1,7 @@
+**Polls: What’s Driving Support for Senate Candidates in Battleground States?**\
+`A New York Times/Siena poll of battleground states showed a mix of voter motivations, with the strongest candidates proving more popular than their parties.`\
+https://www.nytimes.com/interactive/2026/07/14/polls/senate-elections-voters-polls.html
+
 **One Dead and Two Missing in San Francisco Bay After Boat Capsizes Near Alcatraz**\
 `Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
 https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html

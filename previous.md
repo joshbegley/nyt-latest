@@ -1,3 +1,7 @@
+**Polls: What’s Driving Support for Senate Candidates in Battleground States?**\
+`A New York Times/Siena poll of battleground states showed a mix of voter motivations, with the strongest candidates proving more popular than their parties.`\
+https://www.nytimes.com/interactive/2026/07/14/polls/senate-elections-voters-polls.html
+
 **Federal Official Sets Deadlines to Overhaul Rikers Island**\
 `The official, Nicholas Deml, submitted the first in a series of reports to a federal judge, focusing on key areas of improvement, including safety, at the troubled facility.`\
 https://www.nytimes.com/2026/07/14/nyregion/rikers-deml-overhaul-plan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
 **Iran’s Former Leader Denies Times Report**\
 `The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad as Iran’s leader after the war.`\
 https://www.nytimes.com/2026/07/14/world/middleeast/mahmoud-ahmadinejad-iran-israeli-asset.html
-
-**Lindsey Graham's Death Renews Debate Over Aging Congress**\
-`The sudden death of Senator Lindsey Graham has renewed criticism of an increasingly aging Congress and the norms that reward seniority and tenure.`\
-https://www.nytimes.com/interactive/2026/07/14/us/politics/lindsey-graham-death-congress-age.html
 
