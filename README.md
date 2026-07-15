@@ -1,3 +1,11 @@
+**France Is Set to Allow Assisted Dying**\
+`Lawmakers were expected to approve a bill that would allow doctors to help terminally ill patients to die. If the law passes, the country would join a small group of nations that permit the measure.`\
+https://www.nytimes.com/2026/07/15/world/europe/france-law-assisted-dying.html
+
+**My Recently Widowed Mother Has Become Seriously Unhygienic. Help!**\
+`After her father’s death, a reader noticed her mother reusing dirty dishes and failing to wash her hands. How will her mother fare once she moves back out?`\
+https://www.nytimes.com/2026/07/15/style/grieving-mourning-cleanliness-hygiene.html
+
 **Is IBM a Canary in the Tech Coal Mine?**\
 `The company tumbled sharply after previewing quarterly results that were disappointing. It’s not good news for software and tech consulting companies.`\
 https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.html
@@ -185,16 +193,4 @@ https://www.nytimes.com/video/t-magazine/100000011030434/live-from-the-10th-floo
 **Robert Wilson’s Watermill Center Without Robert Wilson**\
 `“When I’m no longer living, can this place exist?” Robert Wilson wondered in a film about his Long Island art incubator. This month, its annual festival will go on without him.`\
 https://www.nytimes.com/2026/07/15/arts/dance/robert-wilson-watermill-center.html
-
-**The Epicenter of Drug Deaths in America Is Shifting West**\
-`Nationally, overdose deaths are falling. But not in Arizona.`\
-https://www.nytimes.com/interactive/2026/07/15/upshot/arizona-drug-overdose-deaths.html
-
-**‘It’s Chaos’: What New York’s Suburbs Can Tell Us About the Mood of the Country**\
-`The midterms are looming. We asked people in New York City’s suburbs how they feel about the state of America.`\
-https://www.nytimes.com/2026/07/15/opinion/midterm-elections-politicians-trump-new-york.html
-
-**On ‘Caribenya,’ Lido Pimienta Found a Lifeline**\
-`On Lido Pimienta’s new album, “Caribenya,” the Colombian Canadian musician sought a warmer, more complex depiction of Caribbean culture. Creating it helped her rediscover the beauty of living.`\
-https://www.nytimes.com/2026/07/15/arts/music/lido-pimienta-new-album-caribenya.html
 
