@@ -1,3 +1,27 @@
+**For Argentina, a World Cup Semifinal Against England Isn’t Just Soccer**\
+`Wednesday’s contest for a spot in the final carries the weight of a 1986 contentious clash, a war over the Falklands and a national mythology built around Diego Maradona.`\
+https://www.nytimes.com/2026/07/15/world/americas/argentina-england-rivalry-world-cup.html
+
+**Quote of the Day: T. Rex is King Once Again on Booming Fossil Market**\
+`Quotation of the Day for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/15/pageoneplus/quote-of-the-day-t-rex-is-king-once-again-on-booming-fossil-market.html
+
+**Missing From Prince Harry’s UK Trip: A Reunion With Prince William**\
+`Harry is clearly repairing his relationship with King Charles III, but the rift with his brother remains unresolved.`\
+https://www.nytimes.com/2026/07/15/world/europe/prince-harry-uk-visit-william-king-charles.html
+
+**As Argentina Tries to Win the World Cup, the Rest of Latin America Cheers Against It**\
+`Rather than rally behind the tournament’s last Latin American team, other countries in the region are confronting Argentina’s fraught claims to its own identity.`\
+https://www.nytimes.com/2026/07/15/world/americas/argentina-world-cup-semifinals.html
+
+**Alzheimer’s Blood Tests Offer New Promise to Diagnose and Predict the Disease**\
+`New studies are shedding light on how the tests could eventually transform treatment.`\
+https://www.nytimes.com/2026/07/15/well/mind/alzheimers-disease-blood-tests-symptoms.html
+
+**Tech Investors and Longevity Influencers Back Neko Health’s Mega Round**\
+`The health tech start-up co-founded by Spotify’s Daniel Ek is worth billions more after a new $700 million funding round.`\
+https://www.nytimes.com/2026/07/15/business/dealbook/neko-health-ek-funding.html
+
 **World Cup 2026: See How Spain Pulled Apart France’s Defense**\
 `View in 3-D how Spain cut through France’s defense to double its lead, securing a victory and a place in the World Cup final.`\
 https://www.nytimes.com/interactive/2026/07/14/sports/soccer/spain-france-world-cup-goal.html

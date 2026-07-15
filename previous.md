@@ -1,3 +1,27 @@
+**For Argentina, a World Cup Semifinal Against England Isn’t Just Soccer**\
+`Wednesday’s contest for a spot in the final carries the weight of a 1986 contentious clash, a war over the Falklands and a national mythology built around Diego Maradona.`\
+https://www.nytimes.com/2026/07/15/world/americas/argentina-england-rivalry-world-cup.html
+
+**Quote of the Day: T. Rex is King Once Again on Booming Fossil Market**\
+`Quotation of the Day for Wednesday, July 15, 2026.`\
+https://www.nytimes.com/2026/07/15/pageoneplus/quote-of-the-day-t-rex-is-king-once-again-on-booming-fossil-market.html
+
+**Missing From Prince Harry’s UK Trip: A Reunion With Prince William**\
+`Harry is clearly repairing his relationship with King Charles III, but the rift with his brother remains unresolved.`\
+https://www.nytimes.com/2026/07/15/world/europe/prince-harry-uk-visit-william-king-charles.html
+
+**As Argentina Tries to Win the World Cup, the Rest of Latin America Cheers Against It**\
+`Rather than rally behind the tournament’s last Latin American team, other countries in the region are confronting Argentina’s fraught claims to its own identity.`\
+https://www.nytimes.com/2026/07/15/world/americas/argentina-world-cup-semifinals.html
+
+**Alzheimer’s Blood Tests Offer New Promise to Diagnose and Predict the Disease**\
+`New studies are shedding light on how the tests could eventually transform treatment.`\
+https://www.nytimes.com/2026/07/15/well/mind/alzheimers-disease-blood-tests-symptoms.html
+
+**Tech Investors and Longevity Influencers Back Neko Health’s Mega Round**\
+`The health tech start-up co-founded by Spotify’s Daniel Ek is worth billions more after a new $700 million funding round.`\
+https://www.nytimes.com/2026/07/15/business/dealbook/neko-health-ek-funding.html
+
 **World Cup 2026: See How Spain Pulled Apart France’s Defense**\
 `View in 3-D how Spain cut through France’s defense to double its lead, securing a victory and a place in the World Cup final.`\
 https://www.nytimes.com/interactive/2026/07/14/sports/soccer/spain-france-world-cup-goal.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/science/earth/100000011030114/t-rex-gus-auction-so
 **Gambling Figure Indicted in 3 Major Cases Is Expected to Plead Guilty**\
 `Prosecutors have tied Shane Hennen to rigged outcomes in high-stakes poker as well as in the N.B.A. and N.C.A.A.`\
 https://www.nytimes.com/2026/07/14/nyregion/shane-hennen-poker-nba-gambling-scandal.html
-
-**Gold Trader Who Helped Iran Dodge Sanctions Avoids Prison Sentence**\
-`Reza Zarrab’s cooperation exposed a financial pipeline to Iran’s regime, threatening to bring down powerful people in Turkey. A decade later, the case has been closed.`\
-https://www.nytimes.com/2026/07/14/nyregion/turkey-zarrab-halkbank-erdogan-iran.html
-
-**Top Tax Official to Leave Trump Administration**\
-`Ken Kies, who held two top jobs at the Treasury Department and the I.R.S., is leaving the government.`\
-https://www.nytimes.com/2026/07/14/us/politics/ken-kies-irs-departure.html
-
-**‘We Love Iraq,’ Trump Tells New Prime Minister in Oval Office Meeting**\
-`The meeting comes as President Trump’s administration has been ratcheting up pressure on Baghdad to diminish Iran’s influence in Iraq.`\
-https://www.nytimes.com/2026/07/14/us/politics/iraq-trump-oval-office-meeting.html
-
-**Six Dead in an Elevator After Fire in Central Brussels**\
-`After a fire broke out at the Oxy building in central Brussels on Tuesday morning, six bodies were found in an elevator.`\
-https://www.nytimes.com/2026/07/14/world/europe/six-dead-in-fire-central-brussels.html
-
-**An Elite N.Y.C. Public School Admitted 777 Students. Only 3 Were Black.**\
-`New York’s specialized high schools give disproportionately few seats to Black and Hispanic students, continuing a pattern that has drawn criticism.`\
-https://www.nytimes.com/2026/07/14/nyregion/nyc-specialized-schools-black-hispanic.html
-
-**Takeaways From Justices Kagan and Barrett’s Congressional Testimony on Supreme Court Security**\
-`Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during collegial hearings.`\
-https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
 

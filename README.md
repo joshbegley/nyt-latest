@@ -1,3 +1,11 @@
+**China’s Economy Grows at Slowest Pace in Years**\
+`Economic growth of 4.3 percent in the second quarter, versus the same period last year, reflected a broad slump outside of the country’s export-oriented manufacturing might.`\
+https://www.nytimes.com/2026/07/15/business/china-economy-gdp-growth.html
+
+**Trump recibió 2 millones de dólares de una empresa de Corea del Sur**\
+`El pago se reveló inicialmente en el formulario de divulgación financiera anual del presidente de EE. UU., publicado a finales de junio.`\
+https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/trump-millones-dolares-empresa-corea-sur.html
+
 **For Argentina, a World Cup Semifinal Against England Isn’t Just Soccer**\
 `Wednesday’s contest for a spot in the final carries the weight of a 1986 contentious clash, a war over the Falklands and a national mythology built around Diego Maradona.`\
 https://www.nytimes.com/2026/07/15/world/americas/argentina-england-rivalry-world-cup.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/negocios/mexico-chipotle-burritos-
 **Senate Democrats Block Defense Bill Over War in Iran**\
 `The vote reflected how the political debate over the conflict in the Middle East has sapped bipartisan support for a normally popular measure.`\
 https://www.nytimes.com/2026/07/14/us/politics/senate-democrats-defense-bill.html
-
-**T. Rex Skeleton Sells for Record-Breaking $50.1 Million**\
-`The remains of a 12-and-a-half-foot-tall Tyrannosaurus rex, known as Gus, were sold on Tuesday by Sotheby’s in New York. The sale makes Gus the most valuable prehistoric specimen ever sold on the commercial market.`\
-https://www.nytimes.com/video/science/earth/100000011030114/t-rex-gus-auction-sold.html
-
-**Gambling Figure Indicted in 3 Major Cases Is Expected to Plead Guilty**\
-`Prosecutors have tied Shane Hennen to rigged outcomes in high-stakes poker as well as in the N.B.A. and N.C.A.A.`\
-https://www.nytimes.com/2026/07/14/nyregion/shane-hennen-poker-nba-gambling-scandal.html
 
