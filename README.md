@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/07/14/us/maine-ice-shooting-video-joan-sebastian-gu
 https://www.nytimes.com/2026/07/14/business/energy-environment/pjm-electricity-prices-data-centers.html
 
 **17 People Rescued in San Francisco Bay After Boat Fire Near Alcatraz**\
-`The pleasure boat sank in San Francisco Bay. Divers are searching for one person who is missing, the fire department said.`\
+`Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
 https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
 
 **U.S. War Against Iran Enters a New Phase**\
