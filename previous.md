@@ -1,3 +1,7 @@
+**Argentina vs. Inglaterra: ¿por qué Latinoamérica apoya a los ingleses?**\
+`En lugar de apoyar al último equipo latinoamericano del torneo, otros países de la región se enfrentan a las controvertidas afirmaciones de Argentina sobre su propia identidad.`\
+https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterra-mundial-odio.html
+
 **He Thought He Had to Break Out of Brooklyn. Instead, He Celebrates It.**\
 `As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and leave the neighborhood. Was it a tragedy that changed his mind?`\
 https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-con
 **Tell Us Your Crossword Autocheck Hot Takes**\
 `We want to know your opinions about this New York Times Crossword feature for an upcoming article.`\
 https://www.nytimes.com/2026/07/15/crosswords/autocheck-hot-takes.html
-
-**Trump’s Latest Nominee for C.D.C. Director Will Face Senate Panel**\
-`Dr. Erica Schwartz supports vaccines and is seen as a mainstream choice to lead an agency that has been a target of Health Secretary Robert F. Kennedy Jr.’s efforts to change federal immunization policies.`\
-https://www.nytimes.com/2026/07/15/health/cdc-erica-schwartz.html
 

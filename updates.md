@@ -1,3 +1,7 @@
+**Argentina vs. Inglaterra: ¿por qué Latinoamérica apoya a los ingleses?**\
+`En lugar de apoyar al último equipo latinoamericano del torneo, otros países de la región se enfrentan a las controvertidas afirmaciones de Argentina sobre su propia identidad.`\
+https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterra-mundial-odio.html
+
 **He Thought He Had to Break Out of Brooklyn. Instead, He Celebrates It.**\
 `As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and leave the neighborhood. Was it a tragedy that changed his mind?`\
 https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
