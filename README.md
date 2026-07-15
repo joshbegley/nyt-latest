@@ -1,3 +1,15 @@
+**Trump Administration Fires U.S. Attorney Minutes After His Appointment**\
+`Federal judges had chosen the veteran Seattle prosecutor to fill the vacant seat. Now, a potential legal battle looms.`\
+https://www.nytimes.com/2026/07/15/us/trump-fires-prosecutor-roger-rogoff.html
+
+**House Republican in Key Swing Race Discloses a Drunk-Driving Arrest**\
+`Representative Mike Lawler of New York said in a televised interview that he was arrested on the morning of St. Patrick’s Day in 2012, after learning that his father was gravely ill.`\
+https://www.nytimes.com/2026/07/15/nyregion/lawler-dui-arrest.html
+
+**G.O.P. Appears to Boost Socialist’s Primary Campaign for Wisconsin Governor**\
+`Republicans appear to view Francesca Hong as their weakest opponent in a general election. They are spending $2.2 million in an apparent attempt to aid her primary campaign.`\
+https://www.nytimes.com/2026/07/15/us/politics/republicans-francesca-hong-wisconsin-governor.html
+
 **Parents of Teen Killed During Horse Carriage Ride Plead for a Ban**\
 `The death of Romanch Mahajan appeared to have swayed a majority of New York City Council members to vote to abolish the 167-year-old horse-carriage industry in two years.`\
 https://www.nytimes.com/2026/07/15/nyregion/horse-carriage-ban-central-park.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/15/arts/television/scott-bryce-dead.html
 **Senator Presses for Scrutiny of Blanche’s Role in Spiking Clemency Inquiry**\
 `During his confirmation hearing, the acting attorney general refused to discuss the termination of an investigation into a commutation issued by President Trump.`\
 https://www.nytimes.com/2026/07/15/us/politics/blumenthal-blanche-trump-clemency.html
-
-**How Worried Should You Be About Cyclospora?**\
-`We didn’t need an outbreak of a nightmare stomach bug. But here we are.`\
-https://www.nytimes.com/2026/07/15/opinion/cyclospora-stomach-bug-risk-lettuce.html
-
-**Las mujeres de la Marina de EE. UU. ven reducidas sus oportunidades**\
-`El secretario de Defensa, Pete Hegseth, ha retirado de las listas para ascensos a unos 40 oficiales, muchos de ellos mujeres o personas de color.`\
-https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/mujeres-ejercito-marina-diversidad.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html
 
