@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/07/15/science/meteorite-new-jersey.html
 `It is only the fifth new African monkey identified as a new species in the past 75 years.`\
 https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-out-its-orange-lips.html
 
-**High Temperatures and Air Pollution Are an Unhealthy Combination**\
+**Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
 `Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
 https://www.nytimes.com/article/heat-air-pollution-climate.html
 
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
 `Megha Mishra learned a scientific fact that could have helped her childhood pet, while Samaira Rasul reflected on her classroom experiences with boys and reading.`\
 https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-fish-the-winners-of-week-4-of-our-summer-reading-contest.html
 
-**Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
-`Senator John Cornyn of Texas said he remained undecided about how he would vote after questioning Mr. Blanche. But another closely watched Republican, Senator Thom Tillis, said Mr. Blanche did “a great job” in his testimony.`\
+**Live Updates: Blanche’s Nomination for Attorney General Faces Hurdle After Rocky Hearing**\
+`A key Republican, Senator John Cornyn of Texas, said he was still undecided about how he would vote after questioning Mr. Blanche. One G.O.P. vote against him could sink the nomination.`\
 https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
 

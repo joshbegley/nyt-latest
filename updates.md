@@ -1,3 +1,11 @@
+**Kevin O’Leary Is Sued by Opponents He Claimed Were Foreign Agents**\
+`Kevin O’Leary, the celebrity investor, accused opponents of his proposed data center near the Great Salt Lake of being agents of China. Now they want compensation.`\
+https://www.nytimes.com/2026/07/15/us/kevin-oleary-data-center-lawsuit.html
+
+**Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
+`Roads were turning to rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who had been stranded.`\
+https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
+
 **Billboard in Iran’s Capital Depicts Trump in a Coffin**\
 `Threatening imagery in Enghelab Square is nothing new, but has rarely taken such lurid form.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-coffin.html
