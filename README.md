@@ -1,3 +1,27 @@
+**Oil Prices Tick Higher as U.S. Reinstates Iran Blockade**\
+`The United States reinstated its blockade on Iranian ports in the Strait of Hormuz and shipping slowed to a crawl amid the renewed warfare in the critical waterway.`\
+https://www.nytimes.com/2026/07/15/business/oil-prices-stocks-gas.html
+
+**From Trump’s Attorney to Attorney General: The Rise of Todd Blanche**\
+`A gamble to become President Trump’s personal lawyer has landed Todd Blanche the chance to be the nation’s top law enforcement official.`\
+https://www.nytimes.com/2026/07/15/podcasts/the-daily/trump-attorney-general-todd-blanche.html
+
+**Trump Flip-Flops on Strait of Hormuz Plan, and U.S. Cyclospora Outbreak Spreads**\
+`Plus, Chipotle is coming to Mexico.`\
+https://www.nytimes.com/2026/07/15/podcasts/the-headlines/trump-trait-of-hormuz-plan-us-cyclospora-outbreak.html
+
+**NYT Connections Answers for July 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/15/crosswords/connections-companion-1131.html
+
+**NYT Strands Hints for July 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/15/crosswords/strands-sidekick-865.html
+
+**Today’s Wordle Hints for July 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/15/crosswords/wordle-review-1853.html
+
 **Wildfire Smoke Spreads Across the Northeast as Temperatures Spike**\
 `A heat dome is responsible for miserably high temperatures, and it’s also helping to push smoke from wildfires to the east.`\
 https://www.nytimes.com/2026/07/15/weather/heat-dome-wildfire-smoke-minnesota-canada-nyc.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/15/style/chanel-ballet-flats-new-and-used-are-th
 **How Cities Across the United States Are Preventing Violent Crime**\
 `Across the United States, police departments have been augmented by new community partners that play a role in keeping the peace.`\
 https://www.nytimes.com/2026/07/15/headway/crime-violence-prevention-police.html
-
-**Should Epstein’s Friends Be Punished? An Elite Harvard Club Is Torn.**\
-`At Harvard, students, alumni and professors debate whether a storied campus group should cut ties with one of Jeffrey Epstein’s closest associates, and whether Harvard itself should do the same.`\
-https://www.nytimes.com/2026/07/15/us/epstein-andrew-farkas-hasty-pudding-harvard.html
-
-**Michelangelo’s Forgotten Renaissance Masterpiece**\
-`Tired of the David? A trip across Florence to see the small Santo Spirito Crucifix, a tender vision in old wood, is one of the best decisions you could make in your art-journeying life.`\
-https://www.nytimes.com/2026/07/15/arts/design/michelangelos-forgotten-renaissance-masterpiece.html
-
-**From Twitter to X: 20 Years of Memes, Movements and Hot Takes**\
-`The first tweets from the public appeared on July 15, 2006, several months after a soft launch. It was rebranded as X after being acquired by Elon Musk.`\
-https://www.nytimes.com/2026/07/15/technology/twitter-x-20-years.html
-
-**How Is Your America Doing?**\
-`The midterms are looming. We asked people in New York City’s suburbs how they feel about the state of America.`\
-https://www.nytimes.com/video/opinion/100000011004862/how-is-your-america-doing.html
-
-**U.S. Presses China to Free American Seismologist Accused of Spying**\
-`President Trump has urged Xi Jinping to release the scientist, Youlin Chen, the man’s family says. Dr. Chen studied the detection of North Korean nuclear tests.`\
-https://www.nytimes.com/2026/07/15/world/asia/china-seismologist-north-korea-nuclear.html
-
-**House Passes Bill to Make Daylight Saving Time Permanent**\
-`The House voted on Tuesday to make daylight saving time permanent. The bill now faces an uncertain fate in the Senate.`\
-https://www.nytimes.com/video/us/politics/100000011031805/daylight-saving-time-permanent-bill-house.html
 
