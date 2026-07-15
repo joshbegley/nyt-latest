@@ -1,3 +1,7 @@
+**Indicted Tycoon Says $10 Billion Offer Did Not Spur U.S. to Drop Charges**\
+`Gautam Adani, India’s richest man, was accused of fraud and bribery in Federal District Court in Brooklyn. Then President Trump’s Justice Department moved to drop the charges.`\
+https://www.nytimes.com/2026/07/15/nyregion/gautam-adani-corruption-dropped.html
+
 **Is Dating a Colleague a Good Idea?**\
 `Readers weigh the pros and cons of dating a co-worker, in response to an Opinion guest essay. Also: Killings in Minnesota; safety on the road.`\
 https://www.nytimes.com/2026/07/15/opinion/dating-co-workers.html
@@ -63,7 +67,7 @@ https://www.nytimes.com/2026/07/15/briefing/today-in-short.html
 https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterra-mundial-odio.html
 
 **He Thought He Had to Break Out of Brooklyn. Instead, He Celebrates It.**\
-`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and leave the neighborhood. Was it a tragedy that changed his mind?`\
+`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and leave the neighborhood. A tragedy changed his mind.`\
 https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
 
 **Traffic Deaths Spike After Deadly Mass Shootings, Study Suggests**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/business/oil-prices-stocks-gas.html
 **From Trump’s Attorney to Attorney General: The Rise of Todd Blanche**\
 `A gamble to become President Trump’s personal lawyer has landed Todd Blanche the chance to be the nation’s top law enforcement official.`\
 https://www.nytimes.com/2026/07/15/podcasts/the-daily/trump-attorney-general-todd-blanche.html
-
-**Trump Flip-Flops on Strait of Hormuz Plan, and U.S. Cyclospora Outbreak Spreads**\
-`Plus, Chipotle is coming to Mexico.`\
-https://www.nytimes.com/2026/07/15/podcasts/the-headlines/trump-trait-of-hormuz-plan-us-cyclospora-outbreak.html
 
