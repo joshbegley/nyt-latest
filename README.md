@@ -1,3 +1,11 @@
+**NextEra and Dominion File to Form a Huge Power Company**\
+`They asked regulators in three states and at a federal agency to approve a deal that would create a combined company with 10 million customers across the Southeast.`\
+https://www.nytimes.com/2026/07/15/business/nextera-dominion-regulators-filing.html
+
+**Suspect in Utah Stabbing Wanted to Kill Muslims, Court Filing Says**\
+`A Muslim man who works at a mall near Salt Lake City is hospitalized with multiple wounds. Charges have not yet been filed against the suspect, who was arrested.`\
+https://www.nytimes.com/2026/07/15/us/utah-mall-stabbing-muslim.html
+
 **For England, the World Cup Final Remains Elusive**\
 `The nation’s years of pain continue.`\
 https://www.nytimes.com/2026/07/15/world/europe/england-world-cup-loss-fans.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-
 **Las infecciones por ‘Cyclospora’ aumentan. Su origen sigue sin saberse**\
 `El parásito, que ha enfermado a miles de personas en todo EE. UU., es notoriamente difícil de rastrear. Los recortes de fondos no han facilitado la tarea.`\
 https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
-
-**Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
-`Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who were stranded.`\
-https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
-
-**New Jersey Couple Aids Meteorite Discovery After it Crashes Through Their Roof**\
-`A New Jersey couple helped scientists uncover the makeup of an unusual asteroid after it fell into their bedroom.`\
-https://www.nytimes.com/2026/07/15/science/meteorite-new-jersey.html
 
