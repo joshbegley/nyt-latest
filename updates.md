@@ -1,3 +1,15 @@
+**Guy Scott, Who Caused a Stir as White Leader of Zambia, Dies at 82**\
+`Two decades after the fall of apartheid in South Africa, he served briefly as Africa’s only white president.`\
+https://www.nytimes.com/2026/07/15/world/africa/guy-scott-dead.html
+
+**Is Grunge ... Back?**\
+`The grunge track “Freakin’ Out” by Dexter and the Moonrocks has been quietly climbing the charts and racking up millions of streams. Our music critic Jon Caramanica breaks down how the song, with its raw vocals and instrumentation, calls back to ’90s and 2000s radio rock.`\
+https://www.nytimes.com/video/podcasts/100000011033313/is-grunge-back.html
+
+**Will Iran Be a Forever War?**\
+`President Trump may have fallen into the same trap that his predecessors did in Iraq and Afghanistan.`\
+https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
+
 **A.I.M by Kyle Abraham Performs ‘White Space’ at the New York Times**\
 `The New York City-based dance company A.I.M by Kyle Abraham performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
 https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-performs-white-space-at-the-new-york-times.html

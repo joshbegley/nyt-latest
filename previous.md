@@ -1,3 +1,15 @@
+**Guy Scott, Who Caused a Stir as White Leader of Zambia, Dies at 82**\
+`Two decades after the fall of apartheid in South Africa, he served briefly as Africa’s only white president.`\
+https://www.nytimes.com/2026/07/15/world/africa/guy-scott-dead.html
+
+**Is Grunge ... Back?**\
+`The grunge track “Freakin’ Out” by Dexter and the Moonrocks has been quietly climbing the charts and racking up millions of streams. Our music critic Jon Caramanica breaks down how the song, with its raw vocals and instrumentation, calls back to ’90s and 2000s radio rock.`\
+https://www.nytimes.com/video/podcasts/100000011033313/is-grunge-back.html
+
+**Will Iran Be a Forever War?**\
+`President Trump may have fallen into the same trap that his predecessors did in Iraq and Afghanistan.`\
+https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
+
 **A.I.M by Kyle Abraham Performs ‘White Space’ at the New York Times**\
 `The New York City-based dance company A.I.M by Kyle Abraham performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
 https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-performs-white-space-at-the-new-york-times.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/15/theater/the-potluck-review-cesar-alvarez.html
 **La Cámara de Representantes de EE. UU. vota a favor del horario de verano permanente**\
 `Republicanos y demócratas de la Cámara se unieron a favor de un proyecto de ley para eliminar el cambio de reloj semestral, pero la medida enfrenta un destino incierto en el Senado.`\
 https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/horario-de-verano-eeuu.html
-
-**Trump Endorses Mike Lindell, MyPillow Founder, for Minnesota Governor**\
-`He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
-https://www.nytimes.com/2026/07/15/us/trump-mike-lindell-endorsement-minnesota.html
-
-**SpaceX Briefly Falls Below I.P.O. Price of $135**\
-`After soaring in its stock market debut, the shares of Elon Musk’s rocket and A.I. company have been rocky.`\
-https://www.nytimes.com/2026/07/15/business/spacex-ipo-price.html
-
-**War Risk for Businesses Will Mean Higher Prices No Matter What Happens**\
-`Doing business in a more dangerous and unpredictable world will cost more, pushing up the price of everything from food to electronics.`\
-https://www.nytimes.com/2026/07/15/business/economy/iran-war-inflation-supply-chains.html
 

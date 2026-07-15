@@ -1,3 +1,7 @@
+**England Lost the World Cup. It Was Always Going to Lose.**\
+`The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
+https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
+
 **Guy Scott, Who Caused a Stir as White Leader of Zambia, Dies at 82**\
 `Two decades after the fall of apartheid in South Africa, he served briefly as Africa’s only white president.`\
 https://www.nytimes.com/2026/07/15/world/africa/guy-scott-dead.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/07/15/world/africa/guy-scott-dead.html
 https://www.nytimes.com/video/podcasts/100000011033313/is-grunge-back.html
 
 **Will Iran Be a Forever War?**\
-`President Trump may have fallen into the same trap that his predecessors did in Iraq and Afghanistan.`\
+`President Trump may have fallen into the same trap that his predecessors did in Iraq and Afghanistan. Our chief diplomatic correspondent explains why.`\
 https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
 
 **A.I.M by Kyle Abraham Performs ‘White Space’ at the New York Times**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/insider/100000011030047/our-top-editor-on-subpoena
 **‘The Potluck’ Review: The Greensboro Massacre, and a Heavy Legacy to Bear**\
 `César Alvarez’s ambitious new work is a mixed musical meal: It wants to be a call to revolutionary action but is surprisingly lacking in it.`\
 https://www.nytimes.com/2026/07/15/theater/the-potluck-review-cesar-alvarez.html
-
-**La Cámara de Representantes de EE. UU. vota a favor del horario de verano permanente**\
-`Republicanos y demócratas de la Cámara se unieron a favor de un proyecto de ley para eliminar el cambio de reloj semestral, pero la medida enfrenta un destino incierto en el Senado.`\
-https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/horario-de-verano-eeuu.html
 
