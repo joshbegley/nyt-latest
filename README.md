@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Elida**\
+`See the likely path and wind arrival times for Elida`\
+https://www.nytimes.com/interactive/2026/07/15/weather/elida-map-path-tracker.html
+
 **Spain Fans Celebrate Making World Cup Final**\
 `Joyous Spain fans celebrated after their team defeated France to secure a place in the World Cup final.`\
 https://www.nytimes.com/video/sports/soccer/100000011032027/spain-fans-world-cup-final.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/arts/television/heartstopper-forever.html
 **‘Hadestown’ Hits Movie Theaters, and Theater to Stream in July**\
 `Streaming picks include the family-friendly sci-fi adventure “Franklin’s Key” in Philadelphia and “Hamlet” at the Delacorte Theater in Central Park.`\
 https://www.nytimes.com/2026/07/15/theater/hadestown-theater-to-stream.html
-
-**Travel Tips: How to Wait in Line (and Keep Your Cool)**\
-`A bouncer in England, where people are renowned for queuing up respectably, offers six tips on how best to move safely, if slowly, forward.`\
-https://www.nytimes.com/2026/07/15/travel/how-to-wait-in-line.html
 
