@@ -1,3 +1,15 @@
+**Para desplegar una bandera del Mundial se necesita coordinación (y muchos brazos)**\
+`Las banderas se han convertido en íconos instantáneos de este torneo. Desplegarlas y doblarlas rápidamente en la cancha requiere una cuidadosa coreografía.`\
+https://www.nytimes.com/es/2026/07/15/espanol/deportes/copa-mundial-bandera-cancha.html
+
+**This Is a Forever War in the Making**\
+`The vague language of the U.S.-Iran cease-fire memo laid the foundation for the war’s resumption.`\
+https://www.nytimes.com/2026/07/15/opinion/us-iran-forever-war-strait-of-hormuz.html
+
+**¿Crees que tu gato se porta bien? Piénsalo dos veces**\
+`Un nuevo estudio revela que, a veces, los gatos se acicalan entre sí para molestarse.`\
+https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/gato-bien-portado.html
+
 **Rescue Effort Underway After Boat Capsizes Near Alcatraz**\
 `A three-deck pleasure boat carrying 20 people capsized near Alcatraz Island on Tuesday. At least one person died and three were missing, officials said.`\
 https://www.nytimes.com/video/us/100000011031757/alcatraz-san-francisco-pontoon-boat-fire-sink.html
@@ -62,7 +74,7 @@ https://www.nytimes.com/2026/07/14/us/maine-ice-shooting-video-joan-sebastian-gu
 `A power auction conducted by a giant grid operator is expected to add $6.3 billion in additional charges to consumers and businesses because of electricity needs of data centers.`\
 https://www.nytimes.com/2026/07/14/business/energy-environment/pjm-electricity-prices-data-centers.html
 
-**One Dead and Two Missing in San Francisco Bay After Boat Capsizes Near Alcatraz**\
+**One Dead and Three Missing in San Francisco Bay After Boat Capsizes Near Alcatraz**\
 `Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
 https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
 **Culottes Are So Back**\
 `Culottes are back. Our Styles reporter Yola Mzizi explains their history and what they mean today.`\
 https://www.nytimes.com/video/style/100000011017153/culottes-are-so-back.html
-
-**Trump Drops Plan to Tax Ships in Strait of Hormuz as Fighting with Iran Escalates**\
-`The president’s proposal to impose a fee on shipping in the Strait of Hormuz threatened to increase global energy prices.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/trump-hormuz-shipping-fee-dropped.html
-
-**Lindsey Graham’s Death Leaves Fate of Russia Sanctions Bill Uncertain**\
-`Supporters in both parties hope the measure to penalize Russia, championed by Senator Lindsey Graham, will gain momentum in his honor.`\
-https://www.nytimes.com/2026/07/14/us/politics/graham-death-russia-sanctions-trump.html
-
-**Chipotle abrirá su primera sucursal en México**\
-`Uno podría preguntarse si México necesita una versión de su comida creada por estadounidenses. La empresa con sede en California apuesta por que sí.`\
-https://www.nytimes.com/es/2026/07/14/espanol/negocios/mexico-chipotle-burritos-monterrey.html
 

@@ -1,3 +1,19 @@
+**Para desplegar una bandera del Mundial se necesita coordinación (y muchos brazos)**\
+`Las banderas se han convertido en íconos instantáneos de este torneo. Desplegarlas y doblarlas rápidamente en la cancha requiere una cuidadosa coreografía.`\
+https://www.nytimes.com/es/2026/07/15/espanol/deportes/copa-mundial-bandera-cancha.html
+
+**This Is a Forever War in the Making**\
+`The vague language of the U.S.-Iran cease-fire memo laid the foundation for the war’s resumption.`\
+https://www.nytimes.com/2026/07/15/opinion/us-iran-forever-war-strait-of-hormuz.html
+
+**¿Crees que tu gato se porta bien? Piénsalo dos veces**\
+`Un nuevo estudio revela que, a veces, los gatos se acicalan entre sí para molestarse.`\
+https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/gato-bien-portado.html
+
+**One Dead and Three Missing in San Francisco Bay After Boat Capsizes Near Alcatraz**\
+`Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
+https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
+
 **Rescue Effort Underway After Boat Capsizes Near Alcatraz**\
 `A three-deck pleasure boat carrying 20 people capsized near Alcatraz Island on Tuesday. At least one person died and three were missing, officials said.`\
 https://www.nytimes.com/video/us/100000011031757/alcatraz-san-francisco-pontoon-boat-fire-sink.html
