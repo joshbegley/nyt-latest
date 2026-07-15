@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/07/15/us/politics/mark-kelly-arizona-democrat-fundr
 `David Wallace-Wells and Robinson Meyer discuss whether the gathering coalition of Americans against data centers could be the next Occupy Wall Street movement or Tea Party.`\
 https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
 
-**The Senate Should Reject Todd Blanche**\
+**We’re About to Find Out Whether Republican Senators Can Still Say No**\
 `Republicans should have the decency, patriotism and self-respect to vote against Mr. Blanche.`\
 https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-hearing.html
 
