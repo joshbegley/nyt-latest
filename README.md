@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/07/15/us/trump-fires-prosecutor-roger-rogoff.html
 https://www.nytimes.com/2026/07/15/nyregion/lawler-dui-arrest.html
 
 **G.O.P. Appears to Boost Socialist’s Primary Campaign for Wisconsin Governor**\
-`Republicans appear to view Francesca Hong as their weakest opponent in a general election. They are spending $2.2 million in an apparent attempt to aid her primary campaign.`\
+`Republicans seem to view Francesca Hong as their weakest opponent in a general election. They are spending $2.2 million in an apparent attempt to aid her primary campaign.`\
 https://www.nytimes.com/2026/07/15/us/politics/republicans-francesca-hong-wisconsin-governor.html
 
 **Parents of Teen Killed During Horse Carriage Ride Plead for a Ban**\
