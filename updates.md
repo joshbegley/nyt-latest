@@ -1,3 +1,11 @@
+**England Lost the World Cup. It Was Always Going to Lose.**\
+`The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
+https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
+
+**Will Iran Be a Forever War?**\
+`President Trump may have fallen into the same trap that his predecessors did in Iraq and Afghanistan. Our chief diplomatic correspondent explains why.`\
+https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
+
 **Guy Scott, Who Caused a Stir as White Leader of Zambia, Dies at 82**\
 `Two decades after the fall of apartheid in South Africa, he served briefly as Africa’s only white president.`\
 https://www.nytimes.com/2026/07/15/world/africa/guy-scott-dead.html
