@@ -1,3 +1,7 @@
+**U.S. Strikes Hit Greater Tunb Island in Strait of Hormuz**\
+`The U.S. military said on Wednesday it had attacked Iranian cruise missile storage and launch sites on Greater Tunb, one of several small islands in the Strait of Hormuz subject to a decades-old territorial dispute.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/us-iran-hormuz-greater-tunb-island.html
+
 **How charities fight crime**\
 `The final entry in our series on the opposite of violence.`\
 https://www.nytimes.com/2026/07/15/headway/newsletter-how-charities-fight-crime.html
