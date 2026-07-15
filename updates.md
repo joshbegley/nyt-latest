@@ -1,3 +1,7 @@
+**U.S. Starts Minting Gold $1 Trump Coins**\
+`Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
+https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
+
 **U.S. Strikes Hit Greater Tunb Island in Strait of Hormuz**\
 `The U.S. military said on Wednesday it had attacked Iranian cruise missile storage and launch sites on Greater Tunb, one of several small islands in the Strait of Hormuz subject to a decades-old territorial dispute.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/us-iran-hormuz-greater-tunb-island.html

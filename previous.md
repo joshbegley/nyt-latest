@@ -1,3 +1,7 @@
+**U.S. Starts Minting Gold $1 Trump Coins**\
+`Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
+https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
+
 **U.S. Strikes Hit Greater Tunb Island in Strait of Hormuz**\
 `The U.S. military said on Wednesday it had attacked Iranian cruise missile storage and launch sites on Greater Tunb, one of several small islands in the Strait of Hormuz subject to a decades-old territorial dispute.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/us-iran-hormuz-greater-tunb-island.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/briefing/ice-shootings-houston-maine.html
 **Messi’s Final Push as Argentina Face England**\
 `The Three Lions take on the reigning World Cup champions in a semifinal for the ages.`\
 https://www.nytimes.com/2026/07/15/podcasts/world-cup-semifinal-argentina-england-messi.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000011032024/15vid-chabahar-ugc.html
 
