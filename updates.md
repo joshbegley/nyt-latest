@@ -1,3 +1,91 @@
+**De líder revolucionario a colaborador de EE. UU.: el nuevo rol de Diosdado Cabello en Venezuela**\
+`La recompensa de 25 millones de dólares y una larga lista de presuntos delitos no ha impedido que el ministro, y otros funcionarios venezolanos, colaboren con el gobierno estadounidense que alguna vez los persiguió.`\
+https://www.nytimes.com/es/2026/07/15/espanol/america-latina/diosdado-cabello-venezuela-recompensa.html
+
+**Oil, Shipping, Flights: Disruptions Are Back as U.S.-Iran War Reignites**\
+`Higher prices for energy, food and air travel are likely to persist as the two sides escalate their clash over the Strait of Hormuz and launch airstrikes in the Middle East.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-oil-shipping-flight-disruptions.html
+
+**The Seduction of Lindsey Graham**\
+`He could see the obvious truth that Trump was a malign and corrosive force in American politics — that is, until Trump won the White House.`\
+https://www.nytimes.com/2026/07/15/opinion/lindsey-graham-donald-trump.html
+
+**Jay Clayton Expected to Face Tough Questions in Confirmation Hearing**\
+`His nomination to lead the U.S. intelligence community comes as the White House pushes to use declassified intelligence to show concerns about election security.`\
+https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-expected-to-face-tough-questions-in-confirmation-hearing.html
+
+**Corrections: July 15, 2026**\
+`Corrections that appeared in print on Wednesday, July 15, 2026`\
+https://www.nytimes.com/2026/07/15/pageoneplus/corrections-july-15-2026.html
+
+**For Israel, the U.S.-Iran Hostilities Have Created an Uneasy Limbo**\
+`Officials see a return to full-blown war as preferable to an agreement that fails to curb the threats Iran poses to Israel. Meanwhile, they wait.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/for-israel-the-us-iran-hostilities-have-created-an-uneasy-limbo.html
+
+**Senator Mark Kelly Amasses Nearly $25 Million Campaign War Chest**\
+`The Arizona Democrat said he had raised and given away $10 million to fellow members of his party and committees as he mulls a presidential run in 2028.`\
+https://www.nytimes.com/2026/07/15/us/politics/mark-kelly-arizona-democrat-fundraising.html
+
+**Can Democrats Harness the Data Center Backlash?**\
+`David Wallace-Wells and Robinson Meyer discuss whether the gathering coalition of Americans against data centers could be the next Occupy Wall Street movement or Tea Party.`\
+https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
+
+**The Senate Should Reject Todd Blanche**\
+`Republicans should have the decency, patriotism and self-respect to vote against Mr. Blanche.`\
+https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-hearing.html
+
+**Todd Blanche Faces Crucial Hurdle Ahead of Confirmation as Attorney General**\
+`Todd Blanche’s nomination is broadly a referendum on President Trump’s vision of the Justice Department as a projection of his power.`\
+https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation-doj.html
+
+**Tell Us Your Crossword Autocheck Hot Takes**\
+`We want to know your opinions about this New York Times Crossword feature for an upcoming article.`\
+https://www.nytimes.com/2026/07/15/crosswords/autocheck-hot-takes.html
+
+**Trump’s Latest Nominee for C.D.C. Director Will Face Senate Panel**\
+`Dr. Erica Schwartz supports vaccines and is seen as a mainstream choice to lead an agency that has been a target of Health Secretary Robert F. Kennedy Jr.’s efforts to change federal immunization policies.`\
+https://www.nytimes.com/2026/07/15/health/cdc-erica-schwartz.html
+
+**Platner Was Toxic. But Democrats Could Learn From His Politics.**\
+`His progressive, populist message was able to occupy a kind of middle ground in the party’s primary electorate.`\
+https://www.nytimes.com/2026/07/15/upshot/platner-democrats-progressives-liberals.html
+
+**A Year After DOGE Cuts, Social Security Is Trying to Stabilize**\
+`The agency has been quietly hiring workers again, and its leadership is focused on improving technology to ease workloads left by the departure of about 7,800 staff members.`\
+https://www.nytimes.com/2026/07/15/business/social-security-offices.html
+
+**$425,000 Homes in Georgia, Rhode Island and Arizona**\
+`A townhouse in Savannah, Ga., a condo in Providence, R.I., and a desert home in Tucson, Ariz.`\
+https://www.nytimes.com/2026/07/15/realestate/homes-for-sale-in-savannah-providence-tucson.html
+
+**A Designer Prizes Simplicity in a Hudson Retreat**\
+`Brian Messana of Messana O’Rorke selects some practical lighting and special seating in his upstate bedroom.`\
+https://www.nytimes.com/2026/07/15/realestate/a-designer-prizes-simplicity-in-a-hudson-retreat.html
+
+**Could This Be the End of Carriage Horse Rides in Central Park?**\
+`Past moves to ban the rides have fizzled, but the death of a teenage tourist last month appears to have changed the political landscape.`\
+https://www.nytimes.com/2026/07/15/nyregion/could-this-be-the-end-of-carriage-horse-rides-in-central-park.html
+
+**Does This Superagent Hold the Keys to 2028?**\
+`Ari Emanuel’s empire just happens to include some of the most influential figures of the moment. That could work out well for his brother, Rahm Emanuel.`\
+https://www.nytimes.com/2026/07/15/style/ari-emanuel-rahm-emanuel-2028.html
+
+**Cyclospora Cases Rise Rapidly, With No Source Yet Confirmed**\
+`The parasite, which has sickened thousands across the U.S., is notoriously difficult to track. Funding cuts haven’t made the job easier.`\
+https://www.nytimes.com/2026/07/15/well/eat/cyclospora-outbreak-response.html
+
+**How I Stayed Sane as a World Cup Goalkeeper**\
+`How new soccer strategies changed the way goalkeepers play.`\
+https://www.nytimes.com/2026/07/15/opinion/world-cup-soccer-football-goalkeeper.html
+
+**He Has a $25 Million Bounty on His Head, But Is Also a U.S. Partner in Venezuela.**\
+`A list of alleged crimes has not prevented Diosdado Cabello, and other Venezuelan officials, from working with a U.S. government that once hounded them.`\
+https://www.nytimes.com/2026/07/15/world/americas/us-bounty-diosdado-cabello-venezuela.html
+
+**‘Heartstopper Forever’: Growing Up, and Staying True to Themselves**\
+`Like “Heated Rivalry,” this beloved Netflix romance has a big-hearted ethos. It’s bringing that spirit to a new film that rounds out a teenage TV hit.`\
+https://www.nytimes.com/2026/07/15/arts/television/heartstopper-forever.html
+
 **‘Hadestown’ Hits Movie Theaters, and Theater to Stream in July**\
 `Streaming picks include the family-friendly sci-fi adventure “Franklin’s Key” in Philadelphia and “Hamlet” at the Delacorte Theater in Central Park.`\
 https://www.nytimes.com/2026/07/15/theater/hadestown-theater-to-stream.html
