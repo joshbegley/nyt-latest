@@ -1,3 +1,7 @@
+**Brazen Japanese Bears Are Breaking Into Homes and Raiding Pantries**\
+`Climate change and shifting demographics are driving the country’s Asiatic black bears closer to humans.`\
+https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
+
 **On Literacy Struggles and Sleeping Fish: The Winners of Week 4 of Our Summer Reading Contest**\
 `Megha Mishra learned a scientific fact that could have helped her childhood pet, while Samaira Rasul reflected on her classroom experiences with boys and reading.`\
 https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-fish-the-winners-of-week-4-of-our-summer-reading-contest.html

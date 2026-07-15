@@ -1,3 +1,7 @@
+**Brazen Japanese Bears Are Breaking Into Homes and Raiding Pantries**\
+`Climate change and shifting demographics are driving the country’s Asiatic black bears closer to humans.`\
+https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
+
 **On Literacy Struggles and Sleeping Fish: The Winners of Week 4 of Our Summer Reading Contest**\
 `Megha Mishra learned a scientific fact that could have helped her childhood pet, while Samaira Rasul reflected on her classroom experiences with boys and reading.`\
 https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-fish-the-winners-of-week-4-of-our-summer-reading-contest.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/travel/how-to-wait-in-line.html
 **Octavia Spencer Believed in Herself Even When Hollywood Didn’t**\
 `It took years for her to be cast as “the main character,” but she considers that the industry’s loss. Her latest series is the action comedy “Ride or Die.”`\
 https://www.nytimes.com/2026/07/15/arts/television/octavia-spencer-ride-or-die.html
-
-**Ukraine Pounds Russian Ships in Its Campaign to Cut Off Crimea**\
-`After striking roads and railways, Kyiv is now focusing on sea routes as it tries to disrupt fuel supplies and pressure Russia to end the war.`\
-https://www.nytimes.com/2026/07/15/world/europe/ukraine-russia-crimea-azov-sea.html
 
