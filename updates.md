@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘How to Woo Her?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/15/style/tiny-modern-love-stories-how-to-woo-her.html
+
+**Senator Presses for Scrutiny of Blanche’s Role in Spiking Clemency Inquiry**\
+`During his confirmation hearing, the acting attorney general refused to discuss the termination of an investigation into a commutation issued by President Trump.`\
+https://www.nytimes.com/2026/07/15/us/politics/blumenthal-blanche-trump-clemency.html
+
 **Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
 `Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
 https://www.nytimes.com/article/heat-air-pollution-climate.html
