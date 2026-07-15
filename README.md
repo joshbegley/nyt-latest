@@ -1,3 +1,7 @@
+**On Literacy Struggles and Sleeping Fish: The Winners of Week 4 of Our Summer Reading Contest**\
+`Megha Mishra learned a scientific fact that could have helped her childhood pet, while Samaira Rasul reflected on her classroom experiences with boys and reading.`\
+https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-fish-the-winners-of-week-4-of-our-summer-reading-contest.html
+
 **House G.O.P. Releases Budget to Unlock $95 Billion for Iran War and SAVE Act**\
 `The plan faces a rocky path amid Republican divisions and would pave the way for votes months before the midterm elections to fund a war that polls show is deeply unpopular.`\
 https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/arts/television/octavia-spencer-ride-or-die.h
 **Ukraine Pounds Russian Ships in Its Campaign to Cut Off Crimea**\
 `After striking roads and railways, Kyiv is now focusing on sea routes as it tries to disrupt fuel supplies and pressure Russia to end the war.`\
 https://www.nytimes.com/2026/07/15/world/europe/ukraine-russia-crimea-azov-sea.html
-
-**Small Tribes Say They Lack the Clout to Secure Federal Recognition**\
-`The federal government can confer health care, education, housing and casino rights, but for small bands like many in the Pacific Northwest, recognition takes political muscle they don’t have.`\
-https://www.nytimes.com/2026/07/15/us/tribes-federal-recognition.html
 
