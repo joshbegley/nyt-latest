@@ -1,3 +1,7 @@
+**U.S. War Against Iran Enters a New Phase**\
+`As President Trump resumes his war, the focus is now on the Strait of Hormuz. But it remains unclear how far the U.S. military will go to exert control.`\
+https://www.nytimes.com/2026/07/14/us/politics/us-war-iran-next-phase.html
+
 **As Confirmation Hearing Nears, Todd Blanche’s Role in Epstein Case Draws Scrutiny**\
 `Todd Blanche’s role in interviewing Ghislaine Maxwell, a longtime associate of the convicted sex offender Jeffrey Epstein, will be front and center as he seeks to become attorney general.`\
 https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-epstein-investigation-doj.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/business/chipotle-open-mexico-monterrey.html
 **A Soundtrack to the 2026 World Cup Semifinals**\
 `Listen to songs from Rosalía, Mauvais Djo, Ca7riel & Paco Amoroso and the Beatles.`\
 https://www.nytimes.com/2026/07/14/arts/music/amplifier-newsletter-world-cup-rosalia.html
-
-**‘The Whoopi Monologues’ Review: Expanding a One-Woman Show**\
-`Instead of one Whoopi Goldberg, audiences now experience five actresses: Kerry Washington, Kara Young, Dominique Fishback, Danielle Pinnock and Kecia Lewis.`\
-https://www.nytimes.com/2026/07/14/theater/the-whoopi-monologues-review-kerry-washington-kara-young.html
 
