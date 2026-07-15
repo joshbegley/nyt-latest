@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html
+
+**Flash floods and Tornado Hit Texas Amid Heavy Rainfall**\
+`A tornado was spotted in San Antonio, and Uvalde and Harris counties experienced flooding as heavy rain fell on Tuesday and Wednesday.`\
+https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
+
+**Let a Governor Go Without a Traffic Ticket? A Stop Stirs Debate.**\
+`Gov. Joe Lombardo of Nevada was pulled over for a suspected violation but did not receive a citation. That has elicited mixed reactions as he campaigns for re-election.`\
+https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.html
+
 **U.S. Starts Minting Gold $1 Trump Coins**\
 `Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
 https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/15/weather/california-heat-fire-forecast.html
 **The Vague Clause That Helps Explain the U.S.-Iran Fight Over the Strait of Hormuz**\
 `The memorandum of understanding between the United States and Iran has done little to calm tension, in part because they disagree on what it actually means.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-hormuz-strait.html
-
-**Australia to Impose Energy and Water Guardrails on Data Centers Amid A.I. Boom**\
-`The country will also seek to protect the rights of creators of work used to train artificial intelligence models, as it aims to impose parameters on the growing industry.`\
-https://www.nytimes.com/2026/07/15/world/australia/albanese-artificial-intelligence-guardrails.html
-
-**Fatal Encounters**\
-`We look at shootings by federal immigration agents.`\
-https://www.nytimes.com/2026/07/15/briefing/ice-shootings-houston-maine.html
-
-**Messi’s Final Push as Argentina Face England**\
-`The Three Lions take on the reigning World Cup champions in a semifinal for the ages.`\
-https://www.nytimes.com/2026/07/15/podcasts/world-cup-semifinal-argentina-england-messi.html
 

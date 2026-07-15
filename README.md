@@ -1,3 +1,7 @@
+**Las mujeres de la Marina de EE. UU. ven reducidas sus oportunidades**\
+`El secretario de Defensa, Pete Hegseth, ha retirado de las listas para ascensos a unos 40 oficiales, muchos de ellos mujeres o personas de color.`\
+https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/mujeres-ejercito-marina-diversidad.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
 **California Weather Shift Brings With It a Risk of Unhealthy Heat and Wildfires**\
 `Wednesday will bring some of the hottest temperatures of the year, and fire experts are warning of combustible conditions throughout the state.`\
 https://www.nytimes.com/2026/07/15/weather/california-heat-fire-forecast.html
-
-**The Vague Clause That Helps Explain the U.S.-Iran Fight Over the Strait of Hormuz**\
-`The memorandum of understanding between the United States and Iran has done little to calm tension, in part because they disagree on what it actually means.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-hormuz-strait.html
 

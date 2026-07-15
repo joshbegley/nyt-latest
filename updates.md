@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html
+
+**Flash floods and Tornado Hit Texas Amid Heavy Rainfall**\
+`A tornado was spotted in San Antonio, and Uvalde and Harris counties experienced flooding as heavy rain fell on Tuesday and Wednesday.`\
+https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
+
+**Let a Governor Go Without a Traffic Ticket? A Stop Stirs Debate.**\
+`Gov. Joe Lombardo of Nevada was pulled over for a suspected violation but did not receive a citation. That has elicited mixed reactions as he campaigns for re-election.`\
+https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.html
+
 **U.S. Starts Minting Gold $1 Trump Coins**\
 `Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
 https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
