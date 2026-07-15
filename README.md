@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011033167/15vid-tillis-mirror-sot-vert.html
+
+**Judge Dismisses Suit Accusing Apple of Failing to Limit Child Sex Abuse Material**\
+`The lawsuit highlighted concerns that the privacy of Apple’s iCloud allows illegal material to be easily stored and shared on the service.`\
+https://www.nytimes.com/2026/07/15/technology/apple-lawsuit-child-sexual-abuse-dismissed.html
+
 **Everybody Loves Cheese. Why Is Selling It So Hard These Days?**\
 `Cheesemongering is a calling, requiring deep expertise and longstanding relationships, but today’s retail environment is making it more and more difficult.`\
 https://www.nytimes.com/2026/07/15/dining/cheesemonger-jobs.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche
 **Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
 `Kathryn Ruemmler, the former general counsel of Goldman Sachs, testified on Wednesday in a closed-door congressional hearing investigating Jeffery Epstein.`\
 https://www.nytimes.com/2026/07/15/business/goldman-kathy-ruemmler-epstein.html
-
-**Archaeologists Unearth a 2,400-Year-Old Sanctuary for the Worship of Odysseus**\
-`The ruins of a 2,400-year-old complex suggest that, to the Greeks of antiquity, Homer’s protagonist was not just a character in a poem but a figure of genuine devotion.`\
-https://www.nytimes.com/2026/07/15/science/archaeology-homer-odyssey-ithaca.html
-
-**Mapa: la trayectoria de la tormenta tropical Elida en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Elida.`\
-https://www.nytimes.com/es/interactive/2026/07/15/espanol/elida-mapa-trayectoria.html
 
