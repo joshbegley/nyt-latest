@@ -1,3 +1,11 @@
+**How Is Your America Doing?**\
+`The midterms are looming. We asked people in New York City’s suburbs how they feel about the state of America.`\
+https://www.nytimes.com/video/opinion/100000011004862/how-is-your-america-doing.html
+
+**U.S. Presses China to Free American Seismologist Accused of Spying**\
+`President Trump has urged Xi Jinping to release the scientist, Youlin Chen, the man’s family says. Dr. Chen studied the detection of North Korean nuclear tests.`\
+https://www.nytimes.com/2026/07/15/world/asia/china-seismologist-north-korea-nuclear.html
+
 **House Passes Bill to Make Daylight Saving Time Permanent**\
 `The House voted on Tuesday to make daylight saving time permanent. The bill now faces an uncertain fate in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011031805/daylight-saving-time-permanent-bill-house.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/14/us/politics/ice-body-cameras.html
 **Opportunities Narrow for Women as Hegseth Blocks More Promotions**\
 `For the first time in more than a decade, no active-duty female Navy officers are likely to be promoted to admiral this year.`\
 https://www.nytimes.com/2026/07/14/us/hegseth-blocks-navy-promotions.html
-
-**Lindsey Graham’s Sister, Darline Graham, Is Sworn In to Finish His Senate Term**\
-`Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
-https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html
-
-****\
-`Axuan Bu, a food stall owner in Jinhua, has absorbed rising egg costs rather than raise prices for customers.`\
-https://www.nytimes.com/video/embedded/business/100000011031317/China-Eggs_Jianbing_Man-video.html
 
