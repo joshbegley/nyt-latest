@@ -1,3 +1,15 @@
+**Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
+`Roads were turning to rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who had been trapped.`\
+https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
+
+**New Jersey Couple Aids Meteorite Discovery After it Crashes Through Their Roof**\
+`A New Jersey couple helped scientists uncover the makeup of an unusual asteroid after it fell into their bedroom.`\
+https://www.nytimes.com/2026/07/15/science/meteorite-new-jersey.html
+
+**Meet Earth’s Newest Monkey. (And Check Out Its Orange Lips.)**\
+`It is only the fifth new African monkey identified as a new species in the past 75 years.`\
+https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-out-its-orange-lips.html
+
 **High Temperatures and Air Pollution Are an Unhealthy Combination**\
 `Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
 https://www.nytimes.com/article/heat-air-pollution-climate.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html
 **Blanche’s Family Ties to Gun Industry Are Likely to Raise Questions**\
 `Democrats and gun control advocates are concerned that his comments about Check-Mate Industries, a company led by his mother-in-law that manufactures magazines, reveal a conflict of interest.`\
 https://www.nytimes.com/2026/07/15/us/politics/blanche-gun-industry-confirmation-hearing.html
-
-**What to Know About Todd Blanche’s Order Granting Trump Immunity From I.R.S. Audits**\
-`Acting attorney general Todd Blanche’s decision to grant President Trump protection from I.R.S. audits is set to be a central issue in his confirmation hearing on Wednesday.`\
-https://www.nytimes.com/2026/07/15/us/politics/trump-irs-lawsuit-immunity-blanche.html
-
-**France Is Set to Allow Assisted Dying**\
-`Lawmakers were expected to approve a bill that would allow doctors to help terminally ill patients to die. If the law passes, the country would join a small group of nations that permit the measure.`\
-https://www.nytimes.com/2026/07/15/world/europe/france-law-assisted-dying.html
-
-**My Recently Widowed Mother Has Become Seriously Unhygienic. Help!**\
-`After her father’s death, a reader noticed her mother reusing dirty dishes and failing to wash her hands. How will her mother fare once she moves back out?`\
-https://www.nytimes.com/2026/07/15/style/grieving-mourning-cleanliness-hygiene.html
 
 **Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
 `Mr. Blanche, the acting attorney general and a former leader of Mr. Trump’s criminal defense team, faced methodical questioning from Senator John Cornyn of Texas, who has expressed doubts about him.`\

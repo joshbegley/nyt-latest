@@ -1,3 +1,15 @@
+**Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
+`Roads were turning to rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who had been trapped.`\
+https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
+
+**New Jersey Couple Aids Meteorite Discovery After it Crashes Through Their Roof**\
+`A New Jersey couple helped scientists uncover the makeup of an unusual asteroid after it fell into their bedroom.`\
+https://www.nytimes.com/2026/07/15/science/meteorite-new-jersey.html
+
+**Meet Earth’s Newest Monkey. (And Check Out Its Orange Lips.)**\
+`It is only the fifth new African monkey identified as a new species in the past 75 years.`\
+https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-out-its-orange-lips.html
+
 **High Temperatures and Air Pollution Are an Unhealthy Combination**\
 `Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
 https://www.nytimes.com/article/heat-air-pollution-climate.html

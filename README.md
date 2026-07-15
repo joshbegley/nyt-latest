@@ -1,3 +1,7 @@
+**Las infecciones por ‘Cyclospora’ aumentan. Su origen sigue sin saberse**\
+`El parásito, que ha enfermado a miles de personas en todo EE. UU., es notoriamente difícil de rastrear. Los recortes de fondos no han facilitado la tarea.`\
+https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
+
 **Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
 `Roads were turning to rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who had been trapped.`\
 https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/mujeres-ejercito-ma
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html
 
-**Flash floods and Tornado Hit Texas Amid Heavy Rainfall**\
+**Flash Floods and Tornado Hit Texas Amid Heavy Rainfall**\
 `A tornado was spotted in San Antonio, and Uvalde and Harris counties experienced flooding as heavy rain fell on Tuesday and Wednesday.`\
 https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
 
@@ -38,7 +42,7 @@ https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
 `Gov. Joe Lombardo of Nevada was pulled over for a suspected violation but did not receive a citation. That has elicited mixed reactions as he campaigns for re-election.`\
 https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.html
 
-**U.S. Starts Minting Gold $1 Trump Coins**\
+**Treasury to Begin Minting $1 Gold Trump Coins Featuring President’s Face**\
 `Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
 https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
 
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
 `Immigration and Customs Enforcement ordered its officers on Tuesday to halt most vehicle stops across the country after they shot two people over the past week.`\
 https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html
 
-**Blanche’s Family Ties to Gun Industry Are Likely to Raise Questions**\
-`Democrats and gun control advocates are concerned that his comments about Check-Mate Industries, a company led by his mother-in-law that manufactures magazines, reveal a conflict of interest.`\
-https://www.nytimes.com/2026/07/15/us/politics/blanche-gun-industry-confirmation-hearing.html
-
 **Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
-`Mr. Blanche, the acting attorney general and a former leader of Mr. Trump’s criminal defense team, faced methodical questioning from Senator John Cornyn of Texas, who has expressed doubts about him.`\
+`Senator John Cornyn of Texas said he remained undecided about how he would vote after questioning Mr. Blanche. But another closely watched Republican, Senator Thom Tillis, said Mr. Blanche did “a great job” in his testimony.`\
 https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
 
