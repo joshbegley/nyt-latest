@@ -1,3 +1,15 @@
+**Parents of Teen Killed During Horse Carriage Ride Plead for a Ban**\
+`The death of Romanch Mahajan appeared to have swayed a majority of New York City Council members to vote to abolish the 167-year-old horse-carriage industry in two years.`\
+https://www.nytimes.com/2026/07/15/nyregion/horse-carriage-ban-central-park.html
+
+**Maine Democrats’ Adventurous Political Experiment**\
+`The party’s leaders have a political experiment on their hands.`\
+https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-adventure.html
+
+**U.S. Military Again Blockades Iranian Ports After Collapse of Cease-Fire**\
+`President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran. Enforcing a blockade takes a massive commitment of warships and aircraft.`\
+https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
+
 **Maine Democrats’ Adventurous Political Experiment**\
 `Maine Democrats have a political experiment on their hands.`\
 https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-adventure.html

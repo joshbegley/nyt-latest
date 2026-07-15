@@ -1,5 +1,9 @@
+**Parents of Teen Killed During Horse Carriage Ride Plead for a Ban**\
+`The death of Romanch Mahajan appeared to have swayed a majority of New York City Council members to vote to abolish the 167-year-old horse-carriage industry in two years.`\
+https://www.nytimes.com/2026/07/15/nyregion/horse-carriage-ban-central-park.html
+
 **Maine Democrats’ Adventurous Political Experiment**\
-`Maine Democrats have a political experiment on their hands.`\
+`The party’s leaders have a political experiment on their hands.`\
 https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-adventure.html
 
 **A Key Senator Says He Is Undecided on Trump’s Attorney General Pick**\
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
 `The New York City-based dance company A.I.M by Kyle Abraham performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
 https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-performs-white-space-at-the-new-york-times.html
 
-**U.S. Military Forces Again Blockade Iranian Ports**\
-`Following the collapse of the cease-fire with Iran, President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran.`\
+**U.S. Military Again Blockades Iranian Ports After Collapse of Cease-Fire**\
+`President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran. Enforcing a blockade takes a massive commitment of warships and aircraft.`\
 https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
 
 **Almost Half of House Democrats Vote to End Aid to Israel**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/mujeres-ejercito-ma
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html
-
-**Flash Floods and Tornado Hit Texas Amid Heavy Rainfall**\
-`A tornado was spotted in San Antonio, and Uvalde and Harris counties experienced flooding as heavy rain fell on Tuesday and Wednesday.`\
-https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
 
