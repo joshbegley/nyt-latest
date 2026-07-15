@@ -34,6 +34,10 @@ https://www.nytimes.com/article/heat-air-pollution-climate.html
 `He originated the role of the scheming Craig Montgomery and appeared in 280 episodes of the CBS soap opera over more than two decades.`\
 https://www.nytimes.com/2026/07/15/arts/television/scott-bryce-dead.html
 
+**Senator Presses for Scrutiny of Blanche’s Role in Spiking Clemency Inquiry**\
+`During his confirmation hearing, the acting attorney general refused to discuss the termination of an investigation into a commutation issued by President Trump.`\
+https://www.nytimes.com/2026/07/15/us/politics/blumenthal-blanche-trump-clemency.html
+
 **How Worried Should You Be About Cyclospora?**\
 `Don’t stop eating fruits and vegetables.`\
 https://www.nytimes.com/2026/07/15/opinion/cyclospora-stomach-bug-risk-lettuce.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/sports/soccer/100000011032027/spain-fans-world-cup
 **Brazen Japanese Bears Are Breaking Into Homes and Raiding Pantries**\
 `Climate change and shifting demographics are driving the country’s Asiatic black bears closer to humans.`\
 https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
-
-**Live Updates: Blanche’s Nomination for Attorney General Faces Hurdle After Rocky Hearing**\
-`A key Republican, Senator John Cornyn of Texas, said he was still undecided about how he would vote after questioning Mr. Blanche. One G.O.P. vote against him could sink the nomination.`\
-https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
 
