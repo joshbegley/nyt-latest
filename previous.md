@@ -1,3 +1,7 @@
+**Former Child Care Worker in Sydney Facing Over 300 Abuse Charges Is Identified**\
+`A Sydney court lifted the suppression order on identifying a man accused of abusing more than 100 children over 16 years.`\
+https://www.nytimes.com/2026/07/14/world/australia/sydney-child-abuse-daycare-worker.html
+
 **NYT Crossword Answers for July 15, 2026**\
 `Jonathan Raksin and Jeff Chen enter this week’s constructor rotation.`\
 https://www.nytimes.com/2026/07/14/crosswords/daily-puzzle-2026-07-15.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.
 **La campaña de represalias de Trump**\
 `La participación del actual fiscal general interino de EE. UU. será un punto clave en su audiencia de confirmación, que tendrá lugar el miércoles.`\
 https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-represalias-enemigos-blanche-fiscal.html
-
-**Texas Faces Potentially ‘Catastrophic’ Amounts of Rain**\
-`Intense storms overnight dropped heavy rain, and more was falling Tuesday. Forecasters warned about the increasing likelihood of flooding across the state.`\
-https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
 

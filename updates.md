@@ -1,3 +1,7 @@
+**Former Child Care Worker in Sydney Facing Over 300 Abuse Charges Is Identified**\
+`A Sydney court lifted the suppression order on identifying a man accused of abusing more than 100 children over 16 years.`\
+https://www.nytimes.com/2026/07/14/world/australia/sydney-child-abuse-daycare-worker.html
+
 **NYT Crossword Answers for July 15, 2026**\
 `Jonathan Raksin and Jeff Chen enter this week’s constructor rotation.`\
 https://www.nytimes.com/2026/07/14/crosswords/daily-puzzle-2026-07-15.html
