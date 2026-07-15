@@ -1,3 +1,11 @@
+**Maps: Tracking Tropical Storm Elida**\
+`See the likely path and wind arrival times for Elida`\
+https://www.nytimes.com/interactive/2026/07/15/weather/elida-map-path-tracker.html
+
+**Spain Fans Celebrate Making World Cup Final**\
+`Joyous Spain fans celebrated after their team defeated France to secure a place in the World Cup final.`\
+https://www.nytimes.com/video/sports/soccer/100000011032027/spain-fans-world-cup-final.html
+
 **Brazen Japanese Bears Are Breaking Into Homes and Raiding Pantries**\
 `Climate change and shifting demographics are driving the country’s Asiatic black bears closer to humans.`\
 https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/07/15/world/europe/france-law-assisted-dying.html
 `After her father’s death, a reader noticed her mother reusing dirty dishes and failing to wash her hands. How will her mother fare once she moves back out?`\
 https://www.nytimes.com/2026/07/15/style/grieving-mourning-cleanliness-hygiene.html
 
-**Is IBM a Canary in the Tech Coal Mine?**\
+**IBM’s Stock Crash Reignites Fears of A.I. Disruption in Software Sector**\
 `The company tumbled sharply after previewing quarterly results that were disappointing. It’s not good news for software and tech consulting companies.`\
 https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/arts/television/heartstopper-forever.html
 **‘Hadestown’ Hits Movie Theaters, and Theater to Stream in July**\
 `Streaming picks include the family-friendly sci-fi adventure “Franklin’s Key” in Philadelphia and “Hamlet” at the Delacorte Theater in Central Park.`\
 https://www.nytimes.com/2026/07/15/theater/hadestown-theater-to-stream.html
-
-**Travel Tips: How to Wait in Line (and Keep Your Cool)**\
-`A bouncer in England, where people are renowned for queuing up respectably, offers six tips on how best to move safely, if slowly, forward.`\
-https://www.nytimes.com/2026/07/15/travel/how-to-wait-in-line.html
-
-**Octavia Spencer Believed in Herself Even When Hollywood Didn’t**\
-`It took years for her to be cast as “the main character,” but she considers that the industry’s loss. Her latest series is the action comedy “Ride or Die.”`\
-https://www.nytimes.com/2026/07/15/arts/television/octavia-spencer-ride-or-die.html
 

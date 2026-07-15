@@ -1,3 +1,15 @@
+**Maps: Tracking Tropical Storm Elida**\
+`See the likely path and wind arrival times for Elida`\
+https://www.nytimes.com/interactive/2026/07/15/weather/elida-map-path-tracker.html
+
+**Spain Fans Celebrate Making World Cup Final**\
+`Joyous Spain fans celebrated after their team defeated France to secure a place in the World Cup final.`\
+https://www.nytimes.com/video/sports/soccer/100000011032027/spain-fans-world-cup-final.html
+
+**IBM’s Stock Crash Reignites Fears of A.I. Disruption in Software Sector**\
+`The company tumbled sharply after previewing quarterly results that were disappointing. It’s not good news for software and tech consulting companies.`\
+https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.html
+
 **Brazen Japanese Bears Are Breaking Into Homes and Raiding Pantries**\
 `Climate change and shifting demographics are driving the country’s Asiatic black bears closer to humans.`\
 https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
