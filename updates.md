@@ -1,3 +1,15 @@
+**Indicted Tycoon Says $10 Billion Offer Did Not Spur U.S. to Drop Charges**\
+`Gautam Adani, India’s richest man, was accused of fraud and bribery in Federal District Court in Brooklyn. Then President Trump’s Justice Department moved to drop the charges.`\
+https://www.nytimes.com/2026/07/15/nyregion/gautam-adani-corruption-dropped.html
+
+**Is Dating a Colleague a Good Idea?**\
+`Readers weigh the pros and cons of dating a co-worker, in response to an Opinion guest essay. Also: Killings in Minnesota; safety on the road.`\
+https://www.nytimes.com/2026/07/15/opinion/dating-co-workers.html
+
+**He Thought He Had to Break Out of Brooklyn. Instead, He Celebrates It.**\
+`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and leave the neighborhood. A tragedy changed his mind.`\
+https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
+
 **Our Top Editor on Subpoenas of Times Journalists**\
 `The Trump administration issued subpoenas to reporters who wrote about security concerns involving the new Air Force One. Joe Kahn, the executive editor of The New York Times, responds to what he calls a “naked attempt to intimidate” the newspaper.`\
 https://www.nytimes.com/video/insider/100000011030047/our-top-editor-on-subpoenas-of-times-journalists.html
