@@ -1,3 +1,11 @@
+**PayPal Receives $53 Billion Takeover Offer Involving Stripe**\
+`PayPal, which owns Venmo, is the target of what one group of analysts described as a “lowball” offer from Stripe, another payment processor, and Advent, a private equity firm.`\
+https://www.nytimes.com/2026/07/15/business/paypal-stripe-advent-takeover-bid.html
+
+**Raging Wildfire Surrounds Canadian Cargo Train**\
+`Canada, including Toronto and other parts of Ontario, were covered in smoke as wildfires sent smoke into New York and beyond.`\
+https://www.nytimes.com/video/world/canada/100000011033137/canada-wildfires-air-quality-train.html
+
 **Iran, Epstein, Space Travel: 5 Takeaways From JD Vance’s Interview With Joe Rogan**\
 `In his first on-air conversation with the popular podcaster since 2024, the vice president cautiously defended the Iran war while also hinting at skepticism about it.`\
 https://www.nytimes.com/2026/07/15/us/politics/jd-vance-rogan-interview.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/07/15/nyregion/republicans-jews-mamdani.html
 `Track the latest polls in Massachusetts's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/massachusetts-us-house-4-polls-2026.html
 
-**Blanche Faces Crucial Hurdle After Rocky Hearing**\
+**Todd Blanche, Trump’s Attorney General Pick, Faces Crucial Hurdle After Rocky Hearing**\
 `Even a single Republican “no” vote would block Mr. Blanche’s nomination from consideration by the full Senate, which could sink his confirmation.`\
 https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/us/politics/elon-musk-vivek-ramaswamy-ohio-go
 **I’m Worried My Kids Will Regret Cutting Off Their Dad. Should I Say Something?**\
 `They know he has health problems, but I’m not sure they fully grasp that death can come suddenly.`\
 https://www.nytimes.com/2026/07/15/magazine/divorce-estranged-kids-father-ethics.html
-
-**When Will Xi Jinping Move on Taiwan?**\
-`The question of Taiwan looms over China’s relationship with the rest of the world. On “The Ezra Klein Show,” Kevin Rudd, a former prime minister of Australia and a China scholar, explains why he thinks President Xi Jinping has been “sharpening his levels of preparedness” in recent years for some sort of military action related to the island.`\
-https://www.nytimes.com/video/opinion/100000011023087/when-will-xi-jinping-move-on-taiwan.html
-
-**‘Never Underestimate Xi Jinping’**\
-`Xi Jinping’s political ideology has shaped modern China. But what are the forces that have shaped him? On “The Ezra Klein Show,” Kevin Rudd, a former prime minister of Australia and an expert in Xi’s ideological worldview, breaks down the political formation of China’s president.`\
-https://www.nytimes.com/video/opinion/100000011023086/never-underestimate-xi-jinping.html
 
