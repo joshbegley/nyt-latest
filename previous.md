@@ -1,9 +1,13 @@
+**Door-to-Door Search for Grapevines Sold at Costco Begins in California’s Santa Clara County**\
+`Officials in Santa Clara County began knocking on doors on Monday to collect potentially infested plants sold at some Costco stores.`\
+https://www.nytimes.com/2026/07/15/us/california-costco-plants-recall.html
+
 **Trump Administration Fires U.S. Attorney Minutes After His Appointment**\
 `Federal judges had chosen the veteran Seattle prosecutor to fill the vacant seat. Now, a potential legal battle looms.`\
 https://www.nytimes.com/2026/07/15/us/trump-fires-prosecutor-roger-rogoff.html
 
 **House Republican in Key Swing Race Discloses a Drunk-Driving Arrest**\
-`Representative Mike Lawler of New York said in a televised interview that he was arrested on the morning of St. Patrick’s Day in 2012, after learning that his father was gravely ill.`\
+`Representative Mike Lawler of New York said in a televised interview that he was arrested on St. Patrick’s Day in 2012, after learning that his father was gravely ill.`\
 https://www.nytimes.com/2026/07/15/nyregion/lawler-dui-arrest.html
 
 **G.O.P. Appears to Boost Socialist’s Primary Campaign for Wisconsin Governor**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/article/heat-air-pollution-climate.html
 **Scott Bryce, ‘As the World Turns’ Actor, Dies at 68**\
 `He originated the role of the scheming Craig Montgomery and appeared in 280 episodes of the CBS soap opera over more than two decades.`\
 https://www.nytimes.com/2026/07/15/arts/television/scott-bryce-dead.html
-
-**Senator Presses for Scrutiny of Blanche’s Role in Spiking Clemency Inquiry**\
-`During his confirmation hearing, the acting attorney general refused to discuss the termination of an investigation into a commutation issued by President Trump.`\
-https://www.nytimes.com/2026/07/15/us/politics/blumenthal-blanche-trump-clemency.html
 

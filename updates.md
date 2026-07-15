@@ -1,3 +1,11 @@
+**Door-to-Door Search for Grapevines Sold at Costco Begins in California’s Santa Clara County**\
+`Officials in Santa Clara County began knocking on doors on Monday to collect potentially infested plants sold at some Costco stores.`\
+https://www.nytimes.com/2026/07/15/us/california-costco-plants-recall.html
+
+**House Republican in Key Swing Race Discloses a Drunk-Driving Arrest**\
+`Representative Mike Lawler of New York said in a televised interview that he was arrested on St. Patrick’s Day in 2012, after learning that his father was gravely ill.`\
+https://www.nytimes.com/2026/07/15/nyregion/lawler-dui-arrest.html
+
 **Trump Administration Fires U.S. Attorney Minutes After His Appointment**\
 `Federal judges had chosen the veteran Seattle prosecutor to fill the vacant seat. Now, a potential legal battle looms.`\
 https://www.nytimes.com/2026/07/15/us/trump-fires-prosecutor-roger-rogoff.html

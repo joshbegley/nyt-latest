@@ -1,3 +1,7 @@
+**Video Pushed Local Police to Come Clean. D.H.S. Is Ignoring the Lessons.**\
+`The agency has said little about two fatal encounters in the past week. Local police departments have learned to be forthcoming.`\
+https://www.nytimes.com/2026/07/15/us/ice-public-statements.html
+
 **Door-to-Door Search for Grapevines Sold at Costco Begins in California’s Santa Clara County**\
 `Officials in Santa Clara County began knocking on doors on Monday to collect potentially infested plants sold at some Costco stores.`\
 https://www.nytimes.com/2026/07/15/us/california-costco-plants-recall.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-o
 **Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
 `Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health hazards.`\
 https://www.nytimes.com/article/heat-air-pollution-climate.html
-
-**Scott Bryce, ‘As the World Turns’ Actor, Dies at 68**\
-`He originated the role of the scheming Craig Montgomery and appeared in 280 episodes of the CBS soap opera over more than two decades.`\
-https://www.nytimes.com/2026/07/15/arts/television/scott-bryce-dead.html
 
