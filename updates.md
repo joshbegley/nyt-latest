@@ -1,3 +1,15 @@
+**Archaeologists Unearth a 2,400-Year-Old Sanctuary for the Worship of Odysseus**\
+`The ruins of a 2,400-year-old complex suggest that, to the Greeks of antiquity, Homer’s protagonist was not just a character in a poem but a figure of genuine devotion.`\
+https://www.nytimes.com/2026/07/15/science/archaeology-homer-odyssey-ithaca.html
+
+**Mapa: la trayectoria de la tormenta tropical Elida en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Elida.`\
+https://www.nytimes.com/es/interactive/2026/07/15/espanol/elida-mapa-trayectoria.html
+
+**Wildfires Rage in Ontario as Smoke Affects Toronto’s Air Quality**\
+`Air quality in Canada’s largest city was at times the worst in the world on Wednesday, as wildfires across Ontario sent smoke drifting into New York City and beyond.`\
+https://www.nytimes.com/2026/07/15/world/canada/wildfire-smoke-toronto-ontario-northeast.html
+
 **Maps: Tracking Tropical Storm Elida**\
 `See the likely path and wind arrival times for Elida`\
 https://www.nytimes.com/interactive/2026/07/15/weather/elida-map-path-tracker.html

@@ -1,3 +1,7 @@
+**Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
+`Kathryn Ruemmler, the former general counsel of Goldman Sachs testified on Wednesday in a closed door congressional hearing investigating Jeffery Epstein.`\
+https://www.nytimes.com/2026/07/15/business/goldman-kathy-ruemmler-epstein.html
+
 **Archaeologists Unearth a 2,400-Year-Old Sanctuary for the Worship of Odysseus**\
 `The ruins of a 2,400-year-old complex suggest that, to the Greeks of antiquity, Homer’s protagonist was not just a character in a poem but a figure of genuine devotion.`\
 https://www.nytimes.com/2026/07/15/science/archaeology-homer-odyssey-ithaca.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/style/ari-emanuel-rahm-emanuel-2028.html
 **Cyclospora Cases Rise Rapidly, With No Source Yet Confirmed**\
 `The parasite, which has sickened thousands across the U.S., is notoriously difficult to track. Funding cuts haven’t made the job easier.`\
 https://www.nytimes.com/2026/07/15/well/eat/cyclospora-outbreak-response.html
-
-**How I Stayed Sane as a World Cup Goalkeeper**\
-`How new soccer strategies changed the way goalkeepers play.`\
-https://www.nytimes.com/2026/07/15/opinion/world-cup-soccer-football-goalkeeper.html
 
