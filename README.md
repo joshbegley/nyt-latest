@@ -1,3 +1,7 @@
+**La Cámara de Representantes de EE. UU. vota a favor del horario de verano permanente**\
+`Republicanos y demócratas de la Cámara se unieron a favor de un proyecto de ley para eliminar el cambio de reloj semestral, pero la medida enfrenta un destino incierto en el Senado.`\
+https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/horario-de-verano-eeuu.html
+
 **Trump Endorses Mike Lindell, MyPillow Founder, for Minnesota Governor**\
 `He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
 https://www.nytimes.com/2026/07/15/us/trump-mike-lindell-endorsement-minnesota.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/crosswords/strands-sidekick-865.html
 **Today’s Wordle Hints for July 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/15/crosswords/wordle-review-1853.html
-
-**Wildfire Smoke Spreads Across the Northeast as Temperatures Spike**\
-`A heat dome is responsible for miserably high temperatures, and it’s also helping to push smoke from wildfires to the east.`\
-https://www.nytimes.com/2026/07/15/weather/heat-dome-wildfire-smoke-minnesota-canada-nyc.html
 
