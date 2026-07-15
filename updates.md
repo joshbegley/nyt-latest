@@ -1,3 +1,7 @@
+**House G.O.P. Releases Budget to Unlock $95 Billion for Iran War and SAVE Act**\
+`The plan faces a rocky path amid Republican divisions and would pave the way for votes months before the midterm elections to fund a war that polls show is deeply unpopular.`\
+https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
+
 **Trump Pressures ICE to Resume Traffic Stops After Agency Pulls Back**\
 `Immigration and Customs Enforcement ordered its officers on Tuesday to halt most vehicle stops across the country after they shot two people over the past week.`\
 https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html

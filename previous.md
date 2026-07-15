@@ -1,3 +1,7 @@
+**House G.O.P. Releases Budget to Unlock $95 Billion for Iran War and SAVE Act**\
+`The plan faces a rocky path amid Republican divisions and would pave the way for votes months before the midterm elections to fund a war that polls show is deeply unpopular.`\
+https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
+
 **Trump Pressures ICE to Resume Traffic Stops After Agency Pulls Back**\
 `Immigration and Customs Enforcement ordered its officers on Tuesday to halt most vehicle stops across the country after they shot two people over the past week.`\
 https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/world/europe/ukraine-russia-crimea-azov-sea.h
 **Small Tribes Say They Lack the Clout to Secure Federal Recognition**\
 `The federal government can confer health care, education, housing and casino rights, but for small bands like many in the Pacific Northwest, recognition takes political muscle they don’t have.`\
 https://www.nytimes.com/2026/07/15/us/tribes-federal-recognition.html
-
-**Book Review: ‘They Stole a City,’ by Lauren Collins**\
-`A new book by the journalist Lauren Collins chronicles the ongoing effects of the violent takeover of Wilmington, N.C., on those living in its aftermath.`\
-https://www.nytimes.com/2026/07/15/books/review/they-stole-a-city-lauren-collins.html
 
