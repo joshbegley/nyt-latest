@@ -1,3 +1,7 @@
+**Wildfire Smoke Spreads Across the Northeast as Temperatures Spike**\
+`A heat dome is responsible for miserably high temperatures, and it’s also helping to push smoke from wildfires to the east.`\
+https://www.nytimes.com/2026/07/15/weather/heat-dome-wildfire-smoke-minnesota-canada-nyc.html
+
 **De líder revolucionario a colaborador de EE. UU.: el nuevo rol de Diosdado Cabello en Venezuela**\
 `La recompensa de 25 millones de dólares y una larga lista de presuntos delitos no ha impedido que el ministro, y otros funcionarios venezolanos, colaboren con el gobierno estadounidense que alguna vez los persiguió.`\
 https://www.nytimes.com/es/2026/07/15/espanol/america-latina/diosdado-cabello-venezuela-recompensa.html
