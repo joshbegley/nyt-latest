@@ -1,3 +1,7 @@
+**Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
+`Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue those who were stranded.`\
+https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
+
 **Lemon Yogurt Cheesecake**\
 `This tart and tangy cheesecake utilizes lots of lemon zest and juice for a punchy, bright flavor, plus Greek yogurt for a smooth, light texture that is irresistible.`\
 https://www.nytimes.com/video/dining/100000011033302/lemon-yogurt-cheesecake.html
