@@ -1,3 +1,11 @@
+**Fatal Encounters**\
+`We look at shootings by federal immigration agents.`\
+https://www.nytimes.com/2026/07/15/briefing/ice-shootings-houston-maine.html
+
+**For Israel, the U.S.-Iran Hostilities Have Created an Uneasy Limbo**\
+`Officials see a return to full-blown war as preferable to an agreement that fails to curb the threats Iran poses to Israel. Meanwhile, they wait.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/israel-us-iran-trump.html
+
 **Jay Clayton Expected to Face Tough Questions in Confirmation Hearing**\
 `His nomination to lead the U.S. intelligence community comes as the White House pushes to use declassified intelligence to show concerns about election security.`\
 https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-confirmation-hearing-director-national-intelligence.html
