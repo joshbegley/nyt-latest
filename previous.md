@@ -1,3 +1,11 @@
+**Live Updates: Todd Blanche, Trump’s Attorney General Pick, Faces Confirmation Hearing**\
+`Mr. Blanche, the acting attorney general who has led the Justice Department since Pam Bondi was fired, previously led Mr. Trump’s criminal defense team. He could face sharp questions from Republicans.`\
+https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
+
+**California Weather Shift Brings With It a Risk of Unhealthy Heat and Wildfires**\
+`Wednesday will bring some of the hottest temperatures of the year, and fire experts are warning of combustible conditions throughout the state.`\
+https://www.nytimes.com/2026/07/15/weather/california-heat-fire-forecast.html
+
 **The Vague Clause That Helps Explain the U.S.-Iran Fight Over the Strait of Hormuz**\
 `The memorandum of understanding between the United States and Iran has done little to calm tension, in part because they disagree on what it actually means.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-hormuz-strait.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/15/learning/word-of-the-day-totter.html
 **Why Did a Major Museum’s Bong Show Go Up in Smoke?**\
 `After the Toledo Museum of Art canceled a pioneering exhibition of glass cannabis pipes, many people wondered what lay behind the decision.`\
 https://www.nytimes.com/2026/07/15/arts/design/cannabis-glass-pipes-toledo-art-museum.html
-
-**The American E.V. Has Been Crushed. Will It Take the U.S. Auto Industry With It?**\
-`The largest U.S. automakers have backed away from electric vehicles, even as global sales are booming. The decision may make them obsolete.`\
-https://www.nytimes.com/2026/07/15/magazine/electric-cars-american-evs.html
-
-**For the Eclipse or a Weekend, How to Save Money in Reykjavik**\
-`A museum pass, public hot springs and free airline stopovers help shrink the cost of visiting Iceland’s capital.`\
-https://www.nytimes.com/2026/07/15/travel/how-to-save-money-in-reykjavik.html
 

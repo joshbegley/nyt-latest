@@ -1,3 +1,11 @@
+**Live Updates: Todd Blanche, Trump’s Attorney General Pick, Faces Confirmation Hearing**\
+`Mr. Blanche, the acting attorney general who has led the Justice Department since Pam Bondi was fired, previously led Mr. Trump’s criminal defense team. He could face sharp questions from Republicans.`\
+https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
+
+**California Weather Shift Brings With It a Risk of Unhealthy Heat and Wildfires**\
+`Wednesday will bring some of the hottest temperatures of the year, and fire experts are warning of combustible conditions throughout the state.`\
+https://www.nytimes.com/2026/07/15/weather/california-heat-fire-forecast.html
+
 **We’re About to Find Out Whether Republican Senators Can Still Say No**\
 `Republicans should have the decency, patriotism and self-respect to vote against Mr. Blanche.`\
 https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-hearing.html
