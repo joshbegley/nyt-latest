@@ -1,3 +1,7 @@
+**U.S. and Iran Continue Trading Fire**\
+`The United States and Iran exchanged strikes for a fifth consecutive day on Wednesday, a day after President Trump threatened to target Iran’s civilian infrastructure if the country refused to negotiate.`\
+https://www.nytimes.com/video/world/middleeast/100000011032002/us-iran-strikes-mideast-war.html
+
 **Today, In Short**\
 `Hiking. “The Odyssey.” And a T. rex.`\
 https://www.nytimes.com/2026/07/15/briefing/today-in-short.html
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-f
 `The plan faces a rocky path amid Republican divisions and would pave the way for votes months before the midterm elections to fund a war that polls show is deeply unpopular.`\
 https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
 
-**Trump Pressures ICE to Resume Traffic Stops After Agency Pulls Back**\
+**Trump Pressures ICE to Resume Traffic Stops After They Were Halted Over Fatal Shootings**\
 `Immigration and Customs Enforcement ordered its officers on Tuesday to halt most vehicle stops across the country after they shot two people over the past week.`\
 https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
 **We’re About to Find Out Whether Republican Senators Can Still Say No**\
 `Republicans should have the decency, patriotism and self-respect to vote against Mr. Blanche.`\
 https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-hearing.html
-
-**Todd Blanche Faces Crucial Hurdle Ahead of Confirmation as Attorney General**\
-`Todd Blanche’s nomination is broadly a referendum on President Trump’s vision of the Justice Department as a projection of his power.`\
-https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation-doj.html
 
