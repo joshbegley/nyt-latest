@@ -1,8 +1,12 @@
+**Trump Pressures ICE to Resume Traffic Stops After Agency Pulls Back**\
+`Immigration and Customs Enforcement ordered its officers on Tuesday to halt most vehicle stops across the country after they shot two people over the past week.`\
+https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html
+
 **Blanche’s Family Ties to Gun Industry Are Likely to Raise Questions**\
 `Democrats and gun control advocates are concerned that his comments about Check-Mate Industries, a company led by his mother-in-law that manufactures magazines, reveal a conflict of interest.`\
 https://www.nytimes.com/2026/07/15/us/politics/blanche-gun-industry-confirmation-hearing.html
 
-**What to Know About Trump’s Immunity from the I.R.S.**\
+**What to Know About Todd Blanche’s Order Granting Trump Immunity From I.R.S. Audits**\
 `Acting attorney general Todd Blanche’s decision to grant President Trump protection from I.R.S. audits is set to be a central issue in his confirmation hearing on Wednesday.`\
 https://www.nytimes.com/2026/07/15/us/politics/trump-irs-lawsuit-immunity-blanche.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/us/tribes-federal-recognition.html
 **Book Review: ‘They Stole a City,’ by Lauren Collins**\
 `A new book by the journalist Lauren Collins chronicles the ongoing effects of the violent takeover of Wilmington, N.C., on those living in its aftermath.`\
 https://www.nytimes.com/2026/07/15/books/review/they-stole-a-city-lauren-collins.html
-
-**Watch A.I.M by Kyle Abraham Perform in The New York Times Office**\
-`Watch A.I.M by Kyle Abraham perform a new work at T Magazine’s New York City headquarters.`\
-https://www.nytimes.com/2026/07/15/t-magazine/aim-kyle-abraham-white-space-nyt-office.html
 
