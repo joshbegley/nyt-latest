@@ -1,3 +1,15 @@
+**Blanche’s Family Ties to Gun Industry Are Likely to Raise Questions**\
+`Democrats and gun control advocates are concerned that his comments about Check-Mate Industries, a company led by his mother-in-law that manufactures magazines, reveal a conflict of interest.`\
+https://www.nytimes.com/2026/07/15/us/politics/blanche-gun-industry-confirmation-hearing.html
+
+**What to Know About Trump’s Immunity from the I.R.S.**\
+`Acting attorney general Todd Blanche’s decision to grant President Trump protection from I.R.S. audits is set to be a central issue in his confirmation hearing on Wednesday.`\
+https://www.nytimes.com/2026/07/15/us/politics/trump-irs-lawsuit-immunity-blanche.html
+
+**Is This the Fastest Opinion Shift in American Politics?**\
+`David Wallace-Wells and Robinson Meyer discuss whether the gathering coalition of Americans against data centers could be the next Occupy Wall Street movement or Tea Party.`\
+https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
+
 **What to Know About Trump’s Immunity from the I.R.S.**\
 `Acting attorney general Todd Blanche’s decision to grant President Trump protection from I.R.S. audits is set to be a central issue in his confirmation hearing on Wednesday.`\
 https://www.nytimes.com/2026/07/15/us/politics/what-to-know-about-trumps-immunity-from-the-irs.html
