@@ -1,3 +1,7 @@
+**Blanche Faces Crucial Hurdle After Rocky Hearing**\
+`Even a single Republican “no” vote would block Mr. Blanche’s nomination from consideration by the full Senate, which could sink his confirmation.`\
+https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation.html
+
 **The Good List: 6 Things to Add Some Delight to Your Day**\
 `Odysseus’ social network, performative boredom and decorated envelopes.`\
 https://www.nytimes.com/2026/07/15/briefing/15-the-good-list-odyssey-elizabeth-gilbert.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/article/alpha-gal-syndrome-lone-star-ticks.html
 **Are We Still Supposed to Take This Conservative Legal Theory Seriously?**\
 `Has the court learned nothing?`\
 https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploader-93567.html
 

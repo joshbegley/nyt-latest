@@ -1,3 +1,7 @@
+**Blanche Faces Crucial Hurdle After Rocky Hearing**\
+`Even a single Republican “no” vote would block Mr. Blanche’s nomination from consideration by the full Senate, which could sink his confirmation.`\
+https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation.html
+
 **The Good List: 6 Things to Add Some Delight to Your Day**\
 `Odysseus’ social network, performative boredom and decorated envelopes.`\
 https://www.nytimes.com/2026/07/15/briefing/15-the-good-list-odyssey-elizabeth-gilbert.html
