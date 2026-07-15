@@ -1,3 +1,11 @@
+**De líder revolucionario a colaborador de EE. UU.: el nuevo rol de Diosdado Cabello en Venezuela**\
+`La recompensa de 25 millones de dólares y una larga lista de presuntos delitos no ha impedido que el ministro, y otros funcionarios venezolanos, colaboren con el gobierno estadounidense que alguna vez los persiguió.`\
+https://www.nytimes.com/es/2026/07/15/espanol/america-latina/diosdado-cabello-venezuela-recompensa.html
+
+**Oil, Shipping, Flights: Disruptions Are Back as U.S.-Iran War Reignites**\
+`Higher prices for energy, food and air travel are likely to persist as the two sides escalate their clash over the Strait of Hormuz and launch airstrikes in the Middle East.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-oil-shipping-flight-disruptions.html
+
 **The Seduction of Lindsey Graham**\
 `He could see the obvious truth that Trump was a malign and corrosive force in American politics — that is, until Trump won the White House.`\
 https://www.nytimes.com/2026/07/15/opinion/lindsey-graham-donald-trump.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/07/15/world/asia/china-seismologist-north-korea-nuc
 `The House voted on Tuesday to make daylight saving time permanent. The bill now faces an uncertain fate in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011031805/daylight-saving-time-permanent-bill-house.html
 
-**What Trump’s New Iran Blockade Could Mean for Oil Prices**\
-`The first blockade in April choked off Iranian exports without causing a lasting price surge. Now global oil reserves are lower, and ships face heightened risks.`\
-https://www.nytimes.com/2026/07/15/business/trump-iran-blockade-oil-prices.html
-
 **Iran War Live Updates: Fears of Return to Full-Scale Conflict As Strikes Intensify**\
 `President Trump told Fox News that American forces would keep attacking until Iran agreed to negotiate. Tehran responded to a fourth straight night of strikes by targeting American military sites in the region.`\
 https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz
-
-**China’s Chip Champion to Raise Billions in Race for A.I. Control**\
-`CXMT, a linchpin in China’s drive to develop homegrown artificial intelligence technology, is aiming to raise nearly $10 billion in a blockbuster public offering in Shanghai.`\
-https://www.nytimes.com/2026/07/15/business/china-chips-cxmt-ipo.html
 
