@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 15, 2026**\
+`Jonathan Raksin and Jeff Chen enter this week’s constructor rotation.`\
+https://www.nytimes.com/2026/07/14/crosswords/daily-puzzle-2026-07-15.html
+
 **Polls: What’s Driving Support for Senate Candidates in Battleground States?**\
 `A New York Times/Siena poll of battleground states showed a mix of voter motivations, with the strongest candidates proving more popular than their parties.`\
 https://www.nytimes.com/interactive/2026/07/14/polls/senate-elections-voters-polls.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-represalias-e
 **Texas Faces Potentially ‘Catastrophic’ Amounts of Rain**\
 `Intense storms overnight dropped heavy rain, and more was falling Tuesday. Forecasters warned about the increasing likelihood of flooding across the state.`\
 https://www.nytimes.com/2026/07/14/weather/texas-flash-flooding-rain.html
-
-**Iran’s Former Leader Denies Times Report**\
-`The Times reported that Israel had planned to reinstall Mahmoud Ahmadinejad as Iran’s leader after the war.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/mahmoud-ahmadinejad-iran-israeli-asset.html
 

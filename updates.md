@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 15, 2026**\
+`Jonathan Raksin and Jeff Chen enter this week’s constructor rotation.`\
+https://www.nytimes.com/2026/07/14/crosswords/daily-puzzle-2026-07-15.html
+
 **Polls: What’s Driving Support for Senate Candidates in Battleground States?**\
 `A New York Times/Siena poll of battleground states showed a mix of voter motivations, with the strongest candidates proving more popular than their parties.`\
 https://www.nytimes.com/interactive/2026/07/14/polls/senate-elections-voters-polls.html
