@@ -1,3 +1,7 @@
+**Rescue Effort Underway After Boat Capsizes Near Alcatraz**\
+`A three-story pleasure boat carrying 19 people capsized near Alcatraz Island on Tuesday. At least one person died and two were missing, officials said.`\
+https://www.nytimes.com/video/us/100000011031757/alcatraz-san-francisco-pontoon-boat-fire-sink.html
+
 **China’s Economy Grows at Slowest Pace in Years**\
 `Economic growth of 4.3 percent in the second quarter, versus the same period last year, reflected a broad slump outside of the country’s export-oriented manufacturing might.`\
 https://www.nytimes.com/2026/07/15/business/china-economy-gdp-growth.html
