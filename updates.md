@@ -1,3 +1,7 @@
+**La muerte de Joan Sebastian Guerrero en Maine desata nuevas preguntas sobre ICE**\
+`La muerte de Joan Sebastián Durán Guerrero, padre de familia y trabajador con permiso legal, ha profundizado el debate sobre el alcance y la violencia de la ofensiva migratoria.`\
+https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/colombiano-asesinado-ice-maine-migrante-legal.html
+
 **Estos animales eran diestros mucho antes de que hubiera manos**\
 `Un grupo de científicos propone que unos fósiles descubiertos hace poco podrían ser la evidencia más antigua de “lateralidad” de comportamiento en los animales.`\
 https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/animales-diestros-zurdos.html
