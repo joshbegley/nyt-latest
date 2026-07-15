@@ -1,3 +1,7 @@
+**Australia to Impose Energy and Water Guardrails on Data Centers Amid A.I. Boom**\
+`The country will also seek to protect the rights of creators of work used to train artificial intelligence models, as it aims to impose parameters on the growing industry.`\
+https://www.nytimes.com/2026/07/15/world/asia/australia-artificial-intelligence-guardrails.html
+
 **Fatal Encounters**\
 `We look at shootings by federal immigration agents.`\
 https://www.nytimes.com/2026/07/15/briefing/ice-shootings-houston-maine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/travel/how-to-save-money-in-reykjavik.html
 **A Real Estate Guide to Stockton, N.J.**\
 `Historic stone buildings and a thriving restaurant scene meet the rural landscape of the Delaware Valley.`\
 https://www.nytimes.com/2026/07/15/realestate/stockton-nj-a-friendly-river-town.html
-
-**Book Review: ‘Air,’ by Christian Kracht**\
-`In “Air,” by the Swiss writer Christian Kracht, a decorator’s unusual commission leads abruptly into another universe.`\
-https://www.nytimes.com/2026/07/15/books/review/christian-kracht-air.html
 
