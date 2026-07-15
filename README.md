@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-
 https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
 
 **Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
-`Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue those who were stranded.`\
+`Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who were stranded.`\
 https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
 
 **New Jersey Couple Aids Meteorite Discovery After it Crashes Through Their Roof**\
