@@ -1,3 +1,19 @@
+**La Cámara de Representantes de EE. UU. vota a favor del horario de verano permanente**\
+`Republicanos y demócratas de la Cámara se unieron a favor de un proyecto de ley para eliminar el cambio de reloj semestral, pero la medida enfrenta un destino incierto en el Senado.`\
+https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/horario-de-verano-eeuu.html
+
+**Trump Endorses Mike Lindell, MyPillow Founder, for Minnesota Governor**\
+`He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
+https://www.nytimes.com/2026/07/15/us/trump-mike-lindell-endorsement-minnesota.html
+
+**SpaceX Falls Below I.P.O. Price of $135**\
+`After soaring in its stock market debut, the shares of Elon Musk’s rocket and A.I. company have been rocky.`\
+https://www.nytimes.com/2026/07/15/business/spacex-ipo-price.html
+
+**War Risk for Businesses Will Mean Higher Prices No Matter What Happens**\
+`Doing business in a more dangerous and unpredictable world will cost more, pushing up the price of everything from food to electronics.`\
+https://www.nytimes.com/2026/07/15/business/economy/iran-war-inflation-supply-chains.html
+
 **‘The Odyssey’ Review: Passion in Every Frame**\
 `Few directors close the divide between the art film and the blockbuster like Christopher Nolan.`\
 https://www.nytimes.com/2026/07/15/movies/the-odyssey-review.html

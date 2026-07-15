@@ -1,3 +1,19 @@
+**La Cámara de Representantes de EE. UU. vota a favor del horario de verano permanente**\
+`Republicanos y demócratas de la Cámara se unieron a favor de un proyecto de ley para eliminar el cambio de reloj semestral, pero la medida enfrenta un destino incierto en el Senado.`\
+https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/horario-de-verano-eeuu.html
+
+**Trump Endorses Mike Lindell, MyPillow Founder, for Minnesota Governor**\
+`He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
+https://www.nytimes.com/2026/07/15/us/trump-mike-lindell-endorsement-minnesota.html
+
+**SpaceX Falls Below I.P.O. Price of $135**\
+`After soaring in its stock market debut, the shares of Elon Musk’s rocket and A.I. company have been rocky.`\
+https://www.nytimes.com/2026/07/15/business/spacex-ipo-price.html
+
+**War Risk for Businesses Will Mean Higher Prices No Matter What Happens**\
+`Doing business in a more dangerous and unpredictable world will cost more, pushing up the price of everything from food to electronics.`\
+https://www.nytimes.com/2026/07/15/business/economy/iran-war-inflation-supply-chains.html
+
 **‘The Odyssey’ Review: Passion in Every Frame**\
 `Few directors close the divide between the art film and the blockbuster like Christopher Nolan.`\
 https://www.nytimes.com/2026/07/15/movies/the-odyssey-review.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/07/15/crosswords/strands-sidekick-865.html
 **Today’s Wordle Hints for July 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/15/crosswords/wordle-review-1853.html
-
-**Wildfire Smoke Spreads Across the Northeast as Temperatures Spike**\
-`A heat dome is responsible for miserably high temperatures, and it’s also helping to push smoke from wildfires to the east.`\
-https://www.nytimes.com/2026/07/15/weather/heat-dome-wildfire-smoke-minnesota-canada-nyc.html
-
-**De líder revolucionario a colaborador de EE. UU.: el nuevo rol de Diosdado Cabello en Venezuela**\
-`La recompensa de 25 millones de dólares y una larga lista de presuntos delitos no ha impedido que el ministro, y otros funcionarios venezolanos, colaboren con el gobierno estadounidense que alguna vez los persiguió.`\
-https://www.nytimes.com/es/2026/07/15/espanol/america-latina/diosdado-cabello-venezuela-recompensa.html
-
-**Oil, Shipping, Flights: Disruptions Are Back as U.S.-Iran War Reignites**\
-`Higher prices for energy, food and air travel are likely to persist as the two sides escalate their clash over the Strait of Hormuz and launch airstrikes in the Middle East.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-oil-shipping-flight-disruptions.html
-
-**The Seduction of Lindsey Graham**\
-`He could see the obvious truth that Trump was a malign and corrosive force in American politics — that is, until Trump won the White House.`\
-https://www.nytimes.com/2026/07/15/opinion/lindsey-graham-donald-trump.html
 
