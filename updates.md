@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011033167/15vid-tillis-mirror-sot-vert.html
+
+**Judge Dismisses Suit Accusing Apple of Failing to Limit Child Sex Abuse Material**\
+`The lawsuit highlighted concerns that the privacy of Apple’s iCloud allows illegal material to be easily stored and shared on the service.`\
+https://www.nytimes.com/2026/07/15/technology/apple-lawsuit-child-sexual-abuse-dismissed.html
+
+**Inside Maine Democrats’ Search for a New Senate Nominee After Graham Platner’s Exit**\
+`Democratic candidates are hastily building bare-bones campaigns and forgoing traditional outreach like TV ads in a sprint to appeal to party delegates, rather than Maine voters.`\
+https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-convention.html
+
 **He Wanted to Be John Travolta. Instead, He Became ‘Kaves.’**\
 `As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhod changed his mind.`\
 https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
