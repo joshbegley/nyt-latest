@@ -1,3 +1,27 @@
+**Democrats Question Trump’s Top Intelligence Pick Over 2020 Elections**\
+`Jay Clayton, President Trump’s nominee to lead the nation’s intelligence community, was repeatedly questioned by Democrat senators about the 2020 election during his confirmation hearing.`\
+https://www.nytimes.com/video/us/politics/100000011032536/democrats-question-trumps-top-intelligence-pick-over-2020-elections.html
+
+**PEN America Defends Israel Article That Led to President’s Resignation**\
+`A co-chief executive of the free expression group said a recent article about Israeli and Jewish writers had been “critical” to pursue.`\
+https://www.nytimes.com/2026/07/15/arts/pen-america-israel-gaza-report.html
+
+**Here Are the Maine Democrats Running to Replace Graham Platner**\
+`To win, they’ll have to convince Democrats at a July 25 convention that they’re the best candidate to take on Senator Susan Collins, a Republican.`\
+https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-candidates.html
+
+**Ukraine’s Minister of Defense, a Proponent of Drone War, Steps Down**\
+`Mykhailo Fedorov announced he was leaving the ministry on Wednesday after conflicts with generals and military contractors over the role of innovative robot and drone weapons in war.`\
+https://www.nytimes.com/2026/07/15/world/europe/ukraine-minister-of-defense-mykhailo-fedorov-zelensky-war-russia.html
+
+**Almost Half of House Democrats Vote to End Aid to Israel**\
+`The measure failed, but the level of support among Democrats exposed a stark shift in the party away from backing the Jewish state.`\
+https://www.nytimes.com/2026/07/15/us/politics/democrats-house-israel-vote-aid.html
+
+**Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
+`Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health hazards.`\
+https://www.nytimes.com/article/heat-air-pollution-climate.html
+
 **England Lost the World Cup. It Was Always Going to Lose.**\
 `The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
 https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html

@@ -1,3 +1,19 @@
+**Democrats Question Trump’s Top Intelligence Pick Over 2020 Elections**\
+`Jay Clayton, President Trump’s nominee to lead the nation’s intelligence community, was repeatedly questioned by Democrat senators about the 2020 election during his confirmation hearing.`\
+https://www.nytimes.com/video/us/politics/100000011032536/democrats-question-trumps-top-intelligence-pick-over-2020-elections.html
+
+**PEN America Defends Israel Article That Led to President’s Resignation**\
+`A co-chief executive of the free expression group said a recent article about Israeli and Jewish writers had been “critical” to pursue.`\
+https://www.nytimes.com/2026/07/15/arts/pen-america-israel-gaza-report.html
+
+**Here Are the Maine Democrats Running to Replace Graham Platner**\
+`To win, they’ll have to convince Democrats at a July 25 convention that they’re the best candidate to take on Senator Susan Collins, a Republican.`\
+https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-candidates.html
+
+**Ukraine’s Minister of Defense, a Proponent of Drone War, Steps Down**\
+`Mykhailo Fedorov announced he was leaving the ministry on Wednesday after conflicts with generals and military contractors over the role of innovative robot and drone weapons in war.`\
+https://www.nytimes.com/2026/07/15/world/europe/ukraine-minister-of-defense-mykhailo-fedorov-zelensky-war-russia.html
+
 **England Lost the World Cup. It Was Always Going to Lose.**\
 `The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
 https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
@@ -22,7 +38,7 @@ https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-per
 `Following the collapse of the cease-fire with Iran, President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran.`\
 https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
 
-**Democrats Flock to House Proposal to End Aid to Israel**\
+**Almost Half of House Democrats Vote to End Aid to Israel**\
 `The measure failed, but the level of support among Democrats exposed a stark shift in the party away from backing the Jewish state.`\
 https://www.nytimes.com/2026/07/15/us/politics/democrats-house-israel-vote-aid.html
 
@@ -135,7 +151,7 @@ https://www.nytimes.com/2026/07/15/science/meteorite-new-jersey.html
 https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-out-its-orange-lips.html
 
 **Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
-`Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
+`Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health hazards.`\
 https://www.nytimes.com/article/heat-air-pollution-climate.html
 
 **Scott Bryce, ‘As the World Turns’ Actor, Dies at 68**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/07/15/world/middleeast/us-iran-hormuz-greater-tunb-
 **How charities fight crime**\
 `The final entry in our series on the opposite of violence.`\
 https://www.nytimes.com/2026/07/15/headway/newsletter-how-charities-fight-crime.html
-
-**Indicted Tycoon Says $10 Billion Offer Did Not Spur U.S. to Drop Charges**\
-`Gautam Adani, India’s richest man, was accused of fraud and bribery in Federal District Court in Brooklyn. Then President Trump’s Justice Department moved to drop the charges.`\
-https://www.nytimes.com/2026/07/15/nyregion/gautam-adani-corruption-dropped.html
-
-**Is Dating a Colleague a Good Idea?**\
-`Readers weigh the pros and cons of dating a co-worker, in response to an Opinion guest essay. Also: Killings in Minnesota; safety on the road.`\
-https://www.nytimes.com/2026/07/15/opinion/dating-co-workers.html
-
-**Our Top Editor on Subpoenas of Times Journalists**\
-`The Trump administration issued subpoenas to reporters who wrote about security concerns involving the new Air Force One. Joe Kahn, the executive editor of The New York Times, responds to what he calls a “naked attempt to intimidate” the newspaper.`\
-https://www.nytimes.com/video/insider/100000011030047/our-top-editor-on-subpoenas-of-times-journalists.html
-
-**‘The Potluck’ Review: The Greensboro Massacre, and a Heavy Legacy to Bear**\
-`César Alvarez’s ambitious new work is a mixed musical meal: It wants to be a call to revolutionary action but is surprisingly lacking in it.`\
-https://www.nytimes.com/2026/07/15/theater/the-potluck-review-cesar-alvarez.html
 
