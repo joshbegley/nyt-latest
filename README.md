@@ -1,3 +1,7 @@
+**Our Top Editor on Subpoenas of Times Journalists**\
+`The Trump administration issued subpoenas to reporters who wrote about security concerns involving the new Air Force One. Joe Kahn, the executive editor of The New York Times, responds to what he calls a “naked attempt to intimidate” the newspaper.`\
+https://www.nytimes.com/video/insider/100000011030047/our-top-editor-on-subpoenas-of-times-journalists.html
+
 **‘The Potluck’ Review: The Greensboro Massacre, and a Heavy Legacy to Bear**\
 `César Alvarez’s ambitious new work is a mixed musical meal: It wants to be a call to revolutionary action but is surprisingly lacking in it.`\
 https://www.nytimes.com/2026/07/15/theater/the-potluck-review-cesar-alvarez.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/podcasts/the-headlines/trump-trait-of-hormuz-
 **NYT Connections Answers for July 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/15/crosswords/connections-companion-1131.html
-
-**NYT Strands Hints for July 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
-https://www.nytimes.com/2026/07/15/crosswords/strands-sidekick-865.html
 

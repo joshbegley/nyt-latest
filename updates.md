@@ -1,3 +1,11 @@
+**‘The Potluck’ Review: The Greensboro Massacre, and a Heavy Legacy to Bear**\
+`César Alvarez’s ambitious new work is a mixed musical meal: It wants to be a call to revolutionary action but is surprisingly lacking in it.`\
+https://www.nytimes.com/2026/07/15/theater/the-potluck-review-cesar-alvarez.html
+
+**When Originalism Jumped the Shark**\
+`Has the court learned nothing?`\
+https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.html
+
 **La Cámara de Representantes de EE. UU. vota a favor del horario de verano permanente**\
 `Republicanos y demócratas de la Cámara se unieron a favor de un proyecto de ley para eliminar el cambio de reloj semestral, pero la medida enfrenta un destino incierto en el Senado.`\
 https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/horario-de-verano-eeuu.html
