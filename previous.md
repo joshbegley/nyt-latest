@@ -1,3 +1,15 @@
+**Cómo superé mi adicción al algoritmo sin ayuda de la tecnología**\
+`Probé muchos trucos para dejar de usar tanto las redes sociales. Lo que mejor me funcionó fue un simple ajuste en mi casa.`\
+https://www.nytimes.com/es/2026/07/15/espanol/opinion/adiccion-tiktok-instagram-algoritmo.html
+
+**La guerra para salvar a las abejas de la invasión de avispones**\
+`A medida que los avispones de patas amarillas se expanden por la región de Lowcountry, en Carolina del Sur, y amenazan la producción local de miel, un equipo estatal de defensores de las abejas corre al rescate.`\
+https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/como-salvar-abejas-avispones.html
+
+**Argentina vs. Inglaterra: un partido de semifinal cargado de historia**\
+`La semifinal del Mundial reaviva décadas de rivalidad marcadas por el enfrentamiento de 1986, la guerra de las Malvinas y la figura de Diego Maradona.`\
+https://www.nytimes.com/es/2026/07/15/espanol/deportes/argentina-inglaterra-partido-semifinal.html
+
 **Late Night Calls Lindsey Graham’s Senate Seat ‘an Inheritance Jackpot’**\
 `“A Senate seat? Most people just get a garage full of damp boxes,” Michael Kosta said of Graham’s sister filling the late senator’s seat on “The Daily Show.”`\
 https://www.nytimes.com/2026/07/15/arts/television/late-night-lindsey-graham-sister-senator.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/14/learning/138-picture-prompts-to-inspire-stude
 **Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
 `The City Council speaker, Julie Menin, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
 https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
-
-**Public Health Groups Sue F.D.A. Over Flavored E-Cigarette Policy**\
-`Executives unhappy with the agency donated and lobbied President Trump directly. Major companies have already begun to prepare and ship new products.`\
-https://www.nytimes.com/2026/07/14/health/flavored-vapes-fda.html
-
-**Muere Antonio Rattín, futbolista de Argentina**\
-`La expulsión del astro del fútbol argentino durante un partido contra Inglaterra en 1966 llevó a la introducción de las tarjetas amarillas y rojas.`\
-https://www.nytimes.com/es/2026/07/14/espanol/deportes/muere-antonio-rattin-argentina-mundial.html
-
-**Restaurant Review: Demo in New York**\
-`Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
-https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
 

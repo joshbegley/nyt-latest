@@ -1,3 +1,15 @@
+**Cómo superé mi adicción al algoritmo sin ayuda de la tecnología**\
+`Probé muchos trucos para dejar de usar tanto las redes sociales. Lo que mejor me funcionó fue un simple ajuste en mi casa.`\
+https://www.nytimes.com/es/2026/07/15/espanol/opinion/adiccion-tiktok-instagram-algoritmo.html
+
+**La guerra para salvar a las abejas de la invasión de avispones**\
+`A medida que los avispones de patas amarillas se expanden por la región de Lowcountry, en Carolina del Sur, y amenazan la producción local de miel, un equipo estatal de defensores de las abejas corre al rescate.`\
+https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/como-salvar-abejas-avispones.html
+
+**Argentina vs. Inglaterra: un partido de semifinal cargado de historia**\
+`La semifinal del Mundial reaviva décadas de rivalidad marcadas por el enfrentamiento de 1986, la guerra de las Malvinas y la figura de Diego Maradona.`\
+https://www.nytimes.com/es/2026/07/15/espanol/deportes/argentina-inglaterra-partido-semifinal.html
+
 **Late Night Calls Lindsey Graham’s Senate Seat ‘an Inheritance Jackpot’**\
 `“A Senate seat? Most people just get a garage full of damp boxes,” Michael Kosta said of Graham’s sister filling the late senator’s seat on “The Daily Show.”`\
 https://www.nytimes.com/2026/07/15/arts/television/late-night-lindsey-graham-sister-senator.html
