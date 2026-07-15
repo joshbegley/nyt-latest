@@ -1,3 +1,7 @@
+**How charities fight crime**\
+`The final entry in our series on the opposite of violence.`\
+https://www.nytimes.com/2026/07/15/headway/newsletter-how-charities-fight-crime.html
+
 **Indicted Tycoon Says $10 Billion Offer Did Not Spur U.S. to Drop Charges**\
 `Gautam Adani, India’s richest man, was accused of fraud and bribery in Federal District Court in Brooklyn. Then President Trump’s Justice Department moved to drop the charges.`\
 https://www.nytimes.com/2026/07/15/nyregion/gautam-adani-corruption-dropped.html
