@@ -1,3 +1,83 @@
+**The Seduction of Lindsey Graham**\
+`He could see the obvious truth that Trump was a malign and corrosive force in American politics — that is, until Trump won the White House.`\
+https://www.nytimes.com/2026/07/15/opinion/lindsey-graham-donald-trump.html
+
+**Jay Clayton Expected to Face Tough Questions in Confirmation Hearing**\
+`His nomination to lead the U.S. intelligence community comes as the White House pushes to use declassified intelligence to show concerns about election security.`\
+https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-expected-to-face-tough-questions-in-confirmation-hearing.html
+
+**Corrections: July 15, 2026**\
+`Corrections that appeared in print on Wednesday, July 15, 2026`\
+https://www.nytimes.com/2026/07/15/pageoneplus/corrections-july-15-2026.html
+
+**For Israel, the U.S.-Iran Hostilities Have Created an Uneasy Limbo**\
+`Officials see a return to full-blown war as preferable to an agreement that fails to curb the threats Iran poses to Israel. Meanwhile, they wait.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/for-israel-the-us-iran-hostilities-have-created-an-uneasy-limbo.html
+
+**Senator Mark Kelly Amasses Nearly $25 Million Campaign War Chest**\
+`The Arizona Democrat said he had raised and given away $10 million to fellow members of his party and committees as he mulls a presidential run in 2028.`\
+https://www.nytimes.com/2026/07/15/us/politics/mark-kelly-arizona-democrat-fundraising.html
+
+**Can Democrats Harness the Data Center Backlash?**\
+`David Wallace-Wells and Robinson Meyer discuss whether the gathering coalition of Americans against data centers could be the next Occupy Wall Street movement or Tea Party.`\
+https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
+
+**The Senate Should Reject Todd Blanche**\
+`Republicans should have the decency, patriotism and self-respect to vote against Mr. Blanche.`\
+https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-hearing.html
+
+**Todd Blanche Faces Crucial Hurdle Ahead of Confirmation as Attorney General**\
+`Todd Blanche’s nomination is broadly a referendum on President Trump’s vision of the Justice Department as a projection of his power.`\
+https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation-doj.html
+
+**Tell Us Your Crossword Autocheck Hot Takes**\
+`We want to know your opinions about this New York Times Crossword feature for an upcoming article.`\
+https://www.nytimes.com/2026/07/15/crosswords/autocheck-hot-takes.html
+
+**Trump’s Latest Nominee for C.D.C. Director Will Face Senate Panel**\
+`Dr. Erica Schwartz supports vaccines and is seen as a mainstream choice to lead an agency that has been a target of Health Secretary Robert F. Kennedy Jr.’s efforts to change federal immunization policies.`\
+https://www.nytimes.com/2026/07/15/health/cdc-erica-schwartz.html
+
+**Platner Was Toxic. But Democrats Could Learn From His Politics.**\
+`His progressive, populist message was able to occupy a kind of middle ground in the party’s primary electorate.`\
+https://www.nytimes.com/2026/07/15/upshot/platner-democrats-progressives-liberals.html
+
+**A Year After DOGE Cuts, Social Security Is Trying to Stabilize**\
+`The agency has been quietly hiring workers again, and its leadership is focused on improving technology to ease workloads left by the departure of about 7,800 staff members.`\
+https://www.nytimes.com/2026/07/15/business/social-security-offices.html
+
+**$425,000 Homes in Georgia, Rhode Island and Arizona**\
+`A townhouse in Savannah, Ga., a condo in Providence, R.I., and a desert home in Tucson, Ariz.`\
+https://www.nytimes.com/2026/07/15/realestate/homes-for-sale-in-savannah-providence-tucson.html
+
+**A Designer Prizes Simplicity in a Hudson Retreat**\
+`Brian Messana of Messana O’Rorke selects some practical lighting and special seating in his upstate bedroom.`\
+https://www.nytimes.com/2026/07/15/realestate/a-designer-prizes-simplicity-in-a-hudson-retreat.html
+
+**Could This Be the End of Carriage Horse Rides in Central Park?**\
+`Past moves to ban the rides have fizzled, but the death of a teenage tourist last month appears to have changed the political landscape.`\
+https://www.nytimes.com/2026/07/15/nyregion/could-this-be-the-end-of-carriage-horse-rides-in-central-park.html
+
+**Does This Superagent Hold the Keys to 2028?**\
+`Ari Emanuel’s empire just happens to include some of the most influential figures of the moment. That could work out well for his brother, Rahm Emanuel.`\
+https://www.nytimes.com/2026/07/15/style/ari-emanuel-rahm-emanuel-2028.html
+
+**Cyclospora Cases Rise Rapidly, With No Source Yet Confirmed**\
+`The parasite, which has sickened thousands across the U.S., is notoriously difficult to track. Funding cuts haven’t made the job easier.`\
+https://www.nytimes.com/2026/07/15/well/eat/cyclospora-outbreak-response.html
+
+**How I Stayed Sane as a World Cup Goalkeeper**\
+`How new soccer strategies changed the way goalkeepers play.`\
+https://www.nytimes.com/2026/07/15/opinion/world-cup-soccer-football-goalkeeper.html
+
+**He Has a $25 Million Bounty on His Head, But Is Also a U.S. Partner in Venezuela.**\
+`A list of alleged crimes has not prevented Diosdado Cabello, and other Venezuelan officials, from working with a U.S. government that once hounded them.`\
+https://www.nytimes.com/2026/07/15/world/americas/us-bounty-diosdado-cabello-venezuela.html
+
+**‘Heartstopper Forever’: Growing Up, and Staying True to Themselves**\
+`Like “Heated Rivalry,” this beloved Netflix romance has a big-hearted ethos. It’s bringing that spirit to a new film that rounds out a teenage TV hit.`\
+https://www.nytimes.com/2026/07/15/arts/television/heartstopper-forever.html
+
 **‘Hadestown’ Hits Movie Theaters, and Theater to Stream in July**\
 `Streaming picks include the family-friendly sci-fi adventure “Franklin’s Key” in Philadelphia and “Hamlet” at the Delacorte Theater in Central Park.`\
 https://www.nytimes.com/2026/07/15/theater/hadestown-theater-to-stream.html
@@ -117,84 +197,4 @@ https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz
 **China’s Chip Champion to Raise Billions in Race for A.I. Control**\
 `CXMT, a linchpin in China’s drive to develop homegrown artificial intelligence technology, is aiming to raise nearly $10 billion in a blockbuster public offering in Shanghai.`\
 https://www.nytimes.com/2026/07/15/business/china-chips-cxmt-ipo.html
-
-**La muerte de Joan Sebastian Guerrero en Maine desata nuevas preguntas sobre ICE**\
-`La muerte de Joan Sebastián Durán Guerrero, padre de familia y trabajador con permiso legal, ha profundizado el debate sobre el alcance y la violencia de la ofensiva migratoria.`\
-https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/colombiano-asesinado-ice-maine-migrante-legal.html
-
-**Estos animales eran diestros mucho antes de que hubiera manos**\
-`Un grupo de científicos propone que unos fósiles descubiertos hace poco podrían ser la evidencia más antigua de “lateralidad” de comportamiento en los animales.`\
-https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/animales-diestros-zurdos.html
-
-**Paramedics Help Save Lives in New York. Can They Afford to Live There?**\
-`Some of New York City’s emergency medical workers make just $18 an hour. Their boss, Zohran Mamdani, has staked his mayoralty on making New York City more affordable for all.`\
-https://www.nytimes.com/2026/07/15/nyregion/paramedics-help-save-lives-in-new-york-can-they-afford-to-live-there.html
-
-**Mamdani Will Advance Bronx Bus Lane Project to Improve Transit Speeds**\
-`The road redesign to prioritize buses, the first such project in the borough, had been put on hold after the Trump administration objected to a similar plan in Manhattan.`\
-https://www.nytimes.com/2026/07/15/nyregion/nyc-bus-lane-bronx-mamdani.html
-
-**NYT Spelling Bee Answers for July 15, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/15/crosswords/spelling-bee-forum.html
-
-**Cómo superé mi adicción al algoritmo sin ayuda de la tecnología**\
-`Probé muchos trucos para dejar de usar tanto las redes sociales. Lo que mejor me funcionó fue un simple ajuste en mi casa.`\
-https://www.nytimes.com/es/2026/07/15/espanol/opinion/adiccion-tiktok-instagram-algoritmo.html
-
-**La guerra para salvar a las abejas de la invasión de avispones**\
-`A medida que los avispones de patas amarillas se expanden por la región de Lowcountry, en Carolina del Sur, y amenazan la producción local de miel, un equipo estatal de defensores de las abejas corre al rescate.`\
-https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/como-salvar-abejas-avispones.html
-
-**Argentina vs. Inglaterra: un partido de semifinal cargado de historia**\
-`La semifinal del Mundial reaviva décadas de rivalidad marcadas por el enfrentamiento de 1986, la guerra de las Malvinas y la figura de Diego Maradona.`\
-https://www.nytimes.com/es/2026/07/15/espanol/deportes/argentina-inglaterra-partido-semifinal.html
-
-**Late Night Calls Lindsey Graham’s Senate Seat ‘an Inheritance Jackpot’**\
-`“A Senate seat? Most people just get a garage full of damp boxes,” Michael Kosta said of Graham’s sister filling the late senator’s seat on “The Daily Show.”`\
-https://www.nytimes.com/2026/07/15/arts/television/late-night-lindsey-graham-sister-senator.html
-
-**Para desplegar una bandera del Mundial se necesita coordinación (y muchos brazos)**\
-`Las banderas se han convertido en íconos instantáneos de este torneo. Desplegarlas y doblarlas rápidamente en la cancha requiere una cuidadosa coreografía.`\
-https://www.nytimes.com/es/2026/07/15/espanol/deportes/copa-mundial-bandera-cancha.html
-
-**This Is a Forever War in the Making**\
-`The vague language of the U.S.-Iran cease-fire memo laid the foundation for the war’s resumption.`\
-https://www.nytimes.com/2026/07/15/opinion/us-iran-forever-war-strait-of-hormuz.html
-
-**¿Crees que tu gato se porta bien? Piénsalo dos veces**\
-`Un nuevo estudio revela que, a veces, los gatos se acicalan entre sí para molestarse.`\
-https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/gato-bien-portado.html
-
-**Rescue Effort Underway After Boat Capsizes Near Alcatraz**\
-`A three-deck pleasure boat carrying 20 people capsized near Alcatraz Island on Tuesday. At least one person died and three were missing, officials said.`\
-https://www.nytimes.com/video/us/100000011031757/alcatraz-san-francisco-pontoon-boat-fire-sink.html
-
-**China’s Economy Grows at Slowest Pace in Years**\
-`Economic growth of 4.3 percent in the second quarter, versus the same period last year, reflected a broad slump outside of the country’s export-oriented manufacturing might.`\
-https://www.nytimes.com/2026/07/15/business/china-economy-gdp-growth.html
-
-**Trump recibió 2 millones de dólares de una empresa de Corea del Sur**\
-`El pago se reveló inicialmente en el formulario de divulgación financiera anual del presidente de EE. UU., publicado a finales de junio.`\
-https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/trump-millones-dolares-empresa-corea-sur.html
-
-**For Argentina, a World Cup Semifinal Against England Isn’t Just Soccer**\
-`Wednesday’s contest for a spot in the final carries the weight of a 1986 contentious clash, a war over the Falklands and a national mythology built around Diego Maradona.`\
-https://www.nytimes.com/2026/07/15/world/americas/argentina-england-rivalry-world-cup.html
-
-**Quote of the Day: T. Rex is King Once Again on Booming Fossil Market**\
-`Quotation of the Day for Wednesday, July 15, 2026.`\
-https://www.nytimes.com/2026/07/15/pageoneplus/quote-of-the-day-t-rex-is-king-once-again-on-booming-fossil-market.html
-
-**Missing From Prince Harry’s UK Trip: A Reunion With Prince William**\
-`Harry is clearly repairing his relationship with King Charles III, but the rift with his brother remains unresolved.`\
-https://www.nytimes.com/2026/07/15/world/europe/prince-harry-uk-visit-william-king-charles.html
-
-**As Argentina Tries to Win the World Cup, the Rest of Latin America Cheers Against It**\
-`Rather than rally behind the tournament’s last Latin American team, other countries in the region are confronting Argentina’s fraught claims to its own identity.`\
-https://www.nytimes.com/2026/07/15/world/americas/argentina-world-cup-semifinals.html
-
-**Alzheimer’s Blood Tests Offer New Promise to Diagnose and Predict the Disease**\
-`New studies are shedding light on how the tests could eventually transform treatment.`\
-https://www.nytimes.com/2026/07/15/well/mind/alzheimers-disease-blood-tests-symptoms.html
 

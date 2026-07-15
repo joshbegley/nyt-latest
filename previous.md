@@ -1,3 +1,107 @@
+**‘Hadestown’ Hits Movie Theaters, and Theater to Stream in July**\
+`Streaming picks include the family-friendly sci-fi adventure “Franklin’s Key” in Philadelphia and “Hamlet” at the Delacorte Theater in Central Park.`\
+https://www.nytimes.com/2026/07/15/theater/hadestown-theater-to-stream.html
+
+**Travel Tips: How to Wait in Line (and Keep Your Cool)**\
+`A bouncer in England, where people are renowned for queuing up respectably, offers six tips on how best to move safely, if slowly, forward.`\
+https://www.nytimes.com/2026/07/15/travel/how-to-wait-in-line.html
+
+**Ukraine Pounds Russian Ships in Its Campaign to Cut Off Crimea**\
+`After striking roads and railways, Kyiv is now focusing on sea routes as it tries to disrupt fuel supplies and pressure Russia to end the war.`\
+https://www.nytimes.com/2026/07/15/world/europe/ukraine-russia-crimea-azov-sea.html
+
+**Octavia Spencer Believed in Herself Even When Hollywood Didn’t**\
+`It took years for her to be cast as “the main character,” but she considers that the industry’s loss. Her latest series is the action comedy “Ride or Die.”`\
+https://www.nytimes.com/2026/07/15/arts/television/octavia-spencer-ride-or-die.html
+
+**Small Tribes Say They Lack the Clout to Secure Federal Recognition**\
+`The federal government can confer health care, education, housing and casino rights, but for small bands like many in the Pacific Northwest, recognition takes political muscle they don’t have.`\
+https://www.nytimes.com/2026/07/15/us/tribes-federal-recognition.html
+
+**Book Review: ‘They Stole a City,’ by Lauren Collins**\
+`A new book by the journalist Lauren Collins chronicles the ongoing effects of the violent takeover of Wilmington, N.C., on those living in its aftermath.`\
+https://www.nytimes.com/2026/07/15/books/review/they-stole-a-city-lauren-collins.html
+
+**Watch A.I.M by Kyle Abraham Perform in The New York Times Office**\
+`Watch A.I.M by Kyle Abraham perform a new work at T Magazine’s New York City headquarters.`\
+https://www.nytimes.com/2026/07/15/t-magazine/aim-kyle-abraham-white-space-nyt-office.html
+
+**Live From the 10th Floor | A.I.M by Kyle Abraham**\
+`The New York City-based dance company performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
+https://www.nytimes.com/video/t-magazine/100000011030434/live-from-the-10th-floor-aim-by-kyle-abraham.html
+
+**Robert Wilson’s Watermill Center Without Robert Wilson**\
+`“When I’m no longer living, can this place exist?” Robert Wilson wondered in a film about his Long Island art incubator. This month, its annual festival will go on without him.`\
+https://www.nytimes.com/2026/07/15/arts/dance/robert-wilson-watermill-center.html
+
+**The Epicenter of Drug Deaths in America Is Shifting West**\
+`Nationally, overdose deaths are falling. But not in Arizona.`\
+https://www.nytimes.com/interactive/2026/07/15/upshot/arizona-drug-overdose-deaths.html
+
+**‘It’s Chaos’: What New York’s Suburbs Can Tell Us About the Mood of the Country**\
+`The midterms are looming. We asked people in New York City’s suburbs how they feel about the state of America.`\
+https://www.nytimes.com/2026/07/15/opinion/midterm-elections-politicians-trump-new-york.html
+
+**On ‘Caribenya,’ Lido Pimienta Found a Lifeline**\
+`On Lido Pimienta’s new album, “Caribenya,” the Colombian Canadian musician sought a warmer, more complex depiction of Caribbean culture. Creating it helped her rediscover the beauty of living.`\
+https://www.nytimes.com/2026/07/15/arts/music/lido-pimienta-new-album-caribenya.html
+
+**Word of the Day: totter**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/15/learning/word-of-the-day-totter.html
+
+**Why Did a Major Museum’s Bong Show Go Up in Smoke?**\
+`After the Toledo Museum of Art canceled a pioneering exhibition of glass cannabis pipes, many people wondered what lay behind the decision.`\
+https://www.nytimes.com/2026/07/15/arts/design/cannabis-glass-pipes-toledo-art-museum.html
+
+**The American E.V. Has Been Crushed. Will It Take the U.S. Auto Industry With It?**\
+`The largest U.S. automakers have backed away from electric vehicles, even as global sales are booming. The decision may make them obsolete.`\
+https://www.nytimes.com/2026/07/15/magazine/electric-cars-american-evs.html
+
+**For the Eclipse or a Weekend, How to Save Money in Reykjavik**\
+`A museum pass, public hot springs and free airline stopovers help shrink the cost of visiting Iceland’s capital.`\
+https://www.nytimes.com/2026/07/15/travel/how-to-save-money-in-reykjavik.html
+
+**A Real Estate Guide to Stockton, N.J.**\
+`Historic stone buildings and a thriving restaurant scene meet the rural landscape of the Delaware Valley.`\
+https://www.nytimes.com/2026/07/15/realestate/stockton-nj-a-friendly-river-town.html
+
+**Book Review: ‘Air,’ by Christian Kracht**\
+`In “Air,” by the Swiss writer Christian Kracht, a decorator’s unusual commission leads abruptly into another universe.`\
+https://www.nytimes.com/2026/07/15/books/review/christian-kracht-air.html
+
+**When Your First Apartment Is a Lemon**\
+`What New York homeowners can do before and after a purchase to avoid or mitigate shoddy construction.`\
+https://www.nytimes.com/2026/07/15/realestate/first-house-lemon-repairs.html
+
+**Are Chanel Ballet Flats Now the Birkins of the Foot?**\
+`Chanel flats in flashy colors and funky materials have become the shoe du jour of many creative, successful women.`\
+https://www.nytimes.com/2026/07/15/style/chanel-ballet-flats-new-and-used-are-the-birkins-of-the-foot.html
+
+**How Cities Across the United States Are Preventing Violent Crime**\
+`Across the United States, police departments have been augmented by new community partners that play a role in keeping the peace.`\
+https://www.nytimes.com/2026/07/15/headway/crime-violence-prevention-police.html
+
+**Should Epstein’s Friends Be Punished? An Elite Harvard Club Is Torn.**\
+`At Harvard, students, alumni and professors debate whether a storied campus group should cut ties with one of Jeffrey Epstein’s closest associates, and whether Harvard itself should do the same.`\
+https://www.nytimes.com/2026/07/15/us/epstein-andrew-farkas-hasty-pudding-harvard.html
+
+**Michelangelo’s Forgotten Renaissance Masterpiece**\
+`Tired of the David? A trip across Florence to see the small Santo Spirito Crucifix, a tender vision in old wood, is one of the best decisions you could make in your art-journeying life.`\
+https://www.nytimes.com/2026/07/15/arts/design/michelangelos-forgotten-renaissance-masterpiece.html
+
+**From Twitter to X: 20 Years of Memes, Movements and Hot Takes**\
+`The first tweets from the public appeared on July 15, 2006, several months after a soft launch. It was rebranded as X after being acquired by Elon Musk.`\
+https://www.nytimes.com/2026/07/15/technology/twitter-x-20-years.html
+
+**How Is Your America Doing?**\
+`The midterms are looming. We asked people in New York City’s suburbs how they feel about the state of America.`\
+https://www.nytimes.com/video/opinion/100000011004862/how-is-your-america-doing.html
+
+**U.S. Presses China to Free American Seismologist Accused of Spying**\
+`President Trump has urged Xi Jinping to release the scientist, Youlin Chen, the man’s family says. Dr. Chen studied the detection of North Korean nuclear tests.`\
+https://www.nytimes.com/2026/07/15/world/asia/china-seismologist-north-korea-nuclear.html
+
 **House Passes Bill to Make Daylight Saving Time Permanent**\
 `The House voted on Tuesday to make daylight saving time permanent. The bill now faces an uncertain fate in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011031805/daylight-saving-time-permanent-bill-house.html
@@ -93,108 +197,4 @@ https://www.nytimes.com/2026/07/15/world/americas/argentina-world-cup-semifinals
 **Alzheimer’s Blood Tests Offer New Promise to Diagnose and Predict the Disease**\
 `New studies are shedding light on how the tests could eventually transform treatment.`\
 https://www.nytimes.com/2026/07/15/well/mind/alzheimers-disease-blood-tests-symptoms.html
-
-**Tech Investors and Longevity Influencers Back Neko Health’s Mega Round**\
-`The health tech start-up co-founded by Spotify’s Daniel Ek is worth billions more after a new $700 million funding round.`\
-https://www.nytimes.com/2026/07/15/business/dealbook/neko-health-ek-funding.html
-
-**World Cup 2026: See How Spain Pulled Apart France’s Defense**\
-`View in 3-D how Spain cut through France’s defense to double its lead, securing a victory and a place in the World Cup final.`\
-https://www.nytimes.com/interactive/2026/07/14/sports/soccer/spain-france-world-cup-goal.html
-
-**Former Child Care Worker in Sydney Facing Over 300 Abuse Charges Is Identified**\
-`A Sydney court lifted the suppression order on identifying a man accused of abusing more than 100 children over 16 years.`\
-https://www.nytimes.com/2026/07/14/world/australia/sydney-child-abuse-daycare-worker.html
-
-**NYT Crossword Answers for July 15, 2026**\
-`Jonathan Raksin and Jeff Chen enter this week’s constructor rotation.`\
-https://www.nytimes.com/2026/07/14/crosswords/daily-puzzle-2026-07-15.html
-
-**Polls: What’s Driving Support for Senate Candidates in Battleground States?**\
-`A New York Times/Siena poll of battleground states showed a mix of voter motivations, with the strongest candidates proving more popular than their parties.`\
-https://www.nytimes.com/interactive/2026/07/14/polls/senate-elections-voters-polls.html
-
-**Federal Official Sets Deadlines to Overhaul Rikers Island**\
-`The official, Nicholas Deml, submitted the first in a series of reports to a federal judge, focusing on key areas of improvement, including safety, at the troubled facility.`\
-https://www.nytimes.com/2026/07/14/nyregion/rikers-deml-overhaul-plan.html
-
-**Videos Detail Moments Surrounding Fatal ICE Shooting in Biddeford, Maine**\
-`Footage obtained by The New York Times shows ICE agents in the moments before and after the killing of Joan Sebastian Guerrero. The circumstances of the shooting remain unclear.`\
-https://www.nytimes.com/2026/07/14/us/maine-ice-shooting-video-joan-sebastian-guerrero.html
-
-**Data Centers to Add Billions in Power Costs in 13 States**\
-`A power auction conducted by a giant grid operator is expected to add $6.3 billion in additional charges to consumers and businesses because of electricity needs of data centers.`\
-https://www.nytimes.com/2026/07/14/business/energy-environment/pjm-electricity-prices-data-centers.html
-
-**One Dead and Three Missing in San Francisco Bay After Boat Capsizes Near Alcatraz**\
-`Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
-https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
-
-**U.S. War Against Iran Enters a New Phase**\
-`As President Trump resumes his war, the focus is now on the Strait of Hormuz. But it remains unclear how far the U.S. military will go to exert control.`\
-https://www.nytimes.com/2026/07/14/us/politics/us-war-iran-next-phase.html
-
-**As Confirmation Hearing Nears, Todd Blanche’s Role in Epstein Case Draws Scrutiny**\
-`Todd Blanche’s role in interviewing Ghislaine Maxwell, a longtime associate of the convicted sex offender Jeffrey Epstein, will be front and center as he seeks to become attorney general.`\
-https://www.nytimes.com/2026/07/14/us/politics/todd-blanche-epstein-investigation-doj.html
-
-**Trump paga 5,6 millones de dólares a E. Jean Carroll por caso civil**\
-`Un jurado federal determinó que el presidente Trump era responsable de abuso sexual y difamación contra Carroll. Luego de que él agotó todas las vías de apelación el mes pasado, un juez ordenó que se efectuara el pago.`\
-https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-paga-e-jean-carroll.html
-
-**At War With Iran Again, Trump Finds an Opponent He Cannot Easily Dominate**\
-`The president is accustomed to forcing other countries to bend to his will. But he is struggling to come up with a strategy to extract Iranian concessions as the cease-fire he brokered collapses.`\
-https://www.nytimes.com/2026/07/14/us/politics/iran-trump-war.html
-
-**House Votes for Permanent Daylight Saving Time**\
-`House Republicans and Democrats united in favor of a bill to eliminate semiannual clock-changing, but it faces an uncertain fate in the Senate.`\
-https://www.nytimes.com/2026/07/14/us/politics/house-daylight-savings-time-sunshine-protection-act.html
-
-**Kevin Warsh Pledges to Bring Inflation Down but Doesn’t Specify How**\
-`Kevin M. Warsh, the new chairman of the Federal Reserve, reiterated his commitment to get inflation down but did not provide specifics during his first testimony to Congress.`\
-https://www.nytimes.com/video/us/100000011030763/fed-kevin-warsh-inflation.html
-
-**Iran’s Cyberattackers Tracked Phones of U.S. Military Personnel in the Mideast, Data Suggests**\
-`Researchers say Iran’s cyberwarfare capabilities have grown more advanced and aggressive during the war with the United States and Israel.`\
-https://www.nytimes.com/2026/07/14/world/middleeast/iran-cyberattack-us-military-phones-tracking.html
-
-**Two Supreme Court Justices Spoke to Raise Security Funds in Rare Congressional Testimony**\
-`Supreme Court Justices Elena Kagan and Amy Coney Barrett spoke in rare congressional testimony to increase security funds amid rising threats.`\
-https://www.nytimes.com/video/us/politics/100000011030756/two-supreme-court-justices-spoke-to-raise-security-funds-in-a-rare-congressional-testimony.html
-
-**An ICE Shooting in Maine Puts Pressure on Senator Susan Collins**\
-`The Democrats hoping to challenge Ms. Collins, a vulnerable Republican, have seized on the fatal incident, drawing attention to her record on immigration matters.`\
-https://www.nytimes.com/2026/07/14/us/politics/ice-shooting-maine-susan-collins.html
-
-**Trump cambia su plan en el estrecho de Ormuz y genera inquietud**\
-`Después de abandonar su propuesta de imponer tarifas a los barcos, el presidente plantea acuerdos de inversión con los países del Golfo a cambio de protección.`\
-https://www.nytimes.com/es/2026/07/14/espanol/negocios/trump-tarifas-estrecho-ormuz.html
-
-**Security Cameras Capture Moments After Fatal ICE Shooting in Maine**\
-`Footage from nearby surveillance cameras shows federal agents pulling Joan Sebastian Guerrero from a white car after a shooting in Biddeford, Maine, on Monday.`\
-https://www.nytimes.com/video/us/100000011029964/ice-shooting-biddeford-maine-footage.html
-
-**ICE Is Ordered to Pause Most Vehicle Stops**\
-`Also, Trump drops his plan for a Strait of Hormuz fee. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/07/14/briefing/ice-is-ordered-to-pause-most-vehicle-stops.html
-
-**Colombian Immigrant Killed by ICE in Maine Had Legal Status, Father Says**\
-`The father of Joan Sebastian Guerrero, the man fatally shot by a federal immigration agent on Monday, said his son had been working two jobs to support his wife and daughter.`\
-https://www.nytimes.com/2026/07/14/us/joan-sebastian-guerrero-maine-ice-shooting.html
-
-**ICE Shootings Put Spotlight on Lack of Body Cameras**\
-`Kristi Noem, the former homeland security secretary, said five months ago that the Trump administration would “rapidly” deploy body cameras to immigration agents across the country. About half still don’t have them.`\
-https://www.nytimes.com/2026/07/14/us/politics/ice-body-cameras.html
-
-**Opportunities Narrow for Women as Hegseth Blocks More Promotions**\
-`For the first time in more than a decade, no active-duty female Navy officers are likely to be promoted to admiral this year.`\
-https://www.nytimes.com/2026/07/14/us/hegseth-blocks-navy-promotions.html
-
-**Lindsey Graham’s Sister, Darline Graham, Is Sworn In to Finish His Senate Term**\
-`Three days after Lindsey Graham died, his younger sister Darline Graham took the oath to hold his seat until his term ends in January.`\
-https://www.nytimes.com/2026/07/14/us/politics/darline-graham-south-carolina-senate.html
-
-****\
-`Axuan Bu, a food stall owner in Jinhua, has absorbed rising egg costs rather than raise prices for customers.`\
-https://www.nytimes.com/video/embedded/business/100000011031317/China-Eggs_Jianbing_Man-video.html
 

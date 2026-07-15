@@ -1,3 +1,107 @@
+**‘Hadestown’ Hits Movie Theaters, and Theater to Stream in July**\
+`Streaming picks include the family-friendly sci-fi adventure “Franklin’s Key” in Philadelphia and “Hamlet” at the Delacorte Theater in Central Park.`\
+https://www.nytimes.com/2026/07/15/theater/hadestown-theater-to-stream.html
+
+**Travel Tips: How to Wait in Line (and Keep Your Cool)**\
+`A bouncer in England, where people are renowned for queuing up respectably, offers six tips on how best to move safely, if slowly, forward.`\
+https://www.nytimes.com/2026/07/15/travel/how-to-wait-in-line.html
+
+**Ukraine Pounds Russian Ships in Its Campaign to Cut Off Crimea**\
+`After striking roads and railways, Kyiv is now focusing on sea routes as it tries to disrupt fuel supplies and pressure Russia to end the war.`\
+https://www.nytimes.com/2026/07/15/world/europe/ukraine-russia-crimea-azov-sea.html
+
+**Octavia Spencer Believed in Herself Even When Hollywood Didn’t**\
+`It took years for her to be cast as “the main character,” but she considers that the industry’s loss. Her latest series is the action comedy “Ride or Die.”`\
+https://www.nytimes.com/2026/07/15/arts/television/octavia-spencer-ride-or-die.html
+
+**Small Tribes Say They Lack the Clout to Secure Federal Recognition**\
+`The federal government can confer health care, education, housing and casino rights, but for small bands like many in the Pacific Northwest, recognition takes political muscle they don’t have.`\
+https://www.nytimes.com/2026/07/15/us/tribes-federal-recognition.html
+
+**Book Review: ‘They Stole a City,’ by Lauren Collins**\
+`A new book by the journalist Lauren Collins chronicles the ongoing effects of the violent takeover of Wilmington, N.C., on those living in its aftermath.`\
+https://www.nytimes.com/2026/07/15/books/review/they-stole-a-city-lauren-collins.html
+
+**Watch A.I.M by Kyle Abraham Perform in The New York Times Office**\
+`Watch A.I.M by Kyle Abraham perform a new work at T Magazine’s New York City headquarters.`\
+https://www.nytimes.com/2026/07/15/t-magazine/aim-kyle-abraham-white-space-nyt-office.html
+
+**Live From the 10th Floor | A.I.M by Kyle Abraham**\
+`The New York City-based dance company performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
+https://www.nytimes.com/video/t-magazine/100000011030434/live-from-the-10th-floor-aim-by-kyle-abraham.html
+
+**Robert Wilson’s Watermill Center Without Robert Wilson**\
+`“When I’m no longer living, can this place exist?” Robert Wilson wondered in a film about his Long Island art incubator. This month, its annual festival will go on without him.`\
+https://www.nytimes.com/2026/07/15/arts/dance/robert-wilson-watermill-center.html
+
+**The Epicenter of Drug Deaths in America Is Shifting West**\
+`Nationally, overdose deaths are falling. But not in Arizona.`\
+https://www.nytimes.com/interactive/2026/07/15/upshot/arizona-drug-overdose-deaths.html
+
+**‘It’s Chaos’: What New York’s Suburbs Can Tell Us About the Mood of the Country**\
+`The midterms are looming. We asked people in New York City’s suburbs how they feel about the state of America.`\
+https://www.nytimes.com/2026/07/15/opinion/midterm-elections-politicians-trump-new-york.html
+
+**On ‘Caribenya,’ Lido Pimienta Found a Lifeline**\
+`On Lido Pimienta’s new album, “Caribenya,” the Colombian Canadian musician sought a warmer, more complex depiction of Caribbean culture. Creating it helped her rediscover the beauty of living.`\
+https://www.nytimes.com/2026/07/15/arts/music/lido-pimienta-new-album-caribenya.html
+
+**Word of the Day: totter**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/15/learning/word-of-the-day-totter.html
+
+**Why Did a Major Museum’s Bong Show Go Up in Smoke?**\
+`After the Toledo Museum of Art canceled a pioneering exhibition of glass cannabis pipes, many people wondered what lay behind the decision.`\
+https://www.nytimes.com/2026/07/15/arts/design/cannabis-glass-pipes-toledo-art-museum.html
+
+**The American E.V. Has Been Crushed. Will It Take the U.S. Auto Industry With It?**\
+`The largest U.S. automakers have backed away from electric vehicles, even as global sales are booming. The decision may make them obsolete.`\
+https://www.nytimes.com/2026/07/15/magazine/electric-cars-american-evs.html
+
+**For the Eclipse or a Weekend, How to Save Money in Reykjavik**\
+`A museum pass, public hot springs and free airline stopovers help shrink the cost of visiting Iceland’s capital.`\
+https://www.nytimes.com/2026/07/15/travel/how-to-save-money-in-reykjavik.html
+
+**A Real Estate Guide to Stockton, N.J.**\
+`Historic stone buildings and a thriving restaurant scene meet the rural landscape of the Delaware Valley.`\
+https://www.nytimes.com/2026/07/15/realestate/stockton-nj-a-friendly-river-town.html
+
+**Book Review: ‘Air,’ by Christian Kracht**\
+`In “Air,” by the Swiss writer Christian Kracht, a decorator’s unusual commission leads abruptly into another universe.`\
+https://www.nytimes.com/2026/07/15/books/review/christian-kracht-air.html
+
+**When Your First Apartment Is a Lemon**\
+`What New York homeowners can do before and after a purchase to avoid or mitigate shoddy construction.`\
+https://www.nytimes.com/2026/07/15/realestate/first-house-lemon-repairs.html
+
+**Are Chanel Ballet Flats Now the Birkins of the Foot?**\
+`Chanel flats in flashy colors and funky materials have become the shoe du jour of many creative, successful women.`\
+https://www.nytimes.com/2026/07/15/style/chanel-ballet-flats-new-and-used-are-the-birkins-of-the-foot.html
+
+**How Cities Across the United States Are Preventing Violent Crime**\
+`Across the United States, police departments have been augmented by new community partners that play a role in keeping the peace.`\
+https://www.nytimes.com/2026/07/15/headway/crime-violence-prevention-police.html
+
+**Should Epstein’s Friends Be Punished? An Elite Harvard Club Is Torn.**\
+`At Harvard, students, alumni and professors debate whether a storied campus group should cut ties with one of Jeffrey Epstein’s closest associates, and whether Harvard itself should do the same.`\
+https://www.nytimes.com/2026/07/15/us/epstein-andrew-farkas-hasty-pudding-harvard.html
+
+**Michelangelo’s Forgotten Renaissance Masterpiece**\
+`Tired of the David? A trip across Florence to see the small Santo Spirito Crucifix, a tender vision in old wood, is one of the best decisions you could make in your art-journeying life.`\
+https://www.nytimes.com/2026/07/15/arts/design/michelangelos-forgotten-renaissance-masterpiece.html
+
+**From Twitter to X: 20 Years of Memes, Movements and Hot Takes**\
+`The first tweets from the public appeared on July 15, 2006, several months after a soft launch. It was rebranded as X after being acquired by Elon Musk.`\
+https://www.nytimes.com/2026/07/15/technology/twitter-x-20-years.html
+
+**How Is Your America Doing?**\
+`The midterms are looming. We asked people in New York City’s suburbs how they feel about the state of America.`\
+https://www.nytimes.com/video/opinion/100000011004862/how-is-your-america-doing.html
+
+**U.S. Presses China to Free American Seismologist Accused of Spying**\
+`President Trump has urged Xi Jinping to release the scientist, Youlin Chen, the man’s family says. Dr. Chen studied the detection of North Korean nuclear tests.`\
+https://www.nytimes.com/2026/07/15/world/asia/china-seismologist-north-korea-nuclear.html
+
 **House Passes Bill to Make Daylight Saving Time Permanent**\
 `The House voted on Tuesday to make daylight saving time permanent. The bill now faces an uncertain fate in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011031805/daylight-saving-time-permanent-bill-house.html
