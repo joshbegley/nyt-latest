@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘How to Woo Her?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/15/style/tiny-modern-love-stories-how-to-woo-her.html
+
 **Kevin O’Leary Is Sued by Opponents He Claimed Were Foreign Agents**\
 `Kevin O’Leary, the celebrity investor, accused opponents of his proposed data center near the Great Salt Lake of being agents of China. Now they want compensation.`\
 https://www.nytimes.com/2026/07/15/us/kevin-oleary-data-center-lawsuit.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/sports/soccer/100000011032027/spain-fans-world-cup
 **Brazen Japanese Bears Are Breaking Into Homes and Raiding Pantries**\
 `Climate change and shifting demographics are driving the country’s Asiatic black bears closer to humans.`\
 https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
-
-**On Literacy Struggles and Sleeping Fish: The Winners of Week 4 of Our Summer Reading Contest**\
-`Megha Mishra learned a scientific fact that could have helped her childhood pet, while Samaira Rasul reflected on her classroom experiences with boys and reading.`\
-https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-fish-the-winners-of-week-4-of-our-summer-reading-contest.html
 
 **Live Updates: Blanche’s Nomination for Attorney General Faces Hurdle After Rocky Hearing**\
 `A key Republican, Senator John Cornyn of Texas, said he was still undecided about how he would vote after questioning Mr. Blanche. One G.O.P. vote against him could sink the nomination.`\

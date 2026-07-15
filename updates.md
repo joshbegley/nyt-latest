@@ -1,3 +1,11 @@
+**Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
+`Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
+https://www.nytimes.com/article/heat-air-pollution-climate.html
+
+**Live Updates: Blanche’s Nomination for Attorney General Faces Hurdle After Rocky Hearing**\
+`A key Republican, Senator John Cornyn of Texas, said he was still undecided about how he would vote after questioning Mr. Blanche. One G.O.P. vote against him could sink the nomination.`\
+https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
+
 **Kevin O’Leary Is Sued by Opponents He Claimed Were Foreign Agents**\
 `Kevin O’Leary, the celebrity investor, accused opponents of his proposed data center near the Great Salt Lake of being agents of China. Now they want compensation.`\
 https://www.nytimes.com/2026/07/15/us/kevin-oleary-data-center-lawsuit.html
