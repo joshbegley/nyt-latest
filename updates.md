@@ -1,3 +1,15 @@
+**Maine Democrats’ Adventurous Political Experiment**\
+`Maine Democrats have a political experiment on their hands.`\
+https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-adventure.html
+
+**A Key Senator Says He Is Undecided on Trump’s Attorney General Pick**\
+`Also, the World Cup final is set. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/07/15/briefing/blanche-confirmation-hearing-cyclospora-cases.html
+
+**Hegseth Plans to Screen All Troops, Including Women, for Low Testosterone**\
+`Pete Hegseth, as defense secretary, has sought to cultivate an image as a manosphere-friendly leader.`\
+https://www.nytimes.com/2026/07/15/us/politics/hegseth-troops-testosterone.html
+
 **Iran’s Top Negotiator Signals Door to Diplomacy Is Still Open**\
 `Facing intense divisions within Iran, Gen. Mohammad Bagher Ghalibaf both struck a defiant tone and argued that diplomacy could defend Iran’s interests.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-ghalibaf-us-talks.html

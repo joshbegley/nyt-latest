@@ -1,8 +1,16 @@
+**Maine Democrats’ Adventurous Political Experiment**\
+`Maine Democrats have a political experiment on their hands.`\
+https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-adventure.html
+
+**A Key Senator Says He Is Undecided on Trump’s Attorney General Pick**\
+`Also, the World Cup final is set. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/07/15/briefing/blanche-confirmation-hearing-cyclospora-cases.html
+
 **Iran’s Top Negotiator Signals Door to Diplomacy Is Still Open**\
 `Facing intense divisions within Iran, Gen. Mohammad Bagher Ghalibaf both struck a defiant tone and argued that diplomacy could defend Iran’s interests.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-ghalibaf-us-talks.html
 
-**Hegseth Plans to Screen All Troops, Even Women, for Low Testosterone**\
+**Hegseth Plans to Screen All Troops, Including Women, for Low Testosterone**\
 `Pete Hegseth, as defense secretary, has sought to cultivate an image as a manosphere-friendly leader.`\
 https://www.nytimes.com/2026/07/15/us/politics/hegseth-troops-testosterone.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche
 **Flash Floods and Tornado Hit Texas Amid Heavy Rainfall**\
 `A tornado was spotted in San Antonio, and Uvalde and Harris counties experienced flooding as heavy rain fell on Tuesday and Wednesday.`\
 https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
-
-**Nevada Governor Drops His Own Name at Traffic Stop and Avoids Ticket**\
-`Gov. Joe Lombardo was pulled over for a suspected violation but did not receive a citation. That has elicited mixed reactions as he campaigns for re-election.`\
-https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.html
-
-**Treasury to Begin Minting $1 Gold Trump Coin Featuring President’s Face**\
-`Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
-https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
 
