@@ -1,3 +1,7 @@
+**Is Dating a Colleague a Good Idea?**\
+`Readers weigh the pros and cons of dating a co-worker, in response to an Opinion guest essay. Also: Killings in Minnesota; safety on the road.`\
+https://www.nytimes.com/2026/07/15/opinion/dating-co-workers.html
+
 **Our Top Editor on Subpoenas of Times Journalists**\
 `The Trump administration issued subpoenas to reporters who wrote about security concerns involving the new Air Force One. Joe Kahn, the executive editor of The New York Times, responds to what he calls a “naked attempt to intimidate” the newspaper.`\
 https://www.nytimes.com/video/insider/100000011030047/our-top-editor-on-subpoenas-of-times-journalists.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/podcasts/the-daily/trump-attorney-general-tod
 **Trump Flip-Flops on Strait of Hormuz Plan, and U.S. Cyclospora Outbreak Spreads**\
 `Plus, Chipotle is coming to Mexico.`\
 https://www.nytimes.com/2026/07/15/podcasts/the-headlines/trump-trait-of-hormuz-plan-us-cyclospora-outbreak.html
-
-**NYT Connections Answers for July 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
-https://www.nytimes.com/2026/07/15/crosswords/connections-companion-1131.html
 
