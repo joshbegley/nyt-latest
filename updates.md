@@ -1,3 +1,7 @@
+**Court Filings Describe Ongoing Contact Between ICE and Iran on Deportations**\
+`In a sworn declaration, a lawyer says an Iranian official reported receiving regular dossiers on Iranian detainees from Immigration and Customs Enforcement for months.`\
+https://www.nytimes.com/2026/07/15/us/politics/state-dept-ice-iran-deportation.html
+
 **Nevada Governor Drops His Own Name at Traffic Stop and Avoids Ticket**\
 `Gov. Joe Lombardo was pulled over for a suspected violation but did not receive a citation. That has elicited mixed reactions as he campaigns for re-election.`\
 https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.html
