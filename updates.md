@@ -1,3 +1,27 @@
+**He Thought He Had to Break Out of Brooklyn. Instead, He Celebrates It.**\
+`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and leave the neighborhood. Was it a tragedy that changed his mind?`\
+https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
+
+**Traffic Deaths Spike After Deadly Mass Shootings, Study Suggests**\
+`Some gun violence experts are skeptical. But the research raises questions of whether there’s a cause-and-effect relationship and if so, what’s behind it.`\
+https://www.nytimes.com/2026/07/15/well/mass-shootings-traffic-deaths-link.html
+
+**Melissa Clark’s Panzanella**\
+`Where crunchy croutons and summer tomatoes meet milky mozzarella and juicy cucumbers.`\
+https://www.nytimes.com/2026/07/15/dining/melissa-clarks-panzanella.html
+
+**How to Protect Yourself From Alpha-Gal Syndrome**\
+`The red-meat allergy, caused by a tick bite, is becoming more common in parts of the country.`\
+https://www.nytimes.com/article/alpha-gal-syndrome-lone-star-ticks.html
+
+**The Supreme Court Is Drunk on Originalism**\
+`Has the court learned nothing?`\
+https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.html
+
+**Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
+`Kathryn Ruemmler, the former general counsel of Goldman Sachs, testified on Wednesday in a closed-door congressional hearing investigating Jeffery Epstein.`\
+https://www.nytimes.com/2026/07/15/business/goldman-kathy-ruemmler-epstein.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploader-93567.html
