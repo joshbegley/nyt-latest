@@ -1,3 +1,11 @@
+**U.S. Military Forces Again Blockade Iranian Ports**\
+`Following the collapse of the cease-fire with Iran, President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran.`\
+https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
+
+**Democrats Flock to House Proposal to End Aid to Israel**\
+`The measure failed, but the level of support among Democrats exposed a stark shift in the party away from backing the Jewish state.`\
+https://www.nytimes.com/2026/07/15/us/politics/democrats-house-israel-vote-aid.html
+
 **PayPal Receives $53 Billion Takeover Offer Involving Stripe**\
 `PayPal, which owns Venmo, is the target of what one group of analysts described as a “lowball” offer from Stripe, another payment processor, and Advent, a private equity firm.`\
 https://www.nytimes.com/2026/07/15/business/paypal-stripe-advent-takeover-bid.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/business/economy/iran-war-inflation-supply-ch
 **‘The Odyssey’ Review: Passion in Every Frame**\
 `Few directors close the divide between the art film and the blockbuster like Christopher Nolan.`\
 https://www.nytimes.com/2026/07/15/movies/the-odyssey-review.html
-
-**Elon Musk Funds Vivek Ramaswamy’s Bid for Ohio Governor Despite Their DOGE Clashes**\
-`Elon Musk gave $5 million to back Vivek Ramaswamy’s campaign for Ohio governor, seemingly moving past tensions around the effort to downsize the federal work force.`\
-https://www.nytimes.com/2026/07/15/us/politics/elon-musk-vivek-ramaswamy-ohio-governor-doge.html
-
-**I’m Worried My Kids Will Regret Cutting Off Their Dad. Should I Say Something?**\
-`They know he has health problems, but I’m not sure they fully grasp that death can come suddenly.`\
-https://www.nytimes.com/2026/07/15/magazine/divorce-estranged-kids-father-ethics.html
 
