@@ -1,3 +1,7 @@
+**17 People Rescued in San Francisco Bay After Boat Fire Near Alcatraz**\
+`The pleasure boat sank in San Francisco Bay. Divers are searching for one person who is missing, the fire department said.`\
+https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
+
 **U.S. War Against Iran Enters a New Phase**\
 `As President Trump resumes his war, the focus is now on the Strait of Hormuz. But it remains unclear how far the U.S. military will go to exert control.`\
 https://www.nytimes.com/2026/07/14/us/politics/us-war-iran-next-phase.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/business/trump-strait-of-hormuz.html
 **Chipotle Is Bringing Its Mexican-Inspired Fast Food to Monterrey, Mexico**\
 `The California-based restaurant chain is opening its first location south of the U.S.-Mexico border this week, bringing its bowls and burritos to Monterrey.`\
 https://www.nytimes.com/2026/07/14/business/chipotle-open-mexico-monterrey.html
-
-**A Soundtrack to the 2026 World Cup Semifinals**\
-`Listen to songs from Rosalía, Mauvais Djo, Ca7riel & Paco Amoroso and the Beatles.`\
-https://www.nytimes.com/2026/07/14/arts/music/amplifier-newsletter-world-cup-rosalia.html
 

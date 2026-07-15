@@ -1,3 +1,7 @@
+**17 People Rescued in San Francisco Bay After Boat Fire Near Alcatraz**\
+`The pleasure boat sank in San Francisco Bay. Divers are searching for one person who is missing, the fire department said.`\
+https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
+
 **U.S. War Against Iran Enters a New Phase**\
 `As President Trump resumes his war, the focus is now on the Strait of Hormuz. But it remains unclear how far the U.S. military will go to exert control.`\
 https://www.nytimes.com/2026/07/14/us/politics/us-war-iran-next-phase.html
