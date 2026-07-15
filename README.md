@@ -1,3 +1,7 @@
+**A.I.M by Kyle Abraham Performs ‘White Space’ at the New York Times**\
+`The New York City-based dance company A.I.M by Kyle Abraham performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
+https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-performs-white-space-at-the-new-york-times.html
+
 **U.S. Military Forces Again Blockade Iranian Ports**\
 `Following the collapse of the cease-fire with Iran, President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran.`\
 https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/business/spacex-ipo-price.html
 **War Risk for Businesses Will Mean Higher Prices No Matter What Happens**\
 `Doing business in a more dangerous and unpredictable world will cost more, pushing up the price of everything from food to electronics.`\
 https://www.nytimes.com/2026/07/15/business/economy/iran-war-inflation-supply-chains.html
-
-**‘The Odyssey’ Review: Passion in Every Frame**\
-`Few directors close the divide between the art film and the blockbuster like Christopher Nolan.`\
-https://www.nytimes.com/2026/07/15/movies/the-odyssey-review.html
 
