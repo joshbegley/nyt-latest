@@ -1,3 +1,7 @@
+**Boat That Sank Near Alcatraz Rolled After Wave Struck, Officials Say**\
+`The accident in the San Francisco Bay on Tuesday led to the death of the boat owner’s brother. The authorities say they plan to end the search for three people still missing.`\
+https://www.nytimes.com/2026/07/15/us/alcatraz-boat-captain.html
+
 **Video Pushed Local Police to Come Clean. D.H.S. Is Ignoring the Lessons.**\
 `The agency has said little about two fatal encounters in the past week. Local police departments have learned to be forthcoming.`\
 https://www.nytimes.com/2026/07/15/us/ice-public-statements.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/07/15/arts/pen-america-israel-gaza-report.html
 `To win, they’ll have to convince Democrats at a July 25 convention that they’re the best candidate to take on Senator Susan Collins, a Republican.`\
 https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-candidates.html
 
-**Ukraine’s Minister of Defense, a Proponent of Drone War, Steps Down**\
-`Mykhailo Fedorov announced he was leaving the ministry on Wednesday after conflicts with generals and military contractors over the role of innovative robot and drone weapons in war.`\
+**Ukraine’s Minister of Defense, a Proponent of Drone Warfare, Steps Down**\
+`Mykhailo Fedorov announced he was leaving the ministry on Wednesday after conflicts with generals and military contractors over the role of innovative weaponry.`\
 https://www.nytimes.com/2026/07/15/world/europe/ukraine-minister-of-defense-mykhailo-fedorov-zelensky-war-russia.html
 
 **England Lost in the World Cup. They Were Always Going to Lose.**\
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
 https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-performs-white-space-at-the-new-york-times.html
 
 **U.S. Military Again Blockades Iranian Ports After Collapse of Cease-Fire**\
-`President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran. Enforcing a blockade takes a massive commitment of warships and aircraft.`\
+`President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran. Enforcing a blockade takes a huge commitment of warships and aircraft.`\
 https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
 
 **Almost Half of House Democrats Vote to End Aid to Israel**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/science/meteorite-new-jersey.html
 **Meet Earth’s Newest Monkey. (And Check Out Its Orange Lips.)**\
 `It is only the fifth new African monkey identified as a new species in the past 75 years.`\
 https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-out-its-orange-lips.html
-
-**Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
-`Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health hazards.`\
-https://www.nytimes.com/article/heat-air-pollution-climate.html
 

@@ -1,3 +1,15 @@
+**Boat That Sank Near Alcatraz Rolled After Wave Struck, Officials Say**\
+`The accident in the San Francisco Bay on Tuesday led to the death of the boat owner’s brother. The authorities say they plan to end the search for three people still missing.`\
+https://www.nytimes.com/2026/07/15/us/alcatraz-boat-captain.html
+
+**Ukraine’s Minister of Defense, a Proponent of Drone Warfare, Steps Down**\
+`Mykhailo Fedorov announced he was leaving the ministry on Wednesday after conflicts with generals and military contractors over the role of innovative weaponry.`\
+https://www.nytimes.com/2026/07/15/world/europe/ukraine-minister-of-defense-mykhailo-fedorov-zelensky-war-russia.html
+
+**U.S. Military Again Blockades Iranian Ports After Collapse of Cease-Fire**\
+`President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran. Enforcing a blockade takes a huge commitment of warships and aircraft.`\
+https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
+
 **Video Pushed Local Police to Come Clean. D.H.S. Is Ignoring the Lessons.**\
 `The agency has said little about two fatal encounters in the past week. Local police departments have learned to be forthcoming.`\
 https://www.nytimes.com/2026/07/15/us/ice-public-statements.html
