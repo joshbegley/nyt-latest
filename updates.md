@@ -1,3 +1,19 @@
+**Estos animales eran diestros mucho antes de que hubiera manos**\
+`Un grupo de científicos propone que unos fósiles descubiertos hace poco podrían ser la evidencia más antigua de “lateralidad” de comportamiento en los animales.`\
+https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/animales-diestros-zurdos.html
+
+**Paramedics Help Save Lives in New York. Can They Afford to Live There?**\
+`Some of New York City’s emergency medical workers make just $18 an hour. Their boss, Zohran Mamdani, has staked his mayoralty on making New York City more affordable for all.`\
+https://www.nytimes.com/2026/07/15/nyregion/paramedics-help-save-lives-in-new-york-can-they-afford-to-live-there.html
+
+**Mamdani Will Advance Bronx Bus Lane Project to Improve Transit Speeds**\
+`The road redesign to prioritize buses, the first such project in the borough, had been put on hold after the Trump administration objected to a similar plan in Manhattan.`\
+https://www.nytimes.com/2026/07/15/nyregion/nyc-bus-lane-bronx-mamdani.html
+
+**NYT Spelling Bee Answers for July 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/15/crosswords/spelling-bee-forum.html
+
 **Cómo superé mi adicción al algoritmo sin ayuda de la tecnología**\
 `Probé muchos trucos para dejar de usar tanto las redes sociales. Lo que mejor me funcionó fue un simple ajuste en mi casa.`\
 https://www.nytimes.com/es/2026/07/15/espanol/opinion/adiccion-tiktok-instagram-algoritmo.html
