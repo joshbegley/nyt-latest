@@ -1,3 +1,7 @@
+**World Cup 2026: See How Spain Pulled Apart France’s Defense**\
+`View in 3-D how Spain cut through France’s defense to double its lead, securing a victory and a place in the World Cup final.`\
+https://www.nytimes.com/interactive/2026/07/14/sports/soccer/spain-france-world-cup-goal.html
+
 **Former Child Care Worker in Sydney Facing Over 300 Abuse Charges Is Identified**\
 `A Sydney court lifted the suppression order on identifying a man accused of abusing more than 100 children over 16 years.`\
 https://www.nytimes.com/2026/07/14/world/australia/sydney-child-abuse-daycare-worker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/nyregion/nyc-specialized-schools-black-hispan
 **Takeaways From Justices Kagan and Barrett’s Congressional Testimony on Supreme Court Security**\
 `Elena Kagan and Amy Coney Barrett, the first Supreme Court justices to testify since 2019, talked about ethics and security threats during collegial hearings.`\
 https://www.nytimes.com/2026/07/14/us/politics/supreme-court-congress-takeaways.html
-
-**La campaña de represalias de Trump**\
-`La participación del actual fiscal general interino de EE. UU. será un punto clave en su audiencia de confirmación, que tendrá lugar el miércoles.`\
-https://www.nytimes.com/es/2026/07/14/espanol/estados-unidos/trump-represalias-enemigos-blanche-fiscal.html
 
