@@ -1,3 +1,11 @@
+**Iran’s Top Negotiator Signals Door to Diplomacy Is Still Open**\
+`Facing intense divisions within Iran, Gen. Mohammad Bagher Ghalibaf both struck a defiant tone and argued that diplomacy could defend Iran’s interests.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-ghalibaf-us-talks.html
+
+**Hegseth Plans to Screen All Troops, Even Women, for Low Testosterone**\
+`Pete Hegseth, as defense secretary, has sought to cultivate an image as a manosphere-friendly leader.`\
+https://www.nytimes.com/2026/07/15/us/politics/hegseth-troops-testosterone.html
+
 **England Lost in the World Cup. They Were Always Going to Lose.**\
 `The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
 https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
