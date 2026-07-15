@@ -1,3 +1,7 @@
+**Billboard in Iran’s Capital Depicts Trump in a Coffin**\
+`Threatening imagery in Enghelab Square is nothing new, but has rarely taken such lurid form.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-coffin.html
+
 **Las infecciones por ‘Cyclospora’ aumentan. Su origen sigue sin saberse**\
 `El parásito, que ha enfermado a miles de personas en todo EE. UU., es notoriamente difícil de rastrear. Los recortes de fondos no han facilitado la tarea.`\
 https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-f
 **House G.O.P. Releases Budget to Unlock $95 Billion for Iran War and SAVE Act**\
 `The plan faces a rocky path amid Republican divisions and would pave the way for votes months before the midterm elections to fund a war that polls show is deeply unpopular.`\
 https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
-
-**Trump Pressures ICE to Resume Traffic Stops After They Were Halted Over Fatal Shootings**\
-`Immigration and Customs Enforcement ordered its officers on Tuesday to halt most vehicle stops across the country after they shot two people over the past week.`\
-https://www.nytimes.com/2026/07/15/us/politics/trump-ice-traffic-stops.html
 
 **Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
 `Senator John Cornyn of Texas said he remained undecided about how he would vote after questioning Mr. Blanche. But another closely watched Republican, Senator Thom Tillis, said Mr. Blanche did “a great job” in his testimony.`\
