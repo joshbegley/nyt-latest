@@ -1,3 +1,19 @@
+**United Airlines Will Soon Let You Take Over the Middle Seat, for a Price**\
+`The option, set to go on sale on some flights later this year, will feature a shared table in the middle seat. The move may actually save the airline money.`\
+https://www.nytimes.com/2026/07/15/travel/united-airlines-middle-seat.html
+
+**Senators Grill Justice Dept. Officials on New York Times Subpoenas**\
+`Democrats questioned the acting attorney general, Todd Blanche, and a U.S. attorney about subpoenas issued to Times journalists who reported on security concerns with the president’s new plane.`\
+https://www.nytimes.com/2026/07/15/business/media/blanche-clayton-senate-nyt-subpoenas.html
+
+**Republican Ads Take Aim at Mamdani to Attract Jewish Voters**\
+`New York Republican leaders began a targeted ad campaign, trying to persuade Jewish voters to change parties by accusing Mayor Zohran Mamdani of fostering antisemitism.`\
+https://www.nytimes.com/2026/07/15/nyregion/republicans-jews-mamdani.html
+
+**Who Is Ahead in Massachusetts's 4th Congressional District?**\
+`Track the latest polls in Massachusetts's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/massachusetts-us-house-4-polls-2026.html
+
 **Blanche Faces Crucial Hurdle After Rocky Hearing**\
 `Even a single Republican “no” vote would block Mr. Blanche’s nomination from consideration by the full Senate, which could sink his confirmation.`\
 https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterr
 **He Wanted to Be John Travolta. Instead, He Became ‘Kaves.’**\
 `As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhood changed his mind.`\
 https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
-
-**Traffic Deaths Spike After Deadly Mass Shootings, Study Suggests**\
-`Some gun violence experts are skeptical. But the research raises questions of whether there’s a cause-and-effect relationship and if so, what’s behind it.`\
-https://www.nytimes.com/2026/07/15/well/mass-shootings-traffic-deaths-link.html
-
-**Melissa Clark’s Panzanella**\
-`Where crunchy croutons and summer tomatoes meet milky mozzarella and juicy cucumbers.`\
-https://www.nytimes.com/2026/07/15/dining/melissa-clarks-panzanella.html
-
-**How to Protect Yourself From Alpha-Gal Syndrome**\
-`The red-meat allergy, caused by a tick bite, is becoming more common in parts of the country.`\
-https://www.nytimes.com/article/alpha-gal-syndrome-lone-star-ticks.html
-
-**Are We Still Supposed to Take This Conservative Legal Theory Seriously?**\
-`Has the court learned nothing?`\
-https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.html
 

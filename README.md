@@ -1,3 +1,7 @@
+**U.S. and Iran Trade Strikes With No Sign of Backing Down**\
+`On the fifth straight day of fighting, the U.S. launched a 90-minute attack on Iran, while Tehran targeted Bahrain, Jordan and Kuwait.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-us-strikes-war.html
+
 **United Airlines Will Soon Let You Take Over the Middle Seat, for a Price**\
 `The option, set to go on sale on some flights later this year, will feature a shared table in the middle seat. The move may actually save the airline money.`\
 https://www.nytimes.com/2026/07/15/travel/united-airlines-middle-seat.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/briefing/today-in-short.html
 **Argentina vs. Inglaterra: ¿por qué Latinoamérica apoya a los ingleses?**\
 `En lugar de apoyar al último equipo latinoamericano del torneo, otros países de la región se enfrentan a las controvertidas afirmaciones de Argentina sobre su propia identidad.`\
 https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterra-mundial-odio.html
-
-**He Wanted to Be John Travolta. Instead, He Became ‘Kaves.’**\
-`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhood changed his mind.`\
-https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
 
