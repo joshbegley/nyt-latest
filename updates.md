@@ -1,3 +1,11 @@
+**House Passes Bill to Make Daylight Saving Time Permanent**\
+`The House voted on Tuesday to make daylight saving time permanent. The bill now faces an uncertain fate in the Senate.`\
+https://www.nytimes.com/video/us/politics/100000011031805/daylight-saving-time-permanent-bill-house.html
+
+**Iran War Live Updates: Fears of Return to Full-Scale Conflict As Strikes Intensify**\
+`President Trump told Fox News that American forces would keep attacking until Iran agreed to negotiate. Tehran responded to a fourth straight night of strikes by targeting American military sites in the region.`\
+https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz
+
 **What Trump’s New Iran Blockade Could Mean for Oil Prices**\
 `The first blockade in April choked off Iranian exports without causing a lasting price surge. Now global oil reserves are lower, and ships face heightened risks.`\
 https://www.nytimes.com/2026/07/15/business/trump-iran-blockade-oil-prices.html
