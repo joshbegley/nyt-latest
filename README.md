@@ -1,3 +1,19 @@
+**Estos animales eran diestros mucho antes de que hubiera manos**\
+`Un grupo de científicos propone que unos fósiles descubiertos hace poco podrían ser la evidencia más antigua de “lateralidad” de comportamiento en los animales.`\
+https://www.nytimes.com/es/2026/07/15/espanol/ciencia-y-tecnologia/animales-diestros-zurdos.html
+
+**Paramedics Help Save Lives in New York. Can They Afford to Live There?**\
+`Some of New York City’s emergency medical workers make just $18 an hour. Their boss, Zohran Mamdani, has staked his mayoralty on making New York City more affordable for all.`\
+https://www.nytimes.com/2026/07/15/nyregion/paramedics-help-save-lives-in-new-york-can-they-afford-to-live-there.html
+
+**Mamdani Will Advance Bronx Bus Lane Project to Improve Transit Speeds**\
+`The road redesign to prioritize buses, the first such project in the borough, had been put on hold after the Trump administration objected to a similar plan in Manhattan.`\
+https://www.nytimes.com/2026/07/15/nyregion/nyc-bus-lane-bronx-mamdani.html
+
+**NYT Spelling Bee Answers for July 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/15/crosswords/spelling-bee-forum.html
+
 **Cómo superé mi adicción al algoritmo sin ayuda de la tecnología**\
 `Probé muchos trucos para dejar de usar tanto las redes sociales. Lo que mejor me funcionó fue un simple ajuste en mi casa.`\
 https://www.nytimes.com/es/2026/07/15/espanol/opinion/adiccion-tiktok-instagram-algoritmo.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-ukraine-trump.html
 **Lindsey Graham Made Trumpism in His Own Image**\
 `He bent the knee and made the most of it.`\
 https://www.nytimes.com/2026/07/14/opinion/lindsey-graham-trump-legacy.html
-
-**Trump Administration Subpoenas Law Firms, Escalating Pressure Campaign**\
-`The uneasy truce between the administration and the law firms it cut deals with last year has erupted into a pitched legal battle behind closed doors.`\
-https://www.nytimes.com/2026/07/14/us/politics/trump-subpoenas-law-firms-epshteyn-aba.html
-
-**‘Sully,’ ‘Miracle on the Hudson’ Pilot, Announces Alzheimer’s Diagnosis**\
-`Captain Sullenberger, who is known as Sully, said that the disease was in its early stages, and that he was “in the beginning of this long journey.”`\
-https://www.nytimes.com/2026/07/14/us/captain-sully-sullenberger-alzheimers.html
-
-**138 Picture Prompts to Inspire Student Writing**\
-`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing`\
-https://www.nytimes.com/2026/07/14/learning/138-picture-prompts-to-inspire-student-writing.html
-
-**Ban on Horse-Drawn Carriages Is Backed by Key N.Y.C. Official**\
-`The City Council speaker, Julie Menin, said she would support a bill to ban the rides in Central Park after a tourist was killed in an accident last month.`\
-https://www.nytimes.com/2026/07/14/nyregion/nyc-city-council-carriage-horse-ban.html
 
