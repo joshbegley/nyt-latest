@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html
+
 **Flash floods and Tornado Hit Texas Amid Heavy Rainfall**\
 `A tornado was spotted in San Antonio, and Uvalde and Harris counties experienced flooding as heavy rain fell on Tuesday and Wednesday.`\
 https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/weather/california-heat-fire-forecast.html
 **The Vague Clause That Helps Explain the U.S.-Iran Fight Over the Strait of Hormuz**\
 `The memorandum of understanding between the United States and Iran has done little to calm tension, in part because they disagree on what it actually means.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-hormuz-strait.html
-
-**Australia to Impose Energy and Water Guardrails on Data Centers Amid A.I. Boom**\
-`The country will also seek to protect the rights of creators of work used to train artificial intelligence models, as it aims to impose parameters on the growing industry.`\
-https://www.nytimes.com/2026/07/15/world/australia/albanese-artificial-intelligence-guardrails.html
 
