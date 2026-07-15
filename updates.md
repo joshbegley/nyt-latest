@@ -1,3 +1,7 @@
+**One Dead and Two Missing in San Francisco Bay After Boat Capsizes Near Alcatraz**\
+`Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
+https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
+
 **17 People Rescued in San Francisco Bay After Boat Fire Near Alcatraz**\
 `Sixteen other passengers were rescued after the pleasure boat sank in the San Francisco Bay on Tuesday.`\
 https://www.nytimes.com/2026/07/14/us/boat-fire-rescue-san-francisco-alcatraz.html
