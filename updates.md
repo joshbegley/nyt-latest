@@ -1,3 +1,11 @@
+**Lemon Yogurt Cheesecake**\
+`This tart and tangy cheesecake utilizes lots of lemon zest and juice for a punchy, bright flavor, plus Greek yogurt for a smooth, light texture that is irresistible.`\
+https://www.nytimes.com/video/dining/100000011033302/lemon-yogurt-cheesecake.html
+
+**Ceviche**\
+`Light and bright, vibrant and punchy, ceviche involves marinating raw seafood in citrus juice until it becomes opaque and toothsome. This colorful rendition is one style popular in Mexico, but if you leave out the tomatoes, cucumber and avocado, you’ll get a dish that’s common in Peru, the birthplace of ceviche.`\
+https://www.nytimes.com/video/dining/100000011033277/ceviche.html
+
 **SpaceX Briefly Falls Below I.P.O. Price of $135**\
 `After soaring in its stock market debut, the shares of Elon Musk’s rocket and A.I. company have been rocky.`\
 https://www.nytimes.com/2026/07/15/business/spacex-ipo-price.html
