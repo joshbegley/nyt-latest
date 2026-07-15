@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Hiking. “The Odyssey.” And a T. rex.`\
+https://www.nytimes.com/2026/07/15/briefing/today-in-short.html
+
 **Argentina vs. Inglaterra: ¿por qué Latinoamérica apoya a los ingleses?**\
 `En lugar de apoyar al último equipo latinoamericano del torneo, otros países de la región se enfrentan a las controvertidas afirmaciones de Argentina sobre su propia identidad.`\
 https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterra-mundial-odio.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/opinion/todd-blanche-attorney-general-senate-
 **Todd Blanche Faces Crucial Hurdle Ahead of Confirmation as Attorney General**\
 `Todd Blanche’s nomination is broadly a referendum on President Trump’s vision of the Justice Department as a projection of his power.`\
 https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation-doj.html
-
-**Tell Us Your Crossword Autocheck Hot Takes**\
-`We want to know your opinions about this New York Times Crossword feature for an upcoming article.`\
-https://www.nytimes.com/2026/07/15/crosswords/autocheck-hot-takes.html
 
