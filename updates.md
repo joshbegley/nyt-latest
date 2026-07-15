@@ -1,3 +1,11 @@
+**High Temperatures and Air Pollution Are an Unhealthy Combination**\
+`Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
+https://www.nytimes.com/article/heat-air-pollution-climate.html
+
+**Scott Bryce, ‘As the World Turns’ Actor, Dies at 68**\
+`He originated the role of the scheming Craig Montgomery and appeared in 280 episodes of the CBS soap opera over more than two decades.`\
+https://www.nytimes.com/2026/07/15/arts/television/scott-bryce-dead.html
+
 **How Worried Should You Be About Cyclospora?**\
 `Don’t stop eating fruits and vegetables.`\
 https://www.nytimes.com/2026/07/15/opinion/cyclospora-stomach-bug-risk-lettuce.html
