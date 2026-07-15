@@ -1,3 +1,7 @@
+**Late Night Calls Lindsey Graham’s Senate Seat ‘an Inheritance Jackpot’**\
+`“A Senate seat? Most people just get a garage full of damp boxes,” Michael Kosta said of Graham’s sister filling the late senator’s seat on “The Daily Show.”`\
+https://www.nytimes.com/2026/07/15/arts/television/late-night-lindsey-graham-sister-senator.html
+
 **Para desplegar una bandera del Mundial se necesita coordinación (y muchos brazos)**\
 `Las banderas se han convertido en íconos instantáneos de este torneo. Desplegarlas y doblarlas rápidamente en la cancha requiere una cuidadosa coreografía.`\
 https://www.nytimes.com/es/2026/07/15/espanol/deportes/copa-mundial-bandera-cancha.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/14/espanol/deportes/muere-antonio-rattin-arge
 **Restaurant Review: Demo in New York**\
 `Demo in the West Village earns its place among the sophisticated, youthful restaurants New York is so good at.`\
 https://www.nytimes.com/2026/07/14/dining/restaurant-review-demo-nyc.html
-
-**Culottes Are So Back**\
-`Culottes are back. Our Styles reporter Yola Mzizi explains their history and what they mean today.`\
-https://www.nytimes.com/video/style/100000011017153/culottes-are-so-back.html
 
