@@ -1,3 +1,7 @@
+**Is IBM a Canary in the Tech Coal Mine?**\
+`The company tumbled sharply after previewing quarterly results that were disappointing. It’s not good news for software and tech consulting companies.`\
+https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.html
+
 **Biden Will Release Memoir Just After the November Midterms**\
 `The former president announced that the book, “Promise Me, America,” will come out on Nov. 17, and will cover the tumultuous events of his presidency as well as his re-election bid.`\
 https://www.nytimes.com/2026/07/15/us/politics/joe-biden-book-midterms.html
