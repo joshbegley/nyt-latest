@@ -1,3 +1,11 @@
+**Messi’s Final Push as Argentina Face England**\
+`The Three Lions take on the reigning World Cup champions in a semifinal for the ages.`\
+https://www.nytimes.com/2026/07/15/podcasts/world-cup-semifinal-argentina-england-messi.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011032024/15vid-chabahar-ugc.html
+
 **Oil Prices Tick Higher as U.S. Reinstates Iran Blockade**\
 `The United States reinstated its blockade on Iranian ports in the Strait of Hormuz and shipping slowed to a crawl amid the renewed warfare in the critical waterway.`\
 https://www.nytimes.com/2026/07/15/business/oil-prices-stocks-gas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/15/books/review/christian-kracht-air.html
 **When Your First Apartment Is a Lemon**\
 `What New York homeowners can do before and after a purchase to avoid or mitigate shoddy construction.`\
 https://www.nytimes.com/2026/07/15/realestate/first-house-lemon-repairs.html
-
-**Are Chanel Ballet Flats Now the Birkins of the Foot?**\
-`Chanel flats in flashy colors and funky materials have become the shoe du jour of many creative, successful women.`\
-https://www.nytimes.com/2026/07/15/style/chanel-ballet-flats-new-and-used-are-the-birkins-of-the-foot.html
-
-**How Cities Across the United States Are Preventing Violent Crime**\
-`Across the United States, police departments have been augmented by new community partners that play a role in keeping the peace.`\
-https://www.nytimes.com/2026/07/15/headway/crime-violence-prevention-police.html
 
