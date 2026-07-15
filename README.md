@@ -1,3 +1,7 @@
+**‘Never Underestimate Xi Jinping’**\
+`Xi Jinping’s political ideology has shaped modern China. But what are the forces that have shaped him? On “The Ezra Klein Show,” Kevin Rudd, a former prime minister of Australia and an expert in Xi’s ideological worldview, breaks down the political formation of China’s president.`\
+https://www.nytimes.com/video/opinion/100000011023086/never-underestimate-xi-jinping.html
+
 **Phil Regan, Dodgers’ Closer Known as the Vulture, Dies at 89**\
 `He won 14 games in 1966 in relief, some of them following brilliant performances by the team’s starters, including Sandy Koufax, who bestowed the nickname.`\
 https://www.nytimes.com/2026/07/15/sports/baseball/phil-regan-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/world/middleeast/israel-us-iran-trump.html
 **Senator Mark Kelly Amasses Nearly $25 Million Campaign War Chest**\
 `The Arizona Democrat said he had raised and given away $10 million to fellow members of his party and committees as he mulls a presidential run in 2028.`\
 https://www.nytimes.com/2026/07/15/us/politics/mark-kelly-arizona-democrat-fundraising.html
-
-**Is This the Fastest Opinion Shift in American Politics?**\
-`David Wallace-Wells and Robinson Meyer discuss whether the gathering coalition of Americans against data centers could be the next Occupy Wall Street movement or Tea Party.`\
-https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
 
