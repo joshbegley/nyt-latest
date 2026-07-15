@@ -1,3 +1,15 @@
+**France Is Set to Allow Assisted Dying**\
+`Lawmakers were expected to approve a bill that would allow doctors to help terminally ill patients to die. If the law passes, the country would join a small group of nations that permit the measure.`\
+https://www.nytimes.com/2026/07/15/world/europe/france-law-assisted-dying.html
+
+**My Recently Widowed Mother Has Become Seriously Unhygienic. Help!**\
+`After her father’s death, a reader noticed her mother reusing dirty dishes and failing to wash her hands. How will her mother fare once she moves back out?`\
+https://www.nytimes.com/2026/07/15/style/grieving-mourning-cleanliness-hygiene.html
+
+**Live Updates: Todd Blanche, Trump’s Attorney General Pick, Faces Confirmation Hearing**\
+`Mr. Blanche, the acting attorney general who has overseen the Justice Department since Pam Bondi was fired, previously led Mr. Trump’s criminal defense team. He could face sharp questions from Republicans.`\
+https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
+
 **Is IBM a Canary in the Tech Coal Mine?**\
 `The company tumbled sharply after previewing quarterly results that were disappointing. It’s not good news for software and tech consulting companies.`\
 https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.html
