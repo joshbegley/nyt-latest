@@ -48,7 +48,7 @@ https://www.nytimes.com/2026/07/15/opinion/lindsey-graham-donald-trump.html
 
 **Jay Clayton Expected to Face Tough Questions in Confirmation Hearing**\
 `His nomination to lead the U.S. intelligence community comes as the White House pushes to use declassified intelligence to show concerns about election security.`\
-https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-expected-to-face-tough-questions-in-confirmation-hearing.html
+https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-confirmation-hearing-director-national-intelligence.html
 
 **Corrections: July 15, 2026**\
 `Corrections that appeared in print on Wednesday, July 15, 2026`\
@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/07/15/well/eat/cyclospora-outbreak-response.html
 `How new soccer strategies changed the way goalkeepers play.`\
 https://www.nytimes.com/2026/07/15/opinion/world-cup-soccer-football-goalkeeper.html
 
-**He Has a $25 Million Bounty on His Head, But Is Also a U.S. Partner in Venezuela.**\
+**He Has a $25 Million Bounty on His Head but Is Also a U.S. Partner in Venezuela**\
 `A list of alleged crimes has not prevented Diosdado Cabello, and other Venezuelan officials, from working with a U.S. government that once hounded them.`\
 https://www.nytimes.com/2026/07/15/world/americas/us-bounty-diosdado-cabello-venezuela.html
 

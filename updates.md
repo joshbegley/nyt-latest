@@ -1,3 +1,11 @@
+**Jay Clayton Expected to Face Tough Questions in Confirmation Hearing**\
+`His nomination to lead the U.S. intelligence community comes as the White House pushes to use declassified intelligence to show concerns about election security.`\
+https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-confirmation-hearing-director-national-intelligence.html
+
+**He Has a $25 Million Bounty on His Head but Is Also a U.S. Partner in Venezuela**\
+`A list of alleged crimes has not prevented Diosdado Cabello, and other Venezuelan officials, from working with a U.S. government that once hounded them.`\
+https://www.nytimes.com/2026/07/15/world/americas/us-bounty-diosdado-cabello-venezuela.html
+
 **Messi’s Final Push as Argentina Face England**\
 `The Three Lions take on the reigning World Cup champions in a semifinal for the ages.`\
 https://www.nytimes.com/2026/07/15/podcasts/world-cup-semifinal-argentina-england-messi.html
