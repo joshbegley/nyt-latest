@@ -1,3 +1,7 @@
+**Nevada Governor Drops His Own Name at Traffic Stop and Avoids Ticket**\
+`Gov. Joe Lombardo was pulled over for a suspected violation but did not receive a citation. That has elicited mixed reactions as he campaigns for re-election.`\
+https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.html
+
 **He Wanted to Be John Travolta. Instead, He Became ‘Kaves.’**\
 `As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhood changed his mind.`\
 https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
