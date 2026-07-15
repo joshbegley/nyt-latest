@@ -86,7 +86,7 @@ https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
 `Gov. Joe Lombardo was pulled over for a suspected violation but did not receive a citation. That has elicited mixed reactions as he campaigns for re-election.`\
 https://www.nytimes.com/2026/07/15/us/nevada-governor-joe-lombardo-traffic-stop.html
 
-**Treasury to Begin Minting $1 Gold Trump Coins Featuring President’s Face**\
+**Treasury to Begin Minting $1 Gold Trump Coin Featuring President’s Face**\
 `Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
 https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
 
@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/07/15/dining/melissa-clarks-panzanella.html
 `The red-meat allergy, caused by a tick bite, is becoming more common in parts of the country.`\
 https://www.nytimes.com/article/alpha-gal-syndrome-lone-star-ticks.html
 
-**When Originalism Jumped the Shark**\
+**Are We Still Supposed to Take This Conservative Legal Theory Seriously?**\
 `Has the court learned nothing?`\
 https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.html
 
