@@ -1,3 +1,7 @@
+**Kevin O’Leary Is Sued by Opponents He Claimed Were Foreign Agents**\
+`Kevin O’Leary, the celebrity investor, accused opponents of his proposed data center near the Great Salt Lake of being agents of China. Now they want compensation.`\
+https://www.nytimes.com/2026/07/15/us/kevin-oleary-data-center-lawsuit.html
+
 **Billboard in Iran’s Capital Depicts Trump in a Coffin**\
 `Threatening imagery in Enghelab Square is nothing new, but has rarely taken such lurid form.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-coffin.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-
 https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
 
 **Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
-`Roads were turning to rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who had been trapped.`\
+`Roads were turning to rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who had been stranded.`\
 https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
 
 **New Jersey Couple Aids Meteorite Discovery After it Crashes Through Their Roof**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
 **On Literacy Struggles and Sleeping Fish: The Winners of Week 4 of Our Summer Reading Contest**\
 `Megha Mishra learned a scientific fact that could have helped her childhood pet, while Samaira Rasul reflected on her classroom experiences with boys and reading.`\
 https://www.nytimes.com/2026/07/15/learning/on-literacy-struggles-and-sleeping-fish-the-winners-of-week-4-of-our-summer-reading-contest.html
-
-**House G.O.P. Releases Budget to Unlock $95 Billion for Iran War and SAVE Act**\
-`The plan faces a rocky path amid Republican divisions and would pave the way for votes months before the midterm elections to fund a war that polls show is deeply unpopular.`\
-https://www.nytimes.com/2026/07/15/us/politics/house-republicans-budget.html
 
 **Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
 `Senator John Cornyn of Texas said he remained undecided about how he would vote after questioning Mr. Blanche. But another closely watched Republican, Senator Thom Tillis, said Mr. Blanche did “a great job” in his testimony.`\

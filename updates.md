@@ -1,3 +1,23 @@
+**Billboard in Iran’s Capital Depicts Trump in a Coffin**\
+`Threatening imagery in Enghelab Square is nothing new, but has rarely taken such lurid form.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-coffin.html
+
+**Las infecciones por ‘Cyclospora’ aumentan. Su origen sigue sin saberse**\
+`El parásito, que ha enfermado a miles de personas en todo EE. UU., es notoriamente difícil de rastrear. Los recortes de fondos no han facilitado la tarea.`\
+https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
+
+**Flash Floods and Tornado Hit Texas Amid Heavy Rainfall**\
+`A tornado was spotted in San Antonio, and Uvalde and Harris counties experienced flooding as heavy rain fell on Tuesday and Wednesday.`\
+https://www.nytimes.com/video/us/100000011032618/texas-floods-tornado.html
+
+**Treasury to Begin Minting $1 Gold Trump Coins Featuring President’s Face**\
+`Critics question whether the coins are legal and argue that President Trump is using the currency to celebrate himself.`\
+https://www.nytimes.com/2026/07/15/us/politics/gold-trump-coins.html
+
+**Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
+`Senator John Cornyn of Texas said he remained undecided about how he would vote after questioning Mr. Blanche. But another closely watched Republican, Senator Thom Tillis, said Mr. Blanche did “a great job” in his testimony.`\
+https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
+
 **Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
 `Roads were turning to rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who had been trapped.`\
 https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
