@@ -1,3 +1,7 @@
+**Biden Will Release Memoir Just After the November Midterms**\
+`The former president announced that the book, “Promise Me, America,” will come out on Nov. 17, and will cover the tumultuous events of his presidency as well as his re-election bid.`\
+https://www.nytimes.com/2026/07/15/us/politics/joe-biden-book-midterms.html
+
 **Live Updates: Todd Blanche, Trump’s Attorney General Pick, Faces Confirmation Hearing**\
 `Mr. Blanche, the acting attorney general who has led the Justice Department since Pam Bondi was fired, previously led Mr. Trump’s criminal defense team. He could face sharp questions from Republicans.`\
 https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/arts/music/lido-pimienta-new-album-caribenya.
 **Word of the Day: totter**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/15/learning/word-of-the-day-totter.html
-
-**Why Did a Major Museum’s Bong Show Go Up in Smoke?**\
-`After the Toledo Museum of Art canceled a pioneering exhibition of glass cannabis pipes, many people wondered what lay behind the decision.`\
-https://www.nytimes.com/2026/07/15/arts/design/cannabis-glass-pipes-toledo-art-museum.html
 
