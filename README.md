@@ -1,3 +1,11 @@
+**Lemon Yogurt Cheesecake**\
+`This tart and tangy cheesecake utilizes lots of lemon zest and juice for a punchy, bright flavor, plus Greek yogurt for a smooth, light texture that is irresistible.`\
+https://www.nytimes.com/video/dining/100000011033302/lemon-yogurt-cheesecake.html
+
+**Ceviche**\
+`Light and bright, vibrant and punchy, ceviche involves marinating raw seafood in citrus juice until it becomes opaque and toothsome. This colorful rendition is one style popular in Mexico, but if you leave out the tomatoes, cucumber and avocado, you’ll get a dish that’s common in Peru, the birthplace of ceviche.`\
+https://www.nytimes.com/video/dining/100000011033277/ceviche.html
+
 **U.S. and Iran Trade Strikes With No Sign of Backing Down**\
 `On the fifth straight day of fighting, the U.S. launched a 90-minute attack on Iran, while Tehran targeted Bahrain, Jordan and Kuwait.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-us-strikes-war.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/sports/baseball/phil-regan-dead.html
 **U.S. and Iran Continue Trading Fire**\
 `The United States and Iran exchanged strikes for a fifth consecutive day on Wednesday.`\
 https://www.nytimes.com/video/world/middleeast/100000011032002/us-iran-strikes-mideast-war.html
-
-**Today, In Short**\
-`Hiking. “The Odyssey.” And a T. rex.`\
-https://www.nytimes.com/2026/07/15/briefing/today-in-short.html
-
-**Argentina vs. Inglaterra: ¿por qué Latinoamérica apoya a los ingleses?**\
-`En lugar de apoyar al último equipo latinoamericano del torneo, otros países de la región se enfrentan a las controvertidas afirmaciones de Argentina sobre su propia identidad.`\
-https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterra-mundial-odio.html
 

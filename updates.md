@@ -1,3 +1,7 @@
+**SpaceX Briefly Falls Below I.P.O. Price of $135**\
+`After soaring in its stock market debut, the shares of Elon Musk’s rocket and A.I. company have been rocky.`\
+https://www.nytimes.com/2026/07/15/business/spacex-ipo-price.html
+
 **U.S. and Iran Trade Strikes With No Sign of Backing Down**\
 `On the fifth straight day of fighting, the U.S. launched a 90-minute attack on Iran, while Tehran targeted Bahrain, Jordan and Kuwait.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-us-strikes-war.html

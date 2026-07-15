@@ -150,7 +150,7 @@ https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/horario-de-verano-e
 `He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
 https://www.nytimes.com/2026/07/15/us/trump-mike-lindell-endorsement-minnesota.html
 
-**SpaceX Falls Below I.P.O. Price of $135**\
+**SpaceX Briefly Falls Below I.P.O. Price of $135**\
 `After soaring in its stock market debut, the shares of Elon Musk’s rocket and A.I. company have been rocky.`\
 https://www.nytimes.com/2026/07/15/business/spacex-ipo-price.html
 
