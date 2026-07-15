@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.
 https://www.nytimes.com/2026/07/15/us/politics/joe-biden-book-midterms.html
 
 **Live Updates: Todd Blanche, Trump’s Attorney General Pick, Faces Confirmation Hearing**\
-`Mr. Blanche, the acting attorney general who has led the Justice Department since Pam Bondi was fired, previously led Mr. Trump’s criminal defense team. He could face sharp questions from Republicans.`\
+`Mr. Blanche, the acting attorney general who has overseen the Justice Department since Pam Bondi was fired, previously led Mr. Trump’s criminal defense team. He could face sharp questions from Republicans.`\
 https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
 
 **California Weather Shift Brings With It a Risk of Unhealthy Heat and Wildfires**\
