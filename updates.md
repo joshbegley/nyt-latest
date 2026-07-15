@@ -1,3 +1,15 @@
+**A.I.M by Kyle Abraham Performs ‘White Space’ at the New York Times**\
+`The New York City-based dance company A.I.M by Kyle Abraham performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
+https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-performs-white-space-at-the-new-york-times.html
+
+**U.S. Military Forces Again Blockade Iranian Ports**\
+`Following the collapse of the cease-fire with Iran, President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran.`\
+https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
+
+**Democrats Flock to House Proposal to End Aid to Israel**\
+`The measure failed, but the level of support among Democrats exposed a stark shift in the party away from backing the Jewish state.`\
+https://www.nytimes.com/2026/07/15/us/politics/democrats-house-israel-vote-aid.html
+
 **PayPal Receives $53 Billion Takeover Offer Involving Stripe**\
 `PayPal, which owns Venmo, is the target of what one group of analysts described as a “lowball” offer from Stripe, another payment processor, and Advent, a private equity firm.`\
 https://www.nytimes.com/2026/07/15/business/paypal-stripe-advent-takeover-bid.html
