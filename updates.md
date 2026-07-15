@@ -1,3 +1,7 @@
+**He Wanted to Be John Travolta. Instead, He Became ‘Kaves.’**\
+`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhood changed his mind.`\
+https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011033167/15vid-tillis-mirror-sot-vert.html

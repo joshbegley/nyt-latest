@@ -163,7 +163,7 @@ https://www.nytimes.com/2026/07/15/briefing/today-in-short.html
 https://www.nytimes.com/es/2026/07/15/espanol/america-latina/argentina-inglaterra-mundial-odio.html
 
 **He Wanted to Be John Travolta. Instead, He Became ‘Kaves.’**\
-`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhod changed his mind.`\
+`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhood changed his mind.`\
 https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
 
 **Traffic Deaths Spike After Deadly Mass Shootings, Study Suggests**\
