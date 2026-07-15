@@ -1,3 +1,11 @@
+**How Worried Should You Be About Cyclospora?**\
+`Don’t stop eating fruits and vegetables.`\
+https://www.nytimes.com/2026/07/15/opinion/cyclospora-stomach-bug-risk-lettuce.html
+
+**Las mujeres de la Marina de EE. UU. ven reducidas sus oportunidades**\
+`El secretario de Defensa, Pete Hegseth, ha retirado de las listas para ascensos a unos 40 oficiales, muchos de ellos mujeres o personas de color.`\
+https://www.nytimes.com/es/2026/07/15/espanol/estados-unidos/mujeres-ejercito-marina-diversidad.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032767/15vid-blanche-cornyn-exchange.html

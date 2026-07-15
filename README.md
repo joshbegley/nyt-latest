@@ -1,3 +1,7 @@
+**High Temperatures and Air Pollution Are an Unhealthy Combination**\
+`Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health risks.`\
+https://www.nytimes.com/article/heat-air-pollution-climate.html
+
 **How Worried Should You Be About Cyclospora?**\
 `Don’t stop eating fruits and vegetables.`\
 https://www.nytimes.com/2026/07/15/opinion/cyclospora-stomach-bug-risk-lettuce.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/15/style/grieving-mourning-cleanliness-hygiene.h
 **IBM’s Stock Crash Reignites Fears of A.I. Disruption in Software Sector**\
 `The company tumbled sharply after previewing quarterly results that were disappointing. It’s not good news for software and tech consulting companies.`\
 https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.html
-
-**Biden Will Release Memoir Just After the November Midterms**\
-`The former president announced that the book, “Promise Me, America,” will come out on Nov. 17, and will cover the tumultuous events of his presidency as well as his re-election bid.`\
-https://www.nytimes.com/2026/07/15/us/politics/joe-biden-book-midterms.html
 
 **Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
 `Mr. Blanche, the acting attorney general and a former leader of Mr. Trump’s criminal defense team, faced methodical questioning from Senator John Cornyn of Texas, who has expressed doubts about him.`\
