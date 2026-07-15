@@ -1,3 +1,7 @@
+**Video Pushed Local Police to Come Clean. D.H.S. Is Ignoring the Lessons.**\
+`The agency has said little about two fatal encounters in the past week. Local police departments have learned to be forthcoming.`\
+https://www.nytimes.com/2026/07/15/us/ice-public-statements.html
+
 **Door-to-Door Search for Grapevines Sold at Costco Begins in California’s Santa Clara County**\
 `Officials in Santa Clara County began knocking on doors on Monday to collect potentially infested plants sold at some Costco stores.`\
 https://www.nytimes.com/2026/07/15/us/california-costco-plants-recall.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/07/15/us/trump-fires-prosecutor-roger-rogoff.html
 https://www.nytimes.com/2026/07/15/nyregion/lawler-dui-arrest.html
 
 **G.O.P. Appears to Boost Socialist’s Primary Campaign for Wisconsin Governor**\
-`Republicans appear to view Francesca Hong as their weakest opponent in a general election. They are spending $2.2 million in an apparent attempt to aid her primary campaign.`\
+`Republicans seem to view Francesca Hong as their weakest opponent in a general election. They are spending $2.2 million in an apparent attempt to aid her primary campaign.`\
 https://www.nytimes.com/2026/07/15/us/politics/republicans-francesca-hong-wisconsin-governor.html
 
 **Parents of Teen Killed During Horse Carriage Ride Plead for a Ban**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-o
 **Canada Wildfire Air Pollution and Heat Wave Combo Pose Heightened Health Risks**\
 `Days that are both extremely hot and polluted come with higher risks of respiratory ailments and other health hazards.`\
 https://www.nytimes.com/article/heat-air-pollution-climate.html
-
-**Scott Bryce, ‘As the World Turns’ Actor, Dies at 68**\
-`He originated the role of the scheming Craig Montgomery and appeared in 280 episodes of the CBS soap opera over more than two decades.`\
-https://www.nytimes.com/2026/07/15/arts/television/scott-bryce-dead.html
 

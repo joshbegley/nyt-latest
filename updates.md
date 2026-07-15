@@ -1,3 +1,11 @@
+**Video Pushed Local Police to Come Clean. D.H.S. Is Ignoring the Lessons.**\
+`The agency has said little about two fatal encounters in the past week. Local police departments have learned to be forthcoming.`\
+https://www.nytimes.com/2026/07/15/us/ice-public-statements.html
+
+**G.O.P. Appears to Boost Socialist’s Primary Campaign for Wisconsin Governor**\
+`Republicans seem to view Francesca Hong as their weakest opponent in a general election. They are spending $2.2 million in an apparent attempt to aid her primary campaign.`\
+https://www.nytimes.com/2026/07/15/us/politics/republicans-francesca-hong-wisconsin-governor.html
+
 **Door-to-Door Search for Grapevines Sold at Costco Begins in California’s Santa Clara County**\
 `Officials in Santa Clara County began knocking on doors on Monday to collect potentially infested plants sold at some Costco stores.`\
 https://www.nytimes.com/2026/07/15/us/california-costco-plants-recall.html
