@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche-sot-epstein-files-vert.html
+
+**Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
+`Kathryn Ruemmler, the former general counsel of Goldman Sachs testified on Wednesday in a closed door congressional hearing investigating Jeffery Epstein.`\
+https://www.nytimes.com/2026/07/15/business/goldman-kathy-ruemmler-epstein.html
+
+**Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
+`Mr. Blanche, the acting attorney general and a former leader of Mr. Trump’s criminal defense team, faced methodical questioning from Senator John Cornyn of Texas, who has expressed doubts about him.`\
+https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
+
 **Archaeologists Unearth a 2,400-Year-Old Sanctuary for the Worship of Odysseus**\
 `The ruins of a 2,400-year-old complex suggest that, to the Greeks of antiquity, Homer’s protagonist was not just a character in a poem but a figure of genuine devotion.`\
 https://www.nytimes.com/2026/07/15/science/archaeology-homer-odyssey-ithaca.html

@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche-sot-epstein-files-vert.html
+
+**Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
+`Kathryn Ruemmler, the former general counsel of Goldman Sachs testified on Wednesday in a closed door congressional hearing investigating Jeffery Epstein.`\
+https://www.nytimes.com/2026/07/15/business/goldman-kathy-ruemmler-epstein.html
+
 **Archaeologists Unearth a 2,400-Year-Old Sanctuary for the Worship of Odysseus**\
 `The ruins of a 2,400-year-old complex suggest that, to the Greeks of antiquity, Homer’s protagonist was not just a character in a poem but a figure of genuine devotion.`\
 https://www.nytimes.com/2026/07/15/science/archaeology-homer-odyssey-ithaca.html
@@ -58,8 +66,8 @@ https://www.nytimes.com/2026/07/15/business/dealbook/ibm-ai-software-consulting.
 `The former president announced that the book, “Promise Me, America,” will come out on Nov. 17, and will cover the tumultuous events of his presidency as well as his re-election bid.`\
 https://www.nytimes.com/2026/07/15/us/politics/joe-biden-book-midterms.html
 
-**Live Updates: Todd Blanche, Trump’s Attorney General Pick, Faces Confirmation Hearing**\
-`Mr. Blanche, the acting attorney general who has overseen the Justice Department since Pam Bondi was fired, previously led Mr. Trump’s criminal defense team. He could face sharp questions from Republicans.`\
+**Live Updates: Key G.O.P. Senator Presses Todd Blanche, Trump’s Attorney General Pick**\
+`Mr. Blanche, the acting attorney general and a former leader of Mr. Trump’s criminal defense team, faced methodical questioning from Senator John Cornyn of Texas, who has expressed doubts about him.`\
 https://www.nytimes.com/live/2026/07/15/us/todd-blanche-hearing-attorney-general
 
 **California Weather Shift Brings With It a Risk of Unhealthy Heat and Wildfires**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/nyregion/could-this-be-the-end-of-carriage-ho
 **Does This Superagent Hold the Keys to 2028?**\
 `Ari Emanuel’s empire just happens to include some of the most influential figures of the moment. That could work out well for his brother, Rahm Emanuel.`\
 https://www.nytimes.com/2026/07/15/style/ari-emanuel-rahm-emanuel-2028.html
-
-**Cyclospora Cases Rise Rapidly, With No Source Yet Confirmed**\
-`The parasite, which has sickened thousands across the U.S., is notoriously difficult to track. Funding cuts haven’t made the job easier.`\
-https://www.nytimes.com/2026/07/15/well/eat/cyclospora-outbreak-response.html
-
-**How I Stayed Sane as a World Cup Goalkeeper**\
-`How new soccer strategies changed the way goalkeepers play.`\
-https://www.nytimes.com/2026/07/15/opinion/world-cup-soccer-football-goalkeeper.html
 
