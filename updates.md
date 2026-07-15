@@ -1,3 +1,27 @@
+**Oil Prices Tick Higher as U.S. Reinstates Iran Blockade**\
+`The United States reinstated its blockade on Iranian ports in the Strait of Hormuz and shipping slowed to a crawl amid the renewed warfare in the critical waterway.`\
+https://www.nytimes.com/2026/07/15/business/oil-prices-stocks-gas.html
+
+**From Trump’s Attorney to Attorney General: The Rise of Todd Blanche**\
+`A gamble to become President Trump’s personal lawyer has landed Todd Blanche the chance to be the nation’s top law enforcement official.`\
+https://www.nytimes.com/2026/07/15/podcasts/the-daily/trump-attorney-general-todd-blanche.html
+
+**Trump Flip-Flops on Strait of Hormuz Plan, and U.S. Cyclospora Outbreak Spreads**\
+`Plus, Chipotle is coming to Mexico.`\
+https://www.nytimes.com/2026/07/15/podcasts/the-headlines/trump-trait-of-hormuz-plan-us-cyclospora-outbreak.html
+
+**NYT Connections Answers for July 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/15/crosswords/connections-companion-1131.html
+
+**NYT Strands Hints for July 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/15/crosswords/strands-sidekick-865.html
+
+**Today’s Wordle Hints for July 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/15/crosswords/wordle-review-1853.html
+
 **Wildfire Smoke Spreads Across the Northeast as Temperatures Spike**\
 `A heat dome is responsible for miserably high temperatures, and it’s also helping to push smoke from wildfires to the east.`\
 https://www.nytimes.com/2026/07/15/weather/heat-dome-wildfire-smoke-minnesota-canada-nyc.html
