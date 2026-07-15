@@ -1,3 +1,23 @@
+**He Thought He Had to Break Out of Brooklyn. Instead, He Celebrates It.**\
+`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and leave the neighborhood. Was it a tragedy that changed his mind?`\
+https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
+
+**Traffic Deaths Spike After Deadly Mass Shootings, Study Suggests**\
+`Some gun violence experts are skeptical. But the research raises questions of whether there’s a cause-and-effect relationship and if so, what’s behind it.`\
+https://www.nytimes.com/2026/07/15/well/mass-shootings-traffic-deaths-link.html
+
+**Melissa Clark’s Panzanella**\
+`Where crunchy croutons and summer tomatoes meet milky mozzarella and juicy cucumbers.`\
+https://www.nytimes.com/2026/07/15/dining/melissa-clarks-panzanella.html
+
+**How to Protect Yourself From Alpha-Gal Syndrome**\
+`The red-meat allergy, caused by a tick bite, is becoming more common in parts of the country.`\
+https://www.nytimes.com/article/alpha-gal-syndrome-lone-star-ticks.html
+
+**The Supreme Court Is Drunk on Originalism**\
+`Has the court learned nothing?`\
+https://www.nytimes.com/2026/07/15/opinion/supreme-court-originalism-bruen-guns.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploader-93567.html
@@ -7,7 +27,7 @@ https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploa
 https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche-sot-epstein-files-vert.html
 
 **Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
-`Kathryn Ruemmler, the former general counsel of Goldman Sachs testified on Wednesday in a closed door congressional hearing investigating Jeffery Epstein.`\
+`Kathryn Ruemmler, the former general counsel of Goldman Sachs, testified on Wednesday in a closed-door congressional hearing investigating Jeffery Epstein.`\
 https://www.nytimes.com/2026/07/15/business/goldman-kathy-ruemmler-epstein.html
 
 **Archaeologists Unearth a 2,400-Year-Old Sanctuary for the Worship of Odysseus**\
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/07/15/crosswords/autocheck-hot-takes.html
 **Trump’s Latest Nominee for C.D.C. Director Will Face Senate Panel**\
 `Dr. Erica Schwartz supports vaccines and is seen as a mainstream choice to lead an agency that has been a target of Health Secretary Robert F. Kennedy Jr.’s efforts to change federal immunization policies.`\
 https://www.nytimes.com/2026/07/15/health/cdc-erica-schwartz.html
-
-**Platner Was Toxic. But Democrats Could Learn From His Politics.**\
-`His progressive, populist message was able to occupy a kind of middle ground in the party’s primary electorate.`\
-https://www.nytimes.com/2026/07/15/upshot/platner-democrats-progressives-liberals.html
-
-**A Year After DOGE Cuts, Social Security Is Trying to Stabilize**\
-`The agency has been quietly hiring workers again, and its leadership is focused on improving technology to ease workloads left by the departure of about 7,800 staff members.`\
-https://www.nytimes.com/2026/07/15/business/social-security-offices.html
-
-**$425,000 Homes in Georgia, Rhode Island and Arizona**\
-`A townhouse in Savannah, Ga., a condo in Providence, R.I., and a desert home in Tucson, Ariz.`\
-https://www.nytimes.com/2026/07/15/realestate/homes-for-sale-in-savannah-providence-tucson.html
-
-**A Designer Prizes Simplicity in a Hudson Retreat**\
-`Brian Messana of Messana O’Rorke selects some practical lighting and special seating in his upstate bedroom.`\
-https://www.nytimes.com/2026/07/15/realestate/a-designer-prizes-simplicity-in-a-hudson-retreat.html
-
-**Could This Be the End of Carriage Horse Rides in Central Park?**\
-`Past moves to ban the rides have fizzled, but the death of a teenage tourist last month appears to have changed the political landscape.`\
-https://www.nytimes.com/2026/07/15/nyregion/could-this-be-the-end-of-carriage-horse-rides-in-central-park.html
 

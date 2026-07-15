@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploader-93567.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche-sot-epstein-files-vert.html
 
 **Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/realestate/a-designer-prizes-simplicity-in-a-
 **Could This Be the End of Carriage Horse Rides in Central Park?**\
 `Past moves to ban the rides have fizzled, but the death of a teenage tourist last month appears to have changed the political landscape.`\
 https://www.nytimes.com/2026/07/15/nyregion/could-this-be-the-end-of-carriage-horse-rides-in-central-park.html
-
-**Does This Superagent Hold the Keys to 2028?**\
-`Ari Emanuel’s empire just happens to include some of the most influential figures of the moment. That could work out well for his brother, Rahm Emanuel.`\
-https://www.nytimes.com/2026/07/15/style/ari-emanuel-rahm-emanuel-2028.html
 

@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploader-93567.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche-sot-epstein-files-vert.html
 
 **Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
