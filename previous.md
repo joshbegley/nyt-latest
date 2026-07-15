@@ -1,3 +1,11 @@
+**I’m Worried My Kids Will Regret Cutting Off Their Dad. Should I Say Something?**\
+`They know he has health problems, but I’m not sure they fully grasp that death can come suddenly.`\
+https://www.nytimes.com/2026/07/15/magazine/divorce-estranged-kids-father-ethics.html
+
+**When Will Xi Jinping Move on Taiwan?**\
+`The question of Taiwan looms over China’s relationship with the rest of the world. On “The Ezra Klein Show,” Kevin Rudd, a former prime minister of Australia and a China scholar, explains why he thinks President Xi Jinping has been “sharpening his levels of preparedness” in recent years for some sort of military action related to the island.`\
+https://www.nytimes.com/video/opinion/100000011023087/when-will-xi-jinping-move-on-taiwan.html
+
 **‘Never Underestimate Xi Jinping’**\
 `Xi Jinping’s political ideology has shaped modern China. But what are the forces that have shaped him? On “The Ezra Klein Show,” Kevin Rudd, a former prime minister of Australia and an expert in Xi’s ideological worldview, breaks down the political formation of China’s president.`\
 https://www.nytimes.com/video/opinion/100000011023086/never-underestimate-xi-jinping.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-confirmation-hearing-
 **Corrections: July 15, 2026**\
 `Corrections that appeared in print on Wednesday, July 15, 2026`\
 https://www.nytimes.com/2026/07/15/pageoneplus/corrections-july-15-2026.html
-
-**For Israel, the U.S.-Iran Hostilities Have Created an Uneasy Limbo**\
-`Officials see a return to full-blown war as preferable to an agreement that fails to curb the threats Iran poses to Israel. Meanwhile, they wait.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/israel-us-iran-trump.html
-
-**Senator Mark Kelly Amasses Nearly $25 Million Campaign War Chest**\
-`The Arizona Democrat said he had raised and given away $10 million to fellow members of his party and committees as he mulls a presidential run in 2028.`\
-https://www.nytimes.com/2026/07/15/us/politics/mark-kelly-arizona-democrat-fundraising.html
 
