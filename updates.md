@@ -1,3 +1,7 @@
+**He Wanted to Be John Travolta. Instead, He Became ‘Kaves.’**\
+`As a child, Michael McLeer wanted to be like John Travolta in “Saturday Night Fever” and escape Brooklyn. A tragedy in the neighborhod changed his mind.`\
+https://www.nytimes.com/2026/07/15/nyregion/michael-mcleer-kaves-graffiti-brooklyn.html
+
 **Everybody Loves Cheese. Why Is Selling It So Hard These Days?**\
 `Cheesemongering is a calling, requiring deep expertise and longstanding relationships, but today’s retail environment is making it more and more difficult.`\
 https://www.nytimes.com/2026/07/15/dining/cheesemonger-jobs.html

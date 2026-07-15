@@ -2,7 +2,7 @@
 `Cheesemongering is a calling, requiring deep expertise and longstanding relationships, but today’s retail environment is making it more and more difficult.`\
 https://www.nytimes.com/2026/07/15/dining/cheesemonger-jobs.html
 
-**Inside Maine Democrats’ Unusual, Rushed Search for a New Senate Nominee**\
+**Inside Maine Democrats’ Search for a New Senate Nominee After Graham Platner’s Exit**\
 `Democratic candidates are hastily building bare-bones campaigns and forgoing traditional outreach like TV ads in a sprint to appeal to party delegates, rather than Maine voters.`\
 https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-convention.html
 
