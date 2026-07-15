@@ -1,6 +1,10 @@
+**The Vague Clause That Helps Explain the U.S.-Iran Fight Over the Strait of Hormuz**\
+`The memorandum of understanding between the United States and Iran has done little to calm tension, in part because they disagree on what it actually means.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-hormuz-strait.html
+
 **Australia to Impose Energy and Water Guardrails on Data Centers Amid A.I. Boom**\
 `The country will also seek to protect the rights of creators of work used to train artificial intelligence models, as it aims to impose parameters on the growing industry.`\
-https://www.nytimes.com/2026/07/15/world/asia/australia-artificial-intelligence-guardrails.html
+https://www.nytimes.com/2026/07/15/world/australia/albanese-artificial-intelligence-guardrails.html
 
 **Fatal Encounters**\
 `We look at shootings by federal immigration agents.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/magazine/electric-cars-american-evs.html
 **For the Eclipse or a Weekend, How to Save Money in Reykjavik**\
 `A museum pass, public hot springs and free airline stopovers help shrink the cost of visiting Iceland’s capital.`\
 https://www.nytimes.com/2026/07/15/travel/how-to-save-money-in-reykjavik.html
-
-**A Real Estate Guide to Stockton, N.J.**\
-`Historic stone buildings and a thriving restaurant scene meet the rural landscape of the Delaware Valley.`\
-https://www.nytimes.com/2026/07/15/realestate/stockton-nj-a-friendly-river-town.html
 
