@@ -1,3 +1,11 @@
+**Cyclospora Outbreak: What to Know About Symptoms and Food Safety**\
+`The parasite has sickened thousands across the United States. Experts have tips on how to stay safe.`\
+https://www.nytimes.com/2026/07/15/well/eat/cyclospora-stomach-bug-what-to-know.html
+
+**Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
+`Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who were stranded.`\
+https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
+
 **Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
 `Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue those who were stranded.`\
 https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html

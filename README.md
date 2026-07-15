@@ -1,3 +1,7 @@
+**Iran, Epstein, Space Travel: 5 Takeaways From JD Vance’s Interview With Joe Rogan**\
+`In his first on-air conversation with the popular podcaster since 2024, the vice president cautiously defended the Iran war while also hinting at skepticism about it.`\
+https://www.nytimes.com/2026/07/15/us/politics/jd-vance-rogan-interview.html
+
 **Cyclospora Outbreak: What to Know About Symptoms and Food Safety**\
 `The parasite has sickened thousands across the United States. Experts have tips on how to stay safe.`\
 https://www.nytimes.com/2026/07/15/well/eat/cyclospora-stomach-bug-what-to-know.html
@@ -107,7 +111,7 @@ https://www.nytimes.com/2026/07/15/arts/television/scott-bryce-dead.html
 https://www.nytimes.com/2026/07/15/us/politics/blumenthal-blanche-trump-clemency.html
 
 **How Worried Should You Be About Cyclospora?**\
-`Don’t stop eating fruits and vegetables.`\
+`We didn’t need an outbreak of a nightmare stomach bug. But here we are.`\
 https://www.nytimes.com/2026/07/15/opinion/cyclospora-stomach-bug-risk-lettuce.html
 
 **Las mujeres de la Marina de EE. UU. ven reducidas sus oportunidades**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011023087/when-will-xi-jinping-move-
 **‘Never Underestimate Xi Jinping’**\
 `Xi Jinping’s political ideology has shaped modern China. But what are the forces that have shaped him? On “The Ezra Klein Show,” Kevin Rudd, a former prime minister of Australia and an expert in Xi’s ideological worldview, breaks down the political formation of China’s president.`\
 https://www.nytimes.com/video/opinion/100000011023086/never-underestimate-xi-jinping.html
-
-**Phil Regan, Dodgers’ Closer Known as the Vulture, Dies at 89**\
-`He won 14 games in 1966 in relief, some of them following brilliant performances by the team’s starters, including Sandy Koufax, who bestowed the nickname.`\
-https://www.nytimes.com/2026/07/15/sports/baseball/phil-regan-dead.html
 

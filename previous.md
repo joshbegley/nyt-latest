@@ -1,3 +1,7 @@
+**Cyclospora Outbreak: What to Know About Symptoms and Food Safety**\
+`The parasite has sickened thousands across the United States. Experts have tips on how to stay safe.`\
+https://www.nytimes.com/2026/07/15/well/eat/cyclospora-stomach-bug-what-to-know.html
+
 **Lemon Yogurt Cheesecake**\
 `This tart and tangy cheesecake utilizes lots of lemon zest and juice for a punchy, bright flavor, plus Greek yogurt for a smooth, light texture that is irresistible.`\
 https://www.nytimes.com/video/dining/100000011033302/lemon-yogurt-cheesecake.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-
 https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
 
 **Flash Flood Emergency Is Issued in Texas After Days of Pounding Rain**\
-`Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue those who were stranded.`\
+`Roads became rivers on Wednesday as emergency officials in towns around San Antonio raced to rescue people who were stranded.`\
 https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
 
 **New Jersey Couple Aids Meteorite Discovery After it Crashes Through Their Roof**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011023086/never-underestimate-xi-jin
 **Phil Regan, Dodgers’ Closer Known as the Vulture, Dies at 89**\
 `He won 14 games in 1966 in relief, some of them following brilliant performances by the team’s starters, including Sandy Koufax, who bestowed the nickname.`\
 https://www.nytimes.com/2026/07/15/sports/baseball/phil-regan-dead.html
-
-**U.S. and Iran Continue Trading Fire**\
-`The United States and Iran exchanged strikes for a fifth consecutive day on Wednesday.`\
-https://www.nytimes.com/video/world/middleeast/100000011032002/us-iran-strikes-mideast-war.html
 
