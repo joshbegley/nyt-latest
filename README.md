@@ -1,3 +1,7 @@
+**How charities fight crime**\
+`The final entry in our series on the opposite of violence.`\
+https://www.nytimes.com/2026/07/15/headway/newsletter-how-charities-fight-crime.html
+
 **Indicted Tycoon Says $10 Billion Offer Did Not Spur U.S. to Drop Charges**\
 `Gautam Adani, India’s richest man, was accused of fraud and bribery in Federal District Court in Brooklyn. Then President Trump’s Justice Department moved to drop the charges.`\
 https://www.nytimes.com/2026/07/15/nyregion/gautam-adani-corruption-dropped.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/embedded/world/middleeast/100000011032024/15vid-ch
 **Oil Prices Tick Higher as U.S. Reinstates Iran Blockade**\
 `The United States reinstated its blockade on Iranian ports in the Strait of Hormuz and shipping slowed to a crawl amid the renewed warfare in the critical waterway.`\
 https://www.nytimes.com/2026/07/15/business/oil-prices-stocks-gas.html
-
-**From Trump’s Attorney to Attorney General: The Rise of Todd Blanche**\
-`A gamble to become President Trump’s personal lawyer has landed Todd Blanche the chance to be the nation’s top law enforcement official.`\
-https://www.nytimes.com/2026/07/15/podcasts/the-daily/trump-attorney-general-todd-blanche.html
 
