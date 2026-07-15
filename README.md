@@ -1,3 +1,7 @@
+**Court Filings Describe Ongoing Contact Between ICE and Iran on Deportations**\
+`In a sworn declaration, a lawyer says an Iranian official reported receiving regular dossiers on Iranian detainees from Immigration and Customs Enforcement for months.`\
+https://www.nytimes.com/2026/07/15/us/politics/state-dept-ice-iran-deportation.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011033167/15vid-tillis-mirror-sot-vert.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011032397/15visualUploa
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011032330/15vid-blanche-sot-epstein-files-vert.html
-
-**Goldman’s Former Top Lawyer Calls Epstein a ‘Masterful Liar’**\
-`Kathryn Ruemmler, the former general counsel of Goldman Sachs, testified on Wednesday in a closed-door congressional hearing investigating Jeffery Epstein.`\
-https://www.nytimes.com/2026/07/15/business/goldman-kathy-ruemmler-epstein.html
 
