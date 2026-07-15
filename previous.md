@@ -1,3 +1,7 @@
+**What Trump’s New Iran Blockade Could Mean for Oil Prices**\
+`The first blockade in April choked off Iranian exports without causing a lasting price surge. Now global oil reserves are lower, and ships face heightened risks.`\
+https://www.nytimes.com/2026/07/15/business/trump-iran-blockade-oil-prices.html
+
 **China’s Chip Champion to Raise Billions in Race for A.I. Control**\
 `CXMT, a linchpin in China’s drive to develop homegrown artificial intelligence technology, is aiming to raise nearly $10 billion in a blockbuster public offering in Shanghai.`\
 https://www.nytimes.com/2026/07/15/business/china-chips-cxmt-ipo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/14/climate/climate-an-extraordinary-white-house-
 ****\
 `A vendor prepares jianbing, a popular Chinese savory pancake, as rising egg and fuel costs increase operating expenses.`\
 https://www.nytimes.com/video/embedded/business/100000011031314/China-Eggs_Jianbing_Opener.html
-
-**Expelled from China**\
-`A New York Times correspondent was kicked out of the country after reporting on the struggles of everyday Chinese. Here’s her story.`\
-https://www.nytimes.com/2026/07/14/world/china-journalist-expelled-spain-world-cup.html
 

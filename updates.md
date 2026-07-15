@@ -1,3 +1,7 @@
+**What Trump’s New Iran Blockade Could Mean for Oil Prices**\
+`The first blockade in April choked off Iranian exports without causing a lasting price surge. Now global oil reserves are lower, and ships face heightened risks.`\
+https://www.nytimes.com/2026/07/15/business/trump-iran-blockade-oil-prices.html
+
 **China’s Chip Champion to Raise Billions in Race for A.I. Control**\
 `CXMT, a linchpin in China’s drive to develop homegrown artificial intelligence technology, is aiming to raise nearly $10 billion in a blockbuster public offering in Shanghai.`\
 https://www.nytimes.com/2026/07/15/business/china-chips-cxmt-ipo.html
