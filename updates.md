@@ -1,3 +1,7 @@
+**What to Know About Trump’s Immunity from the I.R.S.**\
+`Acting attorney general Todd Blanche’s decision to grant President Trump protection from I.R.S. audits is set to be a central issue in his confirmation hearing on Wednesday.`\
+https://www.nytimes.com/2026/07/15/us/politics/what-to-know-about-trumps-immunity-from-the-irs.html
+
 **France Is Set to Allow Assisted Dying**\
 `Lawmakers were expected to approve a bill that would allow doctors to help terminally ill patients to die. If the law passes, the country would join a small group of nations that permit the measure.`\
 https://www.nytimes.com/2026/07/15/world/europe/france-law-assisted-dying.html

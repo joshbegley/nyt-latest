@@ -1,3 +1,7 @@
+**What to Know About Trump’s Immunity from the I.R.S.**\
+`Acting attorney general Todd Blanche’s decision to grant President Trump protection from I.R.S. audits is set to be a central issue in his confirmation hearing on Wednesday.`\
+https://www.nytimes.com/2026/07/15/us/politics/what-to-know-about-trumps-immunity-from-the-irs.html
+
 **France Is Set to Allow Assisted Dying**\
 `Lawmakers were expected to approve a bill that would allow doctors to help terminally ill patients to die. If the law passes, the country would join a small group of nations that permit the measure.`\
 https://www.nytimes.com/2026/07/15/world/europe/france-law-assisted-dying.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/t-magazine/aim-kyle-abraham-white-space-nyt-o
 **Live From the 10th Floor | A.I.M by Kyle Abraham**\
 `The New York City-based dance company performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
 https://www.nytimes.com/video/t-magazine/100000011030434/live-from-the-10th-floor-aim-by-kyle-abraham.html
-
-**Robert Wilson’s Watermill Center Without Robert Wilson**\
-`“When I’m no longer living, can this place exist?” Robert Wilson wondered in a film about his Long Island art incubator. This month, its annual festival will go on without him.`\
-https://www.nytimes.com/2026/07/15/arts/dance/robert-wilson-watermill-center.html
 

@@ -1,6 +1,10 @@
+**Blanche’s Family Ties to Gun Industry Are Likely to Raise Questions**\
+`Democrats and gun control advocates are concerned that his comments about Check-Mate Industries, a company led by his mother-in-law that manufactures magazines, reveal a conflict of interest.`\
+https://www.nytimes.com/2026/07/15/us/politics/blanche-gun-industry-confirmation-hearing.html
+
 **What to Know About Trump’s Immunity from the I.R.S.**\
 `Acting attorney general Todd Blanche’s decision to grant President Trump protection from I.R.S. audits is set to be a central issue in his confirmation hearing on Wednesday.`\
-https://www.nytimes.com/2026/07/15/us/politics/what-to-know-about-trumps-immunity-from-the-irs.html
+https://www.nytimes.com/2026/07/15/us/politics/trump-irs-lawsuit-immunity-blanche.html
 
 **France Is Set to Allow Assisted Dying**\
 `Lawmakers were expected to approve a bill that would allow doctors to help terminally ill patients to die. If the law passes, the country would join a small group of nations that permit the measure.`\
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/07/15/world/middleeast/israel-us-iran-trump.html
 `The Arizona Democrat said he had raised and given away $10 million to fellow members of his party and committees as he mulls a presidential run in 2028.`\
 https://www.nytimes.com/2026/07/15/us/politics/mark-kelly-arizona-democrat-fundraising.html
 
-**Can Democrats Harness the Data Center Backlash?**\
+**Is This the Fastest Opinion Shift in American Politics?**\
 `David Wallace-Wells and Robinson Meyer discuss whether the gathering coalition of Americans against data centers could be the next Occupy Wall Street movement or Tea Party.`\
 https://www.nytimes.com/2026/07/15/opinion/ai-data-center-politics.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/15/books/review/they-stole-a-city-lauren-collins
 **Watch A.I.M by Kyle Abraham Perform in The New York Times Office**\
 `Watch A.I.M by Kyle Abraham perform a new work at T Magazine’s New York City headquarters.`\
 https://www.nytimes.com/2026/07/15/t-magazine/aim-kyle-abraham-white-space-nyt-office.html
-
-**Live From the 10th Floor | A.I.M by Kyle Abraham**\
-`The New York City-based dance company performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
-https://www.nytimes.com/video/t-magazine/100000011030434/live-from-the-10th-floor-aim-by-kyle-abraham.html
 
