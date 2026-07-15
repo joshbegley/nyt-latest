@@ -1,3 +1,15 @@
+**‘The Odyssey’ Review: Passion in Every Frame**\
+`Few directors close the divide between the art film and the blockbuster like Christopher Nolan.`\
+https://www.nytimes.com/2026/07/15/movies/the-odyssey-review.html
+
+**Elon Musk Funds Vivek Ramaswamy’s Bid for Ohio Governor Despite Their DOGE Clashes**\
+`Elon Musk gave $5 million to back Vivek Ramaswamy’s campaign for Ohio governor, seemingly moving past tensions around the effort to downsize the federal work force.`\
+https://www.nytimes.com/2026/07/15/us/politics/elon-musk-vivek-ramaswamy-ohio-governor-doge.html
+
+**U.S. and Iran Continue Trading Fire**\
+`The United States and Iran exchanged strikes for a fifth consecutive day on Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000011032002/us-iran-strikes-mideast-war.html
+
 **I’m Worried My Kids Will Regret Cutting Off Their Dad. Should I Say Something?**\
 `They know he has health problems, but I’m not sure they fully grasp that death can come suddenly.`\
 https://www.nytimes.com/2026/07/15/magazine/divorce-estranged-kids-father-ethics.html

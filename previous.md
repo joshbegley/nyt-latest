@@ -1,3 +1,11 @@
+**‘The Odyssey’ Review: Passion in Every Frame**\
+`Few directors close the divide between the art film and the blockbuster like Christopher Nolan.`\
+https://www.nytimes.com/2026/07/15/movies/the-odyssey-review.html
+
+**Elon Musk Funds Vivek Ramaswamy’s Bid for Ohio Governor Despite Their DOGE Clashes**\
+`Elon Musk gave $5 million to back Vivek Ramaswamy’s campaign for Ohio governor, seemingly moving past tensions around the effort to downsize the federal work force.`\
+https://www.nytimes.com/2026/07/15/us/politics/elon-musk-vivek-ramaswamy-ohio-governor-doge.html
+
 **I’m Worried My Kids Will Regret Cutting Off Their Dad. Should I Say Something?**\
 `They know he has health problems, but I’m not sure they fully grasp that death can come suddenly.`\
 https://www.nytimes.com/2026/07/15/magazine/divorce-estranged-kids-father-ethics.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/video/opinion/100000011023086/never-underestimate-xi-jin
 https://www.nytimes.com/2026/07/15/sports/baseball/phil-regan-dead.html
 
 **U.S. and Iran Continue Trading Fire**\
-`The United States and Iran exchanged strikes for a fifth consecutive day on Wednesday, a day after President Trump threatened to target Iran’s civilian infrastructure if the country refused to negotiate.`\
+`The United States and Iran exchanged strikes for a fifth consecutive day on Wednesday.`\
 https://www.nytimes.com/video/world/middleeast/100000011032002/us-iran-strikes-mideast-war.html
 
 **Today, In Short**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/world/middleeast/iran-war-oil-shipping-flight
 **The Seduction of Lindsey Graham**\
 `He could see the obvious truth that Trump was a malign and corrosive force in American politics — that is, until Trump won the White House.`\
 https://www.nytimes.com/2026/07/15/opinion/lindsey-graham-donald-trump.html
-
-**Jay Clayton Expected to Face Tough Questions in Confirmation Hearing**\
-`His nomination to lead the U.S. intelligence community comes as the White House pushes to use declassified intelligence to show concerns about election security.`\
-https://www.nytimes.com/2026/07/15/us/politics/jay-clayton-confirmation-hearing-director-national-intelligence.html
-
-**Corrections: July 15, 2026**\
-`Corrections that appeared in print on Wednesday, July 15, 2026`\
-https://www.nytimes.com/2026/07/15/pageoneplus/corrections-july-15-2026.html
 
