@@ -1,3 +1,7 @@
+**Fatal Encounters**\
+`We look at shootings by federal immigration agents.`\
+https://www.nytimes.com/2026/07/15/briefing/ice-shootings-houston-maine.html
+
 **Messi’s Final Push as Argentina Face England**\
 `The Three Lions take on the reigning World Cup champions in a semifinal for the ages.`\
 https://www.nytimes.com/2026/07/15/podcasts/world-cup-semifinal-argentina-england-messi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/realestate/stockton-nj-a-friendly-river-town.
 **Book Review: ‘Air,’ by Christian Kracht**\
 `In “Air,” by the Swiss writer Christian Kracht, a decorator’s unusual commission leads abruptly into another universe.`\
 https://www.nytimes.com/2026/07/15/books/review/christian-kracht-air.html
-
-**When Your First Apartment Is a Lemon**\
-`What New York homeowners can do before and after a purchase to avoid or mitigate shoddy construction.`\
-https://www.nytimes.com/2026/07/15/realestate/first-house-lemon-repairs.html
 
