@@ -1,3 +1,11 @@
+**Messi’s Final Push as Argentina Face England**\
+`The Three Lions take on the reigning World Cup champions in a semifinal for the ages.`\
+https://www.nytimes.com/2026/07/15/podcasts/world-cup-semifinal-argentina-england-messi.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000011032024/15vid-chabahar-ugc.html
+
 **Oil Prices Tick Higher as U.S. Reinstates Iran Blockade**\
 `The United States reinstated its blockade on Iranian ports in the Strait of Hormuz and shipping slowed to a crawl amid the renewed warfare in the critical waterway.`\
 https://www.nytimes.com/2026/07/15/business/oil-prices-stocks-gas.html
