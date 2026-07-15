@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/07/15/pageoneplus/corrections-july-15-2026.html
 
 **For Israel, the U.S.-Iran Hostilities Have Created an Uneasy Limbo**\
 `Officials see a return to full-blown war as preferable to an agreement that fails to curb the threats Iran poses to Israel. Meanwhile, they wait.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/for-israel-the-us-iran-hostilities-have-created-an-uneasy-limbo.html
+https://www.nytimes.com/2026/07/15/world/middleeast/israel-us-iran-trump.html
 
 **Senator Mark Kelly Amasses Nearly $25 Million Campaign War Chest**\
 `The Arizona Democrat said he had raised and given away $10 million to fellow members of his party and committees as he mulls a presidential run in 2028.`\
