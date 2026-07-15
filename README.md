@@ -1,3 +1,11 @@
+**For England, the World Cup Final Remains Elusive**\
+`The nation’s years of pain continue.`\
+https://www.nytimes.com/2026/07/15/world/europe/england-world-cup-loss-fans.html
+
+**FBI Evidence Team Visits Lincoln Memorial Reflecting Pool**\
+`Officials surveyed the newly drained pool, where the floor began peeling soon after a $16 million repair job. President Trump has blamed vandals.`\
+https://www.nytimes.com/2026/07/15/us/politics/fbi-reflecting-pool-evidence.html
+
 **Boat That Sank Near Alcatraz Rolled After Wave Struck, Officials Say**\
 `The accident in the San Francisco Bay on Tuesday led to the death of the boat owner’s brother. The authorities say they plan to end the search for three people still missing.`\
 https://www.nytimes.com/2026/07/15/us/alcatraz-boat-captain.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/07/15/weather/texas-flooding-boerne.html
 **New Jersey Couple Aids Meteorite Discovery After it Crashes Through Their Roof**\
 `A New Jersey couple helped scientists uncover the makeup of an unusual asteroid after it fell into their bedroom.`\
 https://www.nytimes.com/2026/07/15/science/meteorite-new-jersey.html
-
-**Meet Earth’s Newest Monkey. (And Check Out Its Orange Lips.)**\
-`It is only the fifth new African monkey identified as a new species in the past 75 years.`\
-https://www.nytimes.com/2026/07/15/science/meet-earths-newest-monkey-and-check-out-its-orange-lips.html
 
