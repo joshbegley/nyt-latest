@@ -1,3 +1,11 @@
+**De Twitter a X: 20 años de memes, movimientos y polémica**\
+`Desde mensajes escritos en el espacio hasta selfis y obituarios de celebridades, la plataforma que ahora es propiedad de Elon Musk ha visto un mundo de publicaciones.`\
+https://www.nytimes.com/es/2026/07/15/espanol/negocios/twitter-x-20-anos.html
+
+**F.B.I. Searches Houston ICE Shooting Van for Drugs**\
+`Federal investigators believe illegal drugs had been inside the vehicle, though the immigration agents involved in the encounter do not appear to have known that.`\
+https://www.nytimes.com/2026/07/15/us/fbi-search-drugs-houston-ice-shooting.html
+
 **Tiny Love Stories: ‘How to Woo Her?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/07/15/style/tiny-modern-love-stories-how-to-woo-her.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/15/world/canada/wildfire-smoke-toronto-ontario-n
 **Maps: Tracking Tropical Storm Elida**\
 `See the likely path and wind arrival times for Elida`\
 https://www.nytimes.com/interactive/2026/07/15/weather/elida-map-path-tracker.html
-
-**Spain Fans Celebrate Making World Cup Final**\
-`Joyous Spain fans celebrated after their team defeated France to secure a place in the World Cup final.`\
-https://www.nytimes.com/video/sports/soccer/100000011032027/spain-fans-world-cup-final.html
-
-**Brazen Japanese Bears Are Breaking Into Homes and Raiding Pantries**\
-`Climate change and shifting demographics are driving the country’s Asiatic black bears closer to humans.`\
-https://www.nytimes.com/2026/07/15/world/asia/japan-bear-home-break-in.html
 

@@ -1,9 +1,13 @@
+**Inside Maine Democrats’ Unusual, Rushed Search for a New Senate Nominee**\
+`Democratic candidates are hastily building bare-bones campaigns and forgoing traditional outreach like TV ads in a sprint to appeal to party delegates, rather than Maine voters.`\
+https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-convention.html
+
 **De Twitter a X: 20 años de memes, movimientos y polémica**\
 `Desde mensajes escritos en el espacio hasta selfis y obituarios de celebridades, la plataforma que ahora es propiedad de Elon Musk ha visto un mundo de publicaciones.`\
 https://www.nytimes.com/es/2026/07/15/espanol/negocios/twitter-x-20-anos.html
 
 **F.B.I. Searches Houston ICE Shooting Van for Drugs**\
-`Federal investigators believe illegal drugs had been inside the vehicle, though the immigration agents involved in the encounter do not appear to have known that.`\
+`Federal investigators believe illegal drugs were inside the vehicle, though the immigration agents involved in the encounter do not appear to have known that.`\
 https://www.nytimes.com/2026/07/15/us/fbi-search-drugs-houston-ice-shooting.html
 
 **Tiny Love Stories: ‘How to Woo Her?’**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/interactive/2026/07/15/espanol/elida-mapa-trayectoria
 **Wildfires Rage in Ontario as Smoke Affects Toronto’s Air Quality**\
 `Air quality in Canada’s largest city was at times the worst in the world on Wednesday, as wildfires across Ontario sent smoke drifting into New York City and beyond.`\
 https://www.nytimes.com/2026/07/15/world/canada/wildfire-smoke-toronto-ontario-northeast.html
-
-**Maps: Tracking Tropical Storm Elida**\
-`See the likely path and wind arrival times for Elida`\
-https://www.nytimes.com/interactive/2026/07/15/weather/elida-map-path-tracker.html
 
