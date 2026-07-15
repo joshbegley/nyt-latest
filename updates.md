@@ -1,3 +1,11 @@
+**For England, the World Cup Final Remains Elusive**\
+`The nation’s years of pain continue.`\
+https://www.nytimes.com/2026/07/15/world/europe/england-world-cup-loss-fans.html
+
+**FBI Evidence Team Visits Lincoln Memorial Reflecting Pool**\
+`Officials surveyed the newly drained pool, where the floor began peeling soon after a $16 million repair job. President Trump has blamed vandals.`\
+https://www.nytimes.com/2026/07/15/us/politics/fbi-reflecting-pool-evidence.html
+
 **Boat That Sank Near Alcatraz Rolled After Wave Struck, Officials Say**\
 `The accident in the San Francisco Bay on Tuesday led to the death of the boat owner’s brother. The authorities say they plan to end the search for three people still missing.`\
 https://www.nytimes.com/2026/07/15/us/alcatraz-boat-captain.html
