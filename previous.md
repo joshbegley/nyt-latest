@@ -1,3 +1,7 @@
+**Anthropic Inches Toward a Mega-I.P.O.**\
+`The artificial intelligence lab is said to have taken more steps that are consistent with a company aiming to go public in the fall.`\
+https://www.nytimes.com/2026/07/16/business/dealbook/anthropic-ipo-ai.html
+
 **Google Ordered to Give A.I. Rivals More Access on Android Smartphones**\
 `The decision by European Union regulators is a response to fears that Google will use its vast Android user base to gain an edge in A.I.`\
 https://www.nytimes.com/2026/07/16/technology/google-ordered-to-give-ai-rivals-more-access-on-android-smartphones.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/theater/hudson-valley-shakespeare-king-lear-a
 **‘They Fight’ Review: It Might Have Been a Contender**\
 `This real-life inspired boxing drama has muscular ambitions, but too little finesse.`\
 https://www.nytimes.com/2026/07/16/movies/they-fight-review.html
-
-**‘Horsegirls’ Review: Finding Her Stride**\
-`An autistic woman finds independence by training for a hobbyhorse competition in this sweet-and-sour coming-of-age film.`\
-https://www.nytimes.com/2026/07/16/movies/horsegirls-review.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

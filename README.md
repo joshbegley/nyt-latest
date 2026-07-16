@@ -1,3 +1,7 @@
+**Hong Kong Police Raid Independent Bookstores**\
+`The police raided two independent bookstores in Hong Kong on Wednesday, arresting five people on suspicion of sedition as the authorities widened a national security crackdown.`\
+https://www.nytimes.com/video/world/asia/100000011034404/hong-kong-bookstore-raid.html
+
 **Anthropic Inches Toward a Mega-I.P.O.**\
 `The artificial intelligence lab is said to have taken more steps that are consistent with a company aiming to go public in the fall.`\
 https://www.nytimes.com/2026/07/16/business/dealbook/anthropic-ipo-ai.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/arts/design/last-chance-art-shows-new-york.ht
 **At Hudson Valley Shakespeare, a ‘King Lear’ Worth Traveling For**\
 `A beautifully observed version of a man’s final act, along with a lively staging of “As You Like It,” engage the surrounding mountains in conversation.`\
 https://www.nytimes.com/2026/07/16/theater/hudson-valley-shakespeare-king-lear-as-you-like-it.html
-
-**‘They Fight’ Review: It Might Have Been a Contender**\
-`This real-life inspired boxing drama has muscular ambitions, but too little finesse.`\
-https://www.nytimes.com/2026/07/16/movies/they-fight-review.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
