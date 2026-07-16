@@ -1,3 +1,7 @@
+**Mass Protests Across Ukraine Oppose Ouster of Defense Minister**\
+`Demonstrators demanded the reinstatement of Mykhailo Fedorov, who had come to symbolize Ukraine’s success in using drones to strike back against Russia.`\
+https://www.nytimes.com/2026/07/16/world/europe/ukraine-fedorov-protests.html
+
 **Argentina Triumph as World Cup Final Is Set**\
 `Messi and team defeat England and will face Spain in the tournament showpiece.`\
 https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-spain.html
