@@ -1,3 +1,7 @@
+**How Israel Tried and Failed to Change the Iranian Regime**\
+`The U.S. and Israel were united in going to war with Iran to change the regime. Mark Mazzetti, a New York Times investigative reporter, explains how the failure of Israel to install Mahmoud Ahmadinejad as Iran’s new leader led the U.S. to narrow its efforts in Iran to just launching attacks with no plan for a new government.`\
+https://www.nytimes.com/video/us/100000011028027/israel-united-states-ahmadinejad-iran-regime-change.html
+
 **Mass Protests Across Ukraine Oppose Ouster of Defense Minister**\
 `Demonstrators demanded the reinstatement of Mykhailo Fedorov, who had come to symbolize Ukraine’s success in using drones to strike back against Russia.`\
 https://www.nytimes.com/2026/07/16/world/europe/ukraine-fedorov-protests.html
