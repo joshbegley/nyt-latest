@@ -1,3 +1,7 @@
+**India Is Moving Fast to Build A.I. Data Centers. A Coastal City May Pay the Price.**\
+`With India lagging in the technology, officials are embracing giant data centers. But critics say the megaprojects will use up energy and water, without providing long-term jobs.`\
+https://www.nytimes.com/2026/07/16/world/asia/india-ai-data-centers-google.html
+
 **Los análisis de sangre para detectar alzhéimer resultan prometedores**\
 `Nuevos estudios arrojan luz sobre cómo las pruebas podrían transformar el tratamiento de la enfermedad y la predicción del riesgo a desarrollarla en personas sanas.`\
 https://www.nytimes.com/es/2026/07/16/espanol/alzheimer-prueba-diagnostico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/world/middleeast/iran-us-strikes-war.html
 **United Airlines Will Soon Let You Take Over the Middle Seat, for a Price**\
 `The option, set to go on sale on some flights later this year, will feature a shared table in the middle seat. The move may actually save the airline money.`\
 https://www.nytimes.com/2026/07/15/travel/united-airlines-middle-seat.html
-
-**Senators Grill Justice Dept. Officials on New York Times Subpoenas**\
-`Democrats questioned the acting attorney general, Todd Blanche, and a U.S. attorney about subpoenas issued to Times journalists who reported on security concerns with the president’s new plane.`\
-https://www.nytimes.com/2026/07/15/business/media/blanche-clayton-senate-nyt-subpoenas.html
 
