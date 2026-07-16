@@ -1,3 +1,15 @@
+**Wildfire Smoke Shutters Parks and Shuffles Visitors**\
+`Visitors to national parks and other public lands in the Midwest faced closures, unhealthy air quality and recommended limits on outdoor activities.`\
+https://www.nytimes.com/2026/07/16/travel/wildfire-smoke-closing-parks.html
+
+**A Test Isn’t Racist. Assumptions About Black Kids Can Be.**\
+`All students can be properly prepared to take this challenging admissions exam.`\
+https://www.nytimes.com/2026/07/16/opinion/new-york-high-school-test-racism.html
+
+**Dave Kendall, Creator and Host of MTV’s ‘120 Minutes,’ Dies at 63**\
+`With his English accent and ubiquitous leather jacket, Mr. Kendall was the face of alternative music on MTV from 1989 to 1992.`\
+https://www.nytimes.com/2026/07/16/arts/television/dave-kendall-dead-120-minutes.html
+
 **Make America Safe From Parasites Again**\
 `Cramping, vomiting and diarrhea. Is this what “Make America Healthy Again” looks like? The recent outbreak of Cyclospora, a parasite that causes a food-borne illness that’s ruining summers across the nation, has us asking: Were those cuts to public health institutions worth it? And what’s in this salad?`\
 https://www.nytimes.com/video/opinion/100000011033031/make-america-safe-from-parasites-again.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/16/nyregion/nyc-cyclospora-salad.html
 **Ken Paxton Bought 3 Utah Condos, Adding to a $9 Million Real Estate Portfolio**\
 `The Texas attorney general and his trusts now hold at least 15 properties worth about $9 million.`\
 https://www.nytimes.com/2026/07/16/us/paxton-vacation-condos-wealth.html
-
-**Akihiro Miwa, Actor and Singer With Gender-Fluid Glamour, Dies at 91**\
-`In Japan, he was one of the first androgynous pop-culture stars and an inspirational figure. Abroad, he was known for his work in animated films by Hayao Miyazaki.`\
-https://www.nytimes.com/2026/07/16/movies/akihiro-miwa-dead.html
-
-**Who Is Ahead in Florida's 14th Congressional District?**\
-`Track the latest polls in Florida's 14th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-14-polls-2026.html
-
-**Will SpaceX’s 13th Test Flight of Starship Be Lucky?**\
-`The objectives remain largely the same as the last launch in May. The biggest difference is that the gargantuan rocket will deploy 20 functioning, next-generation Starlink internet satellites.`\
-https://www.nytimes.com/2026/07/16/science/spacex-13th-test-flight-starship.html
 
