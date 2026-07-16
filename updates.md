@@ -1,3 +1,11 @@
+**What It’s Like in a City With Dangerous Air Quality**\
+`Our reporter Nicholas Bogel-Burroughs is in Toledo, Ohio, where the air quality level resulting from Canadian wildfire smoke is among the most hazardous in the United States.`\
+https://www.nytimes.com/video/us/100000011036303/wildfire-smoke-air-quality-index-toledo.html
+
+**ABC and NBC Will Not Take Trump’s Speech Live as Other TV Networks’ Plans Remain Uncertain**\
+`ABC, CNN and NBC were not planning to pre-empt regularly scheduled programming for the president’s remarks at 9 p.m. Fox News is set to carry it live.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
+
 **What's It Like to Write a Song for Beyoncé?**\
 `Beyoncé’s song “Plastic Off the Sofa” started as a 2017 demo written by Syd, a co-founder of alternative R&B band The Internet, and singer-songwriter Sabrina Claudio. On “Popcast,” Syd describes how the song eventually became a track on Beyoncé’s 2022 album “Renaissance.”`\
 https://www.nytimes.com/video/podcasts/100000011036376/whats-it-like-to-write-a-song-for-beyonce.html

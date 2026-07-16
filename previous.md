@@ -1,3 +1,7 @@
+**What It’s Like in a City With Dangerous Air Quality**\
+`Our reporter Nicholas Bogel-Burroughs is in Toledo, Ohio, where the air quality level resulting from Canadian wildfire smoke is among the most hazardous in the United States.`\
+https://www.nytimes.com/video/us/100000011036303/wildfire-smoke-air-quality-index-toledo.html
+
 **What's It Like to Write a Song for Beyoncé?**\
 `Beyoncé’s song “Plastic Off the Sofa” started as a 2017 demo written by Syd, a co-founder of alternative R&B band The Internet, and singer-songwriter Sabrina Claudio. On “Popcast,” Syd describes how the song eventually became a track on Beyoncé’s 2022 album “Renaissance.”`\
 https://www.nytimes.com/video/podcasts/100000011036376/whats-it-like-to-write-a-song-for-beyonce.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
 https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
 
 **ABC and NBC Will Not Take Trump’s Speech Live as Other TV Networks’ Plans Remain Uncertain**\
-`ABC and NBC were not planning to pre-empt regularly scheduled entertainment programming for the president’s live address. Other outlets’ plans were unclear.`\
+`ABC, CNN and NBC were not planning to pre-empt regularly scheduled programming for the president’s remarks at 9 p.m. Fox News is set to carry it live.`\
 https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
 
 **Climate Change Contributes to a Smokier World**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/world/middleeast/israel-divisive-new-laws.htm
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/16/books/review/new-recommended-books.html
-
-**Wildfires Continue in Ontario as Officials Brace for More Evacuations**\
-`Ontario’s minister for emergency preparedness has asked the federal government for help, including potentially deploying Canadian soldiers to the affected regions.`\
-https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfires.html
 
