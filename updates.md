@@ -1,3 +1,7 @@
+**Maps Show Where Wildfire Smoke Will Darken Skies on Thursday**\
+`Air quality in several cities reached hazardous levels on Thursday morning as smoke is expected to move across North America.`\
+https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
+
 **Strait of Hormuz Tanker Traffic Erodes Further as Oil Prices Rise**\
 `Very few ships passed through the waterway on the first full day of the U.S. naval blockade of Iran.`\
 https://www.nytimes.com/2026/07/16/business/strait-hormuz-iran-war-oil.html

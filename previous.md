@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/07/16/us/politics/trump-fine-arts-commission-lafaye
 https://www.nytimes.com/2026/07/16/opinion/reading-test-scores-smartphones.html
 
 **Maps Show Where Wildfire Smoke Will Darken Skies on Thursday**\
-`Air quality in Toronto reached hazardous levels on Thursday morning as smoke is expected to move across North America.`\
+`Air quality in several cities reached hazardous levels on Thursday morning as smoke is expected to move across North America.`\
 https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
 
 **The Odyssey, by Donald Trump**\
