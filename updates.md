@@ -1,3 +1,7 @@
+**U.K. Nationalizes British Steel, Its Last Major Steel Mill**\
+`The government first intervened in British Steel last year to prevent its then-owner, the Chinese company Jingye Group, from shutting it down. No private sector buyers came forward.`\
+https://www.nytimes.com/2026/07/16/business/britain-nationalizes-steel-mill.html
+
 **How Israel Tried and Failed to Change the Iranian Regime**\
 `The U.S. and Israel were united in going to war with Iran to change the regime. Mark Mazzetti, a New York Times investigative reporter, explains how the failure of Israel to install Mahmoud Ahmadinejad as Iran’s new leader led the U.S. to narrow its efforts in Iran to just launching attacks with no plan for a new government.`\
 https://www.nytimes.com/video/us/100000011028027/israel-united-states-ahmadinejad-iran-regime-change.html
