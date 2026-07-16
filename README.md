@@ -1,3 +1,7 @@
+**Who Is Ahead in Florida's 14th Congressional District?**\
+`Track the latest polls in Florida's 14th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-14-polls-2026.html
+
 **Will SpaceX’s 13th Test Flight of Starship Be Lucky?**\
 `The objectives remain largely the same as the last launch in May. The biggest difference is that the gargantuan rocket will deploy 20 functioning, next-generation Starlink internet satellites.`\
 https://www.nytimes.com/2026/07/16/science/spacex-13th-test-flight-starship.html
@@ -78,8 +82,8 @@ https://www.nytimes.com/2026/07/16/crosswords/strands-sidekick-866.html
 `The beloved New Zealand actor best known for his turn in “Jurassic Park” had “fought and beaten” lymphoma before he fell ill, according to a statement.`\
 https://www.nytimes.com/2026/07/16/world/australia/sam-neill-death-cause-pneumonia.html
 
-**Mass Protests Across Ukraine Oppose Ouster of Defense Minister**\
-`Demonstrators demanded the reinstatement of Mykhailo Fedorov, who had come to symbolize Ukraine’s success in using drones to strike back against Russia.`\
+**Ukraine’s Ousted Defense Minister Attacks the Military’s Old Guard**\
+`Mykhailo Fedorov defended his efforts to modernize the Ukrainian armed forces as thousands of people protested his dismissal.`\
 https://www.nytimes.com/2026/07/16/world/europe/ukraine-fedorov-protests.html
 
 **Decoding the Kawhi Leonard Investigation**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/style/alison-leiby-im-a-lot-book-comedy.html
 **How a Seed in Space Became a Tree in Madison Square**\
 `Seeds that flew on a NASA mission were planted, and now a sweet gum tree will be celebrated as a “moon tree” in Manhattan.`\
 https://www.nytimes.com/2026/07/16/nyregion/nasa-tree-madison-square-park.html
-
-**Duchamp Gave Up Art for Chess. At MoMA, He Inspires a New Gambit.**\
-`Susan Polgar, a chess grandmaster, will be playing 50 artists, critics and fans of Marcel Duchamp at the same time, in honor of his birthday, July 28.`\
-https://www.nytimes.com/2026/07/16/arts/design/duchamp-chess-moma.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

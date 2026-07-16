@@ -1,3 +1,7 @@
+**Will SpaceX’s 13th Test Flight of Starship Be Lucky?**\
+`The objectives remain largely the same as the last launch in May. The biggest difference is that the gargantuan rocket will deploy 20 functioning, next-generation Starlink internet satellites.`\
+https://www.nytimes.com/2026/07/16/science/spacex-13th-test-flight-starship.html
+
 **The Essentials About Mykhailo Fedorov, the Ousted Ukrainian Minister**\
 `Mr. Fedorov became the youthful face of Ukraine’s successful drone warfare program. The move to replace him has prompted street protests.`\
 https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-defense-minister.html

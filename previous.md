@@ -1,3 +1,7 @@
+**Will SpaceX’s 13th Test Flight of Starship Be Lucky?**\
+`The objectives remain largely the same as the last launch in May. The biggest difference is that the gargantuan rocket will deploy 20 functioning, next-generation Starlink internet satellites.`\
+https://www.nytimes.com/2026/07/16/science/spacex-13th-test-flight-starship.html
+
 **Corrections: July 16, 2026**\
 `Corrections that appeared in print on Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/16/pageoneplus/corrections-july-16-2026.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/nyregion/nasa-tree-madison-square-park.html
 **Duchamp Gave Up Art for Chess. At MoMA, He Inspires a New Gambit.**\
 `Susan Polgar, a chess grandmaster, will be playing 50 artists, critics and fans of Marcel Duchamp at the same time, in honor of his birthday, July 28.`\
 https://www.nytimes.com/2026/07/16/arts/design/duchamp-chess-moma.html
-
-**A Vision of a ‘Society Without Capitalism’**\
-`Can democratic socialism redeem the left without destroying capitalism?`\
-https://www.nytimes.com/video/opinion/100000011024674/a-vision-of-a-society-without-capitalism.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
