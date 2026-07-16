@@ -1,3 +1,7 @@
+**Wildfire Smokes Makes Air Hazardous for Millions in Midwest and East Coast**\
+`The haze is likely to ease in the East this weekend but linger in the Upper Midwest, where some cities recorded extremely high pollution indexes on Thursday.`\
+https://www.nytimes.com/2026/07/16/us/wildfire-smoke-air-quality.html
+
 **Trump Administration Restricts Green Cards for Immigrants on Public Assistance**\
 `The move is a significant change that could deter hundreds of thousands of immigrants from using such programs to meet basic needs.`\
 https://www.nytimes.com/2026/07/16/us/politics/trump-green-cards-public-assistance.html
