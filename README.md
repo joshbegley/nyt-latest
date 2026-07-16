@@ -1,3 +1,7 @@
+**Israeli Government Pushes Through Divisive Laws Before Election**\
+`Prime Minister Benjamin Netanyahu backed a series of laws undermining legal oversight of the government, benefiting allied media outlets and aiming to shore up ultra-Orthodox political support.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/israel-divisive-new-laws.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/16/books/review/new-recommended-books.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/pageoneplus/corrections-july-16-2026.html
 **Strait of Hormuz Tanker Traffic Erodes Further as Oil Prices Rise**\
 `Very few ships passed through the waterway on the first full day of the U.S. naval blockade of Iran.`\
 https://www.nytimes.com/2026/07/16/business/strait-hormuz-iran-war-oil.html
-
-**Hong Kong Police Raid Independent Bookstores**\
-`The police raided two independent bookstores in Hong Kong on Wednesday, arresting five people on suspicion of sedition as the authorities widened a national security crackdown.`\
-https://www.nytimes.com/video/world/asia/100000011034404/hong-kong-bookstore-raid.html
 
