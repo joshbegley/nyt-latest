@@ -1,3 +1,11 @@
+**How Todd Blanche Made the Justice Dept. Less Independent**\
+`Our Justice Department reporter Devlin Barrett describes how Todd Blanche, President Trump’s former personal lawyer and current nominee for attorney general, has helped Mr. Trump gain more control over the Justice Department.`\
+https://www.nytimes.com/video/us/politics/100000011024954/how-todd-blanche-made-the-justice-dept-less-independent.html
+
+**Summer Tastes Like Mango (and Vice Versa)**\
+`Three ways to maximize your mango-eating across three New York City boroughs.`\
+https://www.nytimes.com/2026/07/16/dining/best-mango-dishes.html
+
 **Burning Houses to Save Houses**\
 `We visited researchers seeking ways to make homes safer. They set a lot of fires.`\
 https://www.nytimes.com/2026/07/16/climate/burning-houses-to-save-houses.html
