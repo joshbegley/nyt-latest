@@ -1,3 +1,11 @@
+**Israeli Government Pushes Through Divisive Laws Before Election**\
+`Prime Minister Benjamin Netanyahu backed a series of laws undermining legal oversight of the government, benefiting allied media outlets and aiming to shore up ultra-Orthodox political support.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/israel-divisive-new-laws.html
+
+**The Sunset Strip Becomes a Gushing River After a Water Main Break**\
+`The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
+https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/16/books/review/new-recommended-books.html
