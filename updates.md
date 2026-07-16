@@ -1,3 +1,7 @@
+**Today, In Short**\
+`World Cup. Twitter. And a meteorite.`\
+https://www.nytimes.com/2026/07/16/briefing/today-in-short.html
+
 **Someone Used A.I. to Write an Unauthorized Biography of Me. I Don’t Recommend Reading It.**\
 `Someone used A.I. to write my biography. Thousands more of those books are polluting Amazon. Who is behind all this drivel?`\
 https://www.nytimes.com/2026/07/16/technology/ai-slop-books-biography-amazon.html
