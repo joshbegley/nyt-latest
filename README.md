@@ -1,3 +1,7 @@
+**Ken Paxton and James Talarico Agree to Debate in U.S. Senate Race**\
+`Ken Paxton, a Republican, has not debated in more than a decade. A showdown with James Talarico, a Democrat, could be a key moment in the hard-fought race.`\
+https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
+
 **Gay-Themed Mediterranean Cruise Turned Away From Turkey and Then Egypt**\
 `In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/opinion/falling-birthrates-population.html
 **The Sunset Strip Becomes a Gushing River After a Water Main Break**\
 `The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
 https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
-
-**This City Has Some of the Worst Air in the United States**\
-`In Toledo, Ohio, parks are largely empty, and some people are wearing masks.`\
-https://www.nytimes.com/2026/07/16/weather/toledo-ohio-air-quality-index.html
 
 **Trump Administration Live Updates: President to Speak on Election Security**\
 `(No description)`\
