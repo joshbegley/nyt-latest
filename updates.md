@@ -1,3 +1,15 @@
+**Reseña de ‘La odisea’: un clásico en todo sentido**\
+`La película de Christopher Nolan logra algo inusual: conciliar el cine de autor con el cine comercial, envuelto en el encanto del viejo Hollywood.`\
+https://www.nytimes.com/es/2026/07/16/espanol/cultura/resena-odisea-christopher-nolan.html
+
+**La guerra de EE. UU. contra Irán entra en una nueva fase**\
+`Estados Unidos parece estar iniciando la segunda etapa de su campaña militar con un nuevo enfoque, aunque no necesariamente con una estrategia más clara.`\
+https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/guerra-trump-iran-nueva-fase.html
+
+**Argentina Advances to World Cup Final, Stunning England Fans**\
+`Argentina beat England 2-1 on Wednesday to reach their second successive World Cup final, leaving one side elated and the other heartbroken.`\
+https://www.nytimes.com/video/world/americas/100000011034114/world-cup-england-argentina-fans.html
+
 **¿Toro rojo o toro azul? En esta ciudad de Brasil, mantenerse neutral no es opción**\
 `En lo profundo de la selva amazónica, una intensa rivalidad divide a una ciudad desde hace un siglo, y no tiene nada que ver con deportes ni con política.`\
 https://www.nytimes.com/es/2026/07/16/espanol/america-latina/brasil-festival-toro-amazonia.html

@@ -1,3 +1,15 @@
+**Reseña de ‘La odisea’: un clásico en todo sentido**\
+`La película de Christopher Nolan logra algo inusual: conciliar el cine de autor con el cine comercial, envuelto en el encanto del viejo Hollywood.`\
+https://www.nytimes.com/es/2026/07/16/espanol/cultura/resena-odisea-christopher-nolan.html
+
+**La guerra de EE. UU. contra Irán entra en una nueva fase**\
+`Estados Unidos parece estar iniciando la segunda etapa de su campaña militar con un nuevo enfoque, aunque no necesariamente con una estrategia más clara.`\
+https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/guerra-trump-iran-nueva-fase.html
+
+**Argentina Advances to World Cup Final, Stunning England Fans**\
+`Argentina beat England 2-1 on Wednesday to reach their second successive World Cup final, leaving one side elated and the other heartbroken.`\
+https://www.nytimes.com/video/world/americas/100000011034114/world-cup-england-argentina-fans.html
+
 **¿Toro rojo o toro azul? En esta ciudad de Brasil, mantenerse neutral no es opción**\
 `En lo profundo de la selva amazónica, una intensa rivalidad divide a una ciudad desde hace un siglo, y no tiene nada que ver con deportes ni con política.`\
 https://www.nytimes.com/es/2026/07/16/espanol/america-latina/brasil-festival-toro-amazonia.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011033313/is-grunge-back.html
 **Will Iran Be a Forever War?**\
 `President Trump may have fallen into the same trap that his predecessors did in Iraq and Afghanistan. Our chief diplomatic correspondent explains why.`\
 https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
-
-**A.I.M by Kyle Abraham Performs ‘White Space’ at the New York Times**\
-`The New York City-based dance company A.I.M by Kyle Abraham performs an abridged and adapted version of “White Space” in T Magazine’s office at the New York Times Building.`\
-https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-performs-white-space-at-the-new-york-times.html
-
-**U.S. Military Again Blockades Iranian Ports After Collapse of Cease-Fire**\
-`President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran. Enforcing a blockade takes a huge commitment of warships and aircraft.`\
-https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
-
-**Almost Half of House Democrats Vote to End Aid to Israel**\
-`The measure failed, but the level of support among Democrats exposed a stark shift in the party away from backing the Jewish state.`\
-https://www.nytimes.com/2026/07/15/us/politics/democrats-house-israel-vote-aid.html
 
