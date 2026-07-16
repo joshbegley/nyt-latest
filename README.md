@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/07/16/weather/when-will-wildfire-smoke-end.html
 `Sampling the outpouring of responses to “The Population Forecasts Aren’t Grim Enough,” an Opinion guest essay by Lyman Stone. Also: The Ferrari faithful.`\
 https://www.nytimes.com/2026/07/16/opinion/falling-birthrates-population.html
 
-**The Sunset Strip Becomes a Gushing River After Water Main Break**\
+**The Sunset Strip Becomes a Gushing River After a Water Main Break**\
 `The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
 https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
 
