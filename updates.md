@@ -1,3 +1,19 @@
+**Manhattan Building’s Buckled Columns Probably Lacked Required Reinforcements**\
+`Drawings obtained by The New York Times show the columns called for additional steel plates, but engineers reviewing site photos said they appeared to be missing.`\
+https://www.nytimes.com/2026/07/16/nyregion/manhattan-building-collapse-nyc-drawings.html
+
+**‘Today’ Anchor Craig Melvin Chases Intruder From 30 Rock as Show Airs**\
+`The incident did not result in any injuries, the police said.`\
+https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
+
+**Man Who Killed Gay Dancer in Brooklyn Is Sentenced to 20 Years**\
+`Dmitriy Popov, 20, was convicted of manslaughter as a hate crime for fatally stabbing O’Shae Sibley, 28, at a gas station in Brooklyn in 2023.`\
+https://www.nytimes.com/2026/07/16/nyregion/oshae-sibley-case-manslaughter-hate-crime.html
+
+**Wildfire Smoke Closes Parks and Shuffles Visitors**\
+`Visitors to national parks and other public lands in the Midwest faced closures, unhealthy air quality and recommended limits on outdoor activities.`\
+https://www.nytimes.com/2026/07/16/travel/wildfire-smoke-closing-parks.html
+
 **Why Does Wildfire Smoke Turn the Sky Orange?**\
 `It’s about how light scatters in our atmosphere.`\
 https://www.nytimes.com/2026/07/16/weather/smoke-sky-orange-red.html

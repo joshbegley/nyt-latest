@@ -1,3 +1,7 @@
+**Manhattan Building’s Buckled Columns Probably Lacked Required Reinforcements**\
+`Drawings obtained by The New York Times show the columns called for additional steel plates, but engineers reviewing site photos said they appeared to be missing.`\
+https://www.nytimes.com/2026/07/16/nyregion/manhattan-building-collapse-nyc-drawings.html
+
 **Why Does Wildfire Smoke Turn the Sky Orange?**\
 `It’s about how light scatters in our atmosphere.`\
 https://www.nytimes.com/2026/07/16/weather/smoke-sky-orange-red.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/07/16/weather/smoke-sky-orange-red.html
 `A banner that the Argentine players displayed after they beat England in the World Cup semi-finals said that the Falkland Islands are part of Argentina. The banner referenced a bloody war that the two countries fought over the archipelago in 1982, in which Britain emerged victorious.`\
 https://www.nytimes.com/video/sports/soccer/100000011035268/world-cup-argentina-england-falklands-banner.html
 
-**‘Today’ Anchor Craig Melvin Chases Intruder From Studio as Show Airs**\
+**‘Today’ Anchor Craig Melvin Chases Intruder From 30 Rock as Show Airs**\
 `The incident did not result in any injuries, the police said.`\
 https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
 
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/07/16/us/politics/hegseth-iran-war-briefings.html
 https://www.nytimes.com/video/opinion/100000011024688/america-without-capitalism.html
 
 **Man Who Killed Gay Dancer in Brooklyn Is Sentenced to 20 Years**\
-`Dmitriy Popov, 21, was convicted of manslaughter as a hate crime for fatally stabbing O’Shae Sibley, 28, at a gas station in Brooklyn in 2023.`\
+`Dmitriy Popov, 20, was convicted of manslaughter as a hate crime for fatally stabbing O’Shae Sibley, 28, at a gas station in Brooklyn in 2023.`\
 https://www.nytimes.com/2026/07/16/nyregion/oshae-sibley-case-manslaughter-hate-crime.html
 
 **Netflix Revenue Grows 13% to $12.6 Billion**\
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/07/16/us/elections/maricopa-county-elections-settle
 `Las nuevas pastillas pueden reducir los niveles de colesterol muy por debajo de lo que se puede lograr con las estatinas, según han demostrado los ensayos clínicos.`\
 https://www.nytimes.com/es/2026/07/16/espanol/ciencia-y-tecnologia/colesterol-medicamento-pastilla.html
 
-**Wildfire Smoke Shutters Parks and Shuffles Visitors**\
+**Wildfire Smoke Closes Parks and Shuffles Visitors**\
 `Visitors to national parks and other public lands in the Midwest faced closures, unhealthy air quality and recommended limits on outdoor activities.`\
 https://www.nytimes.com/2026/07/16/travel/wildfire-smoke-closing-parks.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/us/flooding-central-texas-hill-country.html
 **Trump Is Expected to Revisit Election Fraud Claims in Speech: What to Know.**\
 `Repeated investigations and audits have debunked claims by the president and his allies of widespread fraud or manipulation in 2020 or other elections.`\
 https://www.nytimes.com/2026/07/16/us/politics/us-election-interference-security.html
-
-**No Walkies Today: In Chicago, Dogs and Their Humans Suffer Alike**\
-`In Portage Park, wildfire smoke cuts canine playtime short.`\
-https://www.nytimes.com/2026/07/16/weather/chicago-wildfire-smoke-dogs.html
 
