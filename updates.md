@@ -1,3 +1,23 @@
+**¿Toro rojo o toro azul? En esta ciudad de Brasil, mantenerse neutral no es opción**\
+`En lo profundo de la selva amazónica, una intensa rivalidad divide a una ciudad desde hace un siglo, y no tiene nada que ver con deportes ni con política.`\
+https://www.nytimes.com/es/2026/07/16/espanol/america-latina/brasil-festival-toro-amazonia.html
+
+**La guerra en Irán implicará precios más altos para las empresas**\
+`El mundo en el que las empresas están operando se ha vuelto más peligroso e impredecible. Para adaptarse, hará falta flexibilidad. Y esa flexibilidad tiene su costo.`\
+https://www.nytimes.com/es/2026/07/16/espanol/negocios/guerra-iran-efectos-empresas-precios.html
+
+**Members of Congress Intensify Criticism of Immigration Detention Center**\
+`Lawmakers are continuing to urge action at Delaney Hall in Newark, where the conditions have been decried by detainees and demonstrators.`\
+https://www.nytimes.com/2026/07/16/nyregion/delaney-hall-conditions-congress.html
+
+**How Roger Bennett, of Men in Blazers, Became America’s No. 1 Soccer Fan**\
+`A football fanatic, Roger Bennett left England and became a convert to the U.S. game. His wildly successful podcasting empire is spreading the gospel.`\
+https://www.nytimes.com/2026/07/16/nyregion/roger-bennett-men-in-blazers-world-cup-usa.html
+
+**NYT Spelling Bee Answers for July 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/16/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Pokes Fun at Joe Biden’s New Memoir**\
 `“It’s the second book Biden has written,” Fallon said of the former president. “The first was ‘The Odyssey.’”`\
 https://www.nytimes.com/2026/07/16/arts/television/jimmy-fallon-joe-biden-memoir-book.html
