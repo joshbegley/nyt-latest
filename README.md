@@ -44,7 +44,7 @@ https://www.nytimes.com/2026/07/16/business/dealbook/anthropic-ipo-ai.html
 
 **Google Ordered to Give A.I. Rivals More Access on Android Smartphones**\
 `The decision by European Union regulators is a response to fears that Google will use its vast Android user base to gain an edge in A.I.`\
-https://www.nytimes.com/2026/07/16/technology/google-ordered-to-give-ai-rivals-more-access-on-android-smartphones.html
+https://www.nytimes.com/2026/07/16/technology/google-android-ai.html
 
 **As Argentina Holds Up Falklands Banner on Defeating England, Here’s What to Know About the War**\
 `Argentina and Britain fought a bloody war over the islands in 1982. Decades later, the dispute suffuses matches between England and Argentina.`\
