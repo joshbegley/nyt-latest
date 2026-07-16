@@ -2,7 +2,7 @@
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/16/books/review/new-recommended-books.html
 
-**Blazes Continue in Ontario as Officials Brace for More Evacuations**\
+**Wildfires Continue in Ontario as Officials Brace for More Evacuations**\
 `Ontario’s minister for emergency preparedness has asked the federal government for help, including potentially deploying Canadian soldiers to the affected regions.`\
 https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfires.html
 
