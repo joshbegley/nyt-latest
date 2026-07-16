@@ -1,3 +1,23 @@
+**This City Has Some of the Worst Air in the United States**\
+`In Toledo, Ohio, parks are largely empty and some people are wearing masks.`\
+https://www.nytimes.com/2026/07/16/weather/toledo-ohio-air-quality-index.html
+
+**Republican Senator Thom Tillis Demands Todd Blanche Meet With Epstein Survivors**\
+`Senator Thom Tillis of North Carolina made the stipulation during a Senate Judiciary Committee hearing on Thursday for witnesses to discuss Mr. Blanche’s nomination.`\
+https://www.nytimes.com/2026/07/16/us/politics/todd-blanche-attorney-general-epstein.html
+
+**¿Qué tanto debería preocuparte comer lechuga?**\
+`No necesitábamos un brote del bicho estomacal “Cyclospora”. Pero aquí estamos.`\
+https://www.nytimes.com/es/2026/07/16/espanol/opinion/cyclospora-infeccion-parasito-lechuga.html
+
+**These Recipes Fit Just Right**\
+`Warm, simple five-star dishes that still feel plenty summery.`\
+https://www.nytimes.com/2026/07/16/dining/these-recipes-fit-just-right.html
+
+**Live Updates: Wildfire Smoke Pushes Air Quality to Dangerous Levels for Millions**\
+`Dense smoke from Canadian wildfires is choking a vast stretch of the Northeast and Upper Midwest. Officials encouraged residents, including in New York, to stay indoors.`\
+https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
+
 **German Man Accused of Drugging and Filming the Rape of 14 Women**\
 `The case has drawn comparisons to the Pelicot trial in France, which started a discussion across Europe about sexual assault and consent.`\
 https://www.nytimes.com/2026/07/16/world/europe/german-man-rape-case.html

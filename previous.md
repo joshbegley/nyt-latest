@@ -1,3 +1,19 @@
+**This City Has Some of the Worst Air in the United States**\
+`In Toledo, Ohio, parks are largely empty and some people are wearing masks.`\
+https://www.nytimes.com/2026/07/16/weather/toledo-ohio-air-quality-index.html
+
+**Republican Senator Thom Tillis Demands Todd Blanche Meet With Epstein Survivors**\
+`Senator Thom Tillis of North Carolina made the stipulation during a Senate Judiciary Committee hearing on Thursday for witnesses to discuss Mr. Blanche’s nomination.`\
+https://www.nytimes.com/2026/07/16/us/politics/todd-blanche-attorney-general-epstein.html
+
+**¿Qué tanto debería preocuparte comer lechuga?**\
+`No necesitábamos un brote del bicho estomacal “Cyclospora”. Pero aquí estamos.`\
+https://www.nytimes.com/es/2026/07/16/espanol/opinion/cyclospora-infeccion-parasito-lechuga.html
+
+**These Recipes Fit Just Right**\
+`Warm, simple five-star dishes that still feel plenty summery.`\
+https://www.nytimes.com/2026/07/16/dining/these-recipes-fit-just-right.html
+
 **German Man Accused of Drugging and Filming the Rape of 14 Women**\
 `The case has drawn comparisons to the Pelicot trial in France, which started a discussion across Europe about sexual assault and consent.`\
 https://www.nytimes.com/2026/07/16/world/europe/german-man-rape-case.html
@@ -102,8 +118,8 @@ https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-wa
 `Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
 https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
 
-**Live Updates: Wildfire Smoke Chokes Skies Across Swath of U.S. and Canada**\
-`A strip of dense smoke combined with extreme heat has pushed air quality to unhealthy levels. Officials encouraged people in cities, including New York, to stay indoors.`\
+**Live Updates: Wildfire Smoke Pushes Air Quality to Dangerous Levels for Millions**\
+`Dense smoke from Canadian wildfires is choking a vast stretch of the Northeast and Upper Midwest. Officials encouraged residents, including in New York, to stay indoors.`\
 https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
 
 **New Yorkers Get Squeamish About Salad Lunches Amid Parasite Outbreak**\
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-sp
 **ICE Ramps Back Up, With Deadly Results**\
 `Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles.`\
 https://www.nytimes.com/2026/07/16/podcasts/the-daily/ice-shootings-texas-maine.html
-
-**Wildfire Smoke Turns Skies Orange Across the U.S., and Democrats Make a Big Shift on Israel**\
-`Plus, why Gen Z is turning to trade schools.`\
-https://www.nytimes.com/2026/07/16/podcasts/the-headlines/wildfire-smoke-democrats-israel.html
-
-**NYT Connections Answers for July 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
-https://www.nytimes.com/2026/07/16/crosswords/connections-companion-1132.html
-
-**Today’s Wordle Hints for July 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
-https://www.nytimes.com/2026/07/16/crosswords/wordle-review-1854.html
-
-**The Essentials About Mykhailo Fedorov, the Ousted Ukrainian Minister**\
-`Mr. Fedorov became the youthful face of Ukraine’s successful drone warfare program. The move to replace him has prompted street protests.`\
-https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-defense-minister.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
