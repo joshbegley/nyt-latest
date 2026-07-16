@@ -1,3 +1,11 @@
+**Climate Change Contributes to a Smokier World**\
+`Higher temperatures and drought conditions are contributing to more intense wildfires and extending the summer fire season in North America.`\
+https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-climate-change.html
+
+**What to Know About the New Cholesterol Pill and How it Compares to Statins**\
+`How does it compare to statins? Should you take it? And how much does it cost?`\
+https://www.nytimes.com/2026/07/16/well/new-cholesterol-drug-statins.html
+
 **Chinese Human Rights Lawyer Seeking Asylum Is Arrested by ICE**\
 `Shaoping Wu was working as a contract delivery driver for Amazon when he was pulled over in Pennsylvania. He had championed personal and religious freedom for Chinese citizens.`\
 https://www.nytimes.com/2026/07/16/us/chinese-lawyer-wu-shaoping-ice-detention.html
