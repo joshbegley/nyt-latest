@@ -1,3 +1,11 @@
+**Who Is Ahead in Florida's 14th Congressional District?**\
+`Track the latest polls in Florida's 14th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-14-polls-2026.html
+
+**Ukraine’s Ousted Defense Minister Attacks the Military’s Old Guard**\
+`Mykhailo Fedorov defended his efforts to modernize the Ukrainian armed forces as thousands of people protested his dismissal.`\
+https://www.nytimes.com/2026/07/16/world/europe/ukraine-fedorov-protests.html
+
 **Will SpaceX’s 13th Test Flight of Starship Be Lucky?**\
 `The objectives remain largely the same as the last launch in May. The biggest difference is that the gargantuan rocket will deploy 20 functioning, next-generation Starlink internet satellites.`\
 https://www.nytimes.com/2026/07/16/science/spacex-13th-test-flight-starship.html
