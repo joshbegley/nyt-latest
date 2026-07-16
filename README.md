@@ -1,3 +1,11 @@
+**When Will the Wildfire Smoke End?**\
+`A heat dome that has led to high temperatures in the Midwest and the Northeast has trapped the smoke close to the ground.`\
+https://www.nytimes.com/2026/07/16/weather/when-will-wildfire-smoke-end.html
+
+**Falling Birthrates and America’s Future**\
+`Sampling the outpouring of responses to “The Population Forecasts Aren’t Grim Enough,” an Opinion guest essay by Lyman Stone. Also: The Ferrari faithful.`\
+https://www.nytimes.com/2026/07/16/opinion/falling-birthrates-population.html
+
 **The Sunset Strip Becomes a Gushing River After Water Main Break**\
 `The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
 https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/16/science/the-fda-approves-a-new-pill-to-slash-
 **Global Opinion Shifts Toward Favoring China Over the U.S., Poll Finds**\
 `An annual survey from the Pew Research Center found that more countries felt positively about China than America.`\
 https://www.nytimes.com/2026/07/16/world/asia/pew-opinion-survey-china-united-states.html
-
-**U.K. Nationalizes British Steel, Its Last Major Steel Mill**\
-`The government first intervened in British Steel last year to prevent its then-owner, the Chinese company Jingye Group, from shutting it down. No private sector buyers came forward.`\
-https://www.nytimes.com/2026/07/16/business/britain-nationalizes-steel-mill.html
-
-**Argentina Triumph as World Cup Final Is Set**\
-`Messi and team defeat England and will face Spain in the tournament showpiece.`\
-https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-spain.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
