@@ -1,3 +1,7 @@
+**Mass Protests Across Ukraine Oppose Ouster of Defense Minister**\
+`Demonstrators demanded the reinstatement of Mykhailo Fedorov, who had come to symbolize Ukraine’s success in using drones to strike back against Russia.`\
+https://www.nytimes.com/2026/07/16/world/europe/ukraine-federov-protests.html
+
 **Decoding the Kawhi Leonard Investigation**\
 `As a high-profile N.B.A. trade remains in limbo, a former N.F.L. union executive weighs in.`\
 https://www.nytimes.com/2026/07/16/podcasts/decoding-the-kawhi-leonard-investigation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/16/books/review/shiva-naipaul-journey-to-nowhere
 **What Can We Learn From Burning Down This House?**\
 `Wildfires are intensifying. Our climate reporter Mira Rojanasakul goes inside an unusual lab working to protect homes from the flames.`\
 https://www.nytimes.com/video/climate/100000010821861/wildfire-research-home-burn.html
-
-**Here’s Where the U.S. and Iran Have Launched Attacks as the War Escalates**\
-`The U.S. military has appeared to widen its targets in Iran, while Iran has fired at bases belonging to American allies in the Middle East.`\
-https://www.nytimes.com/2026/07/16/world/middleeast/iran-war-us-strikes.html
 

@@ -1,3 +1,7 @@
+**Mass Protests Across Ukraine Oppose Ouster of Defense Minister**\
+`Demonstrators demanded the reinstatement of Mykhailo Fedorov, who had come to symbolize Ukraine’s success in using drones to strike back against Russia.`\
+https://www.nytimes.com/2026/07/16/world/europe/ukraine-federov-protests.html
+
 **Decoding the Kawhi Leonard Investigation**\
 `As a high-profile N.B.A. trade remains in limbo, a former N.F.L. union executive weighs in.`\
 https://www.nytimes.com/2026/07/16/podcasts/decoding-the-kawhi-leonard-investigation.html
