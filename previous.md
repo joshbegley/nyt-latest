@@ -1,3 +1,7 @@
+**Corrections: July 16, 2026**\
+`Corrections that appeared in print on Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/16/pageoneplus/corrections-july-16-2026.html
+
 **Strait of Hormuz Tanker Traffic Erodes Further as Oil Prices Rise**\
 `Very few ships passed through the waterway on the first full day of the U.S. naval blockade of Iran.`\
 https://www.nytimes.com/2026/07/16/business/strait-hormuz-iran-war-oil.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/arts/design/duchamp-chess-moma.html
 **A Vision of a ‘Society Without Capitalism’**\
 `Can democratic socialism redeem the left without destroying capitalism?`\
 https://www.nytimes.com/video/opinion/100000011024674/a-vision-of-a-society-without-capitalism.html
-
-**9 Art Shows to Catch Before They Close This Summer**\
-`Among some must-see exhibitions are the Whitney Biennial, a Marcel Duchamp retrospective and a sprawling New Museum survey.`\
-https://www.nytimes.com/2026/07/16/arts/design/last-chance-art-shows-new-york.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
