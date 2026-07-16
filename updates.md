@@ -1,3 +1,11 @@
+**Could a 50-Year-Old Case Thwart Trump’s Attacks on the News Media?**\
+`The precedent said that “official harassment of the press” is forbidden by the First Amendment.`\
+https://www.nytimes.com/2026/07/16/us/politics/the-docket-supreme-court-press.html
+
+**Trump Is Expected to Revisit Election Fraud Claims in Speech: What to Know.**\
+`Repeated investigations and audits have debunked claims by the president and his allies of widespread fraud or manipulation in 2020 or other elections.`\
+https://www.nytimes.com/2026/07/16/us/politics/us-election-interference-security.html
+
 **Mamdani Urges New Yorkers to Stay Indoors Because of Wildfire Smoke**\
 `“Every New Yorker should take precautions,” Mayor Zohran Mamdani said. Gov. Kathy Hochul also issued a statewide air quality advisory.`\
 https://www.nytimes.com/2026/07/16/us/mamdani-nyc-wildfire-smoke-aqi.html

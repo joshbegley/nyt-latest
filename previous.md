@@ -1,3 +1,7 @@
+**Could a 50-Year-Old Case Thwart Trump’s Attacks on the News Media?**\
+`The precedent said that “official harassment of the press” is forbidden by the First Amendment.`\
+https://www.nytimes.com/2026/07/16/us/politics/the-docket-supreme-court-press.html
+
 **Mamdani Urges New Yorkers to Stay Indoors Because of Wildfire Smoke**\
 `“Every New Yorker should take precautions,” Mayor Zohran Mamdani said. Gov. Kathy Hochul also issued a statewide air quality advisory.`\
 https://www.nytimes.com/2026/07/16/us/mamdani-nyc-wildfire-smoke-aqi.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/07/16/weather/hazardous-aqi-health-risks.html
 `At least one person has died, and emergency workers have rescued scores of people. Gov. Greg Abbott said the rain in the state was likely to break records.`\
 https://www.nytimes.com/2026/07/16/us/flooding-central-texas-hill-country.html
 
-**Trump Is Expected to Revisit Election Security. Here’s What to Know.**\
+**Trump Is Expected to Revisit Election Fraud Claims in Speech: What to Know.**\
 `Repeated investigations and audits have debunked claims by the president and his allies of widespread fraud or manipulation in 2020 or other elections.`\
 https://www.nytimes.com/2026/07/16/us/politics/us-election-interference-security.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/world/australia/sam-neill-death-cause-pneumon
 **Ukraine’s Ousted Defense Minister Attacks the Military’s Old Guard**\
 `Mykhailo Fedorov defended his efforts to modernize the Ukrainian armed forces as thousands of people protested his dismissal.`\
 https://www.nytimes.com/2026/07/16/world/europe/ukraine-fedorov-protests.html
-
-**Decoding the Kawhi Leonard Investigation**\
-`As a high-profile N.B.A. trade remains in limbo, a former N.F.L. union executive weighs in.`\
-https://www.nytimes.com/2026/07/16/podcasts/decoding-the-kawhi-leonard-investigation.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
