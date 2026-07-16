@@ -1,3 +1,7 @@
+**Tom Kean Is Back in Congress but Still Isn’t Talking**\
+`Mr. Kean, a New Jersey Republican who was absent from Congress while being treated for depression, has since appeared at few campaign events and declined interview requests.`\
+https://www.nytimes.com/2026/07/16/nyregion/tom-kean-campaign.html
+
 **Ukraine Was on a Roll. Then a Clash Over War Strategy Exploded Into View.**\
 `From an underground parking garage, Ukraine’s newly dismissed defense minister aired the most dramatic, public critique of the military command to emerge during the war.`\
 https://www.nytimes.com/2026/07/16/world/europe/ukraine-military-defense-minister-drones.html
