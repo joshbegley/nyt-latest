@@ -1,3 +1,23 @@
+**¿Toro rojo o toro azul? En esta ciudad de Brasil, mantenerse neutral no es opción**\
+`En lo profundo de la selva amazónica, una intensa rivalidad divide a una ciudad desde hace un siglo, y no tiene nada que ver con deportes ni con política.`\
+https://www.nytimes.com/es/2026/07/16/espanol/america-latina/brasil-festival-toro-amazonia.html
+
+**La guerra en Irán implicará precios más altos para las empresas**\
+`El mundo en el que las empresas están operando se ha vuelto más peligroso e impredecible. Para adaptarse, hará falta flexibilidad. Y esa flexibilidad tiene su costo.`\
+https://www.nytimes.com/es/2026/07/16/espanol/negocios/guerra-iran-efectos-empresas-precios.html
+
+**Members of Congress Intensify Criticism of Immigration Detention Center**\
+`Lawmakers are continuing to urge action at Delaney Hall in Newark, where the conditions have been decried by detainees and demonstrators.`\
+https://www.nytimes.com/2026/07/16/nyregion/delaney-hall-conditions-congress.html
+
+**How Roger Bennett, of Men in Blazers, Became America’s No. 1 Soccer Fan**\
+`A football fanatic, Roger Bennett left England and became a convert to the U.S. game. His wildly successful podcasting empire is spreading the gospel.`\
+https://www.nytimes.com/2026/07/16/nyregion/roger-bennett-men-in-blazers-world-cup-usa.html
+
+**NYT Spelling Bee Answers for July 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/16/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Pokes Fun at Joe Biden’s New Memoir**\
 `“It’s the second book Biden has written,” Fallon said of the former president. “The first was ‘The Odyssey.’”`\
 https://www.nytimes.com/2026/07/16/arts/television/jimmy-fallon-joe-biden-memoir-book.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
 **Almost Half of House Democrats Vote to End Aid to Israel**\
 `The measure failed, but the level of support among Democrats exposed a stark shift in the party away from backing the Jewish state.`\
 https://www.nytimes.com/2026/07/15/us/politics/democrats-house-israel-vote-aid.html
-
-**PayPal Receives $53 Billion Takeover Offer Involving Stripe**\
-`PayPal, which owns Venmo, is the target of what one group of analysts described as a “lowball” offer from Stripe, another payment processor, and Advent, a private equity firm.`\
-https://www.nytimes.com/2026/07/15/business/paypal-stripe-advent-takeover-bid.html
-
-**Raging Wildfire Surrounds Canadian Cargo Train**\
-`Canada, including Toronto and other parts of Ontario, were covered in smoke as wildfires sent smoke into New York and beyond.`\
-https://www.nytimes.com/video/world/canada/100000011033137/canada-wildfires-air-quality-train.html
-
-**Iran, Epstein, Space Travel: 5 Takeaways From JD Vance’s Interview With Joe Rogan**\
-`In his first on-air conversation with the popular podcaster since 2024, the vice president cautiously defended the Iran war while also hinting at skepticism about it.`\
-https://www.nytimes.com/2026/07/15/us/politics/jd-vance-rogan-interview.html
-
-**Cyclospora Outbreak: What to Know About Symptoms and Food Safety**\
-`The parasite has sickened thousands across the United States. Experts have tips on how to stay safe.`\
-https://www.nytimes.com/2026/07/15/well/eat/cyclospora-stomach-bug-what-to-know.html
-
-**Lemon Yogurt Cheesecake**\
-`This tart and tangy cheesecake utilizes lots of lemon zest and juice for a punchy, bright flavor, plus Greek yogurt for a smooth, light texture that is irresistible.`\
-https://www.nytimes.com/video/dining/100000011033302/lemon-yogurt-cheesecake.html
 
