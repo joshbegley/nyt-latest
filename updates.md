@@ -1,3 +1,7 @@
+**Live Updates: Wildfire Smoke Chokes Skies Across Swath of U.S. and Canada**\
+`A strip of dense smoke combined with extreme heat has pushed air quality to unhealthy levels. Officials encouraged people in cities, including New York, to stay indoors.`\
+https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
+
 **White House Faces Stiff Pushback on Subjecting Grants to Political Review**\
 `Academics, city leaders and congressional lawmakers number among the thousands to urge the Trump administration to reconsider a plan to assert more control over grants.`\
 https://www.nytimes.com/2026/07/16/us/politics/white-house-federal-grants-political-review.html

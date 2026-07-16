@@ -1,3 +1,7 @@
+**Someone Used A.I. to Write an Unauthorized Biography of Me. I Don’t Recommend Reading It.**\
+`Someone used A.I. to write my biography. Thousands more of those books are polluting Amazon. Who is behind all this drivel?`\
+https://www.nytimes.com/2026/07/16/technology/ai-slop-books-biography-amazon.html
+
 **White House Faces Stiff Pushback on Subjecting Grants to Political Review**\
 `Academics, city leaders and congressional lawmakers number among the thousands to urge the Trump administration to reconsider a plan to assert more control over grants.`\
 https://www.nytimes.com/2026/07/16/us/politics/white-house-federal-grants-political-review.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/16/espanol/negocios/economia-china-crecimient
 **Joining Forces for Their First Family Home in Philadelphia**\
 `A longtime renter, her mother and her daughter chipped in what they could to find a three-bedroom house in Germantown for less than $400,000. Here’s what they found.`\
 https://www.nytimes.com/interactive/2026/07/16/realestate/philadelphia-home-prices-germantown-mount-airy.html
-
-**The World Cup Is This Summer’s Blockbuster**\
-`Movie star looks, slow-motion sequences and operatic emotion make this tournament must-see viewing.`\
-https://www.nytimes.com/2026/07/16/podcasts/the-world-cup-is-this-summers-blockbuster.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
