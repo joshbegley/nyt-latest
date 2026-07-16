@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/07/16/crosswords/connections-companion-1132.html
 `Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
 https://www.nytimes.com/2026/07/16/crosswords/wordle-review-1854.html
 
-**What to Know About Mykhailo Fedorov, Ukraine’s Ousted Defense Minister**\
+**The Essentials About Mykhailo Fedorov, the Ousted Ukrainian Minister**\
 `Mr. Fedorov became the youthful face of Ukraine’s successful drone warfare program. The move to replace him has prompted street protests.`\
 https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-defense-minister.html
 
