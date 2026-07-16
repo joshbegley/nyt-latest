@@ -1,3 +1,7 @@
+**Chinese Human Rights Lawyer Seeking Asylum Is Arrested by ICE**\
+`Shaoping Wu was working as a contract delivery driver for Amazon when he was pulled over in Pennsylvania. He had championed personal and religious freedom for Chinese citizens.`\
+https://www.nytimes.com/2026/07/16/us/chinese-lawyer-wu-shaoping-ice-detention.html
+
 **Mensaje a la nación de Trump: la seguridad electoral estará en la agenda**\
 `Durante más de una década, el presidente Trump ha sembrado dudas sobre la integridad de las elecciones de EE. UU., y es probable que retome algunas de sus aseveraciones en un mensaje que dará el jueves.`\
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-mensaje-nacion.html
