@@ -1,3 +1,11 @@
+**Trump Administration to Impose New Tariffs on Brazil**\
+`The United States accused the country of unfair trade practices. The tariff will replace ones that the Supreme Court struck down.`\
+https://www.nytimes.com/2026/07/15/business/economy/trump-brazil-tariffs.html
+
+**New York City Considering Banning Horse Carriages**\
+`The City Council considered on Wednesday whether to ban horse-drawn carriages, following recent tragic incidents, including the death of a tourist in June.`\
+https://www.nytimes.com/video/nyregion/100000011032498/new-york-horse-carriages-ban.html
+
 **NYT Crossword Answers for July 16, 2026**\
 `You’ll get a kick out of Zhou Zhang and Mallory Montgomery’s puzzle.`\
 https://www.nytimes.com/2026/07/15/crosswords/daily-puzzle-2026-07-16.html

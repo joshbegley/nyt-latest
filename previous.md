@@ -1,3 +1,11 @@
+**Trump Administration to Impose New Tariffs on Brazil**\
+`The United States accused the country of unfair trade practices. The tariff will replace ones that the Supreme Court struck down.`\
+https://www.nytimes.com/2026/07/15/business/economy/trump-brazil-tariffs.html
+
+**New York City Considering Banning Horse Carriages**\
+`The City Council considered on Wednesday whether to ban horse-drawn carriages, following recent tragic incidents, including the death of a tourist in June.`\
+https://www.nytimes.com/video/nyregion/100000011032498/new-york-horse-carriages-ban.html
+
 **NYT Crossword Answers for July 16, 2026**\
 `You’ll get a kick out of Zhou Zhang and Mallory Montgomery’s puzzle.`\
 https://www.nytimes.com/2026/07/15/crosswords/daily-puzzle-2026-07-16.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/15/briefing/15-the-good-list-odyssey-elizabeth-g
 **Court Filings Describe Ongoing Contact Between ICE and Iran on Deportations**\
 `In a sworn declaration, a lawyer says an Iranian official reported receiving regular dossiers on Iranian detainees from Immigration and Customs Enforcement for months.`\
 https://www.nytimes.com/2026/07/15/us/politics/state-dept-ice-iran-deportation.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011033167/15vid-tillis-mirror-sot-vert.html
-
-**Judge Dismisses Suit Accusing Apple of Failing to Limit Child Sex Abuse Material**\
-`The lawsuit highlighted concerns that the privacy of Apple’s iCloud allows illegal material to be easily stored and shared on the service.`\
-https://www.nytimes.com/2026/07/15/technology/apple-lawsuit-child-sexual-abuse-dismissed.html
 
