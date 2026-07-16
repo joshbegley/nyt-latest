@@ -1,3 +1,11 @@
+**Decoding the Kawhi Leonard Investigation**\
+`As a high-profile N.B.A. trade remains in limbo, a former N.F.L. union executive weighs in.`\
+https://www.nytimes.com/2026/07/16/podcasts/decoding-the-kawhi-leonard-investigation.html
+
+**A 59-Year-Old Hunger Striker Joins a Gen Z Protest Movement in India**\
+`Sonam Wangchuk, a longtime activist, has fasted for 19 days, joining forces with a student-led campaign to change India’s education system.`\
+https://www.nytimes.com/2026/07/16/world/asia/india-sonam-wangchuk-cockroach-janata-party-hunger-strike.html
+
 **TSMC Adds $100 Billion to Its U.S. Spending Plan**\
 `The pledge from the Taiwanese chip-making giant brought the total commitment to its fast-growing operations in Arizona to $265 billion.`\
 https://www.nytimes.com/2026/07/16/business/tsmc-chips-investment-arizona.html
