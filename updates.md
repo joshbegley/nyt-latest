@@ -1,3 +1,7 @@
+**Judge Unseals Filings From Jack Smith Subpoena for Lawmaker’s Phone Data**\
+`The Justice Department had balked at the disclosure, saying that the government had not acknowledged the special counsel’s subpoenas and that grand jury information was secret.`\
+https://www.nytimes.com/2026/07/16/us/politics/judge-unseals-jack-smith-subpoena-filings.html
+
 **What It’s Like in a City With Dangerous Air Quality**\
 `Our reporter Nicholas Bogel-Burroughs is in Toledo, Ohio, where the air quality level resulting from Canadian wildfire smoke is among the most hazardous in the United States.`\
 https://www.nytimes.com/video/us/100000011036303/wildfire-smoke-air-quality-index-toledo.html

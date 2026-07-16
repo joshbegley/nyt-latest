@@ -1,3 +1,7 @@
+**Trump Administration Restricts Green Cards for Immigrants on Public Assistance**\
+`The move is a significant change that could deter hundreds of thousands of immigrants from using such programs to meet basic needs.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-green-cards-public-assistance.html
+
 **Judge Unseals Filings From Jack Smith Subpoena for Lawmaker’s Phone Data**\
 `The Justice Department had balked at the disclosure, saying that the government had not acknowledged the special counsel’s subpoenas and that grand jury information was secret.`\
 https://www.nytimes.com/2026/07/16/us/politics/judge-unseals-jack-smith-subpoena-filings.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011033031/make-america-safe-from-par
 **Astronomers Find an Atmosphere on a Nearby Earthlike Planet**\
 `It’s the first potentially habitable world known to host an atmosphere, making it a lead contender in the search for life beyond our solar system.`\
 https://www.nytimes.com/2026/07/16/science/astronomy-exoplanet-atmosphere.html
-
-**Israeli Government Pushes Through Divisive Laws Before Election**\
-`Prime Minister Benjamin Netanyahu backed a series of laws undermining legal oversight of the government, benefiting allied media outlets and aiming to shore up ultra-Orthodox political support.`\
-https://www.nytimes.com/2026/07/16/world/middleeast/israel-divisive-new-laws.html
 
