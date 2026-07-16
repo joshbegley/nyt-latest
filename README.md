@@ -1,3 +1,11 @@
+**Climate Change Contributes to a Smokier World**\
+`Higher temperatures and drought conditions are contributing to more intense wildfires and extending the summer fire season in North America.`\
+https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-climate-change.html
+
+**What to Know About the New Cholesterol Pill and How it Compares to Statins**\
+`How does it compare to statins? Should you take it? And how much does it cost?`\
+https://www.nytimes.com/2026/07/16/well/new-cholesterol-drug-statins.html
+
 **Mensaje a la nación de Trump: la seguridad electoral estará en la agenda**\
 `Durante más de una década, el presidente Trump ha sembrado dudas sobre la integridad de las elecciones de EE. UU., y es probable que retome algunas de sus aseveraciones en un mensaje que dará el jueves.`\
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-mensaje-nacion.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/us/politics/todd-blanche-attorney-general-eps
 **¿Qué tanto debería preocuparte comer lechuga?**\
 `No necesitábamos un brote del bicho estomacal “Cyclospora”. Pero aquí estamos.`\
 https://www.nytimes.com/es/2026/07/16/espanol/opinion/cyclospora-infeccion-parasito-lechuga.html
-
-**These Recipes Fit Just Right**\
-`Warm, simple five-star dishes that still feel plenty summery.`\
-https://www.nytimes.com/2026/07/16/dining/these-recipes-fit-just-right.html
-
-**German Man Accused of Drugging and Filming the Rape of 14 Women**\
-`The case has drawn comparisons to the Pelicot trial in France, which started a discussion across Europe about sexual assault and consent.`\
-https://www.nytimes.com/2026/07/16/world/europe/german-man-rape-case.html
 
