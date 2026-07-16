@@ -1,3 +1,7 @@
+**Air Quality is at ‘Hazardous’ Levels. What Does That Mean for Health?**\
+`People exposed to smoke spreading from Canadian wildfires are at risk of a wide range of health problems.`\
+https://www.nytimes.com/2026/07/16/weather/hazardous-aqi-health-risks.html
+
 **Relentless Rain Causes Widespread Flooding in Central Texas**\
 `At least one person has died, and emergency workers have rescued scores of people. Gov. Greg Abbott said the rain in the state was likely to break records.`\
 https://www.nytimes.com/2026/07/16/us/flooding-central-texas-hill-country.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/podcasts/decoding-the-kawhi-leonard-investiga
 **A 59-Year-Old Hunger Striker Joins a Gen Z Protest Movement in India**\
 `Sonam Wangchuk, a longtime activist, has fasted for 19 days, joining forces with a student-led campaign to change India’s education system.`\
 https://www.nytimes.com/2026/07/16/world/asia/india-sonam-wangchuk-cockroach-janata-party-hunger-strike.html
-
-**TSMC Adds $100 Billion to Its U.S. Spending Plan**\
-`The pledge from the Taiwanese chip-making giant brought the total commitment to its fast-growing operations in Arizona to $265 billion.`\
-https://www.nytimes.com/2026/07/16/business/tsmc-chips-investment-arizona.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

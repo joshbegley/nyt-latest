@@ -1,3 +1,7 @@
+**Air Quality is at ‘Hazardous’ Levels. What Does That Mean for Health?**\
+`People exposed to smoke spreading from Canadian wildfires are at risk of a wide range of health problems.`\
+https://www.nytimes.com/2026/07/16/weather/hazardous-aqi-health-risks.html
+
 **Relentless Rain Causes Widespread Flooding in Central Texas**\
 `At least one person has died, and emergency workers have rescued scores of people. Gov. Greg Abbott said the rain in the state was likely to break records.`\
 https://www.nytimes.com/2026/07/16/us/flooding-central-texas-hill-country.html
