@@ -1,3 +1,7 @@
+**Tourist Helicopter Struck Geese Before Crashing in Hudson River, Documents Show**\
+`Officials discovered remains from at least two birds on the helicopter’s rotor blades, according to documents released by the National Transportation Safety Board.`\
+https://www.nytimes.com/2026/07/16/us/politics/ntsb-helicopters-hudson-river-geese.html
+
 **Lionel Messi Is Walking Into History**\
 `Messi doesn’t walk because he’s left the game. He walks in order to enter it.`\
 https://www.nytimes.com/2026/07/16/opinion/messi-world-cup-argentina-final.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011034468/ukraine-protests-fedo
 **How the NYT Reported on Khamenei’s Funeral in Iran**\
 `Our correspondent talked about the challenges of covering major news while under surveillance and filing his work without reliable internet access.`\
 https://www.nytimes.com/2026/07/16/insider/iran-funeral-coverage.html
-
-**Could a 50-Year-Old Case Thwart Trump’s Attacks on the News Media?**\
-`The precedent said that “official harassment of the press” is forbidden by the First Amendment.`\
-https://www.nytimes.com/2026/07/16/us/politics/the-docket-supreme-court-press.html
 
