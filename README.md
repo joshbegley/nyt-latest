@@ -1,3 +1,15 @@
+**Quote of the Day: Ukraine’s Next Phase: The Battle for Minds**\
+`Quotation of the Day for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/16/pageoneplus/quote-of-the-day-ukraines-next-phase-the-battle-for-minds.html
+
+**Europe Wants to Break Free From American and Chinese Technology. But How?**\
+`France and Germany want to quit relying on America and China for key technology like artificial intelligence, but they’re having to choose where to do it.`\
+https://www.nytimes.com/2026/07/16/world/europe/digital-autonomy-ai.html
+
+**In Iran war, Trump Risks Another American ‘Forever War’**\
+`President Trump, who promised to “end wars,” not start them, may have fallen into a familiar presidential trap.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/forever-war-trump-iran.html
+
 **Trump Administration to Impose New Tariffs on Brazil**\
 `The United States accused the country of unfair trade practices. The tariff will replace ones that the Supreme Court struck down.`\
 https://www.nytimes.com/2026/07/15/business/economy/trump-brazil-tariffs.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/15/nyregion/republicans-jews-mamdani.html
 **Who Is Ahead in Massachusetts's 4th Congressional District?**\
 `Track the latest polls in Massachusetts's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/massachusetts-us-house-4-polls-2026.html
-
-**Todd Blanche, Trump’s Attorney General Pick, Faces Crucial Hurdle After Rocky Hearing**\
-`Even a single Republican “no” vote would block Mr. Blanche’s nomination from consideration by the full Senate, which could sink his confirmation.`\
-https://www.nytimes.com/2026/07/15/us/politics/todd-blanche-attorney-general-confirmation.html
-
-**The Good List: 6 Things to Add Some Delight to Your Day**\
-`Odysseus’ social network, performative boredom and decorated envelopes.`\
-https://www.nytimes.com/2026/07/15/briefing/15-the-good-list-odyssey-elizabeth-gilbert.html
-
-**Court Filings Describe Ongoing Contact Between ICE and Iran on Deportations**\
-`In a sworn declaration, a lawyer says an Iranian official reported receiving regular dossiers on Iranian detainees from Immigration and Customs Enforcement for months.`\
-https://www.nytimes.com/2026/07/15/us/politics/state-dept-ice-iran-deportation.html
 
