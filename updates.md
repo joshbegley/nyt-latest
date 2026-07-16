@@ -1,3 +1,7 @@
+**Houston ICE Shooting: Lawyer Says Bags Held Salt, Not Drugs**\
+`Federal investigators said a “crystal-like” substance in the bags looked like methamphetamine. A lawyer for the victim’s brother said it was salt.`\
+https://www.nytimes.com/2026/07/16/us/fbi-search-drugs-houston-ice-shooting.html
+
 **How Todd Blanche Made the Justice Dept. Less Independent**\
 `Our Justice Department reporter Devlin Barrett describes how Todd Blanche, President Trump’s former personal lawyer and current nominee for attorney general, has helped Mr. Trump gain more control over the Justice Department.`\
 https://www.nytimes.com/video/us/politics/100000011024954/how-todd-blanche-made-the-justice-dept-less-independent.html
