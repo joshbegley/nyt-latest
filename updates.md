@@ -1,3 +1,7 @@
+**Iranian American Woman Held in Iran on Spying Charges Is Released**\
+`The dual Iranian-U.S. citizen, Dena Karari, had her passport seized in December 2024 and had not been able to leave Iran as she faced espionage charges.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-american-released-trump.html
+
 **Los casos de ciclosporosis van en aumento. Esto es lo que debes saber**\
 `El parásito ha enfermado a miles de personas en todo Estados Unidos. Los expertos tienen consejos sobre cómo protegerte del brote.`\
 https://www.nytimes.com/es/2026/07/15/espanol/casos-ciclosporosis-que-hacer.html
