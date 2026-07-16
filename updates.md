@@ -1,3 +1,7 @@
+**The Left Needs to Reclaim Its Optimism**\
+`Can a more patriotic leftism help the Democrat Party rebrand? Bhaskar Sunkara, author of “The Socialist Manifesto,” talks on “Interesting Times” about how liberals have damaged the Democratic party’s brand by embracing a pessimistic narrative of American history.`\
+https://www.nytimes.com/video/opinion/100000011024679/the-left-needs-to-reclaim-its-optimism.html
+
 **Wildfire Smokes Makes Air Hazardous for Millions in Midwest and East Coast**\
 `The haze is likely to ease in the East this weekend but linger in the Upper Midwest, where some cities recorded extremely high pollution indexes on Thursday.`\
 https://www.nytimes.com/2026/07/16/us/wildfire-smoke-air-quality.html

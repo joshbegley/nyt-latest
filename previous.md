@@ -1,3 +1,7 @@
+**The Left Needs to Reclaim Its Optimism**\
+`Can a more patriotic leftism help the Democrat Party rebrand? Bhaskar Sunkara, author of “The Socialist Manifesto,” talks on “Interesting Times” about how liberals have damaged the Democratic party’s brand by embracing a pessimistic narrative of American history.`\
+https://www.nytimes.com/video/opinion/100000011024679/the-left-needs-to-reclaim-its-optimism.html
+
 **Wildfire Smokes Makes Air Hazardous for Millions in Midwest and East Coast**\
 `The haze is likely to ease in the East this weekend but linger in the Upper Midwest, where some cities recorded extremely high pollution indexes on Thursday.`\
 https://www.nytimes.com/2026/07/16/us/wildfire-smoke-air-quality.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/opinion/new-york-high-school-test-racism.html
 **Dave Kendall, Creator and Host of MTV’s ‘120 Minutes,’ Dies at 63**\
 `With his English accent and ubiquitous leather jacket, Mr. Kendall was the face of alternative music on MTV from 1989 to 1992.`\
 https://www.nytimes.com/2026/07/16/arts/television/dave-kendall-dead.html
-
-**Make America Safe From Parasites Again**\
-`Cramping, vomiting and diarrhea. Is this what “Make America Healthy Again” looks like? The recent outbreak of Cyclospora, a parasite that causes a food-borne illness that’s ruining summers across the nation, has us asking: Were those cuts to public health institutions worth it? And what’s in this salad?`\
-https://www.nytimes.com/video/opinion/100000011033031/make-america-safe-from-parasites-again.html
 
