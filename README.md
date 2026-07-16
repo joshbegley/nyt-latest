@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/07/16/us/elections/maricopa-county-elections-settle
 `Las nuevas pastillas pueden reducir los niveles de colesterol muy por debajo de lo que se puede lograr con las estatinas, según han demostrado los ensayos clínicos.`\
 https://www.nytimes.com/es/2026/07/16/espanol/ciencia-y-tecnologia/colesterol-medicamento-pastilla.html
 
-**Wildfire Smoke Shutters Parks and Shuffles Visitors**\
+**Wildfire Smoke Closes Parks and Shuffles Visitors**\
 `Visitors to national parks and other public lands in the Midwest faced closures, unhealthy air quality and recommended limits on outdoor activities.`\
 https://www.nytimes.com/2026/07/16/travel/wildfire-smoke-closing-parks.html
 
