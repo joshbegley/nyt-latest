@@ -1,3 +1,11 @@
+**Lionel Messi Is Walking Into History**\
+`Messi doesn’t walk because he’s left the game. He walks in order to enter it.`\
+https://www.nytimes.com/2026/07/16/opinion/messi-world-cup-argentina-final.html
+
+**The Internet Is Finishing a New Album**\
+`Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of their 2018 album, “Hive Mind,” to discuss what’s next for the band.`\
+https://www.nytimes.com/video/podcasts/100000011031400/the-internet-is-finishing-a-new-album.html
+
 **Delightful World Cup Stories**\
 `Not all the best moments from the tournament were on the pitch. We revisit some of our favorites ahead of Sunday’s final.`\
 https://www.nytimes.com/2026/07/16/world/world-cup-spain-argentina-ukraine.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/insider/iran-funeral-coverage.html
 **Could a 50-Year-Old Case Thwart Trump’s Attacks on the News Media?**\
 `The precedent said that “official harassment of the press” is forbidden by the First Amendment.`\
 https://www.nytimes.com/2026/07/16/us/politics/the-docket-supreme-court-press.html
-
-**Mamdani Urges New Yorkers to Stay Indoors Because of Wildfire Smoke**\
-`“Every New Yorker should take precautions,” Mayor Zohran Mamdani said. Gov. Kathy Hochul also issued a statewide air quality advisory.`\
-https://www.nytimes.com/2026/07/16/us/mamdani-nyc-wildfire-smoke-aqi.html
-
-**Air Quality is at ‘Hazardous’ Levels. What Does That Mean for Health?**\
-`People exposed to smoke spreading from Canadian wildfires are at risk of a wide range of health problems.`\
-https://www.nytimes.com/2026/07/16/weather/hazardous-aqi-health-risks.html
 

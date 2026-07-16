@@ -1,3 +1,11 @@
+**Delightful World Cup Stories**\
+`Not all the best moments from the tournament were on the pitch. We revisit some of our favorites ahead of Sunday’s final.`\
+https://www.nytimes.com/2026/07/16/world/world-cup-spain-argentina-ukraine.html
+
+**At Least One Killed by Flash Floods in Central Texas**\
+`Torrential rains have submerged much of Central Texas in floodwater, killing at least one person and forcing scores of people to evacuate their homes.`\
+https://www.nytimes.com/video/weather/100000011034793/central-texas-flash-floods-weather.html
+
 **Manhattan Building’s Buckled Columns Probably Lacked Required Reinforcements**\
 `Drawings obtained by The New York Times show the columns called for additional steel plates, but engineers reviewing site photos said they appeared to be missing.`\
 https://www.nytimes.com/2026/07/16/nyregion/manhattan-building-collapse-nyc-drawings.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/us/mamdani-nyc-wildfire-smoke-aqi.html
 **Air Quality is at ‘Hazardous’ Levels. What Does That Mean for Health?**\
 `People exposed to smoke spreading from Canadian wildfires are at risk of a wide range of health problems.`\
 https://www.nytimes.com/2026/07/16/weather/hazardous-aqi-health-risks.html
-
-**Relentless Rain Causes Widespread Flooding in Central Texas**\
-`At least one person has died, and emergency workers have rescued scores of people. Gov. Greg Abbott said the rain in the state was likely to break records.`\
-https://www.nytimes.com/2026/07/16/us/flooding-central-texas-hill-country.html
-
-**Trump Is Expected to Revisit Election Fraud Claims in Speech: What to Know.**\
-`Repeated investigations and audits have debunked claims by the president and his allies of widespread fraud or manipulation in 2020 or other elections.`\
-https://www.nytimes.com/2026/07/16/us/politics/us-election-interference-security.html
 
