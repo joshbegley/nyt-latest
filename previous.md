@@ -1,3 +1,11 @@
+**Ken Paxton and James Talarico Agree to Debate in U.S. Senate Race**\
+`Ken Paxton, a Republican, has not debated in more than a decade. A showdown with James Talarico, a Democrat, could be a key moment in the hard-fought race.`\
+https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
+
+**Gay-Themed Mediterranean Cruise Turned Away From Turkey and Then Egypt**\
+`In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
+
 **Climate Change Contributes to a Smokier World**\
 `Higher temperatures and drought conditions are contributing to more intense wildfires and extending the summer fire season in North America.`\
 https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-climate-change.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/07/16/opinion/falling-birthrates-population.html
 `The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
 https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
 
-**This City Has Some of the Worst Air in the United States**\
-`In Toledo, Ohio, parks are largely empty, and some people are wearing masks.`\
-https://www.nytimes.com/2026/07/16/weather/toledo-ohio-air-quality-index.html
-
-**Republican Senator Thom Tillis Demands Todd Blanche Meet With Epstein Survivors**\
-`Senator Thom Tillis of North Carolina made the stipulation during a Senate Judiciary Committee hearing on Thursday for witnesses to discuss Mr. Blanche’s nomination.`\
-https://www.nytimes.com/2026/07/16/us/politics/todd-blanche-attorney-general-epstein.html
-
-**¿Qué tanto debería preocuparte comer lechuga?**\
-`No necesitábamos un brote del bicho estomacal “Cyclospora”. Pero aquí estamos.`\
-https://www.nytimes.com/es/2026/07/16/espanol/opinion/cyclospora-infeccion-parasito-lechuga.html
+**Trump Administration Live Updates: President to Speak on Election Security**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/16/us/trump-news
 

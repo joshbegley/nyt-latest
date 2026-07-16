@@ -1,3 +1,15 @@
+**Ken Paxton and James Talarico Agree to Debate in U.S. Senate Race**\
+`Ken Paxton, a Republican, has not debated in more than a decade. A showdown with James Talarico, a Democrat, could be a key moment in the hard-fought race.`\
+https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
+
+**Gay-Themed Mediterranean Cruise Turned Away From Turkey and Then Egypt**\
+`In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
+
+**Trump Administration Live Updates: President to Speak on Election Security**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/16/us/trump-news
+
 **Climate Change Contributes to a Smokier World**\
 `Higher temperatures and drought conditions are contributing to more intense wildfires and extending the summer fire season in North America.`\
 https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-climate-change.html
