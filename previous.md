@@ -1,3 +1,31 @@
+**ICE Ramps Back Up, With Deadly Results**\
+`Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles.`\
+https://www.nytimes.com/2026/07/16/podcasts/the-daily/ice-shootings-texas-maine.html
+
+**Wildfire Smoke Turns Skies Orange Across the U.S., and Democrats Make a Big Shift on Israel**\
+`Plus, why Gen Z is turning to trade schools.`\
+https://www.nytimes.com/2026/07/16/podcasts/the-headlines/wildfire-smoke-democrats-israel.html
+
+**NYT Connections Answers for July 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
+https://www.nytimes.com/2026/07/16/crosswords/connections-companion-1132.html
+
+**Today’s Wordle Hints for July 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
+https://www.nytimes.com/2026/07/16/crosswords/wordle-review-1854.html
+
+**What to Know About Mykhailo Fedorov, Ukraine’s Ousted Defense Minister**\
+`Mr. Fedorov became the youthful face of Ukraine’s successful drone warfare program. The move to replace him has prompted street protests.`\
+https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-defense-minister.html
+
+**NYT Strands Hints for July 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
+https://www.nytimes.com/2026/07/16/crosswords/strands-sidekick-866.html
+
+**Sam Neill’s Cause of Death Was Pneumonia, Actor’s Agent Confirms**\
+`The beloved New Zealand actor best known for his turn in “Jurassic Park” had “fought and beaten” lymphoma before he fell ill, according to a statement.`\
+https://www.nytimes.com/2026/07/16/world/australia/sam-neill-death-cause-pneumonia.html
+
 **Mass Protests Across Ukraine Oppose Ouster of Defense Minister**\
 `Demonstrators demanded the reinstatement of Mykhailo Fedorov, who had come to symbolize Ukraine’s success in using drones to strike back against Russia.`\
 https://www.nytimes.com/2026/07/16/world/europe/ukraine-federov-protests.html
@@ -169,28 +197,4 @@ https://www.nytimes.com/2026/07/16/magazine/counterfeit-dollars.html
 **My Husband Is Dying. How Do I Talk to Him About It?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who fears discussing end-of-life affairs will make her husband think she wants him gone.`\
 https://www.nytimes.com/2026/07/16/well/mind/terminal-cancer-planning.html
-
-**For Families Facing a Deadly Brain Cancer, Scientific Progress Can’t Come Soon Enough**\
-`Researchers have made important strides in understanding and treating diffuse midline gliomas, which were long seen as a death sentence for the children and adolescents they affect.`\
-https://www.nytimes.com/2026/07/16/well/pediatric-cancer-dmg-treatments.html
-
-**It’s Not Just for Rihanna. Bare That Pregnant Belly.**\
-`It’s not just Rihanna. Pregnant women are baring their bellies and opting out of traditional maternity wear.`\
-https://www.nytimes.com/2026/07/16/style/pregnancy-style-maternity-wear-rihanna.html
-
-**5 Clubs Celebrate Jazz in Los Angeles.**\
-`A new 17-day festival in August is a reminder that jazz roots run deep in Los Angeles. Here’s where to hear some of the best musicians around.`\
-https://www.nytimes.com/2026/07/16/travel/los-angeles-jazz-clubs-and-festivals.html
-
-**Book Review: ‘I Want You to Be Happy,’ by Jem Calder**\
-`Jem Calder’s novel, “I Want You to Be Happy,” follows the flailing situationship between two aspiring writers with a 12-year age gap.`\
-https://www.nytimes.com/2026/07/16/books/i-want-you-to-be-happy-jem-calder.html
-
-**Book Review: ‘Journey to Nowhere,’ by Shiva Naipaul**\
-`In “Journey to Nowhere,” Shiva Naipaul reports on the aftermath of a cult’s disastrous turn away from idealism.`\
-https://www.nytimes.com/2026/07/16/books/review/shiva-naipaul-journey-to-nowhere.html
-
-**What Can We Learn From Burning Down This House?**\
-`Wildfires are intensifying. Our climate reporter Mira Rojanasakul goes inside an unusual lab working to protect homes from the flames.`\
-https://www.nytimes.com/video/climate/100000010821861/wildfire-research-home-burn.html
 
