@@ -1,3 +1,11 @@
+**Protestas en Ucrania tras la destitución del ministro de Defensa**\
+`Miles de personas salieron a las calles a demostrar su apoyo a Mykhailo Fedorov, y cuestionaron la decisión de removerlo ahora que la guerra parece volcarse a su favor.`\
+https://www.nytimes.com/es/2026/07/16/espanol/mundo/guerra-ucrania-protestas-ministro-defensa.html
+
+**Orphanage Fire Kills Eleven in Algeria**\
+`The fire   Thursday morning at an orphanage near the nation’s capital killed 11 people, including children, and injured a dozen, the authorities said.`\
+https://www.nytimes.com/2026/07/16/world/africa/algeria-orphanage-fire.html
+
 **What Do You Want to Know About New York Times Journalism?**\
 `New York Times editors and reporters want to answer your questions about how we work and why we make the decisions that we do.`\
 https://www.nytimes.com/2026/07/16/insider/reader-questions-times-journalism.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/07/16/insider/reader-questions-times-journalism.htm
 https://www.nytimes.com/2026/07/16/nyregion/new-york-air-quality-wildfire-smoke.html
 
 **Paul Pelosi’s Errant Driving Record Preceded His Latest Napa Valley Crash**\
-`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in a 13-year period before his crash this year, according to court records.`\
+`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in one 13-year period before his crash this year, according to court records.`\
 https://www.nytimes.com/2026/07/16/us/paul-pelosi-driving-record.html
 
 **Do I Need to Wear a Mask If There’s Wildfire Smoke Outside?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/business/dealbook/anthropic-ipo-ai.html
 **Google Ordered to Give A.I. Rivals More Access on Android Smartphones**\
 `The decision by European Union regulators is a response to fears that Google will use its vast Android user base to gain an edge in A.I.`\
 https://www.nytimes.com/2026/07/16/technology/google-android-ai.html
-
-**As Argentina Holds Up Falklands Banner on Defeating England, Here’s What to Know About the War**\
-`Argentina and Britain fought a bloody war over the islands in 1982. Decades later, the dispute suffuses matches between England and Argentina.`\
-https://www.nytimes.com/2026/07/16/world/americas/falklands-malvinas-england-argentina-war.html
-
-**Can a Pro-Israel Democrat Still Win a Big Primary? She’s Going to Try.**\
-`To prevail in Michigan’s crucial Senate primary, Representative Haley Stevens will need to overcome Democratic voters’ skepticism of Israel. Pro-Israel groups are spending heavily to help her.`\
-https://www.nytimes.com/2026/07/16/us/politics/haley-stevens-michigan-senate-israel-aipac.html
 
