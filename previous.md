@@ -1,3 +1,11 @@
+**Democratic Senate Candidates Trounce Republicans in Fund-Raising**\
+`In the first half of this year, Democrats raised more cash in every key Senate race except Iowa.`\
+https://www.nytimes.com/2026/07/16/us/politics/senate-midterm-elections-fundraising.html
+
+**¿Qué revela la bandera sobre las Malvinas de la selección de Argentina?**\
+`Argentina y el Reino Unido libraron una guerra por las islas Malvinas en 1982. Décadas después, la disputa sigue impregnando los partidos entre Inglaterra y Argentina.`\
+https://www.nytimes.com/es/2026/07/16/espanol/america-latina/argentina-malvinas-bandera-inglaterra-mundial.html
+
 **Today, In Short**\
 `World Cup. Twitter. And a meteorite.`\
 https://www.nytimes.com/2026/07/16/briefing/today-in-short.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/16/opinion/iran-trump-graham-odyssey.html
 **‘Put It on My Tab’: The New York Restaurants With House Accounts**\
 `Plus: a vacation house in Normandy, sorrel dishes in Istanbul and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/07/16/t-magazine/house-accounts-tab-nyc-restaurants.html
-
-**Copa Mundial 2026: así asisten los ultrarricos a los partidos**\
-`Mientras miles de aficionados hacen largas filas, los helicópteros saturan los cielos de los Hamptons para transportar a los más adinerados hasta los partidos.`\
-https://www.nytimes.com/es/2026/07/16/espanol/negocios/copa-mundial-ricos.html
-
-**La economía de China crece a su ritmo más lento en años**\
-`El crecimiento económico del 4,3 por ciento en el segundo trimestre, en comparación con el mismo periodo del año pasado, reflejó una caída generalizada al margen del poderío manufacturero del país.`\
-https://www.nytimes.com/es/2026/07/16/espanol/negocios/economia-china-crecimiento-lento.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

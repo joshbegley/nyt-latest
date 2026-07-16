@@ -1,3 +1,7 @@
+**Isabelle Huppert Speaks Across a Language Divide at the Avignon Festival**\
+`A stripped-back, cross-cultural reading with the Korean star Lee Hye-young at the Avignon Festival brought out a rare softness in the French actress.`\
+https://www.nytimes.com/2026/07/16/theater/avignon-festival-han-kang-isabelle-huppert-lee-hye-young.html
+
 **Democratic Senate Candidates Trounce Republicans in Fund-Raising**\
 `In the first half of this year, Democrats raised more cash in every key Senate race except Iowa.`\
 https://www.nytimes.com/2026/07/16/us/politics/senate-midterm-elections-fundraising.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
 **The Odyssey, by Donald Trump**\
 `The president lacks not only a coherent strategic concept but an elementary understanding of what strategy is.`\
 https://www.nytimes.com/2026/07/16/opinion/iran-trump-graham-odyssey.html
-
-**‘Put It on My Tab’: The New York Restaurants With House Accounts**\
-`Plus: a vacation house in Normandy, sorrel dishes in Istanbul and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/07/16/t-magazine/house-accounts-tab-nyc-restaurants.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

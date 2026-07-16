@@ -1,3 +1,11 @@
+**Democratic Senate Candidates Trounce Republicans in Fund-Raising**\
+`In the first half of this year, Democrats raised more cash in every key Senate race except Iowa.`\
+https://www.nytimes.com/2026/07/16/us/politics/senate-midterm-elections-fundraising.html
+
+**¿Qué revela la bandera sobre las Malvinas de la selección de Argentina?**\
+`Argentina y el Reino Unido libraron una guerra por las islas Malvinas en 1982. Décadas después, la disputa sigue impregnando los partidos entre Inglaterra y Argentina.`\
+https://www.nytimes.com/es/2026/07/16/espanol/america-latina/argentina-malvinas-bandera-inglaterra-mundial.html
+
 **Today, In Short**\
 `World Cup. Twitter. And a meteorite.`\
 https://www.nytimes.com/2026/07/16/briefing/today-in-short.html
