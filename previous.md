@@ -1,3 +1,7 @@
+**Trump se arriesga a otra ‘guerra eterna’ en Irán**\
+`El presidente Trump, que prometió “terminar guerras”, no comenzarlas, podría haber caído en una conocida trampa presidencial.`\
+https://www.nytimes.com/es/2026/07/16/espanol/mundo/trump-iran-guerra-cuando-dura.html
+
 **Republican Candidates Are Hurting for Cash, but Help May Be on the Way**\
 `Super PACs and billionaires seem to be on the side of the G.O.P., new filings show.`\
 https://www.nytimes.com/2026/07/16/us/politics/republicans-democrats-midterms-fundraising-takeaways.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/07/16/dining/gochujang-glazed-eggplant-always.html
 `Don’t fall for dramatic claims based on selective declassification.`\
 https://www.nytimes.com/2026/07/16/opinion/trump-speech-election-denial-voting.html
 
-**Inflation Respite Gives More Consumers a Chance to Spend**\
+**Americans Are Spending, and Not Just on Necessities**\
 `Lower gas prices have been a relief for households struggling with higher living costs. But now they are creeping higher again.`\
 https://www.nytimes.com/2026/07/16/business/consumers-spending-retail-sales.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/us/politics/trump-fine-arts-commission-lafaye
 **Is This Really the End of Reading?**\
 `It’s not the children who stopped reading. It’s their grandparents.`\
 https://www.nytimes.com/2026/07/16/opinion/reading-test-scores-smartphones.html
-
-**Maps Show Where Wildfire Smoke Will Darken Skies on Thursday**\
-`Air quality in several cities reached hazardous levels on Thursday morning as smoke was expected to move across North America.`\
-https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

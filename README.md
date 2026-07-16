@@ -1,3 +1,11 @@
+**No Walkies Today: In Chicago, Dogs and Their Humans Suffer Alike**\
+`In Portage Park, wildfire smoke cuts canine playtime short.`\
+https://www.nytimes.com/2026/07/16/weather/chicago-wildfire-smoke-dogs.html
+
+**Mary-Dell Chilton Dies at 87; Helped Create First Genetically Modified Plant**\
+`In 1982, she led the research team that figured out how to genetically alter plants, a discovery that would eventually transform global agriculture.`\
+https://www.nytimes.com/2026/07/16/science/mary-dell-chilton-dead.html
+
 **Trump se arriesga a otra ‘guerra eterna’ en Irán**\
 `El presidente Trump, que prometió “terminar guerras”, no comenzarlas, podría haber caído en una conocida trampa presidencial.`\
 https://www.nytimes.com/es/2026/07/16/espanol/mundo/trump-iran-guerra-cuando-dura.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/16/opinion/russia-ukraine-putin-zelensky.html
 **A Vision of a ‘Society Without Capitalism’**\
 `Can democratic socialism redeem the left without destroying capitalism?`\
 https://www.nytimes.com/2026/07/16/opinion/democratic-socialist-capitalism-bhaskar-sunkara.html
-
-**Trump Administration Argues for Fencing Off Park Next to White House**\
-`The Commission of Fine Arts is set to consider the administration’s proposal regarding Lafayette Square Park, which has been the site of numerous protests.`\
-https://www.nytimes.com/2026/07/16/us/politics/trump-fine-arts-commission-lafayette-park.html
-
-**Is This Really the End of Reading?**\
-`It’s not the children who stopped reading. It’s their grandparents.`\
-https://www.nytimes.com/2026/07/16/opinion/reading-test-scores-smartphones.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

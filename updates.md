@@ -1,3 +1,11 @@
+**Trump se arriesga a otra ‘guerra eterna’ en Irán**\
+`El presidente Trump, que prometió “terminar guerras”, no comenzarlas, podría haber caído en una conocida trampa presidencial.`\
+https://www.nytimes.com/es/2026/07/16/espanol/mundo/trump-iran-guerra-cuando-dura.html
+
+**Americans Are Spending, and Not Just on Necessities**\
+`Lower gas prices have been a relief for households struggling with higher living costs. But now they are creeping higher again.`\
+https://www.nytimes.com/2026/07/16/business/consumers-spending-retail-sales.html
+
 **Republican Candidates Are Hurting for Cash, but Help May Be on the Way**\
 `Super PACs and billionaires seem to be on the side of the G.O.P., new filings show.`\
 https://www.nytimes.com/2026/07/16/us/politics/republicans-democrats-midterms-fundraising-takeaways.html
