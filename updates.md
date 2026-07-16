@@ -1,3 +1,15 @@
+**The F.D.A. Approves a New Pill to Slash Cholesterol Levels**\
+`The new pills can lower cholesterol levels far below what can be achieved with statins, clinical trials have shown.`\
+https://www.nytimes.com/2026/07/16/science/the-fda-approves-a-new-pill-to-slash-cholesterol-levels.html
+
+**Global Opinion Shifts Toward Favoring China Over the U.S., Poll Finds**\
+`An annual survey from the Pew Research Center found that more countries felt positively about China than America.`\
+https://www.nytimes.com/2026/07/16/world/asia/pew-opinion-survey-china-united-states.html
+
+**Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
+`As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
+https://www.nytimes.com/live/2026/07/16/world/iran-war-trump-hormuz
+
 **U.K. Nationalizes British Steel, Its Last Major Steel Mill**\
 `The government first intervened in British Steel last year to prevent its then-owner, the Chinese company Jingye Group, from shutting it down. No private sector buyers came forward.`\
 https://www.nytimes.com/2026/07/16/business/britain-nationalizes-steel-mill.html

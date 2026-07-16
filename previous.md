@@ -1,3 +1,11 @@
+**The F.D.A. Approves a New Pill to Slash Cholesterol Levels**\
+`The new pills can lower cholesterol levels far below what can be achieved with statins, clinical trials have shown.`\
+https://www.nytimes.com/2026/07/16/science/the-fda-approves-a-new-pill-to-slash-cholesterol-levels.html
+
+**Global Opinion Shifts Toward Favoring China Over the U.S., Poll Finds**\
+`An annual survey from the Pew Research Center found that more countries felt positively about China than America.`\
+https://www.nytimes.com/2026/07/16/world/asia/pew-opinion-survey-china-united-states.html
+
 **U.K. Nationalizes British Steel, Its Last Major Steel Mill**\
 `The government first intervened in British Steel last year to prevent its then-owner, the Chinese company Jingye Group, from shutting it down. No private sector buyers came forward.`\
 https://www.nytimes.com/2026/07/16/business/britain-nationalizes-steel-mill.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/07/16/arts/design/washington-smithsonian-museums-la
 `Our columnist on three of the year’s most anticipated books.`\
 https://www.nytimes.com/2026/07/16/books/review/new-romance-books.html
 
-**Townhouses: The Better Alternative for First-Time Buyers?**\
-`They can cost less to build and buy, and often are easier to maintain.`\
-https://www.nytimes.com/2026/07/16/realestate/townhouse-first-time-buyers.html
-
-**The Army Veteran Killed Outside His ‘Trump House’**\
-`Kerry Sheron could often be found waving and nodding to those who passed his home, which stood out in Escondido, Calif.`\
-https://www.nytimes.com/2026/07/16/us/army-veteran-trump-house.html
-
-**Word of the Day: equanimous**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/16/learning/word-of-the-day-equanimous.html
+**Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
+`As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
+https://www.nytimes.com/live/2026/07/16/world/iran-war-trump-hormuz
 
