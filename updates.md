@@ -1,3 +1,11 @@
+**Here’s Where the U.S. and Iran Have Launched Attacks as the War Escalates**\
+`The U.S. military has appeared to widen its targets in Iran, while Iran has fired at bases belonging to American allies in the Middle East.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/iran-war-us-strikes.html
+
+**Iran War Live Updates: U.S. Appears to Expand Targets in 6th Straight Day of Fighting**\
+`U.S. forces struck deeper into Iran, while Tehran launched more barrages at American allies in the region.`\
+https://www.nytimes.com/live/2026/07/16/world/iran-war-trump-hormuz
+
 **Diesel Prices Hit $5 a Gallon Again, Up 33% Since Start of Iran War**\
 `U.S. diesel prices first surpassed $5 a gallon in March. Renewed fighting in the Persian Gulf and reduced refinery capacity is once again pushing up prices again.`\
 https://www.nytimes.com/2026/07/16/business/diesel-prices-us-iran-war.html

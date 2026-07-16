@@ -1,3 +1,11 @@
+**Here’s Where the U.S. and Iran Have Launched Attacks as the War Escalates**\
+`The U.S. military has appeared to widen its targets in Iran, while Iran has fired at bases belonging to American allies in the Middle East.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/iran-war-us-strikes.html
+
+**Iran War Live Updates: U.S. Appears to Expand Targets in 6th Straight Day of Fighting**\
+`U.S. forces struck deeper into Iran, while Tehran launched more barrages at American allies in the region.`\
+https://www.nytimes.com/live/2026/07/16/world/iran-war-trump-hormuz
+
 **Diesel Prices Hit $5 a Gallon Again, Up 33% Since Start of Iran War**\
 `U.S. diesel prices first surpassed $5 a gallon in March. Renewed fighting in the Persian Gulf and reduced refinery capacity is once again pushing up prices again.`\
 https://www.nytimes.com/2026/07/16/business/diesel-prices-us-iran-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/15/world/europe/ukraine-minister-of-defense-mykh
 **England Lost in the World Cup. They Were Always Going to Lose.**\
 `The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
 https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
-
-**Guy Scott, Who Caused a Stir as White Leader of Zambia, Dies at 82**\
-`Two decades after the fall of apartheid in South Africa, he served briefly as Africa’s only white president.`\
-https://www.nytimes.com/2026/07/15/world/africa/guy-scott-dead.html
-
-**Is Grunge ... Back?**\
-`The grunge track “Freakin’ Out” by Dexter and the Moonrocks has been quietly climbing the charts and racking up millions of streams. Our music critic Jon Caramanica breaks down how the song, with its raw vocals and instrumentation, calls back to ’90s and 2000s radio rock.`\
-https://www.nytimes.com/video/podcasts/100000011033313/is-grunge-back.html
 
