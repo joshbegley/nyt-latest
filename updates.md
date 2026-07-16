@@ -1,3 +1,11 @@
+**Republican Candidates Are Hurting for Cash, but Help May Be on the Way**\
+`Super PACs and billionaires seem to be on the side of the G.O.P., new filings show.`\
+https://www.nytimes.com/2026/07/16/us/politics/republicans-democrats-midterms-fundraising-takeaways.html
+
+**Maker of Drone Boats Used in Iran War Will Open New Texas Shipyard**\
+`Saronic Technologies will make naval and commercial vessels at the facility. The company’s naval drone helped rescue the crew of a downed Apache helicopter last month.`\
+https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-war-to-open-new-texas-shipyard.html
+
 **Isabelle Huppert Speaks Across a Language Divide at the Avignon Festival**\
 `A stripped-back, cross-cultural reading with the Korean star Lee Hye-young at the Avignon Festival brought out a rare softness in the French actress.`\
 https://www.nytimes.com/2026/07/16/theater/avignon-festival-han-kang-isabelle-huppert-lee-hye-young.html
