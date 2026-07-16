@@ -1,3 +1,7 @@
+**‘Today’ Anchor Craig Melvin Chases Intruder From 30 Rock as Show Airs**\
+`The incident did not result in any injuries, the police said. The suspect has been charged with hate crimes.`\
+https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
+
 **The Left Needs to Reclaim Its Optimism**\
 `Can a more patriotic leftism help the Democrat Party rebrand? Bhaskar Sunkara, author of “The Socialist Manifesto,” talks on “Interesting Times” about how liberals have damaged the Democratic party’s brand by embracing a pessimistic narrative of American history.`\
 https://www.nytimes.com/video/opinion/100000011024679/the-left-needs-to-reclaim-its-optimism.html

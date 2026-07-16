@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/07/16/weather/smoke-sky-orange-red.html
 https://www.nytimes.com/video/sports/soccer/100000011035268/world-cup-argentina-england-falklands-banner.html
 
 **‘Today’ Anchor Craig Melvin Chases Intruder From 30 Rock as Show Airs**\
-`The incident did not result in any injuries, the police said.`\
+`The incident did not result in any injuries, the police said. The suspect has been charged with hate crimes.`\
 https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
 
 **On the War Against Iran, the Pentagon Has Said Little**\
