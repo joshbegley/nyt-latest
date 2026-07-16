@@ -1,3 +1,11 @@
+**Republican Rifts Deepen Over $95 Billion Budget Plan for Iran War and SAVE Act**\
+`A House panel approved the measure. But Republicans are divided over its size, cost and policy provisions, and many are concerned about the timing before the midterm elections.`\
+https://www.nytimes.com/2026/07/16/us/politics/iran-war-save-act.html
+
+**Watch the Wildfire Smoke Ooze Across North America From Space**\
+`Satellite imagery shows the wide footprint of the smoke across the continent.`\
+https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-from-space.html
+
 **In Canada, Wildfires Are Burning Through the Night. Firefighters Are Running Out of Time.**\
 `As overnight temperatures climb across Canada, fires that once spread more slowly after dark are burning around the clock, straining fire crews.`\
 https://www.nytimes.com/2026/07/16/world/canada/canada-wildfires-firefighters-heat.html

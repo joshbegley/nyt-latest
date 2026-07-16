@@ -1,3 +1,7 @@
+**What's It Like to Write a Song for Beyoncé?**\
+`Beyoncé’s song “Plastic Off the Sofa” started as a 2017 demo written by Syd, a co-founder of alternative R&B band The Internet, and singer-songwriter Sabrina Claudio. On “Popcast,” Syd describes how the song eventually became a track on Beyoncé’s 2022 album “Renaissance.”`\
+https://www.nytimes.com/video/podcasts/100000011036376/whats-it-like-to-write-a-song-for-beyonce.html
+
 **Republican Rifts Deepen Over $95 Billion Budget Plan for Iran War and SAVE Act**\
 `A House panel approved the measure. But Republicans are divided over its size, cost and policy provisions, and many are concerned about the timing before the midterm elections.`\
 https://www.nytimes.com/2026/07/16/us/politics/iran-war-save-act.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/07/16/us/politics/iran-war-save-act.html
 `Satellite imagery shows the wide footprint of the smoke across the continent.`\
 https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-from-space.html
 
-**In Canada, Wildfires Are Burning Through the Night. Firefighters Are Running Out of Time.**\
+**Canada’s Wildfires Are Burning Through the Night**\
 `As overnight temperatures climb across Canada, fires that once spread more slowly after dark are burning around the clock, straining fire crews.`\
 https://www.nytimes.com/2026/07/16/world/canada/canada-wildfires-firefighters-heat.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/books/review/new-recommended-books.html
 **Wildfires Continue in Ontario as Officials Brace for More Evacuations**\
 `Ontario’s minister for emergency preparedness has asked the federal government for help, including potentially deploying Canadian soldiers to the affected regions.`\
 https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfires.html
-
-**Protestas en Ucrania tras la destitución del ministro de Defensa**\
-`Miles de personas salieron a las calles a demostrar su apoyo a Mykhailo Fedorov, y cuestionaron la decisión de removerlo ahora que la guerra parece volcarse a su favor.`\
-https://www.nytimes.com/es/2026/07/16/espanol/mundo/guerra-ucrania-protestas-ministro-defensa.html
 
