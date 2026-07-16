@@ -1,3 +1,7 @@
+**Trump Administration Restricts Green Cards for Immigrants on Public Assistance**\
+`The move is a significant change that could deter hundreds of thousands of immigrants from using such programs to meet basic needs.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-green-cards-public-assistance.html
+
 **Judge Unseals Filings From Jack Smith Subpoena for Lawmaker’s Phone Data**\
 `The Justice Department had balked at the disclosure, saying that the government had not acknowledged the special counsel’s subpoenas and that grand jury information was secret.`\
 https://www.nytimes.com/2026/07/16/us/politics/judge-unseals-jack-smith-subpoena-filings.html
