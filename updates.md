@@ -1,3 +1,7 @@
+**The Sunset Strip Becomes a Gushing River After Water Main Break**\
+`The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
+https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
+
 **This City Has Some of the Worst Air in the United States**\
 `In Toledo, Ohio, parks are largely empty and some people are wearing masks.`\
 https://www.nytimes.com/2026/07/16/weather/toledo-ohio-air-quality-index.html

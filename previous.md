@@ -1,3 +1,7 @@
+**The Sunset Strip Becomes a Gushing River After Water Main Break**\
+`The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
+https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
+
 **This City Has Some of the Worst Air in the United States**\
 `In Toledo, Ohio, parks are largely empty and some people are wearing masks.`\
 https://www.nytimes.com/2026/07/16/weather/toledo-ohio-air-quality-index.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/business/britain-nationalizes-steel-mill.html
 **Argentina Triumph as World Cup Final Is Set**\
 `Messi and team defeat England and will face Spain in the tournament showpiece.`\
 https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-spain.html
-
-**ICE Ramps Back Up, With Deadly Results**\
-`Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles.`\
-https://www.nytimes.com/2026/07/16/podcasts/the-daily/ice-shootings-texas-maine.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
