@@ -1,3 +1,11 @@
+**Live Updates: Wildfire Smoke Chokes Skies Across Swath of U.S. and Canada**\
+`A strip of dense smoke from Canadian wildfires, combined with extreme heat, has pushed air quality to unhealthy levels in multiple states. Officials encouraged people in cities, including New York, to stay indoors.`\
+https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
+
+**Google Ordered to Give A.I. Rivals More Access on Android Smartphones**\
+`The decision by European Union regulators is a response to fears that Google will use its vast Android user base to gain an edge in A.I.`\
+https://www.nytimes.com/2026/07/16/technology/google-android-ai.html
+
 **Highway Executive Given 12-Year Sentence Over Deadly Bridge Collapse in Italy**\
 `Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
 https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
