@@ -1,3 +1,7 @@
+**Judge Unseals Filings From Jack Smith Subpoena for Lawmaker’s Phone Data**\
+`The Justice Department had balked at the disclosure, saying that the government had not acknowledged the special counsel’s subpoenas and that grand jury information was secret.`\
+https://www.nytimes.com/2026/07/16/us/politics/judge-unseals-jack-smith-subpoena-filings.html
+
 **What It’s Like in a City With Dangerous Air Quality**\
 `Our reporter Nicholas Bogel-Burroughs is in Toledo, Ohio, where the air quality level resulting from Canadian wildfire smoke is among the most hazardous in the United States.`\
 https://www.nytimes.com/video/us/100000011036303/wildfire-smoke-air-quality-index-toledo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/science/astronomy-exoplanet-atmosphere.html
 **Israeli Government Pushes Through Divisive Laws Before Election**\
 `Prime Minister Benjamin Netanyahu backed a series of laws undermining legal oversight of the government, benefiting allied media outlets and aiming to shore up ultra-Orthodox political support.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/israel-divisive-new-laws.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/07/16/books/review/new-recommended-books.html
 
