@@ -1,3 +1,19 @@
+**White House Faces Stiff Pushback on Subjecting Grants to Political Review**\
+`Academics, city leaders and congressional lawmakers number among the thousands to urge the Trump administration to reconsider a plan to assert more control over grants.`\
+https://www.nytimes.com/2026/07/16/us/politics/white-house-federal-grants-political-review.html
+
+**National Academies Report Backs Climate Change Attribution Science**\
+`Attribution science is advancing quickly, researchers said. That could support lawsuits seeking damages for severe events worsened by global warming.`\
+https://www.nytimes.com/2026/07/16/climate/national-academies-extreme-weather-attribution.html
+
+**Gochujang-Glazed Eggplant, Always**\
+`Make this reader-favorite, five-star recipe from Eric Kim on repeat all summer. (I do.)`\
+https://www.nytimes.com/2026/07/16/dining/gochujang-glazed-eggplant-always.html
+
+**Trump’s Election Denial Has Never Been More Dangerous**\
+`Don’t fall for dramatic claims based on selective declassification.`\
+https://www.nytimes.com/2026/07/16/opinion/trump-speech-election-denial-voting.html
+
 **Inflation Respite Gives More Consumers a Chance to Spend**\
 `Lower gas prices have been a relief for households struggling with higher living costs. But now they are creeping higher again.`\
 https://www.nytimes.com/2026/07/16/business/consumers-spending-retail-sales.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/interactive/2026/07/16/realestate/philadelphia-home-pric
 **The World Cup Is This Summer’s Blockbuster**\
 `Movie star looks, slow-motion sequences and operatic emotion make this tournament must-see viewing.`\
 https://www.nytimes.com/2026/07/16/podcasts/the-world-cup-is-this-summers-blockbuster.html
-
-**Inside Trump’s Swift Construction of a White House Helipad**\
-`The president has bypassed a review or approval process in his swift effort to build a granite helipad on the South Lawn.`\
-https://www.nytimes.com/interactive/2026/07/16/us/politics/white-house-helipad-trump.html
-
-**ICE Is Out of Control. Here’s What to Do About It.**\
-`Congress must push back against our inhumane immigration tactics.`\
-https://www.nytimes.com/2026/07/16/opinion/ice-killing-maine-houston-guerrero-araujo.html
-
-**‘American Pachuco: The Legend of Luis Valdez’ Review: A Rebel With a Cause**\
-`The documentary about the stage and screen director is unabashedly celebratory, and leaves you wanting to see more.`\
-https://www.nytimes.com/2026/07/16/movies/american-pachucho-the-legend-of-luis-valdez-review.html
-
-**36 Hours in Bruges, Belgium: Things to Do and See**\
-`Like the works of the Flemish painters who once inhabited the city, Bruges’s appeal lies in the details.`\
-https://www.nytimes.com/interactive/2026/07/16/travel/things-to-do-bruges.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

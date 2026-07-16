@@ -1,3 +1,15 @@
+**Inflation Respite Gives More Consumers a Chance to Spend**\
+`Lower gas prices have been a relief for households struggling with higher living costs. But now they are creeping higher again.`\
+https://www.nytimes.com/2026/07/16/business/consumers-spending-retail-sales.html
+
+**Why Netflix’s ‘The Polygamist’ Has Viewers Outside South Africa Talking**\
+`The hit Netflix show follows the life of a wealthy married couple in South Africa as they deal with the pressures of infidelity and appearances.`\
+https://www.nytimes.com/2026/07/16/world/africa/netflix-the-polygamist-south-africa.html
+
+**How Nike’s Diversity Efforts Made It a Trump Target**\
+`A civil-rights investigation, which grew out of a 26-page memo by a political appointee, provides a road map for the White House’s assault on D.E.I.`\
+https://www.nytimes.com/2026/07/16/us/politics/nike-dei-trump-eeoc.html
+
 **Maker of Drone Boats Used in Iran War to Open New Texas Shipyard**\
 `Saronic Technologies will make naval and commercial vessels at the facility. The company’s naval drone helped rescue the crew of a downed Apache helicopter last month.`\
 https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-war-to-open-new-texas-shipyard.html
