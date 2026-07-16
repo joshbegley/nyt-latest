@@ -1,3 +1,11 @@
+**Ukraine Was on a Roll. Then a Clash Over War Strategy Exploded Into View.**\
+`From an underground parking garage, Ukraine’s newly dismissed defense minister aired the most dramatic, public critique of the military command to emerge during the war.`\
+https://www.nytimes.com/2026/07/16/world/europe/ukraine-military-defense-minister-drones.html
+
+**Orphanage Fire Kills Eleven in Algeria**\
+`The fire on Thursday morning at an orphanage near the nation’s capital killed 11 people, including children, and injured a dozen, the authorities said.`\
+https://www.nytimes.com/2026/07/16/world/africa/algeria-orphanage-fire.html
+
 **Houston ICE Shooting: Lawyer Says Bags Held Salt, Not Drugs**\
 `Federal investigators said a “crystal-like” substance in the bags looked like methamphetamine. A lawyer for the victim’s brother said it was salt.`\
 https://www.nytimes.com/2026/07/16/us/fbi-search-drugs-houston-ice-shooting.html

@@ -1,3 +1,7 @@
+**Ukraine Was on a Roll. Then a Clash Over War Strategy Exploded Into View.**\
+`From an underground parking garage, Ukraine’s newly dismissed defense minister aired the most dramatic, public critique of the military command to emerge during the war.`\
+https://www.nytimes.com/2026/07/16/world/europe/ukraine-military-defense-minister-drones.html
+
 **Houston ICE Shooting: Lawyer Says Bags Held Salt, Not Drugs**\
 `Federal investigators said a “crystal-like” substance in the bags looked like methamphetamine. A lawyer for the victim’s brother said it was salt.`\
 https://www.nytimes.com/2026/07/16/us/fbi-search-drugs-houston-ice-shooting.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfires.html
 https://www.nytimes.com/es/2026/07/16/espanol/mundo/guerra-ucrania-protestas-ministro-defensa.html
 
 **Orphanage Fire Kills Eleven in Algeria**\
-`The fire   Thursday morning at an orphanage near the nation’s capital killed 11 people, including children, and injured a dozen, the authorities said.`\
+`The fire on Thursday morning at an orphanage near the nation’s capital killed 11 people, including children, and injured a dozen, the authorities said.`\
 https://www.nytimes.com/2026/07/16/world/africa/algeria-orphanage-fire.html
 
 **What Do You Want to Know About New York Times Journalism?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/briefing/today-in-short.html
 **Someone Used A.I. to Write an Unauthorized Biography of Me. I Don’t Recommend Reading It.**\
 `Someone used A.I. to write my biography. Thousands more of those books are polluting Amazon. Who is behind all this drivel?`\
 https://www.nytimes.com/2026/07/16/technology/ai-slop-books-biography-amazon.html
-
-**White House Faces Stiff Pushback on Subjecting Grants to Political Review**\
-`Academics, city leaders and congressional lawmakers number among the thousands to urge the Trump administration to reconsider a plan to assert more control over grants.`\
-https://www.nytimes.com/2026/07/16/us/politics/white-house-federal-grants-political-review.html
 
