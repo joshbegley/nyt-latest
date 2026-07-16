@@ -1,3 +1,7 @@
+**Wildfire Smokes Makes Air Hazardous for Millions in Midwest and East Coast**\
+`The haze is likely to ease in the East this weekend but linger in the Upper Midwest, where some cities recorded extremely high pollution indexes on Thursday.`\
+https://www.nytimes.com/2026/07/16/us/wildfire-smoke-air-quality.html
+
 **Trump Administration Restricts Green Cards for Immigrants on Public Assistance**\
 `The move is a significant change that could deter hundreds of thousands of immigrants from using such programs to meet basic needs.`\
 https://www.nytimes.com/2026/07/16/us/politics/trump-green-cards-public-assistance.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/arts/television/dave-kendall-dead.html
 **Make America Safe From Parasites Again**\
 `Cramping, vomiting and diarrhea. Is this what “Make America Healthy Again” looks like? The recent outbreak of Cyclospora, a parasite that causes a food-borne illness that’s ruining summers across the nation, has us asking: Were those cuts to public health institutions worth it? And what’s in this salad?`\
 https://www.nytimes.com/video/opinion/100000011033031/make-america-safe-from-parasites-again.html
-
-**Astronomers Find an Atmosphere on a Nearby Earthlike Planet**\
-`It’s the first potentially habitable world known to host an atmosphere, making it a lead contender in the search for life beyond our solar system.`\
-https://www.nytimes.com/2026/07/16/science/astronomy-exoplanet-atmosphere.html
 
