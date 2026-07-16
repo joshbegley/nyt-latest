@@ -1,3 +1,23 @@
+**Blue Angels’ Close Beach Flyby in Florida Results in No Punishments for Pilots**\
+`The elite flying team had announced a safety review after videos posted on social media showed a fighter jet passing just above beachgoers on Wednesday.`\
+https://www.nytimes.com/2026/07/16/us/us-navy-jet-blue-angels.html
+
+**Blue Angels Jet Flies Low Over Beachgoers in Florida**\
+`Videos of a low Blue Angels flyover at Pensacola Beach, Fla., on Wednesday show people cheering as beach items and sand blew across the beach.`\
+https://www.nytimes.com/video/us/100000011035362/blue-angels-flyover-florida.html
+
+**Wildfire Smoke Shrouds Cities and Smothers Residents**\
+`The air was hazardous, and skylines at times seemed nearly erased. The smoke will linger before finally letting up.`\
+https://www.nytimes.com/2026/07/16/us/canada-wildfire-smoke-photos-video.html
+
+**Millions of Americans Are Urged to Limit Their Time Outdoors**\
+`Also, Trump is set to deliver a prime-time speech on election security. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/16/briefing/wildfire-smoke-trump-election-speech.html
+
+**ABC and NBC Will Not Air Trump’s Speech as Other TV Networks’ Plans Remain Uncertain**\
+`ABC and NBC`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
+
 **Millions of Americas Are Urged to Limit Their Time Outdoors**\
 `Also, Trump is set to deliver a prime-time speech on election security. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/16/briefing/wildfire-smoke-trump-election-speech.html

@@ -1,4 +1,16 @@
-**Millions of Americas Are Urged to Limit Their Time Outdoors**\
+**Blue Angels’ Close Beach Flyby in Florida Results in No Punishments for Pilots**\
+`The elite flying team had announced a safety review after videos posted on social media showed a fighter jet passing just above beachgoers on Wednesday.`\
+https://www.nytimes.com/2026/07/16/us/us-navy-jet-blue-angels.html
+
+**Blue Angels Jet Flies Low Over Beachgoers in Florida**\
+`Videos of a low Blue Angels flyover at Pensacola Beach, Fla., on Wednesday show people cheering as beach items and sand blew across the beach.`\
+https://www.nytimes.com/video/us/100000011035362/blue-angels-flyover-florida.html
+
+**Wildfire Smoke Shrouds Cities and Smothers Residents**\
+`The air was hazardous, and skylines at times seemed nearly erased. The smoke will linger before finally letting up.`\
+https://www.nytimes.com/2026/07/16/us/canada-wildfire-smoke-photos-video.html
+
+**Millions of Americans Are Urged to Limit Their Time Outdoors**\
 `Also, Trump is set to deliver a prime-time speech on election security. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/16/briefing/wildfire-smoke-trump-election-speech.html
 
@@ -9,6 +21,10 @@ https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
 **Gay-Themed Mediterranean Cruise Turned Away From Turkey and Then Egypt**\
 `In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
+
+**ABC and NBC Will Not Air Trump’s Speech as Other TV Networks’ Plans Remain Uncertain**\
+`ABC and NBC`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
 
 **Climate Change Contributes to a Smokier World**\
 `Higher temperatures and drought conditions are contributing to more intense wildfires and extending the summer fire season in North America.`\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/16/nyregion/new-york-air-quality-wildfire-smoke.
 **Paul Pelosi’s Errant Driving Record Preceded His Latest Napa Valley Crash**\
 `Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in one 13-year period before his crash this year, according to court records.`\
 https://www.nytimes.com/2026/07/16/us/paul-pelosi-driving-record.html
-
-**Do I Need to Wear a Mask If There’s Wildfire Smoke Outside?**\
-`Here’s what experts want you to know about protecting your health.`\
-https://www.nytimes.com/2026/07/16/weather/face-mask-smoke-health.html
-
-**When Will the Wildfire Smoke End?**\
-`A heat dome that has led to high temperatures in the Midwest and the Northeast has trapped the smoke close to the ground.`\
-https://www.nytimes.com/2026/07/16/weather/when-will-wildfire-smoke-end.html
-
-**Falling Birthrates and America’s Future**\
-`Sampling the outpouring of responses to “The Population Forecasts Aren’t Grim Enough,” an Opinion guest essay by Lyman Stone. Also: The Ferrari faithful.`\
-https://www.nytimes.com/2026/07/16/opinion/falling-birthrates-population.html
-
-**Trump Administration Live Updates: President to Speak on Election Security**\
-`(No description)`\
-https://www.nytimes.com/live/2026/07/16/us/trump-news
 
