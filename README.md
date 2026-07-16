@@ -1,3 +1,7 @@
+**Today, In Short**\
+`World Cup. Twitter. And a meteorite.`\
+https://www.nytimes.com/2026/07/16/briefing/today-in-short.html
+
 **Someone Used A.I. to Write an Unauthorized Biography of Me. I Don’t Recommend Reading It.**\
 `Someone used A.I. to write my biography. Thousands more of those books are polluting Amazon. Who is behind all this drivel?`\
 https://www.nytimes.com/2026/07/16/technology/ai-slop-books-biography-amazon.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/16/espanol/negocios/copa-mundial-ricos.html
 **La economía de China crece a su ritmo más lento en años**\
 `El crecimiento económico del 4,3 por ciento en el segundo trimestre, en comparación con el mismo periodo del año pasado, reflejó una caída generalizada al margen del poderío manufacturero del país.`\
 https://www.nytimes.com/es/2026/07/16/espanol/negocios/economia-china-crecimiento-lento.html
-
-**Joining Forces for Their First Family Home in Philadelphia**\
-`A longtime renter, her mother and her daughter chipped in what they could to find a three-bedroom house in Germantown for less than $400,000. Here’s what they found.`\
-https://www.nytimes.com/interactive/2026/07/16/realestate/philadelphia-home-prices-germantown-mount-airy.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
