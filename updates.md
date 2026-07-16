@@ -1,3 +1,19 @@
+**Relentless Rain Causes Widespread Flooding in Central Texas**\
+`At least one person has died, and emergency workers have rescued scores of people. Gov. Greg Abbott said the rain in the state was likely to break records.`\
+https://www.nytimes.com/2026/07/16/us/flooding-central-texas-hill-country.html
+
+**Trump Is Expected to Revisit Election Security. Here’s What to Know.**\
+`Repeated investigations and audits have debunked claims by the president and his allies of widespread fraud or manipulation in 2020 or other elections.`\
+https://www.nytimes.com/2026/07/16/us/politics/us-election-interference-security.html
+
+**No Walkies Today: In Chicago, Dogs and Their Humans Suffer Alike**\
+`In Portage Park, wildfire smoke cuts canine playtime short.`\
+https://www.nytimes.com/2026/07/16/weather/chicago-wildfire-smoke-dogs.html
+
+**Mary-Dell Chilton Dies at 87; Helped Create First Genetically Modified Plant**\
+`In 1982, she led the research team that figured out how to genetically alter plants, a discovery that would eventually transform global agriculture.`\
+https://www.nytimes.com/2026/07/16/science/mary-dell-chilton-dead.html
+
 **Trump se arriesga a otra ‘guerra eterna’ en Irán**\
 `El presidente Trump, que prometió “terminar guerras”, no comenzarlas, podría haber caído en una conocida trampa presidencial.`\
 https://www.nytimes.com/es/2026/07/16/espanol/mundo/trump-iran-guerra-cuando-dura.html
