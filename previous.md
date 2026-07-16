@@ -1,3 +1,11 @@
+**Burning Houses to Save Houses**\
+`We visited researchers seeking ways to make homes safer. They set a lot of fires.`\
+https://www.nytimes.com/2026/07/16/climate/burning-houses-to-save-houses.html
+
+**Smoke From Canada’s Wildfires Fills Skies Across North America**\
+`Weather forecasters expect the smoke to stretch from the upper Midwest and southern Canada to the northeastern United States. The heat and the smoke are expected to ease in the northeast by Friday, but closer to the fires, the smoke is likely to linger longer.`\
+https://www.nytimes.com/video/weather/100000011034886/canada-wildfires-smoke.html
+
 **Maps: Tracking Air Quality and Smoke From Wildfires in Canada and the U.S.**\
 `See maps of where smoke is traveling and how harmful the air has become.`\
 https://www.nytimes.com/interactive/2026/weather/canada-us-wildfire-smoke-air-quality-maps.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/dining/gochujang-glazed-eggplant-always.html
 **Trump’s Election Denial Has Never Been More Dangerous**\
 `Don’t fall for dramatic claims based on selective declassification.`\
 https://www.nytimes.com/2026/07/16/opinion/trump-speech-election-denial-voting.html
-
-**Americans Are Spending, and Not Just on Necessities**\
-`Lower gas prices have been a relief for households struggling with higher living costs. But now they are creeping higher again.`\
-https://www.nytimes.com/2026/07/16/business/consumers-spending-retail-sales.html
-
-**Why Netflix’s ‘The Polygamist’ Has Viewers Outside South Africa Talking**\
-`The hit Netflix show follows the life of a wealthy married couple in South Africa as they deal with the pressures of infidelity and appearances.`\
-https://www.nytimes.com/2026/07/16/world/africa/netflix-the-polygamist-south-africa.html
 

@@ -1,3 +1,11 @@
+**Burning Houses to Save Houses**\
+`We visited researchers seeking ways to make homes safer. They set a lot of fires.`\
+https://www.nytimes.com/2026/07/16/climate/burning-houses-to-save-houses.html
+
+**Smoke From Canada’s Wildfires Fills Skies Across North America**\
+`Weather forecasters expect the smoke to stretch from the upper Midwest and southern Canada to the northeastern United States. The heat and the smoke are expected to ease in the northeast by Friday, but closer to the fires, the smoke is likely to linger longer.`\
+https://www.nytimes.com/video/weather/100000011034886/canada-wildfires-smoke.html
+
 **Maps: Tracking Air Quality and Smoke From Wildfires in Canada and the U.S.**\
 `See maps of where smoke is traveling and how harmful the air has become.`\
 https://www.nytimes.com/interactive/2026/weather/canada-us-wildfire-smoke-air-quality-maps.html
