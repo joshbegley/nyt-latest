@@ -1,3 +1,7 @@
+**Maps Show Where Wildfire Smoke Will Darken Skies on Thursday**\
+`Air quality in Toronto reached hazardous levels on Thursday morning as smoke is expected to move across North America.`\
+https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
+
 **Hong Kong Police Raid Independent Bookstores**\
 `The police raided two independent bookstores in Hong Kong on Wednesday, arresting five people on suspicion of sedition as the authorities widened a national security crackdown.`\
 https://www.nytimes.com/video/world/asia/100000011034404/hong-kong-bookstore-raid.html
