@@ -1,3 +1,11 @@
+**Make America Safe From Parasites Again**\
+`Cramping, vomiting and diarrhea. Is this what “Make America Healthy Again” looks like? The recent outbreak of Cyclospora, a parasite that causes a food-borne illness that’s ruining summers across the nation, has us asking: Were those cuts to public health institutions worth it? And what’s in this salad?`\
+https://www.nytimes.com/video/opinion/100000011033031/make-america-safe-from-parasites-again.html
+
+**Astronomers Find an Atmosphere on a Nearby Earthlike Planet**\
+`It’s the first potentially habitable world known to host an atmosphere, making it a lead contender in the search for life beyond our solar system.`\
+https://www.nytimes.com/2026/07/16/science/astronomy-exoplanet-atmosphere.html
+
 **Israeli Government Pushes Through Divisive Laws Before Election**\
 `Prime Minister Benjamin Netanyahu backed a series of laws undermining legal oversight of the government, benefiting allied media outlets and aiming to shore up ultra-Orthodox political support.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/israel-divisive-new-laws.html
