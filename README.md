@@ -3,7 +3,7 @@
 https://www.nytimes.com/interactive/2026/weather/canada-us-wildfire-smoke-air-quality-maps.html
 
 **Warnock and Ossoff, Georgia’s Senators, Ridicule Trump’s Election Fraud Claims**\
-`Senators in both parties say the state’s 2020 Senate election is a long settled issue.`\
+`Senators in both parties say the state’s 2020 Senate election is a long-settled issue.`\
 https://www.nytimes.com/2026/07/16/us/politics/georgia-senators-ossoff-warnock-trump-election-fraud.html
 
 **These Winemakers Are Starting Over. Will the Third Time Be the Charm?**\
