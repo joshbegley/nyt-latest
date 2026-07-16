@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 16, 2026**\
+`You’ll get a kick out of Zhou Zhang and Mallory Montgomery’s puzzle.`\
+https://www.nytimes.com/2026/07/15/crosswords/daily-puzzle-2026-07-16.html
+
 **Iranian American Woman Held in Iran on Spying Charges Is Released**\
 `The dual Iranian-U.S. citizen, Dena Karari, had her passport seized in December 2024 and had not been able to leave Iran as she faced espionage charges.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-american-released-trump.html

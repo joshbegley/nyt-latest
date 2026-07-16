@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 16, 2026**\
+`You’ll get a kick out of Zhou Zhang and Mallory Montgomery’s puzzle.`\
+https://www.nytimes.com/2026/07/15/crosswords/daily-puzzle-2026-07-16.html
+
 **Iranian American Woman Held in Iran on Spying Charges Is Released**\
 `The dual Iranian-U.S. citizen, Dena Karari, had her passport seized in December 2024 and had not been able to leave Iran as she faced espionage charges.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-american-released-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011033167/15vid-tillis-
 **Judge Dismisses Suit Accusing Apple of Failing to Limit Child Sex Abuse Material**\
 `The lawsuit highlighted concerns that the privacy of Apple’s iCloud allows illegal material to be easily stored and shared on the service.`\
 https://www.nytimes.com/2026/07/15/technology/apple-lawsuit-child-sexual-abuse-dismissed.html
-
-**Everybody Loves Cheese. Why Is Selling It So Hard These Days?**\
-`Cheesemongering is a calling, requiring deep expertise and longstanding relationships, but today’s retail environment is making it more and more difficult.`\
-https://www.nytimes.com/2026/07/15/dining/cheesemonger-jobs.html
 
