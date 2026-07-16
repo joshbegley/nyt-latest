@@ -1,3 +1,7 @@
+**Someone Used A.I. to Write an Unauthorized Biography of Me. I Don’t Recommend Reading It.**\
+`Someone used A.I. to write my biography. Thousands more of those books are polluting Amazon. Who is behind all this drivel?`\
+https://www.nytimes.com/2026/07/16/technology/ai-slop-books-biography-amazon.html
+
 **Live Updates: Wildfire Smoke Chokes Skies Across Swath of U.S. and Canada**\
 `A strip of dense smoke combined with extreme heat has pushed air quality to unhealthy levels. Officials encouraged people in cities, including New York, to stay indoors.`\
 https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
