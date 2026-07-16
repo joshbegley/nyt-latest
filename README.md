@@ -2,8 +2,8 @@
 `Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
 https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
 
-**Live Updates: Wildfire Smoke Chokes Skies Across Northeastern U.S. and Canada**\
-`A strip of dense smoke from Canadian wildfires, combined with extreme heat, pushed air quality to unhealthy levels in multiple states.`\
+**Live Updates: Wildfire Smoke Chokes Skies Across Swath of U.S. and Canada**\
+`A strip of dense smoke from Canadian wildfires, combined with extreme heat, has pushed air quality to unhealthy levels in multiple states. Officials encouraged people in cities, including New York, to stay indoors.`\
 https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
 
 **New Yorkers Get Squeamish About Salad Lunches Amid Parasite Outbreak**\

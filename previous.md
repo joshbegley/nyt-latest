@@ -1,3 +1,19 @@
+**Highway Executive Given 12-Year Sentence Over Deadly Bridge Collapse in Italy**\
+`Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
+https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
+
+**Live Updates: Wildfire Smoke Chokes Skies Across Northeastern U.S. and Canada**\
+`A strip of dense smoke from Canadian wildfires, combined with extreme heat, pushed air quality to unhealthy levels in multiple states.`\
+https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
+
+**New Yorkers Get Squeamish About Salad Lunches Amid Parasite Outbreak**\
+`The cyclosporiasis illness, which is marked by “watery diarrhea,” has been linked to salad greens. While some diners are willing to risk it, others are turning away.`\
+https://www.nytimes.com/2026/07/16/nyregion/nyc-cyclospora-salad.html
+
+**Ken Paxton Bought 3 Utah Condos, Adding to a $9 Million Real Estate Portfolio**\
+`The Texas attorney general and his trusts now hold at least 15 properties worth about $9 million.`\
+https://www.nytimes.com/2026/07/16/us/paxton-vacation-condos-wealth.html
+
 **Akihiro Miwa, Actor and Singer With Gender-Fluid Glamour, Dies at 91**\
 `In Japan, he was one of the first androgynous pop-culture stars and an inspirational figure. Abroad, he was known for his work in animated films by Hayao Miyazaki.`\
 https://www.nytimes.com/2026/07/16/movies/akihiro-miwa-dead.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/video/us/100000011028027/israel-united-states-ahmadineja
 **The Long-Running, Never-Ending Argument Over What Counts as ‘America’**\
 `The label applies to the country, but also two whole continents. Our claim over it is yet another way for us to annoy the entire hemisphere.`\
 https://www.nytimes.com/2026/07/16/magazine/americans-english-language.html
-
-**A Spectacular Theodore Roosevelt Library Deep in the Badlands**\
-`An inventive $450 million center devoted to Roosevelt, who died in 1919, blends in with the natural beauty of North Dakota and celebrates conservation.`\
-https://www.nytimes.com/2026/07/16/arts/design/teddy-roosevelt-presidential-library-north-dakota.html
-
-**Trump, the Economy and Work: 10 Gen Z Trump Voters Discuss**\
-`The group discusses the economy, work and working today and the president’s second term.`\
-https://www.nytimes.com/interactive/2026/07/16/opinion/focus-group-young-trump-voters.html
-
-**Ted Huffman Takes Over the Aix-en-Provence Festival**\
-`Ted Huffman, an American director with a collaborative and exploratory spirit, has taken over the Aix-en-Provence Festival in France.`\
-https://www.nytimes.com/2026/07/16/arts/music/ted-huffman-aix-en-provence-festival.html
-
-**The Only Thing Riskier Than Telling an Abortion Joke**\
-`For comedian Alison Leiby, talking about her choice to be child-free is more polarizing to audiences than anything else.`\
-https://www.nytimes.com/2026/07/16/style/alison-leiby-im-a-lot-book-comedy.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

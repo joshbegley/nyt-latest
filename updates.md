@@ -1,3 +1,19 @@
+**Highway Executive Given 12-Year Sentence Over Deadly Bridge Collapse in Italy**\
+`Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
+https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
+
+**Live Updates: Wildfire Smoke Chokes Skies Across Northeastern U.S. and Canada**\
+`A strip of dense smoke from Canadian wildfires, combined with extreme heat, pushed air quality to unhealthy levels in multiple states.`\
+https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
+
+**New Yorkers Get Squeamish About Salad Lunches Amid Parasite Outbreak**\
+`The cyclosporiasis illness, which is marked by “watery diarrhea,” has been linked to salad greens. While some diners are willing to risk it, others are turning away.`\
+https://www.nytimes.com/2026/07/16/nyregion/nyc-cyclospora-salad.html
+
+**Ken Paxton Bought 3 Utah Condos, Adding to a $9 Million Real Estate Portfolio**\
+`The Texas attorney general and his trusts now hold at least 15 properties worth about $9 million.`\
+https://www.nytimes.com/2026/07/16/us/paxton-vacation-condos-wealth.html
+
 **Akihiro Miwa, Actor and Singer With Gender-Fluid Glamour, Dies at 91**\
 `In Japan, he was one of the first androgynous pop-culture stars and an inspirational figure. Abroad, he was known for his work in animated films by Hayao Miyazaki.`\
 https://www.nytimes.com/2026/07/16/movies/akihiro-miwa-dead.html
