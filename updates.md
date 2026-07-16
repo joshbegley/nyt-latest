@@ -1,3 +1,11 @@
+**In Canada, Wildfires Are Burning Through the Night. Firefighters Are Running Out of Time.**\
+`As overnight temperatures climb across Canada, fires that once spread more slowly after dark are burning around the clock, straining fire crews.`\
+https://www.nytimes.com/2026/07/16/world/canada/canada-wildfires-firefighters-heat.html
+
+**ABC and NBC Will Not Take Trump’s Speech Live as Other TV Networks’ Plans Remain Uncertain**\
+`ABC and NBC were not planning to pre-empt regularly scheduled entertainment programming for the president’s live address. Other outlets’ plans were unclear.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
+
 **Chloe Fineman Is Leaving ‘S.N.L.’ After 7 Seasons**\
 `The comedian and actress announced her departure as the show looks ahead to its 52nd season.`\
 https://www.nytimes.com/2026/07/16/arts/television/chloe-fineman-leaves-snl.html

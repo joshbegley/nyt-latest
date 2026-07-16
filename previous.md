@@ -1,3 +1,7 @@
+**In Canada, Wildfires Are Burning Through the Night. Firefighters Are Running Out of Time.**\
+`As overnight temperatures climb across Canada, fires that once spread more slowly after dark are burning around the clock, straining fire crews.`\
+https://www.nytimes.com/2026/07/16/world/canada/canada-wildfires-firefighters-heat.html
+
 **Chloe Fineman Is Leaving ‘S.N.L.’ After 7 Seasons**\
 `The comedian and actress announced her departure as the show looks ahead to its 52nd season.`\
 https://www.nytimes.com/2026/07/16/arts/television/chloe-fineman-leaves-snl.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
 `In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
 
-**ABC and NBC Will Not Air Trump’s Speech as Other TV Networks’ Plans Remain Uncertain**\
-`ABC and NBC`\
+**ABC and NBC Will Not Take Trump’s Speech Live as Other TV Networks’ Plans Remain Uncertain**\
+`ABC and NBC were not planning to pre-empt regularly scheduled entertainment programming for the president’s live address. Other outlets’ plans were unclear.`\
 https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
 
 **Climate Change Contributes to a Smokier World**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/world/africa/algeria-orphanage-fire.html
 **What Do You Want to Know About New York Times Journalism?**\
 `New York Times editors and reporters want to answer your questions about how we work and why we make the decisions that we do.`\
 https://www.nytimes.com/2026/07/16/insider/reader-questions-times-journalism.html
-
-**Wildfire Smoke Causes Unhealthy Air Conditions in New York**\
-`Air quality levels were predicted to worsen through at least Thursday evening as smoke drifted south from Canada. The mayor urged people to stay inside to avoid negative health effects.`\
-https://www.nytimes.com/2026/07/16/nyregion/new-york-air-quality-wildfire-smoke.html
 
