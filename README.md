@@ -124,7 +124,7 @@ https://www.nytimes.com/2026/07/16/opinion/iran-trump-graham-odyssey.html
 
 **‘Put It on My Tab’: The New York Restaurants With House Accounts**\
 `Plus: a vacation house in Normandy, sorrel dishes in Istanbul and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/07/16/t-magazine/house-accounts-nyc-restaurants.html
+https://www.nytimes.com/2026/07/16/t-magazine/house-accounts-tab-nyc-restaurants.html
 
 **Copa Mundial 2026: así asisten los ultrarricos a los partidos**\
 `Mientras miles de aficionados hacen largas filas, los helicópteros saturan los cielos de los Hamptons para transportar a los más adinerados hasta los partidos.`\
