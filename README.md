@@ -1,3 +1,7 @@
+**Republican Rifts Deepen Over $95 Billion Budget Plan for Iran War and SAVE Act**\
+`A House panel approved the measure. But Republicans are divided over its size, cost and policy provisions, and many are concerned about the timing before the midterm elections.`\
+https://www.nytimes.com/2026/07/16/us/politics/iran-war-save-act.html
+
 **Watch the Wildfire Smoke Ooze Across North America From Space**\
 `Satellite imagery shows the wide footprint of the smoke across the continent.`\
 https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-from-space.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfires.html
 **Protestas en Ucrania tras la destitución del ministro de Defensa**\
 `Miles de personas salieron a las calles a demostrar su apoyo a Mykhailo Fedorov, y cuestionaron la decisión de removerlo ahora que la guerra parece volcarse a su favor.`\
 https://www.nytimes.com/es/2026/07/16/espanol/mundo/guerra-ucrania-protestas-ministro-defensa.html
-
-**Orphanage Fire Kills Eleven in Algeria**\
-`The fire on Thursday morning at an orphanage near the nation’s capital killed 11 people, including children, and injured a dozen, the authorities said.`\
-https://www.nytimes.com/2026/07/16/world/africa/algeria-orphanage-fire.html
 
