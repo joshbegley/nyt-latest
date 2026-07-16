@@ -1,3 +1,15 @@
+**America Without Capitalism?**\
+`What would socialists do to the American economy? On “Interesting Times,” Bhaskar Sunkara, author of “The Socialist Manifesto,” thinks we can have free markets without capitalism.`\
+https://www.nytimes.com/video/opinion/100000011024688/america-without-capitalism.html
+
+**Man Who Killed Gay Dancer in Brooklyn Is Sentenced to 20 Years**\
+`Dmitriy Popov, 21, was convicted of manslaughter as a hate crime for fatally stabbing O’Shae Sibley, 28, at a gas station in Brooklyn in 2023.`\
+https://www.nytimes.com/2026/07/16/nyregion/oshae-sibley-case-manslaughter-hate-crime.html
+
+**Netflix Revenue Grows 13% to $12.6 Billion**\
+`The company’s second-quarter earnings were largely in line with Wall Street’s expectations.`\
+https://www.nytimes.com/2026/07/16/business/media/netflix-earnings.html
+
 **Tom Kean Is Back in Congress but Still Isn’t Talking**\
 `Mr. Kean, a New Jersey Republican who was absent from Congress while being treated for depression, has since appeared at few campaign events and declined interview requests.`\
 https://www.nytimes.com/2026/07/16/nyregion/tom-kean-campaign.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/16/us/politics/republicans-democrats-midterms-fu
 **Isabelle Huppert Speaks Across a Language Divide at the Avignon Festival**\
 `A stripped-back, cross-cultural reading with the Korean star Lee Hye-young at the Avignon Festival brought out a rare softness in the French actress.`\
 https://www.nytimes.com/2026/07/16/theater/avignon-festival-han-kang-isabelle-huppert-lee-hye-young.html
-
-**Democratic Senate Candidates Trounce Republicans in Fund-Raising**\
-`In the first half of this year, Democrats raised more cash in every key Senate race except Iowa.`\
-https://www.nytimes.com/2026/07/16/us/politics/senate-midterm-elections-fundraising.html
-
-**¿Qué revela la bandera sobre las Malvinas de la selección de Argentina?**\
-`Argentina y el Reino Unido libraron una guerra por las islas Malvinas en 1982. Décadas después, la disputa sigue impregnando los partidos entre Inglaterra y Argentina.`\
-https://www.nytimes.com/es/2026/07/16/espanol/america-latina/argentina-malvinas-bandera-inglaterra-mundial.html
-
-**Today, In Short**\
-`World Cup. Twitter. And a meteorite.`\
-https://www.nytimes.com/2026/07/16/briefing/today-in-short.html
 

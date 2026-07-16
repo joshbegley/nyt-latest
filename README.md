@@ -1,3 +1,11 @@
+**‘Today’ Anchor Craig Melvin Chases Intruder From Studio as Show Airs**\
+`The incident did not result in any injuries, the police said.`\
+https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
+
+**On the War Against Iran, the Pentagon Has Said Little**\
+`Defense Secretary Pete Hegseth has spoken about a range of issues in recent days — from testosterone to leak investigations — but he has said little about the war.`\
+https://www.nytimes.com/2026/07/16/us/politics/hegseth-iran-war-briefings.html
+
 **America Without Capitalism?**\
 `What would socialists do to the American economy? On “Interesting Times,” Bhaskar Sunkara, author of “The Socialist Manifesto,” thinks we can have free markets without capitalism.`\
 https://www.nytimes.com/video/opinion/100000011024688/america-without-capitalism.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/science/mary-dell-chilton-dead.html
 **Trump se arriesga a otra ‘guerra eterna’ en Irán**\
 `El presidente Trump, que prometió “terminar guerras”, no comenzarlas, podría haber caído en una conocida trampa presidencial.`\
 https://www.nytimes.com/es/2026/07/16/espanol/mundo/trump-iran-guerra-cuando-dura.html
-
-**Republican Candidates Are Hurting for Cash, but Help May Be on the Way**\
-`Super PACs and billionaires seem to be on the side of the G.O.P., new filings show.`\
-https://www.nytimes.com/2026/07/16/us/politics/republicans-democrats-midterms-fundraising-takeaways.html
-
-**Isabelle Huppert Speaks Across a Language Divide at the Avignon Festival**\
-`A stripped-back, cross-cultural reading with the Korean star Lee Hye-young at the Avignon Festival brought out a rare softness in the French actress.`\
-https://www.nytimes.com/2026/07/16/theater/avignon-festival-han-kang-isabelle-huppert-lee-hye-young.html
 
