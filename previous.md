@@ -1,3 +1,11 @@
+**Investigators Seek Information From Government Officials as Part of Air Force One Leak Investigation**\
+`After The New York Times reported on security concerns related to the Qatari-donated jet, the F.B.I. sought to speak with several people who flew aboard the plane with President Trump last week and asked for their phones.`\
+https://www.nytimes.com/2026/07/15/us/politics/air-force-one-lead-investigation-government-officials.html
+
+**New York Times Files Motion to Quash Subpoenas of Its Journalists**\
+`The Justice Department is seeking to compel grand jury testimony as part of an investigation into Times reporting on the president’s new Air Force One jet.`\
+https://www.nytimes.com/2026/07/15/business/media/new-york-times-subpoenas-quash.html
+
 **NextEra and Dominion File to Form a Huge Power Company**\
 `They asked regulators in three states and at a federal agency to approve a deal that would create a combined company with 10 million customers across the Southeast.`\
 https://www.nytimes.com/2026/07/15/business/nextera-dominion-regulators-filing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/15/style/tiny-modern-love-stories-how-to-woo-her
 **Kevin O’Leary Is Sued by Opponents He Claimed Were Foreign Agents**\
 `Kevin O’Leary, the celebrity investor, accused opponents of his proposed data center near the Great Salt Lake of being agents of China. Now they want compensation.`\
 https://www.nytimes.com/2026/07/15/us/kevin-oleary-data-center-lawsuit.html
-
-**Billboard in Iran’s Capital Depicts Trump in a Coffin**\
-`Threatening imagery in Enghelab Square is nothing new, but has rarely taken such lurid form.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/iran-tehran-billboard-trump-coffin.html
-
-**Las infecciones por ‘Cyclospora’ aumentan. Su origen sigue sin saberse**\
-`El parásito, que ha enfermado a miles de personas en todo EE. UU., es notoriamente difícil de rastrear. Los recortes de fondos no han facilitado la tarea.`\
-https://www.nytimes.com/es/2026/07/15/espanol/cyclospora-brote-sintomas.html
 
