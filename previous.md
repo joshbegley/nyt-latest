@@ -1,3 +1,7 @@
+**Millions of Americas Are Urged to Limit Their Time Outdoors**\
+`Also, Trump is set to deliver a prime-time speech on election security. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/16/briefing/wildfire-smoke-trump-election-speech.html
+
 **Ken Paxton and James Talarico Agree to Debate in U.S. Senate Race**\
 `Ken Paxton, a Republican, has not debated in more than a decade. A showdown with James Talarico, a Democrat, could be a key moment in the hard-fought race.`\
 https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/weather/when-will-wildfire-smoke-end.html
 **Falling Birthrates and America’s Future**\
 `Sampling the outpouring of responses to “The Population Forecasts Aren’t Grim Enough,” an Opinion guest essay by Lyman Stone. Also: The Ferrari faithful.`\
 https://www.nytimes.com/2026/07/16/opinion/falling-birthrates-population.html
-
-**The Sunset Strip Becomes a Gushing River After a Water Main Break**\
-`The deluge was so strong that one person was briefly swept away and underground garages were flooded.`\
-https://www.nytimes.com/2026/07/16/us/west-hollywood-water-main-break.html
 
 **Trump Administration Live Updates: President to Speak on Election Security**\
 `(No description)`\

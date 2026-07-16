@@ -1,4 +1,8 @@
-**Millions of Americas Are Urged to Limit Their Time Outdoors**\
+**Wildfire Smoke Shrouds Cities and Smothers Residents**\
+`The air was hazardous, and skylines at times seemed nearly erased. The smoke will linger before finally letting up.`\
+https://www.nytimes.com/2026/07/16/us/canada-wildfire-smoke-photos-video.html
+
+**Millions of Americans Are Urged to Limit Their Time Outdoors**\
 `Also, Trump is set to deliver a prime-time speech on election security. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/16/briefing/wildfire-smoke-trump-election-speech.html
 
@@ -9,6 +13,10 @@ https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
 **Gay-Themed Mediterranean Cruise Turned Away From Turkey and Then Egypt**\
 `In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
+
+**Trump has a speech tonight, but some TV networks haven’t said if they’ll air it.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
 
 **Climate Change Contributes to a Smokier World**\
 `Higher temperatures and drought conditions are contributing to more intense wildfires and extending the summer fire season in North America.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/weather/face-mask-smoke-health.html
 **When Will the Wildfire Smoke End?**\
 `A heat dome that has led to high temperatures in the Midwest and the Northeast has trapped the smoke close to the ground.`\
 https://www.nytimes.com/2026/07/16/weather/when-will-wildfire-smoke-end.html
-
-**Falling Birthrates and America’s Future**\
-`Sampling the outpouring of responses to “The Population Forecasts Aren’t Grim Enough,” an Opinion guest essay by Lyman Stone. Also: The Ferrari faithful.`\
-https://www.nytimes.com/2026/07/16/opinion/falling-birthrates-population.html
-
-**Trump Administration Live Updates: President to Speak on Election Security**\
-`(No description)`\
-https://www.nytimes.com/live/2026/07/16/us/trump-news
 

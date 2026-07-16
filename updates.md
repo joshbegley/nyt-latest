@@ -1,3 +1,7 @@
+**Millions of Americas Are Urged to Limit Their Time Outdoors**\
+`Also, Trump is set to deliver a prime-time speech on election security. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/16/briefing/wildfire-smoke-trump-election-speech.html
+
 **Ken Paxton and James Talarico Agree to Debate in U.S. Senate Race**\
 `Ken Paxton, a Republican, has not debated in more than a decade. A showdown with James Talarico, a Democrat, could be a key moment in the hard-fought race.`\
 https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
