@@ -1,3 +1,7 @@
+**Los casos de ciclosporosis van en aumento. Esto es lo que debes saber**\
+`El parásito ha enfermado a miles de personas en todo Estados Unidos. Los expertos tienen consejos sobre cómo protegerte del brote.`\
+https://www.nytimes.com/es/2026/07/15/espanol/casos-ciclosporosis-que-hacer.html
+
 **How Penn Station Could Run More Trains**\
 `The Trump administration plans an $8 billion overhaul. A U.S. study recommends extending platforms and adding staircases or escalators to increase the number of trains at peak times.`\
 https://www.nytimes.com/2026/07/15/nyregion/penn-station-transportation-study.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/dining/cheesemonger-jobs.html
 **Inside Maine Democrats’ Search for a New Senate Nominee After Graham Platner’s Exit**\
 `Democratic candidates are hastily building bare-bones campaigns and forgoing traditional outreach like TV ads in a sprint to appeal to party delegates, rather than Maine voters.`\
 https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-convention.html
-
-**De Twitter a X: 20 años de memes, movimientos y polémica**\
-`Desde mensajes escritos en el espacio hasta selfis y obituarios de celebridades, la plataforma que ahora es propiedad de Elon Musk ha visto un mundo de publicaciones.`\
-https://www.nytimes.com/es/2026/07/15/espanol/negocios/twitter-x-20-anos.html
 

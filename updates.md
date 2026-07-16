@@ -1,3 +1,7 @@
+**Los casos de ciclosporosis van en aumento. Esto es lo que debes saber**\
+`El parásito ha enfermado a miles de personas en todo Estados Unidos. Los expertos tienen consejos sobre cómo protegerte del brote.`\
+https://www.nytimes.com/es/2026/07/15/espanol/casos-ciclosporosis-que-hacer.html
+
 **How Penn Station Could Run More Trains**\
 `The Trump administration plans an $8 billion overhaul. A U.S. study recommends extending platforms and adding staircases or escalators to increase the number of trains at peak times.`\
 https://www.nytimes.com/2026/07/15/nyregion/penn-station-transportation-study.html
