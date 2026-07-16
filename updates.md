@@ -1,3 +1,7 @@
+**Hong Kong Police Raid Independent Bookstores and Arrest 5**\
+`Other booksellers have been detained in recent months as part of a broad national security crackdown.`\
+https://www.nytimes.com/2026/07/16/world/asia/hong-kong-bookstore-arrest-china.html
+
 **The Race for A.I. Data Centers Arrives in India**\
 `India is developing new data centers to secure a foothold in the global A.I. race. Our South Asia bureau chief, Mujib Mashal, discusses how a new Google campus’s potential use of the region’s already strained energy and water resources is creating anxiety among local residents.`\
 https://www.nytimes.com/video/world/100000011024159/the-race-for-ai-data-centers-arrives-in-india.html
