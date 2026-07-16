@@ -1,3 +1,11 @@
+**German Man Accused of Drugging and Filming the Rape of 14 Women**\
+`The case has drawn comparisons to the Pelicot trial in France, which started a discussion across Europe about sexual assault and consent.`\
+https://www.nytimes.com/2026/07/16/world/europe/german-man-rape-case.html
+
+**Protests Breakout Across Ukraine in Support of Ousted Defense Minister**\
+`Mass protests erupted across Ukraine after the dismissal of its 35-year-old defense minister, Mykhailo Fedorov, who had become a symbol of his country’s recently energized drone campaign against Russia.`\
+https://www.nytimes.com/video/world/europe/100000011034468/ukraine-protests-fedorov-zelensky.html
+
 **How the NYT Reported on Khamenei’s Funeral in Iran**\
 `Our correspondent talked about the challenges of covering major news while under surveillance and filing his work without reliable internet access.`\
 https://www.nytimes.com/2026/07/16/insider/iran-funeral-coverage.html
