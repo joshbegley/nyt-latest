@@ -1,3 +1,11 @@
+**Paul Pelosi’s Errant Driving Record Preceded His Latest Napa Valley Crash**\
+`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in 13 years before his crash this year, according to court records.`\
+https://www.nytimes.com/2026/07/16/us/paul-pelosi-driving-record.html
+
+**Do I Need to Wear a Mask If There’s Wildfire Smoke Outside?**\
+`Here’s what experts want you to know about protecting your health.`\
+https://www.nytimes.com/2026/07/16/weather/face-mask-smoke-health.html
+
 **When Will the Wildfire Smoke End?**\
 `A heat dome that has led to high temperatures in the Midwest and the Northeast has trapped the smoke close to the ground.`\
 https://www.nytimes.com/2026/07/16/weather/when-will-wildfire-smoke-end.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/16/us/politics/haley-stevens-michigan-senate-isr
 **Teddy’s Place**\
 `A visit to the Theodore Roosevelt Presidential Library.`\
 https://www.nytimes.com/2026/07/16/briefing/theodore-roosevelt-presidential-library-visit.html
-
-**The F.D.A. Approves a New Pill to Slash Cholesterol Levels**\
-`The new pills can lower cholesterol levels far below what can be achieved with statins, clinical trials have shown.`\
-https://www.nytimes.com/2026/07/16/science/the-fda-approves-a-new-pill-to-slash-cholesterol-levels.html
-
-**Global Opinion Shifts Toward Favoring China Over the U.S., Poll Finds**\
-`An annual survey from the Pew Research Center found that more countries felt positively about China than America.`\
-https://www.nytimes.com/2026/07/16/world/asia/pew-opinion-survey-china-united-states.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
