@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/07/16/world/africa/netflix-the-polygamist-south-afr
 `A civil-rights investigation, which grew out of a 26-page memo by a political appointee, provides a road map for the White House’s assault on D.E.I.`\
 https://www.nytimes.com/2026/07/16/us/politics/nike-dei-trump-eeoc.html
 
-**Maker of Drone Boats Used in Iran War to Open New Texas Shipyard**\
+**Maker of Drone Boats Used in Iran War Will Open New Texas Shipyard**\
 `Saronic Technologies will make naval and commercial vessels at the facility. The company’s naval drone helped rescue the crew of a downed Apache helicopter last month.`\
 https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-war-to-open-new-texas-shipyard.html
 
