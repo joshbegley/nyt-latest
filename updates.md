@@ -1,3 +1,7 @@
+**Hong Kong Police Raid Independent Bookstores**\
+`The police raided two independent bookstores in Hong Kong on Wednesday, arresting five people on suspicion of sedition as the authorities widened a national security crackdown.`\
+https://www.nytimes.com/video/world/asia/100000011034404/hong-kong-bookstore-raid.html
+
 **Anthropic Inches Toward a Mega-I.P.O.**\
 `The artificial intelligence lab is said to have taken more steps that are consistent with a company aiming to go public in the fall.`\
 https://www.nytimes.com/2026/07/16/business/dealbook/anthropic-ipo-ai.html
