@@ -1,3 +1,7 @@
+**Protests Breakout Across Ukraine in Support of Ousted Defense Minister**\
+`Mass protests erupted across Ukraine after the dismissal of its 35-year-old defense minister, Mykhailo Fedorov, who had become a symbol of his country’s recently energized drone campaign against Russia.`\
+https://www.nytimes.com/video/world/europe/100000011034468/ukraine-protests-fedorov-zelensky.html
+
 **How the NYT Reported on Khamenei’s Funeral in Iran**\
 `Our correspondent talked about the challenges of covering major news while under surveillance and filing his work without reliable internet access.`\
 https://www.nytimes.com/2026/07/16/insider/iran-funeral-coverage.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-def
 **NYT Strands Hints for July 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
 https://www.nytimes.com/2026/07/16/crosswords/strands-sidekick-866.html
-
-**Sam Neill’s Cause of Death Was Pneumonia, Actor’s Agent Confirms**\
-`The beloved New Zealand actor best known for his turn in “Jurassic Park” had “fought and beaten” lymphoma before he fell ill, according to a statement.`\
-https://www.nytimes.com/2026/07/16/world/australia/sam-neill-death-cause-pneumonia.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

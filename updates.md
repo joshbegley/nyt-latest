@@ -1,3 +1,7 @@
+**How the NYT Reported on Khamenei’s Funeral in Iran**\
+`Our correspondent talked about the challenges of covering major news while under surveillance and filing his work without reliable internet access.`\
+https://www.nytimes.com/2026/07/16/insider/iran-funeral-coverage.html
+
 **Could a 50-Year-Old Case Thwart Trump’s Attacks on the News Media?**\
 `The precedent said that “official harassment of the press” is forbidden by the First Amendment.`\
 https://www.nytimes.com/2026/07/16/us/politics/the-docket-supreme-court-press.html

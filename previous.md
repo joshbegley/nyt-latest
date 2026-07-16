@@ -1,3 +1,7 @@
+**How the NYT Reported on Khamenei’s Funeral in Iran**\
+`Our correspondent talked about the challenges of covering major news while under surveillance and filing his work without reliable internet access.`\
+https://www.nytimes.com/2026/07/16/insider/iran-funeral-coverage.html
+
 **Could a 50-Year-Old Case Thwart Trump’s Attacks on the News Media?**\
 `The precedent said that “official harassment of the press” is forbidden by the First Amendment.`\
 https://www.nytimes.com/2026/07/16/us/politics/the-docket-supreme-court-press.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/crosswords/strands-sidekick-866.html
 **Sam Neill’s Cause of Death Was Pneumonia, Actor’s Agent Confirms**\
 `The beloved New Zealand actor best known for his turn in “Jurassic Park” had “fought and beaten” lymphoma before he fell ill, according to a statement.`\
 https://www.nytimes.com/2026/07/16/world/australia/sam-neill-death-cause-pneumonia.html
-
-**Ukraine’s Ousted Defense Minister Attacks the Military’s Old Guard**\
-`Mykhailo Fedorov defended his efforts to modernize the Ukrainian armed forces as thousands of people protested his dismissal.`\
-https://www.nytimes.com/2026/07/16/world/europe/ukraine-fedorov-protests.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
