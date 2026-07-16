@@ -1,3 +1,7 @@
+**Houston ICE Shooting: Lawyer Says Bags Held Salt, Not Drugs**\
+`Federal investigators said a “crystal-like” substance in the bags looked like methamphetamine. A lawyer for the victim’s brother said it was salt.`\
+https://www.nytimes.com/2026/07/16/us/fbi-search-drugs-houston-ice-shooting.html
+
 **How Todd Blanche Made the Justice Dept. Less Independent**\
 `Our Justice Department reporter Devlin Barrett describes how Todd Blanche, President Trump’s former personal lawyer and current nominee for attorney general, has helped Mr. Trump gain more control over the Justice Department.`\
 https://www.nytimes.com/video/us/politics/100000011024954/how-todd-blanche-made-the-justice-dept-less-independent.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/technology/ai-slop-books-biography-amazon.htm
 **White House Faces Stiff Pushback on Subjecting Grants to Political Review**\
 `Academics, city leaders and congressional lawmakers number among the thousands to urge the Trump administration to reconsider a plan to assert more control over grants.`\
 https://www.nytimes.com/2026/07/16/us/politics/white-house-federal-grants-political-review.html
-
-**National Academies Report Backs Climate Change Attribution Science**\
-`Attribution science is advancing quickly, researchers said. That could support lawsuits seeking damages for severe events worsened by global warming.`\
-https://www.nytimes.com/2026/07/16/climate/national-academies-extreme-weather-attribution.html
 
