@@ -1,3 +1,11 @@
+**Paul Pelosi’s Errant Driving Record Preceded His Latest Napa Valley Crash**\
+`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in 13 years before his crash this year, according to court records.`\
+https://www.nytimes.com/2026/07/16/us/paul-pelosi-driving-record.html
+
+**Do I Need to Wear a Mask If There’s Wildfire Smoke Outside?**\
+`Here’s what experts want you to know about protecting your health.`\
+https://www.nytimes.com/2026/07/16/weather/face-mask-smoke-health.html
+
 **When Will the Wildfire Smoke End?**\
 `A heat dome that has led to high temperatures in the Midwest and the Northeast has trapped the smoke close to the ground.`\
 https://www.nytimes.com/2026/07/16/weather/when-will-wildfire-smoke-end.html

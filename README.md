@@ -1,5 +1,13 @@
+**What Do You Want to Know About New York Times Journalism?**\
+`New York Times editors and reporters want to answer your questions about how we work and why we make the decisions that we do.`\
+https://www.nytimes.com/2026/07/16/insider/reader-questions-times-journalism.html
+
+**Wildfire Smoke Causes Unhealthy Air Conditions in New York**\
+`Air quality levels were predicted to worsen through at least Thursday evening as smoke drifted south from Canada. The mayor urged people to stay inside to avoid negative health effects.`\
+https://www.nytimes.com/2026/07/16/nyregion/new-york-air-quality-wildfire-smoke.html
+
 **Paul Pelosi’s Errant Driving Record Preceded His Latest Napa Valley Crash**\
-`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in 13 years before his crash this year, according to court records.`\
+`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in a 13-year period before his crash this year, according to court records.`\
 https://www.nytimes.com/2026/07/16/us/paul-pelosi-driving-record.html
 
 **Do I Need to Wear a Mask If There’s Wildfire Smoke Outside?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/world/americas/falklands-malvinas-england-arg
 **Can a Pro-Israel Democrat Still Win a Big Primary? She’s Going to Try.**\
 `To prevail in Michigan’s crucial Senate primary, Representative Haley Stevens will need to overcome Democratic voters’ skepticism of Israel. Pro-Israel groups are spending heavily to help her.`\
 https://www.nytimes.com/2026/07/16/us/politics/haley-stevens-michigan-senate-israel-aipac.html
-
-**Teddy’s Place**\
-`A visit to the Theodore Roosevelt Presidential Library.`\
-https://www.nytimes.com/2026/07/16/briefing/theodore-roosevelt-presidential-library-visit.html
-
-**Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
-`As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
-https://www.nytimes.com/live/2026/07/16/world/iran-war-trump-hormuz
 
