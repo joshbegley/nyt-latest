@@ -1,3 +1,7 @@
+**U.K. Nationalizes British Steel, Its Last Major Steel Mill**\
+`The government first intervened in British Steel last year to prevent its then-owner, the Chinese company Jingye Group, from shutting it down. No private sector buyers came forward.`\
+https://www.nytimes.com/2026/07/16/business/britain-nationalizes-steel-mill.html
+
 **Argentina Triumph as World Cup Final Is Set**\
 `Messi and team defeat England and will face Spain in the tournament showpiece.`\
 https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-spain.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/us/army-veteran-trump-house.html
 **Word of the Day: equanimous**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/16/learning/word-of-the-day-equanimous.html
-
-**The Hunt for the Counterfeiter Trying to Make the Perfect Bill**\
-`On the trail of the world’s best counterfeit artists.`\
-https://www.nytimes.com/2026/07/16/magazine/counterfeit-dollars.html
 
