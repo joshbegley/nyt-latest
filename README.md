@@ -1,3 +1,11 @@
+**Relentless Rain Causes Widespread Flooding in Central Texas**\
+`At least one person has died, and emergency workers have rescued scores of people. Gov. Greg Abbott said the rain in the state was likely to break records.`\
+https://www.nytimes.com/2026/07/16/us/flooding-central-texas-hill-country.html
+
+**Trump Is Expected to Revisit Election Security. Here’s What to Know.**\
+`Repeated investigations and audits have debunked claims by the president and his allies of widespread fraud or manipulation in 2020 or other elections.`\
+https://www.nytimes.com/2026/07/16/us/politics/us-election-interference-security.html
+
 **No Walkies Today: In Chicago, Dogs and Their Humans Suffer Alike**\
 `In Portage Park, wildfire smoke cuts canine playtime short.`\
 https://www.nytimes.com/2026/07/16/weather/chicago-wildfire-smoke-dogs.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/16/world/asia/india-sonam-wangchuk-cockroach-jan
 **TSMC Adds $100 Billion to Its U.S. Spending Plan**\
 `The pledge from the Taiwanese chip-making giant brought the total commitment to its fast-growing operations in Arizona to $265 billion.`\
 https://www.nytimes.com/2026/07/16/business/tsmc-chips-investment-arizona.html
-
-**‘A Million Men With Kalashnikovs Are Dangerous’**\
-`A Q&A with Kori Schake on the Russia-Ukraine war.`\
-https://www.nytimes.com/2026/07/16/opinion/russia-ukraine-putin-zelensky.html
-
-**A Vision of a ‘Society Without Capitalism’**\
-`Can democratic socialism redeem the left without destroying capitalism?`\
-https://www.nytimes.com/2026/07/16/opinion/democratic-socialist-capitalism-bhaskar-sunkara.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
