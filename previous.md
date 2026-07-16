@@ -1,3 +1,11 @@
+**Los análisis de sangre para detectar alzhéimer resultan prometedores**\
+`Nuevos estudios arrojan luz sobre cómo las pruebas podrían transformar el tratamiento de la enfermedad y la predicción del riesgo a desarrollarla en personas sanas.`\
+https://www.nytimes.com/es/2026/07/16/espanol/alzheimer-prueba-diagnostico.html
+
+**An American Strike Killed Iranian Civilians. Where’s the Accountability?**\
+`The Trump administration has failed to publicly address the mistaken missile strike that killed children during the Iran war.`\
+https://www.nytimes.com/2026/07/16/opinion/trump-minab-civilian-casualties-iran-war.html
+
 **Quote of the Day: Ukraine’s Next Phase: The Battle for Minds**\
 `Quotation of the Day for Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/16/pageoneplus/quote-of-the-day-ukraines-next-phase-the-battle-for-minds.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/15/travel/united-airlines-middle-seat.html
 **Senators Grill Justice Dept. Officials on New York Times Subpoenas**\
 `Democrats questioned the acting attorney general, Todd Blanche, and a U.S. attorney about subpoenas issued to Times journalists who reported on security concerns with the president’s new plane.`\
 https://www.nytimes.com/2026/07/15/business/media/blanche-clayton-senate-nyt-subpoenas.html
-
-**Republican Ads Take Aim at Mamdani to Attract Jewish Voters**\
-`New York Republican leaders began a targeted ad campaign, trying to persuade Jewish voters to change parties by accusing Mayor Zohran Mamdani of fostering antisemitism.`\
-https://www.nytimes.com/2026/07/15/nyregion/republicans-jews-mamdani.html
-
-**Who Is Ahead in Massachusetts's 4th Congressional District?**\
-`Track the latest polls in Massachusetts's 4th Congressional District.`\
-https://www.nytimes.com/interactive/polls/massachusetts-us-house-4-polls-2026.html
 

@@ -1,3 +1,11 @@
+**Los análisis de sangre para detectar alzhéimer resultan prometedores**\
+`Nuevos estudios arrojan luz sobre cómo las pruebas podrían transformar el tratamiento de la enfermedad y la predicción del riesgo a desarrollarla en personas sanas.`\
+https://www.nytimes.com/es/2026/07/16/espanol/alzheimer-prueba-diagnostico.html
+
+**An American Strike Killed Iranian Civilians. Where’s the Accountability?**\
+`The Trump administration has failed to publicly address the mistaken missile strike that killed children during the Iran war.`\
+https://www.nytimes.com/2026/07/16/opinion/trump-minab-civilian-casualties-iran-war.html
+
 **Quote of the Day: Ukraine’s Next Phase: The Battle for Minds**\
 `Quotation of the Day for Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/16/pageoneplus/quote-of-the-day-ukraines-next-phase-the-battle-for-minds.html
