@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-mensaje-nacion.html
 
 **Chinese Human Rights Lawyer Seeking Asylum Is Arrested by ICE**\
-`Shaoping Wu was working as a delivery driver for Amazon when he was pulled over in Pennsylvania. He had championed personal and religious freedom for Chinese citizens.`\
+`Shaoping Wu was working as a contract delivery driver for Amazon when he was pulled over in Pennsylvania. He had championed personal and religious freedom for Chinese citizens.`\
 https://www.nytimes.com/2026/07/16/us/chinese-lawyer-wu-shaoping-ice-detention.html
 
 **Tourist Helicopter Struck Geese Before Crashing in Hudson River, Documents Show**\
