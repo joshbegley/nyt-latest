@@ -1,3 +1,11 @@
+**Why Does Wildfire Smoke Turn the Sky Orange?**\
+`It’s about how light scatters in our atmosphere.`\
+https://www.nytimes.com/2026/07/16/weather/smoke-sky-orange-red.html
+
+**Argentine’s Banner Shows That the England Game Was Bigger Than Sports**\
+`A banner that the Argentine players displayed after they beat England in the World Cup semi-finals said that the Falkland Islands are part of Argentina. The banner referenced a bloody war that the two countries fought over the archipelago in 1982, in which Britain emerged victorious.`\
+https://www.nytimes.com/video/sports/soccer/100000011035268/world-cup-argentina-england-falklands-banner.html
+
 **‘Today’ Anchor Craig Melvin Chases Intruder From Studio as Show Airs**\
 `The incident did not result in any injuries, the police said.`\
 https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/us/politics/us-election-interference-security
 **No Walkies Today: In Chicago, Dogs and Their Humans Suffer Alike**\
 `In Portage Park, wildfire smoke cuts canine playtime short.`\
 https://www.nytimes.com/2026/07/16/weather/chicago-wildfire-smoke-dogs.html
-
-**Mary-Dell Chilton Dies at 87; Helped Create First Genetically Modified Plant**\
-`In 1982, she led the research team that figured out how to genetically alter plants, a discovery that would eventually transform global agriculture.`\
-https://www.nytimes.com/2026/07/16/science/mary-dell-chilton-dead.html
-
-**Trump se arriesga a otra ‘guerra eterna’ en Irán**\
-`El presidente Trump, que prometió “terminar guerras”, no comenzarlas, podría haber caído en una conocida trampa presidencial.`\
-https://www.nytimes.com/es/2026/07/16/espanol/mundo/trump-iran-guerra-cuando-dura.html
 
