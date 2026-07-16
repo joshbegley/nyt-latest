@@ -1,3 +1,7 @@
+**Maker of Drone Boats Used in Iran War to Open New Texas Shipyard**\
+`Saronic Technologies will make naval and commercial vessels at the facility. The company’s naval drone helped rescue the crew of a downed Apache helicopter last month.`\
+https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-war-to-open-new-texas-shipyard.html
+
 **Highway Executive Given 12-Year Sentence Over Deadly Bridge Collapse in Italy**\
 `Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
 https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/realestate/housing-market-nyc.html
 **How Israel Tried and Failed to Change the Iranian Regime**\
 `The U.S. and Israel were united in going to war with Iran to change the regime. Mark Mazzetti, a New York Times investigative reporter, explains how the failure of Israel to install Mahmoud Ahmadinejad as Iran’s new leader led the U.S. to narrow its efforts in Iran to just launching attacks with no plan for a new government.`\
 https://www.nytimes.com/video/us/100000011028027/israel-united-states-ahmadinejad-iran-regime-change.html
-
-**The Long-Running, Never-Ending Argument Over What Counts as ‘America’**\
-`The label applies to the country, but also two whole continents. Our claim over it is yet another way for us to annoy the entire hemisphere.`\
-https://www.nytimes.com/2026/07/16/magazine/americans-english-language.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

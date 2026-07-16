@@ -1,3 +1,7 @@
+**Maker of Drone Boats Used in Iran War to Open New Texas Shipyard**\
+`Saronic Technologies will make naval and commercial vessels at the facility. The company’s naval drone helped rescue the crew of a downed Apache helicopter last month.`\
+https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-war-to-open-new-texas-shipyard.html
+
 **Live Updates: Wildfire Smoke Chokes Skies Across Swath of U.S. and Canada**\
 `A strip of dense smoke from Canadian wildfires, combined with extreme heat, has pushed air quality to unhealthy levels in multiple states. Officials encouraged people in cities, including New York, to stay indoors.`\
 https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
