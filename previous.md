@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/07/16/opinion/trump-minab-civilian-casualties-iran-
 `Quotation of the Day for Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/16/pageoneplus/quote-of-the-day-ukraines-next-phase-the-battle-for-minds.html
 
-**Europe Wants to Break Free From American and Chinese Technology. But How?**\
+**Europe Finds It Hard to Break Up With American and Chinese Technology**\
 `France and Germany want to quit relying on America and China for key technology like artificial intelligence, but they’re having to choose where to do it.`\
 https://www.nytimes.com/2026/07/16/world/europe/digital-autonomy-ai.html
 

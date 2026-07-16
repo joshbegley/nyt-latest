@@ -1,3 +1,7 @@
+**Europe Finds It Hard to Break Up With American and Chinese Technology**\
+`France and Germany want to quit relying on America and China for key technology like artificial intelligence, but they’re having to choose where to do it.`\
+https://www.nytimes.com/2026/07/16/world/europe/digital-autonomy-ai.html
+
 **Reseña de ‘La odisea’: un clásico en todo sentido**\
 `La película de Christopher Nolan logra algo inusual: conciliar el cine de autor con el cine comercial, envuelto en el encanto del viejo Hollywood.`\
 https://www.nytimes.com/es/2026/07/16/espanol/cultura/resena-odisea-christopher-nolan.html
