@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/07/16/crosswords/connections-companion-1132.html
 `Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
 https://www.nytimes.com/2026/07/16/crosswords/wordle-review-1854.html
 
-**What to Know About Mykhailo Fedorov, Ukraine’s Ousted Defense Minister**\
+**The Essentials About Mykhailo Fedorov, the Ousted Ukrainian Minister**\
 `Mr. Fedorov became the youthful face of Ukraine’s successful drone warfare program. The move to replace him has prompted street protests.`\
 https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-defense-minister.html
 
@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/07/16/us/politics/trump-fine-arts-commission-lafaye
 https://www.nytimes.com/2026/07/16/opinion/reading-test-scores-smartphones.html
 
 **Maps Show Where Wildfire Smoke Will Darken Skies on Thursday**\
-`Air quality in several cities reached hazardous levels on Thursday morning as smoke is expected to move across North America.`\
+`Air quality in several cities reached hazardous levels on Thursday morning as smoke was expected to move across North America.`\
 https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
 
 **The Odyssey, by Donald Trump**\

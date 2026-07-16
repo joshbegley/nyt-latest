@@ -1,3 +1,11 @@
+**The Essentials About Mykhailo Fedorov, the Ousted Ukrainian Minister**\
+`Mr. Fedorov became the youthful face of Ukraine’s successful drone warfare program. The move to replace him has prompted street protests.`\
+https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-defense-minister.html
+
+**Maps Show Where Wildfire Smoke Will Darken Skies on Thursday**\
+`Air quality in several cities reached hazardous levels on Thursday morning as smoke was expected to move across North America.`\
+https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
+
 **Corrections: July 16, 2026**\
 `Corrections that appeared in print on Thursday, July 16, 2026.`\
 https://www.nytimes.com/2026/07/16/pageoneplus/corrections-july-16-2026.html
