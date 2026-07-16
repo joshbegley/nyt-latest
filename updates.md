@@ -1,3 +1,11 @@
+**The Race for A.I. Data Centers Arrives in India**\
+`India is developing new data centers to secure a foothold in the global A.I. race. Our South Asia bureau chief, Mujib Mashal, discusses how a new Google campus’s potential use of the region’s already strained energy and water resources is creating anxiety among local residents.`\
+https://www.nytimes.com/video/world/100000011024159/the-race-for-ai-data-centers-arrives-in-india.html
+
+**India Is Moving Fast to Build A.I. Data Centers. A Coastal City May Pay the Price.**\
+`With India lagging in the technology, officials are embracing giant data centers. But critics say the megaprojects will use up energy and water, without providing long-term jobs.`\
+https://www.nytimes.com/2026/07/16/world/asia/india-ai-data-centers-google.html
+
 **Los análisis de sangre para detectar alzhéimer resultan prometedores**\
 `Nuevos estudios arrojan luz sobre cómo las pruebas podrían transformar el tratamiento de la enfermedad y la predicción del riesgo a desarrollarla en personas sanas.`\
 https://www.nytimes.com/es/2026/07/16/espanol/alzheimer-prueba-diagnostico.html
