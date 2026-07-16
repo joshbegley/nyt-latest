@@ -1,4 +1,8 @@
-**Hong Kong Police Raid Independent Bookstores and Arrest 5**\
+**Jimmy Fallon Pokes Fun at Joe Biden’s New Memoir**\
+`“It’s the second book Biden has written,” Fallon said of the former president. “The first was ‘The Odyssey.’”`\
+https://www.nytimes.com/2026/07/16/arts/television/jimmy-fallon-joe-biden-memoir-book.html
+
+**Hong Kong Police Raid Independent Bookstores and Arrest 5 People**\
 `Other booksellers have been detained in recent months as part of a broad national security crackdown.`\
 https://www.nytimes.com/2026/07/16/world/asia/hong-kong-bookstore-arrest-china.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/well/eat/cyclospora-stomach-bug-what-to-know.
 **Lemon Yogurt Cheesecake**\
 `This tart and tangy cheesecake utilizes lots of lemon zest and juice for a punchy, bright flavor, plus Greek yogurt for a smooth, light texture that is irresistible.`\
 https://www.nytimes.com/video/dining/100000011033302/lemon-yogurt-cheesecake.html
-
-**Ceviche**\
-`Light and bright, vibrant and punchy, ceviche involves marinating raw seafood in citrus juice until it becomes opaque and toothsome. This colorful rendition is one style popular in Mexico, but if you leave out the tomatoes, cucumber and avocado, you’ll get a dish that’s common in Peru, the birthplace of ceviche.`\
-https://www.nytimes.com/video/dining/100000011033277/ceviche.html
 

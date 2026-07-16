@@ -1,3 +1,11 @@
+**Jimmy Fallon Pokes Fun at Joe Biden’s New Memoir**\
+`“It’s the second book Biden has written,” Fallon said of the former president. “The first was ‘The Odyssey.’”`\
+https://www.nytimes.com/2026/07/16/arts/television/jimmy-fallon-joe-biden-memoir-book.html
+
+**Hong Kong Police Raid Independent Bookstores and Arrest 5 People**\
+`Other booksellers have been detained in recent months as part of a broad national security crackdown.`\
+https://www.nytimes.com/2026/07/16/world/asia/hong-kong-bookstore-arrest-china.html
+
 **Hong Kong Police Raid Independent Bookstores and Arrest 5**\
 `Other booksellers have been detained in recent months as part of a broad national security crackdown.`\
 https://www.nytimes.com/2026/07/16/world/asia/hong-kong-bookstore-arrest-china.html
