@@ -1,3 +1,11 @@
+**Maps: Tracking Air Quality and Smoke From Wildfires in Canada and the U.S.**\
+`See maps of where smoke is traveling and how harmful the air has become.`\
+https://www.nytimes.com/interactive/2026/weather/canada-us-wildfire-smoke-air-quality-maps.html
+
+**Warnock and Ossoff, Georgia’s Senators, Ridicule Trump’s Election Fraud Claims**\
+`Senators in both parties say the state’s 2020 Senate election is a long-settled issue.`\
+https://www.nytimes.com/2026/07/16/us/politics/georgia-senators-ossoff-warnock-trump-election-fraud.html
+
 **These Winemakers Are Starting Over. Will the Third Time Be the Charm?**\
 `Facing unanticipated problems, the owners of Southold abandoned Long Island for Texas, and Texas for France. Will success come next?`\
 https://www.nytimes.com/2026/07/16/dining/drinks/southold-wine-france.html
