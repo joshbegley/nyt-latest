@@ -1,3 +1,95 @@
+**The Only Thing Riskier Than Telling an Abortion Joke**\
+`For comedian Alison Leiby, talking about her choice to be child-free is more polarizing to audiences than anything else.`\
+https://www.nytimes.com/2026/07/16/style/alison-leiby-im-a-lot-book-comedy.html
+
+**How a Seed in Space Became a Tree in Madison Square**\
+`Seeds that flew on a NASA mission were planted, and now a sweet gum tree will be celebrated as a “moon tree” in Manhattan.`\
+https://www.nytimes.com/2026/07/16/nyregion/nasa-tree-madison-square-park.html
+
+**Duchamp Gave Up Art for Chess. At MoMA, He Inspires a New Gambit.**\
+`Susan Polgar, a chess grandmaster, will be playing 50 artists, critics and fans of Marcel Duchamp at the same time, in honor of his birthday, July 28.`\
+https://www.nytimes.com/2026/07/16/arts/design/duchamp-chess-moma.html
+
+**A Vision of a ‘Society Without Capitalism’**\
+`Can democratic socialism redeem the left without destroying capitalism?`\
+https://www.nytimes.com/video/opinion/100000011024674/a-vision-of-a-society-without-capitalism.html
+
+**9 Art Shows to Catch Before They Close This Summer**\
+`Among some must-see exhibitions are the Whitney Biennial, a Marcel Duchamp retrospective and a sprawling New Museum survey.`\
+https://www.nytimes.com/2026/07/16/arts/design/last-chance-art-shows-new-york.html
+
+**At Hudson Valley Shakespeare, a ‘King Lear’ Worth Traveling For**\
+`A beautifully observed version of a man’s final act, along with a lively staging of “As You Like It,” engage the surrounding mountains in conversation.`\
+https://www.nytimes.com/2026/07/16/theater/hudson-valley-shakespeare-king-lear-as-you-like-it.html
+
+**‘They Fight’ Review: It Might Have Been a Contender**\
+`This real-life inspired boxing drama has muscular ambitions, but too little finesse.`\
+https://www.nytimes.com/2026/07/16/movies/they-fight-review.html
+
+**‘Horsegirls’ Review: Finding Her Stride**\
+`An autistic woman finds independence by training for a hobbyhorse competition in this sweet-and-sour coming-of-age film.`\
+https://www.nytimes.com/2026/07/16/movies/horsegirls-review.html
+
+**‘The Kidnapping of Arabella’ Review: Stolen Childhoods**\
+`A disturbed young woman tries to heal her past by abducting a rebellious child in this strange and intermittently touching road movie.`\
+https://www.nytimes.com/2026/07/16/movies/the-kidnapping-of-arabella-review-stolen-childhoods.html
+
+**The Wildfire Researchers Who Burn Houses Down on Purpose**\
+`As wildfires intensify, threatening more people, a nonprofit is studying how to rethink homes and neighborhoods to prevent catastrophe.`\
+https://www.nytimes.com/interactive/2026/07/16/climate/wildfire-researchers-south-carolina-house-burning.html
+
+**Finding The Great America, 250 Years On. The Real One.**\
+`These history-rich shows at the Smithsonian museums are a culturally-representative accounting of this nation’s history, our critic says. See them before they close.`\
+https://www.nytimes.com/2026/07/16/arts/design/washington-smithsonian-museums-last-chance-review.html
+
+**Dazzling New Romance Novels**\
+`Our columnist on three of the year’s most anticipated books.`\
+https://www.nytimes.com/2026/07/16/books/review/new-romance-books.html
+
+**Townhouses: The Better Alternative for First-Time Buyers?**\
+`They can cost less to build and buy, and often are easier to maintain.`\
+https://www.nytimes.com/2026/07/16/realestate/townhouse-first-time-buyers.html
+
+**The Army Veteran Killed Outside His ‘Trump House’**\
+`Kerry Sheron could often be found waving and nodding to those who passed his home, which stood out in Escondido, Calif.`\
+https://www.nytimes.com/2026/07/16/us/army-veteran-trump-house.html
+
+**Word of the Day: equanimous**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/16/learning/word-of-the-day-equanimous.html
+
+**The Hunt for the Counterfeiter Trying to Make the Perfect Bill**\
+`On the trail of the world’s best counterfeit artists.`\
+https://www.nytimes.com/2026/07/16/magazine/counterfeit-dollars.html
+
+**My Husband Is Dying. How Do I Talk to Him About It?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who fears discussing end-of-life affairs will make her husband think she wants him gone.`\
+https://www.nytimes.com/2026/07/16/well/mind/terminal-cancer-planning.html
+
+**For Families Facing a Deadly Brain Cancer, Scientific Progress Can’t Come Soon Enough**\
+`Researchers have made important strides in understanding and treating diffuse midline gliomas, which were long seen as a death sentence for the children and adolescents they affect.`\
+https://www.nytimes.com/2026/07/16/well/pediatric-cancer-dmg-treatments.html
+
+**It’s Not Just for Rihanna. Bare That Pregnant Belly.**\
+`It’s not just Rihanna. Pregnant women are baring their bellies and opting out of traditional maternity wear.`\
+https://www.nytimes.com/2026/07/16/style/pregnancy-style-maternity-wear-rihanna.html
+
+**5 Clubs Celebrate Jazz in Los Angeles.**\
+`A new 17-day festival in August is a reminder that jazz roots run deep in Los Angeles. Here’s where to hear some of the best musicians around.`\
+https://www.nytimes.com/2026/07/16/travel/los-angeles-jazz-clubs-and-festivals.html
+
+**Book Review: ‘I Want You to Be Happy,’ by Jem Calder**\
+`Jem Calder’s novel, “I Want You to Be Happy,” follows the flailing situationship between two aspiring writers with a 12-year age gap.`\
+https://www.nytimes.com/2026/07/16/books/i-want-you-to-be-happy-jem-calder.html
+
+**Book Review: ‘Journey to Nowhere,’ by Shiva Naipaul**\
+`In “Journey to Nowhere,” Shiva Naipaul reports on the aftermath of a cult’s disastrous turn away from idealism.`\
+https://www.nytimes.com/2026/07/16/books/review/shiva-naipaul-journey-to-nowhere.html
+
+**What Can We Learn From Burning Down This House?**\
+`Wildfires are intensifying. Our climate reporter Mira Rojanasakul goes inside an unusual lab working to protect homes from the flames.`\
+https://www.nytimes.com/video/climate/100000010821861/wildfire-research-home-burn.html
+
 **Here’s Where the U.S. and Iran Have Launched Attacks as the War Escalates**\
 `The U.S. military has appeared to widen its targets in Iran, while Iran has fired at bases belonging to American allies in the Middle East.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/iran-war-us-strikes.html
@@ -7,7 +99,7 @@ https://www.nytimes.com/2026/07/16/world/middleeast/iran-war-us-strikes.html
 https://www.nytimes.com/live/2026/07/16/world/iran-war-trump-hormuz
 
 **Diesel Prices Hit $5 a Gallon Again, Up 33% Since Start of Iran War**\
-`U.S. diesel prices first surpassed $5 a gallon in March. Renewed fighting in the Persian Gulf and reduced refinery capacity is once again pushing up prices again.`\
+`U.S. diesel prices first surpassed $5 a gallon in March. Renewed fighting in the Persian Gulf and reduced refinery capacity is once again pushing up prices.`\
 https://www.nytimes.com/2026/07/16/business/diesel-prices-us-iran-war.html
 
 **Reseña de ‘La odisea’: un clásico en todo sentido**\
@@ -101,100 +193,4 @@ https://www.nytimes.com/es/2026/07/15/espanol/casos-ciclosporosis-que-hacer.html
 **How Penn Station Could Run More Trains**\
 `The Trump administration plans an $8 billion overhaul. A U.S. study recommends extending platforms and adding staircases or escalators to increase the number of trains at peak times.`\
 https://www.nytimes.com/2026/07/15/nyregion/penn-station-transportation-study.html
-
-**Fate of Blanche’s Nomination Could Rest on One Republican Senator**\
-`Senator John Cornyn, Republican of Texas, may have the deciding vote on Todd Blanche’s confirmation as attorney general. Even a single Republican “no” vote would block Mr. Blanche’s nomination, and the senator said after Wednesday’s meeting that he had not made up his mind.`\
-https://www.nytimes.com/video/us/politics/100000011032792/todd-blanche-hearing-senate.html
-
-**Trump Says He’ll Seek to Replace Immigrant Truck Drivers With Veterans**\
-`The president has pushed to curtail the commercial licenses of immigrants, including legal residents, whom he has blamed for crashes.`\
-https://www.nytimes.com/2026/07/15/us/politics/trump-immigrant-truck-drivers-veterans.html
-
-**Investigators Seek Information From Government Officials as Part of Air Force One Leak Investigation**\
-`After The New York Times reported on security concerns related to the Qatari-donated jet, the F.B.I. sought to speak with several people who flew aboard the plane with President Trump last week and asked for their phones.`\
-https://www.nytimes.com/2026/07/15/us/politics/air-force-one-lead-investigation-government-officials.html
-
-**New York Times Files Motion to Quash Subpoenas of Its Journalists**\
-`The Justice Department is seeking to compel grand jury testimony as part of an investigation into Times reporting on the president’s new Air Force One jet.`\
-https://www.nytimes.com/2026/07/15/business/media/new-york-times-subpoenas-quash.html
-
-**NextEra and Dominion File to Form a Huge Power Company**\
-`They asked regulators in three states and at a federal agency to approve a deal that would create a combined company with 10 million customers across the Southeast.`\
-https://www.nytimes.com/2026/07/15/business/nextera-dominion-regulators-filing.html
-
-**Suspect in Utah Stabbing Wanted to Kill Muslims, Court Filing Says**\
-`A Muslim man who works at a mall near Salt Lake City is hospitalized with multiple wounds. Charges have not yet been filed against the suspect, who was arrested.`\
-https://www.nytimes.com/2026/07/15/us/utah-mall-stabbing-muslim.html
-
-**For England, the World Cup Final Remains Elusive**\
-`The nation’s years of pain continue.`\
-https://www.nytimes.com/2026/07/15/world/europe/england-world-cup-loss-fans.html
-
-**FBI Evidence Team Visits Lincoln Memorial Reflecting Pool**\
-`Officials surveyed the newly drained pool, where the floor began peeling soon after a $16 million repair job. President Trump has blamed vandals.`\
-https://www.nytimes.com/2026/07/15/us/politics/fbi-reflecting-pool-evidence.html
-
-**Boat That Sank Near Alcatraz Rolled After Wave Struck, Officials Say**\
-`Rescuers described survivors trying to stay afloat in the San Francisco Bay. A brother of the boat’s owner died, and the authorities say they will end the search for the missing.`\
-https://www.nytimes.com/2026/07/15/us/alcatraz-boat-captain.html
-
-**Video Pushed Local Police to Come Clean. D.H.S. Is Ignoring the Lessons.**\
-`The agency has said little about two fatal encounters in the past week. Local police departments have learned to be forthcoming.`\
-https://www.nytimes.com/2026/07/15/us/ice-public-statements.html
-
-**Door-to-Door Search for Grapevines Sold at Costco Begins in California’s Santa Clara County**\
-`Officials in Santa Clara County began knocking on doors on Monday to collect potentially infested plants sold at some Costco stores.`\
-https://www.nytimes.com/2026/07/15/us/california-costco-plants-recall.html
-
-**Trump Administration Fires U.S. Attorney Minutes After His Appointment**\
-`Federal judges had chosen the veteran Seattle prosecutor to fill the vacant seat. Now, a potential legal battle looms.`\
-https://www.nytimes.com/2026/07/15/us/trump-fires-prosecutor-roger-rogoff.html
-
-**House Republican in Key Swing Race Discloses a Drunk-Driving Arrest**\
-`Representative Mike Lawler of New York said in a televised interview that he was arrested on St. Patrick’s Day in 2012, after learning that his father was gravely ill.`\
-https://www.nytimes.com/2026/07/15/nyregion/lawler-dui-arrest.html
-
-**G.O.P. Appears to Boost Socialist’s Primary Campaign for Wisconsin Governor**\
-`Republicans seem to view Francesca Hong as their weakest opponent in a general election. They are spending $2.2 million in an apparent attempt to aid her primary campaign.`\
-https://www.nytimes.com/2026/07/15/us/politics/republicans-francesca-hong-wisconsin-governor.html
-
-**Parents of Teen Killed During Horse Carriage Ride Plead for a Ban**\
-`The death of Romanch Mahajan appeared to have swayed a majority of New York City Council members to vote to abolish the 167-year-old horse-carriage industry in two years.`\
-https://www.nytimes.com/2026/07/15/nyregion/horse-carriage-ban-central-park.html
-
-**Maine Democrats’ Adventurous Political Experiment**\
-`The party’s leaders have a political experiment on their hands.`\
-https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-adventure.html
-
-**A Key Senator Says He Is Undecided on Trump’s Attorney General Pick**\
-`Also, the World Cup final is set. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/07/15/briefing/blanche-confirmation-hearing-cyclospora-cases.html
-
-**Iran’s Top Negotiator Signals Door to Diplomacy Is Still Open**\
-`Facing intense divisions within Iran, Gen. Mohammad Bagher Ghalibaf both struck a defiant tone and argued that diplomacy could defend Iran’s interests.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/iran-ghalibaf-us-talks.html
-
-**Hegseth Plans to Screen All Troops, Including Women, for Low Testosterone**\
-`Pete Hegseth, as defense secretary, has sought to cultivate an image as a manosphere-friendly leader.`\
-https://www.nytimes.com/2026/07/15/us/politics/hegseth-troops-testosterone.html
-
-**Democrats Question Trump’s Top Intelligence Pick Over 2020 Elections**\
-`Jay Clayton, President Trump’s nominee to lead the nation’s intelligence community, was repeatedly questioned by Democrat senators about the 2020 election during his confirmation hearing.`\
-https://www.nytimes.com/video/us/politics/100000011032536/democrats-question-trumps-top-intelligence-pick-over-2020-elections.html
-
-**PEN America Defends Israel Article That Led to President’s Resignation**\
-`A co-chief executive of the free expression group said a recent article about Israeli and Jewish writers had been “critical” to pursue.`\
-https://www.nytimes.com/2026/07/15/arts/pen-america-israel-gaza-report.html
-
-**Here Are the Maine Democrats Running to Replace Graham Platner**\
-`To win, they’ll have to convince Democrats at a July 25 convention that they’re the best candidate to take on Senator Susan Collins, a Republican.`\
-https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-candidates.html
-
-**Ukraine’s Minister of Defense, a Proponent of Drone Warfare, Steps Down**\
-`Mykhailo Fedorov announced he was leaving the ministry on Wednesday after conflicts with generals and military contractors over the role of innovative weaponry.`\
-https://www.nytimes.com/2026/07/15/world/europe/ukraine-minister-of-defense-mykhailo-fedorov-zelensky-war-russia.html
-
-**England Lost in the World Cup. They Were Always Going to Lose.**\
-`The football team, like Britain itself, is burdened by the dead weight of impossible expectations.`\
-https://www.nytimes.com/2026/07/15/opinion/england-argentina-world-cup-semifinal.html
 
