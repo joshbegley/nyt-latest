@@ -1,3 +1,15 @@
+**Wildfire Smoke Shutters Parks and Shuffles Visitors**\
+`Visitors to national parks and other public lands in the Midwest faced closures, unhealthy air quality and recommended limits on outdoor activities.`\
+https://www.nytimes.com/2026/07/16/travel/wildfire-smoke-closing-parks.html
+
+**A Test Isn’t Racist. Assumptions About Black Kids Can Be.**\
+`All students can be properly prepared to take this challenging admissions exam.`\
+https://www.nytimes.com/2026/07/16/opinion/new-york-high-school-test-racism.html
+
+**Dave Kendall, Creator and Host of MTV’s ‘120 Minutes,’ Dies at 63**\
+`With his English accent and ubiquitous leather jacket, Mr. Kendall was the face of alternative music on MTV from 1989 to 1992.`\
+https://www.nytimes.com/2026/07/16/arts/television/dave-kendall-dead-120-minutes.html
+
 **Make America Safe From Parasites Again**\
 `Cramping, vomiting and diarrhea. Is this what “Make America Healthy Again” looks like? The recent outbreak of Cyclospora, a parasite that causes a food-borne illness that’s ruining summers across the nation, has us asking: Were those cuts to public health institutions worth it? And what’s in this salad?`\
 https://www.nytimes.com/video/opinion/100000011033031/make-america-safe-from-parasites-again.html

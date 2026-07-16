@@ -1,3 +1,7 @@
+**Nueva pastilla para reducir los niveles de colesterol: lo que hay que saber**\
+`Las nuevas pastillas pueden reducir los niveles de colesterol muy por debajo de lo que se puede lograr con las estatinas, según han demostrado los ensayos clínicos.`\
+https://www.nytimes.com/es/2026/07/16/espanol/ciencia-y-tecnologia/colesterol-medicamento-pastilla.html
+
 **Wildfire Smoke Shutters Parks and Shuffles Visitors**\
 `Visitors to national parks and other public lands in the Midwest faced closures, unhealthy air quality and recommended limits on outdoor activities.`\
 https://www.nytimes.com/2026/07/16/travel/wildfire-smoke-closing-parks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-qualit
 **New Yorkers Get Squeamish About Salad Lunches Amid Parasite Outbreak**\
 `The cyclosporiasis illness, which is marked by “watery diarrhea,” has been linked to salad greens. While some diners are willing to risk it, others are turning away.`\
 https://www.nytimes.com/2026/07/16/nyregion/nyc-cyclospora-salad.html
-
-**Ken Paxton Bought 3 Utah Condos, Adding to a $9 Million Real Estate Portfolio**\
-`The Texas attorney general and his trusts now hold at least 15 properties worth about $9 million.`\
-https://www.nytimes.com/2026/07/16/us/paxton-vacation-condos-wealth.html
 
