@@ -1,3 +1,15 @@
+**Quote of the Day: Ukraine’s Next Phase: The Battle for Minds**\
+`Quotation of the Day for Thursday, July 16, 2026.`\
+https://www.nytimes.com/2026/07/16/pageoneplus/quote-of-the-day-ukraines-next-phase-the-battle-for-minds.html
+
+**Europe Wants to Break Free From American and Chinese Technology. But How?**\
+`France and Germany want to quit relying on America and China for key technology like artificial intelligence, but they’re having to choose where to do it.`\
+https://www.nytimes.com/2026/07/16/world/europe/digital-autonomy-ai.html
+
+**In Iran war, Trump Risks Another American ‘Forever War’**\
+`President Trump, who promised to “end wars,” not start them, may have fallen into a familiar presidential trap.`\
+https://www.nytimes.com/2026/07/16/world/middleeast/forever-war-trump-iran.html
+
 **Trump Administration to Impose New Tariffs on Brazil**\
 `The United States accused the country of unfair trade practices. The tariff will replace ones that the Supreme Court struck down.`\
 https://www.nytimes.com/2026/07/15/business/economy/trump-brazil-tariffs.html
