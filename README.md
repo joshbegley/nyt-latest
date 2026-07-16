@@ -1,3 +1,7 @@
+**Argentina Advances to World Cup Final, Stunning England Fans**\
+`Argentina beat England 2-1 on Wednesday to reach their second successive World Cup final, leaving one side elated and the other heartbroken.`\
+https://www.nytimes.com/video/world/americas/100000011034114/world-cup-england-argentina-fans.html
+
 **¿Toro rojo o toro azul? En esta ciudad de Brasil, mantenerse neutral no es opción**\
 `En lo profundo de la selva amazónica, una intensa rivalidad divide a una ciudad desde hace un siglo, y no tiene nada que ver con deportes ni con política.`\
 https://www.nytimes.com/es/2026/07/16/espanol/america-latina/brasil-festival-toro-amazonia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011033608/aim-by-kyle-abraham-per
 **U.S. Military Again Blockades Iranian Ports After Collapse of Cease-Fire**\
 `President Trump ordered U.S. warships and aircraft to stop vessels going to and from Iran. Enforcing a blockade takes a huge commitment of warships and aircraft.`\
 https://www.nytimes.com/2026/07/15/us/politics/us-blockade-iran.html
-
-**Almost Half of House Democrats Vote to End Aid to Israel**\
-`The measure failed, but the level of support among Democrats exposed a stark shift in the party away from backing the Jewish state.`\
-https://www.nytimes.com/2026/07/15/us/politics/democrats-house-israel-vote-aid.html
 
