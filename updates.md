@@ -1,3 +1,11 @@
+**Chloe Fineman Is Leaving ‘S.N.L.’ After 7 Seasons**\
+`The comedian and actress announced her departure as the show looks ahead to its 52nd season.`\
+https://www.nytimes.com/2026/07/16/arts/television/chloe-fineman-leaves-snl.html
+
+**Canada Wildfires: See Photos of Smoke Shrouding NYC, Toronto and More Cities**\
+`The air was hazardous, and skylines at times seemed nearly erased. The smoke will linger before finally letting up.`\
+https://www.nytimes.com/2026/07/16/us/canada-wildfire-smoke-photos-video.html
+
 **Blue Angels’ Close Beach Flyby in Florida Results in No Punishments for Pilots**\
 `The elite flying team had announced a safety review after videos posted on social media showed a fighter jet passing just above beachgoers on Wednesday.`\
 https://www.nytimes.com/2026/07/16/us/us-navy-jet-blue-angels.html

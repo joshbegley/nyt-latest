@@ -1,3 +1,7 @@
+**Chloe Fineman Is Leaving ‘S.N.L.’ After 7 Seasons**\
+`The comedian and actress announced her departure as the show looks ahead to its 52nd season.`\
+https://www.nytimes.com/2026/07/16/arts/television/chloe-fineman-leaves-snl.html
+
 **Blue Angels’ Close Beach Flyby in Florida Results in No Punishments for Pilots**\
 `The elite flying team had announced a safety review after videos posted on social media showed a fighter jet passing just above beachgoers on Wednesday.`\
 https://www.nytimes.com/2026/07/16/us/us-navy-jet-blue-angels.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/07/16/us/us-navy-jet-blue-angels.html
 `Videos of a low Blue Angels flyover at Pensacola Beach, Fla., on Wednesday show people cheering as beach items and sand blew across the beach.`\
 https://www.nytimes.com/video/us/100000011035362/blue-angels-flyover-florida.html
 
-**Wildfire Smoke Shrouds Cities and Smothers Residents**\
+**Canada Wildfires: See Photos of Smoke Shrouding NYC, Toronto and More Cities**\
 `The air was hazardous, and skylines at times seemed nearly erased. The smoke will linger before finally letting up.`\
 https://www.nytimes.com/2026/07/16/us/canada-wildfire-smoke-photos-video.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/insider/reader-questions-times-journalism.htm
 **Wildfire Smoke Causes Unhealthy Air Conditions in New York**\
 `Air quality levels were predicted to worsen through at least Thursday evening as smoke drifted south from Canada. The mayor urged people to stay inside to avoid negative health effects.`\
 https://www.nytimes.com/2026/07/16/nyregion/new-york-air-quality-wildfire-smoke.html
-
-**Paul Pelosi’s Errant Driving Record Preceded His Latest Napa Valley Crash**\
-`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, had at least eight traffic violations in one 13-year period before his crash this year, according to court records.`\
-https://www.nytimes.com/2026/07/16/us/paul-pelosi-driving-record.html
 
