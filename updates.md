@@ -1,3 +1,7 @@
+**Blazes Continue in Ontario as Officials Brace for More Evacuations**\
+`Ontario’s minister for emergency preparedness has asked the federal government for help, including potentially deploying Canadian soldiers to the affected regions.`\
+https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfires.html
+
 **Protestas en Ucrania tras la destitución del ministro de Defensa**\
 `Miles de personas salieron a las calles a demostrar su apoyo a Mykhailo Fedorov, y cuestionaron la decisión de removerlo ahora que la guerra parece volcarse a su favor.`\
 https://www.nytimes.com/es/2026/07/16/espanol/mundo/guerra-ucrania-protestas-ministro-defensa.html

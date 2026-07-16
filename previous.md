@@ -1,3 +1,7 @@
+**Blazes Continue in Ontario as Officials Brace for More Evacuations**\
+`Ontario’s minister for emergency preparedness has asked the federal government for help, including potentially deploying Canadian soldiers to the affected regions.`\
+https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfires.html
+
 **Protestas en Ucrania tras la destitución del ministro de Defensa**\
 `Miles de personas salieron a las calles a demostrar su apoyo a Mykhailo Fedorov, y cuestionaron la decisión de removerlo ahora que la guerra parece volcarse a su favor.`\
 https://www.nytimes.com/es/2026/07/16/espanol/mundo/guerra-ucrania-protestas-ministro-defensa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011034404/hong-kong-bookstore-rai
 **Anthropic Inches Toward a Mega-I.P.O.**\
 `The artificial intelligence lab is said to have taken more steps that are consistent with a company aiming to go public in the fall.`\
 https://www.nytimes.com/2026/07/16/business/dealbook/anthropic-ipo-ai.html
-
-**Google Ordered to Give A.I. Rivals More Access on Android Smartphones**\
-`The decision by European Union regulators is a response to fears that Google will use its vast Android user base to gain an edge in A.I.`\
-https://www.nytimes.com/2026/07/16/technology/google-android-ai.html
 
