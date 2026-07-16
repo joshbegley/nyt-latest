@@ -1,3 +1,7 @@
+**Argentina Triumph as World Cup Final Is Set**\
+`Messi and team defeat England and will face Spain in the tournament showpiece.`\
+https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-spain.html
+
 **ICE Ramps Back Up, With Deadly Results**\
 `Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles.`\
 https://www.nytimes.com/2026/07/16/podcasts/the-daily/ice-shootings-texas-maine.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/07/16/podcasts/the-world-cup-is-this-summers-blockb
 `The president has bypassed a review or approval process in his swift effort to build a granite helipad on the South Lawn.`\
 https://www.nytimes.com/interactive/2026/07/16/us/politics/white-house-helipad.html
 
-**Joan Sebastian Guerrero. Lorenzo Salgado Araujo. These ICE Killings Must Stop.**\
+**ICE Is Out of Control. Here’s What to Do About It.**\
 `Congress must push back against our inhumane immigration tactics.`\
 https://www.nytimes.com/2026/07/16/opinion/ice-killing-maine-houston-guerrero-araujo.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/learning/word-of-the-day-equanimous.html
 **The Hunt for the Counterfeiter Trying to Make the Perfect Bill**\
 `On the trail of the world’s best counterfeit artists.`\
 https://www.nytimes.com/2026/07/16/magazine/counterfeit-dollars.html
-
-**My Husband Is Dying. How Do I Talk to Him About It?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who fears discussing end-of-life affairs will make her husband think she wants him gone.`\
-https://www.nytimes.com/2026/07/16/well/mind/terminal-cancer-planning.html
 

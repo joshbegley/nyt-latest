@@ -1,3 +1,11 @@
+**Argentina Triumph as World Cup Final Is Set**\
+`Messi and team defeat England and will face Spain in the tournament showpiece.`\
+https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-spain.html
+
+**ICE Is Out of Control. Here’s What to Do About It.**\
+`Congress must push back against our inhumane immigration tactics.`\
+https://www.nytimes.com/2026/07/16/opinion/ice-killing-maine-houston-guerrero-araujo.html
+
 **ICE Ramps Back Up, With Deadly Results**\
 `Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles.`\
 https://www.nytimes.com/2026/07/16/podcasts/the-daily/ice-shootings-texas-maine.html
