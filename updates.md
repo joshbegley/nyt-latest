@@ -1,3 +1,7 @@
+**Mamdani Urges New Yorkers to Stay Indoors Because of Wildfire Smoke**\
+`“Every New Yorker should take precautions,” Mayor Zohran Mamdani said. Gov. Kathy Hochul also issued a statewide air quality advisory.`\
+https://www.nytimes.com/2026/07/16/us/mamdani-nyc-wildfire-smoke-aqi.html
+
 **Air Quality is at ‘Hazardous’ Levels. What Does That Mean for Health?**\
 `People exposed to smoke spreading from Canadian wildfires are at risk of a wide range of health problems.`\
 https://www.nytimes.com/2026/07/16/weather/hazardous-aqi-health-risks.html
