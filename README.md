@@ -1,3 +1,7 @@
+**Republican Candidates Are Hurting for Cash, but Help May Be on the Way**\
+`Super PACs and billionaires seem to be on the side of the G.O.P., new filings show.`\
+https://www.nytimes.com/2026/07/16/us/politics/republicans-democrats-midterms-fundraising-takeaways.html
+
 **Isabelle Huppert Speaks Across a Language Divide at the Avignon Festival**\
 `A stripped-back, cross-cultural reading with the Korean star Lee Hye-young at the Avignon Festival brought out a rare softness in the French actress.`\
 https://www.nytimes.com/2026/07/16/theater/avignon-festival-han-kang-isabelle-huppert-lee-hye-young.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/opinion/reading-test-scores-smartphones.html
 **Maps Show Where Wildfire Smoke Will Darken Skies on Thursday**\
 `Air quality in several cities reached hazardous levels on Thursday morning as smoke was expected to move across North America.`\
 https://www.nytimes.com/2026/07/16/weather/canada-wildfire-smoke-us.html
-
-**The Odyssey, by Donald Trump**\
-`The president lacks not only a coherent strategic concept but an elementary understanding of what strategy is.`\
-https://www.nytimes.com/2026/07/16/opinion/iran-trump-graham-odyssey.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

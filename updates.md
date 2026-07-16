@@ -1,3 +1,7 @@
+**Isabelle Huppert Speaks Across a Language Divide at the Avignon Festival**\
+`A stripped-back, cross-cultural reading with the Korean star Lee Hye-young at the Avignon Festival brought out a rare softness in the French actress.`\
+https://www.nytimes.com/2026/07/16/theater/avignon-festival-han-kang-isabelle-huppert-lee-hye-young.html
+
 **Democratic Senate Candidates Trounce Republicans in Fund-Raising**\
 `In the first half of this year, Democrats raised more cash in every key Senate race except Iowa.`\
 https://www.nytimes.com/2026/07/16/us/politics/senate-midterm-elections-fundraising.html
