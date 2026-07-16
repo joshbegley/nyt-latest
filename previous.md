@@ -1,3 +1,7 @@
+**Teddy’s Place**\
+`A visit to the Theodore Roosevelt Presidential Library.`\
+https://www.nytimes.com/2026/07/16/briefing/theodore-roosevelt-presidential-library-visit.html
+
 **The F.D.A. Approves a New Pill to Slash Cholesterol Levels**\
 `The new pills can lower cholesterol levels far below what can be achieved with statins, clinical trials have shown.`\
 https://www.nytimes.com/2026/07/16/science/the-fda-approves-a-new-pill-to-slash-cholesterol-levels.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/16/climate/wildfire-researchers-sout
 **Finding The Great America, 250 Years On. The Real One.**\
 `These history-rich shows at the Smithsonian museums are a culturally-representative accounting of this nation’s history, our critic says. See them before they close.`\
 https://www.nytimes.com/2026/07/16/arts/design/washington-smithsonian-museums-last-chance-review.html
-
-**Dazzling New Romance Novels**\
-`Our columnist on three of the year’s most anticipated books.`\
-https://www.nytimes.com/2026/07/16/books/review/new-romance-books.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

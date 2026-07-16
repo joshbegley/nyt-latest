@@ -1,3 +1,7 @@
+**Teddy’s Place**\
+`A visit to the Theodore Roosevelt Presidential Library.`\
+https://www.nytimes.com/2026/07/16/briefing/theodore-roosevelt-presidential-library-visit.html
+
 **The F.D.A. Approves a New Pill to Slash Cholesterol Levels**\
 `The new pills can lower cholesterol levels far below what can be achieved with statins, clinical trials have shown.`\
 https://www.nytimes.com/2026/07/16/science/the-fda-approves-a-new-pill-to-slash-cholesterol-levels.html
