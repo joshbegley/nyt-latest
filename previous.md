@@ -1,3 +1,7 @@
+**Akihiro Miwa, Actor and Singer With Gender-Fluid Glamour, Dies at 91**\
+`In Japan, he was one of the first androgynous pop-culture stars and an inspirational figure. Abroad, he was known for his work in animated films by Hayao Miyazaki.`\
+https://www.nytimes.com/2026/07/16/movies/akihiro-miwa-dead.html
+
 **Who Is Ahead in Florida's 14th Congressional District?**\
 `Track the latest polls in Florida's 14th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-14-polls-2026.html
@@ -124,7 +128,7 @@ https://www.nytimes.com/2026/07/16/opinion/iran-trump-graham-odyssey.html
 
 **‘Put It on My Tab’: The New York Restaurants With House Accounts**\
 `Plus: a vacation house in Normandy, sorrel dishes in Istanbul and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/07/16/t-magazine/house-accounts-nyc-restaurants.html
+https://www.nytimes.com/2026/07/16/t-magazine/house-accounts-tab-nyc-restaurants.html
 
 **Copa Mundial 2026: así asisten los ultrarricos a los partidos**\
 `Mientras miles de aficionados hacen largas filas, los helicópteros saturan los cielos de los Hamptons para transportar a los más adinerados hasta los partidos.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/arts/music/ted-huffman-aix-en-provence-festiv
 **The Only Thing Riskier Than Telling an Abortion Joke**\
 `For comedian Alison Leiby, talking about her choice to be child-free is more polarizing to audiences than anything else.`\
 https://www.nytimes.com/2026/07/16/style/alison-leiby-im-a-lot-book-comedy.html
-
-**How a Seed in Space Became a Tree in Madison Square**\
-`Seeds that flew on a NASA mission were planted, and now a sweet gum tree will be celebrated as a “moon tree” in Manhattan.`\
-https://www.nytimes.com/2026/07/16/nyregion/nasa-tree-madison-square-park.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\

@@ -1,3 +1,11 @@
+**Akihiro Miwa, Actor and Singer With Gender-Fluid Glamour, Dies at 91**\
+`In Japan, he was one of the first androgynous pop-culture stars and an inspirational figure. Abroad, he was known for his work in animated films by Hayao Miyazaki.`\
+https://www.nytimes.com/2026/07/16/movies/akihiro-miwa-dead.html
+
+**‘Put It on My Tab’: The New York Restaurants With House Accounts**\
+`Plus: a vacation house in Normandy, sorrel dishes in Istanbul and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/07/16/t-magazine/house-accounts-tab-nyc-restaurants.html
+
 **Who Is Ahead in Florida's 14th Congressional District?**\
 `Track the latest polls in Florida's 14th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-14-polls-2026.html
