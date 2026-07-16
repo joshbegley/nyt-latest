@@ -1,3 +1,7 @@
+**Netflix Revenue Grows 13% to $12.6 Billion**\
+`The company’s second-quarter earnings were largely in line with Wall Street’s expectations.`\
+https://www.nytimes.com/2026/07/16/business/media/netflix-earnings.html
+
 **Tom Kean Is Back in Congress but Still Isn’t Talking**\
 `Mr. Kean, a New Jersey Republican who was absent from Congress while being treated for depression, has since appeared at few campaign events and declined interview requests.`\
 https://www.nytimes.com/2026/07/16/nyregion/tom-kean-campaign.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/us/politics/senate-midterm-elections-fundrais
 **¿Qué revela la bandera sobre las Malvinas de la selección de Argentina?**\
 `Argentina y el Reino Unido libraron una guerra por las islas Malvinas en 1982. Décadas después, la disputa sigue impregnando los partidos entre Inglaterra y Argentina.`\
 https://www.nytimes.com/es/2026/07/16/espanol/america-latina/argentina-malvinas-bandera-inglaterra-mundial.html
-
-**Today, In Short**\
-`World Cup. Twitter. And a meteorite.`\
-https://www.nytimes.com/2026/07/16/briefing/today-in-short.html
 
