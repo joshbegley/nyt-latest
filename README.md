@@ -1,3 +1,7 @@
+**Iranian American Woman Held in Iran on Spying Charges Is Released**\
+`The dual Iranian-U.S. citizen, Dena Karari, had her passport seized in December 2024 and had not been able to leave Iran as she faced espionage charges.`\
+https://www.nytimes.com/2026/07/15/world/middleeast/iran-american-released-trump.html
+
 **Los casos de ciclosporosis van en aumento. Esto es lo que debes saber**\
 `El parásito ha enfermado a miles de personas en todo Estados Unidos. Los expertos tienen consejos sobre cómo protegerte del brote.`\
 https://www.nytimes.com/es/2026/07/15/espanol/casos-ciclosporosis-que-hacer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/technology/apple-lawsuit-child-sexual-abuse-d
 **Everybody Loves Cheese. Why Is Selling It So Hard These Days?**\
 `Cheesemongering is a calling, requiring deep expertise and longstanding relationships, but today’s retail environment is making it more and more difficult.`\
 https://www.nytimes.com/2026/07/15/dining/cheesemonger-jobs.html
-
-**Inside Maine Democrats’ Search for a New Senate Nominee After Graham Platner’s Exit**\
-`Democratic candidates are hastily building bare-bones campaigns and forgoing traditional outreach like TV ads in a sprint to appeal to party delegates, rather than Maine voters.`\
-https://www.nytimes.com/2026/07/15/us/politics/maine-democrats-senate-convention.html
 
