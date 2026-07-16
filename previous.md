@@ -1,3 +1,7 @@
+**Diesel Prices Hit $5 a Gallon Again, Up 33% Since Start of Iran War**\
+`U.S. diesel prices first surpassed $5 a gallon in March. Renewed fighting in the Persian Gulf and reduced refinery capacity is once again pushing up prices again.`\
+https://www.nytimes.com/2026/07/16/business/diesel-prices-us-iran-war.html
+
 **Reseña de ‘La odisea’: un clásico en todo sentido**\
 `La película de Christopher Nolan logra algo inusual: conciliar el cine de autor con el cine comercial, envuelto en el encanto del viejo Hollywood.`\
 https://www.nytimes.com/es/2026/07/16/espanol/cultura/resena-odisea-christopher-nolan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/15/world/africa/guy-scott-dead.html
 **Is Grunge ... Back?**\
 `The grunge track “Freakin’ Out” by Dexter and the Moonrocks has been quietly climbing the charts and racking up millions of streams. Our music critic Jon Caramanica breaks down how the song, with its raw vocals and instrumentation, calls back to ’90s and 2000s radio rock.`\
 https://www.nytimes.com/video/podcasts/100000011033313/is-grunge-back.html
-
-**Will Iran Be a Forever War?**\
-`President Trump may have fallen into the same trap that his predecessors did in Iraq and Afghanistan. Our chief diplomatic correspondent explains why.`\
-https://www.nytimes.com/2026/07/15/world/iran-us-war-china-world-cup.html
 

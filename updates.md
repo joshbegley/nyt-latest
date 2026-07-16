@@ -1,3 +1,7 @@
+**Diesel Prices Hit $5 a Gallon Again, Up 33% Since Start of Iran War**\
+`U.S. diesel prices first surpassed $5 a gallon in March. Renewed fighting in the Persian Gulf and reduced refinery capacity is once again pushing up prices again.`\
+https://www.nytimes.com/2026/07/16/business/diesel-prices-us-iran-war.html
+
 **Europe Finds It Hard to Break Up With American and Chinese Technology**\
 `France and Germany want to quit relying on America and China for key technology like artificial intelligence, but they’re having to choose where to do it.`\
 https://www.nytimes.com/2026/07/16/world/europe/digital-autonomy-ai.html
