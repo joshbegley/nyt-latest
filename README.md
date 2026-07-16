@@ -1,3 +1,7 @@
+**Hong Kong Police Raid Independent Bookstores and Arrest 5**\
+`Other booksellers have been detained in recent months as part of a broad national security crackdown.`\
+https://www.nytimes.com/2026/07/16/world/asia/hong-kong-bookstore-arrest-china.html
+
 **The Race for A.I. Data Centers Arrives in India**\
 `India is developing new data centers to secure a foothold in the global A.I. race. Our South Asia bureau chief, Mujib Mashal, discusses how a new Google campus’s potential use of the region’s already strained energy and water resources is creating anxiety among local residents.`\
 https://www.nytimes.com/video/world/100000011024159/the-race-for-ai-data-centers-arrives-in-india.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011033302/lemon-yogurt-cheesecake.htm
 **Ceviche**\
 `Light and bright, vibrant and punchy, ceviche involves marinating raw seafood in citrus juice until it becomes opaque and toothsome. This colorful rendition is one style popular in Mexico, but if you leave out the tomatoes, cucumber and avocado, you’ll get a dish that’s common in Peru, the birthplace of ceviche.`\
 https://www.nytimes.com/video/dining/100000011033277/ceviche.html
-
-**U.S. and Iran Trade Strikes With No Sign of Backing Down**\
-`On the fifth straight day of fighting, the U.S. launched a 90-minute attack on Iran, while Tehran targeted Bahrain, Jordan and Kuwait.`\
-https://www.nytimes.com/2026/07/15/world/middleeast/iran-us-strikes-war.html
 
