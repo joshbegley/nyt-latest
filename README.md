@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-wa
 https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
 
 **Live Updates: Wildfire Smoke Chokes Skies Across Swath of U.S. and Canada**\
-`A strip of dense smoke from Canadian wildfires, combined with extreme heat, has pushed air quality to unhealthy levels in multiple states. Officials encouraged people in cities, including New York, to stay indoors.`\
+`A strip of dense smoke combined with extreme heat has pushed air quality to unhealthy levels. Officials encouraged people in cities, including New York, to stay indoors.`\
 https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
 
 **New Yorkers Get Squeamish About Salad Lunches Amid Parasite Outbreak**\

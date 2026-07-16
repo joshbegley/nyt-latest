@@ -1,3 +1,19 @@
+**White House Faces Stiff Pushback on Subjecting Grants to Political Review**\
+`Academics, city leaders and congressional lawmakers number among the thousands to urge the Trump administration to reconsider a plan to assert more control over grants.`\
+https://www.nytimes.com/2026/07/16/us/politics/white-house-federal-grants-political-review.html
+
+**National Academies Report Backs Climate Change Attribution Science**\
+`Attribution science is advancing quickly, researchers said. That could support lawsuits seeking damages for severe events worsened by global warming.`\
+https://www.nytimes.com/2026/07/16/climate/national-academies-extreme-weather-attribution.html
+
+**Gochujang-Glazed Eggplant, Always**\
+`Make this reader-favorite, five-star recipe from Eric Kim on repeat all summer. (I do.)`\
+https://www.nytimes.com/2026/07/16/dining/gochujang-glazed-eggplant-always.html
+
+**Trump’s Election Denial Has Never Been More Dangerous**\
+`Don’t fall for dramatic claims based on selective declassification.`\
+https://www.nytimes.com/2026/07/16/opinion/trump-speech-election-denial-voting.html
+
 **Inflation Respite Gives More Consumers a Chance to Spend**\
 `Lower gas prices have been a relief for households struggling with higher living costs. But now they are creeping higher again.`\
 https://www.nytimes.com/2026/07/16/business/consumers-spending-retail-sales.html
