@@ -1,3 +1,7 @@
+**German Man Accused of Drugging and Filming the Rape of 14 Women**\
+`The case has drawn comparisons to the Pelicot trial in France, which started a discussion across Europe about sexual assault and consent.`\
+https://www.nytimes.com/2026/07/16/world/europe/german-man-rape-case.html
+
 **Protests Breakout Across Ukraine in Support of Ousted Defense Minister**\
 `Mass protests erupted across Ukraine after the dismissal of its 35-year-old defense minister, Mykhailo Fedorov, who had become a symbol of his country’s recently energized drone campaign against Russia.`\
 https://www.nytimes.com/video/world/europe/100000011034468/ukraine-protests-fedorov-zelensky.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/crosswords/wordle-review-1854.html
 **The Essentials About Mykhailo Fedorov, the Ousted Ukrainian Minister**\
 `Mr. Fedorov became the youthful face of Ukraine’s successful drone warfare program. The move to replace him has prompted street protests.`\
 https://www.nytimes.com/2026/07/16/world/europe/who-mykhailo-fedorov-ukraine-defense-minister.html
-
-**NYT Strands Hints for July 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 17, 2026.`\
-https://www.nytimes.com/2026/07/16/crosswords/strands-sidekick-866.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
