@@ -1,3 +1,11 @@
+**These Winemakers Are Starting Over. Will the Third Time Be the Charm?**\
+`Facing unanticipated problems, the owners of Southold abandoned Long Island for Texas, and Texas for France. Will success come next?`\
+https://www.nytimes.com/2026/07/16/dining/drinks/southold-wine-france.html
+
+**White House Teleprompter Operator Bet on Trump Speeches, Kalshi Says**\
+`A technical assistant to President Trump won around $100,000, according to the prediction market, which flagged the activity to the federal government.`\
+https://www.nytimes.com/2026/07/16/technology/teleprompter-operator-kalshi-trump-speeches.html
+
 **Settlement Reached in Ugly Fight Over Elections in Maricopa County**\
 `A Trump ally will receive funding for a new information technology system while retaining control of voter registration and early voting.`\
 https://www.nytimes.com/2026/07/16/us/elections/maricopa-county-elections-settlement.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/07/16/world/africa/netflix-the-polygamist-south-afr
 `A civil-rights investigation, which grew out of a 26-page memo by a political appointee, provides a road map for the White House’s assault on D.E.I.`\
 https://www.nytimes.com/2026/07/16/us/politics/nike-dei-trump-eeoc.html
 
-**Maker of Drone Boats Used in Iran War Will Open New Texas Shipyard**\
-`Saronic Technologies will make naval and commercial vessels at the facility. The company’s naval drone helped rescue the crew of a downed Apache helicopter last month.`\
-https://www.nytimes.com/2026/07/16/business/maker-of-drone-boats-used-in-iran-war-to-open-new-texas-shipyard.html
-
-**Highway Executive Given 12-Year Sentence Over Deadly Bridge Collapse in Italy**\
-`Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
-https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
-
-**Live Updates: Wildfire Smoke Pushes Air Quality to Dangerous Levels for Millions**\
-`Dense smoke from Canadian wildfires is choking a vast stretch of the Northeast and Upper Midwest. Officials encouraged residents, including in New York, to stay indoors.`\
-https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
+**Trump Administration Live Updates: President to Speak on Election Security**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/16/us/trump-news
 

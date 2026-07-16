@@ -1,3 +1,7 @@
+**Settlement Reached in Ugly Fight Over Elections in Maricopa County**\
+`A Trump ally will receive funding for a new information technology system while retaining control of voter registration and early voting.`\
+https://www.nytimes.com/2026/07/16/us/elections/maricopa-county-elections-settlement.html
+
 **Nueva pastilla para reducir los niveles de colesterol: lo que hay que saber**\
 `Las nuevas pastillas pueden reducir los niveles de colesterol muy por debajo de lo que se puede lograr con las estatinas, según han demostrado los ensayos clínicos.`\
 https://www.nytimes.com/es/2026/07/16/espanol/ciencia-y-tecnologia/colesterol-medicamento-pastilla.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/07/16/opinion/new-york-high-school-test-racism.html
 
 **Dave Kendall, Creator and Host of MTV’s ‘120 Minutes,’ Dies at 63**\
 `With his English accent and ubiquitous leather jacket, Mr. Kendall was the face of alternative music on MTV from 1989 to 1992.`\
-https://www.nytimes.com/2026/07/16/arts/television/dave-kendall-dead-120-minutes.html
+https://www.nytimes.com/2026/07/16/arts/television/dave-kendall-dead.html
 
 **Make America Safe From Parasites Again**\
 `Cramping, vomiting and diarrhea. Is this what “Make America Healthy Again” looks like? The recent outbreak of Cyclospora, a parasite that causes a food-borne illness that’s ruining summers across the nation, has us asking: Were those cuts to public health institutions worth it? And what’s in this salad?`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-col
 **Live Updates: Wildfire Smoke Pushes Air Quality to Dangerous Levels for Millions**\
 `Dense smoke from Canadian wildfires is choking a vast stretch of the Northeast and Upper Midwest. Officials encouraged residents, including in New York, to stay indoors.`\
 https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
-
-**New Yorkers Get Squeamish About Salad Lunches Amid Parasite Outbreak**\
-`The cyclosporiasis illness, which is marked by “watery diarrhea,” has been linked to salad greens. While some diners are willing to risk it, others are turning away.`\
-https://www.nytimes.com/2026/07/16/nyregion/nyc-cyclospora-salad.html
 

@@ -1,3 +1,11 @@
+**Settlement Reached in Ugly Fight Over Elections in Maricopa County**\
+`A Trump ally will receive funding for a new information technology system while retaining control of voter registration and early voting.`\
+https://www.nytimes.com/2026/07/16/us/elections/maricopa-county-elections-settlement.html
+
+**Dave Kendall, Creator and Host of MTV’s ‘120 Minutes,’ Dies at 63**\
+`With his English accent and ubiquitous leather jacket, Mr. Kendall was the face of alternative music on MTV from 1989 to 1992.`\
+https://www.nytimes.com/2026/07/16/arts/television/dave-kendall-dead.html
+
 **Nueva pastilla para reducir los niveles de colesterol: lo que hay que saber**\
 `Las nuevas pastillas pueden reducir los niveles de colesterol muy por debajo de lo que se puede lograr con las estatinas, según han demostrado los ensayos clínicos.`\
 https://www.nytimes.com/es/2026/07/16/espanol/ciencia-y-tecnologia/colesterol-medicamento-pastilla.html
