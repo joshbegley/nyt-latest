@@ -1,3 +1,11 @@
+**How Todd Blanche Made the Justice Dept. Less Independent**\
+`Our Justice Department reporter Devlin Barrett describes how Todd Blanche, President Trump’s former personal lawyer and current nominee for attorney general, has helped Mr. Trump gain more control over the Justice Department.`\
+https://www.nytimes.com/video/us/politics/100000011024954/how-todd-blanche-made-the-justice-dept-less-independent.html
+
+**Summer Tastes Like Mango (and Vice Versa)**\
+`Three ways to maximize your mango-eating across three New York City boroughs.`\
+https://www.nytimes.com/2026/07/16/dining/best-mango-dishes.html
+
 **Burning Houses to Save Houses**\
 `We visited researchers seeking ways to make homes safer. They set a lot of fires.`\
 https://www.nytimes.com/2026/07/16/climate/burning-houses-to-save-houses.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/us/politics/white-house-federal-grants-politi
 **National Academies Report Backs Climate Change Attribution Science**\
 `Attribution science is advancing quickly, researchers said. That could support lawsuits seeking damages for severe events worsened by global warming.`\
 https://www.nytimes.com/2026/07/16/climate/national-academies-extreme-weather-attribution.html
-
-**Gochujang-Glazed Eggplant, Always**\
-`Make this reader-favorite, five-star recipe from Eric Kim on repeat all summer. (I do.)`\
-https://www.nytimes.com/2026/07/16/dining/gochujang-glazed-eggplant-always.html
-
-**Trump’s Election Denial Has Never Been More Dangerous**\
-`Don’t fall for dramatic claims based on selective declassification.`\
-https://www.nytimes.com/2026/07/16/opinion/trump-speech-election-denial-voting.html
 
