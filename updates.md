@@ -1,3 +1,7 @@
+**How Penn Station Could Run More Trains**\
+`The Trump administration plans an $8 billion overhaul. A U.S. study recommends extending platforms and adding staircases or escalators to increase the number of trains at peak times.`\
+https://www.nytimes.com/2026/07/15/nyregion/penn-station-transportation-study.html
+
 **Fate of Blanche’s Nomination Could Rest on One Republican Senator**\
 `Senator John Cornyn, Republican of Texas, may have the deciding vote on Todd Blanche’s confirmation as attorney general. Even a single Republican “no” vote would block Mr. Blanche’s nomination, and the senator said after Wednesday’s meeting that he had not made up his mind.`\
 https://www.nytimes.com/video/us/politics/100000011032792/todd-blanche-hearing-senate.html
