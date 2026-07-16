@@ -1,3 +1,15 @@
+**These Winemakers Are Starting Over. Will the Third Time Be the Charm?**\
+`Facing unanticipated problems, the owners of Southold abandoned Long Island for Texas, and Texas for France. Will success come next?`\
+https://www.nytimes.com/2026/07/16/dining/drinks/southold-wine-france.html
+
+**White House Teleprompter Operator Bet on Trump Speeches, Kalshi Says**\
+`A technical assistant to President Trump won around $100,000, according to the prediction market, which flagged the activity to the federal government.`\
+https://www.nytimes.com/2026/07/16/technology/teleprompter-operator-kalshi-trump-speeches.html
+
+**Trump Administration Live Updates: President to Speak on Election Security**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/16/us/trump-news
+
 **Settlement Reached in Ugly Fight Over Elections in Maricopa County**\
 `A Trump ally will receive funding for a new information technology system while retaining control of voter registration and early voting.`\
 https://www.nytimes.com/2026/07/16/us/elections/maricopa-county-elections-settlement.html
