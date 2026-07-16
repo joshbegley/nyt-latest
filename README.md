@@ -1,3 +1,7 @@
+**TSMC Adds $100 Billion to Its U.S. Spending Plan**\
+`The pledge from the Taiwanese chip-making giant brought the total commitment to its fast-growing operations in Arizona to $265 billion.`\
+https://www.nytimes.com/2026/07/16/business/tsmc-chips-investment-arizona.html
+
 **‘A Million Men With Kalashnikovs Are Dangerous’**\
 `A Q&A with Kori Schake on the Russia-Ukraine war.`\
 https://www.nytimes.com/2026/07/16/opinion/russia-ukraine-putin-zelensky.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/07/16/world/iran-war-trump-hormuz
 **Diesel Prices Hit $5 a Gallon Again, Up 33% Since Start of Iran War**\
 `U.S. diesel prices first surpassed $5 a gallon in March. Renewed fighting in the Persian Gulf and reduced refinery capacity is once again pushing up prices.`\
 https://www.nytimes.com/2026/07/16/business/diesel-prices-us-iran-war.html
-
-**Reseña de ‘La odisea’: un clásico en todo sentido**\
-`La película de Christopher Nolan logra algo inusual: conciliar el cine de autor con el cine comercial, envuelto en el encanto del viejo Hollywood.`\
-https://www.nytimes.com/es/2026/07/16/espanol/cultura/resena-odisea-christopher-nolan.html
 
