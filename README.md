@@ -1,3 +1,15 @@
+**Google Ordered to Give A.I. Rivals More Access on Android Smartphones**\
+`The decision by European Union regulators is a response to fears that Google will use its vast Android user base to gain an edge in A.I.`\
+https://www.nytimes.com/2026/07/16/technology/google-ordered-to-give-ai-rivals-more-access-on-android-smartphones.html
+
+**As Argentina Holds Up Falklands Banner on Defeating England, Here’s What to Know About the War**\
+`Argentina and Britain fought a bloody war over the islands in 1982. Decades later, the dispute suffuses matches between England and Argentina.`\
+https://www.nytimes.com/2026/07/16/world/americas/falklands-malvinas-england-argentina-war.html
+
+**Can a Pro-Israel Democrat Still Win a Big Primary? She’s Going to Try.**\
+`To prevail in Michigan’s crucial Senate primary, Representative Haley Stevens will need to overcome Democratic voters’ skepticism of Israel. Pro-Israel groups are spending heavily to help her.`\
+https://www.nytimes.com/2026/07/16/us/politics/haley-stevens-michigan-senate-israel-aipac.html
+
 **Teddy’s Place**\
 `A visit to the Theodore Roosevelt Presidential Library.`\
 https://www.nytimes.com/2026/07/16/briefing/theodore-roosevelt-presidential-library-visit.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/16/movies/they-fight-review.html
 **‘Horsegirls’ Review: Finding Her Stride**\
 `An autistic woman finds independence by training for a hobbyhorse competition in this sweet-and-sour coming-of-age film.`\
 https://www.nytimes.com/2026/07/16/movies/horsegirls-review.html
-
-**‘The Kidnapping of Arabella’ Review: Stolen Childhoods**\
-`A disturbed young woman tries to heal her past by abducting a rebellious child in this strange and intermittently touching road movie.`\
-https://www.nytimes.com/2026/07/16/movies/the-kidnapping-of-arabella-review-stolen-childhoods.html
-
-**The Wildfire Researchers Who Burn Houses Down on Purpose**\
-`As wildfires intensify, threatening more people, a nonprofit is studying how to rethink homes and neighborhoods to prevent catastrophe.`\
-https://www.nytimes.com/interactive/2026/07/16/climate/wildfire-researchers-south-carolina-house-burning.html
-
-**Finding The Great America, 250 Years On. The Real One.**\
-`These history-rich shows at the Smithsonian museums are a culturally-representative accounting of this nation’s history, our critic says. See them before they close.`\
-https://www.nytimes.com/2026/07/16/arts/design/washington-smithsonian-museums-last-chance-review.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
