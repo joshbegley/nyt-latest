@@ -1,3 +1,7 @@
+**This City Has Some of the Worst Air in the United States**\
+`In Toledo, Ohio, parks are largely empty and some people are wearing masks.`\
+https://www.nytimes.com/2026/07/16/weather/toledo-ohio-air-quality-index.html
+
 **Republican Senator Thom Tillis Demands Todd Blanche Meet With Epstein Survivors**\
 `Senator Thom Tillis of North Carolina made the stipulation during a Senate Judiciary Committee hearing on Thursday for witnesses to discuss Mr. Blanche’s nomination.`\
 https://www.nytimes.com/2026/07/16/us/politics/todd-blanche-attorney-general-epstein.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/16/podcasts/argentina-triumph-world-cup-final-sp
 **ICE Ramps Back Up, With Deadly Results**\
 `Agents fatally shot a man in Houston and another in coastal Maine, both in their vehicles.`\
 https://www.nytimes.com/2026/07/16/podcasts/the-daily/ice-shootings-texas-maine.html
-
-**Wildfire Smoke Turns Skies Orange Across the U.S., and Democrats Make a Big Shift on Israel**\
-`Plus, why Gen Z is turning to trade schools.`\
-https://www.nytimes.com/2026/07/16/podcasts/the-headlines/wildfire-smoke-democrats-israel.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
