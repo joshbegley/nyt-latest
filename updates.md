@@ -1,3 +1,7 @@
+**TSMC Adds $100 Billion to Its U.S. Spending Plan**\
+`The pledge from the Taiwanese chip-making giant brought the total commitment to its fast-growing operations in Arizona to $265 billion.`\
+https://www.nytimes.com/2026/07/16/business/tsmc-chips-investment-arizona.html
+
 **‘A Million Men With Kalashnikovs Are Dangerous’**\
 `A Q&A with Kori Schake on the Russia-Ukraine war.`\
 https://www.nytimes.com/2026/07/16/opinion/russia-ukraine-putin-zelensky.html
