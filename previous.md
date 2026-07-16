@@ -1,3 +1,11 @@
+**Fate of Blanche’s Nomination Could Rest on One Republican Senator**\
+`Senator John Cornyn, Republican of Texas, may have the deciding vote on Todd Blanche’s confirmation as attorney general. Even a single Republican “no” vote would block Mr. Blanche’s nomination, and the senator said after Wednesday’s meeting that he had not made up his mind.`\
+https://www.nytimes.com/video/us/politics/100000011032792/todd-blanche-hearing-senate.html
+
+**Trump Says He’ll Seek to Replace Immigrant Truck Drivers With Veterans**\
+`The president has pushed to curtail the commercial licenses of immigrants, including legal residents, whom he has blamed for crashes.`\
+https://www.nytimes.com/2026/07/15/us/politics/trump-immigrant-truck-drivers-veterans.html
+
 **Investigators Seek Information From Government Officials as Part of Air Force One Leak Investigation**\
 `After The New York Times reported on security concerns related to the Qatari-donated jet, the F.B.I. sought to speak with several people who flew aboard the plane with President Trump last week and asked for their phones.`\
 https://www.nytimes.com/2026/07/15/us/politics/air-force-one-lead-investigation-government-officials.html
@@ -23,7 +31,7 @@ https://www.nytimes.com/2026/07/15/world/europe/england-world-cup-loss-fans.html
 https://www.nytimes.com/2026/07/15/us/politics/fbi-reflecting-pool-evidence.html
 
 **Boat That Sank Near Alcatraz Rolled After Wave Struck, Officials Say**\
-`The accident in the San Francisco Bay on Tuesday led to the death of the boat owner’s brother. The authorities say they plan to end the search for three people still missing.`\
+`Rescuers described survivors trying to stay afloat in the San Francisco Bay. A brother of the boat’s owner died, and the authorities say they will end the search for the missing.`\
 https://www.nytimes.com/2026/07/15/us/alcatraz-boat-captain.html
 
 **Video Pushed Local Police to Come Clean. D.H.S. Is Ignoring the Lessons.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/15/espanol/negocios/twitter-x-20-anos.html
 **F.B.I. Searches Houston ICE Shooting Van for Drugs**\
 `Federal investigators believe illegal drugs were inside the vehicle, though the immigration agents involved in the encounter do not appear to have known that.`\
 https://www.nytimes.com/2026/07/15/us/fbi-search-drugs-houston-ice-shooting.html
-
-**Tiny Love Stories: ‘How to Woo Her?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/07/15/style/tiny-modern-love-stories-how-to-woo-her.html
-
-**Kevin O’Leary Is Sued by Opponents He Claimed Were Foreign Agents**\
-`Kevin O’Leary, the celebrity investor, accused opponents of his proposed data center near the Great Salt Lake of being agents of China. Now they want compensation.`\
-https://www.nytimes.com/2026/07/15/us/kevin-oleary-data-center-lawsuit.html
 

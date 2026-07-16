@@ -1,3 +1,15 @@
+**Fate of Blanche’s Nomination Could Rest on One Republican Senator**\
+`Senator John Cornyn, Republican of Texas, may have the deciding vote on Todd Blanche’s confirmation as attorney general. Even a single Republican “no” vote would block Mr. Blanche’s nomination, and the senator said after Wednesday’s meeting that he had not made up his mind.`\
+https://www.nytimes.com/video/us/politics/100000011032792/todd-blanche-hearing-senate.html
+
+**Trump Says He’ll Seek to Replace Immigrant Truck Drivers With Veterans**\
+`The president has pushed to curtail the commercial licenses of immigrants, including legal residents, whom he has blamed for crashes.`\
+https://www.nytimes.com/2026/07/15/us/politics/trump-immigrant-truck-drivers-veterans.html
+
+**Boat That Sank Near Alcatraz Rolled After Wave Struck, Officials Say**\
+`Rescuers described survivors trying to stay afloat in the San Francisco Bay. A brother of the boat’s owner died, and the authorities say they will end the search for the missing.`\
+https://www.nytimes.com/2026/07/15/us/alcatraz-boat-captain.html
+
 **Investigators Seek Information From Government Officials as Part of Air Force One Leak Investigation**\
 `After The New York Times reported on security concerns related to the Qatari-donated jet, the F.B.I. sought to speak with several people who flew aboard the plane with President Trump last week and asked for their phones.`\
 https://www.nytimes.com/2026/07/15/us/politics/air-force-one-lead-investigation-government-officials.html
