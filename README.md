@@ -1,4 +1,8 @@
-**Live Updates: Wildfire Smoke Chokes Skies Across Northeastern U.S.**\
+**Highway Executive Given 12-Year Sentence Over Deadly Bridge Collapse in Italy**\
+`Giovanni Castellucci oversaw a company that managed the Morandi Bridge in Genoa when it fell down in 2018, killing 43 people.`\
+https://www.nytimes.com/2026/07/16/world/europe/italy-bridge-verdict-morandi-collapse.html
+
+**Live Updates: Wildfire Smoke Chokes Skies Across Northeastern U.S. and Canada**\
 `A strip of dense smoke from Canadian wildfires, combined with extreme heat, pushed air quality to unhealthy levels in multiple states.`\
 https://www.nytimes.com/live/2026/07/16/weather/canada-wildfire-smoke-air-quality
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/100000011028027/israel-united-states-ahmadineja
 **The Long-Running, Never-Ending Argument Over What Counts as ‘America’**\
 `The label applies to the country, but also two whole continents. Our claim over it is yet another way for us to annoy the entire hemisphere.`\
 https://www.nytimes.com/2026/07/16/magazine/americans-english-language.html
-
-**A Spectacular Theodore Roosevelt Library Deep in the Badlands**\
-`An inventive $450 million center devoted to Roosevelt, who died in 1919, blends in with the natural beauty of North Dakota and celebrates conservation.`\
-https://www.nytimes.com/2026/07/16/arts/design/teddy-roosevelt-presidential-library-north-dakota.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
