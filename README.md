@@ -1,3 +1,7 @@
+**Strait of Hormuz Tanker Traffic Erodes Further as Oil Prices Rise**\
+`Very few ships passed through the waterway on the first full day of the U.S. naval blockade of Iran.`\
+https://www.nytimes.com/2026/07/16/business/strait-hormuz-iran-war-oil.html
+
 **Hong Kong Police Raid Independent Bookstores**\
 `The police raided two independent bookstores in Hong Kong on Wednesday, arresting five people on suspicion of sedition as the authorities widened a national security crackdown.`\
 https://www.nytimes.com/video/world/asia/100000011034404/hong-kong-bookstore-raid.html
@@ -128,7 +132,7 @@ https://www.nytimes.com/2026/07/16/podcasts/the-world-cup-is-this-summers-blockb
 
 **Inside Trump’s Swift Construction of a White House Helipad**\
 `The president has bypassed a review or approval process in his swift effort to build a granite helipad on the South Lawn.`\
-https://www.nytimes.com/interactive/2026/07/16/us/politics/white-house-helipad.html
+https://www.nytimes.com/interactive/2026/07/16/us/politics/white-house-helipad-trump.html
 
 **ICE Is Out of Control. Here’s What to Do About It.**\
 `Congress must push back against our inhumane immigration tactics.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/opinion/100000011024674/a-vision-of-a-society-with
 **9 Art Shows to Catch Before They Close This Summer**\
 `Among some must-see exhibitions are the Whitney Biennial, a Marcel Duchamp retrospective and a sprawling New Museum survey.`\
 https://www.nytimes.com/2026/07/16/arts/design/last-chance-art-shows-new-york.html
-
-**At Hudson Valley Shakespeare, a ‘King Lear’ Worth Traveling For**\
-`A beautifully observed version of a man’s final act, along with a lively staging of “As You Like It,” engage the surrounding mountains in conversation.`\
-https://www.nytimes.com/2026/07/16/theater/hudson-valley-shakespeare-king-lear-as-you-like-it.html
 
 **Iran War Live Updates: U.S. and Iran Escalate Attacks, While Hinting at Diplomacy**\
 `As the renewed fighting entered its sixth day, both sides appeared to leave the door open to more negotiations to end the war.`\
