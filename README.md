@@ -1,3 +1,7 @@
+**The Race for A.I. Data Centers Arrives in India**\
+`India is developing new data centers to secure a foothold in the global A.I. race. Our South Asia bureau chief, Mujib Mashal, discusses how a new Google campus’s potential use of the region’s already strained energy and water resources is creating anxiety among local residents.`\
+https://www.nytimes.com/video/world/100000011024159/the-race-for-ai-data-centers-arrives-in-india.html
+
 **India Is Moving Fast to Build A.I. Data Centers. A Coastal City May Pay the Price.**\
 `With India lagging in the technology, officials are embracing giant data centers. But critics say the megaprojects will use up energy and water, without providing long-term jobs.`\
 https://www.nytimes.com/2026/07/16/world/asia/india-ai-data-centers-google.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011033277/ceviche.html
 **U.S. and Iran Trade Strikes With No Sign of Backing Down**\
 `On the fifth straight day of fighting, the U.S. launched a 90-minute attack on Iran, while Tehran targeted Bahrain, Jordan and Kuwait.`\
 https://www.nytimes.com/2026/07/15/world/middleeast/iran-us-strikes-war.html
-
-**United Airlines Will Soon Let You Take Over the Middle Seat, for a Price**\
-`The option, set to go on sale on some flights later this year, will feature a shared table in the middle seat. The move may actually save the airline money.`\
-https://www.nytimes.com/2026/07/15/travel/united-airlines-middle-seat.html
 
