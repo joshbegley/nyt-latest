@@ -1,3 +1,7 @@
+**Fire in National Forest Pocked by Blazes Crosses Into Canada**\
+`More than a dozen fires are burning in Superior National Forest in Minnesota, sending smoke through the Midwest to the East Coast.`\
+https://www.nytimes.com/2026/07/16/weather/boundary-waters-fire-minnesota.html
+
 **Un técnico de teleprompter de la Casa Blanca apostaba a los discursos de Trump, dice Kalshi**\
 `Es la acusación más reciente de que alguien había usado información privilegiada para obtener ganancias en los mercados de predicciones como Kalshi y Polymarket.`\
 https://www.nytimes.com/es/2026/07/16/espanol/negocios/teleprompter-apuestas-discursos-trump.html
