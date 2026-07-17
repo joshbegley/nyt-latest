@@ -1,3 +1,7 @@
+**Garfield Sobers, Renowned ‘All-Rounder’ Cricket Star, Dies at 89**\
+`A longtime West Indian captain, he could do it all on the pitch.`\
+https://www.nytimes.com/2026/07/17/sports/garfield-sobers-dead.html
+
 **War Between U.S. and Iran Expands, With Strikes Across the Region**\
 `Videos and reports in Iranian state media showed damage to bridges, railways and other infrastructure. U.S. allies in the region reported retaliatory strikes by Iran.`\
 https://www.nytimes.com/2026/07/17/world/middleeast/us-iran-war-strikes-infrastructure-civilians.html

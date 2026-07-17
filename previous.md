@@ -1,3 +1,7 @@
+**Garfield Sobers, Renowned ‘All-Rounder’ Cricket Star, Dies at 89**\
+`A longtime West Indian captain, he could do it all on the pitch.`\
+https://www.nytimes.com/2026/07/17/sports/garfield-sobers-dead.html
+
 **Taylor Farms to Remove Products After Lettuce Is Linked to Cyclospora Cases**\
 `The Salinas, Calif., company grows produce in more than 12 states, and in Mexico and Canada. Some Taylor Farms lettuce suspected of causing sickness ended up at Taco Bell.`\
 https://www.nytimes.com/2026/07/17/business/cyclospora-taylor-farms-lettuce.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/style/blue-maga-meaning-democrats.html
 **How to Keep the Air Inside Safe From Wildfire Smoke**\
 `Wildfire smoke can contaminate the air inside a home, but there are measures you can take to make your indoor environment safer.`\
 https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-safety.html
-
-**Trump Brings Full Weight of Government to Bolster False Election Claims**\
-`Intelligence agencies provided the White House with a trove of declassified documents that President Trump cited on Thursday as evidence of election vulnerabilities.`\
-https://www.nytimes.com/2026/07/17/us/politics/trump-government-election-claims.html
 
