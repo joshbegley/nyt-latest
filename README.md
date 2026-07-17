@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/07/17/us/politics/trump-speech-china-xi.html
 `Though he was notable as a Met, his record for being hit by pitches the most times in a modern-era season — 50 — came while playing for the Expos.`\
 https://www.nytimes.com/2026/07/17/sports/baseball/ron-hunt-dead.html
 
-**America Needs to Release More Secrets. But Not Like This.**\
+**How Trump Abused the Power to Declassify America’s Secrets**\
 `The president is manipulating the intelligence community into a tool of misinformation.`\
 https://www.nytimes.com/2026/07/17/opinion/trump-speech-us-intelligence-secrets-classified.html
 
