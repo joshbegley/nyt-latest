@@ -1,3 +1,11 @@
+**Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
+`Some Democrats feared the decision by Lt. Gov. Sara Rodriguez, the establishment candidate, could improve the primary prospects for Francesca Hong, a democratic socialist, in a purple state.`\
+https://www.nytimes.com/2026/07/17/us/sara-rodriguez-wisconsin-governor-drop-out.html
+
+**Trump Threatens Canada With Tariffs for Wildfire Smoke Over U.S.**\
+`The president said on Friday in a social media post that Canada was failing to manage its wildfire response as smoke has blanketed U.S. cities including New York and Chicago.`\
+https://www.nytimes.com/2026/07/17/weather/trump-canada-tariffs-wildfire-smoke.html
+
 **Trump’s Election Claims and SAVE Act Push Find Muted Response From G.O.P. Lawmakers**\
 `Most G.O.P. lawmakers had little to say about the president’s claims of election vulnerabilities, and he did not appear to move the needle on the voting restriction bill he championed.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-election-save-act-republicans-midterms.html

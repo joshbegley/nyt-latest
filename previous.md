@@ -1,3 +1,7 @@
+**Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
+`Some Democrats feared the decision by Lt. Gov. Sara Rodriguez, the establishment candidate, could improve the primary prospects for Francesca Hong, a democratic socialist, in a purple state.`\
+https://www.nytimes.com/2026/07/17/us/sara-rodriguez-wisconsin-governor-drop-out.html
+
 **Trump’s Election Claims and SAVE Act Push Find Muted Response From G.O.P. Lawmakers**\
 `Most G.O.P. lawmakers had little to say about the president’s claims of election vulnerabilities, and he did not appear to move the needle on the voting restriction bill he championed.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-election-save-act-republicans-midterms.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/video/embedded/opinion/editorials/100000011038728/anewin
 
 **Trump Threatens Canada With Tariffs for Wildfire Smoke Over U.S.**\
 `The president said on Friday in a social media post that Canada was failing to manage its wildfire response as smoke has blanketed U.S. cities including New York and Chicago.`\
-https://www.nytimes.com/2026/07/17/weather/wildfire-smoke-canada-us-politics.html
+https://www.nytimes.com/2026/07/17/weather/trump-canada-tariffs-wildfire-smoke.html
 
 **Orange-Lipped Monkey Photo Helps Scientists Identify New Species**\
 `The medium-sized monkey with an orange-colored patch around its nose and mouth, known locally as Likweli, joins a very short list of newly identified African monkey species.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/us/politics/trump-iran-war-afghanistan-iraq.h
 **Remains of California Millionaire Who Vanished 45 Years Ago Are Identified**\
 `A con man was convicted in the 1983 murder of Thelma Gaston, 80, but her remains were only just identified thanks to advanced DNA testing.`\
 https://www.nytimes.com/2026/07/17/us/california-millionaire-remains-found-thelma-gaston.html
-
-**Today, In Short**\
-`Monkeys. A.I. slop. And iceberg lettuce.`\
-https://www.nytimes.com/2026/07/17/briefing/today-in-short.html
 

@@ -1,3 +1,7 @@
+**China Pushes for ‘Openness’ to Shape A.I.’s Future**\
+`At an artificial intelligence conference in Shanghai on Friday, Xi Jinping urged for open and global collaboration, aimed at supporting the technological advancement of developing countries.`\
+https://www.nytimes.com/video/technology/100000011037861/china-pushes-for-openness-to-shape-ais-future.html
+
 **Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
 `Some Democrats feared the decision by Lt. Gov. Sara Rodriguez, the establishment candidate, could improve the primary prospects for Francesca Hong, a democratic socialist, in a purple state.`\
 https://www.nytimes.com/2026/07/17/us/sara-rodriguez-wisconsin-governor-drop-out.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/climate/european-union-emissions-rollback.htm
 **Trump Faces the Limits of U.S. Firepower and the Lessons of Past Wars**\
 `Like his predecessors, President Trump has struggled to turn battlefield successes into long-term victories.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-iran-war-afghanistan-iraq.html
-
-**Remains of California Millionaire Who Vanished 45 Years Ago Are Identified**\
-`A con man was convicted in the 1983 murder of Thelma Gaston, 80, but her remains were only just identified thanks to advanced DNA testing.`\
-https://www.nytimes.com/2026/07/17/us/california-millionaire-remains-found-thelma-gaston.html
 
