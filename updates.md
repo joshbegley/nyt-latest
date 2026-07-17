@@ -1,3 +1,19 @@
+**What We Know About the Sunken Boat Near Alcatraz**\
+`At least one person died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Three passengers remain unaccounted for.`\
+https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
+
+**Live Updates: Trump to Speak About Election Security in Televised Address**\
+`It remains to be seen just how far Mr. Trump will go in discussing the 2020 election that he lost, which he has repeatedly claimed was rigged. But dozens of investigations that have failed to produce evidence of widespread voter fraud or foreign tampering.`\
+https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
+
+**Johan Guerrero, Maine ICE Shooting Victim, Relentlessly Pursued a Better Life, Partner Says**\
+`The partner of Johan Guerrero, who was killed by an immigration agent this week, described him as a tireless worker and doting father who would do anything for his 3-year-old daughter.`\
+https://www.nytimes.com/2026/07/16/us/johan-sebastian-guerrero-colombia.html
+
+**Watch Live: Trump Gives Prime-Time Address on Elections**\
+`President Trump delivers a prime-time address on election security and voting machines.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011036719/watch-live-trump-gives-prime-time-address-on-elections.html
+
 **Truth Social Parent to Sell Faster Access to Trump’s Posts**\
 `The product, Truth API, could give Wall Street trading firms an edge in seeing President Trump’s posts on the social media platform he partly owns.`\
 https://www.nytimes.com/2026/07/16/business/energy-environment/trump-truth-social-api-access.html
