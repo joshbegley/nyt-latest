@@ -1,6 +1,14 @@
+**Ron Hunt, a Record-Holder for Being Hit by Pitches, Dies at 85**\
+`Though he was notable as a Met, his record for being hit by pitches the most times in a modern-era season — 50 — came while playing for the Expos.`\
+https://www.nytimes.com/2026/07/17/sports/baseball/ron-hunt-dead.html
+
+**America Needs to Release More Secrets. But Not Like This.**\
+`The president is manipulating the intelligence community into a tool of misinformation.`\
+https://www.nytimes.com/2026/07/17/opinion/trump-speech-us-intelligence-secrets-classified.html
+
 **China Pushes for ‘Openness’ to Shape A.I.’s Future**\
 `At an artificial intelligence conference in Shanghai on Friday, Xi Jinping urged for open and global collaboration, aimed at supporting the technological advancement of developing countries.`\
-https://www.nytimes.com/video/technology/100000011037861/china-pushes-for-openness-to-shape-ais-future.html
+https://www.nytimes.com/video/technology/100000011037861/china-openness-artificial-intelligence-future.html
 
 **Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
 `Some Democrats feared the decision by Lt. Gov. Sara Rodriguez, the establishment candidate, could improve the primary prospects for Francesca Hong, a democratic socialist, in a purple state.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/17/world/africa/uganda-bus-crash-children.html
 **‘The Real World’ and Nathan Fielder Can Both Thank Ross McElwee**\
 `Ross McElwee’s documentaries have shaped reality TV, comedy, podcasts and more in ways that you may not realize.`\
 https://www.nytimes.com/2026/07/17/movies/ross-mcelwee-the-real-world-nathan-fielder.html
-
-**E.U. Proposes Changes to Emissions Trading System**\
-`The European Union is facing a green backlash as emissions cuts become harder and require bigger overhauls to industry and livelihoods`\
-https://www.nytimes.com/2026/07/17/climate/european-union-emissions-rollback.html
-
-**Trump Faces the Limits of U.S. Firepower and the Lessons of Past Wars**\
-`Like his predecessors, President Trump has struggled to turn battlefield successes into long-term victories.`\
-https://www.nytimes.com/2026/07/17/us/politics/trump-iran-war-afghanistan-iraq.html
 
