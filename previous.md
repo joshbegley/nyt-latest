@@ -1,3 +1,15 @@
+**Today, In Short**\
+`Monkeys. A.I. slop. And iceberg lettuce.`\
+https://www.nytimes.com/2026/07/17/briefing/today-in-short.html
+
+**The Internet’s Secret to Success? Being Family-Oriented.**\
+`Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of the band’s 2018 album, “Hive Mind,” to discuss what’s next for the artists.`\
+https://www.nytimes.com/video/podcasts/100000011036291/the-internets-secret-to-success-being-family-oriented.html
+
+**Pentagon’s Escort Policy for Journalists Is Temporarily Restored**\
+`An appeals court said the Defense Department could require escorts for reporters who visit the Pentagon while The New York Times sues to overturn the rule.`\
+https://www.nytimes.com/2026/07/17/business/media/pentagon-reporters-nytimes.html
+
 **It’s Smoky. You Don’t Have an Air Purifier. Here’s What to Do.**\
 `There are D.I.Y. options to help keep out polluted air, and clean the air already in your home.`\
 https://www.nytimes.com/2026/07/17/well/smoke-air-quality-tips.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/07/17/well/smoke-air-quality-tips.html
 `Autoridades federales de EE. UU. colaboraron con investigadores de Míchigan y rastrearon el brote a la lechuga iceberg, que también podría haber sido distribuida a otros establecimientos.`\
 https://www.nytimes.com/es/2026/07/17/espanol/ciclosporiasis-lechuga.html
 
-**Mapa: un terremoto de magnitud 7,3 sacude el océano Pacífico Norte**\
+**Terremoto de magnitud 7,3 impacta la costa sur de México**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/07/17/terremoto-mexico-guatemala.html
 
@@ -50,7 +62,7 @@ https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cu
 `Andy Burnham was named the leader of Britain’s Labour Party on Friday, the last step before officially becoming the country’s next prime minister on Monday.`\
 https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-party-leader-uk.html
 
-**America’s Enterprising Spirit is Booming After Decades-Long Slump**\
+**America’s Enterprising Spirit Is Booming After Decades-Long Slump**\
 `Hundreds of thousands of people are creating companies each year, ending a decades-long drought.`\
 https://www.nytimes.com/2026/07/17/business/economy/american-small-business-boom.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/17/world/asia/ezra-jin-china-pastor-trump.html
 **How Couples Therapists Fight With Their Partners**\
 `They spend their days helping people hash out conflicts. Here’s what they do at home.`\
 https://www.nytimes.com/2026/07/17/well/couples-therapists-fight-advice.html
-
-**The New York Times News Quiz, July 17, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/07/17/briefing/news-quiz-graham-trump-cyclospora-ice.html
-
-**Cómo protegerte del síndrome de alfa-gal**\
-`La alergia a la carne roja, causada por la picadura de una garrapata, se está volviendo más común en partes de EE. UU.`\
-https://www.nytimes.com/es/2026/07/17/espanol/estilos-de-vida/alfa-gal-alergia-carne-roja-garrapata.html
-
-**Is My Wife’s Sister’s Husband Really My Brother-In-Law?**\
-`A ruling on the limits of familial bonds.`\
-https://www.nytimes.com/interactive/2026/07/17/magazine/brother-in-law-hodgman-quiz.html
 
