@@ -1,3 +1,7 @@
+**Trump Claims Election Vulnerabilities in Prime-Time Speech**\
+`President Trump made sweeping claims about the safety of American voting systems in a speech on Thursday. Documents released by the Trump administration did not back up his most aggressive statements.`\
+https://www.nytimes.com/video/us/politics/100000011036975/trump-election-speech.html
+
 **¿Demasiados libros?**\
 `Mendel Uminer se encontró en un aprieto cuando su casero se opuso a los 10.000 libros que tenía en su estudio de Nueva York.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/demasiados-libros-nueva-york-apartamento.html

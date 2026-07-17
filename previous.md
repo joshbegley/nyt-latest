@@ -1,3 +1,7 @@
+**Trump Claims Election Vulnerabilities in Prime-Time Speech**\
+`President Trump made sweeping claims about the safety of American voting systems in a speech on Thursday. Documents released by the Trump administration did not back up his most aggressive statements.`\
+https://www.nytimes.com/video/us/politics/100000011036975/trump-election-speech.html
+
 **¿Demasiados libros?**\
 `Mendel Uminer se encontró en un aprieto cuando su casero se opuso a los 10.000 libros que tenía en su estudio de Nueva York.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/demasiados-libros-nueva-york-apartamento.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 **Johan Guerrero, Maine ICE Shooting Victim, Relentlessly Pursued a Better Life, Partner Says**\
 `The partner of Johan Guerrero, who was killed by an immigration agent this week, described him as a tireless worker and doting father who would do anything for his 3-year-old daughter.`\
 https://www.nytimes.com/2026/07/16/us/johan-sebastian-guerrero-colombia.html
-
-**Watch Live: Trump Gives Prime-Time Address on Elections**\
-`President Trump delivers a prime-time address on election security and voting machines.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011036719/watch-live-trump-gives-prime-time-address-on-elections.html
 
