@@ -163,7 +163,7 @@ https://www.nytimes.com/2026/07/17/your-money/states-graduate-loans-us-governmen
 https://www.nytimes.com/2026/07/17/business/ai-spending-oracle-stocks-bonds.html
 
 **Stocks Sink on Anxiety About Tech and A.I. Spending**\
-`A sell-off in Asia led by chipmakers spilled into Europe and U.S. markets on Friday.`\
+`Investors are growing uneasy about increasing competition from China in the global race to dominate artificial intelligence.`\
 https://www.nytimes.com/2026/07/17/business/stocks-ai-tech-wall-street.html
 
 **Iran-U.S. Talks: How 4 Negotiators Would Approach Diplomacy**\
