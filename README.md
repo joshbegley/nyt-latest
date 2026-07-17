@@ -1,4 +1,4 @@
-**Trump hace afirmaciones descabelladas sobre los resultados electorales**\
+**Mensaje a la nación de Trump: afirmaciones exageradas de riesgos electorales**\
 `Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html
 
