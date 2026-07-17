@@ -1,3 +1,11 @@
+**La FDA aprueba la enlicitida para tratar el colesterol: esto es lo que debes saber**\
+`Se espera que el fármaco, que fue desarrollado por Merck y se venderá bajo la marca Lipfendra, salga al mercado en las próximas semanas.`\
+https://www.nytimes.com/es/2026/07/17/espanol/enlicitida-pildora-colesterol.html
+
+**Takeaways From Trump’s Speech Claiming Election Vulnerabilities and China Interference**\
+`Documents released by the Trump administration to support the president’s claims did not back up his most aggressive statements`\
+https://www.nytimes.com/2026/07/17/us/trump-speech-elections-takeaways.html
+
 **Una nueva especie de mono africano acaba de ser descubierta**\
 `En 2008, un equipo de investigadores hizo un avistamiento inusual en el Congo-Kinsasa, pero la fotografía que tomaron salió borrosa. Una década después, el misterioso primate cobró mayor nitidez.`\
 https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/mono-naranja.html

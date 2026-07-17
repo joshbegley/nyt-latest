@@ -1,3 +1,11 @@
+**La FDA aprueba la enlicitida para tratar el colesterol: esto es lo que debes saber**\
+`Se espera que el fármaco, que fue desarrollado por Merck y se venderá bajo la marca Lipfendra, salga al mercado en las próximas semanas.`\
+https://www.nytimes.com/es/2026/07/17/espanol/enlicitida-pildora-colesterol.html
+
+**Takeaways From Trump’s Speech Claiming Election Vulnerabilities and China Interference**\
+`Documents released by the Trump administration to support the president’s claims did not back up his most aggressive statements`\
+https://www.nytimes.com/2026/07/17/us/trump-speech-elections-takeaways.html
+
 **Una nueva especie de mono africano acaba de ser descubierta**\
 `En 2008, un equipo de investigadores hizo un avistamiento inusual en el Congo-Kinsasa, pero la fotografía que tomaron salió borrosa. Una década después, el misterioso primate cobró mayor nitidez.`\
 https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/mono-naranja.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/16/world/canada/canada-wildfires-firefighters-he
 **Chloe Fineman Is Leaving ‘S.N.L.’ After 7 Seasons**\
 `The comedian and actress announced her departure as the show looks ahead to its 52nd season.`\
 https://www.nytimes.com/2026/07/16/arts/television/chloe-fineman-leaves-snl.html
-
-**Blue Angels’ Close Beach Flyby in Florida Results in No Punishments for Pilots**\
-`The elite flying team had announced a safety review after videos posted on social media showed a fighter jet passing just above beachgoers on Wednesday.`\
-https://www.nytimes.com/2026/07/16/us/us-navy-jet-blue-angels.html
-
-**Blue Angels Jet Flies Low Over Beachgoers in Florida**\
-`Videos of a low Blue Angels flyover at Pensacola Beach, Fla., on Wednesday show people cheering as beach items and sand blew across the beach.`\
-https://www.nytimes.com/video/us/100000011035362/blue-angels-flyover-florida.html
 
