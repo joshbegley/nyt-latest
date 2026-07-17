@@ -1,3 +1,7 @@
+**E.U. Proposes Changes to Emissions Trading System**\
+`The European Union is facing a green backlash as emissions cuts become harder and require bigger overhauls to industry and livelihoods`\
+https://www.nytimes.com/2026/07/17/climate/european-union-emissions-rollback.html
+
 **Trump Faces the Limits of U.S. Firepower and the Lessons of Past Wars**\
 `Like his predecessors, President Trump has struggled to turn battlefield successes into long-term victories.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-lessons-of-past-wars.html
