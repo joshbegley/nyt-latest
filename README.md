@@ -1,3 +1,63 @@
+**‘Shifters’ Review: Fast-Forwarding Through a Predictable Romance**\
+`Des (Heather Agyepong) and Dre (Daniel Ezra), navigate a mutual magnetic pull in this British love story by Benedict Lombe at Cherry Lane Theater.`\
+https://www.nytimes.com/2026/07/17/theater/shifters-review.html
+
+**Gen Z Is Going to the Movies. This Is Great News for Everyone.**\
+`Hollywood thought it had lost young audiences to platforms like YouTube and Twitch. But Gen Z-ers are finding something at the movies they can’t find anywhere else.`\
+https://www.nytimes.com/2026/07/17/opinion/gen-z-movie-theaters-hollywood.html
+
+**The Rediscovery of Country Original Gary Stewart**\
+`Gary Stewart spent a few years on top, but was largely forgotten after his tragic death in 2003. Now a new generation is rediscovering the onetime “king of honky-tonk.”`\
+https://www.nytimes.com/2026/07/17/arts/music/gary-stewart-country-music.html
+
+**Why Trump Can’t Leave the Smithsonian Alone**\
+`The Trump White House and its history police want us all to live in their chosen bubble, immune from instability or perceived disorder.`\
+https://www.nytimes.com/2026/07/17/opinion/trump-smithsonian-cold-war.html
+
+**7th Time’s a Charm for a First-Time Buyer Plagued by Bidding Wars**\
+`Even as the market shifts to buyers, first-timers need to be resilient and flexible.`\
+https://www.nytimes.com/2026/07/17/realestate/bidding-war-first-time-home-buyer.html
+
+**‘Heartstopper Forever’: What to Know Before Seeing the Movie**\
+`The Netflix series and its feature-length finale are based on the graphic novels by Alice Oseman. Here’s a reminder of the events of the characters and where their stories left of.`\
+https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-movie-what-to-know.html
+
+**The Children’s Books of Seymour Chwast**\
+`A new collection of the famous graphic designer Seymour Chwast’s work for children “unearths a cache of lost treasures.”`\
+https://www.nytimes.com/2026/07/17/books/review/seymour-chwast-childrens-picture-books-steven-heller.html
+
+**Christopher Nolan on ‘The Odyssey’ and IMAX Technical Challenges**\
+`He and the cinematographer Hoyte van Hoytema combined new inventions (like fire-mimicking lights they developed) with century-old techniques.`\
+https://www.nytimes.com/2026/07/17/movies/the-odyssey-christopher-nolan.html
+
+**Word of the Day: transmute**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/17/learning/word-of-the-day-transmute.html
+
+**My 5 Favorite Places for Art in Venice**\
+`Our critic Jason Farago shares what you shouldn’t miss in a city full of secrets and surprises.`\
+https://www.nytimes.com/2026/07/17/arts/design/my-5-favorite-places-for-art-in-venice.html
+
+**Dubai Migrant Worker Layoffs Reveal Costs of Middle East War**\
+`The Persian Gulf city attracted migrant workers with the promise of opportunity. Many now say the war has brought job losses and salary cuts.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/dubai-iran-war-migrant-workers-layoffs.html
+
+**Want More of the ‘Odyssey’? Read These Books Next**\
+`Informative histories, modern retellings and genre-bending homages will take you back to the long road to Ithaca.`\
+https://www.nytimes.com/2026/07/17/books/the-odyssey-books.html
+
+**To Win Their Races, Black Politicians Confront a New Landscape**\
+`With the Voting Rights Act weakened, Black representation will depend less on Black voters and more on broad, multiracial appeal or on ideological outsider campaigns.`\
+https://www.nytimes.com/2026/07/17/us/politics/black-representation-voting-rights-act.html
+
+**In an Ever-Changing East Village, Cafe Mogador Is a Constant**\
+`With its tasty, affordable fare and forever-young clientele, the decades-old New York restaurant is still one of the liveliest spots in the neighborhood.`\
+https://www.nytimes.com/2026/07/17/t-magazine/cafe-mogador-moroccan-restaurant-east-village-nyc.html
+
+**How Companies Have Abandoned Their Climate Goals and Let Themselves Off the Hook**\
+`Big business made big promises about saving the planet. Following through hasn’t been easy.`\
+https://www.nytimes.com/2026/07/17/climate/company-climate-change-commitments-renege.html
+
 **Philippines Condemns AI Video Posted by Chinese State Media Depicting It as a Monkey**\
 `It lodged a diplomatic complaint with Beijing over an A.I.-generated video centered on territorial disputes in the South China Sea.`\
 https://www.nytimes.com/2026/07/17/world/asia/philippines-ai-video-china-racist.html
@@ -137,64 +197,4 @@ https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resu
 **Assessing the Documents: Fake IDs From China**\
 `A previously released F.B.I. memo, viewed skeptically by intelligence agents, described a purported scheme by China to meddle in the 2020 election.`\
 https://www.nytimes.com/2026/07/16/us/politics/assessing-the-documents-fake-ids-from-china.html
-
-**Carney Offers Fire Help to Ontario, but Canadian Government’s Role Is Limited**\
-`Fighting wildfires is the responsibility of Canada’s provinces, which cooperate with one another during fire season`\
-https://www.nytimes.com/2026/07/16/weather/carney-wildfire-ontario-government.html
-
-**Trump Has Dismantled Election Security Efforts. Here’s How.**\
-`Since his return to the White House, the lead federal partner for states on election security has lost around a third of its work force.`\
-https://www.nytimes.com/2026/07/16/us/politics/trump-election-security-cisa.html
-
-**What to Know About Trump’s Attacks on Mail Voting**\
-`Many of President Trump’s attempts to curtail mail voting have been blocked by the courts. Before Trump, Republicans actually embraced absentee voting.`\
-https://www.nytimes.com/2026/07/16/us/politics/trump-mail-voting-elections-speech.html
-
-**NYT Crossword Answers for July 17, 2026**\
-`Coz Berlin’s debut opens our solving weekend.`\
-https://www.nytimes.com/2026/07/16/crosswords/daily-puzzle-2026-07-17.html
-
-**Fighting Wildfires Consistently Strains Ontario’s Budget**\
-`As hundreds of wildfires rage across Canada, Ontario’s emergency firefighting budget remains well below what it has spent in recent years.`\
-https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfire-budget.html
-
-**5 Takeaways From a Maine Debate That Showed Replacing Platner Isn’t Easy**\
-`Maine Democrats vying to become the state’s new Senate nominee met, and mostly agreed, at a debate filled with halting answers and stilted deliveries.`\
-https://www.nytimes.com/2026/07/16/us/politics/maine-senate-debate-takeaways.html
-
-**Assessing the documents: Venezuela and Smartmatic**\
-`(No description)`\
-https://www.nytimes.com/2026/07/16/us/politics/assessing-the-documents-venezuela-and-smartmatic.html
-
-**Assessing the Documents: Voter Registration in Michigan**\
-`A well-known allegation of attempts to fraudulently register voters never yielded evidence of illegal voting.`\
-https://www.nytimes.com/2026/07/16/us/politics/voter-registration-michigan.html
-
-**Andy Burnham Is Poised to Become Britain’s Leader. His Ascent Was Years in the Making.**\
-`Andy Burnham is set to become the leader of the Labour Party and Britain’s 59th prime minister. His path to 10 Downing Street included a pivotal nearly decade-long stint as mayor of Greater Manchester.`\
-https://www.nytimes.com/video/world/europe/100000011029640/andy-burnham-labour-leader-prime-minister.html
-
-**Multiple Investigations Refuted Trump’s Claims That Fraud Altered the Outcome in 2020**\
-`Dozens of investigations, audits, recounts and court proceedings examined the 2020 election. None found the widespread voter fraud that President Trump claimed tilted the vote.`\
-https://www.nytimes.com/2026/07/16/us/politics/trump-investigations-fraud-claims-2020-election.html
-
-**The Internet is Back**\
-`Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of their 2018 album, “Hive Mind.” Watch the full conversation here.`\
-https://www.nytimes.com/video/podcasts/100000011031337/the-internet-is-back.html
-
-**What to Know About Canada Wildfire Smoke and Air Quality in U.S. Cities**\
-`A thick plume of smoke swept across the Midwest and New England, and those conditions could linger on Friday.`\
-https://www.nytimes.com/2026/07/16/weather/what-to-know-canada-wildfires-smoke.html
-
-**Kentucky Jury Orders Gun Kit Seller to Pay More Than $100 Million in Teen’s Death**\
-`Lawyers for the family of Henry Coby Willis argued that the online seller failed to verify the buyer’s age or conduct a background check before shipping a pistol-building kit.`\
-https://www.nytimes.com/2026/07/16/us/kentucky-ghost-gun-death-settlement.html
-
-**What We Know About the Sunken Boat Near Alcatraz**\
-`At least two people died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Two passengers remain unaccounted for.`\
-https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
-
-**Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
-`President Trump drew selectively from documents his aides published online to insinuate that U.S. elections have been compromised for years and that government officials had suppressed the evidence.`\
-https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 
