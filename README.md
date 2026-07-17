@@ -1,3 +1,19 @@
+**War Between U.S. and Iran Expands, With Strikes Across the Region**\
+`Videos and reports in Iranian state media showed damage to bridges, railways and other infrastructure. U.S. allies in the region reported retaliatory strikes by Iran.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/war-between-us-and-iran-expands-with-strikes-across-the-region.html
+
+**Trump’s Homeland Security Chief Threatens Election Officials With Prison Time**\
+`Markwayne Mullin reiterated the president’s false claims about voting security while escalating the administration’s legally questionable attempts to control state elections.`\
+https://www.nytimes.com/2026/07/17/us/politics/markwayne-mullin-threatens-election-officials-prison-time.html
+
+**Lam Wing-Kee, Hong Kong Bookseller Who Defied Authorities, Dies at 70**\
+`One of five booksellers kidnapped by Chinese officials in 2015, Mr. Lam spoke out after his release and became an international cause célèbre.`\
+https://www.nytimes.com/2026/07/17/world/asia/lam-wing-kee-dead.html
+
+**Prominent Cuban Artist Will Go Into Exile After 5-Year Prison Term**\
+`The United States offered a visa to Luis Manuel Otero Alcántara, who was expected to fly to Miami on Saturday.`\
+https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-prison-release-exile.html
+
 **How Senegal Spread Its Hospitality in Harlem**\
 `As Senegal advanced in the World Cup, its fans found the flavors of home on 116th Street.`\
 https://www.nytimes.com/2026/07/17/dining/world-cup-senegal-fans-harlem.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/07/17/dining/tomato-cheddar-toasts-anyone.html
 **‘Obsession’ and Other Horror Movies to Stream Now**\
 `This month brings a catastrophic crush, underhanded ushers and a sinister St. Nick.`\
 https://www.nytimes.com/2026/07/17/movies/five-horror-movies-to-stream-now.html
-
-**What Trump’s Charisma Has Wrought**\
-`What will the Republican Party look like after 2028?`\
-https://www.nytimes.com/2026/07/17/opinion/trump-lindsey-graham-republican-party.html
-
-**Cuban Dissident Is Missing A Week After Prison Release**\
-`A Cuban artist awaiting permission from the Trump administration to enter the United States is being held in an unknown location in Cuba.`\
-https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-missing-exile.html
-
-**Andy Burnham Set to Become British Prime Minister After Being Named Labour Leader**\
-`Andy Burnham was named the leader of Britain’s Labour Party on Friday, the last step before officially becoming the country’s next prime minister on Monday.`\
-https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-party-leader-uk.html
-
-**America’s Enterprising Spirit Is Booming After Decades-Long Slump**\
-`Hundreds of thousands of people are creating companies each year, ending a decades-long drought.`\
-https://www.nytimes.com/2026/07/17/business/economy/american-small-business-boom.html
 
