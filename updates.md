@@ -1,3 +1,11 @@
+**In Venezuela, These Rescue Workers and Volunteers Rushed Into the Earthquake Zone**\
+`After the quakes, Venezuelans knew they had to fend for themselves. They explain why.`\
+https://www.nytimes.com/interactive/2026/07/17/world/americas/venezuela-rescue-workers.html
+
+**Who Really Has the 2026 Midterms Cash Edge?**\
+`The fund-raising race is tighter than it seems.`\
+https://www.nytimes.com/2026/07/17/us/politics/democrats-republicans-midterms-cash.html
+
 **On Fire. Again.**\
 `There were orange skies in 2023, 2025 and now again in 2026. Over the last few years, one thing has become glaringly clear: The East Coast is totally unequipped for the next climate disaster, wildfires. The Opinion writer David Wallace-Wells explains that with every climate disaster, we’re not just adapting to a “new normal,” but bracing ourselves for what’s next.`\
 https://www.nytimes.com/video/opinion/100000011034989/on-fire-again.html
