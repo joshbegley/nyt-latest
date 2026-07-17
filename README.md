@@ -1,3 +1,7 @@
+**Remains of California Millionaire Who Vanished 45 Years Ago are Identified**\
+`A con man was convicted in the 1983 murder of Thelma Gaston, 80, but her remains were only just identified thanks to advanced DNA testing.`\
+https://www.nytimes.com/2026/07/17/us/california-millionaire-remains-found-thelma-gaston.html
+
 **Today, In Short**\
 `Monkeys. A.I. slop. And iceberg lettuce.`\
 https://www.nytimes.com/2026/07/17/briefing/today-in-short.html
@@ -174,7 +178,7 @@ https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
 `Chinese officials called the election-meddling accusation baseless, while analysts said Beijing was trying to preserve a fragile détente.`\
 https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
 
-**Iran War Live Updates: U.S. Hits Bridges and a Port in Country’s South, Iranian Media says**\
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Country’s South, Iranian Media Says**\
 `The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
 https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/us/politics/trump-election-tampering-document
 **‘Suddenly, I Was Free’: A Chinese Pastor’s Journey From Jail to the U.S.**\
 `In his first interview since being released by China, Pastor Ezra Jin Mingri details his surprise release after a direct appeal by President Trump to Xi Jinping.`\
 https://www.nytimes.com/2026/07/17/world/asia/ezra-jin-china-pastor-trump.html
-
-**How Couples Therapists Fight With Their Partners**\
-`They spend their days helping people hash out conflicts. Here’s what they do at home.`\
-https://www.nytimes.com/2026/07/17/well/couples-therapists-fight-advice.html
 
