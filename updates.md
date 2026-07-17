@@ -1,3 +1,7 @@
+**A Trump Obsession That Carries a Cost for Democracy**\
+`In demanding steps to address the integrity of voting, President Trump persisted in relitigating his 2020 election defeat while finding ways to cast doubt on the 2026 outcome.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-elections-politics.html
+
 **Takeaways From Trump’s Speech Claiming Election Vulnerabilities and China Interference**\
 `Documents released by the Trump administration to support the president’s claims did not back up his most aggressive statements.`\
 https://www.nytimes.com/2026/07/17/us/trump-speech-elections-takeaways.html

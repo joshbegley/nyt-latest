@@ -1,3 +1,7 @@
+**A Trump Obsession That Carries a Cost for Democracy**\
+`In demanding steps to address the integrity of voting, President Trump persisted in relitigating his 2020 election defeat while finding ways to cast doubt on the 2026 outcome.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-elections-politics.html
+
 **La FDA aprueba la enlicitida para tratar el colesterol: esto es lo que debes saber**\
 `Se espera que el fármaco, que fue desarrollado por Merck y se venderá bajo la marca Lipfendra, salga al mercado en las próximas semanas.`\
 https://www.nytimes.com/es/2026/07/17/espanol/enlicitida-pildora-colesterol.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-from-space.html
 **Canada’s Wildfires Are Burning Through the Night**\
 `As overnight temperatures climb across Canada, fires that once spread more slowly after dark are burning around the clock, straining fire crews.`\
 https://www.nytimes.com/2026/07/16/world/canada/canada-wildfires-firefighters-heat.html
-
-**Chloe Fineman Is Leaving ‘S.N.L.’ After 7 Seasons**\
-`The comedian and actress announced her departure as the show looks ahead to its 52nd season.`\
-https://www.nytimes.com/2026/07/16/arts/television/chloe-fineman-leaves-snl.html
 
