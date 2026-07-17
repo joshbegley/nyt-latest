@@ -1,3 +1,7 @@
+**After Repeated Crises, Boeing Looks to Turn a Corner**\
+`The company recently opened a new production line to keep up with strong demand for its 737 Max, though orders for its new planes lag rival Airbus.`\
+https://www.nytimes.com/2026/07/17/business/boeing-turnaround-737-max.html
+
 **Fire in Midtown Manhattan Adds to Smoke Above New York City**\
 `The three-alarm fire, which broke out around 7 a.m., led to the evacuation of 200 people from a Midtown high-rise on Friday morning. Five minor injuries were reported.`\
 https://www.nytimes.com/2026/07/17/weather/fire-midtown-manhattan-nyc.html
