@@ -1,3 +1,11 @@
+**Cyclospora Linked to Taylor Farms Lettuce Sent to Taco Bell**\
+`Federal officials worked with Michigan investigators to trace the outbreak to iceberg lettuce, which may also have gone to other vendors.`\
+https://www.nytimes.com/2026/07/16/well/cyclospora-taylor-farms-lettuce-taco-bell.html
+
+**In Prime Time, Trump Criticizes Networks for Not Carrying His Speech**\
+`The president also called for ABC and NBC to lose their broadcast licenses, after complaining that the networks were not airing his remarks.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
+
 **Mensaje a la nación de Trump: afirmaciones exageradas de riesgos electorales**\
 `Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html

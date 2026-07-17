@@ -1,3 +1,7 @@
+**Trump Released Documents on China and the 2020 Election. Here’s What We Know.**\
+`President Trump claimed that China had tried to acquire American voter data. Possessing such information would not allow votes to be manipulated.`\
+https://www.nytimes.com/2026/07/16/us/politics/documents-china-2020-election-trump.html
+
 **Cyclospora Linked to Taylor Farms Lettuce Sent to Taco Bell**\
 `Federal officials worked with Michigan investigators to trace the outbreak to iceberg lettuce, which may also have gone to other vendors.`\
 https://www.nytimes.com/2026/07/16/well/cyclospora-taylor-farms-lettuce-taco-bell.html
@@ -5,6 +9,10 @@ https://www.nytimes.com/2026/07/16/well/cyclospora-taylor-farms-lettuce-taco-bel
 **Mensaje a la nación de Trump: afirmaciones exageradas de riesgos electorales**\
 `Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html
+
+**Assessing the documents: Fake IDs from China**\
+`A previously released F.B.I. memo, viewed skeptically by intelligence agents, described a purported scheme by China to meddle in the 2020 election.`\
+https://www.nytimes.com/2026/07/16/us/politics/assessing-the-documents-fake-ids-from-china.html
 
 **Carney Offers Fire Help to Ontario, but Canadian Government’s Role Is Limited**\
 `Fighting wildfires is the responsibility of Canada’s provinces, which cooperate with one another during fire season`\
@@ -177,8 +185,4 @@ https://www.nytimes.com/2026/07/16/opinion/messi-world-cup-argentina-final.html
 **The Internet Is Finishing a New Album**\
 `Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of their 2018 album, “Hive Mind,” to discuss what’s next for the band.`\
 https://www.nytimes.com/video/podcasts/100000011031400/the-internet-is-finishing-a-new-album.html
-
-**Delightful World Cup Stories**\
-`Not all the best moments from the tournament were on the pitch. We revisit some of our favorites ahead of Sunday’s final.`\
-https://www.nytimes.com/2026/07/16/world/world-cup-spain-argentina-ukraine.html
 
