@@ -1,6 +1,18 @@
+**Trump hace afirmaciones descabelladas sobre los resultados electorales**\
+`Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
+https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html
+
+**Carney Offers Fire Help to Ontario, but Canadian Government’s Role Is Limited**\
+`Fighting wildfires is the responsibility of Canada’s provinces, which cooperate with one another during fire season`\
+https://www.nytimes.com/2026/07/16/weather/carney-wildfire-ontario-government.html
+
+**Trump Has Dismantled Election Security Efforts. Here’s How.**\
+`Since his return to the White House, the lead federal partner for states on election security has lost around a third of its work force.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-election-security-cisa.html
+
 **What to Know About Trump’s Attacks on Mail Voting**\
 `Many of President Trump’s attempts to curtail mail voting have been blocked by the courts. Before Trump, Republicans actually embraced absentee voting.`\
-https://www.nytimes.com/2026/07/16/us/politics/what-to-know-about-trumps-attacks-on-mail-voting.html
+https://www.nytimes.com/2026/07/16/us/politics/trump-mail-voting-elections-speech.html
 
 **NYT Crossword Answers for July 17, 2026**\
 `Coz Berlin’s debut opens our solving weekend.`\
@@ -173,20 +185,4 @@ https://www.nytimes.com/video/weather/100000011034793/central-texas-flash-floods
 **Manhattan Building’s Buckled Columns Probably Lacked Required Reinforcements**\
 `Drawings obtained by The New York Times show the columns called for additional steel plates, but engineers reviewing site photos said they appeared to be missing.`\
 https://www.nytimes.com/2026/07/16/nyregion/manhattan-building-collapse-nyc-drawings.html
-
-**Why Does Wildfire Smoke Turn the Sky Orange?**\
-`It’s about how light scatters in our atmosphere.`\
-https://www.nytimes.com/2026/07/16/weather/smoke-sky-orange-red.html
-
-**Argentine’s Banner Shows That the England Game Was Bigger Than Sports**\
-`A banner that the Argentine players displayed after they beat England in the World Cup semi-finals said that the Falkland Islands are part of Argentina. The banner referenced a bloody war that the two countries fought over the archipelago in 1982, in which Britain emerged victorious.`\
-https://www.nytimes.com/video/sports/soccer/100000011035268/world-cup-argentina-england-falklands-banner.html
-
-**‘Today’ Anchor Craig Melvin Chases Intruder From 30 Rock as Show Airs**\
-`The incident did not result in any injuries, the police said. The suspect has been charged with hate crimes.`\
-https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
-
-**On the War Against Iran, the Pentagon Has Said Little**\
-`Defense Secretary Pete Hegseth has spoken about a range of issues in recent days — from testosterone to leak investigations — but he has said little about the war.`\
-https://www.nytimes.com/2026/07/16/us/politics/hegseth-iran-war-briefings.html
 

@@ -1,3 +1,19 @@
+**Trump hace afirmaciones descabelladas sobre los resultados electorales**\
+`Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
+https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html
+
+**Carney Offers Fire Help to Ontario, but Canadian Government’s Role Is Limited**\
+`Fighting wildfires is the responsibility of Canada’s provinces, which cooperate with one another during fire season`\
+https://www.nytimes.com/2026/07/16/weather/carney-wildfire-ontario-government.html
+
+**Trump Has Dismantled Election Security Efforts. Here’s How.**\
+`Since his return to the White House, the lead federal partner for states on election security has lost around a third of its work force.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-election-security-cisa.html
+
+**What to Know About Trump’s Attacks on Mail Voting**\
+`Many of President Trump’s attempts to curtail mail voting have been blocked by the courts. Before Trump, Republicans actually embraced absentee voting.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-mail-voting-elections-speech.html
+
 **What to Know About Trump’s Attacks on Mail Voting**\
 `Many of President Trump’s attempts to curtail mail voting have been blocked by the courts. Before Trump, Republicans actually embraced absentee voting.`\
 https://www.nytimes.com/2026/07/16/us/politics/what-to-know-about-trumps-attacks-on-mail-voting.html
