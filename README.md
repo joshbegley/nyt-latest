@@ -1,3 +1,7 @@
+**‘Blue MAGA’ Has Entered the Chat**\
+`It’s a term that can mean whatever the people using it want it to mean. But it’s not a compliment.`\
+https://www.nytimes.com/2026/07/17/style/blue-maga-meaning-democrats.html
+
 **How to Keep the Air Inside Safe From Wildfire Smoke**\
 `Wildfire smoke can contaminate the air inside a home, but there are measures you can take to make your indoor environment safer.`\
 https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-safety.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/science/mathematical-tribute-soccer-ball.html
 **Five Free Movies to Stream Now**\
 `This month’s picks include epics from Werner Herzog and Akira Kurosawa, along with one of the most quintessential New York movies.`\
 https://www.nytimes.com/2026/07/17/movies/five-free-movies-to-stream-now.html
-
-**The Internet’s Steve Lacy, Syd and Matt Martians Discuss New Music**\
-`The band members Steve Lacy and Syd, both of whom have new solo albums out now, reunite with the producer Matt Martians to discuss achieving TikTok fame, writing a Beyoncé song and staying a family.`\
-https://www.nytimes.com/2026/07/17/arts/music/internet-syd-steve-lacy-interview.html
 

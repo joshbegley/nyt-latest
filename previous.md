@@ -1,3 +1,15 @@
+**How to Keep the Air Inside Safe From Wildfire Smoke**\
+`Wildfire smoke can contaminate the air inside a home, but there are measures you can take to make your indoor environment safer.`\
+https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-safety.html
+
+**Trump Brings Full Weight of Government to Bolster False Election Claims**\
+`Intelligence agencies provided the White House with a trove of declassified documents that President Trump cited on Thursday as evidence of election vulnerabilities.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-government-election-claims.html
+
+**Taking Out the Trash: These Old Ladies Are Cleaning Up Cape Cod**\
+`The Old Ladies Against Underwater Garbage estimate they’ve removed 6,000 pounds of refuse from ponds on Cape Cod. “It’s the best feeling,” one said.`\
+https://www.nytimes.com/2026/07/17/climate/old-ladies-diving-for-trash.html
+
 **Tomato Cheddar Toasts, Anyone?**\
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/07/17/dining/tomato-cheddar-toasts-anyone.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/17/movies/five-free-movies-to-stream-now.html
 **The Internet’s Steve Lacy, Syd and Matt Martians Discuss New Music**\
 `The band members Steve Lacy and Syd, both of whom have new solo albums out now, reunite with the producer Matt Martians to discuss achieving TikTok fame, writing a Beyoncé song and staying a family.`\
 https://www.nytimes.com/2026/07/17/arts/music/internet-syd-steve-lacy-interview.html
-
-**When a World Cup Team Needs a Trim, the Barbershop Comes to Them**\
-`Maram Hammadi, who grew up playing on dirt fields in Iraq before opening a barbershop outside Seattle, heard Egypt needed a barber. He cleared his books.`\
-https://www.nytimes.com/2026/07/17/sports/world-cup-egypt-seattle-barbershop.html
-
-**Cooler Inflation May Not Be Enough to Stave Off Fed Rate Increases**\
-`The Federal Reserve is expected to hold rates steady at its July meeting, but officials have not written off the possibility of a move soon after.`\
-https://www.nytimes.com/2026/07/17/business/cooler-inflation-federal-reserve-interest-rates.html
-
-**Rare Pair of Improbably Light ‘Super-Puff’ Planets Is Discovered**\
-`They’re less dense than cotton candy, and they will help astrophysicists better understand the most unusual ways giant planets can form.`\
-https://www.nytimes.com/2026/07/17/science/space/two-super-puff-planets-discovered.html
 

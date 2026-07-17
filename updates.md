@@ -1,3 +1,15 @@
+**How to Keep the Air Inside Safe From Wildfire Smoke**\
+`Wildfire smoke can contaminate the air inside a home, but there are measures you can take to make your indoor environment safer.`\
+https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-safety.html
+
+**Trump Brings Full Weight of Government to Bolster False Election Claims**\
+`Intelligence agencies provided the White House with a trove of declassified documents that President Trump cited on Thursday as evidence of election vulnerabilities.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-government-election-claims.html
+
+**Taking Out the Trash: These Old Ladies Are Cleaning Up Cape Cod**\
+`The Old Ladies Against Underwater Garbage estimate they’ve removed 6,000 pounds of refuse from ponds on Cape Cod. “It’s the best feeling,” one said.`\
+https://www.nytimes.com/2026/07/17/climate/old-ladies-diving-for-trash.html
+
 **Tomato Cheddar Toasts, Anyone?**\
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/07/17/dining/tomato-cheddar-toasts-anyone.html
