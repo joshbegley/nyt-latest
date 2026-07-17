@@ -1,3 +1,19 @@
+**What to Know About Trump’s Attacks on Mail Voting**\
+`Many of President Trump’s attempts to curtail mail voting have been blocked by the courts. Before Trump, Republicans actually embraced absentee voting.`\
+https://www.nytimes.com/2026/07/16/us/politics/what-to-know-about-trumps-attacks-on-mail-voting.html
+
+**NYT Crossword Answers for July 17, 2026**\
+`Coz Berlin’s debut opens our solving weekend.`\
+https://www.nytimes.com/2026/07/16/crosswords/daily-puzzle-2026-07-17.html
+
+**Fighting Wildfires Consistently Strains Ontario’s Budget**\
+`As hundreds of wildfires rage across Canada, Ontario’s emergency firefighting budget remains well below what it has spent in recent years.`\
+https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfire-budget.html
+
+**5 Takeaways From a Maine Debate That Showed Replacing Platner Isn’t Easy**\
+`Maine Democrats vying to become the state’s new Senate nominee met, and mostly agreed, at a debate filled with halting answers and stilted deliveries.`\
+https://www.nytimes.com/2026/07/16/us/politics/maine-senate-debate-takeaways.html
+
 **Andy Burnham Is Poised to Become Britain’s Leader. His Ascent Was Years in the Making.**\
 `Andy Burnham is set to become the leader of the Labour Party and Britain’s 59th prime minister. His path to 10 Downing Street included a pivotal nearly decade-long stint as mayor of Greater Manchester.`\
 https://www.nytimes.com/video/world/europe/100000011029640/andy-burnham-labour-leader-prime-minister.html
@@ -22,7 +38,7 @@ https://www.nytimes.com/2026/07/16/us/kentucky-ghost-gun-death-settlement.html
 `At least one person died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Three passengers remain unaccounted for.`\
 https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
 
-**Live Updates: Trump Makes Outlandish Claims About Election Results in Address**\
+**Live Updates: Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
 `Mr. Trump also laid out a purported effort by the Chinese government to undermine him in 2019. But the documents posted by the White House, although heavily redacted, did not back up his claims.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/07/16/us/craig-melvin-today-show-intruder.html
 **On the War Against Iran, the Pentagon Has Said Little**\
 `Defense Secretary Pete Hegseth has spoken about a range of issues in recent days — from testosterone to leak investigations — but he has said little about the war.`\
 https://www.nytimes.com/2026/07/16/us/politics/hegseth-iran-war-briefings.html
-
-**America Without Capitalism?**\
-`What would socialists do to the American economy? On “Interesting Times,” Bhaskar Sunkara, author of “The Socialist Manifesto,” thinks we can have free markets without capitalism.`\
-https://www.nytimes.com/video/opinion/100000011024688/america-without-capitalism.html
-
-**Man Who Killed Gay Dancer in Brooklyn Is Sentenced to 20 Years**\
-`Dmitriy Popov, 20, was convicted of manslaughter as a hate crime for fatally stabbing O’Shae Sibley, 28, at a gas station in Brooklyn in 2023.`\
-https://www.nytimes.com/2026/07/16/nyregion/oshae-sibley-case-manslaughter-hate-crime.html
-
-**Netflix Revenue Grows 13% to $12.6 Billion**\
-`The company’s second-quarter earnings were largely in line with Wall Street’s expectations.`\
-https://www.nytimes.com/2026/07/16/business/media/netflix-earnings.html
-
-**Tom Kean Is Back in Congress but Still Isn’t Talking**\
-`Mr. Kean, a New Jersey Republican who was absent from Congress while being treated for depression, has since appeared at few campaign events and declined interview requests.`\
-https://www.nytimes.com/2026/07/16/nyregion/tom-kean-campaign.html
 
