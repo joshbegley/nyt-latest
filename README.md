@@ -1,3 +1,7 @@
+**Cyclospora Investigation Turns to Farms in Mexico**\
+`The F.D.A. is planning to inspect farms and a lettuce shredding facility to determine how lettuce supplied by the produce company Taylor Farms to Taco Bell became contaminated and where it was shipped.`\
+https://www.nytimes.com/2026/07/17/health/cyclospora-taylor-farms-mexico-taco-bell-lettuce.html
+
 **Garfield Sobers, Renowned ‘All-Rounder’ Cricket Star, Dies at 89**\
 `A longtime West Indian captain, he could do it all on the pitch.`\
 https://www.nytimes.com/2026/07/17/sports/garfield-sobers-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/07/17/world/earthquake-mexico-guatemala
 **‘Blue MAGA’ Has Entered the Chat**\
 `It’s a term that can mean whatever the people using it want it to mean. But it’s not a compliment.`\
 https://www.nytimes.com/2026/07/17/style/blue-maga-meaning-democrats.html
-
-**How to Keep the Air Inside Safe From Wildfire Smoke**\
-`Wildfire smoke can contaminate the air inside a home, but there are measures you can take to make your indoor environment safer.`\
-https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-safety.html
 
