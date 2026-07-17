@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/07/17/business/boeing-turnaround-737-max.html
 https://www.nytimes.com/2026/07/17/weather/fire-midtown-manhattan-nyc.html
 
 **Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
-`She won for playing a stoic mother in “My Left Foot” (1989) and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2” (1992).`\
+`She won for playing a stoic mother in “My Left Foot” and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2.”`\
 https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
 
 **Climate Change Contributes to Rising Share of Wildfire Smoke Deaths**\
