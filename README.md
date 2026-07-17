@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-code
 `Poolhouse, which was created by the founders of Topgolf and uses technology to track players’ scores, aims to sell its platform to others.`\
 https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html
 
-**Ontario Wildfires Burn On, Releasing More Smoke**\
-`More than 100 blazes continued to devastate swaths of Ontario, prompting evacuations.`\
+**Ontario Wildfires Burn On, and New Ones Spring Up**\
+`More than 180 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
 https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
 
 **The Burning, Bleeding, Breathing Art of Ana Mendieta**\
