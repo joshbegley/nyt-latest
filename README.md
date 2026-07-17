@@ -1,3 +1,11 @@
+**South Carolina Man Who Fired Rifle to Scare a Black Neighbor Gets 9 Years**\
+`The man, Jonathan Andrew Felkel, fired a rifle and shouted a racial slur at the victim, whom he targeted because of his race, law enforcement officials said.`\
+https://www.nytimes.com/2026/07/17/us/south-carolina-black-hate-crime-shooting.html
+
+**Trump Threatens Canada With Tariffs Over Wildfires**\
+`President Trump threatened on Friday to charge Canada tariffs for harms caused by the wildfire smoke in the U.S.`\
+https://www.nytimes.com/video/us/100000011038907/trump-tariffs-canada-wildfires.html
+
 **Dozens of Wildfires Are Suddenly Burning in Oregon**\
 `The state told thousands of people to be ready to evacuate.`\
 https://www.nytimes.com/2026/07/17/weather/oregon-wildfires-smoke-canada.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elec
 **The Latest Texas Floods Tested Warning Systems. This Time, They Passed.**\
 `A lack of sirens and flood forecasting systems made the state’s Hill Country vulnerable to deadly floods last summer. That has changed.`\
 https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html
-
-**Rudolph Marcus, Who Illuminated Electrochemical Processes, Dies at 102**\
-`He received a 1992 Nobel Prize for developing a theory that explained fundamental processes behind photosynthesis, respiration, oxidation and even how fireflies produce light.`\
-https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html
-
-**X and Music Publishers Retreat From Lawsuits**\
-`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026. They have not said why.`\
-https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
 
