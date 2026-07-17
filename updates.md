@@ -1,3 +1,7 @@
+**Bridges Destroyed in Iran After Latest Exchange With U.S. Military**\
+`Video on social media shows bridges reduced to rubble in southern Iran after the sixth consecutive night of strikes between U.S. and Iranian forces.`\
+https://www.nytimes.com/video/world/middleeast/100000011037160/iran-war-us-strikes-bridges-hormuz.html
+
 **Roger Summit, Who Invented an Early Online Search Service, Dies at 95**\
 `A research scientist at Lockheed, he came up with the idea for a computer system that would search scientific and technical literature almost instantaneously.`\
 https://www.nytimes.com/2026/07/17/technology/roger-summit-dead.html
