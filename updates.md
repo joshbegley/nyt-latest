@@ -1,3 +1,7 @@
+**Truth Social Parent to Sell Faster Access to Trump’s Posts**\
+`The product, Truth API, could give Wall Street trading firms an edge in seeing President Trump’s posts on the social media platform he partly owns.`\
+https://www.nytimes.com/2026/07/16/business/energy-environment/trump-truth-social-api-access.html
+
 **Fire in National Forest Pocked by Blazes Crosses Into Canada**\
 `More than a dozen fires are burning in Superior National Forest in Minnesota, sending smoke through the Midwest to the East Coast.`\
 https://www.nytimes.com/2026/07/16/weather/boundary-waters-fire-minnesota.html
