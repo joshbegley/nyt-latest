@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
 `Chinese officials called the election-meddling accusation baseless, while analysts said Beijing was trying to preserve a fragile détente.`\
 https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
 
-**Iran War Live Updates: U.S. Hits Bridges and a Port in Southern Iran as Airstrikes Expand**\
-`Rail and road connections were reportedly struck as Washington sought to weaken Tehran’s grip on the Strait of Hormuz. Iran responded by firing on American military facilities in the region.`\
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Country’s South, Iranian Media says**\
+`The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
 https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
 
 **The 20-Somethings Running Ukraine’s War Machine**\
