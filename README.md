@@ -1,3 +1,7 @@
+**Roger Summit, Who Invented an Early Online Search Service, Dies at 95**\
+`A research scientist at Lockheed, he came up with the idea for a computer system that would search scientific and technical literature almost instantaneously.`\
+https://www.nytimes.com/2026/07/17/technology/roger-summit-dead.html
+
 **Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 24 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
 https://www.nytimes.com/2026/07/17/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/arts/television/world-cup.html
 **Venezuela Earthquakes Force a Grim Homecoming for Migrants**\
 `Mass migration, which defines modern Venezuela, has heavily marked the earthquake, too, saving many who had left, but also making their grief harder.`\
 https://www.nytimes.com/2026/07/17/world/americas/venezuela-earthquakes-families-migration.html
-
-**Paramedics’ Push for a Living Wage**\
-`Emergency Medical Service workers in New York City make as little as $18 an hour. They are a division of the Fire Department, where firefighters can make twice as much.`\
-https://www.nytimes.com/2026/07/17/nyregion/paramedics-push-for-a-living-wage.html
 
