@@ -1,3 +1,7 @@
+**Parents in Uganda Demand Answers After Bus Crash Kills 21 Children**\
+`The driver of the school bus, carrying dozens of students, lost control, officials said, causing the bus to veer off the road into a boulder.`\
+https://www.nytimes.com/2026/07/17/world/africa/uganda-bus-crash-children.html
+
 **‘The Real World’ and Nathan Fielder Can Both Thank Ross McElwee**\
 `Ross McElwee’s documentaries have shaped reality TV, comedy, podcasts and more in ways that you may not realize.`\
 https://www.nytimes.com/2026/07/17/movies/ross-mcelwee-the-real-world-nathan-fielder.html

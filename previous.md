@@ -1,3 +1,7 @@
+**Parents in Uganda Demand Answers After Bus Crash Kills 21 Children**\
+`The driver of the school bus, carrying dozens of students, lost control, officials said, causing the bus to veer off the road into a boulder.`\
+https://www.nytimes.com/2026/07/17/world/africa/uganda-bus-crash-children.html
+
 **‘The Real World’ and Nathan Fielder Can Both Thank Ross McElwee**\
 `Ross McElwee’s documentaries have shaped reality TV, comedy, podcasts and more in ways that you may not realize.`\
 https://www.nytimes.com/2026/07/17/movies/ross-mcelwee-the-real-world-nathan-fielder.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
 **Iran War Live Updates: U.S. Hits Bridges and a Control Tower in Country’s South**\
 `The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
 https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
-
-**The 20-Somethings Running Ukraine’s War Machine**\
-`A new generation has been cutting red tape to speed weapons to the front. But the old guard pushed back, and now Ukraine’s young defense minister is out.`\
-https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation.html
 

@@ -1,3 +1,11 @@
+**Meta in Talks to Lease Computing Power to Anthropic in Potential $10 Billion Deal**\
+`A deal would underline how scarce computing power is for artificial intelligence development, and could create a new business for Meta.`\
+https://www.nytimes.com/2026/07/17/technology/meta-anthropic-ai-computing-power.html
+
+**Flashback: Your Weekly History Quiz, July 18, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/17/upshot/flashback.html
+
 **Parents in Uganda Demand Answers After Bus Crash Kills 21 Children**\
 `The driver of the school bus, carrying dozens of students, lost control, officials said, causing the bus to veer off the road into a boulder.`\
 https://www.nytimes.com/2026/07/17/world/africa/uganda-bus-crash-children.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/crosswords/strands-sidekick-867.html
 **Shipping in the Persian Gulf Nears a Halt and Oil Prices Rise**\
 `Shipping traffic was at its lowest level in more than a month and oil prices moved higher as the Iran war continued to disrupt the supply of energy.`\
 https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
-
-**Beijing Rejects Trump’s Claim of Meddling, but Avoids a Fight**\
-`Chinese officials called the election-meddling accusation baseless, while analysts said Beijing was trying to preserve a fragile détente.`\
-https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
-
-**Iran War Live Updates: U.S. Hits Bridges and a Control Tower in Country’s South**\
-`The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
-https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
 
