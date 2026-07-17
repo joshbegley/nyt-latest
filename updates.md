@@ -1,3 +1,11 @@
+**A New Blow to Tracking Gun Sales**\
+`The House has passed a bill that would bar the use of merchant codes specifically for firearm retailers, an effort to pre-empt state adoption of the tool.`\
+https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-codes.html
+
+**Ontario Wildfires Burn On, and New Ones Spring Up**\
+`More than 180 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
+https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
+
 **Poolhouse, a Tech-Infused Pool Hall Start-up, Raises $55 Million**\
 `Poolhouse, which was created by the founders of Topgolf and uses technology to track players’ scores, aims to sell its platform to others.`\
 https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html

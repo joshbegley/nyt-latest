@@ -1,3 +1,11 @@
+**Stocks Sink on Anxiety About Tech and A.I. Spending**\
+`A sell-off in Asia led by chipmakers spilled into Europe and U.S. markets on Friday.`\
+https://www.nytimes.com/2026/07/17/business/stocks-ai-tech-wall-street.html
+
+**Iran-U.S. Talks: How 4 Negotiators Would Approach Diplomacy**\
+`First step: Agree on a goal.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/iran-us-war-peace-talks-strategies.html
+
 **A New Blow to Tracking Gun Sales**\
 `The House has passed a bill that would bar the use of merchant codes specifically for firearm retailers, an effort to pre-empt state adoption of the tool.`\
 https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-codes.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/opinion/metoo-law-ailes-canceled.html
 **‘Shifters’ Review: Fast-Forwarding Through a Predictable Romance**\
 `Des (Heather Agyepong) and Dre (Daniel Ezra), navigate a mutual magnetic pull in this British love story by Benedict Lombe at Cherry Lane Theater.`\
 https://www.nytimes.com/2026/07/17/theater/shifters-review.html
-
-**Gen Z Is Going to the Movies. This Is Great News for Everyone.**\
-`Hollywood thought it had lost young audiences to platforms like YouTube and Twitch. But Gen Z-ers are finding something at the movies they can’t find anywhere else.`\
-https://www.nytimes.com/2026/07/17/opinion/gen-z-movie-theaters-hollywood.html
-
-**The Rediscovery of Country Original Gary Stewart**\
-`Gary Stewart spent a few years on top, but was largely forgotten after his tragic death in 2003. Now a new generation is rediscovering the onetime “king of honky-tonk.”`\
-https://www.nytimes.com/2026/07/17/arts/music/gary-stewart-country-music.html
 

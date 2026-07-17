@@ -1,9 +1,13 @@
+**A New Blow to Tracking Gun Sales**\
+`The House has passed a bill that would bar the use of merchant codes specifically for firearm retailers, an effort to pre-empt state adoption of the tool.`\
+https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-codes.html
+
 **Poolhouse, a Tech-Infused Pool Hall Start-up, Raises $55 Million**\
 `Poolhouse, which was created by the founders of Topgolf and uses technology to track players’ scores, aims to sell its platform to others.`\
 https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html
 
-**Ontario Wildfires Burn On, Releasing More Smoke**\
-`More than 100 blazes continued to devastate swaths of Ontario, prompting evacuations.`\
+**Ontario Wildfires Burn On, and New Ones Spring Up**\
+`More than 180 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
 https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
 
 **The Burning, Bleeding, Breathing Art of Ana Mendieta**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/opinion/gen-z-movie-theaters-hollywood.html
 **The Rediscovery of Country Original Gary Stewart**\
 `Gary Stewart spent a few years on top, but was largely forgotten after his tragic death in 2003. Now a new generation is rediscovering the onetime “king of honky-tonk.”`\
 https://www.nytimes.com/2026/07/17/arts/music/gary-stewart-country-music.html
-
-**Why Trump Can’t Leave the Smithsonian Alone**\
-`The Trump White House and its history police want us all to live in their chosen bubble, immune from instability or perceived disorder.`\
-https://www.nytimes.com/2026/07/17/opinion/trump-smithsonian-cold-war.html
 
