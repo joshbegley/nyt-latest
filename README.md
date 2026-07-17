@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mex
 https://www.nytimes.com/2026/07/17/opinion/trump-speech-election-claims.html
 
 **En Cuba, un preso político fue liberado de prisión. Luego desapareció**\
-`Luis Manuel Otero Alcántara, artista cubano que espera permiso del gobierno del presidente Trump para ingresar a Estados Unidos, se encuentra retenido en un lugar desconocido en Cuba.`\
+`Luis Manuel Otero Alcántara, artista cubano que esperaba permiso del gobierno del presidente Trump para ingresar a Estados Unidos, estuvo retenido en un lugar desconocido en Cuba.`\
 https://www.nytimes.com/es/2026/07/17/espanol/america-latina/artista-cubano-desaparecido-preso-politico.html
 
 **What’s the Deal With Those Upside-Down Hats?**\
