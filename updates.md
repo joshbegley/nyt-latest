@@ -1,3 +1,39 @@
+**‘Heartstopper Forever’ Review: Facing a Grown-Up Reality**\
+`The glossy Netflix series graduates into adulthood with this movie starring Kit Connor and Joe Locke as a couple with thoughts of college ahead.`\
+https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review-facing-a-grown-up-reality.html
+
+**The History of the Carriage Horses in Central Park**\
+`After 165 years, the tourist ritual — which now costs $77.22 for the first 20 minutes — may be coming to an end. Here’s a tour through the archives.`\
+https://www.nytimes.com/2026/07/17/nyregion/is-new-yorks-love-hate-relationship-with-horse-carriages-over-at-last.html
+
+**Hegseth planea evaluar el nivel de testosterona de las tropas de EE. UU.**\
+`Pete Hegseth, como secretario de Defensa, ha buscado cultivar la imagen de un líder afín a la manosfera.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/pete-hegseth-testosterona.html
+
+**Ucrania estaba en una buena racha. Entonces surgió una ruptura militar**\
+`Desde un estacionamiento subterráneo, el recién destituido ministro de Defensa de Ucrania emitió la crítica pública más dramática al mando militar que se haya hecho durante la guerra.`\
+https://www.nytimes.com/es/2026/07/17/espanol/mundo/ucrania-defensa-drones.html
+
+**Late Night Is Amused by Alleged White House Teleprompter Grift**\
+`Hosts responded on Thursday to a teleprompter operator reportedly winning around $100,000 betting on what President Trump would say in his speeches.`\
+https://www.nytimes.com/2026/07/17/arts/television/late-night-trump-teleprompter-operator-bets.html
+
+**Japan Passes New Law Banning Flag Desecration in Nationalist Push**\
+`The new law is part of a campaign by Prime Minister Sanae Takaichi, a hard-line conservative, to build a more patriotic and assertive Japan. Critics say it undermines free speech.`\
+https://www.nytimes.com/2026/07/17/world/asia/japan-flag-desecration-law.html
+
+**He Pursued a Pardon in Trump’s Justice System. It Added to His Problems.**\
+`Michael Castillero was convicted of defrauding investors in a $386 million scheme. Then he started courting MAGA influencers.`\
+https://www.nytimes.com/2026/07/17/nyregion/castillero-fraud-trump-pardon-sentence.html
+
+**NYT Spelling Bee Answers for July 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/17/crosswords/spelling-bee-forum.html
+
+**Wait, Moviegoing Isn’t Dead? Our Critic Explains.**\
+`The Times’s chief film critic, Manohla Dargis, discusses what is driving the youthquake in moviegoing, and what she thinks it portends for the film industry.`\
+https://www.nytimes.com/2026/07/17/insider/summer-movies.html
+
 **The King of the North, Andy Burnham, Won’t Save Britain**\
 `For the country, Andy Burnham looks a lot like more of the same.`\
 https://www.nytimes.com/2026/07/17/opinion/andy-burnham-britain-prime-minister.html
