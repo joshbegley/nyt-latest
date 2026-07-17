@@ -1,3 +1,7 @@
+**Tras años de dejar de fumar, una prueba de detección de cáncer de pulmón le salvó la vida**\
+`El cáncer de pulmón sigue siendo la principal causa de muerte por cáncer en EE. UU. Pero solo alrededor de una cuarta parte de los pacientes que podrían hacerse pruebas de detección están al día con ellas.`\
+https://www.nytimes.com/es/2026/07/17/espanol/prueba-deteccion-cancer-pulmon.html
+
 **‘Heartstopper Forever’ Review: Facing a Grown-Up Reality**\
 `The glossy Netflix series graduates into adulthood with this movie starring Kit Connor and Joe Locke as a couple with thoughts of college ahead.`\
 https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review.html
