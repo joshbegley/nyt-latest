@@ -1,3 +1,47 @@
+**Una nueva especie de mono africano acaba de ser descubierta**\
+`En 2008, un equipo de investigadores hizo un avistamiento inusual en el Congo-Kinsasa, pero la fotografía que tomaron salió borrosa. Una década después, el misterioso primate cobró mayor nitidez.`\
+https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/mono-naranja.html
+
+**Quote of the Day: E.V. Chargers Are Spreading Across South at Restaurants and Stores**\
+`Quotation of the Day for Friday, July 17, 2026.`\
+https://www.nytimes.com/2026/07/17/pageoneplus/quote-of-the-day-ev-chargers-are-spreading-across-south-at-restaurants-and-stores.html
+
+**He Was a Russian Political Survivor, Until the Masked Men Appeared**\
+`Boris B. Nadezhdin, an outspoken opponent of the war in Ukraine, says he knows why he was detained: “Among our leadership, there is panic and chaos.”`\
+https://www.nytimes.com/2026/07/17/world/europe/russia-politics-election-nadezhdin.html
+
+**How Andy Burnham Becomes Britain’s New Prime Minister**\
+`Andy Burnham is set to officially become the next prime minister on Monday, but a number of things have to happen before then. Here’s how everything is expected to play out.`\
+https://www.nytimes.com/2026/07/17/world/europe/burnham-prime-minister-explainer.html
+
+**New Prime Minister Faces Old Problems: How to Make Britain’s Economy Grow**\
+`Conversations with economists, and people around him, shed light on how Andy Burnham might tackle entrenched challenges.`\
+https://www.nytimes.com/2026/07/17/business/britain-andy-burnham-prime-minister.html
+
+**Corrections: July 17, 2026**\
+`Corrections that appeared in print on Friday, July 17, 2026.`\
+https://www.nytimes.com/2026/07/17/pageoneplus/corrections-july-17-2026.html
+
+**A Fashion Model and Dentist, Brought Together by a Dozen Cupcakes**\
+`Ryann Murphy and Dr. Michael Apa met five years ago through Instagram when she posted about needing to brighten up her smile.`\
+https://www.nytimes.com/2026/07/17/style/ryann-murphy-michael-apa-wedding.html
+
+**They Rode Citi Bikes in Different Directions, but Not for Long**\
+`A night out with mutual friends led Caitlin Shu and Daniel Ciszek to build a life together in Brooklyn before marrying five years later.`\
+https://www.nytimes.com/2026/07/17/style/caitlin-shu-daniel-ciszek-wedding.html
+
+**‘Divine Bread Crumbs’ Guided Their Love Story**\
+`Pamela Soberman and Beni Summers credit fate for their unlikely meeting at a singing retreat on New Year’s Eve.`\
+https://www.nytimes.com/2026/07/17/style/pamela-soberman-beni-summers-wedding.html
+
+**As Soon as He Stopped Looking, There She Was**\
+`Nadya Okamoto had always put work first. When Henry Stevenson wanted to learn about her as a person, she wasn’t sure how to answer.`\
+https://www.nytimes.com/2026/07/17/style/nadya-okamoto-henry-stevenson-wedding.html
+
+**The Proper Way to Dump Someone**\
+`Basically, just please don’t do what was done to me.`\
+https://www.nytimes.com/2026/07/17/style/modern-love-the-proper-way-to-dump-someone.html
+
 **U.S. Inquiry Into Former N.Y.C. Sheriff Seeks Records on Tobacco Firm**\
 `Federal authorities searched the home of Anthony Miranda, the former sheriff, and sought records about the tobacco company, Reynolds American.`\
 https://www.nytimes.com/2026/07/16/nyregion/reynolds-tobacco-criminal-investigation-nyc-sheriff.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/07/16/us/us-navy-jet-blue-angels.html
 **Blue Angels Jet Flies Low Over Beachgoers in Florida**\
 `Videos of a low Blue Angels flyover at Pensacola Beach, Fla., on Wednesday show people cheering as beach items and sand blew across the beach.`\
 https://www.nytimes.com/video/us/100000011035362/blue-angels-flyover-florida.html
-
-**Canada Wildfires: See Photos of Smoke Shrouding NYC, Toronto and More Cities**\
-`The air was hazardous, and skylines at times seemed nearly erased. The smoke will linger before finally letting up.`\
-https://www.nytimes.com/2026/07/16/us/canada-wildfire-smoke-photos-video.html
-
-**Millions of Americans Are Urged to Limit Their Time Outdoors**\
-`Also, Trump is set to deliver a prime-time speech on election security. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/07/16/briefing/wildfire-smoke-trump-election-speech.html
-
-**Ken Paxton and James Talarico Agree to Debate in U.S. Senate Race**\
-`Ken Paxton, a Republican, has not debated in more than a decade. A showdown with James Talarico, a Democrat, could be a key moment in the hard-fought race.`\
-https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
-
-**Gay-Themed Mediterranean Cruise Turned Away From Turkey and Then Egypt**\
-`In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
-https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
-
-**In Prime Time, Trump Criticizes Networks for Not Carrying His Speech**\
-`The president also called for ABC and NBC to lose their broadcast licenses, after complaining that the networks were not airing his remarks.`\
-https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
-
-**Climate Change Contributes to a Smokier World**\
-`Higher temperatures and drought conditions are contributing to more intense wildfires and extending the summer fire season in North America.`\
-https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-climate-change.html
-
-**What to Know About the New Cholesterol Pill and How it Compares to Statins**\
-`How does it compare to statins? Should you take it? And how much does it cost?`\
-https://www.nytimes.com/2026/07/16/well/new-cholesterol-drug-statins.html
-
-**Mensaje a la nación de Trump: la seguridad electoral estará en la agenda**\
-`Durante más de una década, el presidente Trump ha sembrado dudas sobre la integridad de las elecciones de EE. UU., y es probable que retome algunas de sus aseveraciones en un mensaje que dará el jueves.`\
-https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-mensaje-nacion.html
-
-**Chinese Human Rights Lawyer Seeking Asylum Is Arrested by ICE**\
-`Shaoping Wu was working as a contract delivery driver for Amazon when he was pulled over in Pennsylvania. He had championed personal and religious freedom for Chinese citizens.`\
-https://www.nytimes.com/2026/07/16/us/chinese-lawyer-wu-shaoping-ice-detention.html
-
-**Tourist Helicopter Struck Geese Before Crashing in Hudson River, Documents Show**\
-`Officials discovered remains from at least two birds on the helicopter’s rotor blades, according to documents released by the National Transportation Safety Board.`\
-https://www.nytimes.com/2026/07/16/us/politics/ntsb-helicopters-hudson-river-geese.html
-
-**Lionel Messi Is Walking Into History**\
-`Messi doesn’t walk because he’s left the game. He walks in order to enter it.`\
-https://www.nytimes.com/2026/07/16/opinion/messi-world-cup-argentina-final.html
 

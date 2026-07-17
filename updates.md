@@ -1,3 +1,47 @@
+**Una nueva especie de mono africano acaba de ser descubierta**\
+`En 2008, un equipo de investigadores hizo un avistamiento inusual en el Congo-Kinsasa, pero la fotografía que tomaron salió borrosa. Una década después, el misterioso primate cobró mayor nitidez.`\
+https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/mono-naranja.html
+
+**Quote of the Day: E.V. Chargers Are Spreading Across South at Restaurants and Stores**\
+`Quotation of the Day for Friday, July 17, 2026.`\
+https://www.nytimes.com/2026/07/17/pageoneplus/quote-of-the-day-ev-chargers-are-spreading-across-south-at-restaurants-and-stores.html
+
+**He Was a Russian Political Survivor, Until the Masked Men Appeared**\
+`Boris B. Nadezhdin, an outspoken opponent of the war in Ukraine, says he knows why he was detained: “Among our leadership, there is panic and chaos.”`\
+https://www.nytimes.com/2026/07/17/world/europe/russia-politics-election-nadezhdin.html
+
+**How Andy Burnham Becomes Britain’s New Prime Minister**\
+`Andy Burnham is set to officially become the next prime minister on Monday, but a number of things have to happen before then. Here’s how everything is expected to play out.`\
+https://www.nytimes.com/2026/07/17/world/europe/burnham-prime-minister-explainer.html
+
+**New Prime Minister Faces Old Problems: How to Make Britain’s Economy Grow**\
+`Conversations with economists, and people around him, shed light on how Andy Burnham might tackle entrenched challenges.`\
+https://www.nytimes.com/2026/07/17/business/britain-andy-burnham-prime-minister.html
+
+**Corrections: July 17, 2026**\
+`Corrections that appeared in print on Friday, July 17, 2026.`\
+https://www.nytimes.com/2026/07/17/pageoneplus/corrections-july-17-2026.html
+
+**A Fashion Model and Dentist, Brought Together by a Dozen Cupcakes**\
+`Ryann Murphy and Dr. Michael Apa met five years ago through Instagram when she posted about needing to brighten up her smile.`\
+https://www.nytimes.com/2026/07/17/style/ryann-murphy-michael-apa-wedding.html
+
+**They Rode Citi Bikes in Different Directions, but Not for Long**\
+`A night out with mutual friends led Caitlin Shu and Daniel Ciszek to build a life together in Brooklyn before marrying five years later.`\
+https://www.nytimes.com/2026/07/17/style/caitlin-shu-daniel-ciszek-wedding.html
+
+**‘Divine Bread Crumbs’ Guided Their Love Story**\
+`Pamela Soberman and Beni Summers credit fate for their unlikely meeting at a singing retreat on New Year’s Eve.`\
+https://www.nytimes.com/2026/07/17/style/pamela-soberman-beni-summers-wedding.html
+
+**As Soon as He Stopped Looking, There She Was**\
+`Nadya Okamoto had always put work first. When Henry Stevenson wanted to learn about her as a person, she wasn’t sure how to answer.`\
+https://www.nytimes.com/2026/07/17/style/nadya-okamoto-henry-stevenson-wedding.html
+
+**The Proper Way to Dump Someone**\
+`Basically, just please don’t do what was done to me.`\
+https://www.nytimes.com/2026/07/17/style/modern-love-the-proper-way-to-dump-someone.html
+
 **U.S. Inquiry Into Former N.Y.C. Sheriff Seeks Records on Tobacco Firm**\
 `Federal authorities searched the home of Anthony Miranda, the former sheriff, and sought records about the tobacco company, Reynolds American.`\
 https://www.nytimes.com/2026/07/16/nyregion/reynolds-tobacco-criminal-investigation-nyc-sheriff.html
