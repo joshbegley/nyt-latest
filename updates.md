@@ -1,4 +1,8 @@
 **Live Updates: Trump Makes Outlandish Claims About Election Results in Address**\
+`Mr. Trump also laid out a purported effort by the Chinese government to undermine him in 2019. But the documents posted by the White House, although heavily redacted, did not back up his claims.`\
+https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
+
+**Live Updates: Trump Makes Outlandish Claims About Election Results in Address**\
 `Mr. Trump also laid out a purported effort by the Chinese government to undermine him in 2019. But the documents posted by the White House, although heavily redacted, were far more guarded in their conclusions.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 
