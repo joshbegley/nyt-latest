@@ -1,3 +1,7 @@
+**¿Demasiados libros?**\
+`Mendel Uminer se encontró en un aprieto cuando su casero se opuso a los 10.000 libros que tenía en su estudio de Nueva York.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/demasiados-libros-nueva-york-apartamento.html
+
 **How Andy Burnham, ‘King of the North,’ Conquered U.K. Politics**\
 `A plain-spoken politician from a modest background in northwest England, Mr. Burnham is set to be named Labour leader — and prime minister apparent — on Friday.`\
 https://www.nytimes.com/2026/07/17/world/europe/andy-burnham-uk-labour-prime-minister.html

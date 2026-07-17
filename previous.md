@@ -1,3 +1,7 @@
+**¿Demasiados libros?**\
+`Mendel Uminer se encontró en un aprieto cuando su casero se opuso a los 10.000 libros que tenía en su estudio de Nueva York.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/demasiados-libros-nueva-york-apartamento.html
+
 **How Andy Burnham, ‘King of the North,’ Conquered U.K. Politics**\
 `A plain-spoken politician from a modest background in northwest England, Mr. Burnham is set to be named Labour leader — and prime minister apparent — on Friday.`\
 https://www.nytimes.com/2026/07/17/world/europe/andy-burnham-uk-labour-prime-minister.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/us/johan-sebastian-guerrero-colombia.html
 **Watch Live: Trump Gives Prime-Time Address on Elections**\
 `President Trump delivers a prime-time address on election security and voting machines.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011036719/watch-live-trump-gives-prime-time-address-on-elections.html
-
-**Truth Social Parent to Sell Faster Access to Trump’s Posts**\
-`The product, Truth API, could give Wall Street trading firms an edge in seeing President Trump’s posts on the social media platform he partly owns.`\
-https://www.nytimes.com/2026/07/16/business/energy-environment/trump-truth-social-api-access.html
 
