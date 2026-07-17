@@ -1,3 +1,23 @@
+**What to Know About Trump’s Attacks on Mail Voting**\
+`Many of President Trump’s attempts to curtail mail voting have been blocked by the courts. Before Trump, Republicans actually embraced absentee voting.`\
+https://www.nytimes.com/2026/07/16/us/politics/what-to-know-about-trumps-attacks-on-mail-voting.html
+
+**NYT Crossword Answers for July 17, 2026**\
+`Coz Berlin’s debut opens our solving weekend.`\
+https://www.nytimes.com/2026/07/16/crosswords/daily-puzzle-2026-07-17.html
+
+**Fighting Wildfires Consistently Strains Ontario’s Budget**\
+`As hundreds of wildfires rage across Canada, Ontario’s emergency firefighting budget remains well below what it has spent in recent years.`\
+https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfire-budget.html
+
+**5 Takeaways From a Maine Debate That Showed Replacing Platner Isn’t Easy**\
+`Maine Democrats vying to become the state’s new Senate nominee met, and mostly agreed, at a debate filled with halting answers and stilted deliveries.`\
+https://www.nytimes.com/2026/07/16/us/politics/maine-senate-debate-takeaways.html
+
+**Live Updates: Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
+`Mr. Trump also laid out a purported effort by the Chinese government to undermine him in 2019. But the documents posted by the White House, although heavily redacted, did not back up his claims.`\
+https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
+
 **Live Updates: Trump Makes Outlandish Claims About Election Results in Address**\
 `Mr. Trump also laid out a purported effort by the Chinese government to undermine him in 2019. But the documents posted by the White House, although heavily redacted, did not back up his claims.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
