@@ -1,3 +1,19 @@
+**Dozens of Wildfires Are Suddenly Burning in Oregon**\
+`The state told thousands of people to be ready to evacuate.`\
+https://www.nytimes.com/2026/07/17/weather/oregon-wildfires-smoke-canada.html
+
+**Zohran Mamdani Knows He Has Political Capital. And He Intends to Spend It.**\
+`Lulu Garcia-Navarro speaks with Mayor Zohran Mamdani of New York City about his affordability agenda.`\
+https://www.nytimes.com/video/podcasts/100000011038767/zohran-mamdani-knows-he-has-political-capital-and-he-intends-to-spend-it.html
+
+**Paul Pelosi Charged With Hit-and-Run in Napa Valley Crash**\
+`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, crashed into a parked Tesla near his home among the vineyards this month.`\
+https://www.nytimes.com/2026/07/17/us/paul-pelosi-napa-valley-crash.html
+
+**Central Texas Floods Kills at Least Two People**\
+`A deadly flood that tore through Central Texas for days began to ebb in some areas on Friday. At least two people died in the flooding. Gov. Greg Abbott warned residents that water levels were still expected to rise.`\
+https://www.nytimes.com/video/weather/100000011037764/us-flooding-texas.html
+
 **Billionaires Prepare $87 Million Ad Campaign to Block California Wealth Tax**\
 `A coalition backed by the Google co-founder Sergey Brin and wealthy tech investors is trying to neutralize a proposed one-time tax on the state’s richest residents.`\
 https://www.nytimes.com/2026/07/17/us/california-billionaire-tax-opponents-ad-campaign.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html
 **X and Music Publishers Retreat From Lawsuits**\
 `Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026. They have not said why.`\
 https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
-
-**Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
-`At a time of political upheaval and economic stagnation, Andy Burnham will on Monday become the seventh prime minister in a decade.`\
-https://www.nytimes.com/2026/07/17/world/europe/burnham-labour-leader.html
-
-**Terremoto en Guatemala y México: el sismo de 7,3 desata alerta de tsunami**\
-`Un potente sismo cerca de la frontera entre México y Guatemala despertó preocupaciones de tsunami y sacudió edificios en tres países.`\
-https://www.nytimes.com/es/2026/07/17/espanol/america-latina/terremoto-guatemala-mexico.html
-
-**After Repeated Crises, Boeing Looks to Turn a Corner**\
-`The company recently opened a new production line to keep up with strong demand for its 737 Max, though orders for its new planes lag rival Airbus.`\
-https://www.nytimes.com/2026/07/17/business/boeing-turnaround-737-max.html
-
-**Fire in Midtown Manhattan Adds to Smoke Above New York City**\
-`The three-alarm fire, which broke out around 7 a.m., led to the evacuation of 200 people from a Midtown high-rise on Friday morning. Five minor injuries were reported.`\
-https://www.nytimes.com/2026/07/17/weather/fire-midtown-manhattan-nyc.html
 
