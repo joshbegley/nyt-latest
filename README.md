@@ -1,3 +1,7 @@
+**Rudolph Marcus, Who Illuminated Electrochemical Processes, Dies at 102**\
+`He received a 1992 Nobel Prize for developing a theory that explained fundamental processes behind photosynthesis, respiration, oxidation and even how fireflies produce light.`\
+https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html
+
 **X and Music Publishers Retreat From Lawsuits**\
 `Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026, but have not said why.`\
 https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
 `Wildfire smoke is linked to tens of thousands of deaths a year, a number that is rising with climate change.`\
 https://www.nytimes.com/2026/07/17/climate/smoke-air-quality-deaths.html
 
-**7.3-Magnitude Earthquake in Central America Sets Off Tsunami Threat**\
+**7.3-Magnitude Earthquake Off Coast of Mexico and Guatemala Poses Tsunami Threat**\
 `A powerful earthquake near the border of Mexico and Guatemala raised fears of a tsunami and shook buildings across three countries.`\
 https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mexico-guatemala.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf
 **Ontario Wildfires Burn On, and New Ones Spring Up**\
 `Nearly 200 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
 https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
-
-**The Burning, Bleeding, Breathing Art of Ana Mendieta**\
-`A Tate Modern survey of the artist’s lifetime of work sidesteps chronology to focus on her engagement with nature. But does that give us the whole picture?`\
-https://www.nytimes.com/2026/07/17/arts/design/ana-mendieta-tate-modern.html
 
