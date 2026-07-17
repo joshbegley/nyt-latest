@@ -1,3 +1,7 @@
+**Ontario Wildfires Burn On, Releasing More Smoke**\
+`More than 100 blazes continued to devastate swaths of Ontario, prompting evacuations.`\
+https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
+
 **The Burning, Bleeding, Breathing Art of Ana Mendieta**\
 `A Tate Modern survey of the artist’s lifetime of work sidesteps chronology to focus on her engagement with nature. But does that give us the whole picture?`\
 https://www.nytimes.com/2026/07/17/arts/design/ana-mendieta-tate-modern.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/opinion/trump-smithsonian-cold-war.html
 **7th Time’s a Charm for a First-Time Buyer Plagued by Bidding Wars**\
 `Even as the market shifts to buyers, first-timers need to be resilient and flexible.`\
 https://www.nytimes.com/2026/07/17/realestate/bidding-war-first-time-home-buyer.html
-
-**‘Heartstopper Forever’: What to Know Before Seeing the Movie**\
-`The Netflix series and its feature-length finale are based on the graphic novels by Alice Oseman. Here’s a reminder of the events of the characters and where their stories left of.`\
-https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-movie-what-to-know.html
 
