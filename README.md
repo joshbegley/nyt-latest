@@ -1,3 +1,7 @@
+**Cyclospora Linked to Taylor Farms Lettuce Sent to Taco Bell**\
+`Federal officials worked with Michigan investigators to trace the outbreak to iceberg lettuce, which may also have gone to other vendors.`\
+https://www.nytimes.com/2026/07/16/well/cyclospora-taylor-farms-lettuce-taco-bell.html
+
 **Mensaje a la nación de Trump: afirmaciones exageradas de riesgos electorales**\
 `Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html
@@ -142,8 +146,8 @@ https://www.nytimes.com/2026/07/16/us/paxton-talarico-debate-texas-senate.html
 `In both Muslim-majority countries, official hostility to gay people has increased in recent years. But the same cruise had visited before without problems.`\
 https://www.nytimes.com/2026/07/16/world/middleeast/gay-cruise-turkey-egypt.html
 
-**ABC and NBC Will Not Take Trump’s Speech Live as Other TV Networks’ Plans Remain Uncertain**\
-`ABC, CNN and NBC were not planning to pre-empt regularly scheduled programming for the president’s remarks at 9 p.m. Fox News is set to carry it live.`\
+**In Prime Time, Trump Criticizes Networks for Not Carrying His Speech**\
+`The president also called for ABC and NBC to lose their broadcast licenses, after complaining that the networks were not airing his remarks.`\
 https://www.nytimes.com/2026/07/16/us/politics/trump-speech-television-networks.html
 
 **Climate Change Contributes to a Smokier World**\
@@ -177,12 +181,4 @@ https://www.nytimes.com/video/podcasts/100000011031400/the-internet-is-finishing
 **Delightful World Cup Stories**\
 `Not all the best moments from the tournament were on the pitch. We revisit some of our favorites ahead of Sunday’s final.`\
 https://www.nytimes.com/2026/07/16/world/world-cup-spain-argentina-ukraine.html
-
-**At Least One Killed by Flash Floods in Central Texas**\
-`Torrential rains have submerged much of Central Texas in floodwater, killing at least one person and forcing scores of people to evacuate their homes.`\
-https://www.nytimes.com/video/weather/100000011034793/central-texas-flash-floods-weather.html
-
-**Manhattan Building’s Buckled Columns Probably Lacked Required Reinforcements**\
-`Drawings obtained by The New York Times show the columns called for additional steel plates, but engineers reviewing site photos said they appeared to be missing.`\
-https://www.nytimes.com/2026/07/16/nyregion/manhattan-building-collapse-nyc-drawings.html
 
