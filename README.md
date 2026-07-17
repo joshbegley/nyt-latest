@@ -1,3 +1,15 @@
+**Live Updates: Trump to Speak About Election Security in Televised Address**\
+`It remains to be seen just how far Mr. Trump will go in discussing the 2020 election that he lost, which he has repeatedly claimed was rigged. But dozens of investigations that have failed to produce evidence of widespread voter fraud or foreign tampering.`\
+https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
+
+**Maine ICE Victim Relentlessly Pursued Better Life, Loved Ones Say**\
+`The partner of Johan Guerrero, who was killed by an immigration agent this week, described him as a tireless worker and doting father who would do anything for his 3-year-old daughter.`\
+https://www.nytimes.com/2026/07/16/us/johan-sebastian-guerrero-colombia.html
+
+**Watch Live: Trump Gives Prime-Time Address on Elections**\
+`President Trump delivers a prime-time address on election security and voting machines.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011036719/watch-live-trump-gives-prime-time-address-on-elections.html
+
 **Truth Social Parent to Sell Faster Access to Trump’s Posts**\
 `The product, Truth API, could give Wall Street trading firms an edge in seeing President Trump’s posts on the social media platform he partly owns.`\
 https://www.nytimes.com/2026/07/16/business/energy-environment/trump-truth-social-api-access.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/weather/canada-us-wildfire-smoke-air-qu
 **Warnock and Ossoff, Georgia’s Senators, Ridicule Trump’s Election Fraud Claims**\
 `Senators in both parties say the state’s 2020 Senate election is a long-settled issue.`\
 https://www.nytimes.com/2026/07/16/us/politics/georgia-senators-ossoff-warnock-trump-election-fraud.html
-
-**These Winemakers Are Starting Over. Will the Third Time Be the Charm?**\
-`Facing unanticipated problems, the owners of Southold abandoned Long Island for Texas, and Texas for France. Will success come next?`\
-https://www.nytimes.com/2026/07/16/dining/drinks/southold-wine-france.html
-
-**White House Teleprompter Operator Bet on Trump Speeches, Kalshi Says**\
-`A technical assistant to President Trump won around $100,000, according to the prediction market, which flagged the activity to the federal government.`\
-https://www.nytimes.com/2026/07/16/technology/teleprompter-operator-kalshi-trump-speeches.html
-
-**Settlement Reached in Ugly Fight Over Elections in Maricopa County**\
-`A Trump ally will receive funding for a new information technology system while retaining control of voter registration and early voting.`\
-https://www.nytimes.com/2026/07/16/us/elections/maricopa-county-elections-settlement.html
 
