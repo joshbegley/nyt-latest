@@ -1,3 +1,15 @@
+**El discurso de Trump que denunció vulnerabilidades electorales: puntos clave**\
+`Los documentos publicados por el gobierno de Trump para respaldar las afirmaciones del presidente no sustentaron sus declaraciones más agresivas.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones-puntos-clave.html
+
+**Deadly Texas Floods Ebb, but Danger Remains: ‘You Could Hear the Water’**\
+`At least two people died as waters rose rapidly across the Texas Hill Country, the same area of the state that saw catastrophic flooding last year.`\
+https://www.nytimes.com/2026/07/17/us/flooding-texas.html
+
+**Mark Morris: A Little Bit Country, a Little Bit Jazz**\
+`Morris’s dance troupe presents “Dances to American Music,” three programs at the Joyce Theater.`\
+https://www.nytimes.com/2026/07/17/theater/mark-morris-dances-to-american-music.html
+
 **Meta in Talks to Lease Computing Power to Anthropic in Potential $10 Billion Deal**\
 `A deal would underline how scarce computing power is for artificial intelligence development, and could create a new business for Meta.`\
 https://www.nytimes.com/2026/07/17/technology/meta-anthropic-ai-computing-power.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/17/podcasts/the-headlines/iran-trump-speech-elec
 **NYT Connections Answers for July 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
 https://www.nytimes.com/2026/07/17/crosswords/connections-companion-1133.html
-
-**Today’s Wordle Hints for July 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
-https://www.nytimes.com/2026/07/17/crosswords/wordle-review-1855.html
-
-**NYT Strands Hints for July 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
-https://www.nytimes.com/2026/07/17/crosswords/strands-sidekick-867.html
-
-**Shipping in the Persian Gulf Nears a Halt and Oil Prices Rise**\
-`Shipping traffic was at its lowest level in more than a month and oil prices moved higher as the Iran war continued to disrupt the supply of energy.`\
-https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
 

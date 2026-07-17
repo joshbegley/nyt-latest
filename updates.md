@@ -1,3 +1,11 @@
+**Meta in Talks to Lease Computing Power to Anthropic in Potential $10 Billion Deal**\
+`A deal would underline how scarce computing power is for artificial intelligence development, and could create a new business for Meta.`\
+https://www.nytimes.com/2026/07/17/technology/meta-anthropic-ai-computing-power.html
+
+**Flashback: Your Weekly History Quiz, July 18, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/17/upshot/flashback.html
+
 **Parents in Uganda Demand Answers After Bus Crash Kills 21 Children**\
 `The driver of the school bus, carrying dozens of students, lost control, officials said, causing the bus to veer off the road into a boulder.`\
 https://www.nytimes.com/2026/07/17/world/africa/uganda-bus-crash-children.html
