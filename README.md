@@ -1,3 +1,7 @@
+**Cuban Dissident Is Missing A Week After Prison Release**\
+`A Cuban artist awaiting permission from the Trump administration to enter the United States is being held in an unknown location in Cuba.`\
+https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-missing-exile.html
+
 **Andy Burnham Set to Become British Prime Minister After Being Named Labour Leader**\
 `Andy Burnham was named the leader of Britain’s Labour Party on Friday, the last step before officially becoming the country’s next prime minister on Monday.`\
 https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-party-leader-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/magazine/venezuela-empires-colony.html
 **In One of Houston’s Oldest Latino Barrios, Mourning After ICE Shooting Mixed With Fear and Anger**\
 `After a federal agent killed Lorenzo Salgado Araujo, the grief and anger in Magnolia Park has been less visible, but no less intense.`\
 https://www.nytimes.com/2026/07/17/us/magnolia-park-houston-mourning-ice-shooting.html
-
-**Can Democrats Finally Understand the Latino Voter in an Era of Mass Deportations?**\
-`For decades, Democrats have misunderstood Latino voters. Trump’s deportation campaign offers a chance for them to get it right.`\
-https://www.nytimes.com/2026/07/17/opinion/latino-voter-democrats-immigration-trump.html
 

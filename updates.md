@@ -1,3 +1,15 @@
+**Andy Burnham Set to Become British Prime Minister After Being Named Labour Leader**\
+`Andy Burnham was named the leader of Britain’s Labour Party on Friday, the last step before officially becoming the country’s next prime minister on Monday.`\
+https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-party-leader-uk.html
+
+**Start-Up Boom Awakens U.S.’s Enterprising Spirit After Decades-Long Slump**\
+`Hundreds of thousands of people are creating companies each year, ending a decades-long drought.`\
+https://www.nytimes.com/2026/07/17/business/economy/american-small-business-boom.html
+
+**Judges Ask Congress for Power to Fix Crumbling Courthouses**\
+`Undrinkable water. Leaks. Mold. Federal courthouses need billions of dollars in repairs, and judges say the General Services Administration is a bad landlord.`\
+https://www.nytimes.com/2026/07/17/us/politics/federal-courthouses-repairs.html
+
 **Bridges Destroyed in Iran After Latest Exchange With U.S. Military**\
 `Video on social media shows bridges reduced to rubble in southern Iran after the sixth consecutive night of strikes between U.S. and Iranian forces.`\
 https://www.nytimes.com/video/world/middleeast/100000011037160/iran-war-us-strikes-bridges-hormuz.html
