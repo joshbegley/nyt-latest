@@ -1,3 +1,7 @@
+**Roger Summit, Who Invented an Early Online Search Service, Dies at 95**\
+`A research scientist at Lockheed, he came up with the idea for a computer system that would search scientific and technical literature almost instantaneously.`\
+https://www.nytimes.com/2026/07/17/technology/roger-summit-dead.html
+
 **Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
 `Mr. Burnham promised more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
 https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
