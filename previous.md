@@ -1,3 +1,7 @@
+**On Fire. Again.**\
+`There were orange skies in 2023, 2025 and now again in 2026. Over the last few years, one thing has become glaringly clear: The East Coast is totally unequipped for the next climate disaster, wildfires. The Opinion writer David Wallace-Wells explains that with every climate disaster, we’re not just adapting to a “new normal,” but bracing ourselves for what’s next.`\
+https://www.nytimes.com/video/opinion/100000011034989/on-fire-again.html
+
 **Is It Safe to Eat Lettuce?**\
 `Federal health officials have linked a large cyclosporiasis outbreak to shredded lettuce served at Taco Bell. Is lettuce from grocery stores and restaurants OK?`\
 https://www.nytimes.com/2026/07/17/well/eat/lettuce-safety-cyclospora-outbreak.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/07/17/us/sara-rodriguez-wisconsin-governor-drop-out
 https://www.nytimes.com/2026/07/17/us/politics/trump-election-save-act-republicans-midterms.html
 
 **Un artista y disidente cubano se irá al exilio tras cumplir su condena**\
-`Otero Alcántara fue arrestado durante las protestas antigubernamentales masivas de 2021, permaneció cinco años en prisión. EE. UU. ofreció una visa y se espera que llegue a Miami el sábado.`\
+`Otero Alcántara fue arrestado durante las protestas antigubernamentales masivas de 2021 y permaneció cinco años en prisión. EE. UU. ofreció una visa y se espera que llegue a Miami el sábado.`\
 https://www.nytimes.com/es/2026/07/17/espanol/america-latina/cuba-prisionero-politico-otero-exilio.html
 
 **The Rise and Fall of Ukraine’s Drone Warfare Mastermind**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/style/upside-down-hats-espys.html
 **El discurso de Trump que denunció vulnerabilidades electorales: puntos clave**\
 `Los documentos publicados por el gobierno de Trump para respaldar las afirmaciones del presidente no sustentaron sus declaraciones más agresivas.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones-puntos-clave.html
-
-**As Floods Begin to Recede, Texans Start to Assess the Destruction**\
-`At least two people died as waters rose rapidly across the Texas Hill Country, the same area of the state that saw catastrophic flooding last year.`\
-https://www.nytimes.com/2026/07/17/us/flooding-texas.html
 

@@ -1,3 +1,11 @@
+**In Venezuela, These Rescue Workers and Volunteers Rushed Into the Earthquake Zone**\
+`After the quakes, Venezuelans knew they had to fend for themselves. They explain why.`\
+https://www.nytimes.com/interactive/2026/07/17/world/americas/venezuela-rescue-workers.html
+
+**Who Really Has the 2026 Midterms Cash Edge?**\
+`The fund-raising race is tighter than it seems.`\
+https://www.nytimes.com/2026/07/17/us/politics/democrats-republicans-midterms-cash.html
+
 **On Fire. Again.**\
 `There were orange skies in 2023, 2025 and now again in 2026. Over the last few years, one thing has become glaringly clear: The East Coast is totally unequipped for the next climate disaster, wildfires. The Opinion writer David Wallace-Wells explains that with every climate disaster, we’re not just adapting to a “new normal,” but bracing ourselves for what’s next.`\
 https://www.nytimes.com/video/opinion/100000011034989/on-fire-again.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/17/opinion/trump-speech-election-claims.html
 **En Cuba, un preso político fue liberado de prisión. Luego desapareció**\
 `Luis Manuel Otero Alcántara, artista cubano que esperaba permiso del gobierno del presidente Trump para ingresar a Estados Unidos, estuvo retenido en un lugar desconocido en Cuba.`\
 https://www.nytimes.com/es/2026/07/17/espanol/america-latina/artista-cubano-desaparecido-preso-politico.html
-
-**What’s the Deal With Those Upside-Down Hats?**\
-`Plus, an ESPYs recap and OpenAI makes some mundane clothes.`\
-https://www.nytimes.com/2026/07/17/style/upside-down-hats-espys.html
-
-**El discurso de Trump que denunció vulnerabilidades electorales: puntos clave**\
-`Los documentos publicados por el gobierno de Trump para respaldar las afirmaciones del presidente no sustentaron sus declaraciones más agresivas.`\
-https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones-puntos-clave.html
 
