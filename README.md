@@ -1,3 +1,7 @@
+**Mullin Promises to Maintain Surge in Immigration Arrests Even After Shootings**\
+`The homeland security secretary made clear that he would seek to deliver on President Trump’s push for mass deportations.`\
+https://www.nytimes.com/2026/07/17/us/politics/mullin-ice-shootings-arrests.html
+
 **La obsesión de Trump con la elección de 2020 tiene un costo para la democracia**\
 `En su segundo mandato, el presidente de EE. UU. insiste en litigar las elecciones de 2020 y encontrar formas de sembrar dudas sobre la votación de 2026.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/07/17/business/ai-spending-oracle-stocks-bonds.html
 **Stocks Sink on Anxiety About Tech and A.I. Spending**\
 `Investors are growing uneasy about increasing competition from China in the global race to dominate artificial intelligence.`\
 https://www.nytimes.com/2026/07/17/business/stocks-ai-tech-wall-street.html
-
-**Iran-U.S. Talks: How 4 Negotiators Would Approach Diplomacy**\
-`First step: Agree on a goal.`\
-https://www.nytimes.com/2026/07/17/world/middleeast/iran-us-war-peace-talks-strategies.html
-
-**A New Blow to Tracking Gun Sales**\
-`The House has passed a bill that would bar the use of merchant codes specifically for firearm retailers, an effort to pre-empt state adoption of the tool.`\
-https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-codes.html
 
