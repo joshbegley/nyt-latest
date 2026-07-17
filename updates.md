@@ -1,3 +1,7 @@
+**How Trump Abused the Power to Declassify America’s Secrets**\
+`The president is manipulating the intelligence community into a tool of misinformation.`\
+https://www.nytimes.com/2026/07/17/opinion/trump-speech-us-intelligence-secrets-classified.html
+
 **Taylor Farms to Remove Products After Lettuce Is Linked to Cyclospora Cases**\
 `The California company grows produce in more than 12 states, and in Mexico and Canada. Taco Bell and food distributor Sysco have pulled Taylor Farms lettuce from supply chains.`\
 https://www.nytimes.com/2026/07/17/business/cyclospora-taylor-farms-lettuce.html
