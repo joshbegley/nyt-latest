@@ -1,3 +1,7 @@
+**States Rush to Fill Graduate Loan Gap Opened by G.O.P. Budget Bill**\
+`Minnesota and Connecticut are two of the states expanding their loan options. “We see it as a substitute program,” one official said.`\
+https://www.nytimes.com/2026/07/17/your-money/states-graduate-loans-us-government.html
+
 **Big Tech Firms Like Oracle Turn to Bonds to Finance A.I. Data Centers**\
 `Risk is rising as big tech companies like Oracle — the ultimate financial source of the Ellison media empire — need to turn to the bond market for staggering sums to finance data centers.`\
 https://www.nytimes.com/2026/07/17/business/ai-spending-oracle-stocks-bonds.html
