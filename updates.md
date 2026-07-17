@@ -1,3 +1,23 @@
+**Tomato Cheddar Toasts, Anyone?**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/07/17/dining/tomato-cheddar-toasts-anyone.html
+
+**‘Obsession’ and Other Horror Movies to Stream Now**\
+`This month brings a catastrophic crush, underhanded ushers and a sinister St. Nick.`\
+https://www.nytimes.com/2026/07/17/movies/five-horror-movies-to-stream-now.html
+
+**What Trump’s Charisma Has Wrought**\
+`What will the Republican Party look like after 2028?`\
+https://www.nytimes.com/2026/07/17/opinion/trump-lindsey-graham-republican-party.html
+
+**Cuban Dissident Is Missing A Week After Prison Release**\
+`A Cuban artist awaiting permission from the Trump administration to enter the United States is being held in an unknown location in Cuba.`\
+https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-missing-exile.html
+
+**America’s Enterprising Spirit is Booming After Decades-Long Slump**\
+`Hundreds of thousands of people are creating companies each year, ending a decades-long drought.`\
+https://www.nytimes.com/2026/07/17/business/economy/american-small-business-boom.html
+
 **Andy Burnham Set to Become British Prime Minister After Being Named Labour Leader**\
 `Andy Burnham was named the leader of Britain’s Labour Party on Friday, the last step before officially becoming the country’s next prime minister on Monday.`\
 https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-party-leader-uk.html

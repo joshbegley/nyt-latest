@@ -1,8 +1,24 @@
+**Tomato Cheddar Toasts, Anyone?**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/07/17/dining/tomato-cheddar-toasts-anyone.html
+
+**‘Obsession’ and Other Horror Movies to Stream Now**\
+`This month brings a catastrophic crush, underhanded ushers and a sinister St. Nick.`\
+https://www.nytimes.com/2026/07/17/movies/five-horror-movies-to-stream-now.html
+
+**What Trump’s Charisma Has Wrought**\
+`What will the Republican Party look like after 2028?`\
+https://www.nytimes.com/2026/07/17/opinion/trump-lindsey-graham-republican-party.html
+
+**Cuban Dissident Is Missing A Week After Prison Release**\
+`A Cuban artist awaiting permission from the Trump administration to enter the United States is being held in an unknown location in Cuba.`\
+https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-missing-exile.html
+
 **Andy Burnham Set to Become British Prime Minister After Being Named Labour Leader**\
 `Andy Burnham was named the leader of Britain’s Labour Party on Friday, the last step before officially becoming the country’s next prime minister on Monday.`\
 https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-party-leader-uk.html
 
-**Start-Up Boom Awakens U.S.’s Enterprising Spirit After Decades-Long Slump**\
+**America’s Enterprising Spirit is Booming After Decades-Long Slump**\
 `Hundreds of thousands of people are creating companies each year, ending a decades-long drought.`\
 https://www.nytimes.com/2026/07/17/business/economy/american-small-business-boom.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/17/business/cooler-inflation-federal-reserve-int
 **Rare Pair of Improbably Light ‘Super-Puff’ Planets Is Discovered**\
 `They’re less dense than cotton candy, and they will help astrophysicists better understand the most unusual ways giant planets can form.`\
 https://www.nytimes.com/2026/07/17/science/space/two-super-puff-planets-discovered.html
-
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/07/17/movies/new-movies-this-week-critics.html
-
-**Is Venezuela a Colony Now? A Sovereign State? Modern Empires Rule in Ambiguity.**\
-`Occupation is a hassle. Large countries have many new ways to control small ones.`\
-https://www.nytimes.com/2026/07/17/magazine/venezuela-empires-colony.html
-
-**In One of Houston’s Oldest Latino Barrios, Mourning After ICE Shooting Mixed With Fear and Anger**\
-`After a federal agent killed Lorenzo Salgado Araujo, the grief and anger in Magnolia Park has been less visible, but no less intense.`\
-https://www.nytimes.com/2026/07/17/us/magnolia-park-houston-mourning-ice-shooting.html
-
-**Can Democrats Finally Understand the Latino Voter in an Era of Mass Deportations?**\
-`For decades, Democrats have misunderstood Latino voters. Trump’s deportation campaign offers a chance for them to get it right.`\
-https://www.nytimes.com/2026/07/17/opinion/latino-voter-democrats-immigration-trump.html
 
