@@ -1,3 +1,19 @@
+**Trump Released Documents on China and the 2020 Election. Here’s What We Know.**\
+`President Trump claimed that China had tried to acquire American voter data. Possessing such information would not allow votes to be manipulated.`\
+https://www.nytimes.com/2026/07/16/us/politics/documents-china-2020-election-trump.html
+
+**Assessing the Documents: Fake IDs From China**\
+`A previously released F.B.I. memo, viewed skeptically by intelligence agents, described a purported scheme by China to meddle in the 2020 election.`\
+https://www.nytimes.com/2026/07/16/us/politics/assessing-the-documents-fake-ids-from-china.html
+
+**Assessing the documents: Venezuela and Smartmatic**\
+`(No description)`\
+https://www.nytimes.com/2026/07/16/us/politics/assessing-the-documents-venezuela-and-smartmatic.html
+
+**Assessing the Documents: Voter Registration in Michigan**\
+`A well-known allegation of attempts to fraudulently register voters never yielded evidence of illegal voting.`\
+https://www.nytimes.com/2026/07/16/us/politics/voter-registration-michigan.html
+
 **Cyclospora Linked to Taylor Farms Lettuce Sent to Taco Bell**\
 `Federal officials worked with Michigan investigators to trace the outbreak to iceberg lettuce, which may also have gone to other vendors.`\
 https://www.nytimes.com/2026/07/16/well/cyclospora-taylor-farms-lettuce-taco-bell.html

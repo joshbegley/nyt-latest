@@ -2,6 +2,10 @@
 `President Trump claimed that China had tried to acquire American voter data. Possessing such information would not allow votes to be manipulated.`\
 https://www.nytimes.com/2026/07/16/us/politics/documents-china-2020-election-trump.html
 
+**Trump Again Makes Unfounded Claims of Noncitizen Voting**\
+`The president offered no concrete evidence, and at least one state — Nevada — rejected his claims immediately.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-again-makes-unfounded-claims-of-noncitizen-voting.html
+
 **Cyclospora Linked to Taylor Farms Lettuce Sent to Taco Bell**\
 `Federal officials worked with Michigan investigators to trace the outbreak to iceberg lettuce, which may also have gone to other vendors.`\
 https://www.nytimes.com/2026/07/16/well/cyclospora-taylor-farms-lettuce-taco-bell.html
@@ -67,11 +71,11 @@ https://www.nytimes.com/2026/07/16/weather/what-to-know-canada-wildfires-smoke.h
 https://www.nytimes.com/2026/07/16/us/kentucky-ghost-gun-death-settlement.html
 
 **What We Know About the Sunken Boat Near Alcatraz**\
-`At least one person died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Three passengers remain unaccounted for.`\
+`At least two people died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Two passengers remain unaccounted for.`\
 https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
 
 **Live Updates: Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
-`Mr. Trump also laid out a purported effort by the Chinese government to undermine him in 2019. But the documents posted by the White House, although heavily redacted, did not back up his claims.`\
+`President Trump drew selectively from documents his aides published online to insinuate that U.S. elections have been compromised for years and that government officials had suppressed the evidence.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 
 **Johan Guerrero, Maine ICE Shooting Victim, Relentlessly Pursued a Better Life, Partner Says**\
