@@ -1,3 +1,7 @@
+**‘The Real World’ and Nathan Fielder Can Both Thank Ross McElwee**\
+`Ross McElwee’s documentaries have shaped reality TV, comedy, podcasts and more in ways that you may not realize.`\
+https://www.nytimes.com/2026/07/17/movies/ross-mcelwee-the-real-world-nathan-fielder.html
+
 **E.U. Proposes Changes to Emissions Trading System**\
 `The European Union is facing a green backlash as emissions cuts become harder and require bigger overhauls to industry and livelihoods`\
 https://www.nytimes.com/2026/07/17/climate/european-union-emissions-rollback.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
 `Chinese officials called the election-meddling accusation baseless, while analysts said Beijing was trying to preserve a fragile détente.`\
 https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
 
-**Iran War Live Updates: U.S. Hits Bridges and a Port in Country’s South, Iranian Media Says**\
+**Iran War Live Updates: U.S. Hits Bridges and a Control Tower in Country’s South**\
 `The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
 https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
 
 **The 20-Somethings Running Ukraine’s War Machine**\
 `A new generation has been cutting red tape to speed weapons to the front. But the old guard pushed back, and now Ukraine’s young defense minister is out.`\
 https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation.html
-
-**Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
-`Investigating the relationship between Leslie Wexner, Jeffrey Epstein and Harvard University.`\
-https://www.nytimes.com/2026/07/17/podcasts/why-is-this-billionaires-name-all-over-harvards-campus.html
 

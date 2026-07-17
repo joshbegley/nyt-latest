@@ -1,3 +1,11 @@
+**‘The Real World’ and Nathan Fielder Can Both Thank Ross McElwee**\
+`Ross McElwee’s documentaries have shaped reality TV, comedy, podcasts and more in ways that you may not realize.`\
+https://www.nytimes.com/2026/07/17/movies/ross-mcelwee-the-real-world-nathan-fielder.html
+
+**Iran War Live Updates: U.S. Hits Bridges and a Control Tower in Country’s South**\
+`The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
+https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
+
 **E.U. Proposes Changes to Emissions Trading System**\
 `The European Union is facing a green backlash as emissions cuts become harder and require bigger overhauls to industry and livelihoods`\
 https://www.nytimes.com/2026/07/17/climate/european-union-emissions-rollback.html
