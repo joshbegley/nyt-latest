@@ -1,3 +1,11 @@
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Southern Iran as Airstrikes Expand**\
+`Rail and road connections were reportedly struck as Washington sought to weaken Tehran’s grip on the Strait of Hormuz. Iran responded by firing on American military facilities in the region.`\
+https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
+
+**The 20-Somethings Running Ukraine’s War Machine**\
+`A new generation that prizes the tech sector’s innovation and speed is displacing the old guard in developing weapons and guiding Ukraine’s military to fend off Russia’s invasion.`\
+https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation.html
+
 **Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
 `Investigating the relationship between Leslie Wexner, Jeffrey Epstein and Harvard University.`\
 https://www.nytimes.com/2026/07/17/podcasts/why-is-this-billionaires-name-all-over-harvards-campus.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review.html
 **The History of the Carriage Horses in Central Park**\
 `After 165 years, the tourist ritual — which now costs $77.22 for the first 20 minutes — may be coming to an end. Here’s a tour through the archives.`\
 https://www.nytimes.com/2026/07/17/nyregion/is-new-yorks-love-hate-relationship-with-horse-carriages-over-at-last.html
-
-**Hegseth planea evaluar el nivel de testosterona de las tropas de EE. UU.**\
-`Pete Hegseth, como secretario de Defensa, ha buscado cultivar la imagen de un líder afín a la manosfera.`\
-https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/pete-hegseth-testosterona.html
-
-**Ucrania estaba en una buena racha. Entonces surgió una ruptura militar**\
-`Desde un estacionamiento subterráneo, el recién destituido ministro de Defensa de Ucrania emitió la crítica pública más dramática al mando militar que se haya hecho durante la guerra.`\
-https://www.nytimes.com/es/2026/07/17/espanol/mundo/ucrania-defensa-drones.html
 
