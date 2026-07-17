@@ -1,3 +1,7 @@
+**Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 24 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
+https://www.nytimes.com/2026/07/17/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
+
 **States Rush to Fill Graduate Loan Gap Opened by G.O.P. Budget Bill**\
 `Minnesota and Connecticut are two of the states expanding their loan options. “We see it as a substitute program,” one official said.`\
 https://www.nytimes.com/2026/07/17/your-money/states-graduate-loans-us-government.html
