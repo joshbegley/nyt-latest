@@ -1,3 +1,23 @@
+**When Will the Smoke End? It’s Complicated.**\
+`The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
+https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
+
+**Why Cyclospora Cases Are Probably Higher Than You Think**\
+`The United States is in the midst of its worst year yet for cyclosporiasis, an intestinal illness caused by a parasite transmitted through food or water contaminated with feces. Julia Calderone, an associate editor for Well, explains how Times reporters have been tracking the outbreak.`\
+https://www.nytimes.com/video/well/100000011033847/why-cyclospora-cases-are-probably-higher-than-you-think.html
+
+**Man Sought in Minnesota Fraud Case Returned From Somalia**\
+`Abdikerm Eidleh, whom the authorities sought for nearly four years, faces charges in the state’s sprawling social services fraud case, which has drawn the Trump administration’s attention.`\
+https://www.nytimes.com/2026/07/17/us/minnesota-fraud-extradited-somalia.html
+
+**Mullin Vows to Keep Up Immigration Arrests Even After ICE Shootings**\
+`The homeland security secretary made clear that he would seek to deliver on President Trump’s push for mass deportations.`\
+https://www.nytimes.com/2026/07/17/us/politics/mullin-ice-shootings-arrests.html
+
+**X and Music Publishers Retreat From Lawsuits**\
+`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026. They have not said why.`\
+https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
+
 **Mullin Promises to Maintain Surge in Immigration Arrests Even After Shootings**\
 `The homeland security secretary made clear that he would seek to deliver on President Trump’s push for mass deportations.`\
 https://www.nytimes.com/2026/07/17/us/politics/mullin-ice-shootings-arrests.html

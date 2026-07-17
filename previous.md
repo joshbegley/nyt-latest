@@ -1,4 +1,16 @@
-**Mullin Promises to Maintain Surge in Immigration Arrests Even After Shootings**\
+**When Will the Smoke End? It’s Complicated.**\
+`The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
+https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
+
+**Why Cyclospora Cases Are Probably Higher Than You Think**\
+`The United States is in the midst of its worst year yet for cyclosporiasis, an intestinal illness caused by a parasite transmitted through food or water contaminated with feces. Julia Calderone, an associate editor for Well, explains how Times reporters have been tracking the outbreak.`\
+https://www.nytimes.com/video/well/100000011033847/why-cyclospora-cases-are-probably-higher-than-you-think.html
+
+**Man Sought in Minnesota Fraud Case Returned From Somalia**\
+`Abdikerm Eidleh, whom the authorities sought for nearly four years, faces charges in the state’s sprawling social services fraud case, which has drawn the Trump administration’s attention.`\
+https://www.nytimes.com/2026/07/17/us/minnesota-fraud-extradited-somalia.html
+
+**Mullin Vows to Keep Up Immigration Arrests Even After ICE Shootings**\
 `The homeland security secretary made clear that he would seek to deliver on President Trump’s push for mass deportations.`\
 https://www.nytimes.com/2026/07/17/us/politics/mullin-ice-shootings-arrests.html
 
@@ -15,7 +27,7 @@ https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html
 https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html
 
 **X and Music Publishers Retreat From Lawsuits**\
-`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026, but have not said why.`\
+`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026. They have not said why.`\
 https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
 
 **Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/17/technology/roger-summit-dead.html
 **Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 24 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
 https://www.nytimes.com/2026/07/17/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
-
-**States Rush to Fill Graduate Loan Gap Opened by G.O.P. Budget Bill**\
-`Minnesota and Connecticut are two of the states expanding their loan options. “We see it as a substitute program,” one official said.`\
-https://www.nytimes.com/2026/07/17/your-money/states-graduate-loans-us-government.html
-
-**Big Tech Firms Like Oracle Turn to Bonds to Finance A.I. Data Centers**\
-`Risk is rising as big tech companies like Oracle — the ultimate financial source of the Ellison media empire — need to turn to the bond market for staggering sums to finance data centers.`\
-https://www.nytimes.com/2026/07/17/business/ai-spending-oracle-stocks-bonds.html
-
-**Stocks Sink on Anxiety About Tech and A.I. Spending**\
-`Investors are growing uneasy about increasing competition from China in the global race to dominate artificial intelligence.`\
-https://www.nytimes.com/2026/07/17/business/stocks-ai-tech-wall-street.html
 
