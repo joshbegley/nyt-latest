@@ -1,3 +1,7 @@
+**Taylor Farms to Remove Products After Lettuce Is Linked to Cyclospora Cases**\
+`The Salinas, Calif., company grows produce in more than 12 states, and in Mexico and Canada. Some Taylor Farms lettuce suspected of causing sickness ended up at Taco Bell.`\
+https://www.nytimes.com/2026/07/17/business/cyclospora-taylor-farms-lettuce.html
+
 **How Athletes at the World Cup and Beyond Celebrate Victories: Dances, Doughnuts and Finger Wags**\
 `The World Cup has brought renewed attention to the art of celebration. Here’s a look at all kinds of athletes whose rituals of triumph became part of their legacies.`\
 https://www.nytimes.com/2026/07/17/sports/athletes-victory-celebrations-world-cup.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/07/17/world/middleeast/war-between-us-and-iran-expa
 
 **Trump’s Homeland Security Chief Threatens Election Officials With Prison Time**\
 `Markwayne Mullin reiterated the president’s false claims about voting security while escalating the administration’s legally questionable attempts to control state elections.`\
-https://www.nytimes.com/2026/07/17/us/politics/markwayne-mullin-threatens-election-officials-prison-time.html
+https://www.nytimes.com/2026/07/17/us/politics/markwayne-mullin-election-officials-threats-trump.html
 
 **Lam Wing-Kee, Hong Kong Bookseller Who Defied Authorities, Dies at 70**\
 `One of five booksellers kidnapped by Chinese officials in 2015, Mr. Lam spoke out after his release and became an international cause célèbre.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-
 **Trump Brings Full Weight of Government to Bolster False Election Claims**\
 `Intelligence agencies provided the White House with a trove of declassified documents that President Trump cited on Thursday as evidence of election vulnerabilities.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-government-election-claims.html
-
-**Taking Out the Trash: These Old Ladies Are Cleaning Up Cape Cod**\
-`The Old Ladies Against Underwater Garbage estimate they’ve removed 6,000 pounds of refuse from ponds on Cape Cod. “There’s no better feeling,” one said.`\
-https://www.nytimes.com/2026/07/17/climate/old-ladies-diving-for-trash.html
 
