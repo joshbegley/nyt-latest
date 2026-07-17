@@ -1,3 +1,7 @@
+**Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
+`She won for playing a stoic mother in “My Left Foot” (1989) and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2” (1992).`\
+https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
+
 **Climate Change Contributes to Rising Share of Wildfire Smoke Deaths**\
 `Wildfire smoke is linked to tens of thousands of deaths a year, a number that is rising with climate change.`\
 https://www.nytimes.com/2026/07/17/climate/smoke-air-quality-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/podcasts/hardfork-ai-trade-secrets.html
 **Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
 `Mr. Burnham promised more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
 https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
-
-**Xi Jinping of China Pitches ‘Openness’ in Push to Shape the Path of A.I.**\
-`Xi Jinping said that the development of artificial intelligence systems should be a “symphony of global collaboration.”`\
-https://www.nytimes.com/2026/07/17/business/xi-jinping-china-ai.html
 
