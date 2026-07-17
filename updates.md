@@ -1,3 +1,7 @@
+**Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
+`Mr. Burnham promised more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
+https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
+
 **Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 24 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
 https://www.nytimes.com/2026/07/17/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
