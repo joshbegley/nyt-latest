@@ -1,3 +1,39 @@
+**The President, His Plane and the Press**\
+`The Justice Department is seeking to compel testimony from New York Times reporters who wrote about the new Air Force One.`\
+https://www.nytimes.com/2026/07/17/podcasts/the-daily/air-force-one-trump.html
+
+**What a Times Reporter Saw in Iran, and Takeaways from Trump’s Speech on Election Security**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/17/podcasts/the-headlines/iran-trump-speech-election-security.html
+
+**NYT Connections Answers for July 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/17/crosswords/connections-companion-1133.html
+
+**Today’s Wordle Hints for July 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/17/crosswords/wordle-review-1855.html
+
+**NYT Strands Hints for July 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/17/crosswords/strands-sidekick-867.html
+
+**Shipping in the Persian Gulf Nears a Halt and Oil Prices Rise**\
+`Shipping traffic was at its lowest level in more than a month and oil prices moved higher as the Iran war continued to disrupt the supply of energy.`\
+https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
+
+**Beijing Rejects Trump’s Claim of Meddling, but Avoids a Fight**\
+`Chinese officials called the election-meddling accusation baseless, while analysts said Beijing was trying to preserve a fragile détente.`\
+https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
+
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Southern Iran as Airstrikes Expand**\
+`Rail and road connections were reportedly struck as Washington sought to weaken Tehran’s grip on the Strait of Hormuz. Iran responded by firing on American military facilities in the region.`\
+https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
+
+**The 20-Somethings Running Ukraine’s War Machine**\
+`A new generation that prizes tech, innovation and speed is displacing the military’s old guard, cutting red tape to rush weapons to the front.`\
+https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation.html
+
 **Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
 `Investigating the relationship between Leslie Wexner, Jeffrey Epstein and Harvard University.`\
 https://www.nytimes.com/2026/07/17/podcasts/why-is-this-billionaires-name-all-over-harvards-campus.html

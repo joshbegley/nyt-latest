@@ -1,3 +1,39 @@
+**The President, His Plane and the Press**\
+`The Justice Department is seeking to compel testimony from New York Times reporters who wrote about the new Air Force One.`\
+https://www.nytimes.com/2026/07/17/podcasts/the-daily/air-force-one-trump.html
+
+**What a Times Reporter Saw in Iran, and Takeaways from Trump’s Speech on Election Security**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/17/podcasts/the-headlines/iran-trump-speech-election-security.html
+
+**NYT Connections Answers for July 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/17/crosswords/connections-companion-1133.html
+
+**Today’s Wordle Hints for July 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/17/crosswords/wordle-review-1855.html
+
+**NYT Strands Hints for July 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/17/crosswords/strands-sidekick-867.html
+
+**Shipping in the Persian Gulf Nears a Halt and Oil Prices Rise**\
+`Shipping traffic was at its lowest level in more than a month and oil prices moved higher as the Iran war continued to disrupt the supply of energy.`\
+https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
+
+**Beijing Rejects Trump’s Claim of Meddling, but Avoids a Fight**\
+`Chinese officials called the election-meddling accusation baseless, while analysts said Beijing was trying to preserve a fragile détente.`\
+https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
+
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Southern Iran as Airstrikes Expand**\
+`Rail and road connections were reportedly struck as Washington sought to weaken Tehran’s grip on the Strait of Hormuz. Iran responded by firing on American military facilities in the region.`\
+https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
+
+**The 20-Somethings Running Ukraine’s War Machine**\
+`A new generation that prizes tech, innovation and speed is displacing the military’s old guard, cutting red tape to rush weapons to the front.`\
+https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation.html
+
 **Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
 `Investigating the relationship between Leslie Wexner, Jeffrey Epstein and Harvard University.`\
 https://www.nytimes.com/2026/07/17/podcasts/why-is-this-billionaires-name-all-over-harvards-campus.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/07/17/t-magazine/cafe-mogador-moroccan-restaurant-e
 **How Companies Have Abandoned Their Climate Goals and Let Themselves Off the Hook**\
 `Big business made big promises about saving the planet. Following through hasn’t been easy.`\
 https://www.nytimes.com/2026/07/17/climate/company-climate-change-commitments-renege.html
-
-**Philippines Condemns AI Video Posted by Chinese State Media Depicting It as a Monkey**\
-`It lodged a diplomatic complaint with Beijing over an A.I.-generated video centered on territorial disputes in the South China Sea.`\
-https://www.nytimes.com/2026/07/17/world/asia/philippines-ai-video-china-racist.html
-
-**Trump Claims Election Vulnerabilities in Prime-Time Speech**\
-`President Trump made sweeping claims about the safety of American voting systems in a speech on Thursday. Documents released by the Trump administration did not back up his most aggressive statements.`\
-https://www.nytimes.com/video/us/politics/100000011036975/trump-election-speech.html
-
-**¿Demasiados libros?**\
-`Mendel Uminer se encontró en un aprieto cuando su casero se opuso a los 10.000 libros que tenía en su estudio de Nueva York.`\
-https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/demasiados-libros-nueva-york-apartamento.html
-
-**How Andy Burnham, ‘King of the North,’ Conquered U.K. Politics**\
-`A plain-spoken politician from a modest background in northwest England, Mr. Burnham is set to be named Labour leader — and prime minister apparent — on Friday.`\
-https://www.nytimes.com/2026/07/17/world/europe/andy-burnham-uk-labour-prime-minister.html
-
-**Tras años de dejar de fumar, una prueba de detección de cáncer de pulmón le salvó la vida**\
-`El cáncer de pulmón sigue siendo la principal causa de muerte por cáncer en EE. UU. Pero solo alrededor de una cuarta parte de los pacientes que podrían hacerse pruebas de detección están al día con ellas.`\
-https://www.nytimes.com/es/2026/07/17/espanol/prueba-deteccion-cancer-pulmon.html
-
-**‘Heartstopper Forever’ Review: Facing a Grown-Up Reality**\
-`The glossy Netflix series graduates into adulthood with this movie starring Kit Connor and Joe Locke as a couple with thoughts of college ahead.`\
-https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review.html
-
-**The History of the Carriage Horses in Central Park**\
-`After 165 years, the tourist ritual — which now costs $77.22 for the first 20 minutes — may be coming to an end. Here’s a tour through the archives.`\
-https://www.nytimes.com/2026/07/17/nyregion/is-new-yorks-love-hate-relationship-with-horse-carriages-over-at-last.html
-
-**Hegseth planea evaluar el nivel de testosterona de las tropas de EE. UU.**\
-`Pete Hegseth, como secretario de Defensa, ha buscado cultivar la imagen de un líder afín a la manosfera.`\
-https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/pete-hegseth-testosterona.html
-
-**Ucrania estaba en una buena racha. Entonces surgió una ruptura militar**\
-`Desde un estacionamiento subterráneo, el recién destituido ministro de Defensa de Ucrania emitió la crítica pública más dramática al mando militar que se haya hecho durante la guerra.`\
-https://www.nytimes.com/es/2026/07/17/espanol/mundo/ucrania-defensa-drones.html
 
