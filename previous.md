@@ -1,3 +1,7 @@
+**Terremoto en Guatemala y México: el sismo de 7,3 desata alerta de tsunami**\
+`Un potente sismo cerca de la frontera entre México y Guatemala despertó preocupaciones de tsunami y sacudió edificios en tres países.`\
+https://www.nytimes.com/es/2026/07/17/espanol/america-latina/terremoto-guatemala-mexico.html
+
 **After Repeated Crises, Boeing Looks to Turn a Corner**\
 `The company recently opened a new production line to keep up with strong demand for its 737 Max, though orders for its new planes lag rival Airbus.`\
 https://www.nytimes.com/2026/07/17/business/boeing-turnaround-737-max.html
@@ -163,7 +167,7 @@ https://www.nytimes.com/2026/07/17/your-money/states-graduate-loans-us-governmen
 https://www.nytimes.com/2026/07/17/business/ai-spending-oracle-stocks-bonds.html
 
 **Stocks Sink on Anxiety About Tech and A.I. Spending**\
-`A sell-off in Asia led by chipmakers spilled into Europe and U.S. markets on Friday.`\
+`Investors are growing uneasy about increasing competition from China in the global race to dominate artificial intelligence.`\
 https://www.nytimes.com/2026/07/17/business/stocks-ai-tech-wall-street.html
 
 **Iran-U.S. Talks: How 4 Negotiators Would Approach Diplomacy**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/world/asia/rohingya-myanmar-boats-sink-missin
 **‘The Headlines’ News Quiz: Jul. 17, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/07/17/podcasts/the-headlines/the-headlines-news-quiz-jul-17-2026.html
-
-**Greek Life**\
-`We look at the place of Homer’s epic “Odyssey” in our cultural lives.`\
-https://www.nytimes.com/2026/07/17/briefing/christopher-nolan-odyssey.html
 

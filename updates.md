@@ -1,3 +1,11 @@
+**Terremoto en Guatemala y México: el sismo de 7,3 desata alerta de tsunami**\
+`Un potente sismo cerca de la frontera entre México y Guatemala despertó preocupaciones de tsunami y sacudió edificios en tres países.`\
+https://www.nytimes.com/es/2026/07/17/espanol/america-latina/terremoto-guatemala-mexico.html
+
+**Stocks Sink on Anxiety About Tech and A.I. Spending**\
+`Investors are growing uneasy about increasing competition from China in the global race to dominate artificial intelligence.`\
+https://www.nytimes.com/2026/07/17/business/stocks-ai-tech-wall-street.html
+
 **After Repeated Crises, Boeing Looks to Turn a Corner**\
 `The company recently opened a new production line to keep up with strong demand for its 737 Max, though orders for its new planes lag rival Airbus.`\
 https://www.nytimes.com/2026/07/17/business/boeing-turnaround-737-max.html

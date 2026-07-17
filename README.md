@@ -1,3 +1,7 @@
+**Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
+`At a time of political upheaval and economic stagnation, Andy Burnham will on Monday become the seventh prime minister in a decade.`\
+https://www.nytimes.com/2026/07/17/world/europe/burnham-becomes-labour-leader-pledging-to-deliver-hope-to-britain.html
+
 **Terremoto en Guatemala y México: el sismo de 7,3 desata alerta de tsunami**\
 `Un potente sismo cerca de la frontera entre México y Guatemala despertó preocupaciones de tsunami y sacudió edificios en tres países.`\
 https://www.nytimes.com/es/2026/07/17/espanol/america-latina/terremoto-guatemala-mexico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/arts/design/ana-mendieta-tate-modern.html
 **Hundreds of Rohingya Feared Drowned at Sea**\
 `Members of the persecuted minority group from Myanmar set off in search of a better life weeks ago, but news of their boats sinking only emerged recently. More than 500 are feared dead.`\
 https://www.nytimes.com/2026/07/17/world/asia/rohingya-myanmar-boats-sink-missing.html
-
-**‘The Headlines’ News Quiz: Jul. 17, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/07/17/podcasts/the-headlines/the-headlines-news-quiz-jul-17-2026.html
 
