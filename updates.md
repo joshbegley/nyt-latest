@@ -1,3 +1,15 @@
+**When American Smoke Choked Canada**\
+`Some Republican lawmakers have blamed Canada for poor air quality in the United States and said poor forest management is to blame. But Canadians have also inhaled smoke from American wildfires.`\
+https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html
+
+**Live Updates: Wildfire Smoke Expected to Darken Skies Again on Friday**\
+`The dense smoke from Canadian wildfires has pushed air quality to dangerous levels in the past few days.`\
+https://www.nytimes.com/live/2026/07/17/weather/wildfire-smoke-air-quality
+
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Country’s South, Iranian Media says**\
+`The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
+https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
+
 **The President, His Plane and the Press**\
 `The Justice Department is seeking to compel testimony from New York Times reporters who wrote about the new Air Force One.`\
 https://www.nytimes.com/2026/07/17/podcasts/the-daily/air-force-one-trump.html

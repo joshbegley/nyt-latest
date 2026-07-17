@@ -1,3 +1,11 @@
+**When American Smoke Choked Canada**\
+`Some Republican lawmakers have blamed Canada for poor air quality in the United States and said poor forest management is to blame. But Canadians have also inhaled smoke from American wildfires.`\
+https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html
+
+**Live Updates: Wildfire Smoke Expected to Darken Skies Again on Friday**\
+`The dense smoke from Canadian wildfires has pushed air quality to dangerous levels in the past few days.`\
+https://www.nytimes.com/live/2026/07/17/weather/wildfire-smoke-air-quality
+
 **The President, His Plane and the Press**\
 `The Justice Department is seeking to compel testimony from New York Times reporters who wrote about the new Air Force One.`\
 https://www.nytimes.com/2026/07/17/podcasts/the-daily/air-force-one-trump.html
@@ -26,8 +34,8 @@ https://www.nytimes.com/2026/07/17/business/strait-hormuz-iran-oil-prices.html
 `Chinese officials called the election-meddling accusation baseless, while analysts said Beijing was trying to preserve a fragile détente.`\
 https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
 
-**Iran War Live Updates: U.S. Hits Bridges and a Port in Southern Iran as Airstrikes Expand**\
-`Rail and road connections were reportedly struck as Washington sought to weaken Tehran’s grip on the Strait of Hormuz. Iran responded by firing on American military facilities in the region.`\
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Country’s South, Iranian Media says**\
+`The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
 https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
 
 **The 20-Somethings Running Ukraine’s War Machine**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/books/the-odyssey-books.html
 **To Win Their Races, Black Politicians Confront a New Landscape**\
 `With the Voting Rights Act weakened, Black representation will depend less on Black voters and more on broad, multiracial appeal or on ideological outsider campaigns.`\
 https://www.nytimes.com/2026/07/17/us/politics/black-representation-voting-rights-act.html
-
-**In an Ever-Changing East Village, Cafe Mogador Is a Constant**\
-`With its tasty, affordable fare and forever-young clientele, the decades-old New York restaurant is still one of the liveliest spots in the neighborhood.`\
-https://www.nytimes.com/2026/07/17/t-magazine/cafe-mogador-moroccan-restaurant-east-village-nyc.html
-
-**How Companies Have Abandoned Their Climate Goals and Let Themselves Off the Hook**\
-`Big business made big promises about saving the planet. Following through hasn’t been easy.`\
-https://www.nytimes.com/2026/07/17/climate/company-climate-change-commitments-renege.html
 

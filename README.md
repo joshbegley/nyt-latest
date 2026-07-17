@@ -1,3 +1,7 @@
+**Xi Jinping of China Pitches ‘Openness’ in Push to Shape the Path of A.I.**\
+`Xi Jinping said that the development of artificial intelligence systems should be a “symphony of global collaboration.”`\
+https://www.nytimes.com/2026/07/17/business/xi-jinping-china-ai.html
+
 **When American Smoke Choked Canada**\
 `Some Republican lawmakers have blamed Canada for poor air quality in the United States and said poor forest management is to blame. But Canadians have also inhaled smoke from American wildfires.`\
 https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/world/middleeast/dubai-iran-war-migrant-worke
 **Want More of the ‘Odyssey’? Read These Books Next**\
 `Informative histories, modern retellings and genre-bending homages will take you back to the long road to Ithaca.`\
 https://www.nytimes.com/2026/07/17/books/the-odyssey-books.html
-
-**To Win Their Races, Black Politicians Confront a New Landscape**\
-`With the Voting Rights Act weakened, Black representation will depend less on Black voters and more on broad, multiracial appeal or on ideological outsider campaigns.`\
-https://www.nytimes.com/2026/07/17/us/politics/black-representation-voting-rights-act.html
 
