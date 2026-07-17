@@ -1,3 +1,7 @@
+**Andy Burnham Is Poised to Become Britain’s Leader. His Ascent Was Years in the Making.**\
+`Andy Burnham is set to become the leader of the Labour Party and Britain’s 59th prime minister. His path to 10 Downing Street included a pivotal nearly decade-long stint as mayor of Greater Manchester.`\
+https://www.nytimes.com/video/world/europe/100000011029640/andy-burnham-labour-leader-prime-minister.html
+
 **Multiple Investigations Refuted Trump’s Claims That Fraud Altered the Outcome in 2020**\
 `Dozens of investigations, audits, recounts and court proceedings examined the 2020 election. None found the widespread voter fraud that President Trump claimed tilted the vote.`\
 https://www.nytimes.com/2026/07/16/us/politics/trump-investigations-fraud-claims-2020-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/world/europe/ukraine-military-defense-ministe
 **Houston ICE Shooting: Lawyer Says Bags Held Salt, Not Drugs**\
 `Federal investigators said a “crystal-like” substance in the bags looked like methamphetamine. A lawyer for the victim’s brother said it was salt.`\
 https://www.nytimes.com/2026/07/16/us/fbi-search-drugs-houston-ice-shooting.html
-
-**How Todd Blanche Made the Justice Dept. Less Independent**\
-`Our Justice Department reporter Devlin Barrett describes how Todd Blanche, President Trump’s former personal lawyer and current nominee for attorney general, has helped Mr. Trump gain more control over the Justice Department.`\
-https://www.nytimes.com/video/us/politics/100000011024954/how-todd-blanche-made-the-justice-dept-less-independent.html
 
