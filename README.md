@@ -1,4 +1,8 @@
-**Carney Offers Fire Help to Ontario, but Federal Government’s Role Is Limited**\
+**Trump hace afirmaciones descabelladas sobre los resultados electorales**\
+`Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
+https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html
+
+**Carney Offers Fire Help to Ontario, but Canadian Government’s Role Is Limited**\
 `Fighting wildfires is the responsibility of Canada’s provinces, which cooperate with one another during fire season`\
 https://www.nytimes.com/2026/07/16/weather/carney-wildfire-ontario-government.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/weather/100000011034793/central-texas-flash-floods
 **Manhattan Building’s Buckled Columns Probably Lacked Required Reinforcements**\
 `Drawings obtained by The New York Times show the columns called for additional steel plates, but engineers reviewing site photos said they appeared to be missing.`\
 https://www.nytimes.com/2026/07/16/nyregion/manhattan-building-collapse-nyc-drawings.html
-
-**Why Does Wildfire Smoke Turn the Sky Orange?**\
-`It’s about how light scatters in our atmosphere.`\
-https://www.nytimes.com/2026/07/16/weather/smoke-sky-orange-red.html
 
