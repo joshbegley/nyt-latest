@@ -1,3 +1,7 @@
+**Cyclospora Investigation Turns to Farms in Mexico**\
+`The F.D.A. is planning to inspect farms and a lettuce shredding facility to determine how lettuce supplied by the produce company Taylor Farms to Taco Bell became contaminated and where it was shipped.`\
+https://www.nytimes.com/2026/07/17/health/cyclospora-taylor-farms-mexico-taco-bell-lettuce.html
+
 **Garfield Sobers, Renowned ‘All-Rounder’ Cricket Star, Dies at 89**\
 `A longtime West Indian captain, he could do it all on the pitch.`\
 https://www.nytimes.com/2026/07/17/sports/garfield-sobers-dead.html
