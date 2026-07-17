@@ -1,3 +1,19 @@
+**Dozens of Wildfires Are Suddenly Burning in Oregon**\
+`The state told thousands of people to be ready to evacuate.`\
+https://www.nytimes.com/2026/07/17/weather/oregon-wildfires-smoke-canada.html
+
+**Zohran Mamdani Knows He Has Political Capital. And He Intends to Spend It.**\
+`Lulu Garcia-Navarro speaks with Mayor Zohran Mamdani of New York City about his affordability agenda.`\
+https://www.nytimes.com/video/podcasts/100000011038767/zohran-mamdani-knows-he-has-political-capital-and-he-intends-to-spend-it.html
+
+**Paul Pelosi Charged With Hit-and-Run in Napa Valley Crash**\
+`Mr. Pelosi, the 86-year-old husband of former Speaker Nancy Pelosi, crashed into a parked Tesla near his home among the vineyards this month.`\
+https://www.nytimes.com/2026/07/17/us/paul-pelosi-napa-valley-crash.html
+
+**Central Texas Floods Kills at Least Two People**\
+`A deadly flood that tore through Central Texas for days began to ebb in some areas on Friday. At least two people died in the flooding. Gov. Greg Abbott warned residents that water levels were still expected to rise.`\
+https://www.nytimes.com/video/weather/100000011037764/us-flooding-texas.html
+
 **Billionaires Prepare $87 Million Ad Campaign to Block California Wealth Tax**\
 `A coalition backed by the Google co-founder Sergey Brin and wealthy tech investors is trying to neutralize a proposed one-time tax on the state’s richest residents.`\
 https://www.nytimes.com/2026/07/17/us/california-billionaire-tax-opponents-ad-campaign.html
