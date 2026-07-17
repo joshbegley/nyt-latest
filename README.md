@@ -1,3 +1,7 @@
+**The Latest Texas Floods Tested Warning Systems. This Time, They Passed.**\
+`A lack of sirens and flood forecasting systems made the state’s Hill Country vulnerable to deadly floods last summer. That has changed.`\
+https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html
+
 **Rudolph Marcus, Who Illuminated Electrochemical Processes, Dies at 102**\
 `He received a 1992 Nobel Prize for developing a theory that explained fundamental processes behind photosynthesis, respiration, oxidation and even how fireflies produce light.`\
 https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
 
 **Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
 `At a time of political upheaval and economic stagnation, Andy Burnham will on Monday become the seventh prime minister in a decade.`\
-https://www.nytimes.com/2026/07/17/world/europe/burnham-becomes-labour-leader-pledging-to-deliver-hope-to-britain.html
+https://www.nytimes.com/2026/07/17/world/europe/burnham-labour-leader.html
 
 **Terremoto en Guatemala y México: el sismo de 7,3 desata alerta de tsunami**\
 `Un potente sismo cerca de la frontera entre México y Guatemala despertó preocupaciones de tsunami y sacudió edificios en tres países.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-code
 **Poolhouse, a Tech-Infused Pool Hall Start-up, Raises $55 Million**\
 `Poolhouse, which was created by the founders of Topgolf and uses technology to track players’ scores, aims to sell its platform to others.`\
 https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html
-
-**Ontario Wildfires Burn On, and New Ones Spring Up**\
-`Nearly 200 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
-https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
 
