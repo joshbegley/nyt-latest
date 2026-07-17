@@ -1,3 +1,11 @@
+**7.3-Magnitude Earthquake in Central America Sets Off Tsunami Threat**\
+`A powerful earthquake near the border of Mexico and Guatemala raised fears of a tsunami and shook buildings across three countries.`\
+https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mexico-guatemala.html
+
+**Trump Faces the Limits of U.S. Firepower and the Lessons of Past Wars**\
+`Like his predecessors, President Trump has struggled to turn battlefield successes into long-term victories.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-iran-war-afghanistan-iraq.html
+
 **Trump’s Dangerous Election Claims**\
 `Readers react to President Trump’s speech. Also: Canada’s wildfires and the U.S.; ultrarich men who kidmax.`\
 https://www.nytimes.com/2026/07/17/opinion/trump-speech-election-claims.html

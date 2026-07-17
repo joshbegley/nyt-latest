@@ -1,3 +1,7 @@
+**Climate Change Contributes to Rising Share of Wildfire Smoke Deaths**\
+`Wildfire smoke is linked to tens of thousands of deaths a year, a number that is rising with climate change.`\
+https://www.nytimes.com/2026/07/17/climate/smoke-air-quality-deaths.html
+
 **7.3-Magnitude Earthquake in Central America Sets Off Tsunami Threat**\
 `A powerful earthquake near the border of Mexico and Guatemala raised fears of a tsunami and shook buildings across three countries.`\
 https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mexico-guatemala.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
 **Xi Jinping of China Pitches ‘Openness’ in Push to Shape the Path of A.I.**\
 `Xi Jinping said that the development of artificial intelligence systems should be a “symphony of global collaboration.”`\
 https://www.nytimes.com/2026/07/17/business/xi-jinping-china-ai.html
-
-**When American Smoke Choked Canada**\
-`Some Republican lawmakers have blamed Canada for poor air quality in the United States and said poor forest management is to blame. But Canadians have also inhaled smoke from American wildfires.`\
-https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html
 
