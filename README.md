@@ -1,3 +1,15 @@
+**Is It Safe to Eat Lettuce?**\
+`Federal health officials have linked a large cyclosporiasis outbreak to shredded lettuce served at Taco Bell. Is lettuce from grocery stores and restaurants OK?`\
+https://www.nytimes.com/2026/07/17/well/eat/lettuce-safety-cyclospora-outbreak.html
+
+**Brote de ‘Cyclospora’: Taylor Farms retirará algunos productos**\
+`La empresa de California cultiva productos agrícolas en más de 12 estados, así como en México y Canadá. Algunas de sus lechugas sospechosas de causar enfermedades terminaron en Taco Bell.`\
+https://www.nytimes.com/es/2026/07/17/espanol/negocios/brote-cyclospora-taylor-farms-mexico-lechuga.html
+
+**The Danger of Trump’s Election Obsession**\
+`“Trump rejects the idea that he can lose,” the Opinion columnist Jamelle Bouie says. As the president weaponizes the federal government to chase election conspiracies, Bouie warns that Trump will do anything to avoid “narcissistic injury” — even if it means dismantling the right to free and fair elections.`\
+https://www.nytimes.com/video/opinion/100000011032418/the-danger-of-trumps-election-obsession.html
+
 **Firms With Checkered Pasts Tied to Troubled Midtown Construction Project**\
 `Among those connected to companies that worked on 235 East 42nd Street were a man who once bribed city officials and a developer who gave a loan to Bernard Kerik.`\
 https://www.nytimes.com/2026/07/17/nyregion/nyc-building-emergency-companies.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elec
 **As Floods Begin to Recede, Texans Start to Assess the Destruction**\
 `At least two people died as waters rose rapidly across the Texas Hill Country, the same area of the state that saw catastrophic flooding last year.`\
 https://www.nytimes.com/2026/07/17/us/flooding-texas.html
-
-**Mark Morris: A Little Bit Country, a Little Bit Jazz**\
-`Morris’s dance troupe presents “Dances to American Music,” three programs at the Joyce Theater.`\
-https://www.nytimes.com/2026/07/17/arts/dance/mark-morris-dances-to-american-music.html
-
-**Meta in Talks to Lease Computing Power to Anthropic in Potential $10 Billion Deal**\
-`A deal would underline how scarce computing power is for artificial intelligence development, and could create a new business for Meta.`\
-https://www.nytimes.com/2026/07/17/technology/meta-anthropic-ai-computing-power.html
-
-**Flashback: Your Weekly History Quiz, July 18, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/07/17/upshot/flashback.html
 

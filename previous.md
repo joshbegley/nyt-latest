@@ -1,3 +1,11 @@
+**Firms With Checkered Pasts Tied to Troubled Midtown Construction Project**\
+`Among those connected to companies that worked on 235 East 42nd Street were a man who once bribed city officials and a developer who gave a loan to Bernard Kerik.`\
+https://www.nytimes.com/2026/07/17/nyregion/nyc-building-emergency-companies.html
+
+**Trump Pursues a Deeper Bond With China’s Leader, Despite Hostile Speech**\
+`Chinese officials appear to think that President Trump’s accusations that China interfered in the 2020 U.S. elections were driven by domestic politics, not foreign policy.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-speech-china-xi.html
+
 **Ron Hunt, a Record-Holder for Being Hit by Pitches, Dies at 85**\
 `Though he was notable as a Met, his record for being hit by pitches the most times in a modern-era season — 50 — came while playing for the Expos.`\
 https://www.nytimes.com/2026/07/17/sports/baseball/ron-hunt-dead.html
@@ -8,7 +16,7 @@ https://www.nytimes.com/2026/07/17/opinion/trump-speech-us-intelligence-secrets-
 
 **China Pushes for ‘Openness’ to Shape A.I.’s Future**\
 `At an artificial intelligence conference in Shanghai on Friday, Xi Jinping urged for open and global collaboration, aimed at supporting the technological advancement of developing countries.`\
-https://www.nytimes.com/video/technology/100000011037861/china-openness-artificial-intelligence-future.html
+https://www.nytimes.com/video/technology/100000011037861/china-ai-conference-xi.html
 
 **Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
 `Some Democrats feared the decision by Lt. Gov. Sara Rodriguez, the establishment candidate, could improve the primary prospects for Francesca Hong, a democratic socialist, in a purple state.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/17/technology/meta-anthropic-ai-computing-power.
 **Flashback: Your Weekly History Quiz, July 18, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/17/upshot/flashback.html
-
-**Parents in Uganda Demand Answers After Bus Crash Kills 21 Children**\
-`The driver of the school bus, carrying dozens of students, lost control, officials said, causing the bus to veer off the road into a boulder.`\
-https://www.nytimes.com/2026/07/17/world/africa/uganda-bus-crash-children.html
-
-**‘The Real World’ and Nathan Fielder Can Both Thank Ross McElwee**\
-`Ross McElwee’s documentaries have shaped reality TV, comedy, podcasts and more in ways that you may not realize.`\
-https://www.nytimes.com/2026/07/17/movies/ross-mcelwee-the-real-world-nathan-fielder.html
 
