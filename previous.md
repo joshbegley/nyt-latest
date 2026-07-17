@@ -1,3 +1,7 @@
+**Big Tech Firms Like Oracle Turn to Bonds to Finance A.I. Data Centers**\
+`Risk is rising as big tech companies like Oracle — the ultimate financial source of the Ellison media empire — need to turn to the bond market for staggering sums to finance data centers.`\
+https://www.nytimes.com/2026/07/17/business/ai-spending-oracle-stocks-bonds.html
+
 **Stocks Sink on Anxiety About Tech and A.I. Spending**\
 `A sell-off in Asia led by chipmakers spilled into Europe and U.S. markets on Friday.`\
 https://www.nytimes.com/2026/07/17/business/stocks-ai-tech-wall-street.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/us/politics/republicans-in-north-carolina-try
 **When I Sued Roger Ailes, #MeToo Hadn’t Taken Off. Now It’s the Law of the Land.**\
 `And we’re still fighting.`\
 https://www.nytimes.com/2026/07/17/opinion/metoo-law-ailes-canceled.html
-
-**‘Shifters’ Review: Fast-Forwarding Through a Predictable Romance**\
-`Des (Heather Agyepong) and Dre (Daniel Ezra), navigate a mutual magnetic pull in this British love story by Benedict Lombe at Cherry Lane Theater.`\
-https://www.nytimes.com/2026/07/17/theater/shifters-review.html
 
