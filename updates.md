@@ -1,3 +1,7 @@
+**The King of the North, Andy Burnham, Won’t Save Britain**\
+`For the country, Andy Burnham looks a lot like more of the same.`\
+https://www.nytimes.com/2026/07/17/opinion/andy-burnham-britain-prime-minister.html
+
 **Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
 `President Trump drew selectively from documents his aides published online to insinuate that U.S. elections have been compromised for years and that government officials had suppressed the evidence.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election

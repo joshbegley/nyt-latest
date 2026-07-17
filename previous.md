@@ -1,3 +1,7 @@
+**The King of the North, Andy Burnham, Won’t Save Britain**\
+`For the country, Andy Burnham looks a lot like more of the same.`\
+https://www.nytimes.com/2026/07/17/opinion/andy-burnham-britain-prime-minister.html
+
 **A Trump Obsession That Carries a Cost for Democracy**\
 `In demanding steps to address the integrity of voting, President Trump persisted in relitigating his 2020 election defeat while finding ways to cast doubt on the 2026 outcome.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-elections-politics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/us/politics/iran-war-save-act.html
 **Watch the Wildfire Smoke Ooze Across North America From Space**\
 `Satellite imagery shows the wide footprint of the smoke across the continent.`\
 https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-from-space.html
-
-**Canada’s Wildfires Are Burning Through the Night**\
-`As overnight temperatures climb across Canada, fires that once spread more slowly after dark are burning around the clock, straining fire crews.`\
-https://www.nytimes.com/2026/07/16/world/canada/canada-wildfires-firefighters-heat.html
 
