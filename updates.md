@@ -1,3 +1,7 @@
+**Ontario Wildfires Burn On, Releasing More Smoke**\
+`More than 100 blazes continued to devastate swaths of Ontario, prompting evacuations.`\
+https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
+
 **Live Updates: Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
 `Mr. Burnham promised more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
 https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
