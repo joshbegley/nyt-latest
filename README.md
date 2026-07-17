@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/16/us/politics/trump-investigations-fraud-claims
 `Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of their 2018 album, “Hive Mind.” Watch the full conversation here.`\
 https://www.nytimes.com/video/podcasts/100000011031337/the-internet-is-back.html
 
-**What to Know About the Hazy Sky, Harmful Air and Fires**\
+**What to Know About Canada Wildfire Smoke and Air Quality in U.S. Cities**\
 `A thick plume of smoke swept across the Midwest and New England, and those conditions could linger on Friday.`\
 https://www.nytimes.com/2026/07/16/weather/what-to-know-canada-wildfires-smoke.html
 

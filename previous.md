@@ -1,9 +1,29 @@
+**Andy Burnham Is Poised to Become Britain’s Leader. His Ascent Was Years in the Making.**\
+`Andy Burnham is set to become the leader of the Labour Party and Britain’s 59th prime minister. His path to 10 Downing Street included a pivotal nearly decade-long stint as mayor of Greater Manchester.`\
+https://www.nytimes.com/video/world/europe/100000011029640/andy-burnham-labour-leader-prime-minister.html
+
+**Multiple Investigations Refuted Trump’s Claims That Fraud Altered the Outcome in 2020**\
+`Dozens of investigations, audits, recounts and court proceedings examined the 2020 election. None found the widespread voter fraud that President Trump claimed tilted the vote.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-investigations-fraud-claims-2020-election.html
+
+**The Internet is Back**\
+`Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of their 2018 album, “Hive Mind.” Watch the full conversation here.`\
+https://www.nytimes.com/video/podcasts/100000011031337/the-internet-is-back.html
+
+**What to Know About the Hazy Sky, Harmful Air and Fires**\
+`A thick plume of smoke swept across the Midwest and New England, and those conditions could linger on Friday.`\
+https://www.nytimes.com/2026/07/16/weather/what-to-know-canada-wildfires-smoke.html
+
+**Kentucky Jury Orders Gun Kit Seller to Pay More Than $100 Million in Teen’s Death**\
+`Lawyers for the family of Henry Coby Willis argued that the online seller failed to verify the buyer’s age or conduct a background check before shipping a pistol-building kit.`\
+https://www.nytimes.com/2026/07/16/us/kentucky-ghost-gun-death-settlement.html
+
 **What We Know About the Sunken Boat Near Alcatraz**\
 `At least one person died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Three passengers remain unaccounted for.`\
 https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
 
-**Live Updates: Trump to Speak About Election Security in Televised Address**\
-`It remains to be seen just how far Mr. Trump will go in discussing the 2020 election that he lost, which he has repeatedly claimed was rigged. But dozens of investigations that have failed to produce evidence of widespread voter fraud or foreign tampering.`\
+**Live Updates: Trump Speaks About Election Security in Televised Address**\
+`It remains to be seen just how far Mr. Trump will go in discussing the 2020 election that he lost, which he has repeatedly claimed was rigged. But dozens of investigations have failed to produce evidence of widespread voter fraud or foreign tampering.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 
 **Johan Guerrero, Maine ICE Shooting Victim, Relentlessly Pursued a Better Life, Partner Says**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/16/world/europe/ukraine-military-defense-ministe
 **Houston ICE Shooting: Lawyer Says Bags Held Salt, Not Drugs**\
 `Federal investigators said a “crystal-like” substance in the bags looked like methamphetamine. A lawyer for the victim’s brother said it was salt.`\
 https://www.nytimes.com/2026/07/16/us/fbi-search-drugs-houston-ice-shooting.html
-
-**How Todd Blanche Made the Justice Dept. Less Independent**\
-`Our Justice Department reporter Devlin Barrett describes how Todd Blanche, President Trump’s former personal lawyer and current nominee for attorney general, has helped Mr. Trump gain more control over the Justice Department.`\
-https://www.nytimes.com/video/us/politics/100000011024954/how-todd-blanche-made-the-justice-dept-less-independent.html
-
-**Summer Tastes Like Mango (and Vice Versa)**\
-`Three ways to maximize your mango-eating across three New York City boroughs.`\
-https://www.nytimes.com/2026/07/16/dining/best-mango-dishes.html
-
-**Burning Houses to Save Houses**\
-`We visited researchers seeking ways to make homes safer. They set a lot of fires.`\
-https://www.nytimes.com/2026/07/16/climate/burning-houses-to-save-houses.html
-
-**Smoke From Canada’s Wildfires Fills Skies Across North America**\
-`Weather forecasters expect the smoke to stretch from the upper Midwest and southern Canada to the northeastern United States. The heat and the smoke are expected to ease in the northeast by Friday, but closer to the fires, the smoke is likely to linger longer.`\
-https://www.nytimes.com/video/weather/100000011034886/canada-wildfires-smoke.html
-
-**Maps: Tracking Air Quality and Smoke From Wildfires in Canada and the U.S.**\
-`See maps of where smoke is traveling and how harmful the air has become.`\
-https://www.nytimes.com/interactive/2026/weather/canada-us-wildfire-smoke-air-quality-maps.html
 
