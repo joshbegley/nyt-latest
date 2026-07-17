@@ -190,11 +190,3 @@ https://www.nytimes.com/2026/07/16/business/media/netflix-earnings.html
 `Mr. Kean, a New Jersey Republican who was absent from Congress while being treated for depression, has since appeared at few campaign events and declined interview requests.`\
 https://www.nytimes.com/2026/07/16/nyregion/tom-kean-campaign.html
 
-**Ukraine Was on a Roll. Then a Clash Over War Strategy Exploded Into View.**\
-`From an underground parking garage, Ukraine’s newly dismissed defense minister aired the most dramatic, public critique of the military command to emerge during the war.`\
-https://www.nytimes.com/2026/07/16/world/europe/ukraine-military-defense-minister-drones.html
-
-**Houston ICE Shooting: Lawyer Says Bags Held Salt, Not Drugs**\
-`Federal investigators said a “crystal-like” substance in the bags looked like methamphetamine. A lawyer for the victim’s brother said it was salt.`\
-https://www.nytimes.com/2026/07/16/us/fbi-search-drugs-houston-ice-shooting.html
-
