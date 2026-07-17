@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/07/17/briefing/christopher-nolan-odyssey.html
 `“I don’t know if the public understands this, but these companies hate each other.”`\
 https://www.nytimes.com/2026/07/17/podcasts/hardfork-ai-trade-secrets.html
 
-**Live Updates: Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
+**Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
 `Mr. Burnham promised more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
 https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
 
