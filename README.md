@@ -1,3 +1,7 @@
+**What’s the Deal With Those Upside-Down Hats?**\
+`Plus, an ESPYs recap and OpenAI makes some mundane clothes.`\
+https://www.nytimes.com/2026/07/17/style/upside-down-hats-espys.html
+
 **El discurso de Trump que denunció vulnerabilidades electorales: puntos clave**\
 `Los documentos publicados por el gobierno de Trump para respaldar las afirmaciones del presidente no sustentaron sus declaraciones más agresivas.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones-puntos-clave.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/podcasts/the-daily/air-force-one-trump.html
 **What a Times Reporter Saw in Iran, and Takeaways from Trump’s Speech on Election Security**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/07/17/podcasts/the-headlines/iran-trump-speech-election-security.html
-
-**NYT Connections Answers for July 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 18, 2026.`\
-https://www.nytimes.com/2026/07/17/crosswords/connections-companion-1133.html
 
