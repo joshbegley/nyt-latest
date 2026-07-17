@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/07/17/us/flooding-texas.html
 
 **Mark Morris: A Little Bit Country, a Little Bit Jazz**\
 `Morris’s dance troupe presents “Dances to American Music,” three programs at the Joyce Theater.`\
-https://www.nytimes.com/2026/07/17/theater/mark-morris-dances-to-american-music.html
+https://www.nytimes.com/2026/07/17/arts/dance/mark-morris-dances-to-american-music.html
 
 **Meta in Talks to Lease Computing Power to Anthropic in Potential $10 Billion Deal**\
 `A deal would underline how scarce computing power is for artificial intelligence development, and could create a new business for Meta.`\
