@@ -1,3 +1,19 @@
+**Trump’s Election Claims and SAVE Act Push Find Muted Response From G.O.P. Lawmakers**\
+`Most G.O.P. lawmakers had little to say about the president’s claims of election vulnerabilities, and he did not appear to move the needle on the voting restriction bill he championed.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-election-save-act-republicans-midterms.html
+
+**Un artista y disidente cubano se irá al exilio tras cumplir su condena**\
+`Otero Alcántara fue arrestado durante las protestas antigubernamentales masivas de 2021, permaneció cinco años en prisión. EE. UU. ofreció una visa y se espera que llegue a Miami el sábado.`\
+https://www.nytimes.com/es/2026/07/17/espanol/america-latina/cuba-prisionero-politico-otero-exilio.html
+
+**The Rise and Fall of Ukraine’s Drone Warfare Mastermind**\
+`The popularity of drones, and the defense minister who heavily promoted them, helped lead to a clash in which President Volodymyr Zelensky sided with the military brass.`\
+https://www.nytimes.com/2026/07/17/world/europe/ukraine-fedorov-defense-minister.html
+
+**Karim Khan’s Accuser Breaks Silence on Alleged Sexual Misconduct at I.C.C.**\
+`Karim Khan, the chief prosecutor at the International Criminal Court, has denied the accusations. He faces a vote next week that will determine whether he keeps his job.`\
+https://www.nytimes.com/2026/07/17/world/europe/karim-khan-icc-accusations.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/opinion/editorials/100000011038728/anewinferno-cine.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/07/17/us/california-millionaire-remains-found-thelm
 **Today, In Short**\
 `Monkeys. A.I. slop. And iceberg lettuce.`\
 https://www.nytimes.com/2026/07/17/briefing/today-in-short.html
-
-**The Internet’s Secret to Success? Being Family-Oriented.**\
-`Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of the band’s 2018 album, “Hive Mind,” to discuss what’s next for the artists.`\
-https://www.nytimes.com/video/podcasts/100000011036291/the-internets-secret-to-success-being-family-oriented.html
-
-**Pentagon’s Escort Policy for Journalists Is Temporarily Restored**\
-`An appeals court said the Defense Department could require escorts for reporters who visit the Pentagon while The New York Times sues to overturn the rule.`\
-https://www.nytimes.com/2026/07/17/business/media/pentagon-reporters-nytimes.html
-
-**It’s Smoky. You Don’t Have an Air Purifier. Here’s What to Do.**\
-`There are D.I.Y. options to help keep out polluted air, and clean the air already in your home.`\
-https://www.nytimes.com/2026/07/17/well/smoke-air-quality-tips.html
-
-**El brote de ciclosporiasis es vinculado a lechuga de Taco Bell**\
-`Autoridades federales de EE. UU. colaboraron con investigadores de Míchigan y rastrearon el brote a la lechuga iceberg, que también podría haber sido distribuida a otros establecimientos.`\
-https://www.nytimes.com/es/2026/07/17/espanol/ciclosporiasis-lechuga.html
 
