@@ -1,3 +1,11 @@
+**La atmósfera de un planeta cercano es similar a la Tierra**\
+`Es el primer planeta conocido potencialmente habitable con una atmósfera, y refuerza la idea de que existen mundos similares al nuestro con los elementos necesarios para sustentar la vida.`\
+https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habitable-atmosfera-tierra.html
+
+**China’s Moonshot AI Unveils Kimi Model, Threatening America’s Lead**\
+`China’s Moonshot AI unveiled a freely available artificial intelligence model that seemed to narrow the gap with cutting-edge offerings from U.S. tech companies.`\
+https://www.nytimes.com/2026/07/17/business/china-ai-moonshot-kimi.html
+
 **As Floods Begin to Recede, Texans Start to Assess the Destruction**\
 `At least two people died as waters rose rapidly across the Texas Hill Country, the same area of the state that saw catastrophic flooding last year.`\
 https://www.nytimes.com/2026/07/17/us/flooding-texas.html

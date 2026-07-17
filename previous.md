@@ -1,3 +1,11 @@
+**La atmósfera de un planeta cercano es similar a la Tierra**\
+`Es el primer planeta conocido potencialmente habitable con una atmósfera, y refuerza la idea de que existen mundos similares al nuestro con los elementos necesarios para sustentar la vida.`\
+https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habitable-atmosfera-tierra.html
+
+**China’s Moonshot AI Unveils Kimi Model, Threatening America’s Lead**\
+`China’s Moonshot AI unveiled a freely available artificial intelligence model that seemed to narrow the gap with cutting-edge offerings from U.S. tech companies.`\
+https://www.nytimes.com/2026/07/17/business/china-ai-moonshot-kimi.html
+
 **When Will the Smoke End? It’s Complicated.**\
 `The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
 https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/17/us/politics/federal-courthouses-repairs.html
 **Bridges Destroyed in Iran After Latest Exchange With U.S. Military**\
 `Video on social media shows bridges reduced to rubble in southern Iran after the sixth consecutive night of strikes between U.S. and Iranian forces.`\
 https://www.nytimes.com/video/world/middleeast/100000011037160/iran-war-us-strikes-bridges-hormuz.html
-
-**Roger Summit, Who Invented an Early Online Search Service, Dies at 95**\
-`A research scientist at Lockheed, he came up with the idea for a computer system that would search scientific and technical literature almost instantaneously.`\
-https://www.nytimes.com/2026/07/17/technology/roger-summit-dead.html
-
-**Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 24 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 5.`\
-https://www.nytimes.com/2026/07/17/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
 
