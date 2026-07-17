@@ -1,3 +1,7 @@
+**As Floods Begin to Recede, Texans Start to Assess the Destruction**\
+`At least two people died as waters rose rapidly across the Texas Hill Country, the same area of the state that saw catastrophic flooding last year.`\
+https://www.nytimes.com/2026/07/17/us/flooding-texas.html
+
 **When Will the Smoke End? It’s Complicated.**\
 `The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
 https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
