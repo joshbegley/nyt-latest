@@ -1,3 +1,7 @@
+**Live Updates: Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
+`Mr. Burnham promised more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
+https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
+
 **The Burning, Bleeding, Breathing Art of Ana Mendieta**\
 `A Tate Modern survey of the artist’s lifetime of work sidesteps chronology to focus on her engagement with nature. But does that give us the whole picture?`\
 https://www.nytimes.com/2026/07/17/arts/design/ana-mendieta-tate-modern.html
