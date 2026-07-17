@@ -1,3 +1,39 @@
+**‘Heartstopper Forever’ Review: Facing a Grown-Up Reality**\
+`The glossy Netflix series graduates into adulthood with this movie starring Kit Connor and Joe Locke as a couple with thoughts of college ahead.`\
+https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review-facing-a-grown-up-reality.html
+
+**The History of the Carriage Horses in Central Park**\
+`After 165 years, the tourist ritual — which now costs $77.22 for the first 20 minutes — may be coming to an end. Here’s a tour through the archives.`\
+https://www.nytimes.com/2026/07/17/nyregion/is-new-yorks-love-hate-relationship-with-horse-carriages-over-at-last.html
+
+**Hegseth planea evaluar el nivel de testosterona de las tropas de EE. UU.**\
+`Pete Hegseth, como secretario de Defensa, ha buscado cultivar la imagen de un líder afín a la manosfera.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/pete-hegseth-testosterona.html
+
+**Ucrania estaba en una buena racha. Entonces surgió una ruptura militar**\
+`Desde un estacionamiento subterráneo, el recién destituido ministro de Defensa de Ucrania emitió la crítica pública más dramática al mando militar que se haya hecho durante la guerra.`\
+https://www.nytimes.com/es/2026/07/17/espanol/mundo/ucrania-defensa-drones.html
+
+**Late Night Is Amused by Alleged White House Teleprompter Grift**\
+`Hosts responded on Thursday to a teleprompter operator reportedly winning around $100,000 betting on what President Trump would say in his speeches.`\
+https://www.nytimes.com/2026/07/17/arts/television/late-night-trump-teleprompter-operator-bets.html
+
+**Japan Passes New Law Banning Flag Desecration in Nationalist Push**\
+`The new law is part of a campaign by Prime Minister Sanae Takaichi, a hard-line conservative, to build a more patriotic and assertive Japan. Critics say it undermines free speech.`\
+https://www.nytimes.com/2026/07/17/world/asia/japan-flag-desecration-law.html
+
+**He Pursued a Pardon in Trump’s Justice System. It Added to His Problems.**\
+`Michael Castillero was convicted of defrauding investors in a $386 million scheme. Then he started courting MAGA influencers.`\
+https://www.nytimes.com/2026/07/17/nyregion/castillero-fraud-trump-pardon-sentence.html
+
+**NYT Spelling Bee Answers for July 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/17/crosswords/spelling-bee-forum.html
+
+**Wait, Moviegoing Isn’t Dead? Our Critic Explains.**\
+`The Times’s chief film critic, Manohla Dargis, discusses what is driving the youthquake in moviegoing, and what she thinks it portends for the film industry.`\
+https://www.nytimes.com/2026/07/17/insider/summer-movies.html
+
 **The King of the North, Andy Burnham, Won’t Save Britain**\
 `For the country, Andy Burnham looks a lot like more of the same.`\
 https://www.nytimes.com/2026/07/17/opinion/andy-burnham-britain-prime-minister.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/07/16/weather/boundary-waters-fire-minnesota.html
 **Un técnico de teleprompter de la Casa Blanca apostaba a los discursos de Trump, dice Kalshi**\
 `Es la acusación más reciente de que alguien había usado información privilegiada para obtener ganancias en los mercados de predicciones como Kalshi y Polymarket.`\
 https://www.nytimes.com/es/2026/07/16/espanol/negocios/teleprompter-apuestas-discursos-trump.html
-
-**Ruptured Water Pipe Floods Streets in West Hollywood**\
-`A giant water main burst in West Hollywood, Calif., before dawn on Thursday, flooding streets and creating a sinkhole on Sunset Boulevard.`\
-https://www.nytimes.com/video/us/100000011036581/west-hollywood-flooding-ruptured-water-line.html
-
-**The Left Needs to Reclaim Its Optimism**\
-`Can a more patriotic leftism help the Democrat Party rebrand? Bhaskar Sunkara, author of “The Socialist Manifesto,” talks on “Interesting Times” about how liberals have damaged the Democratic party’s brand by embracing a pessimistic narrative of American history.`\
-https://www.nytimes.com/video/opinion/100000011024679/the-left-needs-to-reclaim-its-optimism.html
-
-**Wildfire Smokes Makes Air Hazardous for Millions in Midwest and East Coast**\
-`The haze is likely to ease in the East this weekend but linger in the Upper Midwest, where some cities recorded extremely high pollution indexes on Thursday.`\
-https://www.nytimes.com/2026/07/16/us/wildfire-smoke-air-quality.html
-
-**Trump Administration Restricts Green Cards for Immigrants on Public Assistance**\
-`The move is a significant change that could deter hundreds of thousands of immigrants from using such programs to meet basic needs.`\
-https://www.nytimes.com/2026/07/16/us/politics/trump-green-cards-public-assistance.html
-
-**Judge Unseals Filings From Jack Smith Subpoena for Lawmaker’s Phone Data**\
-`The Justice Department had balked at the disclosure, saying that the government had not acknowledged the special counsel’s subpoenas and that grand jury information was secret.`\
-https://www.nytimes.com/2026/07/16/us/politics/judge-unseals-jack-smith-subpoena-filings.html
-
-**What It’s Like in a City With Dangerous Air Quality**\
-`Our reporter Nicholas Bogel-Burroughs is in Toledo, Ohio, where the air quality level resulting from Canadian wildfire smoke is among the most hazardous in the United States.`\
-https://www.nytimes.com/video/us/100000011036303/wildfire-smoke-air-quality-index-toledo.html
-
-**What's It Like to Write a Song for Beyoncé?**\
-`Beyoncé’s song “Plastic Off the Sofa” started as a 2017 demo written by Syd, a co-founder of alternative R&B band The Internet, and singer-songwriter Sabrina Claudio. On “Popcast,” Syd describes how the song eventually became a track on Beyoncé’s 2022 album “Renaissance.”`\
-https://www.nytimes.com/video/podcasts/100000011036376/whats-it-like-to-write-a-song-for-beyonce.html
-
-**Republican Rifts Deepen Over $95 Billion Budget Plan for Iran War and SAVE Act**\
-`A House panel approved the measure. But Republicans are divided over its size, cost and policy provisions, and many are concerned about the timing before the midterm elections.`\
-https://www.nytimes.com/2026/07/16/us/politics/iran-war-save-act.html
-
-**Watch the Wildfire Smoke Ooze Across North America From Space**\
-`Satellite imagery shows the wide footprint of the smoke across the continent.`\
-https://www.nytimes.com/2026/07/16/weather/wildfire-smoke-from-space.html
 
