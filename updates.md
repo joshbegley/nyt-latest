@@ -1,3 +1,19 @@
+**War Between U.S. and Iran Expands, With Strikes Across the Region**\
+`Videos and reports in Iranian state media showed damage to bridges, railways and other infrastructure. U.S. allies in the region reported retaliatory strikes by Iran.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/war-between-us-and-iran-expands-with-strikes-across-the-region.html
+
+**Trump’s Homeland Security Chief Threatens Election Officials With Prison Time**\
+`Markwayne Mullin reiterated the president’s false claims about voting security while escalating the administration’s legally questionable attempts to control state elections.`\
+https://www.nytimes.com/2026/07/17/us/politics/markwayne-mullin-threatens-election-officials-prison-time.html
+
+**Lam Wing-Kee, Hong Kong Bookseller Who Defied Authorities, Dies at 70**\
+`One of five booksellers kidnapped by Chinese officials in 2015, Mr. Lam spoke out after his release and became an international cause célèbre.`\
+https://www.nytimes.com/2026/07/17/world/asia/lam-wing-kee-dead.html
+
+**Prominent Cuban Artist Will Go Into Exile After 5-Year Prison Term**\
+`The United States offered a visa to Luis Manuel Otero Alcántara, who was expected to fly to Miami on Saturday.`\
+https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-prison-release-exile.html
+
 **How Senegal Spread Its Hospitality in Harlem**\
 `As Senegal advanced in the World Cup, its fans found the flavors of home on 116th Street.`\
 https://www.nytimes.com/2026/07/17/dining/world-cup-senegal-fans-harlem.html
