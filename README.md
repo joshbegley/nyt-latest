@@ -1,3 +1,7 @@
+**U.S. Inquiry Into Former N.Y.C. Sheriff Seeks Records on Tobacco Firm**\
+`Federal authorities searched the home of Anthony Miranda, the former sheriff, and sought records about the tobacco company, Reynolds American.`\
+https://www.nytimes.com/2026/07/16/nyregion/reynolds-tobacco-criminal-investigation-nyc-sheriff.html
+
 **Trump Released Documents on China and the 2020 Election. Here’s What We Know.**\
 `President Trump claimed that China had tried to acquire American voter data. Possessing such information would not allow votes to be manipulated.`\
 https://www.nytimes.com/2026/07/16/us/politics/documents-china-2020-election-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/us/politics/ntsb-helicopters-hudson-river-gee
 **Lionel Messi Is Walking Into History**\
 `Messi doesn’t walk because he’s left the game. He walks in order to enter it.`\
 https://www.nytimes.com/2026/07/16/opinion/messi-world-cup-argentina-final.html
-
-**The Internet Is Finishing a New Album**\
-`Syd, Steve Lacy and Matt Martians of the Internet sit down with Joe Coscarelli and Jon Caramanica, the hosts of “Popcast,” for their first interview together since the release of their 2018 album, “Hive Mind,” to discuss what’s next for the band.`\
-https://www.nytimes.com/video/podcasts/100000011031400/the-internet-is-finishing-a-new-album.html
 
