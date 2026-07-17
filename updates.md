@@ -1,3 +1,11 @@
+**Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
+`At a time of political upheaval and economic stagnation, Andy Burnham will on Monday become the seventh prime minister in a decade.`\
+https://www.nytimes.com/2026/07/17/world/europe/burnham-becomes-labour-leader-pledging-to-deliver-hope-to-britain.html
+
+**Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
+`She won for playing a stoic mother in “My Left Foot” and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2.”`\
+https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
+
 **Terremoto en Guatemala y México: el sismo de 7,3 desata alerta de tsunami**\
 `Un potente sismo cerca de la frontera entre México y Guatemala despertó preocupaciones de tsunami y sacudió edificios en tres países.`\
 https://www.nytimes.com/es/2026/07/17/espanol/america-latina/terremoto-guatemala-mexico.html

@@ -1,3 +1,7 @@
+**X and Music Publishers Retreat From Lawsuits**\
+`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026, but have not said why.`\
+https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
+
 **Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
 `At a time of political upheaval and economic stagnation, Andy Burnham will on Monday become the seventh prime minister in a decade.`\
 https://www.nytimes.com/2026/07/17/world/europe/burnham-becomes-labour-leader-pledging-to-deliver-hope-to-britain.html
@@ -119,7 +123,7 @@ https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-
 https://www.nytimes.com/2026/07/17/us/politics/trump-government-election-claims.html
 
 **Taking Out the Trash: These Old Ladies Are Cleaning Up Cape Cod**\
-`The Old Ladies Against Underwater Garbage estimate they’ve removed 6,000 pounds of refuse from ponds on Cape Cod. “It’s the best feeling,” one said.`\
+`The Old Ladies Against Underwater Garbage estimate they’ve removed 6,000 pounds of refuse from ponds on Cape Cod. “There’s no better feeling,” one said.`\
 https://www.nytimes.com/2026/07/17/climate/old-ladies-diving-for-trash.html
 
 **Tomato Cheddar Toasts, Anyone?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
 **The Burning, Bleeding, Breathing Art of Ana Mendieta**\
 `A Tate Modern survey of the artist’s lifetime of work sidesteps chronology to focus on her engagement with nature. But does that give us the whole picture?`\
 https://www.nytimes.com/2026/07/17/arts/design/ana-mendieta-tate-modern.html
-
-**Hundreds of Rohingya Feared Drowned at Sea**\
-`Members of the persecuted minority group from Myanmar set off in search of a better life weeks ago, but news of their boats sinking only emerged recently. More than 500 are feared dead.`\
-https://www.nytimes.com/2026/07/17/world/asia/rohingya-myanmar-boats-sink-missing.html
 
