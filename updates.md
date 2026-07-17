@@ -1,3 +1,15 @@
+**Trump’s Dangerous Election Claims**\
+`Readers react to President Trump’s speech. Also: Canada’s wildfires and the U.S.; ultrarich men who kidmax.`\
+https://www.nytimes.com/2026/07/17/opinion/trump-speech-election-claims.html
+
+**En Cuba, un preso político fue liberado de prisión. Luego desapareció**\
+`Luis Manuel Otero Alcántara, artista cubano que espera permiso del gobierno del presidente Trump para ingresar a Estados Unidos, se encuentra retenido en un lugar desconocido en Cuba.`\
+https://www.nytimes.com/es/2026/07/17/espanol/america-latina/artista-cubano-desaparecido-preso-politico.html
+
+**Ontario Wildfires Burn On, and New Ones Spring Up**\
+`Nearly 200 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
+https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
+
 **What’s the Deal With Those Upside-Down Hats?**\
 `Plus, an ESPYs recap and OpenAI makes some mundane clothes.`\
 https://www.nytimes.com/2026/07/17/style/upside-down-hats-espys.html

@@ -1,3 +1,7 @@
+**7.3-Magnitude Earthquake in Central America Sets Off Tsunami Threat**\
+`A powerful earthquake near the border of Mexico and Guatemala raised fears of a tsunami and shook buildings across three countries.`\
+https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mexico-guatemala.html
+
 **Trump’s Dangerous Election Claims**\
 `Readers react to President Trump’s speech. Also: Canada’s wildfires and the U.S.; ultrarich men who kidmax.`\
 https://www.nytimes.com/2026/07/17/opinion/trump-speech-election-claims.html
@@ -44,7 +48,7 @@ https://www.nytimes.com/2026/07/17/climate/european-union-emissions-rollback.htm
 
 **Trump Faces the Limits of U.S. Firepower and the Lessons of Past Wars**\
 `Like his predecessors, President Trump has struggled to turn battlefield successes into long-term victories.`\
-https://www.nytimes.com/2026/07/17/us/politics/trump-lessons-of-past-wars.html
+https://www.nytimes.com/2026/07/17/us/politics/trump-iran-war-afghanistan-iraq.html
 
 **Remains of California Millionaire Who Vanished 45 Years Ago Are Identified**\
 `A con man was convicted in the 1983 murder of Thelma Gaston, 80, but her remains were only just identified thanks to advanced DNA testing.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/business/xi-jinping-china-ai.html
 **When American Smoke Choked Canada**\
 `Some Republican lawmakers have blamed Canada for poor air quality in the United States and said poor forest management is to blame. But Canadians have also inhaled smoke from American wildfires.`\
 https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html
-
-**Live Updates: Wildfire Smoke Darkens Skies Again on Friday**\
-`The dense smoke from Canadian wildfires has pushed air quality to dangerous levels in the past few days.`\
-https://www.nytimes.com/live/2026/07/17/weather/wildfire-smoke-air-quality
 
