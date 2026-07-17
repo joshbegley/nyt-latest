@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/07/16/us/kentucky-ghost-gun-death-settlement.html
 `At least one person died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Three passengers remain unaccounted for.`\
 https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
 
-**Live Updates: Trump Speaks About Election Security in Televised Address**\
-`It remains to be seen just how far Mr. Trump will go in discussing the 2020 election that he lost, which he has repeatedly claimed was rigged. But dozens of investigations have failed to produce evidence of widespread voter fraud or foreign tampering.`\
+**Live Updates: Trump Makes Outlandish Claims About Election Results in Address**\
+`Mr. Trump also laid out a purported effort by the Chinese government to undermine him in 2019. But the documents posted by the White House, although heavily redacted, were far more guarded in their conclusions.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 
 **Johan Guerrero, Maine ICE Shooting Victim, Relentlessly Pursued a Better Life, Partner Says**\
