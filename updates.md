@@ -1,3 +1,11 @@
+**Mullin Promises to Maintain Surge in Immigration Arrests Even After Shootings**\
+`The homeland security secretary made clear that he would seek to deliver on President Trump’s push for mass deportations.`\
+https://www.nytimes.com/2026/07/17/us/politics/mullin-ice-shootings-arrests.html
+
+**La obsesión de Trump con la elección de 2020 tiene un costo para la democracia**\
+`En su segundo mandato, el presidente de EE. UU. insiste en litigar las elecciones de 2020 y encontrar formas de sembrar dudas sobre la votación de 2026.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones.html
+
 **The Latest Texas Floods Tested Warning Systems. This Time, They Passed.**\
 `A lack of sirens and flood forecasting systems made the state’s Hill Country vulnerable to deadly floods last summer. That has changed.`\
 https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html

@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html
 https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html
 
 **X and Music Publishers Retreat From Lawsuits**\
-`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026, but have not said why.`\
+`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026. They have not said why.`\
 https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
 
 **Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
