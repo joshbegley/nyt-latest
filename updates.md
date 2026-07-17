@@ -1,3 +1,15 @@
+**Trump again makes unverifiable claims of noncitizen voting**\
+`The president offered no concrete evidence, and at least one state — Nevada — rejected his claims immediately.`\
+https://www.nytimes.com/2026/07/16/us/politics/trump-again-makes-unfounded-claims-of-noncitizen-voting.html
+
+**What We Know About the Sunken Boat Near Alcatraz**\
+`At least two people died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Two passengers remain unaccounted for.`\
+https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
+
+**Live Updates: Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
+`President Trump drew selectively from documents his aides published online to insinuate that U.S. elections have been compromised for years and that government officials had suppressed the evidence.`\
+https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
+
 **Trump Released Documents on China and the 2020 Election. Here’s What We Know.**\
 `President Trump claimed that China had tried to acquire American voter data. Possessing such information would not allow votes to be manipulated.`\
 https://www.nytimes.com/2026/07/16/us/politics/documents-china-2020-election-trump.html
