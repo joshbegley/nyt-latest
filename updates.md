@@ -1,3 +1,7 @@
+**Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
+`President Trump drew selectively from documents his aides published online to insinuate that U.S. elections have been compromised for years and that government officials had suppressed the evidence.`\
+https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
+
 **A Trump Obsession That Carries a Cost for Democracy**\
 `In demanding steps to address the integrity of voting, President Trump persisted in relitigating his 2020 election defeat while finding ways to cast doubt on the 2026 outcome.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-elections-politics.html

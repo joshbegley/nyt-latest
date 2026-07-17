@@ -134,7 +134,7 @@ https://www.nytimes.com/2026/07/16/us/kentucky-ghost-gun-death-settlement.html
 `At least two people died and 16 were rescued after a three-level boat sank in the San Francisco Bay on Tuesday. Two passengers remain unaccounted for.`\
 https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
 
-**Live Updates: Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
+**Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
 `President Trump drew selectively from documents his aides published online to insinuate that U.S. elections have been compromised for years and that government officials had suppressed the evidence.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
 
