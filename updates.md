@@ -1,3 +1,7 @@
+**Trump Administration’s Cuts Targeted Wildfire Research**\
+`Labs at the Environmental Protection Agency and the Forest Service have analyzed the effects of wildfires. The administration wants to shutter them.`\
+https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html
+
 **War Between U.S. and Iran Expands, With Strikes Across the Region**\
 `Videos and reports in Iranian state media showed damage to bridges, railways and other infrastructure. U.S. allies in the region reported retaliatory strikes by Iran.`\
 https://www.nytimes.com/2026/07/17/world/middleeast/war-between-us-and-iran-expands-with-strikes-across-the-region.html

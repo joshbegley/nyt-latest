@@ -1,3 +1,7 @@
+**How Athletes at the World Cup and Beyond Celebrate Victories: Dances, Doughnuts and Finger Wags**\
+`The World Cup has brought renewed attention to the art of celebration. Here’s a look at all kinds of athletes whose rituals of triumph became part of their legacies.`\
+https://www.nytimes.com/2026/07/17/sports/athletes-victory-celebrations-world-cup.html
+
 **Trump Administration’s Cuts Targeted Wildfire Research**\
 `Labs at the Environmental Protection Agency and the Forest Service have analyzed the effects of wildfires. The administration wants to shutter them.`\
 https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/us/politics/trump-government-election-claims.
 **Taking Out the Trash: These Old Ladies Are Cleaning Up Cape Cod**\
 `The Old Ladies Against Underwater Garbage estimate they’ve removed 6,000 pounds of refuse from ponds on Cape Cod. “There’s no better feeling,” one said.`\
 https://www.nytimes.com/2026/07/17/climate/old-ladies-diving-for-trash.html
-
-**Tomato Cheddar Toasts, Anyone?**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/07/17/dining/tomato-cheddar-toasts-anyone.html
 
