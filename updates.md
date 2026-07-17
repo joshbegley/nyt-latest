@@ -1,3 +1,7 @@
+**Fire in Midtown Manhattan Adds to Smoke Above New York City**\
+`The three-alarm fire, which broke out around 7 a.m., led to the evacuation of 200 people from a Midtown high-rise on Friday morning. Five minor injuries were reported.`\
+https://www.nytimes.com/2026/07/17/weather/fire-midtown-manhattan-nyc.html
+
 **Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
 `She won for playing a stoic mother in “My Left Foot” (1989) and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2” (1992).`\
 https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html

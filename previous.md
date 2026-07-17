@@ -1,3 +1,7 @@
+**Fire in Midtown Manhattan Adds to Smoke Above New York City**\
+`The three-alarm fire, which broke out around 7 a.m., led to the evacuation of 200 people from a Midtown high-rise on Friday morning. Five minor injuries were reported.`\
+https://www.nytimes.com/2026/07/17/weather/fire-midtown-manhattan-nyc.html
+
 **Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
 `She won for playing a stoic mother in “My Left Foot” (1989) and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2” (1992).`\
 https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/briefing/christopher-nolan-odyssey.html
 **The A.I. Trade Secrets War + Economists Say ‘We Must Act Now’ + HatGPT**\
 `“I don’t know if the public understands this, but these companies hate each other.”`\
 https://www.nytimes.com/2026/07/17/podcasts/hardfork-ai-trade-secrets.html
-
-**Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
-`Mr. Burnham promised more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
-https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
 
