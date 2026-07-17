@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/16/well/cyclospora-taylor-farms-lettuce-taco-bel
 `Trump también expuso un supuesto esfuerzo del gobierno chino para socavarlo en 2019. Pero los documentos publicados por la Casa Blanca, aunque con muchas tachaduras, no respaldaron sus afirmaciones.`\
 https://www.nytimes.com/es/2026/07/16/espanol/estados-unidos/trump-discurso-resultados-electorales.html
 
-**Assessing the documents: Fake IDs from China**\
+**Assessing the Documents: Fake IDs From China**\
 `A previously released F.B.I. memo, viewed skeptically by intelligence agents, described a purported scheme by China to meddle in the 2020 election.`\
 https://www.nytimes.com/2026/07/16/us/politics/assessing-the-documents-fake-ids-from-china.html
 
@@ -37,6 +37,14 @@ https://www.nytimes.com/2026/07/16/weather/ontario-canada-wildfire-budget.html
 **5 Takeaways From a Maine Debate That Showed Replacing Platner Isn’t Easy**\
 `Maine Democrats vying to become the state’s new Senate nominee met, and mostly agreed, at a debate filled with halting answers and stilted deliveries.`\
 https://www.nytimes.com/2026/07/16/us/politics/maine-senate-debate-takeaways.html
+
+**Assessing the documents: Venezuela and Smartmatic**\
+`(No description)`\
+https://www.nytimes.com/2026/07/16/us/politics/assessing-the-documents-venezuela-and-smartmatic.html
+
+**Assessing the Documents: Voter Registration in Michigan**\
+`A well-known allegation of attempts to fraudulently register voters never yielded evidence of illegal voting.`\
+https://www.nytimes.com/2026/07/16/us/politics/voter-registration-michigan.html
 
 **Andy Burnham Is Poised to Become Britain’s Leader. His Ascent Was Years in the Making.**\
 `Andy Burnham is set to become the leader of the Labour Party and Britain’s 59th prime minister. His path to 10 Downing Street included a pivotal nearly decade-long stint as mayor of Greater Manchester.`\
