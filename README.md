@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/07/17/us/politics/trump-election-tampering-document
 
 **‘Suddenly, I Was Free’: A Chinese Pastor’s Journey From Jail to the U.S.**\
 `In his first interview since being released by China, Pastor Ezra Jin Mingri details his surprise release after a direct appeal by President Trump to Xi Jinping.`\
-https://www.nytimes.com/2026/07/17/world/asia/suddenly-i-was-free-a-chinese-pastors-journey-from-jail-to-the-us.html
+https://www.nytimes.com/2026/07/17/world/asia/ezra-jin-china-pastor-trump.html
 
 **How Couples Therapists Fight With Their Partners**\
 `They spend their days helping people hash out conflicts. Here’s what they do at home.`\
@@ -41,6 +41,10 @@ https://www.nytimes.com/2026/07/17/movies/five-free-movies-to-stream-now.html
 **The Internet’s Steve Lacy, Syd and Matt Martians Discuss New Music**\
 `The band members Steve Lacy and Syd, both of whom have new solo albums out now, reunite with the producer Matt Martians to discuss achieving TikTok fame, writing a Beyoncé song and staying a family.`\
 https://www.nytimes.com/2026/07/17/arts/music/internet-syd-steve-lacy-interview.html
+
+**When a World Cup Team Needs a Trim, the Barbershop Comes to Them**\
+`Maram Hammadi, who grew up playing on dirt fields in Iraq before opening a barbershop outside Seattle, heard Egypt needed a barber. He cleared his books.`\
+https://www.nytimes.com/2026/07/17/sports/world-cup-egypt-seattle-barbershop.html
 
 **Cooler Inflation May Not Be Enough to Stave Off Fed Rate Increases**\
 `The Federal Reserve is expected to hold rates steady at its July meeting, but officials have not written off the possibility of a move soon after.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/17/espanol/mundo/ucrania-defensa-drones.html
 **Late Night Is Amused by Alleged White House Teleprompter Grift**\
 `Hosts responded on Thursday to a teleprompter operator reportedly winning around $100,000 betting on what President Trump would say in his speeches.`\
 https://www.nytimes.com/2026/07/17/arts/television/late-night-trump-teleprompter-operator-bets.html
-
-**World Cup Updates: When the Egypt Team Needed Haircuts, the Barbershop Came to Them**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
