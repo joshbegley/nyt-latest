@@ -1,3 +1,11 @@
+**Un técnico de teleprompter de la Casa Blanca apostaba a los discursos de Trump, dice Kalshi**\
+`Es la acusación más reciente de que alguien había usado información privilegiada para obtener ganancias en los mercados de predicciones como Kalshi y Polymarket.`\
+https://www.nytimes.com/es/2026/07/16/espanol/negocios/teleprompter-apuestas-discursos-trump.html
+
+**Ruptured Water Pipe Floods Streets in West Hollywood**\
+`A giant water main burst in West Hollywood, Calif., before dawn on Thursday, flooding streets and creating a sinkhole on Sunset Boulevard.`\
+https://www.nytimes.com/video/us/100000011036581/west-hollywood-flooding-ruptured-water-line.html
+
 **The Left Needs to Reclaim Its Optimism**\
 `Can a more patriotic leftism help the Democrat Party rebrand? Bhaskar Sunkara, author of “The Socialist Manifesto,” talks on “Interesting Times” about how liberals have damaged the Democratic party’s brand by embracing a pessimistic narrative of American history.`\
 https://www.nytimes.com/video/opinion/100000011024679/the-left-needs-to-reclaim-its-optimism.html
