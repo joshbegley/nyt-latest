@@ -1,3 +1,103 @@
+**Trump Promised Proof of Election Tampering. His Document Release Fell Far Short.**\
+`In the end, the documentary evidence that President Trump claimed would prove his case appeared bound to disappoint those who expected bombshell revelations.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-election-tampering-document-release.html
+
+**‘Suddenly, I Was Free’: A Chinese Pastor’s Journey From Jail to the U.S.**\
+`In his first interview since being released by China, Pastor Ezra Jin Mingri details his surprise release after a direct appeal by President Trump to Xi Jinping.`\
+https://www.nytimes.com/2026/07/17/world/asia/ezra-jin-china-pastor-trump.html
+
+**How Couples Therapists Fight With Their Partners**\
+`They spend their days helping people hash out conflicts. Here’s what they do at home.`\
+https://www.nytimes.com/2026/07/17/well/couples-therapists-fight-advice.html
+
+**The New York Times News Quiz, July 17, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/07/17/briefing/news-quiz-graham-trump-cyclospora-ice.html
+
+**Cómo protegerte del síndrome de alfa-gal**\
+`La alergia a la carne roja, causada por la picadura de una garrapata, se está volviendo más común en partes de EE. UU.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estilos-de-vida/alfa-gal-alergia-carne-roja-garrapata.html
+
+**Is My Wife’s Sister’s Husband Really My Brother-In-Law?**\
+`A ruling on the limits of familial bonds.`\
+https://www.nytimes.com/interactive/2026/07/17/magazine/brother-in-law-hodgman-quiz.html
+
+**How ICE’s Traffic Stops Led to Fatal Confrontations**\
+`ICE has been trying to continue its mass deportations without drawing headlines. Our White House correspondent Zolan Kanno-Youngs explains how two fatal shootings at traffic stops raise the question of whether the Trump administration can continue its campaign without deadly consequences.`\
+https://www.nytimes.com/video/us/100000011033438/how-ices-traffic-stops-led-to-fatal-confrontations.html
+
+**Some of Us Got Tired of Lionel Messi, but He Won Us Over. Again.**\
+`Has any seemingly overhyped phenomenon done a better job living up to the hype?`\
+https://www.nytimes.com/2026/07/17/magazine/argentina-messi-fans-world-cup.html
+
+**A Mathematical Tribute to the Soccer Ball**\
+`As the World Cup final approaches, take a moment to appreciate the beautiful symmetries of humanity’s favorite truncated icosahedron.`\
+https://www.nytimes.com/2026/07/17/science/mathematical-tribute-soccer-ball.html
+
+**Five Free Movies to Stream Now**\
+`This month’s picks include epics from Werner Herzog and Akira Kurosawa, along with one of the most quintessential New York movies.`\
+https://www.nytimes.com/2026/07/17/movies/five-free-movies-to-stream-now.html
+
+**The Internet’s Steve Lacy, Syd and Matt Martians Discuss New Music**\
+`The band members Steve Lacy and Syd, both of whom have new solo albums out now, reunite with the producer Matt Martians to discuss achieving TikTok fame, writing a Beyoncé song and staying a family.`\
+https://www.nytimes.com/2026/07/17/arts/music/internet-syd-steve-lacy-interview.html
+
+**When a World Cup Team Needs a Trim, the Barbershop Comes to Them**\
+`Maram Hammadi, who grew up playing on dirt fields in Iraq before opening a barbershop outside Seattle, heard Egypt needed a barber. He cleared his books.`\
+https://www.nytimes.com/2026/07/17/sports/world-cup-egypt-seattle-barbershop.html
+
+**Cooler Inflation May Not Be Enough to Stave Off Fed Rate Increases**\
+`The Federal Reserve is expected to hold rates steady at its July meeting, but officials have not written off the possibility of a move soon after.`\
+https://www.nytimes.com/2026/07/17/business/cooler-inflation-federal-reserve-interest-rates.html
+
+**Rare Pair of Improbably Light ‘Super-Puff’ Planets Is Discovered**\
+`They’re less dense than cotton candy, and they will help astrophysicists better understand the most unusual ways giant planets can form.`\
+https://www.nytimes.com/2026/07/17/science/space/two-super-puff-planets-discovered.html
+
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/17/movies/new-movies-this-week-critics.html
+
+**Is Venezuela a Colony Now? A Sovereign State? Modern Empires Rule in Ambiguity.**\
+`Occupation is a hassle. Large countries have many new ways to control small ones.`\
+https://www.nytimes.com/2026/07/17/magazine/venezuela-empires-colony.html
+
+**In One of Houston’s Oldest Latino Barrios, Mourning After ICE Shooting Mixed With Fear and Anger**\
+`After a federal agent killed Lorenzo Salgado Araujo, the grief and anger in Magnolia Park has been less visible, but no less intense.`\
+https://www.nytimes.com/2026/07/17/us/magnolia-park-houston-mourning-ice-shooting.html
+
+**Can Democrats Finally Understand the Latino Voter in an Era of Mass Deportations?**\
+`For decades, Democrats have misunderstood Latino voters. Trump’s deportation campaign offers a chance for them to get it right.`\
+https://www.nytimes.com/2026/07/17/opinion/latino-voter-democrats-immigration-trump.html
+
+**Pick Your Favorite $1.9 Million Home in Costa Rica**\
+`An eight-bedroom compound with thatched roofs, a forest villa topped with solar panels, and a contemporary indoor-outdoor house.`\
+https://www.nytimes.com/2026/07/17/realestate/costa-rica-homes-for-sale.html
+
+**As Blazes Spread Near Paris, Extreme Heat Is Changing How France Fights Fires**\
+`Until recently, France’s forest fires were mostly in the south. This week, fires are raging much farther north. France is having to rethink its firefighting strategy.`\
+https://www.nytimes.com/2026/07/17/france-forest-fires-extreme-heat.html
+
+**Has the World Cup Turned Me Into … a Sports Guy?**\
+`The pleasures of watching the TV show of the summer as a bandwagon fan.`\
+https://www.nytimes.com/2026/07/17/arts/television/world-cup.html
+
+**Venezuela Earthquakes Force a Grim Homecoming for Migrants**\
+`Mass migration, which defines modern Venezuela, has heavily marked the earthquake, too, saving many who had left, but also making their grief harder.`\
+https://www.nytimes.com/2026/07/17/world/americas/venezuela-earthquakes-families-migration.html
+
+**Paramedics’ Push for a Living Wage**\
+`Emergency Medical Service workers in New York City make as little as $18 an hour. They are a division of the Fire Department, where firefighters can make twice as much.`\
+https://www.nytimes.com/2026/07/17/nyregion/paramedics-push-for-a-living-wage.html
+
+**Republicans in North Carolina Try to Reduce Early Voting on Sundays and on Campuses**\
+`Voting-rights activists said the changes are a blatant attempt by G.O.P. leaders to make it harder for Black voters and students, who tend to vote for Democrats, to cast ballots this fall.`\
+https://www.nytimes.com/2026/07/17/us/politics/republicans-in-north-carolina-try-to-reduce-early-voting-on-sundays-and-on-campuses.html
+
+**When I Sued Roger Ailes, #MeToo Hadn’t Taken Off. Now It’s the Law of the Land.**\
+`And we’re still fighting.`\
+https://www.nytimes.com/2026/07/17/opinion/metoo-law-ailes-canceled.html
+
 **‘Shifters’ Review: Fast-Forwarding Through a Predictable Romance**\
 `Des (Heather Agyepong) and Dre (Daniel Ezra), navigate a mutual magnetic pull in this British love story by Benedict Lombe at Cherry Lane Theater.`\
 https://www.nytimes.com/2026/07/17/theater/shifters-review.html
