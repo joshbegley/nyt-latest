@@ -1,3 +1,11 @@
+**Trump’s Dangerous Election Claims**\
+`Readers react to President Trump’s speech. Also: Canada’s wildfires and the U.S.; ultrarich men who kidmax.`\
+https://www.nytimes.com/2026/07/17/opinion/trump-speech-election-claims.html
+
+**En Cuba, un preso político fue liberado de prisión. Luego desapareció**\
+`Luis Manuel Otero Alcántara, artista cubano que espera permiso del gobierno del presidente Trump para ingresar a Estados Unidos, se encuentra retenido en un lugar desconocido en Cuba.`\
+https://www.nytimes.com/es/2026/07/17/espanol/america-latina/artista-cubano-desaparecido-preso-politico.html
+
 **What’s the Deal With Those Upside-Down Hats?**\
 `Plus, an ESPYs recap and OpenAI makes some mundane clothes.`\
 https://www.nytimes.com/2026/07/17/style/upside-down-hats-espys.html
@@ -151,7 +159,7 @@ https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-code
 https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html
 
 **Ontario Wildfires Burn On, and New Ones Spring Up**\
-`More than 180 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
+`Nearly 200 fires continued to devastate swaths of the province, prompting evacuations in at least 15 communities.`\
 https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
 
 **The Burning, Bleeding, Breathing Art of Ana Mendieta**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html
 **Live Updates: Wildfire Smoke Darkens Skies Again on Friday**\
 `The dense smoke from Canadian wildfires has pushed air quality to dangerous levels in the past few days.`\
 https://www.nytimes.com/live/2026/07/17/weather/wildfire-smoke-air-quality
-
-**The President, His Plane and the Press**\
-`The Justice Department is seeking to compel testimony from New York Times reporters who wrote about the new Air Force One.`\
-https://www.nytimes.com/2026/07/17/podcasts/the-daily/air-force-one-trump.html
-
-**What a Times Reporter Saw in Iran, and Takeaways from Trump’s Speech on Election Security**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/07/17/podcasts/the-headlines/iran-trump-speech-election-security.html
 

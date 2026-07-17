@@ -1,3 +1,7 @@
+**What’s the Deal With Those Upside-Down Hats?**\
+`Plus, an ESPYs recap and OpenAI makes some mundane clothes.`\
+https://www.nytimes.com/2026/07/17/style/upside-down-hats-espys.html
+
 **El discurso de Trump que denunció vulnerabilidades electorales: puntos clave**\
 `Los documentos publicados por el gobierno de Trump para respaldar las afirmaciones del presidente no sustentaron sus declaraciones más agresivas.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones-puntos-clave.html
