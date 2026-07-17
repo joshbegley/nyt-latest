@@ -1,3 +1,23 @@
+**It’s Smoky. You Don’t Have an Air Purifier. Here’s What to Do.**\
+`There are D.I.Y. options to help keep out polluted air, and clean the air already in your home.`\
+https://www.nytimes.com/2026/07/17/well/smoke-air-quality-tips.html
+
+**El brote de ciclosporiasis es vinculado a lechuga de Taco Bell**\
+`Autoridades federales de EE. UU. colaboraron con investigadores de Míchigan y rastrearon el brote a la lechuga iceberg, que también podría haber sido distribuida a otros establecimientos.`\
+https://www.nytimes.com/es/2026/07/17/espanol/ciclosporiasis-lechuga.html
+
+**Mapa: un terremoto de magnitud 7,3 sacude el océano Pacífico Norte**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/07/17/terremoto-mexico-guatemala.html
+
+**Map: 7.3-Magnitude Earthquake Hits Off Mexico's Coast**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/17/world/earthquake-mexico-guatemala.html
+
+**‘Blue MAGA’ Has Entered the Chat**\
+`It’s a term that can mean whatever the people using it want it to mean. But it’s not a compliment.`\
+https://www.nytimes.com/2026/07/17/style/blue-maga-meaning-democrats.html
+
 **How to Keep the Air Inside Safe From Wildfire Smoke**\
 `Wildfire smoke can contaminate the air inside a home, but there are measures you can take to make your indoor environment safer.`\
 https://www.nytimes.com/2026/07/17/realestate/indoor-air-quality-wildfire-smoke-safety.html
