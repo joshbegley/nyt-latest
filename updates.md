@@ -1,3 +1,11 @@
+**The Latest Texas Floods Tested Warning Systems. This Time, They Passed.**\
+`A lack of sirens and flood forecasting systems made the state’s Hill Country vulnerable to deadly floods last summer. That has changed.`\
+https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html
+
+**Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
+`At a time of political upheaval and economic stagnation, Andy Burnham will on Monday become the seventh prime minister in a decade.`\
+https://www.nytimes.com/2026/07/17/world/europe/burnham-labour-leader.html
+
 **Rudolph Marcus, Who Illuminated Electrochemical Processes, Dies at 102**\
 `He received a 1992 Nobel Prize for developing a theory that explained fundamental processes behind photosynthesis, respiration, oxidation and even how fireflies produce light.`\
 https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html

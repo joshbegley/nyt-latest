@@ -1,3 +1,7 @@
+**La obsesión de Trump con la elección de 2020 tiene un costo para la democracia**\
+`En su segundo mandato, el presidente de EE. UU. insiste en litigar las elecciones de 2020 y encontrar formas de sembrar dudas sobre la votación de 2026.`\
+https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones.html
+
 **The Latest Texas Floods Tested Warning Systems. This Time, They Passed.**\
 `A lack of sirens and flood forecasting systems made the state’s Hill Country vulnerable to deadly floods last summer. That has changed.`\
 https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/world/middleeast/iran-us-war-peace-talks-stra
 **A New Blow to Tracking Gun Sales**\
 `The House has passed a bill that would bar the use of merchant codes specifically for firearm retailers, an effort to pre-empt state adoption of the tool.`\
 https://www.nytimes.com/2026/07/17/business/dealbook/firearm-sales-merchant-codes.html
-
-**Poolhouse, a Tech-Infused Pool Hall Start-up, Raises $55 Million**\
-`Poolhouse, which was created by the founders of Topgolf and uses technology to track players’ scores, aims to sell its platform to others.`\
-https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html
 
