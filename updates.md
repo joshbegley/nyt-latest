@@ -1,3 +1,23 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/opinion/editorials/100000011038728/anewinferno-cine.html
+
+**Trump Threatens Canada With Tariffs for Wildfire Smoke Over U.S.**\
+`The president said on Friday in a social media post that Canada was failing to manage its wildfire response as smoke has blanketed U.S. cities including New York and Chicago.`\
+https://www.nytimes.com/2026/07/17/weather/wildfire-smoke-canada-us-politics.html
+
+**Orange-Lipped Monkey Photo Helps Scientists Identify New Species**\
+`The medium-sized monkey with an orange-colored patch around its nose and mouth, known locally as Likweli, joins a very short list of newly identified African monkey species.`\
+https://www.nytimes.com/video/science/earth/100000011037453/orange-lipped-monkey-new-species.html
+
+**When Will the Smoke End? Our Meteorologist Explains Why It’s Complicated.**\
+`The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
+https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
+
+**En Cuba, un preso político fue liberado de prisión. Luego desapareció**\
+`Luis Manuel Otero Alcántara, artista cubano que esperaba permiso del gobierno del presidente Trump para ingresar a Estados Unidos, estuvo retenido en un lugar desconocido en Cuba.`\
+https://www.nytimes.com/es/2026/07/17/espanol/america-latina/artista-cubano-desaparecido-preso-politico.html
+
 **Cyclospora Investigation Turns to Farms in Mexico**\
 `The F.D.A. is planning to inspect farms and a lettuce shredding facility to determine how lettuce supplied by the produce company Taylor Farms to Taco Bell became contaminated and where it was shipped.`\
 https://www.nytimes.com/2026/07/17/health/cyclospora-taylor-farms-mexico-taco-bell-lettuce.html

@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/opinion/editorials/100000011038728/anewinferno-cine.html
+
+**Trump Threatens Canada With Tariffs for Wildfire Smoke Over U.S.**\
+`The president said on Friday in a social media post that Canada was failing to manage its wildfire response as smoke has blanketed U.S. cities including New York and Chicago.`\
+https://www.nytimes.com/2026/07/17/weather/wildfire-smoke-canada-us-politics.html
+
+**Orange-Lipped Monkey Photo Helps Scientists Identify New Species**\
+`The medium-sized monkey with an orange-colored patch around its nose and mouth, known locally as Likweli, joins a very short list of newly identified African monkey species.`\
+https://www.nytimes.com/video/science/earth/100000011037453/orange-lipped-monkey-new-species.html
+
 **Cyclospora Investigation Turns to Farms in Mexico**\
 `The F.D.A. is planning to inspect farms and a lettuce shredding facility to determine how lettuce supplied by the produce company Taylor Farms to Taco Bell became contaminated and where it was shipped.`\
 https://www.nytimes.com/2026/07/17/health/cyclospora-taylor-farms-mexico-taco-bell-lettuce.html
@@ -50,7 +62,7 @@ https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habit
 `China’s Moonshot AI unveiled a freely available artificial intelligence model that seemed to narrow the gap with cutting-edge offerings from U.S. tech companies.`\
 https://www.nytimes.com/2026/07/17/business/china-ai-moonshot-kimi.html
 
-**When Will the Smoke End? It’s Complicated.**\
+**When Will the Smoke End? Our Meteorologist Explains Why It’s Complicated.**\
 `The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
 https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
 
@@ -115,7 +127,7 @@ https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mex
 https://www.nytimes.com/2026/07/17/opinion/trump-speech-election-claims.html
 
 **En Cuba, un preso político fue liberado de prisión. Luego desapareció**\
-`Luis Manuel Otero Alcántara, artista cubano que espera permiso del gobierno del presidente Trump para ingresar a Estados Unidos, se encuentra retenido en un lugar desconocido en Cuba.`\
+`Luis Manuel Otero Alcántara, artista cubano que esperaba permiso del gobierno del presidente Trump para ingresar a Estados Unidos, estuvo retenido en un lugar desconocido en Cuba.`\
 https://www.nytimes.com/es/2026/07/17/espanol/america-latina/artista-cubano-desaparecido-preso-politico.html
 
 **What’s the Deal With Those Upside-Down Hats?**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/17/well/smoke-air-quality-tips.html
 **El brote de ciclosporiasis es vinculado a lechuga de Taco Bell**\
 `Autoridades federales de EE. UU. colaboraron con investigadores de Míchigan y rastrearon el brote a la lechuga iceberg, que también podría haber sido distribuida a otros establecimientos.`\
 https://www.nytimes.com/es/2026/07/17/espanol/ciclosporiasis-lechuga.html
-
-**Terremoto de magnitud 7,3 impacta la costa sur de México**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/07/17/terremoto-mexico-guatemala.html
-
-**Map: 7.3-Magnitude Earthquake Hits Off Mexico's Coast**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/17/world/earthquake-mexico-guatemala.html
-
-**‘Blue MAGA’ Has Entered the Chat**\
-`It’s a term that can mean whatever the people using it want it to mean. But it’s not a compliment.`\
-https://www.nytimes.com/2026/07/17/style/blue-maga-meaning-democrats.html
 
