@@ -1,3 +1,7 @@
+**Poolhouse, a Tech-Infused Pool Hall Start-up, Raises $55 Million**\
+`Poolhouse, which was created by the founders of Topgolf and uses technology to track players’ scores, aims to sell its platform to others.`\
+https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html
+
 **Live Updates: Wildfire Smoke Darkens Skies Again on Friday**\
 `The dense smoke from Canadian wildfires has pushed air quality to dangerous levels in the past few days.`\
 https://www.nytimes.com/live/2026/07/17/weather/wildfire-smoke-air-quality
