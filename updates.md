@@ -1,3 +1,11 @@
+**How Senegal Spread Its Hospitality in Harlem**\
+`As Senegal advanced in the World Cup, its fans found the flavors of home on 116th Street.`\
+https://www.nytimes.com/2026/07/17/dining/world-cup-senegal-fans-harlem.html
+
+**Israeli Strike in Gaza Kills Seven People, Health Officials Say**\
+`The Israeli military said the attack targeted members of the second-biggest militant group in Gaza. It also said it was “aware of the claims that several uninvolved individuals” had been harmed.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/israeli-strike-gaza-kills-eight.html
+
 **La atmósfera de un planeta cercano es similar a la Tierra**\
 `Es el primer planeta conocido potencialmente habitable con una atmósfera, y refuerza la idea de que existen mundos similares al nuestro con los elementos necesarios para sustentar la vida.`\
 https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habitable-atmosfera-tierra.html

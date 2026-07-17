@@ -1,3 +1,11 @@
+**How Senegal Spread Its Hospitality in Harlem**\
+`As Senegal advanced in the World Cup, its fans found the flavors of home on 116th Street.`\
+https://www.nytimes.com/2026/07/17/dining/world-cup-senegal-fans-harlem.html
+
+**Israeli Strike in Gaza Kills Seven People, Health Officials Say**\
+`The Israeli military said the attack targeted members of the second-biggest militant group in Gaza. It also said it was “aware of the claims that several uninvolved individuals” had been harmed.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/israeli-strike-gaza-kills-eight.html
+
 **La atmósfera de un planeta cercano es similar a la Tierra**\
 `Es el primer planeta conocido potencialmente habitable con una atmósfera, y refuerza la idea de que existen mundos similares al nuestro con los elementos necesarios para sustentar la vida.`\
 https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habitable-atmosfera-tierra.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-p
 **America’s Enterprising Spirit Is Booming After Decades-Long Slump**\
 `Hundreds of thousands of people are creating companies each year, ending a decades-long drought.`\
 https://www.nytimes.com/2026/07/17/business/economy/american-small-business-boom.html
-
-**Judges Ask Congress for Power to Fix Crumbling Courthouses**\
-`Undrinkable water. Leaks. Mold. Federal courthouses need billions of dollars in repairs, and judges say the General Services Administration is a bad landlord.`\
-https://www.nytimes.com/2026/07/17/us/politics/federal-courthouses-repairs.html
-
-**Bridges Destroyed in Iran After Latest Exchange With U.S. Military**\
-`Video on social media shows bridges reduced to rubble in southern Iran after the sixth consecutive night of strikes between U.S. and Iranian forces.`\
-https://www.nytimes.com/video/world/middleeast/100000011037160/iran-war-us-strikes-bridges-hormuz.html
 
