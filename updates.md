@@ -1,5 +1,9 @@
 **‘Heartstopper Forever’ Review: Facing a Grown-Up Reality**\
 `The glossy Netflix series graduates into adulthood with this movie starring Kit Connor and Joe Locke as a couple with thoughts of college ahead.`\
+https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review.html
+
+**‘Heartstopper Forever’ Review: Facing a Grown-Up Reality**\
+`The glossy Netflix series graduates into adulthood with this movie starring Kit Connor and Joe Locke as a couple with thoughts of college ahead.`\
 https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review-facing-a-grown-up-reality.html
 
 **The History of the Carriage Horses in Central Park**\

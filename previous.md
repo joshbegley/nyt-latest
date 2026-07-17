@@ -1,6 +1,6 @@
 **‘Heartstopper Forever’ Review: Facing a Grown-Up Reality**\
 `The glossy Netflix series graduates into adulthood with this movie starring Kit Connor and Joe Locke as a couple with thoughts of college ahead.`\
-https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review-facing-a-grown-up-reality.html
+https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-review.html
 
 **The History of the Carriage Horses in Central Park**\
 `After 165 years, the tourist ritual — which now costs $77.22 for the first 20 minutes — may be coming to an end. Here’s a tour through the archives.`\
