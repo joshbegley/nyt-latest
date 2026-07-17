@@ -1,3 +1,15 @@
+**U.K. Live Updates: Andy Burnham to Replace Keir Starmer as Labour Party Leader**\
+`Mr. Burnham is expected to promise in a speech more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
+https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
+
+**Xi Jinping of China Pitches ‘Openness’ in Push to Shape the Path of A.I.**\
+`Xi Jinping said that the development of artificial intelligence systems should be a “symphony of global collaboration.”`\
+https://www.nytimes.com/2026/07/17/business/xi-jinping-china-ai.html
+
+**The 20-Somethings Running Ukraine’s War Machine**\
+`A new generation has been cutting red tape to speed weapons to the front. But the old guard pushed back, and now Ukraine’s young defense minister is out.`\
+https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation.html
+
 **When American Smoke Choked Canada**\
 `Some Republican lawmakers have blamed Canada for poor air quality in the United States and said poor forest management is to blame. But Canadians have also inhaled smoke from American wildfires.`\
 https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html

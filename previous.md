@@ -1,3 +1,11 @@
+**U.K. Live Updates: Andy Burnham to Replace Keir Starmer as Labour Party Leader**\
+`Mr. Burnham is expected to promise in a speech more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
+https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
+
+**Xi Jinping of China Pitches ‘Openness’ in Push to Shape the Path of A.I.**\
+`Xi Jinping said that the development of artificial intelligence systems should be a “symphony of global collaboration.”`\
+https://www.nytimes.com/2026/07/17/business/xi-jinping-china-ai.html
+
 **When American Smoke Choked Canada**\
 `Some Republican lawmakers have blamed Canada for poor air quality in the United States and said poor forest management is to blame. But Canadians have also inhaled smoke from American wildfires.`\
 https://www.nytimes.com/2026/07/17/weather/american-smoke-canada.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/07/17/world/asia/china-trump-meddling-election.html
 https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
 
 **The 20-Somethings Running Ukraine’s War Machine**\
-`A new generation that prizes tech, innovation and speed is displacing the military’s old guard, cutting red tape to rush weapons to the front.`\
+`A new generation has been cutting red tape to speed weapons to the front. But the old guard pushed back, and now Ukraine’s young defense minister is out.`\
 https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation.html
 
 **Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/arts/design/my-5-favorite-places-for-art-in-v
 **Dubai Migrant Worker Layoffs Reveal Costs of Middle East War**\
 `The Persian Gulf city attracted migrant workers with the promise of opportunity. Many now say the war has brought job losses and salary cuts.`\
 https://www.nytimes.com/2026/07/17/world/middleeast/dubai-iran-war-migrant-workers-layoffs.html
-
-**Want More of the ‘Odyssey’? Read These Books Next**\
-`Informative histories, modern retellings and genre-bending homages will take you back to the long road to Ithaca.`\
-https://www.nytimes.com/2026/07/17/books/the-odyssey-books.html
-
-**To Win Their Races, Black Politicians Confront a New Landscape**\
-`With the Voting Rights Act weakened, Black representation will depend less on Black voters and more on broad, multiracial appeal or on ideological outsider campaigns.`\
-https://www.nytimes.com/2026/07/17/us/politics/black-representation-voting-rights-act.html
 
