@@ -1,3 +1,7 @@
+**What to Know About Canada Wildfire Smoke and Air Quality in U.S. Cities**\
+`A thick plume of smoke swept across the Midwest and New England, and those conditions could linger on Friday.`\
+https://www.nytimes.com/2026/07/16/weather/what-to-know-canada-wildfires-smoke.html
+
 **Andy Burnham Is Poised to Become Britain’s Leader. His Ascent Was Years in the Making.**\
 `Andy Burnham is set to become the leader of the Labour Party and Britain’s 59th prime minister. His path to 10 Downing Street included a pivotal nearly decade-long stint as mayor of Greater Manchester.`\
 https://www.nytimes.com/video/world/europe/100000011029640/andy-burnham-labour-leader-prime-minister.html
