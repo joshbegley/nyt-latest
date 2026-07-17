@@ -1,3 +1,19 @@
+**Rudolph Marcus, Who Illuminated Electrochemical Processes, Dies at 102**\
+`He received a 1992 Nobel Prize for developing a theory that explained fundamental processes behind photosynthesis, respiration, oxidation and even how fireflies produce light.`\
+https://www.nytimes.com/2026/07/17/science/rudolph-marcus-dead.html
+
+**X and Music Publishers Retreat From Lawsuits**\
+`Elon Musk’s social media platform and the music companies agreed to dismiss dueling claims, from 2023 and 2026, but have not said why.`\
+https://www.nytimes.com/2026/07/17/arts/music/x-music-lawsuits.html
+
+**7.3-Magnitude Earthquake Off Coast of Mexico and Guatemala Poses Tsunami Threat**\
+`A powerful earthquake near the border of Mexico and Guatemala raised fears of a tsunami and shook buildings across three countries.`\
+https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mexico-guatemala.html
+
+**Taking Out the Trash: These Old Ladies Are Cleaning Up Cape Cod**\
+`The Old Ladies Against Underwater Garbage estimate they’ve removed 6,000 pounds of refuse from ponds on Cape Cod. “There’s no better feeling,” one said.`\
+https://www.nytimes.com/2026/07/17/climate/old-ladies-diving-for-trash.html
+
 **Burnham Becomes Labour Leader and Britain’s Incoming Prime Minister**\
 `At a time of political upheaval and economic stagnation, Andy Burnham will on Monday become the seventh prime minister in a decade.`\
 https://www.nytimes.com/2026/07/17/world/europe/burnham-becomes-labour-leader-pledging-to-deliver-hope-to-britain.html
