@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/07/17/style/upside-down-hats-espys.html
 `Los documentos publicados por el gobierno de Trump para respaldar las afirmaciones del presidente no sustentaron sus declaraciones más agresivas.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones-puntos-clave.html
 
-**Deadly Texas Floods Ebb, but Danger Remains: ‘You Could Hear the Water’**\
+**As Floods Begin to Recede, Texans Start to Assess the Destruction**\
 `At least two people died as waters rose rapidly across the Texas Hill Country, the same area of the state that saw catastrophic flooding last year.`\
 https://www.nytimes.com/2026/07/17/us/flooding-texas.html
 
