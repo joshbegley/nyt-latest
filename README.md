@@ -1,3 +1,7 @@
+**Billionaires Prepare $87 Million Ad Campaign to Block California Wealth Tax**\
+`A coalition backed by the Google co-founder Sergey Brin and wealthy tech investors is trying to neutralize a proposed one-time tax on the state’s richest residents.`\
+https://www.nytimes.com/2026/07/17/us/california-billionaire-tax-opponents-ad-campaign.html
+
 **Trump Endorses Graham for Senate, Scrambling South Carolina Primary**\
 `Senator Darline Graham had been seen as a caretaker for her brother’s seat after his sudden death. Now she has the president’s nod in what was shaping up to be a crowded fight to succeed Lindsey Graham.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-endorses-darline-graham-senate.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/business/boeing-turnaround-737-max.html
 **Fire in Midtown Manhattan Adds to Smoke Above New York City**\
 `The three-alarm fire, which broke out around 7 a.m., led to the evacuation of 200 people from a Midtown high-rise on Friday morning. Five minor injuries were reported.`\
 https://www.nytimes.com/2026/07/17/weather/fire-midtown-manhattan-nyc.html
-
-**Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
-`She won for playing a stoic mother in “My Left Foot” and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2.”`\
-https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
 
