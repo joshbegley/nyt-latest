@@ -1,3 +1,7 @@
+**Philippines Condemns AI Video Posted by Chinese State Media Depicting It as a Monkey**\
+`It lodged a diplomatic complaint with Beijing over an A.I.-generated video centered on territorial disputes in the South China Sea.`\
+https://www.nytimes.com/2026/07/17/world/asia/philippines-ai-video-china-racist.html
+
 **Trump Claims Election Vulnerabilities in Prime-Time Speech**\
 `President Trump made sweeping claims about the safety of American voting systems in a speech on Thursday. Documents released by the Trump administration did not back up his most aggressive statements.`\
 https://www.nytimes.com/video/us/politics/100000011036975/trump-election-speech.html
