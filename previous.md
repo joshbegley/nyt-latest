@@ -1,3 +1,7 @@
+**Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
+`Investigating the relationship between Leslie Wexner, Jeffrey Epstein and Harvard University.`\
+https://www.nytimes.com/2026/07/17/podcasts/why-is-this-billionaires-name-all-over-harvards-campus.html
+
 **Trump Promised Proof of Election Tampering. His Document Release Fell Far Short.**\
 `In the end, the documentary evidence that President Trump claimed would prove his case appeared bound to disappoint those who expected bombshell revelations.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-election-tampering-document-release.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/pete-hegseth-testos
 **Ucrania estaba en una buena racha. Entonces surgió una ruptura militar**\
 `Desde un estacionamiento subterráneo, el recién destituido ministro de Defensa de Ucrania emitió la crítica pública más dramática al mando militar que se haya hecho durante la guerra.`\
 https://www.nytimes.com/es/2026/07/17/espanol/mundo/ucrania-defensa-drones.html
-
-**Late Night Is Amused by Alleged White House Teleprompter Grift**\
-`Hosts responded on Thursday to a teleprompter operator reportedly winning around $100,000 betting on what President Trump would say in his speeches.`\
-https://www.nytimes.com/2026/07/17/arts/television/late-night-trump-teleprompter-operator-bets.html
 

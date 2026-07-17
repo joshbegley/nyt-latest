@@ -1,3 +1,7 @@
+**Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
+`Investigating the relationship between Leslie Wexner, Jeffrey Epstein and Harvard University.`\
+https://www.nytimes.com/2026/07/17/podcasts/why-is-this-billionaires-name-all-over-harvards-campus.html
+
 **Trump Promised Proof of Election Tampering. His Document Release Fell Far Short.**\
 `In the end, the documentary evidence that President Trump claimed would prove his case appeared bound to disappoint those who expected bombshell revelations.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-election-tampering-document-release.html
