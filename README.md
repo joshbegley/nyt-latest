@@ -1,3 +1,7 @@
+**E.U. Proposes Changes to Emissions Trading System**\
+`The European Union is facing a green backlash as emissions cuts become harder and require bigger overhauls to industry and livelihoods`\
+https://www.nytimes.com/2026/07/17/climate/european-union-emissions-rollback.html
+
 **Trump Faces the Limits of U.S. Firepower and the Lessons of Past Wars**\
 `Like his predecessors, President Trump has struggled to turn battlefield successes into long-term victories.`\
 https://www.nytimes.com/2026/07/17/us/politics/trump-lessons-of-past-wars.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/world/europe/youth-ukraine-defense-innovation
 **Why Is This Billionaire’s Name All Over Harvard’s Campus?**\
 `Investigating the relationship between Leslie Wexner, Jeffrey Epstein and Harvard University.`\
 https://www.nytimes.com/2026/07/17/podcasts/why-is-this-billionaires-name-all-over-harvards-campus.html
-
-**Trump Promised Proof of Election Tampering. His Document Release Fell Far Short.**\
-`In the end, the documentary evidence that President Trump claimed would prove his case appeared bound to disappoint those who expected bombshell revelations.`\
-https://www.nytimes.com/2026/07/17/us/politics/trump-election-tampering-document-release.html
 

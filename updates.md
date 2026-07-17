@@ -1,3 +1,15 @@
+**Trump Faces the Limits of U.S. Firepower and the Lessons of Past Wars**\
+`Like his predecessors, President Trump has struggled to turn battlefield successes into long-term victories.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-lessons-of-past-wars.html
+
+**Remains of California Millionaire Who Vanished 45 Years Ago Are Identified**\
+`A con man was convicted in the 1983 murder of Thelma Gaston, 80, but her remains were only just identified thanks to advanced DNA testing.`\
+https://www.nytimes.com/2026/07/17/us/california-millionaire-remains-found-thelma-gaston.html
+
+**Iran War Live Updates: U.S. Hits Bridges and a Port in Country’s South, Iranian Media Says**\
+`The U.S. military’s Central Command said the latest round of attacks had “hit dozens of Iranian military targets” but made no mention of civilian infrastructure.`\
+https://www.nytimes.com/live/2026/07/17/world/iran-war-trump-hormuz
+
 **Today, In Short**\
 `Monkeys. A.I. slop. And iceberg lettuce.`\
 https://www.nytimes.com/2026/07/17/briefing/today-in-short.html
