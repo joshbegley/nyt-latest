@@ -1,3 +1,7 @@
+**Takeaways From Trump’s Speech Claiming Election Vulnerabilities and China Interference**\
+`Documents released by the Trump administration to support the president’s claims did not back up his most aggressive statements.`\
+https://www.nytimes.com/2026/07/17/us/trump-speech-elections-takeaways.html
+
 **La FDA aprueba la enlicitida para tratar el colesterol: esto es lo que debes saber**\
 `Se espera que el fármaco, que fue desarrollado por Merck y se venderá bajo la marca Lipfendra, salga al mercado en las próximas semanas.`\
 https://www.nytimes.com/es/2026/07/17/espanol/enlicitida-pildora-colesterol.html

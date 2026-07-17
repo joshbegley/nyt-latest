@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/07/17/espanol/enlicitida-pildora-colesterol.html
 
 **Takeaways From Trump’s Speech Claiming Election Vulnerabilities and China Interference**\
-`Documents released by the Trump administration to support the president’s claims did not back up his most aggressive statements`\
+`Documents released by the Trump administration to support the president’s claims did not back up his most aggressive statements.`\
 https://www.nytimes.com/2026/07/17/us/trump-speech-elections-takeaways.html
 
 **Una nueva especie de mono africano acaba de ser descubierta**\
