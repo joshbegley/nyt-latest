@@ -1,3 +1,63 @@
+**‘Shifters’ Review: Fast-Forwarding Through a Predictable Romance**\
+`Des (Heather Agyepong) and Dre (Daniel Ezra), navigate a mutual magnetic pull in this British love story by Benedict Lombe at Cherry Lane Theater.`\
+https://www.nytimes.com/2026/07/17/theater/shifters-review.html
+
+**Gen Z Is Going to the Movies. This Is Great News for Everyone.**\
+`Hollywood thought it had lost young audiences to platforms like YouTube and Twitch. But Gen Z-ers are finding something at the movies they can’t find anywhere else.`\
+https://www.nytimes.com/2026/07/17/opinion/gen-z-movie-theaters-hollywood.html
+
+**The Rediscovery of Country Original Gary Stewart**\
+`Gary Stewart spent a few years on top, but was largely forgotten after his tragic death in 2003. Now a new generation is rediscovering the onetime “king of honky-tonk.”`\
+https://www.nytimes.com/2026/07/17/arts/music/gary-stewart-country-music.html
+
+**Why Trump Can’t Leave the Smithsonian Alone**\
+`The Trump White House and its history police want us all to live in their chosen bubble, immune from instability or perceived disorder.`\
+https://www.nytimes.com/2026/07/17/opinion/trump-smithsonian-cold-war.html
+
+**7th Time’s a Charm for a First-Time Buyer Plagued by Bidding Wars**\
+`Even as the market shifts to buyers, first-timers need to be resilient and flexible.`\
+https://www.nytimes.com/2026/07/17/realestate/bidding-war-first-time-home-buyer.html
+
+**‘Heartstopper Forever’: What to Know Before Seeing the Movie**\
+`The Netflix series and its feature-length finale are based on the graphic novels by Alice Oseman. Here’s a reminder of the events of the characters and where their stories left of.`\
+https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-movie-what-to-know.html
+
+**The Children’s Books of Seymour Chwast**\
+`A new collection of the famous graphic designer Seymour Chwast’s work for children “unearths a cache of lost treasures.”`\
+https://www.nytimes.com/2026/07/17/books/review/seymour-chwast-childrens-picture-books-steven-heller.html
+
+**Christopher Nolan on ‘The Odyssey’ and IMAX Technical Challenges**\
+`He and the cinematographer Hoyte van Hoytema combined new inventions (like fire-mimicking lights they developed) with century-old techniques.`\
+https://www.nytimes.com/2026/07/17/movies/the-odyssey-christopher-nolan.html
+
+**Word of the Day: transmute**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/17/learning/word-of-the-day-transmute.html
+
+**My 5 Favorite Places for Art in Venice**\
+`Our critic Jason Farago shares what you shouldn’t miss in a city full of secrets and surprises.`\
+https://www.nytimes.com/2026/07/17/arts/design/my-5-favorite-places-for-art-in-venice.html
+
+**Dubai Migrant Worker Layoffs Reveal Costs of Middle East War**\
+`The Persian Gulf city attracted migrant workers with the promise of opportunity. Many now say the war has brought job losses and salary cuts.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/dubai-iran-war-migrant-workers-layoffs.html
+
+**Want More of the ‘Odyssey’? Read These Books Next**\
+`Informative histories, modern retellings and genre-bending homages will take you back to the long road to Ithaca.`\
+https://www.nytimes.com/2026/07/17/books/the-odyssey-books.html
+
+**To Win Their Races, Black Politicians Confront a New Landscape**\
+`With the Voting Rights Act weakened, Black representation will depend less on Black voters and more on broad, multiracial appeal or on ideological outsider campaigns.`\
+https://www.nytimes.com/2026/07/17/us/politics/black-representation-voting-rights-act.html
+
+**In an Ever-Changing East Village, Cafe Mogador Is a Constant**\
+`With its tasty, affordable fare and forever-young clientele, the decades-old New York restaurant is still one of the liveliest spots in the neighborhood.`\
+https://www.nytimes.com/2026/07/17/t-magazine/cafe-mogador-moroccan-restaurant-east-village-nyc.html
+
+**How Companies Have Abandoned Their Climate Goals and Let Themselves Off the Hook**\
+`Big business made big promises about saving the planet. Following through hasn’t been easy.`\
+https://www.nytimes.com/2026/07/17/climate/company-climate-change-commitments-renege.html
+
 **Philippines Condemns AI Video Posted by Chinese State Media Depicting It as a Monkey**\
 `It lodged a diplomatic complaint with Beijing over an A.I.-generated video centered on territorial disputes in the South China Sea.`\
 https://www.nytimes.com/2026/07/17/world/asia/philippines-ai-video-china-racist.html
