@@ -1,3 +1,15 @@
+**Taylor Farms to Remove Products After Lettuce Is Linked to Cyclospora Cases**\
+`The Salinas, Calif., company grows produce in more than 12 states, and in Mexico and Canada. Some Taylor Farms lettuce suspected of causing sickness ended up at Taco Bell.`\
+https://www.nytimes.com/2026/07/17/business/cyclospora-taylor-farms-lettuce.html
+
+**How Athletes at the World Cup and Beyond Celebrate Victories: Dances, Doughnuts and Finger Wags**\
+`The World Cup has brought renewed attention to the art of celebration. Here’s a look at all kinds of athletes whose rituals of triumph became part of their legacies.`\
+https://www.nytimes.com/2026/07/17/sports/athletes-victory-celebrations-world-cup.html
+
+**Trump’s Homeland Security Chief Threatens Election Officials With Prison Time**\
+`Markwayne Mullin reiterated the president’s false claims about voting security while escalating the administration’s legally questionable attempts to control state elections.`\
+https://www.nytimes.com/2026/07/17/us/politics/markwayne-mullin-election-officials-threats-trump.html
+
 **Trump Administration’s Cuts Targeted Wildfire Research**\
 `Labs at the Environmental Protection Agency and the Forest Service have analyzed the effects of wildfires. The administration wants to shutter them.`\
 https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html
