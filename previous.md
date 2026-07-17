@@ -1,3 +1,7 @@
+**Hundreds of Rohingya Feared Drowned at Sea**\
+`Members of the persecuted minority group from Myanmar set off in search of a better life weeks ago, but news of their boats sinking only emerged recently. More than 500 are feared dead.`\
+https://www.nytimes.com/2026/07/17/world/asia/rohingya-myanmar-boats-sink-missing.html
+
 **‘The Headlines’ News Quiz: Jul. 17, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/07/17/podcasts/the-headlines/the-headlines-news-quiz-jul-17-2026.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/07/17/briefing/christopher-nolan-odyssey.html
 `“I don’t know if the public understands this, but these companies hate each other.”`\
 https://www.nytimes.com/2026/07/17/podcasts/hardfork-ai-trade-secrets.html
 
-**U.K. Live Updates: Andy Burnham to Replace Keir Starmer as Labour Party Leader**\
+**Live Updates: Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
 `Mr. Burnham is expected to promise in a speech more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
 https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-movie-what-to-kno
 **The Children’s Books of Seymour Chwast**\
 `A new collection of the famous graphic designer Seymour Chwast’s work for children “unearths a cache of lost treasures.”`\
 https://www.nytimes.com/2026/07/17/books/review/seymour-chwast-childrens-picture-books-steven-heller.html
-
-**Christopher Nolan on ‘The Odyssey’ and IMAX Technical Challenges**\
-`He and the cinematographer Hoyte van Hoytema combined new inventions (like fire-mimicking lights they developed) with century-old techniques.`\
-https://www.nytimes.com/2026/07/17/movies/the-odyssey-christopher-nolan.html
 

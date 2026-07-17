@@ -1,3 +1,11 @@
+**Hundreds of Rohingya Feared Drowned at Sea**\
+`Members of the persecuted minority group from Myanmar set off in search of a better life weeks ago, but news of their boats sinking only emerged recently. More than 500 are feared dead.`\
+https://www.nytimes.com/2026/07/17/world/asia/rohingya-myanmar-boats-sink-missing.html
+
+**Live Updates: Andy Burnham Becomes Labour Leader and Is Set to Be Britain’s Prime Minister**\
+`Mr. Burnham is expected to promise in a speech more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
+https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
+
 **‘The Headlines’ News Quiz: Jul. 17, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/07/17/podcasts/the-headlines/the-headlines-news-quiz-jul-17-2026.html

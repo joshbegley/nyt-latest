@@ -1,3 +1,7 @@
+**The Burning, Bleeding, Breathing Art of Ana Mendieta**\
+`A Tate Modern survey of the artist’s lifetime of work sidesteps chronology to focus on her engagement with nature. But does that give us the whole picture?`\
+https://www.nytimes.com/2026/07/17/arts/design/ana-mendieta-tate-modern.html
+
 **Hundreds of Rohingya Feared Drowned at Sea**\
 `Members of the persecuted minority group from Myanmar set off in search of a better life weeks ago, but news of their boats sinking only emerged recently. More than 500 are feared dead.`\
 https://www.nytimes.com/2026/07/17/world/asia/rohingya-myanmar-boats-sink-missing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/realestate/bidding-war-first-time-home-buyer.
 **‘Heartstopper Forever’: What to Know Before Seeing the Movie**\
 `The Netflix series and its feature-length finale are based on the graphic novels by Alice Oseman. Here’s a reminder of the events of the characters and where their stories left of.`\
 https://www.nytimes.com/2026/07/17/movies/heartstopper-forever-movie-what-to-know.html
-
-**The Children’s Books of Seymour Chwast**\
-`A new collection of the famous graphic designer Seymour Chwast’s work for children “unearths a cache of lost treasures.”`\
-https://www.nytimes.com/2026/07/17/books/review/seymour-chwast-childrens-picture-books-steven-heller.html
 
