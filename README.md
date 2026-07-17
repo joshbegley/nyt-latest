@@ -1,3 +1,7 @@
+**Philippines Condemns AI Video Posted by Chinese State Media Depicting It as a Monkey**\
+`It lodged a diplomatic complaint with Beijing over an A.I.-generated video centered on territorial disputes in the South China Sea.`\
+https://www.nytimes.com/2026/07/17/world/asia/philippines-ai-video-china-racist.html
+
 **Trump Claims Election Vulnerabilities in Prime-Time Speech**\
 `President Trump made sweeping claims about the safety of American voting systems in a speech on Thursday. Documents released by the Trump administration did not back up his most aggressive statements.`\
 https://www.nytimes.com/video/us/politics/100000011036975/trump-election-speech.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/16/us/sinking-boat-alcatraz.html
 **Trump Exaggerates Claims About Election Vulnerabilities in Speech**\
 `President Trump drew selectively from documents his aides published online to insinuate that U.S. elections have been compromised for years and that government officials had suppressed the evidence.`\
 https://www.nytimes.com/live/2026/07/16/us/trump-speech-election
-
-**Johan Guerrero, Maine ICE Shooting Victim, Relentlessly Pursued a Better Life, Partner Says**\
-`The partner of Johan Guerrero, who was killed by an immigration agent this week, described him as a tireless worker and doting father who would do anything for his 3-year-old daughter.`\
-https://www.nytimes.com/2026/07/16/us/johan-sebastian-guerrero-colombia.html
 
