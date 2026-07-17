@@ -1,3 +1,7 @@
+**Poolhouse, a Tech-Infused Pool Hall Start-up, Raises $55 Million**\
+`Poolhouse, which was created by the founders of Topgolf and uses technology to track players’ scores, aims to sell its platform to others.`\
+https://www.nytimes.com/2026/07/17/business/dealbook/poolhouse-fundraise-topgolf.html
+
 **Ontario Wildfires Burn On, Releasing More Smoke**\
 `More than 100 blazes continued to devastate swaths of Ontario, prompting evacuations.`\
 https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/arts/music/gary-stewart-country-music.html
 **Why Trump Can’t Leave the Smithsonian Alone**\
 `The Trump White House and its history police want us all to live in their chosen bubble, immune from instability or perceived disorder.`\
 https://www.nytimes.com/2026/07/17/opinion/trump-smithsonian-cold-war.html
-
-**7th Time’s a Charm for a First-Time Buyer Plagued by Bidding Wars**\
-`Even as the market shifts to buyers, first-timers need to be resilient and flexible.`\
-https://www.nytimes.com/2026/07/17/realestate/bidding-war-first-time-home-buyer.html
 

@@ -1,3 +1,7 @@
+**Live Updates: Wildfire Smoke Darkens Skies Again on Friday**\
+`The dense smoke from Canadian wildfires has pushed air quality to dangerous levels in the past few days.`\
+https://www.nytimes.com/live/2026/07/17/weather/wildfire-smoke-air-quality
+
 **Ontario Wildfires Burn On, Releasing More Smoke**\
 `More than 100 blazes continued to devastate swaths of Ontario, prompting evacuations.`\
 https://www.nytimes.com/2026/07/17/weather/ontario-wildfires-smoke.html
