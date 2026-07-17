@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Jul. 17, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/17/podcasts/the-headlines/the-headlines-news-quiz-jul-17-2026.html
+
+**Greek Life**\
+`We look at the place of Homer’s epic “Odyssey” in our cultural lives.`\
+https://www.nytimes.com/2026/07/17/briefing/christopher-nolan-odyssey.html
+
 **The A.I. Trade Secrets War + Economists Say ‘We Must Act Now’ + HatGPT**\
 `“I don’t know if the public understands this, but these companies hate each other.”`\
 https://www.nytimes.com/2026/07/17/podcasts/hardfork-ai-trade-secrets.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/books/review/seymour-chwast-childrens-picture
 **Christopher Nolan on ‘The Odyssey’ and IMAX Technical Challenges**\
 `He and the cinematographer Hoyte van Hoytema combined new inventions (like fire-mimicking lights they developed) with century-old techniques.`\
 https://www.nytimes.com/2026/07/17/movies/the-odyssey-christopher-nolan.html
-
-**Word of the Day: transmute**\
-`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/17/learning/word-of-the-day-transmute.html
-
-**My 5 Favorite Places for Art in Venice**\
-`Our critic Jason Farago shares what you shouldn’t miss in a city full of secrets and surprises.`\
-https://www.nytimes.com/2026/07/17/arts/design/my-5-favorite-places-for-art-in-venice.html
 

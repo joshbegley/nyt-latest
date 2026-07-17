@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Jul. 17, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/17/podcasts/the-headlines/the-headlines-news-quiz-jul-17-2026.html
+
+**Greek Life**\
+`We look at the place of Homer’s epic “Odyssey” in our cultural lives.`\
+https://www.nytimes.com/2026/07/17/briefing/christopher-nolan-odyssey.html
+
 **The A.I. Trade Secrets War + Economists Say ‘We Must Act Now’ + HatGPT**\
 `“I don’t know if the public understands this, but these companies hate each other.”`\
 https://www.nytimes.com/2026/07/17/podcasts/hardfork-ai-trade-secrets.html
