@@ -1,3 +1,11 @@
+**Trump Endorses Graham for Senate, Scrambling South Carolina Primary**\
+`Senator Darline Graham had been seen as a caretaker for her brother’s seat after his sudden death. Now she has the president’s nod in what was shaping up to be a crowded fight to succeed Lindsey Graham.`\
+https://www.nytimes.com/2026/07/17/us/politics/trump-endorses-darline-graham-senate.html
+
+**‘Vámonos para La Guaira’: las voces de los rescatistas en Venezuela**\
+`¿Quiénes son los voluntarios que trabajan en las operaciones después de los terremotos y por qué se movilizaron para ayudar? The New York Times habló con ellos.`\
+https://www.nytimes.com/interactive/2026/07/17/espanol/america-latina/venezuela-terremoto-rescatistas-guaira.html
+
 **How Is America Doing? New Yorkers Weigh In.**\
 `How is your America doing? With the U.S. midterm elections less than four months away, Times Opinion wanted to hear from voters. Mara Gay, a staff writer for Opinion, traveled to the Hudson Valley to ask people what’s on their minds.`\
 https://www.nytimes.com/video/opinion/100000011004868/how-is-america-doing-new-yorkers-weigh-in.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/17/weather/fire-midtown-manhattan-nyc.html
 **Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
 `She won for playing a stoic mother in “My Left Foot” and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2.”`\
 https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
-
-**Climate Change Contributes to Rising Share of Wildfire Smoke Deaths**\
-`Wildfire smoke is linked to tens of thousands of deaths a year, a number that is rising with climate change.`\
-https://www.nytimes.com/2026/07/17/climate/smoke-air-quality-deaths.html
-
-**7.3-Magnitude Earthquake Off Coast of Mexico and Guatemala Poses Tsunami Threat**\
-`A powerful earthquake near the border of Mexico and Guatemala raised fears of a tsunami and shook buildings across three countries.`\
-https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mexico-guatemala.html
 
