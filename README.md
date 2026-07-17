@@ -1,3 +1,15 @@
+**Andy Burnham Set to Become British Prime Minister After Being Named Labour Leader**\
+`Andy Burnham was named the leader of Britain’s Labour Party on Friday, the last step before officially becoming the country’s next prime minister on Monday.`\
+https://www.nytimes.com/video/world/europe/100000011037256/andy-burnham-labour-party-leader-uk.html
+
+**Start-Up Boom Awakens U.S.’s Enterprising Spirit After Decades-Long Slump**\
+`Hundreds of thousands of people are creating companies each year, ending a decades-long drought.`\
+https://www.nytimes.com/2026/07/17/business/economy/american-small-business-boom.html
+
+**Judges Ask Congress for Power to Fix Crumbling Courthouses**\
+`Undrinkable water. Leaks. Mold. Federal courthouses need billions of dollars in repairs, and judges say the General Services Administration is a bad landlord.`\
+https://www.nytimes.com/2026/07/17/us/politics/federal-courthouses-repairs.html
+
 **Bridges Destroyed in Iran After Latest Exchange With U.S. Military**\
 `Video on social media shows bridges reduced to rubble in southern Iran after the sixth consecutive night of strikes between U.S. and Iranian forces.`\
 https://www.nytimes.com/video/world/middleeast/100000011037160/iran-war-us-strikes-bridges-hormuz.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/17/us/magnolia-park-houston-mourning-ice-shootin
 **Can Democrats Finally Understand the Latino Voter in an Era of Mass Deportations?**\
 `For decades, Democrats have misunderstood Latino voters. Trump’s deportation campaign offers a chance for them to get it right.`\
 https://www.nytimes.com/2026/07/17/opinion/latino-voter-democrats-immigration-trump.html
-
-**Pick Your Favorite $1.9 Million Home in Costa Rica**\
-`An eight-bedroom compound with thatched roofs, a forest villa topped with solar panels, and a contemporary indoor-outdoor house.`\
-https://www.nytimes.com/2026/07/17/realestate/costa-rica-homes-for-sale.html
-
-**As Blazes Spread Near Paris, Extreme Heat Is Changing How France Fights Fires**\
-`Until recently, France’s forest fires were mostly in the south. This week, fires are raging much farther north. France is having to rethink its firefighting strategy.`\
-https://www.nytimes.com/2026/07/17/france-forest-fires-extreme-heat.html
-
-**Has the World Cup Turned Me Into … a Sports Guy?**\
-`The pleasures of watching the TV show of the summer as a bandwagon fan.`\
-https://www.nytimes.com/2026/07/17/arts/television/world-cup.html
 
