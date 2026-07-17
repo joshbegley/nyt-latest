@@ -1,3 +1,7 @@
+**How Andy Burnham, ‘King of the North,’ Conquered U.K. Politics**\
+`A plain-spoken politician from a modest background in northwest England, Mr. Burnham is set to be named Labour leader — and prime minister apparent — on Friday.`\
+https://www.nytimes.com/2026/07/17/world/europe/andy-burnham-uk-labour-prime-minister.html
+
 **Tras años de dejar de fumar, una prueba de detección de cáncer de pulmón le salvó la vida**\
 `El cáncer de pulmón sigue siendo la principal causa de muerte por cáncer en EE. UU. Pero solo alrededor de una cuarta parte de los pacientes que podrían hacerse pruebas de detección están al día con ellas.`\
 https://www.nytimes.com/es/2026/07/17/espanol/prueba-deteccion-cancer-pulmon.html
