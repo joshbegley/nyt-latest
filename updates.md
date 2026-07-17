@@ -1,3 +1,11 @@
+**Brenda Fricker, First Irish Actress to Win an Oscar, Dies at 81**\
+`She won for playing a stoic mother in “My Left Foot” (1989) and achieved cult status as a pigeon whisperer in Central Park in “Home Alone 2” (1992).`\
+https://www.nytimes.com/2026/07/17/movies/brenda-fricker-dead.html
+
+**Climate Change Contributes to Rising Share of Wildfire Smoke Deaths**\
+`Wildfire smoke is linked to tens of thousands of deaths a year, a number that is rising with climate change.`\
+https://www.nytimes.com/2026/07/17/climate/smoke-air-quality-deaths.html
+
 **7.3-Magnitude Earthquake in Central America Sets Off Tsunami Threat**\
 `A powerful earthquake near the border of Mexico and Guatemala raised fears of a tsunami and shook buildings across three countries.`\
 https://www.nytimes.com/2026/07/17/world/americas/earthquake-tsunami-warning-mexico-guatemala.html
