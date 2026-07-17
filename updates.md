@@ -1,3 +1,7 @@
+**The A.I. Trade Secrets War + Economists Say ‘We Must Act Now’ + HatGPT**\
+`“I don’t know if the public understands this, but these companies hate each other.”`\
+https://www.nytimes.com/2026/07/17/podcasts/hardfork-ai-trade-secrets.html
+
 **U.K. Live Updates: Andy Burnham to Replace Keir Starmer as Labour Party Leader**\
 `Mr. Burnham is expected to promise in a speech more public control of essential services, a shift of power toward local governments and a push for economic growth.`\
 https://www.nytimes.com/live/2026/07/17/world/uk-burnham-starmer-labour
