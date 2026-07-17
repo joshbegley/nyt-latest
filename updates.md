@@ -1,3 +1,7 @@
+**War Between U.S. and Iran Expands, With Strikes Across the Region**\
+`Videos and reports in Iranian state media showed damage to bridges, railways and other infrastructure. U.S. allies in the region reported retaliatory strikes by Iran.`\
+https://www.nytimes.com/2026/07/17/world/middleeast/us-iran-war-strikes-infrastructure-civilians.html
+
 **Taylor Farms to Remove Products After Lettuce Is Linked to Cyclospora Cases**\
 `The Salinas, Calif., company grows produce in more than 12 states, and in Mexico and Canada. Some Taylor Farms lettuce suspected of causing sickness ended up at Taco Bell.`\
 https://www.nytimes.com/2026/07/17/business/cyclospora-taylor-farms-lettuce.html

@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-fores
 
 **War Between U.S. and Iran Expands, With Strikes Across the Region**\
 `Videos and reports in Iranian state media showed damage to bridges, railways and other infrastructure. U.S. allies in the region reported retaliatory strikes by Iran.`\
-https://www.nytimes.com/2026/07/17/world/middleeast/war-between-us-and-iran-expands-with-strikes-across-the-region.html
+https://www.nytimes.com/2026/07/17/world/middleeast/us-iran-war-strikes-infrastructure-civilians.html
 
 **Trump’s Homeland Security Chief Threatens Election Officials With Prison Time**\
 `Markwayne Mullin reiterated the president’s false claims about voting security while escalating the administration’s legally questionable attempts to control state elections.`\
