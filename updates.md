@@ -1,3 +1,7 @@
+**Sí, los terapeutas de pareja también pelean con su pareja. Así es como lo hacen**\
+`Estos expertos pasan sus días ayudando a las personas a resolver conflictos. Aquí algunas de sus estrategias.`\
+https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/consejos-evitar-peleas-parejas.html
+
 **These 16 Democrats Voted to Stop Israel Aid. AIPAC Took Action.**\
 `After 103 Democrats voted to eliminate aid to Israel, the lobbying group closed off online donations for more than a dozen Democratic lawmakers it had endorsed.`\
 https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-vote.html
