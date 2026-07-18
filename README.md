@@ -1,3 +1,7 @@
+**Thunderstorms Bring Threat of Strong Winds to Northeast**\
+`Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
+https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
+
 **Mike Lindell Not Registered to Vote in Minnesota, Where He is Running for Governor**\
 `President Trump endorsed Mike Lindell, a leader of the election denial movement, for Minnesota governor this week.`\
 https://www.nytimes.com/2026/07/18/us/mike-lindell-mypillow-minnsota-governor-election.html
@@ -154,13 +158,13 @@ https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundia
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
 
-**What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
-`The smoke isn’t going away, but where it affects air quality will shift over the next few days. Conditions were improving Saturday for parts of the Northeast, a forecaster said.`\
-https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
-
 **France vs. England: Who’s No. 3?**\
 `The World Cup third-place game is exciting to almost no one. But they still play it.`\
 https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
+
+**What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
+`The smoke isn’t going away, but where it affects air quality will shift over the next few days. Conditions were improving Saturday for parts of the Northeast, a forecaster said.`\
+https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
 
 **How Maine Democrats Intend to Replace Graham Platner**\
 `The state’s Democratic Party must pick Mr. Platner’s replacement by the deadline of July 27.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011035842/zohran-mamdani-on-alexand
 **Boosie Lobbied for a Trump Pardon. It Never Came. He Wants a Refund.**\
 `The Southern rapper paid $600,000 to two right-wing operatives. Now, they’re in a dispute over a contract the rapper believes entitles him to at least half his money back.`\
 https://www.nytimes.com/2026/07/18/us/boosie-badazz-pardon-lawsuit.html
-
-**Zohran Mamdani on Donald Trump’s Attacks**\
-`On “The Interview,” Zohran Mamdani, mayor of New York City, discussed a message President Trump recently shared on social media and how divisive political speech affects people’s lives.`\
-https://www.nytimes.com/video/podcasts/100000011035832/zohran-mamdani-on-donald-trumps-attacks.html
 
