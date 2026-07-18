@@ -1,3 +1,19 @@
+**As Trump Scraps With Meloni, His Envoy to Italy Is at Sea**\
+`Tilman J. Fertitta, the U.S. ambassador to Rome, is summering on his superyacht as President Trump squabbles with Prime Minister Giorgia Meloni of Italy.`\
+https://www.nytimes.com/2026/07/18/world/europe/tilman-fertitta-superyacht-italy-ambassador.html
+
+**Quote of the Day: Picking Trash Out of Muck, and Loving It**\
+`Quotation of the Day for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/18/pageoneplus/quote-of-the-day-picking-trash-out-of-muck-and-loving-it.html
+
+**They Called Sam Neill ‘Skux.’ (It Was a Compliment.)**\
+`The New Zealand slang word, dating back to the 1990s, was pulled back into circulation in tributes to the actor, who died on Tuesday.`\
+https://www.nytimes.com/2026/07/18/world/australia/new-zealand-sam-neill-skux-meaning.html
+
+**Corrections: July 18, 2026**\
+`Corrections that appeared in print on Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/18/pageoneplus/corrections-july-18-2026.html
+
 **Halloumi Souvlaki Bowl**\
 `With just a few building blocks — seared halloumi, sautéed chickpeas and yogurty rice— this recipe yields a quick and easy dinner in a bowl.`\
 https://www.nytimes.com/video/dining/100000011038663/halloumi-souvlaki-bowl.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/17/sports/athletes-victory-celebrations-world-cu
 **Trump Administration’s Cuts Targeted Wildfire Research**\
 `Labs at the Environmental Protection Agency and the Forest Service have analyzed the effects of wildfires. The administration wants to shutter them.`\
 https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html
-
-**War Between U.S. and Iran Expands, With Strikes Across the Region**\
-`Videos and reports in Iranian state media showed damage to bridges, railways and other infrastructure. U.S. allies in the region reported retaliatory strikes by Iran.`\
-https://www.nytimes.com/2026/07/17/world/middleeast/us-iran-war-strikes-infrastructure-civilians.html
-
-**Trump’s Homeland Security Chief Threatens Election Officials With Prison Time**\
-`Markwayne Mullin reiterated the president’s false claims about voting security while escalating the administration’s legally questionable attempts to control state elections.`\
-https://www.nytimes.com/2026/07/17/us/politics/markwayne-mullin-election-officials-threats-trump.html
-
-**Lam Wing-Kee, Hong Kong Bookseller Who Defied Authorities, Dies at 70**\
-`One of five booksellers kidnapped by Chinese officials in 2015, Mr. Lam spoke out after his release and became an international cause célèbre.`\
-https://www.nytimes.com/2026/07/17/world/asia/lam-wing-kee-dead.html
-
-**Prominent Cuban Artist Will Go Into Exile After 5-Year Prison Term**\
-`The United States offered a visa to Luis Manuel Otero Alcántara, who was expected to fly to Miami on Saturday.`\
-https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-prison-release-exile.html
 
