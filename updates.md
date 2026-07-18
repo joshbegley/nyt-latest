@@ -1,3 +1,15 @@
+**Halloumi Souvlaki Bowl**\
+`With just a few building blocks — seared halloumi, sautéed chickpeas and yogurty rice— this recipe yields a quick and easy dinner in a bowl.`\
+https://www.nytimes.com/video/dining/100000011038663/halloumi-souvlaki-bowl.html
+
+**Grilled Steak With Sauce Rof**\
+`A combination of onion, parsley, scallions and chile, this classic Senegalese sauce adds complexity to dishes.`\
+https://www.nytimes.com/video/dining/100000011038705/grilled-steak-with-sauce-rof.html
+
+**Tahini Krispie Chocolate Bars**\
+`These sweet and salty bars are a low-effort, high-reward treat that upgrades your average Rice Krispies treat.`\
+https://www.nytimes.com/video/dining/100000011038732/tahini-krispie-chocolate-bars.html
+
 **Grabber**\
 `Ryan Judge’s latest themeless puzzle has a bite to it!`\
 https://www.nytimes.com/2026/07/17/crosswords/daily-puzzle-2026-07-18.html
