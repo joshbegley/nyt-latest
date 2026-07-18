@@ -1,3 +1,11 @@
+**Raising Capital**\
+`You’ll really have to step it up to solve Michael Lieberman’s latest Sunday puzzle.`\
+https://www.nytimes.com/2026/07/18/crosswords/daily-puzzle-2026-07-19.html
+
+**After Days of Wildfire Smoke, New York City Hit By Heavy Thunderstorms**\
+`Heavy rains and thunderstorms hit New York City on Saturday, prompting flash flood warnings for Manhattan, Brooklyn and Queens.`\
+https://www.nytimes.com/video/us/100000011039760/after-days-of-wildfire-smoke-new-york-city-hit-by-heavy-thunderstorms.html
+
 **Why Jordan Is Becoming a New Focus in the U.S.-Iran War**\
 `Four Iranian attacks in five days have targeted U.S. troops in Jordan, U.S. officials said, including one on Friday that killed two soldiers and left another service member missing.`\
 https://www.nytimes.com/2026/07/18/world/middleeast/iran-war-jordan-attacks.html
