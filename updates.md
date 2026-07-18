@@ -1,3 +1,11 @@
+**Rhode Island Man Who Fled 2005 Rape Trial Is Arrested in New York**\
+`Ronald L. Fischer vanished just before he was convicted. After more than 20 years on the run, he was arrested on a sailboat in the East River, the authorities said.`\
+https://www.nytimes.com/2026/07/17/us/rhode-island-ronald-fischer-nj-yacht-arrest.html
+
+**AIPAC Closes Donor Portal to Democrats Who Voted to End Aid to Israel**\
+`The pro-Israel lobbying group appeared to be punishing Democrats it had endorsed for re-election after they voted in favor of an amendment that would have cut off U.S. aid to Israel.`\
+https://www.nytimes.com/2026/07/17/us/politics/aipac-donor-portal-democrats.html
+
 **Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
 `One establishment candidate dropped out and another rejoined the race amid worries from some moderate Democrats that a democratic socialist might win the primary.`\
 https://www.nytimes.com/2026/07/17/us/sara-rodriguez-wisconsin-governor-drop-out.html
