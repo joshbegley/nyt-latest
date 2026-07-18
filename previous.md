@@ -1,19 +1,3 @@
-**Iran War Live Updates: Fighting Intensifies With Strikes on Critical Infrastructure**\
-`In the days since the cease-fire unraveled, the U.S. and Iran have expanded the scope of their attacks, with reports of water facilities and other structures coming under fire.`\
-https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
-
-**Zohran Mamdani Knows He Has Political Capital. And He Intends to Spend It.**\
-`Lulu Garcia-Navarro sits down for an interview with the mayor of New York City.`\
-https://www.nytimes.com/2026/07/18/magazine/zohran-mamdani-interview.html
-
-**Lo que hay que saber antes de ver ‘La odisea’**\
-`La adaptación de Christopher Nolan del poema épico de Homero cuenta con batallas contra monstruos, una hechicera y decenas de pretendientes sedientos. Aquí tienes una guía básica.`\
-https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-matt-damon.html
-
-**Francia vs. Inglaterra: el odiado partido por el tercer lugar**\
-`El juego por el tercer lugar del Mundial se remonta a 1934. Algunos de esos encuentros han pasado a la historia, como el emocionante 6-3 entre Francia y Alemania Occidental en 1958. Pero la mayoría han caído en el olvido.`\
-https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundial-tercer-lugar.html
-
 **Su forma de ser me irritaba, justo lo que necesitaba en un hombre**\
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
@@ -197,4 +181,20 @@ https://www.nytimes.com/2026/07/18/nyregion/trump-mamdani-world-cup-final.html
 **Haz ejercicio en la playa: más músculos, menos tiempo**\
 `Correr, hacer yoga o simplemente caminar descalzo en la orilla puede fortalecer el tren inferior, mejorar la estabilidad y reducir el estrés, siempre que se tomen las precauciones adecuadas.`\
 https://www.nytimes.com/es/2026/07/18/espanol/ejercicio-playa.html
+
+**They Don’t Fight Crime, but They Do Eat Bugs: The Bats of N.Y.C.**\
+`Several species of bats have made the city’s patchwork green spaces their homes, much to the surprise of some scientists.`\
+https://www.nytimes.com/2026/07/18/nyregion/bats-nyc-highline-prospect-park.html
+
+**NYT Spelling Bee Answers for July 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/18/crosswords/spelling-bee-forum.html
+
+**Lionel Messi camina hacia la historia**\
+`Messi no camina porque se haya ido del partido. Camina para entrar en él.`\
+https://www.nytimes.com/es/2026/07/18/espanol/opinion/messi-argentina-mundial-historia.html
+
+**As Trump Scraps With Meloni, His Envoy to Italy Is at Sea**\
+`Tilman J. Fertitta, the U.S. ambassador to Rome, is summering on his superyacht as President Trump squabbles with Prime Minister Giorgia Meloni of Italy.`\
+https://www.nytimes.com/2026/07/18/world/europe/tilman-fertitta-superyacht-italy-ambassador.html
 
