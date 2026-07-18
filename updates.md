@@ -1,3 +1,7 @@
+**In Bangladesh, Argentina’s Soccer Team Finds a Huge Fan Base**\
+`Bangladesh has never qualified for the World Cup. But every four years, many in the country adopt Argentina’s team as their own.`\
+https://www.nytimes.com/2026/07/18/world/asia/world-cup-bangladesh-argentina-fans.html
+
 **Low-T, High Chair**\
 `Where are Hegseth’s hormones when Trump needs them?`\
 https://www.nytimes.com/2026/07/18/opinion/trump-hegseth-testosterone.html
