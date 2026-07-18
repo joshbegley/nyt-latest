@@ -1,3 +1,27 @@
+**Un meteorito cayó en una casa en Nueva Jersey. Es un tesoro para la ciencia**\
+`Una pareja de Nueva Jersey ayudó a los científicos a descubrir la composición de un asteroide inusual después de que cayera en su habitación.`\
+https://www.nytimes.com/es/2026/07/18/espanol/ciencia-y-tecnologia/meteorito.html
+
+**How the MC Hotel in Montclair, N.J., Became a World Cup Hot Spot**\
+`A boutique hotel in Montclair, N.J., has been home base for England, Norway, Germany and now Spain. It has also drawn crowds of fans hoping for a glimpse of soccer stars.`\
+https://www.nytimes.com/2026/07/18/nyregion/world-cup-mc-hotel-montclair-nj.html
+
+**Trump and Mamdani to Attend World Cup Final on Sunday**\
+`They have no plans to meet, but it is the second time in a month that the two ubiquitous political figures will be at the same signature sporting event.`\
+https://www.nytimes.com/2026/07/18/nyregion/trump-mamdani-world-cup-final.html
+
+**Haz ejercicio en la playa: más músculos, menos tiempo**\
+`Correr, hacer yoga o simplemente caminar descalzo en la orilla puede fortalecer el tren inferior, mejorar la estabilidad y reducir el estrés, siempre que se tomen las precauciones adecuadas.`\
+https://www.nytimes.com/es/2026/07/18/espanol/ejercicio-playa.html
+
+**They Don’t Fight Crime, but They Do Eat Bugs: The Bats of N.Y.C.**\
+`Several species of bats have made the city’s patchwork green spaces their homes, much to the surprise of some scientists.`\
+https://www.nytimes.com/2026/07/18/nyregion/bats-nyc-highline-prospect-park.html
+
+**NYT Spelling Bee Answers for July 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/18/crosswords/spelling-bee-forum.html
+
 **Lionel Messi camina hacia la historia**\
 `Messi no camina porque se haya ido del partido. Camina para entrar en él.`\
 https://www.nytimes.com/es/2026/07/18/espanol/opinion/messi-argentina-mundial-historia.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/17/world/europe/karim-khan-icc-accusations.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/opinion/editorials/100000011038728/anewinferno-cine.html
-
-**Trump Threatens Canada With Tariffs for Wildfire Smoke Over U.S.**\
-`The president said on Friday in a social media post that Canada was failing to manage its wildfire response as smoke has blanketed U.S. cities including New York and Chicago.`\
-https://www.nytimes.com/2026/07/17/weather/trump-canada-tariffs-wildfire-smoke.html
-
-**Orange-Lipped Monkey Photo Helps Scientists Identify New Species**\
-`The medium-sized monkey with an orange-colored patch around its nose and mouth, known locally as Likweli, joins a very short list of newly identified African monkey species.`\
-https://www.nytimes.com/video/science/earth/100000011037453/orange-lipped-monkey-new-species.html
-
-**Cyclospora Investigation Turns to Farms in Mexico**\
-`The F.D.A. is planning to inspect farms and a lettuce shredding facility to determine how lettuce supplied by the produce company Taylor Farms to Taco Bell became contaminated and where it was shipped.`\
-https://www.nytimes.com/2026/07/17/health/cyclospora-taylor-farms-mexico-taco-bell-lettuce.html
-
-**Garfield Sobers, Renowned ‘All-Rounder’ Cricket Star, Dies at 89**\
-`A longtime West Indian captain, he could do it all on the pitch.`\
-https://www.nytimes.com/2026/07/17/sports/garfield-sobers-dead.html
-
-**Taylor Farms to Remove Products After Lettuce Is Linked to Cyclospora Cases**\
-`The California company grows produce in more than 12 states, and in Mexico and Canada. Taco Bell and food distributor Sysco have pulled Taylor Farms lettuce from supply chains.`\
-https://www.nytimes.com/2026/07/17/business/cyclospora-taylor-farms-lettuce.html
-
-**How Athletes at the World Cup and Beyond Celebrate Victories: Dances, Doughnuts and Finger Wags**\
-`The World Cup has brought renewed attention to the art of celebration. Here’s a look at all kinds of athletes whose rituals of triumph became part of their legacies.`\
-https://www.nytimes.com/2026/07/17/sports/athletes-victory-celebrations-world-cup.html
 
