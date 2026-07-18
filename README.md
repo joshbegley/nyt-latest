@@ -1,3 +1,7 @@
+**Rhode Island Man Who Fled 2005 Rape Trial Is Arrested in New York**\
+`Ronald L. Fischer vanished just before he was convicted. After more than 20 years on the run, he was arrested on a sailboat in the East River, the authorities said.`\
+https://www.nytimes.com/2026/07/17/us/rhode-island-ronald-fischer-nj-yacht-arrest.html
+
 **How Trump Is Using Federal Agencies to Target Elections**\
 `Nick Corasaniti, a Politics reporter, explains how the Trump administration is deploying federal agencies to investigate and reshape electoral processes under state jurisdiction.`\
 https://www.nytimes.com/video/us/elections/100000011037521/how-trump-is-using-federal-agencies-to-target-elections.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/07/17/world/africa/ebola-kenya-americans-quarantine
 https://www.nytimes.com/2026/07/17/us/volare-boat-sink-alcatraz.html
 
 **AIPAC Closes Donor Portal to Democrats Who Voted to End Aid to Israel**\
-`The pro-Israel lobbying group appeared to be punishing Democrats it had previously endorsed for re-election after they voted in favor of an amendment that would have cut off U.S. aid to Israel.`\
+`The pro-Israel lobbying group appeared to be punishing Democrats it had endorsed for re-election after they voted in favor of an amendment that would have cut off U.S. aid to Israel.`\
 https://www.nytimes.com/2026/07/17/us/politics/aipac-donor-portal-democrats.html
 
 **South Carolina Man Who Fired Rifle to Scare a Black Neighbor Gets 9 Years**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habit
 **China’s Moonshot AI Unveils Kimi Model, Threatening America’s Lead**\
 `China’s Moonshot AI unveiled a freely available artificial intelligence model that seemed to narrow the gap with cutting-edge offerings from U.S. tech companies.`\
 https://www.nytimes.com/2026/07/17/business/china-ai-moonshot-kimi.html
-
-**When Will the Smoke End? Our Meteorologist Explains Why It’s Complicated.**\
-`The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
-https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
 
