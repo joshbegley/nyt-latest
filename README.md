@@ -1,3 +1,7 @@
+**Wildfires Continue To Burn in Ontario, Canada, Sending Smoke to U.S. Cities**\
+`Nearly 200 fires continued to devastate swaths of the province as smoke continued to drift across parts of Canada and the United States.`\
+https://www.nytimes.com/2026/07/18/world/canada/ontario-wildfires-smoke-thunder-bay-canada.html
+
 **Thunderstorms Bring Threat of Strong Winds to Northeast**\
 `Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
 https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011035987/zohran-mamdani-netanyahu-
 **Zohran Mamdani on Alexandria Ocasio-Cortez and 2028**\
 `On “The Interview,” Zohran Mamdani, mayor of New York City, talked about his partnership with Representative Alexandria Ocasio-Cortez and recent discussions about whether she should run for president.`\
 https://www.nytimes.com/video/podcasts/100000011035842/zohran-mamdani-on-alexandria-ocasio-cortez-and-2028.html
-
-**Boosie Lobbied for a Trump Pardon. It Never Came. He Wants a Refund.**\
-`The Southern rapper paid $600,000 to two right-wing operatives. Now, they’re in a dispute over a contract the rapper believes entitles him to at least half his money back.`\
-https://www.nytimes.com/2026/07/18/us/boosie-badazz-pardon-lawsuit.html
 

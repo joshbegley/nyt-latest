@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/07/18/dining/peak-mango-season-is-upon-us-thank-goo
 `Estos expertos pasan sus días ayudando a las personas a resolver conflictos. Aquí algunas de sus estrategias.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/consejos-evitar-peleas-parejas.html
 
-**These 16 Democrats Voted to Stop Israel Aid. AIPAC Took Action.**\
-`After 103 Democrats voted to eliminate aid to Israel, the lobbying group closed off online donations for more than a dozen Democratic lawmakers it had endorsed.`\
+**These AIPAC-Backed Democrats Voted to Nix Israel Aid. AIPAC Punished Them.**\
+`Of the 103 Democrats who voted to eliminate aid to Israel, more than a dozen had been endorsed by the pro-Israel lobbying group. AIPAC quickly closed off online donations for them.`\
 https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-vote.html
 
 **Walt Odets, Who Delved Into the Minds of Gay Men, Dies at 79**\

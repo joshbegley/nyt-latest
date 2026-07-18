@@ -1,3 +1,7 @@
+**These AIPAC-Backed Democrats Voted to Nix Israel Aid. AIPAC Punished Them.**\
+`Of the 103 Democrats who voted to eliminate aid to Israel, more than a dozen had been endorsed by the pro-Israel lobbying group. AIPAC quickly closed off online donations for them.`\
+https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-vote.html
+
 **Thunderstorms Bring Threat of Strong Winds to Northeast**\
 `Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
 https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
