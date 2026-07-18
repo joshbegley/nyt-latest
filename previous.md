@@ -1,3 +1,7 @@
+**Who Is Ahead in Michigan's 13th Congressional District?**\
+`Track the latest polls in Michigan's 13th Congressional District.`\
+https://www.nytimes.com/interactive/polls/michigan-us-house-13-polls-2026.html
+
 **In Bangladesh, Argentina’s Soccer Team Finds a Huge Fan Base**\
 `Bangladesh has never qualified for the World Cup. But every four years, many in the country adopt Argentina’s team as their own.`\
 https://www.nytimes.com/2026/07/18/world/asia/world-cup-bangladesh-argentina-fans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/arts/music/world-cup-halftime-show.html
 **How Criminal Cases Against ICE Protesters Are Crumbling**\
 `Our investigative reporter Danny Hakim describes how the government has lost or abandoned hundreds of criminal cases against protesters and immigrants.`\
 https://www.nytimes.com/video/us/100000010977388/how-criminal-cases-against-ice-protesters-are-crumbling.html
-
-**Why Locals Are Gatekeeping Their Favorite Places From Tourists**\
-`As visitors flock to places like Mexico City, Milan and Copenhagen, residents are rethinking what they share, and who they share it with.`\
-https://www.nytimes.com/2026/07/18/travel/gatekeeping-tourism-mexico-city-milan.html
 

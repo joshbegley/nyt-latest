@@ -1,3 +1,7 @@
+**Who Is Ahead in Michigan's 13th Congressional District?**\
+`Track the latest polls in Michigan's 13th Congressional District.`\
+https://www.nytimes.com/interactive/polls/michigan-us-house-13-polls-2026.html
+
 **In Bangladesh, Argentina’s Soccer Team Finds a Huge Fan Base**\
 `Bangladesh has never qualified for the World Cup. But every four years, many in the country adopt Argentina’s team as their own.`\
 https://www.nytimes.com/2026/07/18/world/asia/world-cup-bangladesh-argentina-fans.html
