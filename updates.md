@@ -1,3 +1,11 @@
+****\
+`Sonam Wangchuk, an Indian activist who has been on a hunger strike in New Delhi to demand education reforms, was forcibly removed by the police on Saturday.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011039307/18vid-india-activist-embed-23976.html
+
+**Indian Activist on Hunger Strike Is Forcibly Removed by Police**\
+`The activist, Sonam Wangchuk, started his strike last month as part of a protest over educational mismanagement that has affected millions of students.`\
+https://www.nytimes.com/2026/07/18/world/asia/sonam-wangchuk-hunger-strike-delhi-police.html
+
 **Un meteorito cayó en una casa en Nueva Jersey. Es un tesoro para la ciencia**\
 `Una pareja de Nueva Jersey ayudó a los científicos a descubrir la composición de un asteroide inusual después de que cayera en su habitación.`\
 https://www.nytimes.com/es/2026/07/18/espanol/ciencia-y-tecnologia/meteorito.html
