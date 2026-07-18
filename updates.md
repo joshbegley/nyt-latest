@@ -1,3 +1,7 @@
+**Garlic Bread Grilled Cheese, of Course**\
+`The precise sandwich to serve with a plate of juicy tomatoes or crisp cucumbers.`\
+https://www.nytimes.com/2026/07/18/dining/garlic-bread-grilled-cheese-of-course.html
+
 **Uproar Over Surrogate Baby Prompts German Official’s Sudden Resignation**\
 `Jens Spahn, a top leader of Chancellor Friedrich Merz’s party, resigned his post after announcing having had a baby by surrogate, which is illegal in Germany.`\
 https://www.nytimes.com/2026/07/18/world/europe/jens-spahn-surrogacy-germany.html
