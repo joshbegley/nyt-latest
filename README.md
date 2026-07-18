@@ -1,3 +1,7 @@
+**In Bangladesh, Argentina’s Soccer Team Finds a Huge Fan Base**\
+`Bangladesh has never qualified for the World Cup. But every four years, many in the country adopt Argentina’s team as their own.`\
+https://www.nytimes.com/2026/07/18/world/asia/world-cup-bangladesh-argentina-fans.html
+
 **Low-T, High Chair**\
 `Where are Hegseth’s hormones when Trump needs them?`\
 https://www.nytimes.com/2026/07/18/opinion/trump-hegseth-testosterone.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000010977388/how-criminal-cases-against-ice-
 **Why Locals Are Gatekeeping Their Favorite Places From Tourists**\
 `As visitors flock to places like Mexico City, Milan and Copenhagen, residents are rethinking what they share, and who they share it with.`\
 https://www.nytimes.com/2026/07/18/travel/gatekeeping-tourism-mexico-city-milan.html
-
-**A 20-Minute Workout to Build Upper-Body Strength**\
-`These exercises can help improve your posture and make everyday movements feel more comfortable.`\
-https://www.nytimes.com/2026/07/18/well/move/upper-body-strength-lats-workout.html
 
