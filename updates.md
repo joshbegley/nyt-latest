@@ -1,3 +1,11 @@
+**7 Americans Sent to Disputed Kenya Ebola Site After New Trump Travel Ban**\
+`The aid workers were on the frontline in the fight against the outbreak in the Democratic Republic of Congo and have shown no symptoms, their employer said.`\
+https://www.nytimes.com/2026/07/17/world/africa/ebola-kenya-americans-quarantine.html
+
+**Mourning One Tragedy at Sea, a Family Is Devastated by Another**\
+`The Boisas went out on the San Francisco Bay to spread the ashes of one of their own. Then a wave toppled their boat.`\
+https://www.nytimes.com/2026/07/17/us/volare-boat-sink-alcatraz.html
+
 **AIPAC Closes Donor Portal to Democrats Who Voted to End Aid to Israel**\
 `The pro-Israel lobbying group appeared to be punishing Democrats it had previously endorsed for re-election after they voted in favor of an amendment that would have cut off U.S. aid to Israel.`\
 https://www.nytimes.com/2026/07/17/us/politics/aipac-donor-portal-democrats.html
