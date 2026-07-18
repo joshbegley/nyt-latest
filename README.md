@@ -2,7 +2,7 @@
 `She unionized state hospitals and battled with Mayor Michael R. Bloomberg during her feisty leadership of the nation’s largest municipal workers union.`\
 https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
 
-**Nebraska’s Democratic Senate Nominee Files to Withdraw From Race**\
+**Cindy Burbank, Nebraska’s Democratic Senate Nominee, Files to Withdraw From Race**\
 `The move by Cindy Burbank could clear a path for Dan Osborn, an independent candidate backed by her party’s leadership. But Republicans have cried foul, and her effort could face obstacles.`\
 https://www.nytimes.com/2026/07/18/us/politics/nebraska-senate-race-democrat-withdraw.html
 
@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-
 `A psychologist, he wrote during the AIDS crisis about survivor’s guilt and depression in his H.I.V.-negative patients.`\
 https://www.nytimes.com/2026/07/18/health/walt-odets-dead.html
 
-**The Job Market Is a Game Where Everyone’s a Loser**\
+**The Hunt for a Job Has Never Been Worse. These Applicants Are Fighting Back.**\
 `A.I. is destroying the application process for employers and potential employees. We need to fix it.`\
 https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
 
