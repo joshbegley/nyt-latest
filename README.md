@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/07/18/dining/garlic-bread-grilled-cheese-of-course.
 https://www.nytimes.com/2026/07/18/health/taylor-farms-iceberg-lettuce-recall.html
 
 **Uproar Over Surrogate Baby Prompts German Official’s Sudden Resignation**\
-`Jens Spahn, a top leader of Chancellor Friedrich Merz’s party, resigned his post after announcing having had a baby by surrogate, which is illegal in Germany.`\
+`Jens Spahn, a top leader of Chancellor Friedrich Merz’s party, resigned his post after announcing that he had a baby by surrogate, which is illegal in Germany.`\
 https://www.nytimes.com/2026/07/18/world/europe/jens-spahn-surrogacy-germany.html
 
 **Peak Mango Season Is Upon Us, Thank Goodness**\
