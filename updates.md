@@ -1,3 +1,7 @@
+**Su forma de ser me irritaba, justo lo que necesitaba en un hombre**\
+`Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
+https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
+
 **France vs. England: Who’s No. 3?**\
 `The World Cup third-place game is exciting to almost no one. But they still play it.`\
 https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
