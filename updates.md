@@ -1,3 +1,7 @@
+**Two U.S. Service Members Killed In Iranian Strike, U.S. Military Says**\
+`Iran struck a military base in Jordan on Friday, killing two U.S. service members, according to the U.S. military. Sixteen military personnel have died in the war since the U.S. and Israel launched attacks on Iran in February.`\
+https://www.nytimes.com/video/world/middleeast/100000011039720/us-troops-killed-iran-war-jordan.html
+
 **Raising Capital**\
 `You’ll really have to step it up to solve Michael Lieberman’s latest Sunday puzzle.`\
 https://www.nytimes.com/2026/07/18/crosswords/daily-puzzle-2026-07-19.html
