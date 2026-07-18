@@ -1,3 +1,7 @@
+**Thunderstorms, Flooding and Strong Winds Sweep the Northeast**\
+`Forecasters warned of winds over 70 miles per hour in New York City, Philadelphia, Baltimore and Washington.`\
+https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
+
 **Deaths of 2 U.S. Troops in Jordan Brings American Toll in the War With Iran to 16**\
 `President Trump vowed to avenge the deaths of any U.S. military personnel.`\
 https://www.nytimes.com/2026/07/18/world/middleeast/us-troops-killed-iran-war-jordan.html
