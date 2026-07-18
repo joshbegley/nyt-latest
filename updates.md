@@ -1,3 +1,19 @@
+**Iran War Live Updates: Fighting Intensifies With Strikes on Critical Infrastructure**\
+`In the days since the cease-fire unraveled, the U.S. and Iran have expanded the scope of their attacks, with reports of water facilities and other structures coming under fire.`\
+https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
+
+**Zohran Mamdani Knows He Has Political Capital. And He Intends to Spend It.**\
+`Lulu Garcia-Navarro sits down for an interview with the mayor of New York City.`\
+https://www.nytimes.com/2026/07/18/magazine/zohran-mamdani-interview.html
+
+**Lo que hay que saber antes de ver ‘La odisea’**\
+`La adaptación de Christopher Nolan del poema épico de Homero cuenta con batallas contra monstruos, una hechicera y decenas de pretendientes sedientos. Aquí tienes una guía básica.`\
+https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-matt-damon.html
+
+**Francia vs. Inglaterra: el odiado partido por el tercer lugar**\
+`El juego por el tercer lugar del Mundial se remonta a 1934. Algunos de esos encuentros han pasado a la historia, como el emocionante 6-3 entre Francia y Alemania Occidental en 1958. Pero la mayoría han caído en el olvido.`\
+https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundial-tercer-lugar.html
+
 **Su forma de ser me irritaba, justo lo que necesitaba en un hombre**\
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
