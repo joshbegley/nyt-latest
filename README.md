@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/07/17/opinion/trump-speech-us-intelligence-secrets-
 https://www.nytimes.com/video/technology/100000011037861/china-ai-conference-xi.html
 
 **Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
-`Some Democrats feared the decision by Lt. Gov. Sara Rodriguez, the establishment candidate, could improve the primary prospects for Francesca Hong, a democratic socialist, in a purple state.`\
+`One establishment candidate dropped out and another rejoined the race amid worries from some moderate Democrats that a democratic socialist might win the primary.`\
 https://www.nytimes.com/2026/07/17/us/sara-rodriguez-wisconsin-governor-drop-out.html
 
 **Trump’s Election Claims and SAVE Act Push Find Muted Response From G.O.P. Lawmakers**\
