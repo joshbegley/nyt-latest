@@ -1,3 +1,27 @@
+**Un meteorito cayó en una casa en Nueva Jersey. Es un tesoro para la ciencia**\
+`Una pareja de Nueva Jersey ayudó a los científicos a descubrir la composición de un asteroide inusual después de que cayera en su habitación.`\
+https://www.nytimes.com/es/2026/07/18/espanol/ciencia-y-tecnologia/meteorito.html
+
+**How the MC Hotel in Montclair, N.J., Became a World Cup Hot Spot**\
+`A boutique hotel in Montclair, N.J., has been home base for England, Norway, Germany and now Spain. It has also drawn crowds of fans hoping for a glimpse of soccer stars.`\
+https://www.nytimes.com/2026/07/18/nyregion/world-cup-mc-hotel-montclair-nj.html
+
+**Trump and Mamdani to Attend World Cup Final on Sunday**\
+`They have no plans to meet, but it is the second time in a month that the two ubiquitous political figures will be at the same signature sporting event.`\
+https://www.nytimes.com/2026/07/18/nyregion/trump-mamdani-world-cup-final.html
+
+**Haz ejercicio en la playa: más músculos, menos tiempo**\
+`Correr, hacer yoga o simplemente caminar descalzo en la orilla puede fortalecer el tren inferior, mejorar la estabilidad y reducir el estrés, siempre que se tomen las precauciones adecuadas.`\
+https://www.nytimes.com/es/2026/07/18/espanol/ejercicio-playa.html
+
+**They Don’t Fight Crime, but They Do Eat Bugs: The Bats of N.Y.C.**\
+`Several species of bats have made the city’s patchwork green spaces their homes, much to the surprise of some scientists.`\
+https://www.nytimes.com/2026/07/18/nyregion/bats-nyc-highline-prospect-park.html
+
+**NYT Spelling Bee Answers for July 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/18/crosswords/spelling-bee-forum.html
+
 **Lionel Messi camina hacia la historia**\
 `Messi no camina porque se haya ido del partido. Camina para entrar en él.`\
 https://www.nytimes.com/es/2026/07/18/espanol/opinion/messi-argentina-mundial-historia.html
