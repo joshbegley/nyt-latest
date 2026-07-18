@@ -1,3 +1,7 @@
+**Sí, los terapeutas de pareja también pelean con su pareja. Así es como lo hacen**\
+`Estos expertos pasan sus días ayudando a las personas a resolver conflictos. Aquí algunas de sus estrategias.`\
+https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/consejos-evitar-peleas-parejas.html
+
 **These 16 Democrats Voted to Stop Israel Aid. AIPAC Took Action.**\
 `After 103 Democrats voted to eliminate aid to Israel, the lobbying group closed off online donations for more than a dozen Democratic lawmakers it had endorsed.`\
 https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-vote.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/style/saxophones-getting-louder-tiktok.html
 **Is Post-Closing Possession a Terrible Idea?**\
 `Sometimes sellers want to stay in a home for a little while after the deal is done.`\
 https://www.nytimes.com/2026/07/18/realestate/post-closing-possession-agreements.html
-
-**Robinhood’s Chief on Trump Accounts and Why Trading Isn’t Necessarily Gambling**\
-`Vlad Tenev, the chief executive of the digital brokerage Robinhood, is trying to win over the next generation of Americans with Trump accounts.`\
-https://www.nytimes.com/2026/07/18/business/robinhoods-trump-accounts-trading-gambling.html
 
