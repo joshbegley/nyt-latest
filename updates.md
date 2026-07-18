@@ -1,3 +1,11 @@
+**Thunderstorms Bring Threat of Strong Winds to Northeast**\
+`Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
+https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
+
+**Iran War Live Updates: 2 U.S. Service Members Killed and 1 Missing in Iranian Attack on Jordan**\
+`They were the first U.S. troops to die from hostile fire in the region since an early April truce. The deaths came as both sides expanded the scope and intensity of their attacks.`\
+https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
+
 **Mike Lindell Not Registered to Vote in Minnesota, Where He is Running for Governor**\
 `President Trump endorsed Mike Lindell, a leader of the election denial movement, for Minnesota governor this week.`\
 https://www.nytimes.com/2026/07/18/us/mike-lindell-mypillow-minnsota-governor-election.html
