@@ -1,3 +1,11 @@
+**Canada Wildfires: What to Know**\
+`Hundreds of wildfires in Canada and the United States have blanketed large sections of North America in dense smoke over the past week.`\
+https://www.nytimes.com/2026/07/18/world/canada/canada-wildfires-what-to-know.html
+
+**Wildfire Smoke Hangs Over World Cup Final**\
+`Smoke has blanketed New York City and other parts of the Northeast United States in a thick haze this week, unleashing smoggy skies and dangerous air.`\
+https://www.nytimes.com/2026/07/18/nyregion/smoke-world-cup-final-nyc.html
+
 **Lillian Roberts, Crusading New York Labor Leader, Dies at 98**\
 `She unionized state hospitals and battled with Mayor Michael R. Bloomberg during her feisty leadership of the nation’s largest municipal workers union.`\
 https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundia
 **Su forma de ser me irritaba, justo lo que necesitaba en un hombre**\
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
-
-**France vs. England: Who’s No. 3?**\
-`The World Cup third-place game is exciting to almost no one. But they still play it.`\
-https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
-
-**What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
-`The smoke isn’t going away, but where it affects air quality will shift over the next few days. Conditions were improving Saturday for parts of the Northeast, a forecaster said.`\
-https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
 

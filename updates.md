@@ -1,3 +1,11 @@
+**Canada Wildfires: What to Know**\
+`Hundreds of wildfires in Canada and the United States have blanketed large sections of North America in dense smoke over the past week.`\
+https://www.nytimes.com/2026/07/18/world/canada/canada-wildfires-what-to-know.html
+
+**Wildfire Smoke Hangs Over World Cup Final**\
+`Smoke has blanketed New York City and other parts of the Northeast United States in a thick haze this week, unleashing smoggy skies and dangerous air.`\
+https://www.nytimes.com/2026/07/18/nyregion/smoke-world-cup-final-nyc.html
+
 **Cindy Burbank, Nebraska’s Democratic Senate Nominee, Files to Withdraw From Race**\
 `The move by Cindy Burbank could clear a path for Dan Osborn, an independent candidate backed by her party’s leadership. But Republicans have cried foul, and her effort could face obstacles.`\
 https://www.nytimes.com/2026/07/18/us/politics/nebraska-senate-race-democrat-withdraw.html

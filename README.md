@@ -1,3 +1,7 @@
+**Madison Square Garden Sues Wired Magazine Over L.G.B.T.Q. Tracking Report**\
+`The Manhattan venue claims a July article from the technology magazine falsely implied that it tracked information about some celebrities’ sexual orientation for “discriminatory purposes.”`\
+https://www.nytimes.com/2026/07/18/business/media/msg-entertainment-sues-wired-magazine.html
+
 **Canada Wildfires: What to Know**\
 `Hundreds of wildfires in Canada and the United States have blanketed large sections of North America in dense smoke over the past week.`\
 https://www.nytimes.com/2026/07/18/world/canada/canada-wildfires-what-to-know.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-matt-damon.ht
 **Francia vs. Inglaterra: el odiado partido por el tercer lugar**\
 `El juego por el tercer lugar del Mundial se remonta a 1934. Algunos de esos encuentros han pasado a la historia, como el emocionante 6-3 entre Francia y Alemania Occidental en 1958. Pero la mayoría han caído en el olvido.`\
 https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundial-tercer-lugar.html
-
-**Su forma de ser me irritaba, justo lo que necesitaba en un hombre**\
-`Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
-https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
 
