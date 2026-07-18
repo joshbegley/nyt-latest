@@ -1,3 +1,11 @@
+**Most Forest Fires in Canada Are Simply Impossible to Put Out**\
+`Half of Canada’s wildfires are in remote areas with no road access. Impossible to fight, they are often left to burn.`\
+https://www.nytimes.com/2026/07/18/world/canada/wildfires-canada-fire-fighting.html
+
+**America Caught World Cup Fever. His Job Is to Capitalize on It.**\
+`Don Garber, the M.L.S. commissioner, has been planning for this moment for eight years.`\
+https://www.nytimes.com/2026/07/18/business/dealbook/mls-don-garber-world-cup.html
+
 **An Eye-Opening Visit to the ‘Little House’ of My Childhood**\
 `Laura Ingalls Wilder and the myth of the American West revisited.`\
 https://www.nytimes.com/2026/07/18/opinion/little-house-netflix-show-laura-ingalls-wilder.html

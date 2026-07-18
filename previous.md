@@ -1,3 +1,11 @@
+**Most Forest Fires in Canada Are Simply Impossible to Put Out**\
+`Half of Canada’s wildfires are in remote areas with no road access. Impossible to fight, they are often left to burn.`\
+https://www.nytimes.com/2026/07/18/world/canada/wildfires-canada-fire-fighting.html
+
+**America Caught World Cup Fever. His Job Is to Capitalize on It.**\
+`Don Garber, the M.L.S. commissioner, has been planning for this moment for eight years.`\
+https://www.nytimes.com/2026/07/18/business/dealbook/mls-don-garber-world-cup.html
+
 **Who Is Ahead in Michigan's 13th Congressional District?**\
 `Track the latest polls in Michigan's 13th Congressional District.`\
 https://www.nytimes.com/interactive/polls/michigan-us-house-13-polls-2026.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/18/business/retirement-plan.html
 **Iqaluit, Canada’s Most Northern City, Gets Its First Bus Line**\
 `Jacinto Marques left Angola for Canada’s frozen edge. Now he’s running a bus service in Iqaluit, the largest, and only city in Canada’s Arctic.`\
 https://www.nytimes.com/2026/07/18/world/canada/iqaluit-arctic-city-bus.html
-
-**It’s a Crowded and Contested World Cup Halftime Show**\
-`Madonna, Justin Bieber, Shakira, BTS and more will perform in a new tournament festivity. Soccer purists aren’t singing praises.`\
-https://www.nytimes.com/2026/07/18/arts/music/world-cup-halftime-show.html
-
-**How Criminal Cases Against ICE Protesters Are Crumbling**\
-`Our investigative reporter Danny Hakim describes how the government has lost or abandoned hundreds of criminal cases against protesters and immigrants.`\
-https://www.nytimes.com/video/us/100000010977388/how-criminal-cases-against-ice-protesters-are-crumbling.html
 
