@@ -1,3 +1,19 @@
+**As Trump Scraps With Meloni, His Envoy to Italy Is at Sea**\
+`Tilman J. Fertitta, the U.S. ambassador to Rome, is summering on his superyacht as President Trump squabbles with Prime Minister Giorgia Meloni of Italy.`\
+https://www.nytimes.com/2026/07/18/world/europe/tilman-fertitta-superyacht-italy-ambassador.html
+
+**Quote of the Day: Picking Trash Out of Muck, and Loving It**\
+`Quotation of the Day for Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/18/pageoneplus/quote-of-the-day-picking-trash-out-of-muck-and-loving-it.html
+
+**They Called Sam Neill ‘Skux.’ (It Was a Compliment.)**\
+`The New Zealand slang word, dating back to the 1990s, was pulled back into circulation in tributes to the actor, who died on Tuesday.`\
+https://www.nytimes.com/2026/07/18/world/australia/new-zealand-sam-neill-skux-meaning.html
+
+**Corrections: July 18, 2026**\
+`Corrections that appeared in print on Saturday, July 18, 2026.`\
+https://www.nytimes.com/2026/07/18/pageoneplus/corrections-july-18-2026.html
+
 **Halloumi Souvlaki Bowl**\
 `With just a few building blocks — seared halloumi, sautéed chickpeas and yogurty rice— this recipe yields a quick and easy dinner in a bowl.`\
 https://www.nytimes.com/video/dining/100000011038663/halloumi-souvlaki-bowl.html
