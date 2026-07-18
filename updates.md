@@ -1,3 +1,7 @@
+**Your ‘Live’ World Cup Broadcast Is Not Really Live**\
+`Everyone is watching the goals after they happen, and some get them significantly faster.`\
+https://www.nytimes.com/2026/07/18/sports/soccer/world-cup-live-tv-delay.html
+
 **Ketanji Brown Jackson Knows What 1776 Meant**\
 `The revolutionary meaning of the Declaration of Independence did not elude her.`\
 https://www.nytimes.com/2026/07/18/opinion/ketanji-brown-jackson-birthright-citizenship.html
