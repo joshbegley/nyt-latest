@@ -1,3 +1,11 @@
+**Scenic Route**\
+`A summer weekend offers a bounty of daylight that we feel duty-bound to exploit properly. But sometimes the sun-and-fun mandate becomes an unnecessary burden.`\
+https://www.nytimes.com/2026/07/18/briefing/scenic-route.html
+
+**Mamdani Says He May Still Order Netanyahu’s Arrest in ‘The Interview’**\
+`Mayor Zohran Mamdani said he was in “an active conversation” with New York City’s Law Department on whether he had the authority to arrest the Israeli leader.`\
+https://www.nytimes.com/2026/07/18/nyregion/mamdani-netanyahu-interview.html
+
 **Christopher Nolan sobre la proeza épica de filmar ‘La odisea’**\
 `Él y su director de fotografía, Hoyte van Hoytema, combinaron nuevos inventos —como unas luces que imitan el fuego que ellos mismos desarrollaron— con técnicas que existen desde hace un siglo.`\
 https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-imax-como-se-filmo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/movies/100000010926537/odyssey-oppenheimer.html
 **They Were Charged With Assaulting ICE Agents. The Cases Are Crumbling.**\
 `The Trump administration has lost or abandoned hundreds of criminal cases against protesters and immigrants, a Times investigation found.`\
 https://www.nytimes.com/2026/07/18/us/ice-assaults-protesters.html
-
-**Why Is Syracuse, N.Y., Such a Haven for Legendary Writers?**\
-`In the frozen shadows of shuttered factories, icons like Toni Morrison, Raymond Carver and David Foster Wallace created some of their greatest work.`\
-https://www.nytimes.com/2026/07/18/realestate/syracuse-toni-morrison-raymond-carver-david-foster-wallace.html
-
-**Why Gen Z and Millennials Are Embracing ‘Grandma Hobbies’**\
-`In search of calm and community, new generations are learning centuries-old skills.`\
-https://www.nytimes.com/2026/07/18/well/grandma-hobbies-crafts-knitting-quilting.html
 
