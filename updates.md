@@ -1,3 +1,15 @@
+**France vs. England: Who’s No. 3?**\
+`The World Cup third-place game is exciting to almost no one. But they still play it.`\
+https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
+
+**What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
+`The smoke isn’t going away, but where it affects air quality will shift over the next few days.`\
+https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
+
+**How Maine Democrats Intend to Replace Graham Platner**\
+`The state’s Democratic Party must pick Mr. Platner’s replacement by the deadline of July 27.`\
+https://www.nytimes.com/interactive/2026/07/18/us/politics/graham-platner-replacement-democrats.html
+
 **‘The Top Hats Are Saved!’ A Texas Dance Studio Weathers Another Major Flood.**\
 `To CeCe Jean Saunders, it seemed like a once-in-a-lifetime event when her studio in Kerrville, Texas, flooded last year. Then it happened again.`\
 https://www.nytimes.com/2026/07/18/us/kerrville-cheerleading-texas-flood.html

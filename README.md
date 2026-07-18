@@ -1,3 +1,7 @@
+**Su forma de ser me irritaba, justo lo que necesitaba en un hombre**\
+`Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
+https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
+
 **France vs. England: Who’s No. 3?**\
 `The World Cup third-place game is exciting to almost no one. But they still play it.`\
 https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/18/espanol/opinion/messi-argentina-mundial-hi
 **As Trump Scraps With Meloni, His Envoy to Italy Is at Sea**\
 `Tilman J. Fertitta, the U.S. ambassador to Rome, is summering on his superyacht as President Trump squabbles with Prime Minister Giorgia Meloni of Italy.`\
 https://www.nytimes.com/2026/07/18/world/europe/tilman-fertitta-superyacht-italy-ambassador.html
-
-**Quote of the Day: Picking Trash Out of Muck, and Loving It**\
-`Quotation of the Day for Saturday, July 18, 2026.`\
-https://www.nytimes.com/2026/07/18/pageoneplus/quote-of-the-day-picking-trash-out-of-muck-and-loving-it.html
 
