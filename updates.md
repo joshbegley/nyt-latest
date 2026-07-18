@@ -1,3 +1,7 @@
+**A Very British CPAC: Few, if Any, Costumes and Not Much Trump**\
+`London hosted an understated version of the Conservative Political Action Conference, known in the United States for its over-the-top celebration of MAGA causes.`\
+https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
+
 **U.S. Strikes Leave Iranians Isolated and Scared**\
 `Overnight strikes damaged a tunnel and three bridges in Hormozgan Province, the governor’s office said.`\
 https://www.nytimes.com/2026/07/18/world/middleeast/us-iran-war-strikes-bridges-bandar-abbas.html
