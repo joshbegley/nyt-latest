@@ -1,3 +1,7 @@
+**Peak Mango Season Is Upon Us, Thank Goodness**\
+`I’m making mango shortcakes, mango lime loaf cake and mango soft serve.`\
+https://www.nytimes.com/2026/07/18/dining/peak-mango-season-is-upon-us-thank-goodness.html
+
 **Sí, los terapeutas de pareja también pelean con su pareja. Así es como lo hacen**\
 `Estos expertos pasan sus días ayudando a las personas a resolver conflictos. Aquí algunas de sus estrategias.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/consejos-evitar-peleas-parejas.html
