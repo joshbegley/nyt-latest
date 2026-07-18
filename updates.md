@@ -1,3 +1,7 @@
+**A Very British CPAC: No Costumes, and Not Much Trump**\
+`London hosted an understated version of the Conservative Political Action Conference, known in the United States for its over-the-top celebration of MAGA causes.`\
+https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
+
 **Garlic Bread Grilled Cheese, of Course**\
 `The precise sandwich to serve with a plate of juicy tomatoes or crisp cucumbers.`\
 https://www.nytimes.com/2026/07/18/dining/garlic-bread-grilled-cheese-of-course.html

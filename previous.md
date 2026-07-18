@@ -1,3 +1,7 @@
+**A Very British CPAC: No Costumes, and Not Much Trump**\
+`London hosted an understated version of the Conservative Political Action Conference, known in the United States for its over-the-top celebration of MAGA causes.`\
+https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
+
 **Garlic Bread Grilled Cheese, of Course**\
 `The precise sandwich to serve with a plate of juicy tomatoes or crisp cucumbers.`\
 https://www.nytimes.com/2026/07/18/dining/garlic-bread-grilled-cheese-of-course.html
@@ -130,13 +134,13 @@ https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundia
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
 
-**France vs. England: Who’s No. 3?**\
-`The World Cup third-place game is exciting to almost no one. But they still play it.`\
-https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
-
 **What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
 `The smoke isn’t going away, but where it affects air quality will shift over the next few days.`\
 https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
+
+**France vs. England: Who’s No. 3?**\
+`The World Cup third-place game is exciting to almost no one. But they still play it.`\
+https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
 
 **How Maine Democrats Intend to Replace Graham Platner**\
 `The state’s Democratic Party must pick Mr. Platner’s replacement by the deadline of July 27.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/18/world/europe/spain-lamine-yamal.html
 **Tiene 91 años y quiere recorrer el sendero de los Apalaches otra vez**\
 `Dale “Gray Beard” Sanders lleva desde septiembre caminando poco a poco los cerca de 3500 kilómetros del sendero de los Apalaches, en un intento de recuperar su récord como la persona de mayor edad en transitarlo de punta a punta.`\
 https://www.nytimes.com/es/2026/07/18/espanol/senderismo-tercera-edad.html
-
-**Para mejorar como corredor no necesitas tanta información**\
-`Esta es la razón por la que deberías sentirte cómodo dejando tu reloj inteligente en casa.`\
-https://www.nytimes.com/es/2026/07/18/espanol/correr-r.html
 
