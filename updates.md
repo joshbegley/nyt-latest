@@ -1,3 +1,7 @@
+**These 16 Democrats Voted to Stop Israel Aid. AIPAC Took Action.**\
+`After 103 Democrats voted to eliminate aid to Israel, the lobbying group closed off online donations for more than a dozen Democratic lawmakers it had endorsed.`\
+https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-vote.html
+
 **Walt Odets, Who Delved Into the Minds of Gay Men, Dies at 79**\
 `A psychologist, he wrote during the AIDS crisis about survivor’s guilt and depression in his H.I.V.-negative patients.`\
 https://www.nytimes.com/2026/07/18/health/walt-odets-dead.html

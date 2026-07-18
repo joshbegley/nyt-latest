@@ -1,3 +1,7 @@
+**These 16 Democrats Voted to Stop Israel Aid. AIPAC Took Action.**\
+`After 103 Democrats voted to eliminate aid to Israel, the lobbying group closed off online donations for more than a dozen Democratic lawmakers it had endorsed.`\
+https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-vote.html
+
 **Walt Odets, Who Delved Into the Minds of Gay Men, Dies at 79**\
 `A psychologist, he wrote during the AIDS crisis about survivor’s guilt and depression in his H.I.V.-negative patients.`\
 https://www.nytimes.com/2026/07/18/health/walt-odets-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/realestate/post-closing-possession-agreements
 **Robinhood’s Chief on Trump Accounts and Why Trading Isn’t Necessarily Gambling**\
 `Vlad Tenev, the chief executive of the digital brokerage Robinhood, is trying to win over the next generation of Americans with Trump accounts.`\
 https://www.nytimes.com/2026/07/18/business/robinhoods-trump-accounts-trading-gambling.html
-
-**Russia Bill Broadens Sanctions but Could Fuel Fears Over the Dollar**\
-`The Trump administration has recently sought to scale back sanctions as adversaries develop workarounds that some believe could erode the U.S. dollar’s supremacy.`\
-https://www.nytimes.com/2026/07/18/us/politics/russia-bill-sanctions-trump.html
 
