@@ -1,3 +1,7 @@
+**Lionel Messi camina hacia la historia**\
+`Messi no camina porque se haya ido del partido. Camina para entrar en él.`\
+https://www.nytimes.com/es/2026/07/18/espanol/opinion/messi-argentina-mundial-historia.html
+
 **As Trump Scraps With Meloni, His Envoy to Italy Is at Sea**\
 `Tilman J. Fertitta, the U.S. ambassador to Rome, is summering on his superyacht as President Trump squabbles with Prime Minister Giorgia Meloni of Italy.`\
 https://www.nytimes.com/2026/07/18/world/europe/tilman-fertitta-superyacht-italy-ambassador.html

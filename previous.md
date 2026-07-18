@@ -1,3 +1,7 @@
+**Lionel Messi camina hacia la historia**\
+`Messi no camina porque se haya ido del partido. Camina para entrar en él.`\
+https://www.nytimes.com/es/2026/07/18/espanol/opinion/messi-argentina-mundial-historia.html
+
 **As Trump Scraps With Meloni, His Envoy to Italy Is at Sea**\
 `Tilman J. Fertitta, the U.S. ambassador to Rome, is summering on his superyacht as President Trump squabbles with Prime Minister Giorgia Meloni of Italy.`\
 https://www.nytimes.com/2026/07/18/world/europe/tilman-fertitta-superyacht-italy-ambassador.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/business/cyclospora-taylor-farms-lettuce.html
 **How Athletes at the World Cup and Beyond Celebrate Victories: Dances, Doughnuts and Finger Wags**\
 `The World Cup has brought renewed attention to the art of celebration. Here’s a look at all kinds of athletes whose rituals of triumph became part of their legacies.`\
 https://www.nytimes.com/2026/07/17/sports/athletes-victory-celebrations-world-cup.html
-
-**Trump Administration’s Cuts Targeted Wildfire Research**\
-`Labs at the Environmental Protection Agency and the Forest Service have analyzed the effects of wildfires. The administration wants to shutter them.`\
-https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html
 
