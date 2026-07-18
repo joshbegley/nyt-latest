@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/07/18/crosswords/connections-companion-1134.html
 `Prosecutors say Tamara Lich wants a “blank cheque” for international travel, including a cruise, arguing that she is trying to profit from the very protest that got her sentenced.`\
 https://www.nytimes.com/2026/07/18/world/canada/freedom-convoy-ottawa-lich-wildfires.html
 
-**Iran War Live Updates: 2 U.S. Soldiers Killed and 1 Service Member Missing in Iranian Attack on Jordan**\
-`The soldiers were the first U.S. troops to die from hostile fire in the region since an early April truce. U.S. forces launched retaliatory strikes early Sunday in Iran.`\
+**Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
+`The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
 https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
 
