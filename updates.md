@@ -1,3 +1,11 @@
+**Scenic Route**\
+`A summer weekend offers a bounty of daylight that we feel duty-bound to exploit properly. But sometimes the sun-and-fun mandate becomes an unnecessary burden.`\
+https://www.nytimes.com/2026/07/18/briefing/scenic-route.html
+
+**Mamdani Says He May Still Order Netanyahu’s Arrest in ‘The Interview’**\
+`Mayor Zohran Mamdani said he was in “an active conversation” with New York City’s Law Department on whether he had the authority to arrest the Israeli leader.`\
+https://www.nytimes.com/2026/07/18/nyregion/mamdani-netanyahu-interview.html
+
 **Christopher Nolan sobre la proeza épica de filmar ‘La odisea’**\
 `Él y su director de fotografía, Hoyte van Hoytema, combinaron nuevos inventos —como unas luces que imitan el fuego que ellos mismos desarrollaron— con técnicas que existen desde hace un siglo.`\
 https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-imax-como-se-filmo.html
