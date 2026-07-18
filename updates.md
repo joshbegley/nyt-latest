@@ -1,3 +1,15 @@
+**Lillian Roberts, Crusading New York Labor Leader, Dies at 98**\
+`She unionized state hospitals and battled with Mayor Michael R. Bloomberg during her feisty leadership of the nation’s largest municipal workers union.`\
+https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
+
+**Nebraska’s Democratic Senate Nominee Files to Withdraw From Race**\
+`The move by Cindy Burbank could clear a path for Dan Osborn, an independent candidate backed by her party’s leadership. But Republicans have cried foul, and her effort could face obstacles.`\
+https://www.nytimes.com/2026/07/18/us/politics/nebraska-senate-race-democrat-withdraw.html
+
+**Thunderstorms Bring Threat of Flooding and Strong Winds to Northeast**\
+`Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
+https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
+
 **Deaths of 2 U.S. Troops in Jordan Brings American Toll in the War With Iran to 16**\
 `President Trump has vowed to avenge the deaths of any U.S. military personnel, and retaliatory strikes are almost certain.`\
 https://www.nytimes.com/2026/07/18/world/middleeast/us-troops-killed-iran-war-jordan.html

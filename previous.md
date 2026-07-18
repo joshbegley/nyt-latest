@@ -1,3 +1,11 @@
+**Lillian Roberts, Crusading New York Labor Leader, Dies at 98**\
+`She unionized state hospitals and battled with Mayor Michael R. Bloomberg during her feisty leadership of the nation’s largest municipal workers union.`\
+https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
+
+**Nebraska’s Democratic Senate Nominee Files to Withdraw From Race**\
+`The move by Cindy Burbank could clear a path for Dan Osborn, an independent candidate backed by her party’s leadership. But Republicans have cried foul, and her effort could face obstacles.`\
+https://www.nytimes.com/2026/07/18/us/politics/nebraska-senate-race-democrat-withdraw.html
+
 **Deaths of 2 U.S. Troops in Jordan Brings American Toll in the War With Iran to 16**\
 `President Trump has vowed to avenge the deaths of any U.S. military personnel, and retaliatory strikes are almost certain.`\
 https://www.nytimes.com/2026/07/18/world/middleeast/us-troops-killed-iran-war-jordan.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrante
 `Nearly 200 fires continued to devastate swaths of the province as smoke continued to drift across parts of Canada and the United States.`\
 https://www.nytimes.com/2026/07/18/world/canada/ontario-wildfires-smoke-thunder-bay-canada.html
 
-**Thunderstorms Bring Threat of Strong Winds to Northeast**\
+**Thunderstorms Bring Threat of Flooding and Strong Winds to Northeast**\
 `Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
 https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.htm
 **What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
 `The smoke isn’t going away, but where it affects air quality will shift over the next few days. Conditions were improving Saturday for parts of the Northeast, a forecaster said.`\
 https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
-
-**How Maine Democrats Intend to Replace Graham Platner**\
-`The state’s Democratic Party must pick Mr. Platner’s replacement by the deadline of July 27.`\
-https://www.nytimes.com/interactive/2026/07/18/us/politics/graham-platner-replacement-democrats.html
-
-**‘The Top Hats Are Saved!’ A Texas Dance Studio Weathers Another Major Flood.**\
-`To CeCe Jean Saunders, it seemed like a once-in-a-lifetime event when her studio in Kerrville, Texas, flooded last year. Then it happened again.`\
-https://www.nytimes.com/2026/07/18/us/kerrville-cheerleading-texas-flood.html
 
