@@ -1,3 +1,7 @@
+**Uproar Over Surrogate Baby Prompts German Official’s Sudden Resignation**\
+`Jens Spahn, a top leader of Chancellor Friedrich Merz’s party, resigned his post after announcing having had a baby by surrogate, which is illegal in Germany.`\
+https://www.nytimes.com/2026/07/18/world/europe/jens-spahn-surrogacy-germany.html
+
 **Taylor Farms Expands Iceberg Lettuce Recall to 27 States Amid Cyclospora Outbreak**\
 `The implicated products were marketed under several brands, and had been shipped as recently as Thursday.`\
 https://www.nytimes.com/2026/07/18/health/taylor-farms-iceberg-lettuce-recall.html
