@@ -1,3 +1,11 @@
+**How Trump Is Using Federal Agencies to Target Elections**\
+`Nick Corasaniti, a Politics reporter, explains how the Trump administration is deploying federal agencies to investigate and reshape electoral processes under state jurisdiction.`\
+https://www.nytimes.com/video/us/elections/100000011037521/how-trump-is-using-federal-agencies-to-target-elections.html
+
+**U.S. Forest Service Employees Are Freed After 15-Hour Hostage Ordeal**\
+`The authorities said a man and his son held two employees at gunpoint in a trailer at Shasta-Trinity National Forest in Northern California.`\
+https://www.nytimes.com/2026/07/17/us/forest-service-hostage-california.html
+
 **First Patient Dies of Legionnaires’ Disease After New York Outbreak**\
 `New York City’s Health Department is still seeking to identify the source of an outbreak on the Upper East Side that has infected 67 people.`\
 https://www.nytimes.com/2026/07/17/nyregion/first-legionnaires-death-ues.html

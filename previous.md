@@ -1,3 +1,11 @@
+**How Trump Is Using Federal Agencies to Target Elections**\
+`Nick Corasaniti, a Politics reporter, explains how the Trump administration is deploying federal agencies to investigate and reshape electoral processes under state jurisdiction.`\
+https://www.nytimes.com/video/us/elections/100000011037521/how-trump-is-using-federal-agencies-to-target-elections.html
+
+**U.S. Forest Service Employees Are Freed After 15-Hour Hostage Ordeal**\
+`The authorities said a man and his son held two employees at gunpoint in a trailer at Shasta-Trinity National Forest in Northern California.`\
+https://www.nytimes.com/2026/07/17/us/forest-service-hostage-california.html
+
 **First Patient Dies of Legionnaires’ Disease After New York Outbreak**\
 `New York City’s Health Department is still seeking to identify the source of an outbreak on the Upper East Side that has infected 67 people.`\
 https://www.nytimes.com/2026/07/17/nyregion/first-legionnaires-death-ues.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/17/business/china-ai-moonshot-kimi.html
 **When Will the Smoke End? Our Meteorologist Explains Why It’s Complicated.**\
 `The interplay between the burning fires, the smoke itself and quickly changing weather patterns is making the next few days more uncertain than usual.`\
 https://www.nytimes.com/2026/07/17/weather/smoke-forecast.html
-
-**Why Cyclospora Cases Are Probably Higher Than You Think**\
-`The United States is in the midst of its worst year yet for cyclosporiasis, an intestinal illness caused by a parasite transmitted through food or water contaminated with feces. Julia Calderone, an associate editor for Well, explains how Times reporters have been tracking the outbreak.`\
-https://www.nytimes.com/video/well/100000011033847/why-cyclospora-cases-are-probably-higher-than-you-think.html
-
-**Man Sought in Minnesota Fraud Case Returned From Somalia**\
-`Abdikerm Eidleh, whom the authorities sought for nearly four years, faces charges in the state’s sprawling social services fraud case, which has drawn the Trump administration’s attention.`\
-https://www.nytimes.com/2026/07/17/us/minnesota-fraud-extradited-somalia.html
 
