@@ -166,8 +166,8 @@ https://www.nytimes.com/2026/07/18/world/canada/freedom-convoy-ottawa-lich-wildf
 `Scroll down for hints and conversation about the puzzle for Sunday, July 19, 2026.`\
 https://www.nytimes.com/2026/07/18/crosswords/strands-sidekick-868.html
 
-**Iran War Live Updates: 2 U.S. Service Members Killed and 1 Missing in Iranian Attack on Jordan**\
-`They were the first U.S. troops to die from hostile fire in the region since an early April truce. The deaths came as both sides expanded the scope and intensity of their attacks.`\
+**Iran War Live Updates: 2 U.S. Soldiers Killed and 1 Service Member Missing in Iranian Attack on Jordan**\
+`The soldiers were the first U.S. troops to die from hostile fire in the region since an early April truce. The deaths came as both sides expanded the scope and intensity of their attacks.`\
 https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
 
 **Zohran Mamdani Knows He Has Political Capital. And He Intends to Spend It.**\

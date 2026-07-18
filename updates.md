@@ -1,3 +1,7 @@
+**Iran War Live Updates: 2 U.S. Soldiers Killed and 1 Service Member Missing in Iranian Attack on Jordan**\
+`The soldiers were the first U.S. troops to die from hostile fire in the region since an early April truce. The deaths came as both sides expanded the scope and intensity of their attacks.`\
+https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
+
 **Lillian Roberts, Crusading New York Labor Leader, Dies at 98**\
 `She unionized state hospitals and battled with Mayor Michael R. Bloomberg during her feisty leadership of the nation’s largest municipal workers union.`\
 https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
