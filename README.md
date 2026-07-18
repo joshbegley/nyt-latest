@@ -1,3 +1,7 @@
+**The Evolution of Presidential Travel: Horse Carriages to Air Force One**\
+`From horse-drawn presidential coaches to Air Force One, presidents have used various modes of transportation to project an image of America for nearly 250 years.`\
+https://www.nytimes.com/2026/07/18/us/politics/trump-air-force-one-travel.html
+
 **Most Forest Fires in Canada Are Simply Impossible to Put Out**\
 `Half of Canada’s wildfires are in remote areas with no road access. Impossible to fight, they are often left to burn.`\
 https://www.nytimes.com/2026/07/18/world/canada/wildfires-canada-fire-fighting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/arts/hottest-summer-blockbuster-movies-sketch
 **What Will You Do in Retirement? Your Money Depends on It.**\
 `Workers often focus solely on their retirement savings balance. But figuring out how you want to spend the rest of your life could be job No. 1.`\
 https://www.nytimes.com/2026/07/18/business/retirement-plan.html
-
-**Iqaluit, Canada’s Most Northern City, Gets Its First Bus Line**\
-`Jacinto Marques left Angola for Canada’s frozen edge. Now he’s running a bus service in Iqaluit, the largest, and only city in Canada’s Arctic.`\
-https://www.nytimes.com/2026/07/18/world/canada/iqaluit-arctic-city-bus.html
 
