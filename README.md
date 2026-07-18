@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/07/18/opinion/ketanji-brown-jackson-birthright-citi
 `تلاش چندین ساله  اسرائیل برای تبدیل رئیس جمهور پیشین ایران به یک مهره اطلاعاتی در روزهای نخست جنگ به عملیاتی پیچیده برای انتقال او به خانه امن سازمان موساد در ایران منجر شد. اما این نقشه به شکست انجامید.`\
 https://www.nytimes.com/fa/2026/07/18/world/middleeast/israel-mahmoud-ahmadinejad-iran-farsi.html
 
-**A Very British CPAC: No Costumes, and Not Much Trump**\
+**A Very British CPAC: Few, if Any, Costumes and Not Much Trump**\
 `London hosted an understated version of the Conservative Political Action Conference, known in the United States for its over-the-top celebration of MAGA causes.`\
 https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
 
