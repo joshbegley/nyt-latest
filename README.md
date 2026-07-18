@@ -1,4 +1,4 @@
-**Taylor Farms Expands Iceberg Lettuce Recall to 27 States**\
+**Taylor Farms Expands Iceberg Lettuce Recall to 27 States Amid Cyclospora Outbreak**\
 `The implicated products were marketed under several brands, and had been shipped as recently as Thursday.`\
 https://www.nytimes.com/2026/07/18/health/taylor-farms-iceberg-lettuce-recall.html
 
