@@ -1,3 +1,7 @@
+**Adidas Hopes Its World Cup Moment Can Drive U.S. Sales**\
+`Nearly everything on the pitch on Sunday will bear the German company’s logo. Bjørn Gulden, the chief executive, says he ‘couldn’t have scripted it better.’`\
+https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
+
 **Two U.S. Service Members Killed In Iranian Strike, U.S. Military Says**\
 `Iran struck a military base in Jordan on Friday, killing two U.S. service members, according to the U.S. military. Sixteen military personnel have died in the war since the U.S. and Israel launched attacks on Iran in February.`\
 https://www.nytimes.com/video/world/middleeast/100000011039720/us-troops-killed-iran-war-jordan.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/18/crosswords/connections-companion-1134.html
 **Freedom Convoy Leader, Under House Arrest, Wants to Visit the White House**\
 `Prosecutors say Tamara Lich wants a “blank cheque” for international travel, including a cruise, arguing that she is trying to profit from the very protest that got her sentenced.`\
 https://www.nytimes.com/2026/07/18/world/canada/freedom-convoy-ottawa-lich-wildfires.html
-
-**NYT Strands Hints for July 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 19, 2026.`\
-https://www.nytimes.com/2026/07/18/crosswords/strands-sidekick-868.html
 
 **Iran War Live Updates: 2 U.S. Soldiers Killed and 1 Service Member Missing in Iranian Attack on Jordan**\
 `The soldiers were the first U.S. troops to die from hostile fire in the region since an early April truce. The deaths came as both sides expanded the scope and intensity of their attacks.`\
