@@ -1,3 +1,11 @@
+**Joe Melson, 91, Dies; Wrote ‘Only the Lonely’ and Other Hits With Roy Orbison**\
+`Working together closely, the pair turned out more than 200 songs, including “Crying,” “Running Scared” and “Blue Bayou.”`\
+https://www.nytimes.com/2026/07/18/arts/music/joe-melson-dead.html
+
+**Ukraine’s Top General Becomes a Target of Protesters’ Anger**\
+`Demonstrators supporting Ukraine’s ousted defense minister have begun denouncing the commander he clashed with in office, Gen. Oleksandr Syrskyi.`\
+https://www.nytimes.com/2026/07/18/world/europe/ukraine-protests-general-syrskyi-fedorov.html
+
 **Lamine Yamal, astro de fútbol e hijo de migrantes, personifica una España cambiante**\
 `Mientras se prepara para la final del Mundial, Yamal, de 19 años, está en el centro de un debate nacional sobre lo que significa ser español en una sociedad cada vez más multicultural.`\
 https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrantes.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/18/us/kerrville-cheerleading-texas-flood.html
 **ICE Agent Defended Shooting of Immigrant in Maine, Ex-Wife Says**\
 `The agent, whose identity has not been confirmed by officials, has a history of abusive and frightening behavior, according to a former wife and others who knew him.`\
 https://www.nytimes.com/2026/07/18/us/david-brouillette-ice-agent-maine.html
-
-**Zohran Mamdani on His Call From Kamala Harris**\
-`On “The Interview,” Zohran Mamdani, mayor of New York City, discussed a recent conversation he had with former Vice President Kamala Harris and the issue of human rights for Palestinians.`\
-https://www.nytimes.com/video/podcasts/100000011035970/zohran-mamdani-on-his-call-from-kamala-harris.html
-
-**Zohran Mamdani: ‘Netanyahu Belongs in the Hague’**\
-`On “The Interview,” Zohran Mamdani, mayor of New York City, answered questions about how he would handle a visit from Benjamin Netanyahu, the prime minister of Israel.`\
-https://www.nytimes.com/video/podcasts/100000011035987/zohran-mamdani-netanyahu-belongs-in-the-hague.html
 

@@ -1,3 +1,11 @@
+**Joe Melson, 91, Dies; Wrote ‘Only the Lonely’ and Other Hits With Roy Orbison**\
+`Working together closely, the pair turned out more than 200 songs, including “Crying,” “Running Scared” and “Blue Bayou.”`\
+https://www.nytimes.com/2026/07/18/arts/music/joe-melson-dead.html
+
+**Ukraine’s Top General Becomes a Target of Protesters’ Anger**\
+`Demonstrators supporting Ukraine’s ousted defense minister have begun denouncing the commander he clashed with in office, Gen. Oleksandr Syrskyi.`\
+https://www.nytimes.com/2026/07/18/world/europe/ukraine-protests-general-syrskyi-fedorov.html
+
 **Lamine Yamal, astro de fútbol e hijo de migrantes, personifica una España cambiante**\
 `Mientras se prepara para la final del Mundial, Yamal, de 19 años, está en el centro de un debate nacional sobre lo que significa ser español en una sociedad cada vez más multicultural.`\
 https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrantes.html

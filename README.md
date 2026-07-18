@@ -1,3 +1,7 @@
+**Deaths of 2 U.S. Troops in Jordan Brings American Toll in the War With Iran to 16**\
+`President Trump has vowed to avenge the deaths of any U.S. military personnel, and retaliatory strikes are almost certain.`\
+https://www.nytimes.com/2026/07/18/world/middleeast/us-troops-killed-iran-war-jordan.html
+
 **Joe Melson, 91, Dies; Wrote ‘Only the Lonely’ and Other Hits With Roy Orbison**\
 `Working together closely, the pair turned out more than 200 songs, including “Crying,” “Running Scared” and “Blue Bayou.”`\
 https://www.nytimes.com/2026/07/18/arts/music/joe-melson-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/07/18/us/politics/graham-platner-replac
 **‘The Top Hats Are Saved!’ A Texas Dance Studio Weathers Another Major Flood.**\
 `To CeCe Jean Saunders, it seemed like a once-in-a-lifetime event when her studio in Kerrville, Texas, flooded last year. Then it happened again.`\
 https://www.nytimes.com/2026/07/18/us/kerrville-cheerleading-texas-flood.html
-
-**ICE Agent Defended Shooting of Immigrant in Maine, Ex-Wife Says**\
-`The agent, whose identity has not been confirmed by officials, has a history of abusive and frightening behavior, according to a former wife and others who knew him.`\
-https://www.nytimes.com/2026/07/18/us/david-brouillette-ice-agent-maine.html
 
