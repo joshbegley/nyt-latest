@@ -1,3 +1,7 @@
+**Walt Odets, Who Delved Into the Minds of Gay Men, Dies at 79**\
+`A psychologist, he wrote during the AIDS crisis about survivor’s guilt and depression in his H.I.V.-negative patients.`\
+https://www.nytimes.com/2026/07/18/health/walt-odets-dead.html
+
 **The Job Market Is a Game Where Everyone’s a Loser**\
 `A.I. is destroying the application process for employers and potential employees. We need to fix it.`\
 https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/business/robinhoods-trump-accounts-trading-ga
 **Russia Bill Broadens Sanctions but Could Fuel Fears Over the Dollar**\
 `The Trump administration has recently sought to scale back sanctions as adversaries develop workarounds that some believe could erode the U.S. dollar’s supremacy.`\
 https://www.nytimes.com/2026/07/18/us/politics/russia-bill-sanctions-trump.html
-
-**Blockbuster Summer Movies for the Hottest Summer Ever**\
-`“Iron Man 4: Age of Air Con” coming to theaters? With record-setting heat projected for 2026, our cartoonist imagines a cool slate of films.`\
-https://www.nytimes.com/2026/07/18/arts/hottest-summer-blockbuster-movies-sketch.html
 
