@@ -1,5 +1,13 @@
 **U.S. Strikes Leave Iranians Isolated and Scared**\
 `Overnight strikes damaged a tunnel and three bridges in Hormozgan Province, the governor’s office said.`\
+https://www.nytimes.com/2026/07/18/world/middleeast/us-iran-war-strikes-bridges-bandar-abbas.html
+
+**What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
+`The smoke isn’t going away, but where it affects air quality will shift over the next few days. Conditions were improving Saturday for parts of the Northeast, a forecaster said.`\
+https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
+
+**U.S. Strikes Leave Iranians Isolated and Scared**\
+`Overnight strikes damaged a tunnel and three bridges in Hormozgan Province, the governor’s office said.`\
 https://www.nytimes.com/2026/07/18/world/middleeast/us-strikes-roads-iranians-daily-life.html
 
 **Your ‘Live’ World Cup Broadcast Is Not Really Live**\
