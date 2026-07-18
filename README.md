@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
 https://www.nytimes.com/2026/07/18/us/politics/nebraska-senate-race-democrat-withdraw.html
 
 **Deaths of 2 U.S. Troops in Jordan Brings American Toll in the War With Iran to 16**\
-`President Trump has vowed to avenge the deaths of any U.S. military personnel, and retaliatory strikes are almost certain.`\
+`President Trump vowed to avenge the deaths of any U.S. military personnel.`\
 https://www.nytimes.com/2026/07/18/world/middleeast/us-troops-killed-iran-war-jordan.html
 
 **Joe Melson, 91, Dies; Wrote ‘Only the Lonely’ and Other Hits With Roy Orbison**\
@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/07/18/crosswords/connections-companion-1134.html
 https://www.nytimes.com/2026/07/18/world/canada/freedom-convoy-ottawa-lich-wildfires.html
 
 **Iran War Live Updates: 2 U.S. Soldiers Killed and 1 Service Member Missing in Iranian Attack on Jordan**\
-`The soldiers were the first U.S. troops to die from hostile fire in the region since an early April truce. The deaths came as both sides expanded the scope and intensity of their attacks.`\
+`The soldiers were the first U.S. troops to die from hostile fire in the region since an early April truce. U.S. forces launched retaliatory strikes early Sunday in Iran.`\
 https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
 

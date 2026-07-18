@@ -1,4 +1,8 @@
 **Adidas Hopes Its World Cup Moment Can Drive U.S. Sales**\
+`Nearly everything on the field on Sunday will bear the German company’s logo. Bjørn Gulden, the chief executive, says he ‘couldn’t have scripted it better.’`\
+https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
+
+**Adidas Hopes Its World Cup Moment Can Drive U.S. Sales**\
 `Nearly everything on the pitch on Sunday will bear the German company’s logo. Bjørn Gulden, the chief executive, says he ‘couldn’t have scripted it better.’`\
 https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
 
