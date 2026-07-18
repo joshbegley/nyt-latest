@@ -1,3 +1,7 @@
+**First Patient Dies of Legionnaires’ Disease After New York Outbreak**\
+`New York City’s Health Department is still seeking to identify the source of an outbreak on the Upper East Side that has infected 67 people.`\
+https://www.nytimes.com/2026/07/17/nyregion/first-legionnaires-death-ues.html
+
 **7 Americans Sent to Disputed Kenya Ebola Site After New Trump Travel Ban**\
 `The aid workers were on the frontline in the fight against the outbreak in the Democratic Republic of Congo and have shown no symptoms, their employer said.`\
 https://www.nytimes.com/2026/07/17/world/africa/ebola-kenya-americans-quarantine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/well/100000011033847/why-cyclospora-cases-are-prob
 **Man Sought in Minnesota Fraud Case Returned From Somalia**\
 `Abdikerm Eidleh, whom the authorities sought for nearly four years, faces charges in the state’s sprawling social services fraud case, which has drawn the Trump administration’s attention.`\
 https://www.nytimes.com/2026/07/17/us/minnesota-fraud-extradited-somalia.html
-
-**Mullin Vows to Keep Up Immigration Arrests Even After ICE Shootings**\
-`The homeland security secretary made clear that he would seek to deliver on President Trump’s push for mass deportations.`\
-https://www.nytimes.com/2026/07/17/us/politics/mullin-ice-shootings-arrests.html
 
