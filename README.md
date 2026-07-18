@@ -1,3 +1,7 @@
+**Indian Activist on Hunger Strike Is Forcibly Removed by Police**\
+`The activist, Sonam Wangchuk, started his strike last month as part of a protest over educational mismanagement that has affected millions of students.`\
+https://www.nytimes.com/2026/07/18/world/asia/sonam-wangchuk-hunger-strike-delhi-police.html
+
 **Un meteorito cayó en una casa en Nueva Jersey. Es un tesoro para la ciencia**\
 `Una pareja de Nueva Jersey ayudó a los científicos a descubrir la composición de un asteroide inusual después de que cayera en su habitación.`\
 https://www.nytimes.com/es/2026/07/18/espanol/ciencia-y-tecnologia/meteorito.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/world/europe/ukraine-fedorov-defense-minister
 **Karim Khan’s Accuser Breaks Silence on Alleged Sexual Misconduct at I.C.C.**\
 `Karim Khan, the chief prosecutor at the International Criminal Court, has denied the accusations. He faces a vote next week that will determine whether he keeps his job.`\
 https://www.nytimes.com/2026/07/17/world/europe/karim-khan-icc-accusations.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/opinion/editorials/100000011038728/anewinferno-cine.html
 
