@@ -1,3 +1,7 @@
+**Grabber**\
+`Ryan Judge’s latest themeless puzzle has a bite to it!`\
+https://www.nytimes.com/2026/07/17/crosswords/daily-puzzle-2026-07-18.html
+
 **Rhode Island Man Who Fled 2005 Rape Trial Is Arrested in New York**\
 `Ronald L. Fischer vanished just before he was convicted. After more than 20 years on the run, he was arrested on a sailboat in the East River, the authorities said.`\
 https://www.nytimes.com/2026/07/17/us/rhode-island-ronald-fischer-nj-yacht-arrest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/17/world/middleeast/israeli-strike-gaza-kills-ei
 **La atmósfera de un planeta cercano es similar a la Tierra**\
 `Es el primer planeta conocido potencialmente habitable con una atmósfera, y refuerza la idea de que existen mundos similares al nuestro con los elementos necesarios para sustentar la vida.`\
 https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habitable-atmosfera-tierra.html
-
-**China’s Moonshot AI Unveils Kimi Model, Threatening America’s Lead**\
-`China’s Moonshot AI unveiled a freely available artificial intelligence model that seemed to narrow the gap with cutting-edge offerings from U.S. tech companies.`\
-https://www.nytimes.com/2026/07/17/business/china-ai-moonshot-kimi.html
 

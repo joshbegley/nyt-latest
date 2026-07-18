@@ -1,3 +1,7 @@
+**Grabber**\
+`Ryan Judge’s latest themeless puzzle has a bite to it!`\
+https://www.nytimes.com/2026/07/17/crosswords/daily-puzzle-2026-07-18.html
+
 **Rhode Island Man Who Fled 2005 Rape Trial Is Arrested in New York**\
 `Ronald L. Fischer vanished just before he was convicted. After more than 20 years on the run, he was arrested on a sailboat in the East River, the authorities said.`\
 https://www.nytimes.com/2026/07/17/us/rhode-island-ronald-fischer-nj-yacht-arrest.html
