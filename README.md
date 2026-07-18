@@ -1,3 +1,7 @@
+**Peak Mango Season Is Upon Us, Thank Goodness**\
+`I’m making mango shortcakes, mango lime loaf cake and mango soft serve.`\
+https://www.nytimes.com/2026/07/18/dining/peak-mango-season-is-upon-us-thank-goodness.html
+
 **Sí, los terapeutas de pareja también pelean con su pareja. Así es como lo hacen**\
 `Estos expertos pasan sus días ayudando a las personas a resolver conflictos. Aquí algunas de sus estrategias.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/consejos-evitar-peleas-parejas.html
@@ -114,13 +118,13 @@ https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundia
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
 
-**France vs. England: Who’s No. 3?**\
-`The World Cup third-place game is exciting to almost no one. But they still play it.`\
-https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
-
 **What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
 `The smoke isn’t going away, but where it affects air quality will shift over the next few days.`\
 https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
+
+**France vs. England: Who’s No. 3?**\
+`The World Cup third-place game is exciting to almost no one. But they still play it.`\
+https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
 
 **How Maine Democrats Intend to Replace Graham Platner**\
 `The state’s Democratic Party must pick Mr. Platner’s replacement by the deadline of July 27.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/climate/watch-duty-floods-fires-disasters.htm
 **Saxophones Getting Louder? The Meaning Behind the TikTok Trend**\
 `A pervasive tune on TikTok is used to underscore uh-oh moments. It comes from the 1991 film “Boyz N the Hood.”`\
 https://www.nytimes.com/2026/07/18/style/saxophones-getting-louder-tiktok.html
-
-**Is Post-Closing Possession a Terrible Idea?**\
-`Sometimes sellers want to stay in a home for a little while after the deal is done.`\
-https://www.nytimes.com/2026/07/18/realestate/post-closing-possession-agreements.html
 
