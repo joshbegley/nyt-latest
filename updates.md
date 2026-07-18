@@ -1,3 +1,7 @@
+**Lamine Yamal, astro de fútbol e hijo de migrantes, personifica una España cambiante**\
+`Mientras se prepara para la final del Mundial, Yamal, de 19 años, está en el centro de un debate nacional sobre lo que significa ser español en una sociedad cada vez más multicultural.`\
+https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrantes.html
+
 **Yamal, astro de fútbol e hijo de migrantes, personifica una España cambiante**\
 `Mientras se prepara para la final del Mundial, Lamine Yamal, de 19 años, está en el centro de un debate nacional sobre lo que significa ser español en una sociedad cada vez más multicultural.`\
 https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrantes.html
