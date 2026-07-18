@@ -1,3 +1,11 @@
+**Ketanji Brown Jackson Knows What 1776 Meant**\
+`The revolutionary meaning of the Declaration of Independence did not elude her.`\
+https://www.nytimes.com/2026/07/18/opinion/ketanji-brown-jackson-birthright-citizenship.html
+
+**پشت پرده عملیات محرمانه اسرائیل برای جذب همکاری احمدی نژاد**\
+`تلاش چندین ساله  اسرائیل برای تبدیل رئیس جمهور پیشین ایران به یک مهره اطلاعاتی در روزهای نخست جنگ به عملیاتی پیچیده برای انتقال او به خانه امن سازمان موساد در ایران منجر شد. اما این نقشه به شکست انجامید.`\
+https://www.nytimes.com/fa/2026/07/18/world/middleeast/israel-mahmoud-ahmadinejad-iran-farsi.html
+
 **A Very British CPAC: No Costumes, and Not Much Trump**\
 `London hosted an understated version of the Conservative Political Action Conference, known in the United States for its over-the-top celebration of MAGA causes.`\
 https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/18/us/politics/platner-voters-maine-senate.html
 **Zohran Mamdani: My Wife Is ‘an Oasis’**\
 `On “The Interview,” Zohran Mamdani talked about how he and his wife, Rama Duwaji, are navigating their lives now that he is mayor of New York.`\
 https://www.nytimes.com/video/podcasts/100000011035743/zohran-mamdani-my-wife-is-an-oasis.html
-
-**Lamine Yamal, Soccer Star and Son of African Migrants, Personifies a Changing Spain**\
-`As he prepares for the World Cup final, Lamine Yamal, 19, is at the heart of a national debate about what it means to be Spanish in an increasingly multicultural society.`\
-https://www.nytimes.com/2026/07/18/world/europe/spain-lamine-yamal.html
-
-**Tiene 91 años y quiere recorrer el sendero de los Apalaches otra vez**\
-`Dale “Gray Beard” Sanders lleva desde septiembre caminando poco a poco los cerca de 3500 kilómetros del sendero de los Apalaches, en un intento de recuperar su récord como la persona de mayor edad en transitarlo de punta a punta.`\
-https://www.nytimes.com/es/2026/07/18/espanol/senderismo-tercera-edad.html
 
