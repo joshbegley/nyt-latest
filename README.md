@@ -1,3 +1,7 @@
+**Why Jordan Is Becoming a New Focus in the U.S.-Iran War**\
+`Four Iranian attacks in five days have targeted U.S. troops in Jordan, U.S. officials said, including one on Friday that killed two soldiers and left another service member missing.`\
+https://www.nytimes.com/2026/07/18/world/middleeast/iran-war-jordan-attacks.html
+
 **Madison Square Garden Sues Wired Magazine Over L.G.B.T.Q. Tracking Report**\
 `The Manhattan venue claims a July article from the technology magazine falsely implied that it tracked information about some celebrities’ sexual orientation for “discriminatory purposes.”`\
 https://www.nytimes.com/2026/07/18/business/media/msg-entertainment-sues-wired-magazine.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrante
 https://www.nytimes.com/2026/07/18/world/canada/ontario-wildfires-smoke-thunder-bay-canada.html
 
 **Thunderstorms Bring Threat of Flooding and Strong Winds to Northeast**\
-`Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
+`Forecasters warned of winds over 70 miles per hour in New York City,  Philadelphia, Baltimore and Washington.`\
 https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
 
 **Mike Lindell Not Registered to Vote in Minnesota, Where He is Running for Governor**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/18/magazine/zohran-mamdani-interview.html
 **Lo que hay que saber antes de ver ‘La odisea’**\
 `La adaptación de Christopher Nolan del poema épico de Homero cuenta con batallas contra monstruos, una hechicera y decenas de pretendientes sedientos. Aquí tienes una guía básica.`\
 https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-matt-damon.html
-
-**Francia vs. Inglaterra: el odiado partido por el tercer lugar**\
-`El juego por el tercer lugar del Mundial se remonta a 1934. Algunos de esos encuentros han pasado a la historia, como el emocionante 6-3 entre Francia y Alemania Occidental en 1958. Pero la mayoría han caído en el olvido.`\
-https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundial-tercer-lugar.html
 

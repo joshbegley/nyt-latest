@@ -1,3 +1,7 @@
+**Madison Square Garden Sues Wired Magazine Over L.G.B.T.Q. Tracking Report**\
+`The Manhattan venue claims a July article from the technology magazine falsely implied that it tracked information about some celebrities’ sexual orientation for “discriminatory purposes.”`\
+https://www.nytimes.com/2026/07/18/business/media/msg-entertainment-sues-wired-magazine.html
+
 **Canada Wildfires: What to Know**\
 `Hundreds of wildfires in Canada and the United States have blanketed large sections of North America in dense smoke over the past week.`\
 https://www.nytimes.com/2026/07/18/world/canada/canada-wildfires-what-to-know.html
