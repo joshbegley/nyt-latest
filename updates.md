@@ -1,3 +1,15 @@
+**Ketanji Brown Jackson Knows What 1776 Meant**\
+`The revolutionary meaning of the Declaration of Independence did not elude her.`\
+https://www.nytimes.com/2026/07/18/opinion/ketanji-brown-jackson-birthright-citizenship.html
+
+**پشت پرده عملیات محرمانه اسرائیل برای جذب همکاری احمدی نژاد**\
+`تلاش چندین ساله  اسرائیل برای تبدیل رئیس جمهور پیشین ایران به یک مهره اطلاعاتی در روزهای نخست جنگ به عملیاتی پیچیده برای انتقال او به خانه امن سازمان موساد در ایران منجر شد. اما این نقشه به شکست انجامید.`\
+https://www.nytimes.com/fa/2026/07/18/world/middleeast/israel-mahmoud-ahmadinejad-iran-farsi.html
+
+**Uproar Over Surrogate Baby Prompts German Official’s Sudden Resignation**\
+`Jens Spahn, a top leader of Chancellor Friedrich Merz’s party, resigned his post after announcing that he had a baby by surrogate, which is illegal in Germany.`\
+https://www.nytimes.com/2026/07/18/world/europe/jens-spahn-surrogacy-germany.html
+
 **A Very British CPAC: No Costumes, and Not Much Trump**\
 `London hosted an understated version of the Conservative Political Action Conference, known in the United States for its over-the-top celebration of MAGA causes.`\
 https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
