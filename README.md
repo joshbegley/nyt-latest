@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrante
 `Nearly 200 fires continued to devastate swaths of the province as smoke continued to drift across parts of Canada and the United States.`\
 https://www.nytimes.com/2026/07/18/world/canada/ontario-wildfires-smoke-thunder-bay-canada.html
 
-**Thunderstorms Bring Threat of Strong Winds to Northeast**\
+**Thunderstorms Bring Threat of Flooding and Strong Winds to Northeast**\
 `Forecasters warned of winds over 70 miles per hour in New York City and Philadelphia.`\
 https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
 

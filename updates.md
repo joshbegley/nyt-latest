@@ -1,3 +1,7 @@
+**Deaths of 2 U.S. Troops in Jordan Brings American Toll in the War With Iran to 16**\
+`President Trump has vowed to avenge the deaths of any U.S. military personnel, and retaliatory strikes are almost certain.`\
+https://www.nytimes.com/2026/07/18/world/middleeast/us-troops-killed-iran-war-jordan.html
+
 **Joe Melson, 91, Dies; Wrote ‘Only the Lonely’ and Other Hits With Roy Orbison**\
 `Working together closely, the pair turned out more than 200 songs, including “Crying,” “Running Scared” and “Blue Bayou.”`\
 https://www.nytimes.com/2026/07/18/arts/music/joe-melson-dead.html
