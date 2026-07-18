@@ -1,3 +1,7 @@
+**Sara Rodriguez, Lieutenant Governor, Quits Wisconsin Governor’s Race**\
+`One establishment candidate dropped out and another rejoined the race amid worries from some moderate Democrats that a democratic socialist might win the primary.`\
+https://www.nytimes.com/2026/07/17/us/sara-rodriguez-wisconsin-governor-drop-out.html
+
 **How Trump Is Using Federal Agencies to Target Elections**\
 `Nick Corasaniti, a Politics reporter, explains how the Trump administration is deploying federal agencies to investigate and reshape electoral processes under state jurisdiction.`\
 https://www.nytimes.com/video/us/elections/100000011037521/how-trump-is-using-federal-agencies-to-target-elections.html
