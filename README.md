@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/07/18/world/canada/freedom-convoy-ottawa-lich-wildf
 https://www.nytimes.com/2026/07/18/crosswords/strands-sidekick-868.html
 
 **Iran War Live Updates: Fighting Intensifies With Strikes on Critical Infrastructure**\
-`In the days since the cease-fire unraveled, the U.S. and Iran have expanded the scope of their attacks, with reports of water facilities and other structures coming under fire.`\
+`In the days since the cease-fire unraveled, the United States and Iran have expanded the scope of their attacks, with reports of water facilities and other structures coming under fire.`\
 https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
 
 **Zohran Mamdani Knows He Has Political Capital. And He Intends to Spend It.**\
