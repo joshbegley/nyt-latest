@@ -1,3 +1,7 @@
+**Yamal, astro de fútbol e hijo de migrantes, personifica una España cambiante**\
+`Mientras se prepara para la final del Mundial, Lamine Yamal, de 19 años, está en el centro de un debate nacional sobre lo que significa ser español en una sociedad cada vez más multicultural.`\
+https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrantes.html
+
 **Mamdani Says He May Still Order Israeli Prime Minister Netanyahu’s Arrest in NYC**\
 `Mayor Zohran Mamdani said in an interview with The New York Times that he was in “an active conversation” with New York City’s Law Department on whether he had the authority to arrest the Israeli leader.`\
 https://www.nytimes.com/2026/07/18/nyregion/mamdani-netanyahu-interview.html
