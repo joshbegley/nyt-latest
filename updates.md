@@ -1,3 +1,11 @@
+**Why Jordan Is Becoming a New Focus in the U.S.-Iran War**\
+`Four Iranian attacks in five days have targeted U.S. troops in Jordan, U.S. officials said, including one on Friday that killed two soldiers and left another service member missing.`\
+https://www.nytimes.com/2026/07/18/world/middleeast/iran-war-jordan-attacks.html
+
+**Thunderstorms Bring Threat of Flooding and Strong Winds to Northeast**\
+`Forecasters warned of winds over 70 miles per hour in New York City,  Philadelphia, Baltimore and Washington.`\
+https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
+
 **Madison Square Garden Sues Wired Magazine Over L.G.B.T.Q. Tracking Report**\
 `The Manhattan venue claims a July article from the technology magazine falsely implied that it tracked information about some celebrities’ sexual orientation for “discriminatory purposes.”`\
 https://www.nytimes.com/2026/07/18/business/media/msg-entertainment-sues-wired-magazine.html
