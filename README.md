@@ -1,3 +1,15 @@
+**Halloumi Souvlaki Bowl**\
+`With just a few building blocks — seared halloumi, sautéed chickpeas and yogurty rice— this recipe yields a quick and easy dinner in a bowl.`\
+https://www.nytimes.com/video/dining/100000011038663/halloumi-souvlaki-bowl.html
+
+**Grilled Steak With Sauce Rof**\
+`A combination of onion, parsley, scallions and chile, this classic Senegalese sauce adds complexity to dishes.`\
+https://www.nytimes.com/video/dining/100000011038705/grilled-steak-with-sauce-rof.html
+
+**Tahini Krispie Chocolate Bars**\
+`These sweet and salty bars are a low-effort, high-reward treat that upgrades your average Rice Krispies treat.`\
+https://www.nytimes.com/video/dining/100000011038732/tahini-krispie-chocolate-bars.html
+
 **Grabber**\
 `Ryan Judge’s latest themeless puzzle has a bite to it!`\
 https://www.nytimes.com/2026/07/17/crosswords/daily-puzzle-2026-07-18.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/17/world/asia/lam-wing-kee-dead.html
 **Prominent Cuban Artist Will Go Into Exile After 5-Year Prison Term**\
 `The United States offered a visa to Luis Manuel Otero Alcántara, who was expected to fly to Miami on Saturday.`\
 https://www.nytimes.com/2026/07/17/world/americas/luis-manuel-otero-alcantara-cuba-prison-release-exile.html
-
-**How Senegal Spread Its Hospitality in Harlem**\
-`As Senegal advanced in the World Cup, its fans found the flavors of home on 116th Street.`\
-https://www.nytimes.com/2026/07/17/dining/world-cup-senegal-fans-harlem.html
-
-**Israeli Strike in Gaza Kills Seven People, Health Officials Say**\
-`The Israeli military said the attack targeted members of the second-biggest militant group in Gaza. It also said it was “aware of the claims that several uninvolved individuals” had been harmed.`\
-https://www.nytimes.com/2026/07/17/world/middleeast/israeli-strike-gaza-kills-eight.html
-
-**La atmósfera de un planeta cercano es similar a la Tierra**\
-`Es el primer planeta conocido potencialmente habitable con una atmósfera, y refuerza la idea de que existen mundos similares al nuestro con los elementos necesarios para sustentar la vida.`\
-https://www.nytimes.com/es/2026/07/17/espanol/ciencia-y-tecnologia/planeta-habitable-atmosfera-tierra.html
 
