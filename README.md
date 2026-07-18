@@ -1,3 +1,7 @@
+**U.S. Strikes Leave Iranians Isolated and Scared**\
+`Overnight strikes damaged a tunnel and three bridges in Hormozgan Province, the governor’s office said.`\
+https://www.nytimes.com/2026/07/18/world/middleeast/us-strikes-roads-iranians-daily-life.html
+
 **Your ‘Live’ World Cup Broadcast Is Not Really Live**\
 `Everyone is watching the goals after they happen, and some get them significantly faster.`\
 https://www.nytimes.com/2026/07/18/sports/soccer/world-cup-live-tv-delay.html
@@ -146,13 +150,13 @@ https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundia
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
 
-**France vs. England: Who’s No. 3?**\
-`The World Cup third-place game is exciting to almost no one. But they still play it.`\
-https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
-
 **What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
 `The smoke isn’t going away, but where it affects air quality will shift over the next few days.`\
 https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
+
+**France vs. England: Who’s No. 3?**\
+`The World Cup third-place game is exciting to almost no one. But they still play it.`\
+https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
 
 **How Maine Democrats Intend to Replace Graham Platner**\
 `The state’s Democratic Party must pick Mr. Platner’s replacement by the deadline of July 27.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011035832/zohran-mamdani-on-donald-
 **Zohran Mamdani: ‘There Is No Respite From a Genocide’**\
 `“It is hard to find a more bankrupt policy approach than what our country has done to Gaza and to Palestine,” Zohran Mamdani, mayor of New York City, said on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011035814/zohran-mamdani-there-is-no-respite-from-a-genocide.html
-
-**Without Platner, Maine Democrats Scramble to Keep Grassroots Energy Alive**\
-`Graham Platner’s campaign for Senate imploded last week. The activists who backed him are seeking a candidate to carry his populist message in the race against Republican Susan Collins.`\
-https://www.nytimes.com/2026/07/18/us/politics/platner-voters-maine-senate.html
 
