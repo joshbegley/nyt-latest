@@ -1,6 +1,6 @@
-**MyPillow Founder Not Registered to Vote in State He Wants to Lead**\
+**Mike Lindell Not Registered to Vote in Minnesota, Where He is Running for Governor**\
 `President Trump endorsed Mike Lindell, a leader of the election denial movement, for Minnesota governor this week.`\
-https://www.nytimes.com/2026/07/18/us/mypillow-founder-not-registered-to-vote-in-state-he-wants-to-lead.html
+https://www.nytimes.com/2026/07/18/us/mike-lindell-mypillow-minnsota-governor-election.html
 
 **U.S. Strikes Leave Iranians Isolated and Scared**\
 `Overnight strikes damaged a tunnel and three bridges in Hormozgan Province, the governor’s office said.`\
