@@ -1,3 +1,7 @@
+**Surrogacy Scandal Upends German Politics**\
+`Jens Spahn, a top leader of Chancellor Friedrich Merz’s party, resigned his post after announcing having had a baby by surrogate, which is outlawed in Germany`\
+https://www.nytimes.com/2026/07/18/world/europe/jens-spahn-surrogacy-germany.html
+
 **Peak Mango Season Is Upon Us, Thank Goodness**\
 `I’m making mango shortcakes, mango lime loaf cake and mango soft serve.`\
 https://www.nytimes.com/2026/07/18/dining/peak-mango-season-is-upon-us-thank-goodness.html

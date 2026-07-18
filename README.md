@@ -122,13 +122,13 @@ https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundia
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
 
-**What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
-`The smoke isn’t going away, but where it affects air quality will shift over the next few days.`\
-https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
-
 **France vs. England: Who’s No. 3?**\
 `The World Cup third-place game is exciting to almost no one. But they still play it.`\
 https://www.nytimes.com/2026/07/18/sports/soccer/france-vs-england-whos-no-3.html
+
+**What the US and Canada Can Expect from the Wildfire Smoke This Weekend**\
+`The smoke isn’t going away, but where it affects air quality will shift over the next few days.`\
+https://www.nytimes.com/2026/07/18/weather/canada-wildfires-smoke-updates-today.html
 
 **How Maine Democrats Intend to Replace Graham Platner**\
 `The state’s Democratic Party must pick Mr. Platner’s replacement by the deadline of July 27.`\
@@ -193,8 +193,4 @@ https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/barcelona-turismo.
 **World Cup Final Drives Billions in Bets on Kalshi and Polymarket**\
 `The soccer tournament has helped propel the prediction markets to new user records, creating what may be the largest gambling event in history.`\
 https://www.nytimes.com/2026/07/18/business/world-cup-kalshi-polymarket.html
-
-**As Natural Disasters Expand, a Disaster-Tracking App Is Booming**\
-`Known for tracking California wildfires, Watch Duty is moving beyond that mission. Millions of people are turning to it for help.`\
-https://www.nytimes.com/2026/07/18/climate/watch-duty-floods-fires-disasters.html
 

@@ -1,3 +1,7 @@
+**Surrogacy Scandal Upends German Politics**\
+`Jens Spahn, a top leader of Chancellor Friedrich Merz’s party, resigned his post after announcing having had a baby by surrogate, which is outlawed in Germany`\
+https://www.nytimes.com/2026/07/18/world/europe/jens-spahn-surrogacy-germany.html
+
 **Peak Mango Season Is Upon Us, Thank Goodness**\
 `I’m making mango shortcakes, mango lime loaf cake and mango soft serve.`\
 https://www.nytimes.com/2026/07/18/dining/peak-mango-season-is-upon-us-thank-goodness.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/business/world-cup-kalshi-polymarket.html
 **As Natural Disasters Expand, a Disaster-Tracking App Is Booming**\
 `Known for tracking California wildfires, Watch Duty is moving beyond that mission. Millions of people are turning to it for help.`\
 https://www.nytimes.com/2026/07/18/climate/watch-duty-floods-fires-disasters.html
-
-**Saxophones Getting Louder? The Meaning Behind the TikTok Trend**\
-`A pervasive tune on TikTok is used to underscore uh-oh moments. It comes from the 1991 film “Boyz N the Hood.”`\
-https://www.nytimes.com/2026/07/18/style/saxophones-getting-louder-tiktok.html
 
