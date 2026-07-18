@@ -1,3 +1,7 @@
+**MyPillow Founder Not Registered to Vote in State He Wants to Lead**\
+`President Trump endorsed Mike Lindell, a leader of the election denial movement, for Minnesota governor this week.`\
+https://www.nytimes.com/2026/07/18/us/mypillow-founder-not-registered-to-vote-in-state-he-wants-to-lead.html
+
 **A Very British CPAC: Few, if Any, Costumes and Not Much Trump**\
 `London hosted an understated version of the Conservative Political Action Conference, known in the United States for its over-the-top celebration of MAGA causes.`\
 https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
