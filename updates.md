@@ -1,3 +1,11 @@
+**Cindy Burbank, Nebraska’s Democratic Senate Nominee, Files to Withdraw From Race**\
+`The move by Cindy Burbank could clear a path for Dan Osborn, an independent candidate backed by her party’s leadership. But Republicans have cried foul, and her effort could face obstacles.`\
+https://www.nytimes.com/2026/07/18/us/politics/nebraska-senate-race-democrat-withdraw.html
+
+**The Hunt for a Job Has Never Been Worse. These Applicants Are Fighting Back.**\
+`A.I. is destroying the application process for employers and potential employees. We need to fix it.`\
+https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
+
 **Iran War Live Updates: 2 U.S. Soldiers Killed and 1 Service Member Missing in Iranian Attack on Jordan**\
 `The soldiers were the first U.S. troops to die from hostile fire in the region since an early April truce. The deaths came as both sides expanded the scope and intensity of their attacks.`\
 https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
