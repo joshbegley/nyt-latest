@@ -1,3 +1,11 @@
+**Walt Odets, Who Delved Into the Minds of Gay Men, Dies at 79**\
+`A psychologist, he wrote during the AIDS crisis about survivor’s guilt and depression in his H.I.V.-negative patients.`\
+https://www.nytimes.com/2026/07/18/health/walt-odets-dead.html
+
+**Iran War Live Updates: Fighting Intensifies With Strikes on Critical Infrastructure**\
+`In the days since the cease-fire unraveled, the United States and Iran have expanded the scope of their attacks, with reports of water facilities and other structures coming under fire.`\
+https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
+
 **The Job Market Is a Game Where Everyone’s a Loser**\
 `A.I. is destroying the application process for employers and potential employees. We need to fix it.`\
 https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
