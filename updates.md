@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
+`The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
+https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
+
 **Thunderstorms, Flooding and Strong Winds Sweep the Northeast**\
 `Forecasters warned of winds over 70 miles per hour in New York City, Philadelphia, Baltimore and Washington.`\
 https://www.nytimes.com/2026/07/18/weather/new-york-storms-updates.html
