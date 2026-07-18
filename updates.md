@@ -1,3 +1,11 @@
+**The Job Market Is a Game Where Everyone’s a Loser**\
+`A.I. is destroying the application process for employers and potential employees. We need to fix it.`\
+https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
+
+**The Evolution of Presidential Travel: Horse Carriages to Air Force One**\
+`From horse-drawn presidential coaches to Air Force One, presidents have used various modes of transportation to project an image of America for nearly 250 years.`\
+https://www.nytimes.com/2026/07/18/us/politics/trump-air-force-one-travel.html
+
 **Most Forest Fires in Canada Are Simply Impossible to Put Out**\
 `Half of Canada’s wildfires are in remote areas with no road access. Impossible to fight, they are often left to burn.`\
 https://www.nytimes.com/2026/07/18/world/canada/wildfires-canada-fire-fighting.html
