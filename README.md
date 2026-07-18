@@ -1,3 +1,7 @@
+**Yamal, astro de fútbol e hijo de migrantes, personifica una España cambiante**\
+`Mientras se prepara para la final del Mundial, Lamine Yamal, de 19 años, está en el centro de un debate nacional sobre lo que significa ser español en una sociedad cada vez más multicultural.`\
+https://www.nytimes.com/es/2026/07/18/espanol/mundo/lamine-yamal-espana-migrantes.html
+
 **Wildfires Continue To Burn in Ontario, Canada, Sending Smoke to U.S. Cities**\
 `Nearly 200 fires continued to devastate swaths of the province as smoke continued to drift across parts of Canada and the United States.`\
 https://www.nytimes.com/2026/07/18/world/canada/ontario-wildfires-smoke-thunder-bay-canada.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011035970/zohran-mamdani-on-his-cal
 **Zohran Mamdani: ‘Netanyahu Belongs in the Hague’**\
 `On “The Interview,” Zohran Mamdani, mayor of New York City, answered questions about how he would handle a visit from Benjamin Netanyahu, the prime minister of Israel.`\
 https://www.nytimes.com/video/podcasts/100000011035987/zohran-mamdani-netanyahu-belongs-in-the-hague.html
-
-**Zohran Mamdani on Alexandria Ocasio-Cortez and 2028**\
-`On “The Interview,” Zohran Mamdani, mayor of New York City, talked about his partnership with Representative Alexandria Ocasio-Cortez and recent discussions about whether she should run for president.`\
-https://www.nytimes.com/video/podcasts/100000011035842/zohran-mamdani-on-alexandria-ocasio-cortez-and-2028.html
 
