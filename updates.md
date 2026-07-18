@@ -1,3 +1,7 @@
+**Mamdani Says He May Still Order Israeli Prime Minister Netanyahu’s Arrest in NYC**\
+`Mayor Zohran Mamdani said in an interview with The New York Times that he was in “an active conversation” with New York City’s Law Department on whether he had the authority to arrest the Israeli leader.`\
+https://www.nytimes.com/2026/07/18/nyregion/mamdani-netanyahu-interview.html
+
 **Wildfires Continue To Burn in Ontario, Canada, Sending Smoke to U.S. Cities**\
 `Nearly 200 fires continued to devastate swaths of the province as smoke continued to drift across parts of Canada and the United States.`\
 https://www.nytimes.com/2026/07/18/world/canada/ontario-wildfires-smoke-thunder-bay-canada.html
