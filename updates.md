@@ -1,3 +1,7 @@
+**U.S. Strikes Leave Iranians Isolated and Scared**\
+`Overnight strikes damaged a tunnel and three bridges in Hormozgan Province, the governor’s office said.`\
+https://www.nytimes.com/2026/07/18/world/middleeast/us-strikes-roads-iranians-daily-life.html
+
 **Your ‘Live’ World Cup Broadcast Is Not Really Live**\
 `Everyone is watching the goals after they happen, and some get them significantly faster.`\
 https://www.nytimes.com/2026/07/18/sports/soccer/world-cup-live-tv-delay.html
