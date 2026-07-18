@@ -1,3 +1,31 @@
+**Low-T, High Chair**\
+`Where are Hegseth’s hormones when Trump needs them?`\
+https://www.nytimes.com/2026/07/18/opinion/trump-hegseth-testosterone.html
+
+**The ‘Devil’s Bargain’ at the Heart of American Politics Now**\
+`This week: the Todd Blanche hearing, Lindsey Graham’s legacy and progressive infighting.`\
+https://www.nytimes.com/2026/07/18/opinion/politics-compromise-todd-blanche.html
+
+**A ‘Little House’ for Our Era**\
+`Laura Ingalls Wilder and the myth of the American West revisited.`\
+https://www.nytimes.com/2026/07/18/opinion/little-house-netflix-show-laura-ingalls-wilder.html
+
+**My Son Was Killed by ICE. I Want Accountability.**\
+`I deserve accountability and transparency, and so does the public.`\
+https://www.nytimes.com/2026/07/18/opinion/ice-shooting-ruben-ray-martinez-texas.html
+
+**What Do the Words ‘Gay’ and ‘Queer’ Really Mean?**\
+`Readers respond to a guest essay about the labels used to describe those in the L.G.B.T.Q. community.`\
+https://www.nytimes.com/2026/07/18/opinion/gay-queer-debate.html
+
+**China’s A.I. Play Is Different From America’s**\
+`When great powers disagree about the nature of A.I.`\
+https://www.nytimes.com/2026/07/18/opinion/china-united-states-artificial-intelligence.html
+
+**The ‘Devil’s Bargain’ at the Heart of American Politics Now**\
+`This week: the Todd Blanche hearing, Lindsey Graham’s legacy and progressive infighting.`\
+https://www.nytimes.com/video/opinion/100000011034789/the-devils-bargain-at-the-heart-of-american-politics-now.html
+
 **Scenic Route**\
 `A summer weekend offers a bounty of daylight that we feel duty-bound to exploit properly. But sometimes the sun-and-fun mandate becomes an unnecessary burden.`\
 https://www.nytimes.com/2026/07/18/briefing/scenic-route.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/07/18/travel/gatekeeping-tourism-mexico-city-milan.
 **A 20-Minute Workout to Build Upper-Body Strength**\
 `These exercises can help improve your posture and make everyday movements feel more comfortable.`\
 https://www.nytimes.com/2026/07/18/well/move/upper-body-strength-lats-workout.html
-
-**What to Know Before Seeing ‘The Odyssey’: Plot, Characters and More**\
-`Christopher Nolan’s adaptation of Homer’s epic poem has monster battles, a sorceress and dozens of thirsty suitors. Here’s a primer.`\
-https://www.nytimes.com/2026/07/18/movies/the-odyssey-plot-characters-trojan-war.html
-
-**Lindsay Hubbard Prefers a Long-Distance Boyfriend**\
-`The “Summer House” cast member once yelled at a boyfriend, “How many sandwiches have you made for me?” These days, she’s enjoying her space.`\
-https://www.nytimes.com/2026/07/18/arts/television/lindsay-hubbard-in-the-city-interview.html
-
-**Book Review: ‘Yellow Pine,’ by Claire Vaye Watkins**\
-`In Claire Vaye Watkins’s novel “Yellow Pine,” a single woman having an existential crisis decides now is the time to have a child.`\
-https://www.nytimes.com/2026/07/18/books/review/yellow-pine-claire-vaye-watkins.html
-
-**Israel Counters Iranian Spying by Warning Against Recruitment**\
-`The Israeli authorities have enacted a broad array of countermeasures to contain what they describe as online recruiting efforts by Iranian agents.`\
-https://www.nytimes.com/2026/07/18/world/middleeast/israel-recruits-rabbis-iran.html
-
-**Does Your Prenup Cover Digital Content — or Even Embryos?**\
-`“Wealth looks so different now than it did 30 years ago,” says Hayley Sacks, the financial adviser known as Mrs. Dow Jones.`\
-https://www.nytimes.com/2026/07/18/style/prenuptial-agreement-prenups-tips-advice.html
-
-**The Surprising Parallels Between ‘The Odyssey’ and ‘Oppenheimer’**\
-`Our movie critic Alissa Wilkinson describes how Christopher Nolan’s version of “The Odyssey” builds on key themes in his previous film “Oppenheimer.”`\
-https://www.nytimes.com/video/movies/100000010926537/odyssey-oppenheimer.html
-
-**They Were Charged With Assaulting ICE Agents. The Cases Are Crumbling.**\
-`The Trump administration has lost or abandoned hundreds of criminal cases against protesters and immigrants, a Times investigation found.`\
-https://www.nytimes.com/2026/07/18/us/ice-assaults-protesters.html
 

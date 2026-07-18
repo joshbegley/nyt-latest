@@ -1,3 +1,31 @@
+**Low-T, High Chair**\
+`Where are Hegseth’s hormones when Trump needs them?`\
+https://www.nytimes.com/2026/07/18/opinion/trump-hegseth-testosterone.html
+
+**The ‘Devil’s Bargain’ at the Heart of American Politics Now**\
+`This week: the Todd Blanche hearing, Lindsey Graham’s legacy and progressive infighting.`\
+https://www.nytimes.com/2026/07/18/opinion/politics-compromise-todd-blanche.html
+
+**A ‘Little House’ for Our Era**\
+`Laura Ingalls Wilder and the myth of the American West revisited.`\
+https://www.nytimes.com/2026/07/18/opinion/little-house-netflix-show-laura-ingalls-wilder.html
+
+**My Son Was Killed by ICE. I Want Accountability.**\
+`I deserve accountability and transparency, and so does the public.`\
+https://www.nytimes.com/2026/07/18/opinion/ice-shooting-ruben-ray-martinez-texas.html
+
+**What Do the Words ‘Gay’ and ‘Queer’ Really Mean?**\
+`Readers respond to a guest essay about the labels used to describe those in the L.G.B.T.Q. community.`\
+https://www.nytimes.com/2026/07/18/opinion/gay-queer-debate.html
+
+**China’s A.I. Play Is Different From America’s**\
+`When great powers disagree about the nature of A.I.`\
+https://www.nytimes.com/2026/07/18/opinion/china-united-states-artificial-intelligence.html
+
+**The ‘Devil’s Bargain’ at the Heart of American Politics Now**\
+`This week: the Todd Blanche hearing, Lindsey Graham’s legacy and progressive infighting.`\
+https://www.nytimes.com/video/opinion/100000011034789/the-devils-bargain-at-the-heart-of-american-politics-now.html
+
 **Mamdani Says He May Still Order Netanyahu’s Arrest**\
 `Mayor Zohran Mamdani said in an interview with The New York Times that he was in “an active conversation” with New York City’s Law Department on whether he had the authority to arrest the Israeli leader.`\
 https://www.nytimes.com/2026/07/18/nyregion/mamdani-netanyahu-interview.html
