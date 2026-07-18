@@ -1,3 +1,7 @@
+**AIPAC Closes Donor Portal to Democrats Who Voted to End Aid to Israel**\
+`The pro-Israel lobbying group appeared to be punishing Democrats it had previously endorsed for re-election after they voted in favor of an amendment that would have cut off U.S. aid to Israel.`\
+https://www.nytimes.com/2026/07/17/us/politics/aipac-donor-portal-democrats.html
+
 **South Carolina Man Who Fired Rifle to Scare a Black Neighbor Gets 9 Years**\
 `The man, Jonathan Andrew Felkel, fired a rifle and shouted a racial slur at the victim, whom he targeted because of his race, law enforcement officials said.`\
 https://www.nytimes.com/2026/07/17/us/south-carolina-black-hate-crime-shooting.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/17/us/politics/mullin-ice-shootings-arrests.html
 **La obsesión de Trump con la elección de 2020 tiene un costo para la democracia**\
 `En su segundo mandato, el presidente de EE. UU. insiste en litigar las elecciones de 2020 y encontrar formas de sembrar dudas sobre la votación de 2026.`\
 https://www.nytimes.com/es/2026/07/17/espanol/estados-unidos/trump-discurso-elecciones.html
-
-**The Latest Texas Floods Tested Warning Systems. This Time, They Passed.**\
-`A lack of sirens and flood forecasting systems made the state’s Hill Country vulnerable to deadly floods last summer. That has changed.`\
-https://www.nytimes.com/2026/07/17/climate/texas-flood-warning-systems.html
 
