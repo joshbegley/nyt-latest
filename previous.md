@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/07/18/opinion/trump-hegseth-testosterone.html
 `This week: the Todd Blanche hearing, Lindsey Graham’s legacy and progressive infighting.`\
 https://www.nytimes.com/2026/07/18/opinion/politics-compromise-todd-blanche.html
 
-**A ‘Little House’ for Our Era**\
+**An Eye-Opening Visit to the ‘Little House’ of My Childhood**\
 `Laura Ingalls Wilder and the myth of the American West revisited.`\
 https://www.nytimes.com/2026/07/18/opinion/little-house-netflix-show-laura-ingalls-wilder.html
 

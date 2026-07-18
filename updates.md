@@ -1,3 +1,7 @@
+**An Eye-Opening Visit to the ‘Little House’ of My Childhood**\
+`Laura Ingalls Wilder and the myth of the American West revisited.`\
+https://www.nytimes.com/2026/07/18/opinion/little-house-netflix-show-laura-ingalls-wilder.html
+
 **Who Is Ahead in Michigan's 13th Congressional District?**\
 `Track the latest polls in Michigan's 13th Congressional District.`\
 https://www.nytimes.com/interactive/polls/michigan-us-house-13-polls-2026.html
