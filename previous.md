@@ -1,3 +1,43 @@
+**Christopher Nolan sobre la proeza épica de filmar ‘La odisea’**\
+`Él y su director de fotografía, Hoyte van Hoytema, combinaron nuevos inventos —como unas luces que imitan el fuego que ellos mismos desarrollaron— con técnicas que existen desde hace un siglo.`\
+https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-imax-como-se-filmo.html
+
+**My Abuser’s Daughter Wants to Be Friends. How Should I Navigate This?**\
+`I feel deeply awkward, especially because I genuinely like her.`\
+https://www.nytimes.com/2026/07/18/magazine/abuse-friendship-ethics.html
+
+**Today’s Wordle Hints for July 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 19, 2026.`\
+https://www.nytimes.com/2026/07/18/crosswords/wordle-review-1856.html
+
+**NYT Connections Answers for July 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 19, 2026.`\
+https://www.nytimes.com/2026/07/18/crosswords/connections-companion-1134.html
+
+**Freedom Convoy Leader, Under House Arrest, Wants to Visit the White House**\
+`Prosecutors say Tamara Lich wants a “blank cheque” for international travel, including a cruise, arguing that she is trying to profit from the very protest that got her sentenced.`\
+https://www.nytimes.com/2026/07/18/world/canada/freedom-convoy-ottawa-lich-wildfires.html
+
+**NYT Strands Hints for July 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 19, 2026.`\
+https://www.nytimes.com/2026/07/18/crosswords/strands-sidekick-868.html
+
+**Iran War Live Updates: Fighting Intensifies With Strikes on Critical Infrastructure**\
+`In the days since the cease-fire unraveled, the U.S. and Iran have expanded the scope of their attacks, with reports of water facilities and other structures coming under fire.`\
+https://www.nytimes.com/live/2026/07/18/world/iran-war-strikes-trump-hormuz
+
+**Zohran Mamdani Knows He Has Political Capital. And He Intends to Spend It.**\
+`Lulu Garcia-Navarro sits down for an interview with the mayor of New York City.`\
+https://www.nytimes.com/2026/07/18/magazine/zohran-mamdani-interview.html
+
+**Lo que hay que saber antes de ver ‘La odisea’**\
+`La adaptación de Christopher Nolan del poema épico de Homero cuenta con batallas contra monstruos, una hechicera y decenas de pretendientes sedientos. Aquí tienes una guía básica.`\
+https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-matt-damon.html
+
+**Francia vs. Inglaterra: el odiado partido por el tercer lugar**\
+`El juego por el tercer lugar del Mundial se remonta a 1934. Algunos de esos encuentros han pasado a la historia, como el emocionante 6-3 entre Francia y Alemania Occidental en 1958. Pero la mayoría han caído en el olvido.`\
+https://www.nytimes.com/es/2026/07/18/espanol/deportes/francia-inglaterra-mundial-tercer-lugar.html
+
 **Su forma de ser me irritaba, justo lo que necesitaba en un hombre**\
 `Mi ansiedad hacía que salir con alguien fuera muy difícil. Entonces conocí a un chico perfectamente molestoso en Bumble.`\
 https://www.nytimes.com/es/2026/07/18/espanol/estilos-de-vida/modern-love-bumble-citas.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/07/18/realestate/syracuse-toni-morrison-raymond-car
 **Why Gen Z and Millennials Are Embracing ‘Grandma Hobbies’**\
 `In search of calm and community, new generations are learning centuries-old skills.`\
 https://www.nytimes.com/2026/07/18/well/grandma-hobbies-crafts-knitting-quilting.html
-
-****\
-`Sonam Wangchuk, an Indian activist who has been on a hunger strike in New Delhi to demand education reforms, was forcibly removed by the police on Saturday.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011039307/18vid-india-activist-embed-23976.html
-
-**Indian Activist on Hunger Strike Is Forcibly Removed by Police**\
-`The activist, Sonam Wangchuk, started his strike last month as part of a protest over educational mismanagement that has affected millions of students.`\
-https://www.nytimes.com/2026/07/18/world/asia/sonam-wangchuk-hunger-strike-delhi-police.html
-
-**Un meteorito cayó en una casa en Nueva Jersey. Es un tesoro para la ciencia**\
-`Una pareja de Nueva Jersey ayudó a los científicos a descubrir la composición de un asteroide inusual después de que cayera en su habitación.`\
-https://www.nytimes.com/es/2026/07/18/espanol/ciencia-y-tecnologia/meteorito.html
-
-**How the MC Hotel in Montclair, N.J., Became a World Cup Hot Spot**\
-`A boutique hotel in Montclair, N.J., has been home base for England, Norway, Germany and now Spain. It has also drawn crowds of fans hoping for a glimpse of soccer stars.`\
-https://www.nytimes.com/2026/07/18/nyregion/world-cup-mc-hotel-montclair-nj.html
-
-**Trump and Mamdani to Attend World Cup Final on Sunday**\
-`They have no plans to meet, but it is the second time in a month that the two ubiquitous political figures will be at the same signature sporting event.`\
-https://www.nytimes.com/2026/07/18/nyregion/trump-mamdani-world-cup-final.html
-
-**Haz ejercicio en la playa: más músculos, menos tiempo**\
-`Correr, hacer yoga o simplemente caminar descalzo en la orilla puede fortalecer el tren inferior, mejorar la estabilidad y reducir el estrés, siempre que se tomen las precauciones adecuadas.`\
-https://www.nytimes.com/es/2026/07/18/espanol/ejercicio-playa.html
-
-**They Don’t Fight Crime, but They Do Eat Bugs: The Bats of N.Y.C.**\
-`Several species of bats have made the city’s patchwork green spaces their homes, much to the surprise of some scientists.`\
-https://www.nytimes.com/2026/07/18/nyregion/bats-nyc-highline-prospect-park.html
-
-**NYT Spelling Bee Answers for July 18, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/18/crosswords/spelling-bee-forum.html
-
-**Lionel Messi camina hacia la historia**\
-`Messi no camina porque se haya ido del partido. Camina para entrar en él.`\
-https://www.nytimes.com/es/2026/07/18/espanol/opinion/messi-argentina-mundial-historia.html
-
-**As Trump Scraps With Meloni, His Envoy to Italy Is at Sea**\
-`Tilman J. Fertitta, the U.S. ambassador to Rome, is summering on his superyacht as President Trump squabbles with Prime Minister Giorgia Meloni of Italy.`\
-https://www.nytimes.com/2026/07/18/world/europe/tilman-fertitta-superyacht-italy-ambassador.html
 
