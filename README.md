@@ -114,7 +114,7 @@ https://www.nytimes.com/video/opinion/100000011034789/the-devils-bargain-at-the-
 `A summer weekend offers a bounty of daylight that we feel duty-bound to exploit properly. But sometimes the sun-and-fun mandate becomes an unnecessary burden.`\
 https://www.nytimes.com/2026/07/18/briefing/scenic-route.html
 
-**Mamdani Says He May Still Order Netanyahu’s Arrest**\
+**Mamdani Says He May Still Order Israeli Prime Minister Netanyahu’s Arrest in NYC**\
 `Mayor Zohran Mamdani said in an interview with The New York Times that he was in “an active conversation” with New York City’s Law Department on whether he had the authority to arrest the Israeli leader.`\
 https://www.nytimes.com/2026/07/18/nyregion/mamdani-netanyahu-interview.html
 

@@ -1,3 +1,7 @@
+**Wildfires Continue To Burn in Ontario, Canada, Sending Smoke to U.S. Cities**\
+`Nearly 200 fires continued to devastate swaths of the province as smoke continued to drift across parts of Canada and the United States.`\
+https://www.nytimes.com/2026/07/18/world/canada/ontario-wildfires-smoke-thunder-bay-canada.html
+
 **These AIPAC-Backed Democrats Voted to Nix Israel Aid. AIPAC Punished Them.**\
 `Of the 103 Democrats who voted to eliminate aid to Israel, more than a dozen had been endorsed by the pro-Israel lobbying group. AIPAC quickly closed off online donations for them.`\
 https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-vote.html
