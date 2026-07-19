@@ -1,3 +1,7 @@
+**Tension looms as Trump and Sánchez will attend the World Cup final.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/19/us/tension-looms-as-trump-and-sanchez-will-attend-the-world-cup-final.html
+
 **World Cup Updates: Lamine Yamal, Son of African Migrants, Personifies a Changing Spain**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
