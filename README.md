@@ -1,3 +1,15 @@
+**Los porteros no necesitan tu compasión**\
+`Aislado, expuesto y casi siempre juzgado por una sola jugada, el arquero encarna la parte más cruel y más emocionante del juego.`\
+https://www.nytimes.com/es/2026/07/19/espanol/opinion/mundial-porteros.html
+
+**La paradoja del trabajo que ayuda a la IA a acabar con trabajos**\
+`Un puñado de empresas emergentes ha encontrado una mina de oro desoladora: contratar a profesionales especializados para que ayuden a que los trabajos en sus campos se vuelvan obsoletos.`\
+https://www.nytimes.com/es/2026/07/19/espanol/negocios/capacitacion-ia-empleos.html
+
+**¿Venezuela ahora es una colonia de EE. UU. o un Estado soberano?**\
+`La situación actual de Venezuela refleja la nueva era imperial, en la que es cada vez más innecesario e inconveniente para las grandes potencias hacer ocupaciones formales de Estados pequeños.`\
+https://www.nytimes.com/es/2026/07/19/espanol/america-latina/venezuela-colonia-soberania.html
+
 **Before Lettuce Felled Thousands, a Cilantro-Linked Cyclospora Outbreak Sickened New Yorkers**\
 `New York City health officials shared details of how they traced a much smaller cyclosporiasis outbreak, showing the difficulty of tracing contamination.`\
 https://www.nytimes.com/2026/07/19/nyregion/cyclosporiasis-outbreak-nyc-testing.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
 **The Evolution of Presidential Travel: Horse Carriages to Air Force One**\
 `From horse-drawn presidential coaches to Air Force One, presidents have used various modes of transportation to project an image of America for nearly 250 years.`\
 https://www.nytimes.com/2026/07/18/us/politics/trump-air-force-one-travel.html
-
-**Most Forest Fires in Canada Are Simply Impossible to Put Out**\
-`Half of Canada’s wildfires are in remote areas with no road access. Impossible to fight, they are often left to burn.`\
-https://www.nytimes.com/2026/07/18/world/canada/wildfires-canada-fire-fighting.html
-
-**America Caught World Cup Fever. His Job Is to Capitalize on It.**\
-`Don Garber, the M.L.S. commissioner, has been planning for this moment for eight years.`\
-https://www.nytimes.com/2026/07/18/business/dealbook/mls-don-garber-world-cup.html
-
-**Who Is Ahead in Michigan's 13th Congressional District?**\
-`Track the latest polls in Michigan's 13th Congressional District.`\
-https://www.nytimes.com/interactive/polls/michigan-us-house-13-polls-2026.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
