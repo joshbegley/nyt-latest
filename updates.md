@@ -1,3 +1,27 @@
+**‘We Would Pile Into the Convertible and Head to Chinatown’**\
+`The writer Jean Hanff Korelitz, the comedian Roy Wood Jr. and other notable friends of Metropolitan Diary share their New York City stories as the column marks its 50th anniversary.`\
+https://www.nytimes.com/2026/07/19/nyregion/metropolitan-diary.html
+
+**sunday-daily-world-cup-messi-Spain-Argentina**\
+`Today, Spain’s unstoppable machine faces Lionel Messi’s immovable Argentina.`\
+https://www.nytimes.com/2026/07/19/podcasts/the-daily/the-world-cup-final-is-here.html
+
+**NYT Connections Answers for July 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/19/crosswords/connections-companion-1135.html
+
+**Today’s Wordle Hints for July 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/19/crosswords/wordle-review-1857.html
+
+**Social Media Hacked Our Attention. A.I. Scares Me More.**\
+`A.I. plays on our heartstrings, manipulating the systems in our brains that bond us to other people.`\
+https://www.nytimes.com/2026/07/19/opinion/ai-attention-social-media-attachment.html
+
+**NYT Strands Hints for July 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
+
 **Iran War Live Updates: U.S. and Iran Edge Closer to Wider War After U.S. Service Members Killed**\
 `The U.S. military said it had targeted Iranian forces that were responsible for an attack on a base in Jordan that left two American service members dead and one missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
