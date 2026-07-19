@@ -1,3 +1,7 @@
+**Russia Bombards Kyiv in One of the War’s Largest Missile Assaults**\
+`Officials said one person had been killed and more than 15 had been injured, with that toll likely to rise. The attacks on Kyiv coincided with Ukraine’s targeting of oil and gas facilities in Russia, which has prompted fuel shortages there.`\
+https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-russia-war.html
+
 **Second Patient Dies in Outbreak of Legionnaires’ Disease in Manhattan**\
 `The second victim was an 88-year-old retired businessman and Air Force veteran who lived on the Upper East Side, his lawyer said.`\
 https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/19/technology/polymarket-kalshi-rivalry-coplan-m
 **Trump Gutted Civil Rights Agency, Stifling U.S. Scrutiny of Workplace Bias**\
 `A little-known federal office spent decades investigating potential discrimination by government contractors — until it was stopped by the Trump administration.`\
 https://www.nytimes.com/2026/07/19/us/politics/trump-gutted-civil-rights-agency-stifling-us-scrutiny-of-workplace-bias.html
-
-**Failed Immigration Cases Leave Chicago Prosecutor’s Office Reeling**\
-`Prosecutors have fled the U.S. attorney’s office in Chicago, angry about the cases they’ve been told to bring against protesters and immigrants.`\
-https://www.nytimes.com/2026/07/19/us/immigration-chicago-prosecutors.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
