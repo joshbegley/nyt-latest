@@ -1,3 +1,7 @@
+**Get Me to the Grill**\
+`I can’t wait to make these grilled chicken thighs, with tomato and avocado grilled alongside them for nice caramelized notes.`\
+https://www.nytimes.com/2026/07/19/dining/get-me-to-the-grill.html
+
 **Don’t Let This Useless Debate Distract You, Democrats**\
 `A battle over idealized economic systems doesn’t help Democratic candidates.`\
 https://www.nytimes.com/2026/07/19/opinion/democrats-capitalism-socialism.html
