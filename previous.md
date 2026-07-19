@@ -1,3 +1,7 @@
+**Vance Remarks on Epstein and Israel Echo Conspiracy Theories**\
+`The vice president’s comment that there were ties between Mr. Epstein and the “highest levels” of Israeli intelligence troubled some in his party.`\
+https://www.nytimes.com/2026/07/18/us/vances-epstein-israel-conspiracy-theories.html
+
 **Tate Brothers Arrested in Miami As U.K. Authorities File Sex Crime Charges**\
 `The arrests of the influencers, known for their misogynistic views, come after years of investigations in Europe. The new charges concern offenses dating back to 2010, officials said.`\
 https://www.nytimes.com/2026/07/18/us/tate-brothers-arrest-miami.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-imax-como-se-
 **My Abuser’s Daughter Wants to Be Friends. How Should I Navigate This?**\
 `I feel deeply awkward, especially because I genuinely like her.`\
 https://www.nytimes.com/2026/07/18/magazine/abuse-friendship-ethics.html
-
-**Today’s Wordle Hints for July 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 19, 2026.`\
-https://www.nytimes.com/2026/07/18/crosswords/wordle-review-1856.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
