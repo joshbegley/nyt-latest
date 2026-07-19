@@ -1,3 +1,7 @@
+**Don’t Let This Useless Debate Distract You, Democrats**\
+`A battle over idealized economic systems doesn’t help Democratic candidates.`\
+https://www.nytimes.com/2026/07/19/opinion/democrats-capitalism-socialism.html
+
 **Who Is Ahead in Florida's 24th Congressional District?**\
 `Track the latest polls in Florida's 24th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-24-polls-2026.html
