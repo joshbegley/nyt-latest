@@ -1,3 +1,7 @@
+**The Beautiful Game**\
+`A conversation about the World Cup.`\
+https://www.nytimes.com/2026/07/19/briefing/world-cup-final.html
+
 **When Will the Wildfire Smoke Clear?**\
 `Forecasters expected the worst conditions across the Great Lakes region on Sunday, with air quality alerts in effect across the area.`\
 https://www.nytimes.com/2026/07/19/weather/wildfire-smoke-latest-updates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/us/what-to-know-fires-lightning-pacific-north
 **Adidas Hopes Its World Cup Moment Can Drive U.S. Sales**\
 `Nearly everything on the field on Sunday will bear the German company’s logo. Bjørn Gulden, the chief executive, says he ‘couldn’t have scripted it better.’`\
 https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
-
-**Two U.S. Service Members Killed In Iranian Strike, U.S. Military Says**\
-`Iran struck a military base in Jordan on Friday, killing two United States service members, according to the U.S. military. Sixteen American military personnel have died since the U.S. and Israel launched attacks on Iran in February.`\
-https://www.nytimes.com/video/world/middleeast/100000011039720/us-troops-killed-iran-war-jordan.html
 
