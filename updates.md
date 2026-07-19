@@ -1,3 +1,7 @@
+**The Beautiful Game**\
+`A conversation about the World Cup.`\
+https://www.nytimes.com/2026/07/19/briefing/world-cup-final.html
+
 **When Will the Wildfire Smoke Clear?**\
 `Forecasters expected the worst conditions across the Great Lakes region on Sunday, with air quality alerts in effect across the area.`\
 https://www.nytimes.com/2026/07/19/weather/wildfire-smoke-latest-updates.html
