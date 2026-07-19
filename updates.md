@@ -1,3 +1,7 @@
+**Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
+`The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
+https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
+
 **Live Updates: Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
 `Shakira and Justin Bieber are among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
 https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
