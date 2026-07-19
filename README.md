@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
 https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
-`The Pentagon said a service member was killed in northern Iraq on Saturday while disposing of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two troops dead and another missing.`\
+`The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 
 **Argentines, Already ‘Losing Their Minds,’ Brace for World Cup Final**\
