@@ -1,3 +1,7 @@
+**In Arizona’s Primaries, Democrats Fight Over a House Seat They Need Badly**\
+`Democrats have a chance to flip a competitive battleground district in and around Scottsdale, but the winner of Tuesday’s primary will emerge bloodied and broke.`\
+https://www.nytimes.com/2026/07/19/us/elections/arizona-democratic-primary-shah-galan-woods.html
+
 **Nolan’s ‘The Odyssey’ Brings in $124.5 Million at the Box Office on Opening Weekend**\
 `Christopher Nolan’s nearly three-hour epic was No. 1 over the weekend, with about $124.5 million in ticket sales in the United States and Canada.`\
 https://www.nytimes.com/2026/07/19/business/media/the-odyssey-box-office-christopher-nolan.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/19/espanol/cannabis-medicinal-agitacion-demen
 **Los porteros no necesitan tu compasión**\
 `Aislado, expuesto y casi siempre juzgado por una sola jugada, el arquero encarna la parte más cruel y más emocionante del juego.`\
 https://www.nytimes.com/es/2026/07/19/espanol/opinion/mundial-porteros.html
-
-**La paradoja del trabajo que ayuda a la IA a acabar con trabajos**\
-`Un puñado de empresas emergentes ha encontrado una mina de oro desoladora: contratar a profesionales especializados para que ayuden a que los trabajos en sus campos se vuelvan obsoletos.`\
-https://www.nytimes.com/es/2026/07/19/espanol/negocios/capacitacion-ia-empleos.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\

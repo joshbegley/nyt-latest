@@ -1,3 +1,7 @@
+**In Arizona’s Primaries, Democrats Fight Over a House Seat They Need Badly**\
+`Democrats have a chance to flip a competitive battleground district in and around Scottsdale, but the winner of Tuesday’s primary will emerge bloodied and broke.`\
+https://www.nytimes.com/2026/07/19/us/elections/arizona-democratic-primary-shah-galan-woods.html
+
 **Nolan’s ‘The Odyssey’ Brings in $124.5 Million at the Box Office on Opening Weekend**\
 `Christopher Nolan’s nearly three-hour epic was No. 1 over the weekend, with about $124.5 million in ticket sales in the United States and Canada.`\
 https://www.nytimes.com/2026/07/19/business/media/the-odyssey-box-office-christopher-nolan.html
