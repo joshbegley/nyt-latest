@@ -1,3 +1,11 @@
+**How We Watched the World Cup**\
+`The number of people who attend the World Cup is nothing compared with the sheer world-buckling biomass of those who experience it on a screen.`\
+https://www.nytimes.com/2026/07/19/opinion/watching-the-world-cup.html
+
+**It’s No Longer So Much Fun to Be MAGA in Washington**\
+`It’s a vibe shift.`\
+https://www.nytimes.com/2026/07/19/opinion/washington-dc-maga-trump.html
+
 **In Maine, Troy Jackson Gains Momentum in Bid to Replace Platner**\
 `Troy Jackson, a progressive former State Senate president, showed signs of significant strength, as half the state’s counties picked delegates to a convention where they will choose Graham Platner’s replacement.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-democrats-senate-jackson.html

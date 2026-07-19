@@ -1,3 +1,11 @@
+**How We Watched the World Cup**\
+`The number of people who attend the World Cup is nothing compared with the sheer world-buckling biomass of those who experience it on a screen.`\
+https://www.nytimes.com/2026/07/19/opinion/watching-the-world-cup.html
+
+**It’s No Longer So Much Fun to Be MAGA in Washington**\
+`It’s a vibe shift.`\
+https://www.nytimes.com/2026/07/19/opinion/washington-dc-maga-trump.html
+
 **In Maine, Troy Jackson Gains Momentum in Bid to Replace Platner**\
 `Troy Jackson, a progressive former State Senate president, showed signs of significant strength, as half the state’s counties picked delegates to a convention where they will choose Graham Platner’s replacement.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-democrats-senate-jackson.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/18/opinion/politics-compromise-todd-blanche.html
 **An Eye-Opening Visit to the ‘Little House’ of My Childhood**\
 `Laura Ingalls Wilder and the myth of the American West revisited.`\
 https://www.nytimes.com/2026/07/18/opinion/little-house-netflix-show-laura-ingalls-wilder.html
-
-**My Son Was Killed by ICE. I Want Accountability.**\
-`I deserve accountability and transparency, and so does the public.`\
-https://www.nytimes.com/2026/07/18/opinion/ice-shooting-ruben-ray-martinez-texas.html
-
-**What Do the Words ‘Gay’ and ‘Queer’ Really Mean?**\
-`Readers respond to a guest essay about the labels used to describe those in the L.G.B.T.Q. community.`\
-https://www.nytimes.com/2026/07/18/opinion/gay-queer-debate.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
