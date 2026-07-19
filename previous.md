@@ -1,6 +1,14 @@
+**At World Cup Final, Trump Seeks to Bask in Another Sports Championship**\
+`The president flew in Marine One over MetLife Stadium on Sunday ahead of his arrival. It was the second time recently that he sought to seize the spotlight at a major sporting event.`\
+https://www.nytimes.com/2026/07/19/us/politics/trump-world-cup-final.html
+
+**A Conversation with Zohran Mamdani**\
+`The mayor of New York City talks about Andy Burnham, Netanyahu and the controversial U.S. red card.`\
+https://www.nytimes.com/2026/07/19/world/zohran-mamdani-interview-world-cup-final.html
+
 **Deadly 5.5-Magnitude Earthquake Strikes Peru**\
 `A 5.5-magnitude earthquake struck Peru’s central highlands region on Saturday, killing six people, the authorities said. Although Peru is prone to frequent quakes, this was the biggest to strike that region in over 50 years.`\
-https://www.nytimes.com/video/world/americas/100000011040683/deadly-5-5-magnitude-earthquake-strikes-peru.html
+https://www.nytimes.com/video/world/americas/100000011040683/peru-earthquake.html
 
 **Live Updates: Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
 `Shakira and Justin Bieber were among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/07/19/world/europe/us-world-cup-trump-boston-kansas
 **D.H.S. Won’t Name Agents Who Kill. Local Police Agencies Are More Open.**\
 `The department will not name the agent who killed a Colombian immigrant in Maine. Some large police agencies recognize a public right to know the identities of officers involved in violence.`\
 https://www.nytimes.com/2026/07/19/us/dhs-officer-names-shootings.html
-
-**The Case of the 3:30 Emails**\
-`Plus: Are you really paying attention to me on Zoom?`\
-https://www.nytimes.com/2026/07/19/business/delayed-email-glitch.html
-
-**How Kerry Washington and Whitney White Are Honoring Whoopi Goldberg Through Theater**\
-`The actress Kerry Washington and the director Whitney White want to honor Goldberg’s theatrical legacy by revisiting her acclaimed portraits of humanity.`\
-https://www.nytimes.com/2026/07/19/theater/whoopi-goldberg-kerry-washington-whoopi-monologues.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\

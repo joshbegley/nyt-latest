@@ -1,3 +1,15 @@
+**At World Cup Final, Trump Seeks to Bask in Another Sports Championship**\
+`The president flew in Marine One over MetLife Stadium on Sunday ahead of his arrival. It was the second time recently that he sought to seize the spotlight at a major sporting event.`\
+https://www.nytimes.com/2026/07/19/us/politics/trump-world-cup-final.html
+
+**A Conversation with Zohran Mamdani**\
+`The mayor of New York City talks about Andy Burnham, Netanyahu and the controversial U.S. red card.`\
+https://www.nytimes.com/2026/07/19/world/zohran-mamdani-interview-world-cup-final.html
+
+**Deadly 5.5-Magnitude Earthquake Strikes Peru**\
+`A 5.5-magnitude earthquake struck Peru’s central highlands region on Saturday, killing six people, the authorities said. Although Peru is prone to frequent quakes, this was the biggest to strike that region in over 50 years.`\
+https://www.nytimes.com/video/world/americas/100000011040683/peru-earthquake.html
+
 **Deadly 5.5-Magnitude Earthquake Strikes Peru**\
 `A 5.5-magnitude earthquake struck Peru’s central highlands region on Saturday, killing six people, the authorities said. Although Peru is prone to frequent quakes, this was the biggest to strike that region in over 50 years.`\
 https://www.nytimes.com/video/world/americas/100000011040683/deadly-5-5-magnitude-earthquake-strikes-peru.html
