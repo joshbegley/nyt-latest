@@ -1,3 +1,7 @@
+**World Cup Updates: Lamine Yamal, Son of African Migrants, Personifies a Changing Spain**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Misery in the Epicenter of Cyclospora: ‘A Baseball Bat to Your Abdomen’**\
 `The debilitating malady has gripped Monroe County, Mich.`\
 https://www.nytimes.com/2026/07/19/us/cyclospora-michigan.html
