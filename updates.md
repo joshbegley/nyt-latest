@@ -1,3 +1,7 @@
+**JD and Usha Vance Welcome Fourth Child**\
+`In a post on social media, Mr. Vance said his wife and their son, Alec Neel Vance, were “happy and healthy.”`\
+https://www.nytimes.com/2026/07/19/us/jd-usha-vance-baby.html
+
 **Watching the World Cup: ‘I Can’t Believe We Get to Be Here’**\
 `For fans at MetLife Stadium, the World Cup final was the thrill of a lifetime.`\
 https://www.nytimes.com/2026/07/19/nyregion/worldcup-final-metlife-photos.html
