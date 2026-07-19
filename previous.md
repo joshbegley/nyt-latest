@@ -166,10 +166,6 @@ https://www.nytimes.com/2026/07/19/business/step-into-the-zone-of-genius-before-
 `“The Boys” was supersnubbed.`\
 https://www.nytimes.com/2026/07/19/opinion/emmys-the-boys-amazon-homelander-snub.html
 
-**Don’t Let This Useless Debate Distract You, Democrats**\
-`A battle over idealized economic systems doesn’t help Democratic candidates.`\
-https://www.nytimes.com/2026/07/19/opinion/democrats-capitalism-socialism.html
-
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
