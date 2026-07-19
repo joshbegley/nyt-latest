@@ -1,3 +1,7 @@
+**Oil Prices Cross $90 a Barrel as U.S.-Iran Conflict Widens**\
+`Brent crude, the global benchmark for oil, rose more than 3 percent as trading resumed on Sunday, while S&P 500 futures remained essentially unchanged.`\
+https://www.nytimes.com/2026/07/19/business/oil-prices-stocks-gas.html
+
 **Hal Williams, Actor in First Wave of Black Sitcoms, Dies at 91**\
 `As a divorced father of three in Ohio, he moved to Hollywood to pursue his boyhood dream to act. He became a recognizable face on “Sanford and Son.”`\
 https://www.nytimes.com/2026/07/19/obituaries/hal-williams-dead.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/19/world/americas/argentines-already-losing-thei
 **¿Qué pasa si la madera de los instrumentos musicales se vuelve ilegal?**\
 `El estándar de oro para fabricar arcos de instrumentos de cuerda durante siglos ha sido el árbol de pernambuco brasileño. Ahora su futuro es incierto.`\
 https://www.nytimes.com/es/2026/07/19/espanol/madera-ilegal-instrumentos-musicales.html
-
-**MetLife Stadium Faces Monumental Last Test in Sunday’s World Cup Final**\
-`New Jersey’s N.F.L. stadium is used to big events. So far, it’s seen few issues during the World Cup, but Sunday’s final presents the biggest challenge yet.`\
-https://www.nytimes.com/2026/07/19/nyregion/metlife-stadium-world-cup-final.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
