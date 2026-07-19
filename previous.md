@@ -1,3 +1,7 @@
+**Watching the World Cup: ‘I Can’t Believe We Get to Be Here’**\
+`For fans at MetLife Stadium, the World Cup final was the thrill of a lifetime.`\
+https://www.nytimes.com/2026/07/19/nyregion/worldcup-final-metlife-photos.html
+
 **Oil Prices Cross $90 a Barrel as U.S.-Iran Conflict Widens**\
 `Brent crude, the global benchmark for oil, rose more than 3 percent as trading resumed on Sunday, while S&P 500 futures remained essentially unchanged.`\
 https://www.nytimes.com/2026/07/19/business/oil-prices-stocks-gas.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
 **Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
 `The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
-
-**Argentines, Already ‘Losing Their Minds,’ Brace for World Cup Final**\
-`A championship victory would be pure elation, but Argentina is already basking in a state of grace after a win against England and a monthlong fever dream.`\
-https://www.nytimes.com/2026/07/19/world/americas/argentines-already-losing-their-minds-brace-for-world-cup-final.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
