@@ -1,3 +1,7 @@
+**El cannabis medicinal podría ayudar con la agitación de la demencia**\
+`En un estudio, una combinación de THC y CBD alivió los síntomas en una población especialmente frágil: pacientes con demencia avanzada cerca del final de sus vidas.`\
+https://www.nytimes.com/es/2026/07/19/espanol/cannabis-medicinal-agitacion-demencia.html
+
 **Los porteros no necesitan tu compasión**\
 `Aislado, expuesto y casi siempre juzgado por una sola jugada, el arquero encarna la parte más cruel y más emocionante del juego.`\
 https://www.nytimes.com/es/2026/07/19/espanol/opinion/mundial-porteros.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/18/health/walt-odets-dead.html
 **The Hunt for a Job Has Never Been Worse. These Applicants Are Fighting Back.**\
 `A.I. is destroying the application process for employers and potential employees. We need to fix it.`\
 https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
-
-**The Evolution of Presidential Travel: Horse Carriages to Air Force One**\
-`From horse-drawn presidential coaches to Air Force One, presidents have used various modes of transportation to project an image of America for nearly 250 years.`\
-https://www.nytimes.com/2026/07/18/us/politics/trump-air-force-one-travel.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
