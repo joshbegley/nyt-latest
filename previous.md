@@ -48,7 +48,7 @@ https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru
 
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
 `Troy Jackson, a progressive, solidified his edge over his rivals in an abbreviated nominating contest to replace Graham Platner. Shenna Bellows, another candidate, bowed out.`\
-https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
 
 **Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
 `Jordan’s role in U.S. operations against Iran has grown as other allies in the region have restricted Washington’s ability to use their bases and airspace.`\

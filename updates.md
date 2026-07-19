@@ -1,3 +1,7 @@
+**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
+`Troy Jackson, a progressive, solidified his edge over his rivals in an abbreviated nominating contest to replace Graham Platner. Shenna Bellows, another candidate, bowed out.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
+
 **Russia Bombards Kyiv in One of the War’s Largest Missile Assaults**\
 `Officials said one person had been killed and more than 15 had been injured, with that toll likely to rise. The attacks on Kyiv coincided with Ukraine’s targeting of oil and gas facilities in Russia, which has prompted fuel shortages there.`\
 https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-russia-war.html

@@ -1,3 +1,7 @@
+**Terremoto en Perú deja 6 muertos y desplaza a cientos**\
+`Perú es propenso a sismos frecuentes, pero el temblor de magnitud 5,5 fue el más grande en azotar la zona de la sierra central en casi 50 años.`\
+https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-cierra-central.html
+
 **Russia Bombards Kyiv in One of the War’s Largest Missile Assaults**\
 `Officials said one person had been killed and more than 15 had been injured, with that toll likely to rise. The attacks on Kyiv coincided with Ukraine’s targeting of oil and gas facilities in Russia, which has prompted fuel shortages there.`\
 https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-russia-war.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/19/us/politics/sanctuary-states-deportation-aid.
 **The ‘Bad Blood’ Between Polymarket’s Shayne Coplan and Kalshi’s Tarek Mansour**\
 `Shayne Coplan of Polymarket and Tarek Mansour of Kalshi are young billionaires intent on dominating prediction markets. It’s more than a battle. It’s “bad blood.”`\
 https://www.nytimes.com/2026/07/19/technology/polymarket-kalshi-rivalry-coplan-mansour.html
-
-**Trump Gutted Civil Rights Agency, Stifling U.S. Scrutiny of Workplace Bias**\
-`A little-known federal office spent decades investigating potential discrimination by government contractors — until it was stopped by the Trump administration.`\
-https://www.nytimes.com/2026/07/19/us/politics/trump-gutted-civil-rights-agency-stifling-us-scrutiny-of-workplace-bias.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
