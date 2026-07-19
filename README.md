@@ -190,10 +190,6 @@ https://www.nytimes.com/2026/07/19/world/middleeast/strait-hormuz-iran.html
 `En un estudio, una combinación de THC y CBD alivió los síntomas en una población especialmente frágil: pacientes con demencia avanzada cerca del final de sus vidas.`\
 https://www.nytimes.com/es/2026/07/19/espanol/cannabis-medicinal-agitacion-demencia.html
 
-**Los porteros no necesitan tu compasión**\
-`Aislado, expuesto y casi siempre juzgado por una sola jugada, el arquero encarna la parte más cruel y más emocionante del juego.`\
-https://www.nytimes.com/es/2026/07/19/espanol/opinion/mundial-porteros.html
-
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
