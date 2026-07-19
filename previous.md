@@ -1,3 +1,7 @@
+**Deadly 5.5-Magnitude Earthquake Strikes Peru**\
+`A 5.5-magnitude earthquake struck Peru’s central highlands region on Saturday, killing six people, the authorities said. Although Peru is prone to frequent quakes, this was the biggest to strike that region in over 50 years.`\
+https://www.nytimes.com/video/world/americas/100000011040683/deadly-5-5-magnitude-earthquake-strikes-peru.html
+
 **Live Updates: Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
 `Shakira and Justin Bieber were among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
 https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/19/business/delayed-email-glitch.html
 **How Kerry Washington and Whitney White Are Honoring Whoopi Goldberg Through Theater**\
 `The actress Kerry Washington and the director Whitney White want to honor Goldberg’s theatrical legacy by revisiting her acclaimed portraits of humanity.`\
 https://www.nytimes.com/2026/07/19/theater/whoopi-goldberg-kerry-washington-whoopi-monologues.html
-
-**Step Into the ‘Zone of Genius’ (Before A.I. Takes Your Job)**\
-`A decades-old self-help concept is gaining new purchase among people searching for meaningful work in the age of artificial intelligence.`\
-https://www.nytimes.com/2026/07/19/business/step-into-the-zone-of-genius-before-ai-takes-your-job.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\

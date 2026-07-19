@@ -1,3 +1,7 @@
+**Deadly 5.5-Magnitude Earthquake Strikes Peru**\
+`A 5.5-magnitude earthquake struck Peru’s central highlands region on Saturday, killing six people, the authorities said. Although Peru is prone to frequent quakes, this was the biggest to strike that region in over 50 years.`\
+https://www.nytimes.com/video/world/americas/100000011040683/deadly-5-5-magnitude-earthquake-strikes-peru.html
+
 **Earthquake in Peru Kills 6 and Displaces Hundreds**\
 `Peru is prone to frequent quakes, but the 5.5-magnitude temblor was the biggest to strike the central highlands area in more than 50 years.`\
 https://www.nytimes.com/2026/07/19/world/americas/peru-earthquake.html
