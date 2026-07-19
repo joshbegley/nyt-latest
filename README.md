@@ -1,3 +1,7 @@
+**Did This World Cup Change Soccer Forever?**\
+`With a wartime host nation, a referee deported and a ban overturned after a call from the White House, the 2026 tournament tested FIFA like no other.`\
+https://www.nytimes.com/2026/07/19/world/europe/fifa-world-cup-final.html
+
 **JD and Usha Vance Welcome Fourth Child**\
 `In a post on social media, Mr. Vance said his wife and their son, Alec Neel Vance, were “happy and healthy.”`\
 https://www.nytimes.com/2026/07/19/us/jd-usha-vance-baby.html
@@ -22,8 +26,8 @@ https://www.nytimes.com/2026/07/19/crosswords/daily-puzzle-2026-07-20.html
 `The performers valiantly attempted to justify the existence of the show, which was impeccably choreographed and thematically jumbled.`\
 https://www.nytimes.com/2026/07/19/arts/music/world-cup-halftime-show-review.html
 
-**At World Cup Final, Trump Seeks to Bask in Another Sports Championship**\
-`The president flew in Marine One over MetLife Stadium on Sunday ahead of his arrival. It was the second time recently that he sought to seize the spotlight at a major sporting event.`\
+**Trump Relents From Spain-Bashing to Present Its Team the World Cup Trophy**\
+`Mr. Trump, who this month referred to Spain as “hopeless,” seemingly had little choice but to exhibit diplomacy on Sunday as he handed the golden trophy to the country’s players.`\
 https://www.nytimes.com/2026/07/19/us/politics/trump-world-cup-final.html
 
 **A Conversation with Zohran Mamdani**\
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/19/opinion/ai-attention-social-media-attachment.
 **NYT Strands Hints for July 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
 https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
-
-**Russia Batters Kyiv in One of the Largest Missile Assaults of the War**\
-`On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
-https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
 `The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
