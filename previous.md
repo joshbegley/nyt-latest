@@ -162,10 +162,6 @@ https://www.nytimes.com/2026/07/19/theater/whoopi-goldberg-kerry-washington-whoo
 `A decades-old self-help concept is gaining new purchase among people searching for meaningful work in the age of artificial intelligence.`\
 https://www.nytimes.com/2026/07/19/business/step-into-the-zone-of-genius-before-ai-takes-your-job.html
 
-**‘The Boys’ Is the Biggest Snub of the Emmys**\
-`“The Boys” was supersnubbed.`\
-https://www.nytimes.com/2026/07/19/opinion/emmys-the-boys-amazon-homelander-snub.html
-
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup

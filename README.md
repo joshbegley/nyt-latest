@@ -1,5 +1,5 @@
 **Live Updates: Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
-`Shakira and Justin Bieber are among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
+`Shakira and Justin Bieber were among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
 https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
 
 **Terremoto en Perú deja 6 muertos y desplaza a cientos**\
