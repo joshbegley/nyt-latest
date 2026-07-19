@@ -15,7 +15,7 @@ https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-
 https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
 
 **Earthquake in Peru Kills 6 and Displaces Hundreds**\
-`Peru is prone to frequent quakes, but the 5.5-magnitude temblor was the biggest to strike the central highlands area in nearly 50 years.`\
+`Peru is prone to frequent quakes, but the 5.5-magnitude temblor was the biggest to strike the central highlands area in more than 50 years.`\
 https://www.nytimes.com/2026/07/19/world/americas/peru-earthquake.html
 
 **In Arizona’s Primaries, Democrats Fight Over a House Seat They Need Badly**\

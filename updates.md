@@ -1,3 +1,7 @@
+**Earthquake in Peru Kills 6 and Displaces Hundreds**\
+`Peru is prone to frequent quakes, but the 5.5-magnitude temblor was the biggest to strike the central highlands area in more than 50 years.`\
+https://www.nytimes.com/2026/07/19/world/americas/peru-earthquake.html
+
 **Live Updates: Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
 `Shakira and Justin Bieber were among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
 https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
