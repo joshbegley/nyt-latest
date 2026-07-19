@@ -1,5 +1,5 @@
 **Tate Brothers Arrested in Miami As U.K. Authorities File Sex Crime Charges**\
-`The arrests of the online influencers known for their misogynistic views come after years of investigations in Britain and Romania. The new charges concern offenses dating back to 2010, officials said.`\
+`The arrests of the influencers, known for their misogynistic views, come after years of investigations in Europe. The new charges concern offenses dating back to 2010, officials said.`\
 https://www.nytimes.com/2026/07/18/us/tate-brothers-arrest-miami.html
 
 **What to Know About Fires Caused by Lightning in the Pacific Northwest**\
