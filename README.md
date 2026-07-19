@@ -1,3 +1,7 @@
+**Federal Agents Were Told FBI Will No Longer Investigate ICE Confrontations**\
+`Senior officials deny such a change is in the works, despite guidance shared with agents around the country in recent days.`\
+https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-shootings.html
+
 **Map: 5.5-Magnitude Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/19/world/americas/18wea-quake-tracker-peru-nyt5ifau.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/19/espanol/estados-unidos/ley-sanciones-rusia
 **How We Watched the World Cup**\
 `The number of people who attend the World Cup is nothing compared with the sheer world-buckling biomass of those who experience it on a screen.`\
 https://www.nytimes.com/2026/07/19/opinion/watching-the-world-cup.html
-
-**It’s No Longer So Much Fun to Be MAGA in Washington**\
-`It’s a vibe shift.`\
-https://www.nytimes.com/2026/07/19/opinion/washington-dc-maga-trump.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
