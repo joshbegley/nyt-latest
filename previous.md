@@ -1,3 +1,7 @@
+**What to Know About Fires Caused by Lightning in the Pacific Northwest**\
+`Dozens of fires ignited in Oregon and Washington as more than 14,000 lightning strikes hit the region during thunderstorms this week.`\
+https://www.nytimes.com/2026/07/18/us/what-to-know-fires-lightning-pacific-northwest.html
+
 **Adidas Hopes Its World Cup Moment Can Drive U.S. Sales**\
 `Nearly everything on the field on Sunday will bear the German company’s logo. Bjørn Gulden, the chief executive, says he ‘couldn’t have scripted it better.’`\
 https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/18/crosswords/wordle-review-1856.html
 **NYT Connections Answers for July 19, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 19, 2026.`\
 https://www.nytimes.com/2026/07/18/crosswords/connections-companion-1134.html
-
-**Freedom Convoy Leader, Under House Arrest, Wants to Visit the White House**\
-`Prosecutors say Tamara Lich wants a “blank cheque” for international travel, including a cruise, arguing that she is trying to profit from the very protest that got her sentenced.`\
-https://www.nytimes.com/2026/07/18/world/canada/freedom-convoy-ottawa-lich-wildfires.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\

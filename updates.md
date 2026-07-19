@@ -1,3 +1,7 @@
+**What to Know About Fires Caused by Lightning in the Pacific Northwest**\
+`Dozens of fires ignited in Oregon and Washington as more than 14,000 lightning strikes hit the region during thunderstorms this week.`\
+https://www.nytimes.com/2026/07/18/us/what-to-know-fires-lightning-pacific-northwest.html
+
 **Adidas Hopes Its World Cup Moment Can Drive U.S. Sales**\
 `Nearly everything on the field on Sunday will bear the German company’s logo. Bjørn Gulden, the chief executive, says he ‘couldn’t have scripted it better.’`\
 https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
