@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-sho
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru.html
 
-**In Maine, Bellows Ends Senate Bid, as Jackson Builds Momentum**\
-`The Maine secretary of state ended her run in a crowded race to replace Graham Platner as the Democratic Senate nominee.`\
+**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
+`Troy Jackson, a progressive, solidified his edge over his rivals in an abbreviated nominating contest to replace Graham Platner. Shenna Bellows, another candidate, bowed out.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
 
 **Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
@@ -189,10 +189,6 @@ https://www.nytimes.com/2026/07/19/world/middleeast/strait-hormuz-iran.html
 **El cannabis medicinal podría ayudar con la agitación de la demencia**\
 `En un estudio, una combinación de THC y CBD alivió los síntomas en una población especialmente frágil: pacientes con demencia avanzada cerca del final de sus vidas.`\
 https://www.nytimes.com/es/2026/07/19/espanol/cannabis-medicinal-agitacion-demencia.html
-
-**Los porteros no necesitan tu compasión**\
-`Aislado, expuesto y casi siempre juzgado por una sola jugada, el arquero encarna la parte más cruel y más emocionante del juego.`\
-https://www.nytimes.com/es/2026/07/19/espanol/opinion/mundial-porteros.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\

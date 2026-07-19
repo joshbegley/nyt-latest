@@ -1,3 +1,7 @@
+**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
+`Troy Jackson, a progressive, solidified his edge over his rivals in an abbreviated nominating contest to replace Graham Platner. Shenna Bellows, another candidate, bowed out.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
+
 **In Arizona’s Primaries, Democrats Fight Over a House Seat They Need Badly**\
 `Democrats have a chance to flip a competitive battleground district in and around Scottsdale, but the winner of Tuesday’s primary will emerge bloodied and broke.`\
 https://www.nytimes.com/2026/07/19/us/elections/arizona-democratic-primary-shah-galan-woods.html
