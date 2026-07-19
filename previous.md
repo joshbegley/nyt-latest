@@ -1,3 +1,7 @@
+**El proyecto de ley para sancionar a Rusia plantea un dilema para Trump**\
+`El gobierno de Trump busca reducir las sanciones a medida que sus adversarios desarrollan alternativas que algunos creen podrían erosionar la supremacía del dólar de EE. UU.`\
+https://www.nytimes.com/es/2026/07/19/espanol/estados-unidos/ley-sanciones-rusia-trump.html
+
 **How We Watched the World Cup**\
 `The number of people who attend the World Cup is nothing compared with the sheer world-buckling biomass of those who experience it on a screen.`\
 https://www.nytimes.com/2026/07/19/opinion/watching-the-world-cup.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/18/opinion/trump-hegseth-testosterone.html
 **The ‘Devil’s Bargain’ at the Heart of American Politics Now**\
 `This week: the Todd Blanche hearing, Lindsey Graham’s legacy and progressive infighting.`\
 https://www.nytimes.com/2026/07/18/opinion/politics-compromise-todd-blanche.html
-
-**An Eye-Opening Visit to the ‘Little House’ of My Childhood**\
-`Laura Ingalls Wilder and the myth of the American West revisited.`\
-https://www.nytimes.com/2026/07/18/opinion/little-house-netflix-show-laura-ingalls-wilder.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\

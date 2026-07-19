@@ -1,3 +1,7 @@
+**El proyecto de ley para sancionar a Rusia plantea un dilema para Trump**\
+`El gobierno de Trump busca reducir las sanciones a medida que sus adversarios desarrollan alternativas que algunos creen podrían erosionar la supremacía del dólar de EE. UU.`\
+https://www.nytimes.com/es/2026/07/19/espanol/estados-unidos/ley-sanciones-rusia-trump.html
+
 **How We Watched the World Cup**\
 `The number of people who attend the World Cup is nothing compared with the sheer world-buckling biomass of those who experience it on a screen.`\
 https://www.nytimes.com/2026/07/19/opinion/watching-the-world-cup.html
