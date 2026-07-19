@@ -1,3 +1,7 @@
+**Who Is Ahead in Florida's 24th Congressional District?**\
+`Track the latest polls in Florida's 24th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-24-polls-2026.html
+
 **World Cup Updates: Lamine Yamal, Son of African Migrants, Personifies a Changing Spain**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
