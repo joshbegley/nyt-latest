@@ -1,3 +1,11 @@
+**Russia Batters Kyiv in Overnight Attack**\
+`On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
+https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
+
+**Iran War Live Updates: U.S. and Iran Edge Closer to All-Out War After U.S. Service Members Killed**\
+`The U.S. military said it had targeted Iranian forces that were responsible for an attack on a base in Jordan that left two American service members dead and one missing.`\
+https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
+
 **Argentines, Already ‘Losing Their Minds,’ Brace for World Cup Final**\
 `A championship victory would be pure elation, but Argentina is already basking in a state of grace after a win against England and a monthlong fever dream.`\
 https://www.nytimes.com/2026/07/19/world/americas/argentines-already-losing-their-minds-brace-for-world-cup-final.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/18/nyregion/smoke-world-cup-final-nyc.html
 **Lillian Roberts, Crusading New York Labor Leader, Dies at 98**\
 `She unionized state hospitals and battled with Mayor Michael R. Bloomberg during her feisty leadership of the nation’s largest municipal workers union.`\
 https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
-
-**Cindy Burbank, Nebraska’s Democratic Senate Nominee, Files to Withdraw From Race**\
-`The move by Cindy Burbank could clear a path for Dan Osborn, an independent candidate backed by her party’s leadership. But Republicans have cried foul, and her effort could face obstacles.`\
-https://www.nytimes.com/2026/07/18/us/politics/nebraska-senate-race-democrat-withdraw.html
-
-**Deaths of 2 U.S. Troops in Jordan Brings American Toll in the War With Iran to 16**\
-`President Trump vowed to avenge the deaths of any U.S. military personnel.`\
-https://www.nytimes.com/2026/07/18/world/middleeast/us-troops-killed-iran-war-jordan.html
 
