@@ -1,10 +1,14 @@
+**Mapa: un terremoto de magnitud 5,5 sacude Perú**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/07/19/espanol/terremoto-peru.html
+
 **Federal Agents Were Told FBI Will No Longer Investigate ICE Confrontations**\
 `Senior officials deny such a change is in the works, despite guidance shared with agents around the country in recent days.`\
 https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-shootings.html
 
 **Map: 5.5-Magnitude Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/19/world/americas/18wea-quake-tracker-peru-nyt5ifau.html
+https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru.html
 
 **In Maine, Bellows Ends Senate Bid as Jackson Builds Momentum**\
 `The Maine secretary of state ended her run in a crowded race to replace Graham Platner as the Democratic Senate nominee.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/19/crosswords/spelling-bee-forum.html
 **El proyecto de ley para sancionar a Rusia plantea un dilema para Trump**\
 `El gobierno de Trump busca reducir las sanciones a medida que sus adversarios desarrollan alternativas que algunos creen podrían erosionar la supremacía del dólar de EE. UU.`\
 https://www.nytimes.com/es/2026/07/19/espanol/estados-unidos/ley-sanciones-rusia-trump.html
-
-**How We Watched the World Cup**\
-`The number of people who attend the World Cup is nothing compared with the sheer world-buckling biomass of those who experience it on a screen.`\
-https://www.nytimes.com/2026/07/19/opinion/watching-the-world-cup.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
