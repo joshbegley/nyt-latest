@@ -1,3 +1,7 @@
+**When Will the Wildfire Smoke Clear?**\
+`Forecasters expected the worst conditions across the Great Lakes region on Sunday, with air quality alerts in effect across the area.`\
+https://www.nytimes.com/2026/07/19/weather/wildfire-smoke-latest-updates.html
+
 **Russia Batters Kyiv in One of the Largest Missile Assaults of the War**\
 `On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
 https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
