@@ -1,3 +1,23 @@
+**sunday-daily-world-cup-messi-Spain-Argentina**\
+`Today, Spain’s unstoppable machine faces Lionel Messi’s immovable Argentina.`\
+https://www.nytimes.com/2026/07/19/podcasts/the-daily/the-world-cup-final-is-here.html
+
+**NYT Connections Answers for July 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/19/crosswords/connections-companion-1135.html
+
+**Today’s Wordle Hints for July 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/19/crosswords/wordle-review-1857.html
+
+**Social Media Hacked Our Attention. A.I. Scares Me More.**\
+`A.I. plays on our heartstrings, manipulating the systems in our brains that bond us to other people.`\
+https://www.nytimes.com/2026/07/19/opinion/ai-attention-social-media-attachment.html
+
+**NYT Strands Hints for July 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
+
 **Russia Batters Kyiv in Overnight Attack**\
 `On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
 https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/18/crosswords/daily-puzzle-2026-07-19.html
 **After Days of Wildfire Smoke, New York City Hit By Heavy Thunderstorms**\
 `Heavy rains and thunderstorms hit New York City on Saturday, prompting flash flood warnings for Manhattan, Brooklyn and Queens.`\
 https://www.nytimes.com/video/us/100000011039760/after-days-of-wildfire-smoke-new-york-city-hit-by-heavy-thunderstorms.html
-
-**Why Jordan Is Becoming a New Focus in the U.S.-Iran War**\
-`Four Iranian attacks in five days have targeted U.S. troops in Jordan, U.S. officials said, including one on Friday that killed two soldiers and left another service member missing.`\
-https://www.nytimes.com/2026/07/18/world/middleeast/iran-war-jordan-attacks.html
-
-**Madison Square Garden Sues Wired Magazine Over L.G.B.T.Q. Tracking Report**\
-`The Manhattan venue claims a July article from the technology magazine falsely implied that it tracked information about some celebrities’ sexual orientation for “discriminatory purposes.”`\
-https://www.nytimes.com/2026/07/18/business/media/msg-entertainment-sues-wired-magazine.html
-
-**Canada Wildfires: What to Know**\
-`Hundreds of wildfires in Canada and the United States have blanketed large sections of North America in dense smoke over the past week.`\
-https://www.nytimes.com/2026/07/18/world/canada/canada-wildfires-what-to-know.html
-
-**Wildfire Smoke Hangs Over World Cup Final**\
-`Smoke has blanketed New York City and other parts of the Northeast United States in a thick haze this week, unleashing smoggy skies and dangerous air.`\
-https://www.nytimes.com/2026/07/18/nyregion/smoke-world-cup-final-nyc.html
-
-**Lillian Roberts, Crusading New York Labor Leader, Dies at 98**\
-`She unionized state hospitals and battled with Mayor Michael R. Bloomberg during her feisty leadership of the nation’s largest municipal workers union.`\
-https://www.nytimes.com/2026/07/18/nyregion/lillian-roberts-dead.html
 
