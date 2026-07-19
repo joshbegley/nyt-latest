@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/07/19/pageoneplus/corrections-july-19-2026.html
 `Quotation of the Day for Sunday, June 19, 2026.`\
 https://www.nytimes.com/2026/07/19/pageoneplus/quote-of-the-day-in-the-tournaments-final-metlife-stadium-faces-a-monumental-last-test.html
 
-**Photographer of That Messi-Baby Yamal Photo Tells the Backstory**\
-`Joan Monfort, a freelance photographer, took the now famous photo of the Argentine soccer legend Lionel Messi, then just 20, with Lamine Yamal, an infant who would grow up to become a phenom for Spain. Some 19 years later, the two are set to face off in the World Cup final on Sunday.`\
-https://www.nytimes.com/video/sports/soccer/100000011039551/messi-yamal-photo-photographer-world-cup.html
+**World Cup Updates: Lamine Yamal, Son of African Migrants, Personifies a Changing Spain**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
 
