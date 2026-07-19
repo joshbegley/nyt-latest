@@ -1,3 +1,15 @@
+**Tropical Storm Watches Issued Along the Gulf Coast**\
+`A tropical depression could soon strengthen into the hurricane season’s second named storm, forecasters said.`\
+https://www.nytimes.com/2026/07/19/weather/tropical-storm-gulf-coast-florida.html
+
+**The U.S. Is Sending More Warplanes to the Middle East, Officials Say**\
+`F-16 and F-35 jets were en route to the region from Europe, according to U.S. officials who were not authorized to speak publicly.`\
+https://www.nytimes.com/2026/07/19/world/middleeast/us-warplanes-mideast-iran.html
+
+**Man Killed by Truck After ICE Encounter in Florida Was Visiting From Mexico**\
+`A Central Florida nonprofit group identified the man as Juan Jairo Coronilla Durán and said he had planned to return home to his family.`\
+https://www.nytimes.com/2026/07/19/us/florida-ice-death-mexico-visit.html
+
 **Maps: Tracking Tropical Depression Two**\
 `See the likely path and wind arrival times for Two`\
 https://www.nytimes.com/interactive/2026/07/19/weather/tropical-depression-two-map-path-tracker.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/es/2026/07/19/espanol/negocios/capacitacion-ia-empleos.h
 **¿Venezuela ahora es una colonia de EE. UU. o un Estado soberano?**\
 `La situación actual de Venezuela refleja la nueva era imperial, en la que es cada vez más innecesario e inconveniente para las grandes potencias hacer ocupaciones formales de Estados pequeños.`\
 https://www.nytimes.com/es/2026/07/19/espanol/america-latina/venezuela-colonia-soberania.html
-
-**Before Lettuce Felled Thousands, a Cilantro-Linked Cyclospora Outbreak Sickened New Yorkers**\
-`New York City health officials shared details of how they traced a much smaller cyclosporiasis outbreak, showing the difficulty of tracing contamination.`\
-https://www.nytimes.com/2026/07/19/nyregion/cyclosporiasis-outbreak-nyc-testing.html
-
-**Black and Latino Leaders Ask: What Do Socialist Wins Mean for New York?**\
-`Longtime leaders and advocates in minority districts fear that victories by the Democratic Socialists of America in gentrifying neighborhoods could mean political erasure.`\
-https://www.nytimes.com/2026/07/19/nyregion/black-latino-leaders-dsa-nyc.html
-
-**NYT Spelling Bee Answers for July 19, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/19/crosswords/spelling-bee-forum.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\

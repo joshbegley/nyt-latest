@@ -1,3 +1,15 @@
+**Tropical Storm Watches Issued Along the Gulf Coast**\
+`A tropical depression could soon strengthen into the hurricane season’s second named storm, forecasters said.`\
+https://www.nytimes.com/2026/07/19/weather/tropical-storm-gulf-coast-florida.html
+
+**The U.S. Is Sending More Warplanes to the Middle East, Officials Say**\
+`F-16 and F-35 jets were en route to the region from Europe, according to U.S. officials who were not authorized to speak publicly.`\
+https://www.nytimes.com/2026/07/19/world/middleeast/us-warplanes-mideast-iran.html
+
+**Man Killed by Truck After ICE Encounter in Florida Was Visiting From Mexico**\
+`A Central Florida nonprofit group identified the man as Juan Jairo Coronilla Durán and said he had planned to return home to his family.`\
+https://www.nytimes.com/2026/07/19/us/florida-ice-death-mexico-visit.html
+
 **Maps: Tracking Tropical Depression Two**\
 `See the likely path and wind arrival times for Two`\
 https://www.nytimes.com/interactive/2026/07/19/weather/tropical-depression-two-map-path-tracker.html
