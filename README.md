@@ -1,3 +1,11 @@
+**Second Patient Dies in Outbreak of Legionnaires’ Disease in Manhattan**\
+`The second victim was an 88-year-old retired businessman and Air Force veteran who lived on the Upper East Side, his lawyer said.`\
+https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
+
+**Earthquake in Peru Kills 6 and Displaces Hundreds**\
+`Peru is prone to frequent quakes, but the 5.5-magnitude temblor was the biggest to strike the central highlands area in nearly 50 years.`\
+https://www.nytimes.com/2026/07/19/world/americas/peru-earthquake.html
+
 **In Arizona’s Primaries, Democrats Fight Over a House Seat They Need Badly**\
 `Democrats have a chance to flip a competitive battleground district in and around Scottsdale, but the winner of Tuesday’s primary will emerge bloodied and broke.`\
 https://www.nytimes.com/2026/07/19/us/elections/arizona-democratic-primary-shah-galan-woods.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/19/us/politics/trump-gutted-civil-rights-agency-
 **Failed Immigration Cases Leave Chicago Prosecutor’s Office Reeling**\
 `Prosecutors have fled the U.S. attorney’s office in Chicago, angry about the cases they’ve been told to bring against protesters and immigrants.`\
 https://www.nytimes.com/2026/07/19/us/immigration-chicago-prosecutors.html
-
-**A Modest Proposal for the Strait Dispute: A Shared Pact Among Gulf States**\
-`A London-based research group has invoked a now-defunct European pact on coal and steel to suggest forming a coalition of countries that would share control of the Strait of Hormuz.`\
-https://www.nytimes.com/2026/07/19/world/middleeast/strait-hormuz-iran.html
-
-**El cannabis medicinal podría ayudar con la agitación de la demencia**\
-`En un estudio, una combinación de THC y CBD alivió los síntomas en una población especialmente frágil: pacientes con demencia avanzada cerca del final de sus vidas.`\
-https://www.nytimes.com/es/2026/07/19/espanol/cannabis-medicinal-agitacion-demencia.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
