@@ -1,3 +1,7 @@
+**Taylor Farms Expands Iceberg Lettuce Recall to 27 States Amid Cyclospora Outbreak**\
+`The F.D.A. said that a new sample from the company’s Mexico facility had tested positive for cyclospora and that the agency was trying to trace affected products.`\
+https://www.nytimes.com/2026/07/18/health/taylor-farms-iceberg-lettuce-recall.html
+
 **What to Know About Fires Caused by Lightning in the Pacific Northwest**\
 `Dozens of fires ignited in Oregon and Washington as more than 14,000 lightning strikes hit the region during thunderstorms this week.`\
 https://www.nytimes.com/2026/07/18/us/what-to-know-fires-lightning-pacific-northwest.html

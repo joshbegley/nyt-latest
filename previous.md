@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/07/18/world/europe/cpac-great-britain-farage.html
 https://www.nytimes.com/2026/07/18/dining/garlic-bread-grilled-cheese-of-course.html
 
 **Taylor Farms Expands Iceberg Lettuce Recall to 27 States Amid Cyclospora Outbreak**\
-`The implicated products were marketed under several brands, and had been shipped as recently as Thursday.`\
+`The F.D.A. said that a new sample from the company’s Mexico facility had tested positive for cyclospora and that the agency was trying to trace affected products.`\
 https://www.nytimes.com/2026/07/18/health/taylor-farms-iceberg-lettuce-recall.html
 
 **Uproar Over Surrogate Baby Prompts German Official’s Sudden Resignation**\
