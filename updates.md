@@ -1,4 +1,8 @@
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
+`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah are dropping their bids.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
+
+**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
 `Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah dropped their bids.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
 

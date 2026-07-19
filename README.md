@@ -1,3 +1,7 @@
+**First World Cup Halftime Show: Lots of Stars, Little Purpose**\
+`The performers valiantly attempted to justify the existence of the show, which was impeccably choreographed and thematically jumbled.`\
+https://www.nytimes.com/2026/07/19/arts/music/world-cup-halftime-show-review.html
+
 **At World Cup Final, Trump Seeks to Bask in Another Sports Championship**\
 `The president flew in Marine One over MetLife Stadium on Sunday ahead of his arrival. It was the second time recently that he sought to seize the spotlight at a major sporting event.`\
 https://www.nytimes.com/2026/07/19/us/politics/trump-world-cup-final.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/07/19/world/zohran-mamdani-interview-world-cup-fina
 `A 5.5-magnitude earthquake struck Peru’s central highlands region on Saturday, killing six people, the authorities said. Although Peru is prone to frequent quakes, this was the biggest to strike that region in over 50 years.`\
 https://www.nytimes.com/video/world/americas/100000011040683/peru-earthquake.html
 
-**Live Updates: Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
+**Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
 `Shakira and Justin Bieber were among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
 https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
 
@@ -157,10 +161,6 @@ https://www.nytimes.com/es/2026/07/19/espanol/estilos-de-vida/brazos-ropa-sin-ma
 **The U.S. Braced For the World Cup. It Fell in Love Instead.**\
 `Amid anxiety over how the United States would welcome the world, cities like Lawrence, Kan., and Boston threw open their doors. The bonds forged are still visible on the streets.`\
 https://www.nytimes.com/2026/07/19/world/europe/us-world-cup-trump-boston-kansas.html
-
-**D.H.S. Won’t Name Agents Who Kill. Local Police Agencies Are More Open.**\
-`The department will not name the agent who killed a Colombian immigrant in Maine. Some large police agencies recognize a public right to know the identities of officers involved in violence.`\
-https://www.nytimes.com/2026/07/19/us/dhs-officer-names-shootings.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
