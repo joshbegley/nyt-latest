@@ -1,3 +1,7 @@
+**Who Is Ahead in Florida's 24th Congressional District?**\
+`Track the latest polls in Florida's 24th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-24-polls-2026.html
+
 **Misery in the Epicenter of Cyclospora: ‘A Baseball Bat to Your Abdomen’**\
 `The debilitating malady has gripped Monroe County, Mich.`\
 https://www.nytimes.com/2026/07/19/us/cyclospora-michigan.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/asia/100000011031760/tokyo-shorts-government
 **Corrections: July 19, 2026**\
 `Corrections that appeared in print on Sunday, July 19, 2026.`\
 https://www.nytimes.com/2026/07/19/pageoneplus/corrections-july-19-2026.html
-
-**Quote of the Day: In the Tournament’s Final, MetLife Stadium Faces a Monumental Last Test**\
-`Quotation of the Day for Sunday, June 19, 2026.`\
-https://www.nytimes.com/2026/07/19/pageoneplus/quote-of-the-day-in-the-tournaments-final-metlife-stadium-faces-a-monumental-last-test.html
 
 **World Cup Updates: Lamine Yamal, Son of African Migrants, Personifies a Changing Spain**\
 `(No description)`\
