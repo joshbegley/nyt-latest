@@ -1,3 +1,7 @@
+**Live Updates: Madonna, BTS and More Set for Spectacle at World Cup Halftime**\
+`Shakira and Justin Bieber are among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
+https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
+
 **Terremoto en Perú deja 6 muertos y desplaza a cientos**\
 `Perú es propenso a sismos frecuentes, pero el temblor de magnitud 5,5 fue el más grande en azotar la zona de la sierra central en casi 50 años.`\
 https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-cierra-central.html

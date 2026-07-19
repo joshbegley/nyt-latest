@@ -1,4 +1,4 @@
-**Live Updates: Madonna, BTS and More Set for Spectacle at World Cup Halftime**\
+**Live Updates: Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
 `Shakira and Justin Bieber are among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
 https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
 
@@ -122,8 +122,8 @@ https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
 `On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
 https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
 
-**Iran War Live Updates: U.S. and Iran Edge Closer to Wider War After U.S. Soldiers Killed**\
-`The United States was said to be sending more warplanes to the Middle East, a move that was already in the works before Iranian fire killed two soldiers in Jordan.`\
+**Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
+`The Pentagon said a service member was killed in northern Iraq on Saturday while disposing of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two troops dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 
 **Argentines, Already ‘Losing Their Minds,’ Brace for World Cup Final**\
@@ -169,10 +169,6 @@ https://www.nytimes.com/2026/07/19/opinion/emmys-the-boys-amazon-homelander-snub
 **Don’t Let This Useless Debate Distract You, Democrats**\
 `A battle over idealized economic systems doesn’t help Democratic candidates.`\
 https://www.nytimes.com/2026/07/19/opinion/democrats-capitalism-socialism.html
-
-**Politicians Are Trying to Change What Chatbots Say About Them**\
-`Political campaigns have something new to worry about these days: unflattering or incomplete information produced by A.I. programs when voters ask questions about candidates.`\
-https://www.nytimes.com/2026/07/19/us/politics/chatbots-political-campaigns.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\

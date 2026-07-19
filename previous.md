@@ -1,3 +1,7 @@
+**Live Updates: Madonna, BTS and More Set for Spectacle at World Cup Halftime**\
+`Shakira and Justin Bieber are among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
+https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
+
 **Terremoto en Perú deja 6 muertos y desplaza a cientos**\
 `Perú es propenso a sismos frecuentes, pero el temblor de magnitud 5,5 fue el más grande en azotar la zona de la sierra central en casi 50 años.`\
 https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-cierra-central.html
@@ -169,26 +173,6 @@ https://www.nytimes.com/2026/07/19/opinion/democrats-capitalism-socialism.html
 **Politicians Are Trying to Change What Chatbots Say About Them**\
 `Political campaigns have something new to worry about these days: unflattering or incomplete information produced by A.I. programs when voters ask questions about candidates.`\
 https://www.nytimes.com/2026/07/19/us/politics/chatbots-political-campaigns.html
-
-**Want to Bet on My Wedding?**\
-`As prediction markets and prop betting gain popularity, more couples are integrating them into their celebrations.`\
-https://www.nytimes.com/2026/07/19/style/want-to-bet-on-my-wedding.html
-
-**The Scariest Place in New Jersey Set the Stage for Her Novel**\
-`Caitlin Mullen drew on eerie expeditions to the Pine Barrens for her new mystery novel, “Heather.”`\
-https://www.nytimes.com/2026/07/19/books/review/caitlin-mullen-heather-pine-barrens.html
-
-**Sibling Therapy Is on the Rise. Could It Help My Relationship With My Brother?**\
-`I was drawn to and worried about this sort of therapy — maybe there were dangers in stirring things up.`\
-https://www.nytimes.com/2026/07/19/magazine/sibling-therapy.html
-
-**Trump Blasts ‘Sanctuary’ States, but Many Still Aid Deportations**\
-`A New York Times review of 18 states targeted by the Trump administration for their “sanctuary” policies found that all cooperate significantly with immigration authorities in cases involving violent crimes.`\
-https://www.nytimes.com/2026/07/19/us/politics/sanctuary-states-deportation-aid.html
-
-**The ‘Bad Blood’ Between Polymarket’s Shayne Coplan and Kalshi’s Tarek Mansour**\
-`Shayne Coplan of Polymarket and Tarek Mansour of Kalshi are young billionaires intent on dominating prediction markets. It’s more than a battle. It’s “bad blood.”`\
-https://www.nytimes.com/2026/07/19/technology/polymarket-kalshi-rivalry-coplan-mansour.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
