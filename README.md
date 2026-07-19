@@ -1,3 +1,15 @@
+**Misery in the Epicenter of Cyclospora: ‘A Baseball Bat to Your Abdomen’**\
+`The debilitating malady has gripped Monroe County, Mich.`\
+https://www.nytimes.com/2026/07/19/us/cyclospora-michigan.html
+
+**American Jews in Difficult Times**\
+`Readers respond to “The Liberal American Jew’s Dilemma,” an Opinion guest essay by Nicholas Lemann. Also: Madonna’s message; death of a laborer.`\
+https://www.nytimes.com/2026/07/19/opinion/american-jews.html
+
+**Tajín Chicken and Peppers at the Push of a Button**\
+`A five-star slow cooker recipe that won’t heat up your house, and more summer weeknight savers.`\
+https://www.nytimes.com/2026/07/19/dining/tajin-chicken-and-peppers-at-the-push-of-a-button.html
+
 **Take a Pilgrimage, Not a Trip**\
 `I worship the sun, and I will travel to find it. This summer, I’ve been considering the difference between a trip and a pilgrimage.`\
 https://www.nytimes.com/2026/07/19/briefing/take-a-pilgrimage-not-a-trip.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/19/pageoneplus/quote-of-the-day-in-the-tournamen
 **Photographer of That Messi-Baby Yamal Photo Tells the Backstory**\
 `Joan Monfort, a freelance photographer, took the now famous photo of the Argentine soccer legend Lionel Messi, then just 20, with Lamine Yamal, an infant who would grow up to become a phenom for Spain. Some 19 years later, the two are set to face off in the World Cup final on Sunday.`\
 https://www.nytimes.com/video/sports/soccer/100000011039551/messi-yamal-photo-photographer-world-cup.html
-
-**Vance Remarks on Epstein and Israel Echo Conspiracy Theories**\
-`The vice president’s comment that there were ties between Mr. Epstein and the “highest levels” of Israeli intelligence troubled some in his party.`\
-https://www.nytimes.com/2026/07/18/us/vances-epstein-israel-conspiracy-theories.html
-
-**Tate Brothers Arrested in Miami As U.K. Authorities File Sex Crime Charges**\
-`Federal marshals arrested the influencers, who are known for their misogynistic views and have faced years of criminal investigations in Europe. The new charges concern offenses dating to 2010, British officials said.`\
-https://www.nytimes.com/2026/07/18/us/tate-brothers-arrest-miami.html
-
-**What to Know About Fires Caused by Lightning in the Pacific Northwest**\
-`Dozens of fires ignited in Oregon and Washington as more than 14,000 lightning strikes hit the region during thunderstorms this week.`\
-https://www.nytimes.com/2026/07/18/us/what-to-know-fires-lightning-pacific-northwest.html
 
