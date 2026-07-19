@@ -1,3 +1,7 @@
+**Russia Batters Kyiv in One of the Largest Missile Assaults of the War**\
+`On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
+https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
+
 **‘We Would Pile Into the Convertible and Head to Chinatown’**\
 `The writer Jean Hanff Korelitz, the comedian Roy Wood Jr. and other notable friends of Metropolitan Diary share their New York City stories as the column marks its 50th anniversary.`\
 https://www.nytimes.com/2026/07/19/nyregion/metropolitan-diary.html

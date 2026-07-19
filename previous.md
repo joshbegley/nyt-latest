@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/07/19/opinion/ai-attention-social-media-attachment.
 `Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
 https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
 
-**Russia Batters Kyiv in Overnight Attack**\
+**Russia Batters Kyiv in One of the Largest Missile Assaults of the War**\
 `On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
 https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
 
