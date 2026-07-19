@@ -1,3 +1,7 @@
+**Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
+`Jordan’s role in U.S. operations against Iran has grown as other allies in the region have restricted Washington’s ability to use their bases and airspace.`\
+https://www.nytimes.com/2026/07/19/world/middleeast/iran-war-jordan-us.html
+
 **Get Me to the Grill**\
 `I can’t wait to make these grilled chicken thighs, with tomato and avocado grilled alongside them for nice caramelized notes.`\
 https://www.nytimes.com/2026/07/19/dining/get-me-to-the-grill.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/07/19/us/politics/maine-democrats-senate-jackson.ht
 `The Tokyo government is allowing workers to wear shorts for the first time this summer, prompting delicate questions about etiquette and hairy legs.`\
 https://www.nytimes.com/2026/07/19/world/asia/japan-cool-biz-tokyo-shorts-heat.html
 
-**Tokyo Officials Ditch Suits for Shorts in Summer Heat**\
-`Tokyo’s government has a new summer dress code allowing shorts and T-shirts at work. But the initiative, meant to save energy and add comfort, has prompted a debate on office etiquette.`\
-https://www.nytimes.com/video/world/asia/100000011031760/tokyo-shorts-government-workers-summer.html
-
-**World Cup Updates: Lamine Yamal, Son of African Migrants, Personifies a Changing Spain**\
+**World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 

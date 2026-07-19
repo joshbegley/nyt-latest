@@ -1,3 +1,11 @@
+**Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
+`Jordan’s role in U.S. operations against Iran has grown as other allies in the region have restricted Washington’s ability to use their bases and airspace.`\
+https://www.nytimes.com/2026/07/19/world/middleeast/iran-war-jordan-us.html
+
+**World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Get Me to the Grill**\
 `I can’t wait to make these grilled chicken thighs, with tomato and avocado grilled alongside them for nice caramelized notes.`\
 https://www.nytimes.com/2026/07/19/dining/get-me-to-the-grill.html
