@@ -1,3 +1,7 @@
+**Take a Pilgrimage, Not a Trip**\
+`I worship the sun, and I will travel to find it. This summer, I’ve been considering the difference between a trip and a pilgrimage.`\
+https://www.nytimes.com/2026/07/19/briefing/take-a-pilgrimage-not-a-trip.html
+
 **The Beautiful Game**\
 `A conversation about the World Cup.`\
 https://www.nytimes.com/2026/07/19/briefing/world-cup-final.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/18/us/tate-brothers-arrest-miami.html
 **What to Know About Fires Caused by Lightning in the Pacific Northwest**\
 `Dozens of fires ignited in Oregon and Washington as more than 14,000 lightning strikes hit the region during thunderstorms this week.`\
 https://www.nytimes.com/2026/07/18/us/what-to-know-fires-lightning-pacific-northwest.html
-
-**Adidas Hopes Its World Cup Moment Can Drive U.S. Sales**\
-`Nearly everything on the field on Sunday will bear the German company’s logo. Bjørn Gulden, the chief executive, says he ‘couldn’t have scripted it better.’`\
-https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
 
