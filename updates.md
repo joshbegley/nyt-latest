@@ -1,3 +1,7 @@
+**Oil Prices Cross $90 a Barrel as U.S.-Iran Conflict Widens**\
+`Brent crude, the global benchmark for oil, rose more than 3 percent as trading resumed on Sunday, while S&P 500 futures remained essentially unchanged.`\
+https://www.nytimes.com/2026/07/19/business/oil-prices-stocks-gas.html
+
 **Hal Williams, Actor in First Wave of Black Sitcoms, Dies at 91**\
 `As a divorced father of three in Ohio, he moved to Hollywood to pursue his boyhood dream to act. He became a recognizable face on “Sanford and Son.”`\
 https://www.nytimes.com/2026/07/19/obituaries/hal-williams-dead.html
