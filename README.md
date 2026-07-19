@@ -1,3 +1,7 @@
+**Map: 5.5-Magnitude Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/19/world/americas/18wea-quake-tracker-peru-nyt5ifau.html
+
 **In Maine, Bellows Ends Senate Bid as Jackson Builds Momentum**\
 `The Maine secretary of state ended her run in a crowded race to replace Graham Platner as the Democratic Senate nominee.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/19/opinion/watching-the-world-cup.html
 **It’s No Longer So Much Fun to Be MAGA in Washington**\
 `It’s a vibe shift.`\
 https://www.nytimes.com/2026/07/19/opinion/washington-dc-maga-trump.html
-
-**In Maine, Troy Jackson Gains Momentum in Bid to Replace Platner**\
-`Troy Jackson, a progressive former State Senate president, showed signs of significant strength, as half the state’s counties picked delegates to a convention where they will choose Graham Platner’s replacement.`\
-https://www.nytimes.com/2026/07/19/us/politics/maine-democrats-senate-jackson.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
