@@ -1,3 +1,7 @@
+**Nolan’s ‘The Odyssey’ Brings in $124.5 Million at the Box Office on Opening Weekend**\
+`Christopher Nolan’s nearly three-hour epic was No. 1 over the weekend, with about $124.5 million in ticket sales in the United States and Canada.`\
+https://www.nytimes.com/2026/07/19/business/media/the-odyssey-box-office-christopher-nolan.html
+
 **Tropical Storm Watches Issued Along the Gulf Coast**\
 `A tropical depression could soon strengthen into the hurricane season’s second named storm, forecasters said.`\
 https://www.nytimes.com/2026/07/19/weather/tropical-storm-gulf-coast-florida.html
