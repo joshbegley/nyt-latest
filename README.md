@@ -1,3 +1,7 @@
+**Hal Williams, Actor in First Wave of Black Sitcoms, Dies at 91**\
+`As a divorced father of three in Ohio, he moved to Hollywood to pursue his boyhood dream to act. He became a recognizable face on “Sanford and Son.”`\
+https://www.nytimes.com/2026/07/19/obituaries/hal-williams-dead.html
+
 **NYT Crossword Answers for July 20, 2026**\
 `Eric Rollfing senses an opportunity.`\
 https://www.nytimes.com/2026/07/19/crosswords/daily-puzzle-2026-07-20.html
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-sho
 https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru.html
 
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
-`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah are dropping their bids.`\
+`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah ended their bids.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
 
 **Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
@@ -157,10 +161,6 @@ https://www.nytimes.com/es/2026/07/19/espanol/madera-ilegal-instrumentos-musical
 **MetLife Stadium Faces Monumental Last Test in Sunday’s World Cup Final**\
 `New Jersey’s N.F.L. stadium is used to big events. So far, it’s seen few issues during the World Cup, but Sunday’s final presents the biggest challenge yet.`\
 https://www.nytimes.com/2026/07/19/nyregion/metlife-stadium-world-cup-final.html
-
-**¿Qué me pongo en verano si no me gustan mis brazos?**\
-`Una lectora se pregunta qué hay detrás del auge de la ropa sin mangas y cómo manejar la tendencia.`\
-https://www.nytimes.com/es/2026/07/19/espanol/estilos-de-vida/brazos-ropa-sin-mangas-tendencia.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
