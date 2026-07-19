@@ -1,3 +1,7 @@
+**A Modest Proposal for the Strait Dispute: A Shared Pact Among Gulf States**\
+`A London-based research group has invoked a now-defunct European pact on coal and steel to suggest forming a coalition of countries that would share control of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/19/world/middleeast/strait-hormuz-iran.html
+
 **El cannabis medicinal podría ayudar con la agitación de la demencia**\
 `En un estudio, una combinación de THC y CBD alivió los síntomas en una población especialmente frágil: pacientes con demencia avanzada cerca del final de sus vidas.`\
 https://www.nytimes.com/es/2026/07/19/espanol/cannabis-medicinal-agitacion-demencia.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/18/us/politics/aipac-democrats-donations-israel-
 **Walt Odets, Who Delved Into the Minds of Gay Men, Dies at 79**\
 `A psychologist, he wrote during the AIDS crisis about survivor’s guilt and depression in his H.I.V.-negative patients.`\
 https://www.nytimes.com/2026/07/18/health/walt-odets-dead.html
-
-**The Hunt for a Job Has Never Been Worse. These Applicants Are Fighting Back.**\
-`A.I. is destroying the application process for employers and potential employees. We need to fix it.`\
-https://www.nytimes.com/2026/07/18/opinion/job-market-ai-employees.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\

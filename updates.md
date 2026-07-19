@@ -1,3 +1,7 @@
+**A Modest Proposal for the Strait Dispute: A Shared Pact Among Gulf States**\
+`A London-based research group has invoked a now-defunct European pact on coal and steel to suggest forming a coalition of countries that would share control of the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/19/world/middleeast/strait-hormuz-iran.html
+
 **Two U.S. Service Members Killed In Iranian Strike, U.S. Military Says**\
 `Iran struck a military base in Jordan on Friday, killing two United States service members, according to the U.S. military. Sixteen American military personnel have died since the U.S. and Israel launched attacks on Iran in February.`\
 https://www.nytimes.com/video/world/middleeast/100000011039720/us-troops-killed-iran-war-jordan.html
