@@ -1,3 +1,7 @@
+**Take a Pilgrimage, Not a Trip**\
+`I worship the sun, and I will travel to find it. This summer, I’ve been considering the difference between a trip and a pilgrimage.`\
+https://www.nytimes.com/2026/07/19/briefing/take-a-pilgrimage-not-a-trip.html
+
 **The Beautiful Game**\
 `A conversation about the World Cup.`\
 https://www.nytimes.com/2026/07/19/briefing/world-cup-final.html
