@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 20, 2026**\
+`Eric Rollfing senses an opportunity.`\
+https://www.nytimes.com/2026/07/19/crosswords/daily-puzzle-2026-07-20.html
+
 **First World Cup Halftime Show: Lots of Stars, Little Purpose**\
 `The performers valiantly attempted to justify the existence of the show, which was impeccably choreographed and thematically jumbled.`\
 https://www.nytimes.com/2026/07/19/arts/music/world-cup-halftime-show-review.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/19/nyregion/metlife-stadium-world-cup-final.html
 **¿Qué me pongo en verano si no me gustan mis brazos?**\
 `Una lectora se pregunta qué hay detrás del auge de la ropa sin mangas y cómo manejar la tendencia.`\
 https://www.nytimes.com/es/2026/07/19/espanol/estilos-de-vida/brazos-ropa-sin-mangas-tendencia.html
-
-**The U.S. Braced For the World Cup. It Fell in Love Instead.**\
-`Amid anxiety over how the United States would welcome the world, cities like Lawrence, Kan., and Boston threw open their doors. The bonds forged are still visible on the streets.`\
-https://www.nytimes.com/2026/07/19/world/europe/us-world-cup-trump-boston-kansas.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\

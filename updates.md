@@ -1,3 +1,11 @@
+**First World Cup Halftime Show: Lots of Stars, Little Purpose**\
+`The performers valiantly attempted to justify the existence of the show, which was impeccably choreographed and thematically jumbled.`\
+https://www.nytimes.com/2026/07/19/arts/music/world-cup-halftime-show-review.html
+
+**Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
+`Shakira and Justin Bieber were among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
+https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
+
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
 `Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah are dropping their bids.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
