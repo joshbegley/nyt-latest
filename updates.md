@@ -1,3 +1,15 @@
+**Misery in the Epicenter of Cyclospora: ‘A Baseball Bat to Your Abdomen’**\
+`The debilitating malady has gripped Monroe County, Mich.`\
+https://www.nytimes.com/2026/07/19/us/cyclospora-michigan.html
+
+**American Jews in Difficult Times**\
+`Readers respond to “The Liberal American Jew’s Dilemma,” an Opinion guest essay by Nicholas Lemann. Also: Madonna’s message; death of a laborer.`\
+https://www.nytimes.com/2026/07/19/opinion/american-jews.html
+
+**Tajín Chicken and Peppers at the Push of a Button**\
+`A five-star slow cooker recipe that won’t heat up your house, and more summer weeknight savers.`\
+https://www.nytimes.com/2026/07/19/dining/tajin-chicken-and-peppers-at-the-push-of-a-button.html
+
 **Take a Pilgrimage, Not a Trip**\
 `I worship the sun, and I will travel to find it. This summer, I’ve been considering the difference between a trip and a pilgrimage.`\
 https://www.nytimes.com/2026/07/19/briefing/take-a-pilgrimage-not-a-trip.html
