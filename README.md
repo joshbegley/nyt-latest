@@ -2,7 +2,7 @@
 `On Saturday, Ukraine hit two warehouses in Russia in strikes that killed at least eight people and injured 62.`\
 https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html
 
-**Iran War Live Updates: U.S. and Iran Edge Closer to All-Out War After U.S. Service Members Killed**\
+**Iran War Live Updates: U.S. and Iran Edge Closer to Wider War After U.S. Service Members Killed**\
 `The U.S. military said it had targeted Iranian forces that were responsible for an attack on a base in Jordan that left two American service members dead and one missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 
