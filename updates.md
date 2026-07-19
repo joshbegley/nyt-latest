@@ -1,3 +1,15 @@
+**Russia Bombards Kyiv in One of the War’s Largest Missile Assaults**\
+`Officials said one person had been killed and more than 15 had been injured, with that toll likely to rise. The attacks on Kyiv coincided with Ukraine’s targeting of oil and gas facilities in Russia, which has prompted fuel shortages there.`\
+https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-russia-war.html
+
+**Second Patient Dies in Outbreak of Legionnaires’ Disease in Manhattan**\
+`The second victim was an 88-year-old retired businessman and Air Force veteran who lived on the Upper East Side, his lawyer said.`\
+https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
+
+**Earthquake in Peru Kills 6 and Displaces Hundreds**\
+`Peru is prone to frequent quakes, but the 5.5-magnitude temblor was the biggest to strike the central highlands area in nearly 50 years.`\
+https://www.nytimes.com/2026/07/19/world/americas/peru-earthquake.html
+
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
 `Troy Jackson, a progressive, solidified his edge over his rivals in an abbreviated nominating contest to replace Graham Platner. Shenna Bellows, another candidate, bowed out.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
