@@ -1,3 +1,7 @@
+**Tate Brothers Arrested in Miami As U.K. Authorities File Sex Crime Charges**\
+`The arrests of the online influencers known for their misogynistic views come after years of investigations in Britain and Romania. The new charges concern offenses dating back to 2010, officials said.`\
+https://www.nytimes.com/2026/07/18/us/tate-brothers-arrest-miami.html
+
 **Taylor Farms Expands Iceberg Lettuce Recall to 27 States Amid Cyclospora Outbreak**\
 `The F.D.A. said that a new sample from the company’s Mexico facility had tested positive for cyclospora and that the agency was trying to trace affected products.`\
 https://www.nytimes.com/2026/07/18/health/taylor-farms-iceberg-lettuce-recall.html
