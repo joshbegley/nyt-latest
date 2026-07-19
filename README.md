@@ -1,3 +1,7 @@
+**‘We Would Pile Into the Convertible and Head to Chinatown’**\
+`The writer Jean Hanff Korelitz, the comedian Roy Wood Jr. and other notable friends of Metropolitan Diary share their New York City stories as the column marks its 50th anniversary.`\
+https://www.nytimes.com/2026/07/19/nyregion/metropolitan-diary.html
+
 **sunday-daily-world-cup-messi-Spain-Argentina**\
 `Today, Spain’s unstoppable machine faces Lionel Messi’s immovable Argentina.`\
 https://www.nytimes.com/2026/07/19/podcasts/the-daily/the-world-cup-final-is-here.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011039720/us-troops-killed-
 **Raising Capital**\
 `You’ll really have to step it up to solve Michael Lieberman’s latest Sunday puzzle.`\
 https://www.nytimes.com/2026/07/18/crosswords/daily-puzzle-2026-07-19.html
-
-**After Days of Wildfire Smoke, New York City Hit By Heavy Thunderstorms**\
-`Heavy rains and thunderstorms hit New York City on Saturday, prompting flash flood warnings for Manhattan, Brooklyn and Queens.`\
-https://www.nytimes.com/video/us/100000011039760/after-days-of-wildfire-smoke-new-york-city-hit-by-heavy-thunderstorms.html
 
