@@ -1,3 +1,7 @@
+**Photographer of That Messi-Baby Yamal Photo Tells the Backstory**\
+`Joan Monfort, a freelance photographer, took the now famous photo of the Argentine soccer legend Lionel Messi, then just 20, with Lamine Yamal, an infant who would grow up to become a phenom for Spain. Some 19 years later, the two are set to face off in the World Cup final on Sunday.`\
+https://www.nytimes.com/video/sports/soccer/100000011039551/messi-yamal-photo-photographer-world-cup.html
+
 **Vance Remarks on Epstein and Israel Echo Conspiracy Theories**\
 `The vice president’s comment that there were ties between Mr. Epstein and the “highest levels” of Israeli intelligence troubled some in his party.`\
 https://www.nytimes.com/2026/07/18/us/vances-epstein-israel-conspiracy-theories.html

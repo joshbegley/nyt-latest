@@ -1,3 +1,7 @@
+**Photographer of That Messi-Baby Yamal Photo Tells the Backstory**\
+`Joan Monfort, a freelance photographer, took the now famous photo of the Argentine soccer legend Lionel Messi, then just 20, with Lamine Yamal, an infant who would grow up to become a phenom for Spain. Some 19 years later, the two are set to face off in the World Cup final on Sunday.`\
+https://www.nytimes.com/video/sports/soccer/100000011039551/messi-yamal-photo-photographer-world-cup.html
+
 **Vance Remarks on Epstein and Israel Echo Conspiracy Theories**\
 `The vice president’s comment that there were ties between Mr. Epstein and the “highest levels” of Israeli intelligence troubled some in his party.`\
 https://www.nytimes.com/2026/07/18/us/vances-epstein-israel-conspiracy-theories.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/18/nyregion/mamdani-netanyahu-interview.html
 **Christopher Nolan sobre la proeza épica de filmar ‘La odisea’**\
 `Él y su director de fotografía, Hoyte van Hoytema, combinaron nuevos inventos —como unas luces que imitan el fuego que ellos mismos desarrollaron— con técnicas que existen desde hace un siglo.`\
 https://www.nytimes.com/es/2026/07/18/espanol/cultura/odisea-nolan-imax-como-se-filmo.html
-
-**My Abuser’s Daughter Wants to Be Friends. How Should I Navigate This?**\
-`I feel deeply awkward, especially because I genuinely like her.`\
-https://www.nytimes.com/2026/07/18/magazine/abuse-friendship-ethics.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
