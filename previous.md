@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/07/18/us/what-to-know-fires-lightning-pacific-north
 https://www.nytimes.com/2026/07/18/business/adidas-world-cup-bjorn-gulden.html
 
 **Two U.S. Service Members Killed In Iranian Strike, U.S. Military Says**\
-`Iran struck a military base in Jordan on Friday, killing two U.S. service members, according to the U.S. military. Sixteen military personnel have died in the war since the U.S. and Israel launched attacks on Iran in February.`\
+`Iran struck a military base in Jordan on Friday, killing two United States service members, according to the U.S. military. Sixteen American military personnel have died since the U.S. and Israel launched attacks on Iran in February.`\
 https://www.nytimes.com/video/world/middleeast/100000011039720/us-troops-killed-iran-war-jordan.html
 
 **Raising Capital**\

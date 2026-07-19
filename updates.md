@@ -1,3 +1,7 @@
+**Two U.S. Service Members Killed In Iranian Strike, U.S. Military Says**\
+`Iran struck a military base in Jordan on Friday, killing two United States service members, according to the U.S. military. Sixteen American military personnel have died since the U.S. and Israel launched attacks on Iran in February.`\
+https://www.nytimes.com/video/world/middleeast/100000011039720/us-troops-killed-iran-war-jordan.html
+
 **El cannabis medicinal podría ayudar con la agitación de la demencia**\
 `En un estudio, una combinación de THC y CBD alivió los síntomas en una población especialmente frágil: pacientes con demencia avanzada cerca del final de sus vidas.`\
 https://www.nytimes.com/es/2026/07/19/espanol/cannabis-medicinal-agitacion-demencia.html
