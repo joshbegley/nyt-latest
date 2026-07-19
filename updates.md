@@ -1,3 +1,15 @@
+**Hal Williams, Actor in First Wave of Black Sitcoms, Dies at 91**\
+`As a divorced father of three in Ohio, he moved to Hollywood to pursue his boyhood dream to act. He became a recognizable face on “Sanford and Son.”`\
+https://www.nytimes.com/2026/07/19/obituaries/hal-williams-dead.html
+
+**NYT Crossword Answers for July 20, 2026**\
+`Eric Rollfing senses an opportunity.`\
+https://www.nytimes.com/2026/07/19/crosswords/daily-puzzle-2026-07-20.html
+
+**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
+`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah ended their bids.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
+
 **First World Cup Halftime Show: Lots of Stars, Little Purpose**\
 `The performers valiantly attempted to justify the existence of the show, which was impeccably choreographed and thematically jumbled.`\
 https://www.nytimes.com/2026/07/19/arts/music/world-cup-halftime-show-review.html
