@@ -1,3 +1,15 @@
+**Before Lettuce Felled Thousands, a Cilantro-Linked Cyclospora Outbreak Sickened New Yorkers**\
+`New York City health officials shared details of how they traced a much smaller cyclosporiasis outbreak, showing the difficulty of tracing contamination.`\
+https://www.nytimes.com/2026/07/19/nyregion/cyclosporiasis-outbreak-nyc-testing.html
+
+**Black and Latino Leaders Ask: What Do Socialist Wins Mean for New York?**\
+`Longtime leaders and advocates in minority districts fear that victories by the Democratic Socialists of America in gentrifying neighborhoods could mean political erasure.`\
+https://www.nytimes.com/2026/07/19/nyregion/black-latino-leaders-dsa-nyc.html
+
+**NYT Spelling Bee Answers for July 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/19/crosswords/spelling-bee-forum.html
+
 **El proyecto de ley para sancionar a Rusia plantea un dilema para Trump**\
 `El gobierno de Trump busca reducir las sanciones a medida que sus adversarios desarrollan alternativas que algunos creen podrían erosionar la supremacía del dólar de EE. UU.`\
 https://www.nytimes.com/es/2026/07/19/espanol/estados-unidos/ley-sanciones-rusia-trump.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/18/business/dealbook/mls-don-garber-world-cup.ht
 **Who Is Ahead in Michigan's 13th Congressional District?**\
 `Track the latest polls in Michigan's 13th Congressional District.`\
 https://www.nytimes.com/interactive/polls/michigan-us-house-13-polls-2026.html
-
-**In Bangladesh, Argentina’s Soccer Team Finds a Huge Fan Base**\
-`Bangladesh has never qualified for the World Cup. But every four years, many in the country adopt Argentina’s team as their own.`\
-https://www.nytimes.com/2026/07/18/world/asia/world-cup-bangladesh-argentina-fans.html
-
-**Low-T, High Chair**\
-`Where are Hegseth’s hormones when Trump needs them?`\
-https://www.nytimes.com/2026/07/18/opinion/trump-hegseth-testosterone.html
-
-**The ‘Devil’s Bargain’ at the Heart of American Politics Now**\
-`This week: the Todd Blanche hearing, Lindsey Graham’s legacy and progressive infighting.`\
-https://www.nytimes.com/2026/07/18/opinion/politics-compromise-todd-blanche.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
