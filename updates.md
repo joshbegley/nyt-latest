@@ -1,3 +1,15 @@
+**Mapa: un terremoto de magnitud 5,5 sacude Perú**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/07/19/espanol/terremoto-peru.html
+
+**Map: 5.5-Magnitude Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru.html
+
+**In Maine, Bellows Ends Senate Bid, as Jackson Builds Momentum**\
+`The Maine secretary of state ended her run in a crowded race to replace Graham Platner as the Democratic Senate nominee.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
+
 **Federal Agents Were Told FBI Will No Longer Investigate ICE Confrontations**\
 `Senior officials deny such a change is in the works, despite guidance shared with agents around the country in recent days.`\
 https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-shootings.html
