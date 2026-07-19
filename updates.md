@@ -1,3 +1,19 @@
+**Why Tokyo’s New Shorts Policy is Sparking Debate in Japan**\
+`The Tokyo government is allowing workers to wear shorts for the first time this summer, prompting delicate questions about etiquette and hairy legs.`\
+https://www.nytimes.com/2026/07/19/world/asia/japan-cool-biz-tokyo-shorts-heat.html
+
+**Tokyo Officials Ditch Suits for Shorts in Summer Heat**\
+`Tokyo’s government has a new summer dress code allowing shorts and T-shirts at work. But the initiative, meant to save energy and add comfort, has prompted a debate on office etiquette.`\
+https://www.nytimes.com/video/world/asia/100000011031760/tokyo-shorts-government-workers-summer.html
+
+**Corrections: July 19, 2026**\
+`Corrections that appeared in print on Sunday, July 19, 2026.`\
+https://www.nytimes.com/2026/07/19/pageoneplus/corrections-july-19-2026.html
+
+**Quote of the Day: In the Tournament’s Final, MetLife Stadium Faces a Monumental Last Test**\
+`Quotation of the Day for Sunday, June 19, 2026.`\
+https://www.nytimes.com/2026/07/19/pageoneplus/quote-of-the-day-in-the-tournaments-final-metlife-stadium-faces-a-monumental-last-test.html
+
 **Photographer of That Messi-Baby Yamal Photo Tells the Backstory**\
 `Joan Monfort, a freelance photographer, took the now famous photo of the Argentine soccer legend Lionel Messi, then just 20, with Lamine Yamal, an infant who would grow up to become a phenom for Spain. Some 19 years later, the two are set to face off in the World Cup final on Sunday.`\
 https://www.nytimes.com/video/sports/soccer/100000011039551/messi-yamal-photo-photographer-world-cup.html
