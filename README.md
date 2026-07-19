@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Depression Two**\
+`See the likely path and wind arrival times for Two`\
+https://www.nytimes.com/interactive/2026/07/19/weather/tropical-depression-two-map-path-tracker.html
+
 **Mapa: un terremoto de magnitud 5,5 sacude Perú**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/07/19/espanol/terremoto-peru.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/19/nyregion/black-latino-leaders-dsa-nyc.html
 **NYT Spelling Bee Answers for July 19, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/19/crosswords/spelling-bee-forum.html
-
-**El proyecto de ley para sancionar a Rusia plantea un dilema para Trump**\
-`El gobierno de Trump busca reducir las sanciones a medida que sus adversarios desarrollan alternativas que algunos creen podrían erosionar la supremacía del dólar de EE. UU.`\
-https://www.nytimes.com/es/2026/07/19/espanol/estados-unidos/ley-sanciones-rusia-trump.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
