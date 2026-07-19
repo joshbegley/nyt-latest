@@ -1,3 +1,7 @@
+**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
+`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah dropped their bids.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
+
 **At World Cup Final, Trump Seeks to Bask in Another Sports Championship**\
 `The president flew in Marine One over MetLife Stadium on Sunday ahead of his arrival. It was the second time recently that he sought to seize the spotlight at a major sporting event.`\
 https://www.nytimes.com/2026/07/19/us/politics/trump-world-cup-final.html
