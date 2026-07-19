@@ -1,3 +1,7 @@
+**At World Cup Final, Trump Seeks to Bask in Another Sports Championship**\
+`The president flew in Marine One over MetLife Stadium on Sunday ahead of his arrival. It was the second time recently that he sought to seize the spotlight at a major sporting event.`\
+https://www.nytimes.com/2026/07/19/us/politics/trump-world-cup-final.html
+
 **A Conversation with Zohran Mamdani**\
 `The mayor of New York City talks about Andy Burnham, Netanyahu and the controversial U.S. red card.`\
 https://www.nytimes.com/2026/07/19/world/zohran-mamdani-interview-world-cup-final.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/19/world/europe/us-world-cup-trump-boston-kansas
 **D.H.S. Won’t Name Agents Who Kill. Local Police Agencies Are More Open.**\
 `The department will not name the agent who killed a Colombian immigrant in Maine. Some large police agencies recognize a public right to know the identities of officers involved in violence.`\
 https://www.nytimes.com/2026/07/19/us/dhs-officer-names-shootings.html
-
-**The Case of the 3:30 Emails**\
-`Plus: Are you really paying attention to me on Zoom?`\
-https://www.nytimes.com/2026/07/19/business/delayed-email-glitch.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
