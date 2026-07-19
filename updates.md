@@ -1,3 +1,15 @@
+**Los porteros no necesitan tu compasión**\
+`Aislado, expuesto y casi siempre juzgado por una sola jugada, el arquero encarna la parte más cruel y más emocionante del juego.`\
+https://www.nytimes.com/es/2026/07/19/espanol/opinion/mundial-porteros.html
+
+**La paradoja del trabajo que ayuda a la IA a acabar con trabajos**\
+`Un puñado de empresas emergentes ha encontrado una mina de oro desoladora: contratar a profesionales especializados para que ayuden a que los trabajos en sus campos se vuelvan obsoletos.`\
+https://www.nytimes.com/es/2026/07/19/espanol/negocios/capacitacion-ia-empleos.html
+
+**¿Venezuela ahora es una colonia de EE. UU. o un Estado soberano?**\
+`La situación actual de Venezuela refleja la nueva era imperial, en la que es cada vez más innecesario e inconveniente para las grandes potencias hacer ocupaciones formales de Estados pequeños.`\
+https://www.nytimes.com/es/2026/07/19/espanol/america-latina/venezuela-colonia-soberania.html
+
 **Before Lettuce Felled Thousands, a Cilantro-Linked Cyclospora Outbreak Sickened New Yorkers**\
 `New York City health officials shared details of how they traced a much smaller cyclosporiasis outbreak, showing the difficulty of tracing contamination.`\
 https://www.nytimes.com/2026/07/19/nyregion/cyclosporiasis-outbreak-nyc-testing.html
