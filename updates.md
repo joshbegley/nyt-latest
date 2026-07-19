@@ -1,3 +1,15 @@
+**Before Lettuce Felled Thousands, a Cilantro-Linked Cyclospora Outbreak Sickened New Yorkers**\
+`New York City health officials shared details of how they traced a much smaller cyclosporiasis outbreak, showing the difficulty of tracing contamination.`\
+https://www.nytimes.com/2026/07/19/nyregion/cyclosporiasis-outbreak-nyc-testing.html
+
+**Black and Latino Leaders Ask: What Do Socialist Wins Mean for New York?**\
+`Longtime leaders and advocates in minority districts fear that victories by the Democratic Socialists of America in gentrifying neighborhoods could mean political erasure.`\
+https://www.nytimes.com/2026/07/19/nyregion/black-latino-leaders-dsa-nyc.html
+
+**NYT Spelling Bee Answers for July 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/19/crosswords/spelling-bee-forum.html
+
 **El proyecto de ley para sancionar a Rusia plantea un dilema para Trump**\
 `El gobierno de Trump busca reducir las sanciones a medida que sus adversarios desarrollan alternativas que algunos creen podrían erosionar la supremacía del dólar de EE. UU.`\
 https://www.nytimes.com/es/2026/07/19/espanol/estados-unidos/ley-sanciones-rusia-trump.html
