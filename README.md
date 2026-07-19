@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-sho
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru.html
 
-**In Maine, Bellows Ends Senate Bid as Jackson Builds Momentum**\
+**In Maine, Bellows Ends Senate Bid, as Jackson Builds Momentum**\
 `The Maine secretary of state ended her run in a crowded race to replace Graham Platner as the Democratic Senate nominee.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
 
