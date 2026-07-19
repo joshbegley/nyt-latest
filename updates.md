@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Depression Two**\
+`See the likely path and wind arrival times for Two`\
+https://www.nytimes.com/interactive/2026/07/19/weather/tropical-depression-two-map-path-tracker.html
+
 **Mapa: un terremoto de magnitud 5,5 sacude Perú**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/07/19/espanol/terremoto-peru.html
