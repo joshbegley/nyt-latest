@@ -1,3 +1,11 @@
+**Map: 5.5-Magnitude Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/19/world/americas/18wea-quake-tracker-peru-nyt5ifau.html
+
+**In Maine, Bellows Ends Senate Bid as Jackson Builds Momentum**\
+`The Maine secretary of state ended her run in a crowded race to replace Graham Platner as the Democratic Senate nominee.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellow-jackson-platner-democrats.html
+
 **Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
 `Jordan’s role in U.S. operations against Iran has grown as other allies in the region have restricted Washington’s ability to use their bases and airspace.`\
 https://www.nytimes.com/2026/07/19/world/middleeast/iran-war-jordan-us.html
