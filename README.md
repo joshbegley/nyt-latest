@@ -1,3 +1,7 @@
+**Nolan’s ‘The Odyssey’ Brings in $124.5 Million at the Box Office on Opening Weekend**\
+`Christopher Nolan’s nearly three-hour epic was No. 1 over the weekend, with about $124.5 million in ticket sales in the United States and Canada.`\
+https://www.nytimes.com/2026/07/19/business/media/the-odyssey-box-office-christopher-nolan.html
+
 **Tropical Storm Watches Issued Along the Gulf Coast**\
 `A tropical depression could soon strengthen into the hurricane season’s second named storm, forecasters said.`\
 https://www.nytimes.com/2026/07/19/weather/tropical-storm-gulf-coast-florida.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/19/espanol/opinion/mundial-porteros.html
 **La paradoja del trabajo que ayuda a la IA a acabar con trabajos**\
 `Un puñado de empresas emergentes ha encontrado una mina de oro desoladora: contratar a profesionales especializados para que ayuden a que los trabajos en sus campos se vuelvan obsoletos.`\
 https://www.nytimes.com/es/2026/07/19/espanol/negocios/capacitacion-ia-empleos.html
-
-**¿Venezuela ahora es una colonia de EE. UU. o un Estado soberano?**\
-`La situación actual de Venezuela refleja la nueva era imperial, en la que es cada vez más innecesario e inconveniente para las grandes potencias hacer ocupaciones formales de Estados pequeños.`\
-https://www.nytimes.com/es/2026/07/19/espanol/america-latina/venezuela-colonia-soberania.html
 
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
