@@ -158,10 +158,6 @@ https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 `A championship victory would be pure elation, but Argentina is already basking in a state of grace after a win against England and a monthlong fever dream.`\
 https://www.nytimes.com/2026/07/19/world/americas/argentines-already-losing-their-minds-brace-for-world-cup-final.html
 
-**¿Qué pasa si la madera de los instrumentos musicales se vuelve ilegal?**\
-`El estándar de oro para fabricar arcos de instrumentos de cuerda durante siglos ha sido el árbol de pernambuco brasileño. Ahora su futuro es incierto.`\
-https://www.nytimes.com/es/2026/07/19/espanol/madera-ilegal-instrumentos-musicales.html
-
 **World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
