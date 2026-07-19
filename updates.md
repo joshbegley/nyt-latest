@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Iran Edge Closer to Wider War After U.S. Soldiers Killed**\
+`The United States was said to be sending more warplanes to the Middle East, a move that was already in the works before Iranian fire killed two soldiers in Jordan.`\
+https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
+
 **Map: 5.5-Magnitude Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/19/world/americas/18wea-quake-tracker-peru-nyt5ifau.html
