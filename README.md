@@ -1,3 +1,7 @@
+**In Maine, Troy Jackson Gains Momentum in Bid to Replace Platner**\
+`Troy Jackson, a progressive former State Senate president, showed signs of significant strength, as half the state’s counties picked delegates to a convention where they will choose Graham Platner’s replacement.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-democrats-senate-jackson.html
+
 **Why Tokyo’s New Shorts Policy is Sparking Debate in Japan**\
 `The Tokyo government is allowing workers to wear shorts for the first time this summer, prompting delicate questions about etiquette and hairy legs.`\
 https://www.nytimes.com/2026/07/19/world/asia/japan-cool-biz-tokyo-shorts-heat.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/video/sports/soccer/100000011039551/messi-yamal-photo-ph
 https://www.nytimes.com/2026/07/18/us/vances-epstein-israel-conspiracy-theories.html
 
 **Tate Brothers Arrested in Miami As U.K. Authorities File Sex Crime Charges**\
-`The arrests of the influencers, known for their misogynistic views, come after years of investigations in Europe. The new charges concern offenses dating back to 2010, officials said.`\
+`Federal marshals arrested the influencers, who are known for their misogynistic views and have faced years of criminal investigations in Europe. The new charges concern offenses dating to 2010, British officials said.`\
 https://www.nytimes.com/2026/07/18/us/tate-brothers-arrest-miami.html
 
 **What to Know About Fires Caused by Lightning in the Pacific Northwest**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/18/opinion/ice-shooting-ruben-ray-martinez-texas
 **What Do the Words ‘Gay’ and ‘Queer’ Really Mean?**\
 `Readers respond to a guest essay about the labels used to describe those in the L.G.B.T.Q. community.`\
 https://www.nytimes.com/2026/07/18/opinion/gay-queer-debate.html
-
-**China’s A.I. Play Is Different From America’s**\
-`When great powers disagree about the nature of A.I.`\
-https://www.nytimes.com/2026/07/18/opinion/china-united-states-artificial-intelligence.html
 
 **Iran War Live Updates: U.S. Launches Strikes After Iranian Attack Kills 2 American Soldiers**\
 `The soldiers, killed in Jordan, were the first U.S. troops to die from hostile fire since an April truce. U.S. forces began retaliatory strikes early Sunday.`\
