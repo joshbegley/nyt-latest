@@ -1,3 +1,7 @@
+**Rubio Says That U.S. Is Still Open to Diplomacy With Iran**\
+`Secretary of State Marco Rubio also said that Iran has signaled it wants to negotiate with the United States, even as the two sides escalated their attacks.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/rubio-us-iran-war-diplomacy.html
+
 **World Cup Updates: Cheers in Spain and Tears in Argentina After Nail-Biter Final**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
