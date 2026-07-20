@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/07/20/arts/television/ransom-canyon-tv-shows-to-wat
 https://www.nytimes.com/interactive/2026/07/20/sports/soccer/spain-argentina-world-cup-final-goal.html
 
 **India’s CJP Party Leads Protest March to Parliament After Exam Leaks**\
-`The Cockroach Janta Party’s demonstration in New Delhi has swelled since police forcibly removed Sonam Wangchuk, a prominent activist who has been on a hunger strike, on Saturday.`\
+`The demonstrations were prompted in part after questions for the country’s biggest medical school entrance exam were leaked, forcing millions to retake the test.`\
 https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html
 
 **The Things Left Behind in the Hong Kong Apartment Fire**\
