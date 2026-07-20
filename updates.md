@@ -1,3 +1,7 @@
+**El Mayo, Who Founded Sinaloa Cartel, Sentenced to Life in Prison**\
+`Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
+https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
+
 **Pentagon Identifies 2 U.S. Soldiers Killed in Jordan During Iran Strike**\
 `Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
 https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html

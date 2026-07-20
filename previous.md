@@ -1,3 +1,7 @@
+**El Mayo, Who Founded Sinaloa Cartel, Sentenced to Life in Prison**\
+`Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
+https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
+
 **Mapa: la trayectoria de la tormenta tropical Fausto en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Fausto.`\
 https://www.nytimes.com/es/interactive/2026/07/20/espanol/fausto-mapa-trayectoria.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer
 **North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
 `Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
 https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
-
-**Spain Wins the 2026 World Cup**\
-`Welcome to the final episode of the Daily Cup!`\
-https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
 
