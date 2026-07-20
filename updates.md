@@ -1,3 +1,11 @@
+**Wildfire Smoke Gives Way to Powerful Storms Threatening Millions of People**\
+`The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
+https://www.nytimes.com/2026/07/20/weather/midwest-thunderstorm-tornado-forecast.html
+
+**A.I. ‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
+`Mobile apps are easy to make with artificial intelligence. That doesn’t mean people are excited to use them.`\
+https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
+
 **El Mayo, Who Founded Sinaloa Cartel, Sentenced to Life in Prison**\
 `Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
 https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
