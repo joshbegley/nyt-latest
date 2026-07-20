@@ -1,3 +1,15 @@
+**Epidemics and Rage**\
+`Societies have always struggled with hostile reactions to health care workers during epidemics. Why?`\
+https://www.nytimes.com/2026/07/20/world/epidemics-rage-ebola-first-responders.html
+
+**Evacuees of Ontario’s Wildfires Wait and Worry**\
+`Flames crept, and then sprinted, toward unsuspecting residents who fled remote parts of northwestern Ontario. Now they want to know why officials weren’t prepared.`\
+https://www.nytimes.com/2026/07/20/world/canada/ontario-wildfire-evacuations-thunder-bay.html
+
+**U.S. and Iran Signal Willingness to Resume Negotiations**\
+`Secretary of State Marco Rubio and Iranian foreign ministry officials hinted at an openness to resume negotiations on Monday as the countries continue to exchange blows.`\
+https://www.nytimes.com/video/world/middleeast/100000011041989/rubio-baghaei-iran-us-strikes.html
+
 **Will Frontier A.I. Labs Continue Poaching Academic Economists?**\
 `This week on “Hard Fork,” co-hosts Kevin Roose and Casey Newton talk with Erik Brynjolfsson, an economics professor and A.I. expert, about frontier A.I. labs hiring economists from academic departments —and what his poaching price would be.`\
 https://www.nytimes.com/video/podcasts/100000011042721/will-frontier-ai-labs-continue-poaching-academic-economists.html
@@ -82,8 +94,8 @@ https://www.nytimes.com/2026/07/20/science/sewer-diet-research.html
 `Republicans now face a worst-case political scenario of being asked to fund an unpopular war over which they have exercised little oversight.`\
 https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
 
-**Tate Brothers to Stay Jailed as Lawyer Says They Will Fight Extradition**\
-`The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in the United Kingdom, including rape, trafficking and charges related to indecent images of a child.`\
+**Tate Brothers to Stay in Jail as They Fight Extradition on Rape Charges**\
+`The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in Britain, including rape, sex trafficking and charges related to indecent images of a child.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
 
 **Israel’s Ambassador to U.N. Lashes Out at Mamdani Over Netanyahu Arrest Threats**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-r
 **Denise Oliver-Velez, a Powerful Voice of the Left, Dies at 78**\
 `She became the highest-ranking female member of the Young Lords in New York, where she pressed for women’s rights, and later joined the Black Panthers.`\
 https://www.nytimes.com/2026/07/20/us/denise-oliver-velez-dead.html
-
-**Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
-`For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
-https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
-
-**Today, In Short**\
-`Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
-https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
-
-**Peanut Noodles With Spicy Tofu**\
-`Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
-https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

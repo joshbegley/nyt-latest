@@ -1,3 +1,19 @@
+**Epidemics and Rage**\
+`Societies have always struggled with hostile reactions to health care workers during epidemics. Why?`\
+https://www.nytimes.com/2026/07/20/world/epidemics-rage-ebola-first-responders.html
+
+**Evacuees of Ontario’s Wildfires Wait and Worry**\
+`Flames crept, and then sprinted, toward unsuspecting residents who fled remote parts of northwestern Ontario. Now they want to know why officials weren’t prepared.`\
+https://www.nytimes.com/2026/07/20/world/canada/ontario-wildfire-evacuations-thunder-bay.html
+
+**U.S. and Iran Signal Willingness to Resume Negotiations**\
+`Secretary of State Marco Rubio and Iranian foreign ministry officials hinted at an openness to resume negotiations on Monday as the countries continue to exchange blows.`\
+https://www.nytimes.com/video/world/middleeast/100000011041989/rubio-baghaei-iran-us-strikes.html
+
+**Tate Brothers to Stay in Jail as They Fight Extradition on Rape Charges**\
+`The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in Britain, including rape, sex trafficking and charges related to indecent images of a child.`\
+https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
+
 **Will Frontier A.I. Labs Continue Poaching Academic Economists?**\
 `This week on “Hard Fork,” co-hosts Kevin Roose and Casey Newton talk with Erik Brynjolfsson, an economics professor and A.I. expert, about frontier A.I. labs hiring economists from academic departments —and what his poaching price would be.`\
 https://www.nytimes.com/video/podcasts/100000011042721/will-frontier-ai-labs-continue-poaching-academic-economists.html
