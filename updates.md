@@ -1,3 +1,11 @@
+**Soaring Egg Prices Are Hitting China Hard**\
+`China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
+https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
+
+**Greece Hopes Andy Burnham Will Return the Parthenon Sculptures**\
+`The artworks, also known as the Parthenon marbles, once decorated the renowned ancient temple in Athens, Greece. They have been displayed in the British Museum in London for decades.`\
+https://www.nytimes.com/2026/07/20/arts/greece-andy-burnham-parthenon-sculptures.html
+
 **Why Epidemics Breed Rage at Health Workers**\
 `Some people have fought Ebola containment measures in the Democratic Republic of Congo. Scholars have seen similar responses across societies and throughout history.`\
 https://www.nytimes.com/2026/07/20/magazine/ebola-health-workers.html
