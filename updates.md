@@ -1,3 +1,15 @@
+**The Things Left Behind in the Hong Kong Apartment Fire**\
+`Months after a deadly fire in Hong Kong killed their loved ones, they went home to survey the ruins. Here’s what they brought back with them.`\
+https://www.nytimes.com/interactive/2026/07/20/world/asia/hong-kong-apartment-fire-families.html
+
+**Tehran and Washington Face a ‘Wake Up Moment’ Over the War**\
+`U.S. and Iranian attacks are unfolding in a way that risks a wider war they cannot contain, analysts warn, unless they can return to negotiations quickly.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalation.html
+
+**Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
+`Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
+https://www.nytimes.com/2026/07/20/world/europe/five-of-the-main-challenges-awaiting-britains-new-prime-minister.html
+
 **No Corrections: July 20, 2026**\
 `No corrections appeared in print on Monday, July 20, 2026.`\
 https://www.nytimes.com/2026/07/20/corrections/no-corrections-july-20-2026.html
