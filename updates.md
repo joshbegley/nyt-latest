@@ -1,3 +1,15 @@
+**The Pentagon has identified two U.S. service members who were killed in Jordan.**\
+`Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
+https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041486/20vid-burnham-car-66076.html
+
+**Live Updates: Burnham Becomes Britain’s Prime Minister**\
+`In a day of ceremonies, King Charles III formally asked Andy Burnham to form a new government. He is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 **Live Updates: Burnham Gives First Speech as U.K.’s New Prime Minister**\
 `Andy Burnham is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer

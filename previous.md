@@ -1,3 +1,11 @@
+**The Pentagon has identified two U.S. service members who were killed in Jordan.**\
+`Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
+https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041486/20vid-burnham-car-66076.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
@@ -54,8 +62,8 @@ https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
 
-**Live Updates: Burnham Gives First Speech as U.K.’s New Prime Minister**\
-`Andy Burnham is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+**Live Updates: Burnham Becomes Britain’s Prime Minister**\
+`In a day of ceremonies, King Charles III formally asked Andy Burnham to form a new government. He is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
 
 **5 Things to Know About the Maine Senate Candidate Troy Jackson**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/20/well/lymphatic-drainage-massage-scam-or-not.h
 **Iran War Live Updates: U.S. and Iran Signal Hope for Diplomacy Despite New Attacks**\
 `Energy prices rose on Monday amid the escalating strikes by the United States and Iran. Still, both countries’ top diplomats indicated that they were open to restarting talks.`\
 https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
-
-**Ukraine War Momentum Helps Spur Interest in Postwar Investment**\
-`At a conference on reconstruction, the focus shifted to private investment, not donor assistance.`\
-https://www.nytimes.com/2026/07/20/world/europe/ukraine-post-war-reconstruction.html
-
-**U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
-`A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
-https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
 
