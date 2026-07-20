@@ -1,3 +1,7 @@
+**Spain Fans Celebrate World Cup Victory**\
+`Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
+https://www.nytimes.com/video/sports/soccer/100000011040598/spain-fans-celebrate-world-cup-victory.html
+
 **Tears in Argentina for Lionel Messi’s ‘Last Tango’**\
 `There were still fireworks and smoke bombs, but the nation was disappointed for its soccer star after he lost in his likely last World Cup.`\
 https://www.nytimes.com/2026/07/19/world/americas/messi-argentina-buenos-aires-last-tango.html
@@ -48,7 +52,7 @@ https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
 
 **Terremoto en Perú deja 6 muertos y desplaza a cientos**\
 `Perú es propenso a sismos frecuentes, pero el temblor de magnitud 5,5 fue el más grande en azotar la zona de la sierra central en casi 50 años.`\
-https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-cierra-central.html
+https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-sierra-central.html
 
 **Russia Bombards Kyiv in One of the War’s Largest Missile Assaults**\
 `Officials said one person had been killed and more than 15 had been injured, with that toll likely to rise. The attacks on Kyiv coincided with Ukraine’s targeting of oil and gas facilities in Russia, which has prompted fuel shortages there.`\
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/19/crosswords/connections-companion-1135.html
 **Today’s Wordle Hints for July 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
 https://www.nytimes.com/2026/07/19/crosswords/wordle-review-1857.html
-
-**Social Media Hacked Our Attention. A.I. Scares Me More.**\
-`A.I. plays on our heartstrings, manipulating the systems in our brains that bond us to other people.`\
-https://www.nytimes.com/2026/07/19/opinion/ai-attention-social-media-attachment.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
 `The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\

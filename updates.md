@@ -1,3 +1,11 @@
+**Spain Fans Celebrate World Cup Victory**\
+`Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
+https://www.nytimes.com/video/sports/soccer/100000011040598/spain-fans-celebrate-world-cup-victory.html
+
+**Terremoto en Perú deja 6 muertos y desplaza a cientos**\
+`Perú es propenso a sismos frecuentes, pero el temblor de magnitud 5,5 fue el más grande en azotar la zona de la sierra central en casi 50 años.`\
+https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-sierra-central.html
+
 **Tears in Argentina for Lionel Messi’s ‘Last Tango’**\
 `There were still fireworks and smoke bombs, but the nation was disappointed for its soccer star after he lost in his likely last World Cup.`\
 https://www.nytimes.com/2026/07/19/world/americas/messi-argentina-buenos-aires-last-tango.html
