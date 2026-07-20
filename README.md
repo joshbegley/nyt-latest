@@ -1,3 +1,7 @@
+**Israel’s Ambassador to U.N. Lashes Out at Mamdani Over Netanyahu Arrest Threats**\
+`The “threat is empty,” the ambassador, Danny Danon, said in an address to the U.N. General Assembly.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-arrest.html
+
 **Man Starts Fire Outside Federal Building in Manhattan**\
 `A man started a fire and set off explosives outside a federal building in Manhattan that houses an Immigration and Customs Enforcement office.`\
 https://www.nytimes.com/video/us/100000011041998/nyc-federal-plaza-immigration-ice-incident.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/world/africa/kenya-iten-marathon-training.htm
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnham-inside-92405.html
-
-**There’s Nothing Casual About Andy Burnham’s Casual Style**\
-`Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
-https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
