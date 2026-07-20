@@ -1,3 +1,11 @@
+**Israel’s Ambassador to U.N. Lashes Out at Mamdani Over Netanyahu Arrest Threats**\
+`The “threat is empty,” the ambassador, Danny Danon, said in an address to the U.N. General Assembly.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-arrest.html
+
+**Man Starts Fire Outside Federal Building in Manhattan**\
+`A man started a fire and set off explosives outside a federal building in Manhattan that houses an Immigration and Customs Enforcement office.`\
+https://www.nytimes.com/video/us/100000011041998/nyc-federal-plaza-immigration-ice-incident.html
+
 **Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
 `As chancellor, John Healey, who quit as defense secretary in the former government, will fill one of the most consequential posts, overseeing fiscal and economic policy.`\
 https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
