@@ -1,3 +1,7 @@
+**Pope Leo Calls for Nuclear Disarmament in Latest Antiwar Message**\
+`In a new book published on Tuesday, Leo said that a race to nuclear de-escalation has been “obscured by a race to armament that today frightens and terrifies.”`\
+https://www.nytimes.com/2026/07/20/world/europe/pope-leo-nuclear-disarmament-anti-war-message.html
+
 **5 Found Dead in Ohio After Child Tells Driver His ‘Family Was in the River’**\
 `Two women and three men were pulled from the Scioto River, outside Columbus.`\
 https://www.nytimes.com/2026/07/20/us/scioto-river-drowning-ohio.html

@@ -1,3 +1,7 @@
+**Pope Leo Calls for Nuclear Disarmament in Latest Antiwar Message**\
+`In a new book published on Tuesday, Leo said that a race to nuclear de-escalation has been “obscured by a race to armament that today frightens and terrifies.”`\
+https://www.nytimes.com/2026/07/20/world/europe/pope-leo-nuclear-disarmament-anti-war-message.html
+
 **5 Found Dead in Ohio After Child Tells Driver His ‘Family Was in the River’**\
 `Two women and three men were pulled from the Scioto River, outside Columbus.`\
 https://www.nytimes.com/2026/07/20/us/scioto-river-drowning-ohio.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-s
 **Mapa: la trayectoria de la tormenta tropical Fausto en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Fausto.`\
 https://www.nytimes.com/es/interactive/2026/07/20/espanol/fausto-mapa-trayectoria.html
-
-**Read The Times’s Motion in Response to the Trump Administration Subpoenas**\
-`Read the motion filed by lawyers for The New York Times regarding the federal government’s effort to subpoena phone records of the news outlet’s journalists.`\
-https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-government-letter-re-additional-subpoenas.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
