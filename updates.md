@@ -1,3 +1,7 @@
+**Live Updates: Burnham Gives First Speech as U.K.’s New Prime Minister**\
+`Andy Burnham is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 **The Second Home Tax Is a Win for New York**\
 `The recent debate over the new pied-à-terre tax in the city offers a useful case study.`\
 https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
