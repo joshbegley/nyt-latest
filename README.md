@@ -1,6 +1,6 @@
-**Indian Protesters to March on Parliament After Exam Leaks**\
+**India’s CJP Party Leads Protest March to Parliament After Exam Leaks**\
 `The Cockroach Janta Party’s demonstration in New Delhi has swelled since police forcibly removed Sonam Wangchuk, a prominent activist who has been on a hunger strike, on Saturday.`\
-https://www.nytimes.com/2026/07/20/world/asia/india-protesters-cockroach-party-exam-hunger-strike.html
+https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html
 
 **The Things Left Behind in the Hong Kong Apartment Fire**\
 `Months after a deadly fire in Hong Kong killed their loved ones, they went home to survey the ruins. Here’s what they brought back with them.`\
