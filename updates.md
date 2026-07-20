@@ -1,3 +1,7 @@
+**Inside Andy Burnham’s 1st Day as U.K. Prime Minister**\
+`As Andy Burnham became Britain’s seventh leader in a decade on Monday, he tried to show that he will govern differently.`\
+https://www.nytimes.com/2026/07/20/world/europe/andy-burnham-uk.html
+
 **How Trump’s Immigration Crackdown Is Hurting Elder Care**\
 `Retirement communities already grappling with labor shortages are being forced to terminate caregivers at a time when more Americans are living longer.`\
 https://www.nytimes.com/2026/07/20/us/immigration-trump-senior-living-staffing.html
