@@ -1,3 +1,11 @@
+**In Venezuela’s Rubble, a Search for the Family Pets**\
+`Volunteers are reuniting pets with families, offering Venezuelans comfort amid loss and devastation.`\
+https://www.nytimes.com/2026/07/20/world/americas/venezuela-earthquakes-volunteer-pets.html
+
+**The Design of the Jensen Interceptor Is Still Beloved 50 Years Later**\
+`The Jensen Interceptor featured a wraparound glass hatch that turned heads.`\
+https://www.nytimes.com/2026/07/20/automobiles/collectibles/jensen-interceptor-design.html
+
 **Inside the Deadly U.S. Airstrike on a Shadow Fleet Tanker**\
 `Evidence suggests the ship on which three Indian sailors died was not moving when it was struck in the Gulf of Oman, but it had been engaged in risky offshore transfers of oil.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/inside-the-deadly-us-airstrike-on-a-shadow-fleet-tanker.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/embedded/world/europe/100000011041486/20vid-burnha
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
-
-**Your Questions, Answered**\
-`We look at political donations, housing and the national debt.`\
-https://www.nytimes.com/2026/07/20/briefing/your-questions-answered.html
-
-**Burnham Set to Become Britain’s First Openly Roman Catholic Prime Minister**\
-`Andy Burnham has spoken of Catholicism as part of his cultural identity rather than as a fervent religious faith.`\
-https://www.nytimes.com/2026/07/20/world/europe/burnham-openly-roman-catholic-prime-minister.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
