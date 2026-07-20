@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/07/19/us/jd-usha-vance-baby.html
 `For fans at MetLife Stadium, the World Cup final was the thrill of a lifetime.`\
 https://www.nytimes.com/2026/07/19/nyregion/worldcup-final-metlife-photos.html
 
-**Oil Prices Cross $90 a Barrel as U.S.-Iran Conflict Widens**\
+**Global Oil Price Crosses $90 a Barrel as U.S.-Iran Conflict Widens**\
 `Brent crude, the global benchmark for oil, rose more than 3 percent as trading resumed on Sunday, while S&P 500 futures remained essentially unchanged.`\
 https://www.nytimes.com/2026/07/19/business/oil-prices-stocks-gas.html
 
