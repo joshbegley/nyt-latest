@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
+
 **Your Questions, Answered**\
 `We look at political donations, housing and the national debt.`\
 https://www.nytimes.com/2026/07/20/briefing/your-questions-answered.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
 
-**Live Updates: Burnham Set to Become Britain’s New Prime Minister After Starmer Officially Resigns**\
-`In his farewell address, Keir Starmer thanked the British people and said he goes with “good grace.” Andy Burnham will become Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+**Live Updates: Burnham Becomes Britain’s Prime Minister After Starmer Officially Resigns**\
+`In a day of ceremonies, King Charles III formally asked Andy Burnham to form a new government. He is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
 
 **5 Things to Know About the Maine Senate Candidate Troy Jackson**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/world/europe/ukraine-post-war-reconstruction.
 **U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
 `A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
 https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
-
-**Mi hijo murió a manos de ICE. Exijo que haya rendición de cuentas**\
-`Ningún estadounidense que haya vivido una tragedia como la mía debería tener que luchar para obtener respuestas de su propio gobierno.`\
-https://www.nytimes.com/es/2026/07/20/espanol/opinion/ice-muerte-texas.html
 
