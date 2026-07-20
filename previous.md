@@ -1,19 +1,3 @@
-**Today, In Short**\
-`Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
-https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
-
-**Peanut Noodles With Spicy Tofu**\
-`Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
-https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
-
-**Andy Burnham Becomes U.K. Prime Minister**\
-`Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
-https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
-
-**Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
-`Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
-https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
-
 **Good Grain Bowl**\
 `Ali Slagle’s roasted mushroom and halloumi grain bowl is exactly the sort of simple, healthful meal I want to be cooking and eating right now.`\
 https://www.nytimes.com/2026/07/20/dining/good-grain-bowl.html
@@ -197,4 +181,20 @@ https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
 **How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
 `After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
 https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
+
+**Book Review: ‘Cool Machine,’ by Colson Whitehead**\
+`The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
+https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
+
+**Trial Begins for Lindsay Clancy, Charged With Murdering Her 3 Children**\
+`A Massachusetts mother charged in the killing of her children goes on trial on Monday. The small coastal town of Duxbury is preparing to relive a case focused on postpartum mental health.`\
+https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.html
+
+**What to Know About the Preliminary Hearing in D4vd’s Murder Case**\
+`The singer is charged with killing Celeste Rivas Hernandez, a teenager whose decomposed body was found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
+
+**‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
+`As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
+https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
 

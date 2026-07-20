@@ -1,3 +1,19 @@
+**Book Review: ‘Cool Machine,’ by Colson Whitehead**\
+`The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
+https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
+
+**Trial Begins for Lindsay Clancy, Charged With Murdering Her 3 Children**\
+`A Massachusetts mother charged in the killing of her children goes on trial on Monday. The small coastal town of Duxbury is preparing to relive a case focused on postpartum mental health.`\
+https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.html
+
+**What to Know About the Preliminary Hearing in D4vd’s Murder Case**\
+`The singer is charged with killing Celeste Rivas Hernandez, a teenager whose decomposed body was found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
+
+**‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
+`As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
+https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
+
 **North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
 `Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
 https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
