@@ -1,3 +1,7 @@
+**The Second Home Tax Is a Win for New York**\
+`The recent debate over the new pied-à-terre tax in the city offers a useful case study.`\
+https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
+
 **‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
 `As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
 https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
