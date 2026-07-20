@@ -1,3 +1,7 @@
+**What Happens Behind the Scenes Once Burnham Enters 10 Downing Street**\
+`Calls with foreign leaders, cabinet appointments and writing the “letters of last resort”: Andy Burnham’s first hours and days in office will be busy.`\
+https://www.nytimes.com/2026/07/20/world/europe/behind-the-scenes-downing-street.html
+
 **When Will the Wildfire Smoke End? Latest Air Quality Updates and Maps**\
 `On Monday, hazy skies and poor air quality continued to affect parts of the Midwest and Great Lakes region.`\
 https://www.nytimes.com/2026/07/20/weather/canadian-wildfire-smoke-air-quality-us.html
