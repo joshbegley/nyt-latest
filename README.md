@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
 
-**Live Updates: Burnham Set to Become Britain’s New Leader**\
-`Andy Burnham spent the past nine years as the mayor of one of Britain’s fastest-growing regions. He will become the seventh prime minister in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+**Live Updates: Starmer Speaks as Burnham Set to Become Britain’s New Leader**\
+`Keir Starmer is giving his final address as prime minister. Andy Burnham will become Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
 
 **5 Things to Know About the Maine Senate Candidate Troy Jackson**\
