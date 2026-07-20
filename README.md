@@ -67,7 +67,7 @@ https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-sier
 https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-russia-war.html
 
 **Two More Patients Die in Outbreak of Legionnaires’ Disease in Manhattan**\
-`The second victim was an 88-year-old retired businessman and Air Force veteran who lived on the Upper East Side, his lawyer said.`\
+`The deaths brought the toll in the outbreak to three. The second person who died was an 88-year-old retired businessman who lived on the Upper East Side, his lawyer said.`\
 https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
 
 **Earthquake in Peru Kills 6 and Displaces Hundreds**\
