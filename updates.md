@@ -1,3 +1,7 @@
+**Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
+`For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
+https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
+
 **Today, In Short**\
 `Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
 https://www.nytimes.com/2026/07/20/briefing/today-in-short.html

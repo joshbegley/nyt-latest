@@ -1,3 +1,7 @@
+**Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
+`For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
+https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
+
 **Today, In Short**\
 `Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
 https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/technology/china-us-ai-race.html
 **7 U.S. Botanical Gardens You Won’t Believe Are in the City**\
 `Across America, botanical gardens large and small are perfect for a quick getaway where you can breathe fresh air, find a patch of shade and touch grass.`\
 https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
-
-**How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
-`After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
-https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
 
