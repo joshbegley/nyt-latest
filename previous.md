@@ -138,7 +138,7 @@ https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnha
 `Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
 https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
 
-**Pentagon Identifies 2 U.S. Soldiers Killed in Jordan**\
+**Pentagon Identifies 2 U.S. Soldiers Killed in Jordan During Iran Strike**\
 `Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
 https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
 

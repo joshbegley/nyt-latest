@@ -1,3 +1,7 @@
+**Pentagon Identifies 2 U.S. Soldiers Killed in Jordan During Iran Strike**\
+`Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
+https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
+
 **Read The Times’s Motion in Response to the Trump Administration Subpoenas**\
 `Read the motion filed by lawyers for The New York Times regarding the federal government’s effort to subpoena phone records of the news outlet’s journalists.`\
 https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-government-letter-re-additional-subpoenas.html
