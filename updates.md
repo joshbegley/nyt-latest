@@ -1,3 +1,7 @@
+**Global Oil Price Crosses $90 a Barrel as U.S.-Iran Conflict Widens**\
+`Brent crude, the global benchmark for oil, rose more than 3 percent as trading resumed on Sunday, while S&P 500 futures remained essentially unchanged.`\
+https://www.nytimes.com/2026/07/19/business/oil-prices-stocks-gas.html
+
 **India’s CJP Party Leads Protest March to Parliament After Exam Leaks**\
 `The demonstrations were prompted in part after questions for the country’s biggest medical school entrance exam were leaked, forcing millions to retake the test.`\
 https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html
