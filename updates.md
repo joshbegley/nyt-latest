@@ -1,3 +1,7 @@
+**How Trump’s Immigration Crackdown Is Hurting Elder Care**\
+`Retirement communities already grappling with labor shortages are being forced to terminate caregivers at a time when more Americans are living longer.`\
+https://www.nytimes.com/2026/07/20/us/immigration-trump-senior-living-staffing.html
+
 **Mamdani Eyes a McKinsey Partner to Lead Economic Development Team**\
 `Mayor Zohran Mamdani, who wanted to use the Economic Development Corporation to pursue economic justice as well as growth, is leaning toward someone likely to placate the business community.`\
 https://www.nytimes.com/2026/07/20/nyregion/mamdani-shorris-edc.html

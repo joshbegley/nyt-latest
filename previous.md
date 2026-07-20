@@ -1,3 +1,7 @@
+**How Trump’s Immigration Crackdown Is Hurting Elder Care**\
+`Retirement communities already grappling with labor shortages are being forced to terminate caregivers at a time when more Americans are living longer.`\
+https://www.nytimes.com/2026/07/20/us/immigration-trump-senior-living-staffing.html
+
 **Mamdani Eyes a McKinsey Partner to Lead Economic Development Team**\
 `Mayor Zohran Mamdani, who wanted to use the Economic Development Corporation to pursue economic justice as well as growth, is leaning toward someone likely to placate the business community.`\
 https://www.nytimes.com/2026/07/20/nyregion/mamdani-shorris-edc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-geor
 **Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
 `As chancellor, John Healey, who quit as defense secretary in the former government, will fill one of the most consequential posts, overseeing fiscal and economic policy.`\
 https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
-
-**American Deaths in the Iran War**\
-`Readers react to the intensifying conflict. Also: Free speech and Israeli writers; treasuring immigrants.`\
-https://www.nytimes.com/2026/07/20/opinion/iran-war-us-deaths.html
 
