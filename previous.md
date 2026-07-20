@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/07/20/weather/wisconsin-midwest-storms-tornado-fore
 `Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
 https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
 
-**Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
+**Iran War Live Updates: Iranian -Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
 https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
 

@@ -1,3 +1,7 @@
+**Iran War Live Updates: Iranian -Backed Houthis Expand Conflict With Red Sea Blockade**\
+`The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
+https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
+
 **Trump Orders a 50% Tariff on Many Canadian Goods**\
 `Also, Britain has a new prime minister. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/07/20/briefing/trump-canada-tariffs-britain-new-leader.html
