@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/07/19/world/middleeast/us-warplanes-mideast-iran.ht
 `A Central Florida nonprofit group identified the man as Juan Jairo Coronilla Durán and said he had planned to return home to his family.`\
 https://www.nytimes.com/2026/07/19/us/florida-ice-death-mexico-visit.html
 
-**Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
+**Another U.S. Service Member Is Killed as Iran War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 

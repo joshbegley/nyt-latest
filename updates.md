@@ -1,3 +1,7 @@
+**Another U.S. Service Member Is Killed as Iran War Expands**\
+`The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
+https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
+
 **U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
 `A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
 https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
