@@ -1,3 +1,7 @@
+**White House Says New Air Force One Will Be Out of Service for a Month for ‘Upgrades’**\
+`The White House press secretary said the unspecified “enhancements” would take place this fall. The plane has been under scrutiny over whether it has sufficient defensive capabilities.`\
+https://www.nytimes.com/2026/07/20/us/politics/new-air-force-one-upgrades.html
+
 **Maine Democrats Are About to Replace an Oysterman With a Lumberjack. It Might Just Work.**\
 `For the state’s progressives, Graham Platner was tempting. Troy Jackson is tested.`\
 https://www.nytimes.com/2026/07/20/opinion/troy-jackson-maine-democrats.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-g
 **Hamas Names Khalil al-Hayya as Its New Leader**\
 `Seen as closer to Iran, Khalil al-Hayya served as the Palestinian militant group’s chief negotiator with Israel and the Trump administration during the Gaza war.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/gaza-talks-khalil-al-hayya-leader.html
-
-**Trump Administration Sought Phone Records of Times Journalists and Their Relatives**\
-`The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
-https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
