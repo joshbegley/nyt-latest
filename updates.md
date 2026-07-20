@@ -1,3 +1,11 @@
+**Iran War Live Updates: U.S. and Iran Signal Hope for Diplomacy Despite New Attacks**\
+`Energy prices rose on Monday amid the escalating strikes by the United States and Iran. Still, both countries’ top diplomats indicated that they were open to restarting talks.`\
+https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
+
+**Ukraine War Momentum Helps Spur Interest in Postwar Investment**\
+`At a conference on reconstruction, the focus shifted to private investment, not donor assistance.`\
+https://www.nytimes.com/2026/07/20/world/europe/ukraine-post-war-reconstruction.html
+
 **Another U.S. Service Member Is Killed as Iran War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz

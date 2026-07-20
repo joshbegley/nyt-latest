@@ -1,3 +1,11 @@
+**Iran War Live Updates: U.S. and Iran Signal Hope for Diplomacy Despite New Attacks**\
+`Energy prices rose on Monday amid the escalating strikes by the United States and Iran. Still, both countries’ top diplomats indicated that they were open to restarting talks.`\
+https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
+
+**Ukraine War Momentum Helps Spur Interest in Postwar Investment**\
+`At a conference on reconstruction, the focus shifted to private investment, not donor assistance.`\
+https://www.nytimes.com/2026/07/20/world/europe/ukraine-post-war-reconstruction.html
+
 **U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
 `A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
 https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/07/19/business/media/the-odyssey-box-office-christo
 **Tropical Storm Watches Issued Along the Gulf Coast**\
 `A tropical depression could soon strengthen into the hurricane season’s second named storm, forecasters said.`\
 https://www.nytimes.com/2026/07/19/weather/tropical-storm-gulf-coast-florida.html
-
-**The U.S. Is Sending More Warplanes to the Middle East, Officials Say**\
-`F-16 and F-35 jets were en route to the region from Europe, according to U.S. officials who were not authorized to speak publicly.`\
-https://www.nytimes.com/2026/07/19/world/middleeast/us-warplanes-mideast-iran.html
-
-**Man Killed by Truck After ICE Encounter in Florida Was Visiting From Mexico**\
-`A Central Florida nonprofit group identified the man as Juan Jairo Coronilla Durán and said he had planned to return home to his family.`\
-https://www.nytimes.com/2026/07/19/us/florida-ice-death-mexico-visit.html
 
 **Another U.S. Service Member Is Killed as Iran War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
