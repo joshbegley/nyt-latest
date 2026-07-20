@@ -1,3 +1,19 @@
+**Mi hijo murió a manos de ICE. Exijo que haya rendición de cuentas**\
+`Ningún estadounidense que haya vivido una tragedia como la mía debería tener que luchar para obtener respuestas de su propio gobierno.`\
+https://www.nytimes.com/es/2026/07/20/espanol/opinion/ice-muerte-texas.html
+
+**Micah Lasher, Congressman in Waiting, Has a Few Tricks Up His Sleeve**\
+`Mr. Lasher, the likely successor to Representative Jerry Nadler, has an unusual back story: As a teenager, he was a prodigy who performed magic tricks on national television.`\
+https://www.nytimes.com/2026/07/20/nyregion/micah-lasher-magic.html
+
+**Building Community with $1 Coffees, a Salsa Club and Patience**\
+`The 14th Street Y in the East Village has worked to become a social gathering place in a city where sharing space does not always mean building a connection.`\
+https://www.nytimes.com/2026/07/20/nyregion/building-community-with-1-coffees-a-salsa-club-and-patience.html
+
+**NYT Spelling Bee Answers for July 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/20/crosswords/spelling-bee-forum.html
+
 **Spain Wins 2026 World Cup**\
 `Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
 https://www.nytimes.com/video/sports/soccer/100000011041199/world-cup-final-spain-argentina.html
@@ -145,22 +161,6 @@ https://www.nytimes.com/2026/07/19/us/florida-ice-death-mexico-visit.html
 **Maps: Tracking Tropical Depression Two**\
 `See the likely path and wind arrival times for Two`\
 https://www.nytimes.com/interactive/2026/07/19/weather/tropical-depression-two-map-path-tracker.html
-
-**Mapa: un terremoto de magnitud 5,5 sacude Perú**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/07/19/espanol/terremoto-peru.html
-
-**Federal Agents Were Told FBI Will No Longer Investigate ICE Confrontations**\
-`Senior officials deny such a change is in the works, despite guidance shared with agents around the country in recent days.`\
-https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-shootings.html
-
-**Map: 5.5-Magnitude Earthquake Shakes Peru**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru.html
-
-**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
-`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows, Jordan Wood and Nirav Shah ended their bids.`\
-https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\

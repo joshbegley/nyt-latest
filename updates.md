@@ -1,3 +1,19 @@
+**Mi hijo murió a manos de ICE. Exijo que haya rendición de cuentas**\
+`Ningún estadounidense que haya vivido una tragedia como la mía debería tener que luchar para obtener respuestas de su propio gobierno.`\
+https://www.nytimes.com/es/2026/07/20/espanol/opinion/ice-muerte-texas.html
+
+**Micah Lasher, Congressman in Waiting, Has a Few Tricks Up His Sleeve**\
+`Mr. Lasher, the likely successor to Representative Jerry Nadler, has an unusual back story: As a teenager, he was a prodigy who performed magic tricks on national television.`\
+https://www.nytimes.com/2026/07/20/nyregion/micah-lasher-magic.html
+
+**Building Community with $1 Coffees, a Salsa Club and Patience**\
+`The 14th Street Y in the East Village has worked to become a social gathering place in a city where sharing space does not always mean building a connection.`\
+https://www.nytimes.com/2026/07/20/nyregion/building-community-with-1-coffees-a-salsa-club-and-patience.html
+
+**NYT Spelling Bee Answers for July 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/20/crosswords/spelling-bee-forum.html
+
 **Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
 `Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
 https://www.nytimes.com/2026/07/20/world/europe/britain-new-prime-minister-challenges.html
