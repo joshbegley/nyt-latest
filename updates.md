@@ -1,3 +1,7 @@
+**Family of Five Found Dead After Storms Flooded Utah Canyon**\
+`A Provo fire captain, his wife and their three sons were found dead over the weekend near a campground in southern Utah. They were likely flood victims, the authorities said.`\
+https://www.nytimes.com/2026/07/19/us/utah-flooding-deaths.html
+
 **‘House of the Dragon’ Season 3, Episode 5 Recap: Under Pressure**\
 `Queen Rhaenrya is beginning to sound a little paranoid. That rarely bodes well with an autocrat.`\
 https://www.nytimes.com/2026/07/19/arts/television/house-of-the-dragon-recap-season-3-episode-5.html
