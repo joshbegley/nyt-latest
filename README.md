@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
 
-**Live Updates: Burnham Becomes U.K.’s Prime Minister**\
-`In a day of ceremonies, King Charles III formally asked Andy Burnham to form a new government. He is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+**Live Updates: Burnham Becomes U.K. Prime Minister and Pledges to End Homelessness**\
+`In his first address, Andy Burnham acknowledged that he is Britain’s seventh leader in a decade and vowed to usher in a “circuit breaker moment” to change the direction of government.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
 
 **5 Things to Know About the Maine Senate Candidate Troy Jackson**\

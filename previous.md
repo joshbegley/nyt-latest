@@ -1,3 +1,7 @@
+**Here’s What Greeks Think of Nolan’s ‘The Odyssey.’ (It’s Their Story, After All.)**\
+`Before its release, some in the country were highly skeptical about the new depiction of a beloved tale. But many who saw it over opening weekend came back with positive reviews.`\
+https://www.nytimes.com/2026/07/20/movies/the-odyssey-movie-greece.html
+
 **American A.I. Giants Like Alphabet Face Fresh Tests**\
 `Rapid advancements in Chinese artificial intelligence models raise more questions about costly technology spending, as Google’s parent prepares to report earnings.`\
 https://www.nytimes.com/2026/07/20/business/dealbook/ai-china-alphabet.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/fashion/big-jewelry-casual-fashion.html
 **Cinephiles Took Their Own Odysseys to Watch ‘The Odyssey’**\
 `To see Christopher Nolan’s interpretation of an epic journey in his preferred IMAX 70mm format, admirers packed their bags and took out their passports.`\
 https://www.nytimes.com/2026/07/20/movies/odyssey-imax-70mm-theaters.html
-
-**Book Review: ‘The Lost Founder,’ by Jesse Wegman**\
-`In “The Lost Founder,” the journalist Jesse Wegman looks back at a largely forgotten and singular voice that helped make the United States what it is today.`\
-https://www.nytimes.com/2026/07/20/books/review/the-lost-founder-jesse-wegman.html
 
