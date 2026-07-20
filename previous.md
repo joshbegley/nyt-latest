@@ -1,3 +1,7 @@
+**Apple Accuses OpenAI of Trying to Steal Hardware Secrets**\
+`Apple’s recent lawsuit against OpenAI is filled with allegations, one of which accuses OpenAI of stealing the technique for a secret metal-finishing process Apple uses.`\
+https://www.nytimes.com/video/podcasts/100000011042532/apple-accuses-openai-of-trying-to-steal-hardware-secrets.html
+
 **Judge Tosses Justice Department Challenge to Minnesota Immigration Laws**\
 `The Trump administration, which flooded Minnesota with immigration agents this year, argued that policies limiting cooperation with ICE were unconstitutional.`\
 https://www.nytimes.com/2026/07/20/us/minnesota-immigration-lawsuit.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/polls/florida-us-house-4-polls-2026.html
 **The World Cup Halftime Show Had Star Power. But the Style Missed the Point.**\
 `Most performers for the halftime show, including BTS, Gustavo Dudamel and Madonna, dressed for the occasion but didn’t hit the mark.`\
 https://www.nytimes.com/2026/07/20/style/world-cup-halftime-show-fashion.html
-
-**What Happens Behind the Scenes Once Burnham Enters 10 Downing Street**\
-`Calls with foreign leaders, cabinet appointments and writing the “letters of last resort”: Andy Burnham’s first hours and days in office will be busy.`\
-https://www.nytimes.com/2026/07/20/world/europe/behind-the-scenes-downing-street.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

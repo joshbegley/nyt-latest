@@ -1,3 +1,7 @@
+**Apple Accuses OpenAI of Trying to Steal Hardware Secrets**\
+`Apple’s recent lawsuit against OpenAI is filled with allegations, one of which accuses OpenAI of stealing the technique for a secret metal-finishing process Apple uses.`\
+https://www.nytimes.com/video/podcasts/100000011042532/apple-accuses-openai-of-trying-to-steal-hardware-secrets.html
+
 **Judge Tosses Justice Department Challenge to Minnesota Immigration Laws**\
 `The Trump administration, which flooded Minnesota with immigration agents this year, argued that policies limiting cooperation with ICE were unconstitutional.`\
 https://www.nytimes.com/2026/07/20/us/minnesota-immigration-lawsuit.html
