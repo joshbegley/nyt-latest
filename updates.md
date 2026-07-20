@@ -1,3 +1,7 @@
+**India’s CJP Party Leads Protest March to Parliament After Exam Leaks**\
+`The demonstrations were prompted in part after questions for the country’s biggest medical school entrance exam were leaked, forcing millions to retake the test.`\
+https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html
+
 **Mi hijo murió a manos de ICE. Exijo que haya rendición de cuentas**\
 `Ningún estadounidense que haya vivido una tragedia como la mía debería tener que luchar para obtener respuestas de su propio gobierno.`\
 https://www.nytimes.com/es/2026/07/20/espanol/opinion/ice-muerte-texas.html
