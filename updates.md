@@ -1,3 +1,7 @@
+**World Cup Updates: Cheers in Spain and Tears in Argentina After Nail-Biter Final**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Spain Rejoices and Argentina Weeps as 2026 World Cup Ends**\
 `See how crowds in Madrid and in Rosario, Argentina, took in the tournament’s nail-biter final. Spain prevailed, 1-0.`\
 https://www.nytimes.com/2026/07/20/sports/world-cup/world-cup-final-spain-argentina-reactions.html
