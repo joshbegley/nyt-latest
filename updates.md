@@ -1,3 +1,135 @@
+**Mapa: la trayectoria de la tormenta tropical Fausto en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Fausto.`\
+https://www.nytimes.com/es/interactive/2026/07/20/espanol/fausto-mapa-trayectoria.html
+
+**Read the document**\
+`Read the motion filed by lawyers for The New York Times regarding the federal government’s effort to subpoena phone records of the news outlet’s journalists.`\
+https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-government-letter-re-additional-subpoenas.html
+
+**Hamas Names Khalil al-Hayya as Its New Leader**\
+`Seen as closer to Iran, Khalil al-Hayya served as the Palestinian militant group’s chief negotiator with Israel and the Trump administration during the Gaza war.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/gaza-talks-khalil-al-hayya-leader.html
+
+**U.S. Sought Phone Records of Times Journalists and Their Relatives**\
+`The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
+https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
+
+**España recibe la Copa Mundial de manos de Trump, que pausa sus ataques**\
+`El presidente estadounidense, que había calificado a España de “gente mala y sin remedio”, mostró diplomacia el domingo al galardonar a la selección del país.`\
+https://www.nytimes.com/es/2026/07/20/espanol/mundo/trump-espana-copa-mundial.html
+
+**Students March Toward India’s Parliament Over Exam Scandal**\
+`Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
+https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
+
+**Mapa: la trayectoria de la depresión tropical Two en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Two.`\
+https://www.nytimes.com/es/interactive/2026/07/20/espanol/two-mapa-trayectoria.html
+
+**Houthis in Yemen Declare Red Sea Blockade on Saudi Arabia**\
+`The Iran-backed Houthi militia, which controls parts of Yemen, has in the past blockaded the Red Sea by threatening a choke point crucial to Saudi oil exports and global shipping.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-red-sea-blockade.html
+
+**Denise Oliver-Velez, a Powerful Voice of the Left, Dies at 78**\
+`She became the highest-ranking female member of the Young Lords in New York, where she pressed for women’s rights, and later joined the Black Panthers.`\
+https://www.nytimes.com/2026/07/20/us/denise-oliver-velez-dead.html
+
+**Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
+`For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
+https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
+
+**Today, In Short**\
+`Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
+https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
+
+**Peanut Noodles With Spicy Tofu**\
+`Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
+https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
+
+**Andy Burnham Becomes U.K. Prime Minister**\
+`Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
+https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
+
+**Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
+`Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
+https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
+
+**Good Grain Bowl**\
+`Ali Slagle’s roasted mushroom and halloumi grain bowl is exactly the sort of simple, healthful meal I want to be cooking and eating right now.`\
+https://www.nytimes.com/2026/07/20/dining/good-grain-bowl.html
+
+**This Is Why Our Fresh Produce Keeps Making Us Sick**\
+`Cyclospora outbreaks are just a small part of a much larger food safety crisis linked to fresh produce.`\
+https://www.nytimes.com/2026/07/20/opinion/cyclospora-outbreak-symptoms-lettuce.html
+
+**Dave Dawson, Co-founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
+`He and his wife knew nothing about the business when they decided to produce lighting in Charleston, S.C. Their company became a beacon of American manufacturing.`\
+https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
+
+**As Budget Cuts Loom, French Theater Turns Up the Political Heat**\
+`This year’s Avignon Festival has transformed into a staging ground for protests, defiant new works and some early 2027 presidential campaigning.`\
+https://www.nytimes.com/2026/07/20/theater/france-theater-cuts-politics-avignon-festival.html
+
+**Maps: Tracking Tropical Storm Fausto**\
+`See the likely path and wind arrival times for Fausto`\
+https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.html
+
+**El Air Force One nuevo será retirado para ser equipado ‘al máximo’, dice Trump**\
+`Se ha cuestionado si las capacidades defensivas del avión donado por Catar son adecuadas para proteger a un presidente de EE. UU. y otros pasajeros.`\
+https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
+
+**Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
+`The man, who was detained, threatened passers-by, lit a fire and set off fireworks, police said, at the building, which houses an Immigration and Customs Enforcement office.`\
+https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
+
+**How Google’s A.I. Search Is Imperiling the Open Web**\
+`As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
+https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
+
+**‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
+`Mobile apps are easy to make with artificial intelligence. That doesn’t mean people are excited to use them.`\
+https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
+
+**Armored Cars, Now on the American Road**\
+`Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
+https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
+
+**Soaring Egg Prices Are Hitting China Hard**\
+`China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
+https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
+
+**Greece Hopes Andy Burnham Will Return the Parthenon Sculptures**\
+`The artworks, also known as the Parthenon marbles, once decorated the renowned ancient temple in Athens, Greece. They have been displayed in the British Museum in London for decades.`\
+https://www.nytimes.com/2026/07/20/arts/greece-andy-burnham-parthenon-sculptures.html
+
+**Who Is Ahead in Florida's 4th Congressional District?**\
+`Track the latest polls in Florida's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-4-polls-2026.html
+
+**The World Cup Halftime Show Had Star Power. But the Style Missed the Point.**\
+`Most performers for the halftime show, including BTS, Gustavo Dudamel and Madonna, dressed for the occasion but didn’t hit the mark.`\
+https://www.nytimes.com/2026/07/20/style/world-cup-halftime-show-fashion.html
+
+**What Happens Behind the Scenes Once Burnham Enters 10 Downing Street**\
+`Calls with foreign leaders, cabinet appointments and writing the “letters of last resort”: Andy Burnham’s first hours and days in office will be busy.`\
+https://www.nytimes.com/2026/07/20/world/europe/behind-the-scenes-downing-street.html
+
+**When Will the Wildfire Smoke End? Latest Air Quality Updates and Maps**\
+`On Monday, hazy skies and poor air quality continued to affect parts of the Midwest and Great Lakes region.`\
+https://www.nytimes.com/2026/07/20/weather/canadian-wildfire-smoke-air-quality-us.html
+
+**Here’s What Greeks Think of Christopher Nolan’s ‘The Odyssey’**\
+`Before its release, some in the country were highly skeptical about the new depiction of a beloved tale. But many who saw it over opening weekend came back with positive reviews.`\
+https://www.nytimes.com/2026/07/20/movies/the-odyssey-movie-greece.html
+
+**American A.I. Giants Like Alphabet Face Fresh Tests**\
+`Rapid advancements in Chinese artificial intelligence models raise more questions about costly technology spending, as Google’s parent prepares to report earnings.`\
+https://www.nytimes.com/2026/07/20/business/dealbook/ai-china-alphabet.html
+
+**Aiming for My Fastest Marathon, I Turned to Distance Running’s Mecca**\
+`A New York Times reporter’s quest to beat the personal best he set 14 years ago took him to a Kenyan village, where the biggest benefit he got was not what he expected.`\
+https://www.nytimes.com/2026/07/20/world/africa/kenya-iten-marathon-training.html
+
 **In Maine Senate Race, Democrats Go From Chaos to Coronation**\
 `Troy Jackson’s emergence as the clear front-runner to replace Graham Platner spares the party some challenges but points to some new ones.`\
 https://www.nytimes.com/2026/07/20/us/politics/maine-democrats-senate-jackson-platner.html
