@@ -1,3 +1,11 @@
+**Mamdani Eyes a McKinsey Partner to Lead Economic Development Team**\
+`Mayor Zohran Mamdani, who wanted to use the Economic Development Corporation to pursue economic justice as well as growth, is leaning toward someone likely to placate the business community.`\
+https://www.nytimes.com/2026/07/20/nyregion/mamdani-shorris-edc.html
+
+**World Cup Champions Return Home to Spain**\
+`Spain’s men’s soccer team received a homecoming parade on Monday after their World Cup victory against Argentina.`\
+https://www.nytimes.com/video/sports/soccer/100000011041459/world-cup-spain-victory-parade.html
+
 **A pesar del ‘falso positivo’ en una prueba, Taylor Farms sigue en el centro de la investigación del brote de ciclosporosis**\
 `La FDA dijo que continuaba investigando al proveedor como un actor importante en el brote.`\
 https://www.nytimes.com/es/2026/07/20/espanol/taylor-farms-brote-ciclosporosis.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
 **American Deaths in the Iran War**\
 `Readers react to the intensifying conflict. Also: Free speech and Israeli writers; treasuring immigrants.`\
 https://www.nytimes.com/2026/07/20/opinion/iran-war-us-deaths.html
-
-**Judge Temporarily Pauses Paramount-Warner Bros. Deal**\
-`The delay is intended to give the court time to consider a lawsuit that argues the $111 billion merger violates antitrust laws.`\
-https://www.nytimes.com/2026/07/20/business/media/paramount-warner-bros-deal.html
-
-**Iran War Live Updates: Iranian -Backed Houthis Expand Conflict With Red Sea Blockade**\
-`The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
-https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
 

@@ -1,3 +1,11 @@
+**Mamdani Eyes a McKinsey Partner to Lead Economic Development Team**\
+`Mayor Zohran Mamdani, who wanted to use the Economic Development Corporation to pursue economic justice as well as growth, is leaning toward someone likely to placate the business community.`\
+https://www.nytimes.com/2026/07/20/nyregion/mamdani-shorris-edc.html
+
+**World Cup Champions Return Home to Spain**\
+`Spain’s men’s soccer team received a homecoming parade on Monday after their World Cup victory against Argentina.`\
+https://www.nytimes.com/video/sports/soccer/100000011041459/world-cup-spain-victory-parade.html
+
 **A pesar del ‘falso positivo’ en una prueba, Taylor Farms sigue en el centro de la investigación del brote de ciclosporosis**\
 `La FDA dijo que continuaba investigando al proveedor como un actor importante en el brote.`\
 https://www.nytimes.com/es/2026/07/20/espanol/taylor-farms-brote-ciclosporosis.html
