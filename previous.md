@@ -1,3 +1,7 @@
+**Tate Brothers to Stay Jailed as Lawyer Says They Will Fight Extradition**\
+`The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in the United Kingdom, including rape, trafficking and charges related to indecent images of a child.`\
+https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
+
 **Israel’s Ambassador to U.N. Lashes Out at Mamdani Over Netanyahu Arrest Threats**\
 `The “threat is empty,” the ambassador, Danny Danon, said in an address to the U.N. General Assembly.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-arrest.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/business/dealbook/ai-china-alphabet.html
 **Aiming for My Fastest Marathon, I Turned to Distance Running’s Mecca**\
 `A New York Times reporter’s quest to beat the personal best he set 14 years ago took him to a Kenyan village, where the biggest benefit he got was not what he expected.`\
 https://www.nytimes.com/2026/07/20/world/africa/kenya-iten-marathon-training.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnham-inside-92405.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

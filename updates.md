@@ -1,3 +1,7 @@
+**Tate Brothers to Stay Jailed as Lawyer Says They Will Fight Extradition**\
+`The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in the United Kingdom, including rape, trafficking and charges related to indecent images of a child.`\
+https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
+
 **Israel’s Ambassador to U.N. Lashes Out at Mamdani Over Netanyahu Arrest Threats**\
 `The “threat is empty,” the ambassador, Danny Danon, said in an address to the U.N. General Assembly.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-arrest.html
