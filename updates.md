@@ -1,3 +1,7 @@
+**Your Questions, Answered**\
+`We look at political donations, housing and the national debt.`\
+https://www.nytimes.com/2026/07/20/briefing/your-questions-answered.html
+
 **Burnham Set to Become Britain’s First Openly Roman Catholic Prime Minister**\
 `Andy Burnham has spoken of Catholicism as part of his cultural identity rather than as a fervent religious faith.`\
 https://www.nytimes.com/2026/07/20/world/europe/burnham-openly-roman-catholic-prime-minister.html
