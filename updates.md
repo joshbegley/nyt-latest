@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Fausto**\
+`See the likely path and wind arrival times for Fausto`\
+https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.html
+
 **Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
 `The building, 26 Federal Plaza, houses the New York field office of Immigration and Customs Enforcement.`\
 https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
