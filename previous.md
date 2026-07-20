@@ -1,3 +1,135 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
+
+**Live Updates: Burnham Set to Become Britain’s New Leader**\
+`Andy Burnham spent the past nine years as the mayor of one of Britain’s fastest-growing regions. He will become the seventh prime minister in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
+**5 Things to Know About the Maine Senate Candidate Troy Jackson**\
+`Mr. Jackson, who has emerged as the clear front-runner to replace Graham Platner, is a Republican turned Democrat who is seen as close to Mr. Platner on policy.`\
+https://www.nytimes.com/2026/07/20/us/politics/troy-jackson-maine-senate.html
+
+**In Maine Senate Race, Democrats Go From Chaos to Coronation**\
+`Troy Jackson’s emergence as the clear front-runner to replace Graham Platner spares the party some challenges but points to some new ones.`\
+https://www.nytimes.com/2026/07/20/us/politics/maine-democrats-senate-jackson-platner.html
+
+**Fui víctima del contenido basura**\
+`Alguien usó IA para escribir mi biografía. Miles de libros más de ese tipo están contaminando Amazon. ¿Quién está detrás de toda esta bazofia?`\
+https://www.nytimes.com/es/2026/07/20/espanol/negocios/ia-bazofia-libros-amazon.html
+
+**Pentagon Withheld Dozens of U.S. Military Injuries in Iran War**\
+`Central Command is not required to release information about injured troops, especially when they quickly return to duty, a military official said.`\
+https://www.nytimes.com/2026/07/20/us/politics/troops-injured-jordan-iran-war.html
+
+**Enough Democratic Drama. North Carolina Has a Better, Boring Way.**\
+`There are important lessons in my state’s Senate race.`\
+https://www.nytimes.com/2026/07/20/opinion/roy-cooper-senate-election.html
+
+**Why Silicon Valley Can’t Stop Looking Over Its Shoulder at China**\
+`Chinese companies are offering artificial intelligence that is nearly as good as the leading U.S. technologies, but it’s still America’s race to lose.`\
+https://www.nytimes.com/2026/07/20/technology/china-us-ai-race.html
+
+**7 U.S. Botanical Gardens You Won’t Believe Are in the City**\
+`Across America, botanical gardens large and small are perfect for a quick getaway where you can breathe fresh air, find a patch of shade and touch grass.`\
+https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
+
+**How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
+`After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
+https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
+
+**Book Review: ‘Cool Machine,’ by Colson Whitehead**\
+`The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
+https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
+
+**Trial Begins for Lindsay Clancy, Charged With Murdering Her 3 Children**\
+`A Massachusetts mother charged in the killing of her children goes on trial on Monday. The small coastal town of Duxbury is preparing to relive a case focused on postpartum mental health.`\
+https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.html
+
+**What to Know About the Preliminary Hearing in D4vd’s Murder Case**\
+`The singer is charged with killing Celeste Rivas Hernandez, a teenager whose decomposed body was found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
+
+**‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
+`As the summer heats up, here’s seven not-to-miss Off Broadway shows.`\
+https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
+
+**Can Arizona Republicans Stop Feuding Long Enough to Win Back the State?**\
+`Some Republicans fear the party is poised to repeat past mistakes by nominating candidates in Tuesday’s primaries who are viewed as too extreme to sway moderate voters.`\
+https://www.nytimes.com/2026/07/20/us/politics/arizona-republicans-fighting.html
+
+**These Public Housing Pathways Are Made From Wine Corks**\
+`At Marlboro Houses in Brooklyn, corks have been recycled into walkways, and bright yellow benches and sculptures have brightened the outdoor space.`\
+https://www.nytimes.com/2026/07/20/nyregion/cork-pathways-marlboro-houses-brooklyn.html
+
+**Capping the Price of Health Care Is a Mistake**\
+`A government bureaucrat doesn’t know how much your medicine or doctor’s visit should cost.`\
+https://www.nytimes.com/2026/07/20/opinion/health-care-prices-insurance-caps.html
+
+**The Best Genetic Risk Tools Don’t Work Equally for Everyone**\
+`Genetic prediction models are poised to revolutionize medicine. But because they have been trained on European DNA, they threaten to widen health care disparities.`\
+https://www.nytimes.com/2026/07/20/science/polygenic-risk-scores-diversity.html
+
+**America Has 2 Political Parties but 8 Political Tribes**\
+`Think of our two major political parties as two coalitions.`\
+https://www.nytimes.com/2026/07/20/opinion/voters-political-parties-coalitions.html
+
+**The Nerves and Thrills of Being a ‘Swan Lake’ Extra**\
+`Our reporter, a lapsed dancer, got an intimate glimpse of the action in the American Ballet Theater’s production.`\
+https://www.nytimes.com/2026/07/20/arts/dance/swan-lake-american-ballet-theater-extra-supernumerary.html
+
+**Cat Cohen Turned Her Stroke Into a Punchline and Off Broadway Show**\
+`“Broad Strokes” recounts this singing comedian’s medical emergency, juxtaposing “something brash and grotesque and humiliating with something completely heartfelt.”`\
+https://www.nytimes.com/2026/07/20/theater/cat-cohen-broad-strokes-comedy.html
+
+**‘National Treasure,’ the Over-Engineered, Delightfully Dumb U.S. History Lesson**\
+`Nicolas Cage, Diane Kruger and Justin Bartha raced from conspiracy theory to conspiracy theory in this 2004 blockbuster about stealing the Declaration of Independence.`\
+https://www.nytimes.com/2026/07/20/movies/national-treasure-nicolas-cage.html
+
+**How New York’s Historic Homes Freshened Up for America’s 250th**\
+`House museums that predate the American Revolution renovated for this anniversary year.`\
+https://www.nytimes.com/2026/07/20/realestate/historic-homes-new-york-250.html
+
+**To Sell the ‘Odyssey,’ Publishers, Like Its Hero, Get Wily**\
+`The market for Homer’s epic poem is as crowded as a certain Ithacan palace, and publishers have had to get crafty to attract readers to their editions.`\
+https://www.nytimes.com/2026/07/20/books/odyssey-book-editions.html
+
+**Word of the Day: obsidian**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/20/learning/word-of-the-day-obsidian.html
+
+**A.I. Drones Are Coming. We Are Not Ready.**\
+`World leaders are marching us toward an uncertain era of new warfare — fast.`\
+https://www.nytimes.com/2026/07/20/opinion/ai-drones-modern-warfare.html
+
+**Why Epidemics Breed Rage at Health Workers**\
+`Some people have fought Ebola containment measures in the Democratic Republic of Congo. Scholars have seen similar responses across societies and throughout history.`\
+https://www.nytimes.com/2026/07/20/magazine/ebola-health-workers.html
+
+**Can I Wear Big Jewels With My Jeans and T-Shirt?**\
+`A reader wonders how jeweled up someone can be.`\
+https://www.nytimes.com/2026/07/20/fashion/big-jewelry-casual-fashion.html
+
+**Cinephiles Took Their Own Odysseys to Watch ‘The Odyssey’**\
+`To see Christopher Nolan’s interpretation of an epic journey in his preferred IMAX 70mm format, admirers packed their bags and took out their passports.`\
+https://www.nytimes.com/2026/07/20/movies/odyssey-imax-70mm-theaters.html
+
+**Book Review: ‘The Lost Founder,’ by Jesse Wegman**\
+`In “The Lost Founder,” the journalist Jesse Wegman looks back at a largely forgotten and singular voice that helped make the United States what it is today.`\
+https://www.nytimes.com/2026/07/20/books/review/the-lost-founder-jesse-wegman.html
+
+**Taxing New York’s Second Homes Is a Step Toward Fairness**\
+`The recent debate over the new pied-à-terre tax in the city offers a useful case study.`\
+https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
+
+**Texas Book List: See What Students Will Be Required to Read**\
+`What is essential reading? Texas has an answer: Classics, including the Bible.`\
+https://www.nytimes.com/2026/07/20/us/texas-schools-required-reading-books.html
+
+**Does Lymphatic Drainage Massage Make Your Skin Healthier?**\
+`The technique has been used to increase circulation and in some cases reduce fluid buildup. Whether it tightens and brightens your skin is less clear.`\
+https://www.nytimes.com/2026/07/20/well/lymphatic-drainage-massage-scam-or-not.html
+
 **Iran War Live Updates: U.S. and Iran Signal Hope for Diplomacy Despite New Attacks**\
 `Energy prices rose on Monday amid the escalating strikes by the United States and Iran. Still, both countries’ top diplomats indicated that they were open to restarting talks.`\
 https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
@@ -61,112 +193,4 @@ https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalatio
 **Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
 `Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
 https://www.nytimes.com/2026/07/20/world/europe/britain-new-prime-minister-challenges.html
-
-**No Corrections: July 20, 2026**\
-`No corrections appeared in print on Monday, July 20, 2026.`\
-https://www.nytimes.com/2026/07/20/corrections/no-corrections-july-20-2026.html
-
-**Quote of the Day: Heartbreak of Quakes Is Doubled for Venezuela’s Many Migrants**\
-`Quotation of the Day for Monday, July 20, 2026.`\
-https://www.nytimes.com/2026/07/20/pageoneplus/quote-of-the-day-heartbreak-of-quakes-is-doubled-for-venezuelas-many-migrants.html
-
-**Trump Says New Air Force One Will Be Taken Out of Service to Be ‘Maxed Out’**\
-`The Qatari-donated plane has been under scrutiny over whether it is fitted with sufficient defensive capabilities to adequately protect a U.S. president and others traveling on it.`\
-https://www.nytimes.com/2026/07/19/us/politics/trump-air-force-modifications.html
-
-**Family of Five Found Dead After Storms Flooded Utah Canyon**\
-`A Provo fire captain, his wife and their three sons were found dead over the weekend near a campground in southern Utah. They were likely flood victims, the authorities said.`\
-https://www.nytimes.com/2026/07/19/us/utah-flooding-deaths.html
-
-**‘House of the Dragon’ Season 3, Episode 5 Recap: Under Pressure**\
-`Queen Rhaenrya is beginning to sound a little paranoid. That rarely bodes well with an autocrat.`\
-https://www.nytimes.com/2026/07/19/arts/television/house-of-the-dragon-recap-season-3-episode-5.html
-
-**Spain Fans Celebrate World Cup Victory**\
-`Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
-https://www.nytimes.com/video/sports/soccer/100000011040598/spain-fans-celebrate-world-cup-victory.html
-
-**Tears in Argentina for Lionel Messi’s ‘Last Tango’**\
-`There were still fireworks and smoke bombs, but the nation was disappointed for its soccer star after he lost in his likely last World Cup.`\
-https://www.nytimes.com/2026/07/19/world/americas/messi-argentina-buenos-aires-last-tango.html
-
-**Did This World Cup Change Soccer Forever?**\
-`With a wartime host nation, a referee deported and a ban overturned after a call from the White House, the 2026 tournament tested FIFA like no other.`\
-https://www.nytimes.com/2026/07/19/world/europe/fifa-world-cup-final.html
-
-**JD and Usha Vance Welcome Fourth Child**\
-`In a post on social media, Mr. Vance said his wife and their son, Alec Neel Vance, were “happy and healthy.”`\
-https://www.nytimes.com/2026/07/19/us/jd-usha-vance-baby.html
-
-**Watching the World Cup: ‘I Can’t Believe We Get to Be Here’**\
-`For fans at MetLife Stadium, the World Cup final was the thrill of a lifetime.`\
-https://www.nytimes.com/2026/07/19/nyregion/worldcup-final-metlife-photos.html
-
-**Global Oil Price Crosses $90 a Barrel as U.S.-Iran Conflict Widens**\
-`Brent crude, the global benchmark for oil, rose more than 3 percent as trading resumed on Sunday, while S&P 500 futures remained essentially unchanged.`\
-https://www.nytimes.com/2026/07/19/business/oil-prices-stocks-gas.html
-
-**Hal Williams, Actor in First Wave of Black Sitcoms, Dies at 91**\
-`As a divorced father of three in Ohio, he moved to Hollywood to pursue his boyhood dream to act. He became a recognizable face on “Sanford and Son.”`\
-https://www.nytimes.com/2026/07/19/obituaries/hal-williams-dead.html
-
-**NYT Crossword Answers for July 20, 2026**\
-`Eric Rollfing senses an opportunity.`\
-https://www.nytimes.com/2026/07/19/crosswords/daily-puzzle-2026-07-20.html
-
-**First World Cup Halftime Show: Lots of Stars, Little Purpose**\
-`The performers valiantly attempted to justify the existence of the show, which was impeccably choreographed and thematically jumbled.`\
-https://www.nytimes.com/2026/07/19/arts/music/world-cup-halftime-show-review.html
-
-**Trump Relents From Spain-Bashing to Present Its Team the World Cup Trophy**\
-`Mr. Trump, who this month referred to Spain as “hopeless,” seemingly had little choice but to exhibit diplomacy on Sunday as he handed the golden trophy to the country’s players.`\
-https://www.nytimes.com/2026/07/19/us/politics/trump-world-cup-final.html
-
-**A Conversation with Zohran Mamdani**\
-`The mayor of New York City talks about Andy Burnham, Netanyahu and the controversial U.S. red card.`\
-https://www.nytimes.com/2026/07/19/world/zohran-mamdani-interview-world-cup-final.html
-
-**Deadly 5.5-Magnitude Earthquake Strikes Peru**\
-`A 5.5-magnitude earthquake struck Peru’s central highlands region on Saturday, killing six people, the authorities said. Although Peru is prone to frequent quakes, this was the biggest to strike that region in over 50 years.`\
-https://www.nytimes.com/video/world/americas/100000011040683/peru-earthquake.html
-
-**Madonna, BTS and More Bring Spectacle to World Cup Halftime**\
-`Shakira and Justin Bieber were among the other performers in a star-packed performance that aims to mimic the Super Bowl halftime show’s cultural success.`\
-https://www.nytimes.com/live/2026/07/19/arts/world-cup-halftime-show
-
-**Terremoto en Perú deja 6 muertos y desplaza a cientos**\
-`Perú es propenso a sismos frecuentes, pero el temblor de magnitud 5,5 fue el más grande en azotar la zona de la sierra central en casi 50 años.`\
-https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-sierra-central.html
-
-**Russia Bombards Kyiv in One of the War’s Largest Missile Assaults**\
-`Officials said one person had been killed and more than 15 had been injured, with that toll likely to rise. The attacks on Kyiv coincided with Ukraine’s targeting of oil and gas facilities in Russia, which has prompted fuel shortages there.`\
-https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-russia-war.html
-
-**Two More Patients Die in Outbreak of Legionnaires’ Disease in Manhattan**\
-`The deaths brought the toll in the outbreak to three. The second person who died was an 88-year-old retired businessman who lived on the Upper East Side, his lawyer said.`\
-https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
-
-**Earthquake in Peru Kills 6 and Displaces Hundreds**\
-`Peru is prone to frequent quakes, but the 5.5-magnitude temblor was the biggest to strike the central highlands area in more than 50 years.`\
-https://www.nytimes.com/2026/07/19/world/americas/peru-earthquake.html
-
-**In Arizona’s Primaries, Democrats Fight Over a House Seat They Need Badly**\
-`Democrats have a chance to flip a competitive battleground district in and around Scottsdale, but the winner of Tuesday’s primary will emerge bloodied and broke.`\
-https://www.nytimes.com/2026/07/19/us/elections/arizona-democratic-primary-shah-galan-woods.html
-
-**Nolan’s ‘The Odyssey’ Brings in $124.5 Million at the Box Office on Opening Weekend**\
-`Christopher Nolan’s nearly three-hour epic was No. 1 over the weekend, with about $124.5 million in ticket sales in the United States and Canada.`\
-https://www.nytimes.com/2026/07/19/business/media/the-odyssey-box-office-christopher-nolan.html
-
-**Tropical Storm Watches Issued Along the Gulf Coast**\
-`A tropical depression could soon strengthen into the hurricane season’s second named storm, forecasters said.`\
-https://www.nytimes.com/2026/07/19/weather/tropical-storm-gulf-coast-florida.html
-
-**Another U.S. Service Member Is Killed as Iran War Expands**\
-`The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
-https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
-
-**World Cup Updates: Cheers in Spain and Tears in Argentina After Nail-Biter Final**\
-`(No description)`\
-https://www.nytimes.com/live/2026/us/fifa-world-cup
 
