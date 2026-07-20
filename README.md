@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/07/20/dining/good-grain-bowl.html
 `Cyclospora outbreaks are just a small part of a much larger food safety crisis linked to fresh produce.`\
 https://www.nytimes.com/2026/07/20/opinion/cyclospora-outbreak-symptoms-lettuce.html
 
-**Dave Dawson, Co-founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
+**Dave Dawson, Co-Founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
 `He and his wife knew nothing about the business when they decided to produce lighting in Charleston, S.C. Their company became a beacon of American manufacturing.`\
 https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
 

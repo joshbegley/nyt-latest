@@ -1,3 +1,19 @@
+**Inside the Deadly U.S. Airstrike on a Shadow Fleet Tanker**\
+`Evidence suggests the ship on which three Indian sailors died was not moving when it was struck in the Gulf of Oman, but it had been engaged in risky offshore transfers of oil.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/inside-the-deadly-us-airstrike-on-a-shadow-fleet-tanker.html
+
+**Shooting Near Santa Monica Pier Leaves One Dead**\
+`The Santa Monica Police Department said its officers were investigating the shooting in a parking lot on the pier’s north side.`\
+https://www.nytimes.com/2026/07/20/us/santa-monica-pier-shooting.html
+
+**Gustavo Dudamel dirigió un homenaje a las víctimas en Venezuela**\
+`La Orquesta Filarmónica de Nueva York y la Orquesta Sinfónica Simón Bolívar de Venezuela se han unido por primera vez para rendir tributo a un país en duelo.`\
+https://www.nytimes.com/es/2026/07/20/espanol/cultura/gustavo-dudamel-victimas-terremoto-venezuela.html
+
+**Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
+`As chancellor, John Healey, who quit as defense secretary in the former government, will fill one of the most consequential posts, overseeing spending and debt, and shepherding economic policy.`\
+https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
+
 **Outcry in Italy After Man Dies While Being Restrained by Police**\
 `The death of the man, a Moroccan resident of Italy, set off an outcry across the country and prompted comparisons to the death of George Floyd in the United States.`\
 https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-george-floyd.html
