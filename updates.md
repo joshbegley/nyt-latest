@@ -1,3 +1,11 @@
+**Zelensky Faces Pressure to Remove Ukraine’s Top General**\
+`Demonstrators and many soldiers want President Volodymyr Zelensky to reaffirm the vision of drone warfare laid out by the defense minister he fired last week.`\
+https://www.nytimes.com/2026/07/20/world/europe/ukraine-zelensky-general-defense-minister.html
+
+**Live Updates: Burnham Set to Become Britain’s New Prime Minister After Starmer’s Final Speech**\
+`Andy Burnham spent the past nine years as the mayor of one of Britain’s fastest-growing regions. He will become the seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 **More Trump Tariffs Are Coming**\
 `Jamieson Greer, the U.S. trade representative, tells a Times reporter why he thinks that the administration’s tariff policy is working as intended.`\
 https://www.nytimes.com/2026/07/20/podcasts/the-daily/more-trump-tariffs-are-coming.html
