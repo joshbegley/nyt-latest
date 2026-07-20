@@ -1,3 +1,119 @@
+**In Maine Senate Race, Democrats Go From Chaos to Coronation**\
+`Troy Jackson’s emergence as the clear front-runner to replace Graham Platner spares the party some challenges but points to some new ones.`\
+https://www.nytimes.com/2026/07/20/us/politics/maine-democrats-senate-jackson-platner.html
+
+**Fui víctima del contenido basura**\
+`Alguien usó IA para escribir mi biografía. Miles de libros más de ese tipo están contaminando Amazon. ¿Quién está detrás de toda esta bazofia?`\
+https://www.nytimes.com/es/2026/07/20/espanol/negocios/ia-bazofia-libros-amazon.html
+
+**Pentagon Withheld Dozens of U.S. Military Injuries in Iran War**\
+`Central Command is not required to release information about injured troops, especially when they quickly return to duty, a military official said.`\
+https://www.nytimes.com/2026/07/20/us/politics/troops-injured-jordan-iran-war.html
+
+**Enough Democratic Drama. North Carolina Has a Better, Boring Way.**\
+`There are important lessons in my state’s Senate race.`\
+https://www.nytimes.com/2026/07/20/opinion/roy-cooper-senate-election.html
+
+**Why Silicon Valley Can’t Stop Looking Over Its Shoulder at China**\
+`Chinese companies are offering artificial intelligence that is nearly as good as the leading U.S. technologies, but it’s still America’s race to lose.`\
+https://www.nytimes.com/2026/07/20/technology/china-us-ai-race.html
+
+**7 U.S. Botanical Gardens You Won’t Believe Are in the City**\
+`Across America, botanical gardens large and small are perfect for a quick getaway where you can breathe fresh air, find a patch of shade and touch grass.`\
+https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
+
+**How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
+`After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
+https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
+
+**Book Review: ‘Cool Machine,’ by Colson Whitehead**\
+`The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
+https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
+
+**Trial Begins for Lindsay Clancy, Charged With Murdering Her 3 Children**\
+`A Massachusetts mother charged in the killing of her children goes on trial on Monday. The small coastal town of Duxbury is preparing to relive a case focused on postpartum mental health.`\
+https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.html
+
+**What to Know About the Preliminary Hearing in D4vd’s Murder Case**\
+`The singer is charged with killing Celeste Rivas Hernandez, a teenager whose decomposed body was found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
+
+**‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
+`As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
+https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
+
+**Can Arizona Republicans Stop Feuding Long Enough to Win Back the State?**\
+`Some Republicans fear the party is poised to repeat past mistakes by nominating candidates in Tuesday’s primaries who are viewed as too extreme to sway moderate voters.`\
+https://www.nytimes.com/2026/07/20/us/politics/arizona-republicans-fighting.html
+
+**These Public Housing Pathways Are Made From Wine Corks**\
+`At Marlboro Houses in Brooklyn, corks have been recycled into walkways, and bright yellow benches and sculptures have brightened the outdoor space.`\
+https://www.nytimes.com/2026/07/20/nyregion/cork-pathways-marlboro-houses-brooklyn.html
+
+**Capping the Price of Health Care Is a Mistake**\
+`A government bureaucrat doesn’t know how much your medicine or doctor’s visit should cost.`\
+https://www.nytimes.com/2026/07/20/opinion/health-care-prices-insurance-caps.html
+
+**The Best Genetic Risk Tools Don’t Work Equally for Everyone**\
+`Genetic prediction models are poised to revolutionize medicine. But because they have been trained on European DNA, they threaten to widen health care disparities.`\
+https://www.nytimes.com/2026/07/20/science/polygenic-risk-scores-diversity.html
+
+**America Has 2 Political Parties but 8 Political Tribes**\
+`Think of our two major political parties as two coalitions.`\
+https://www.nytimes.com/2026/07/20/opinion/voters-political-parties-coalitions.html
+
+**The Nerves and Thrills of Being a ‘Swan Lake’ Extra**\
+`Our reporter, a lapsed dancer, got an intimate glimpse of the action in the American Ballet Theater’s production.`\
+https://www.nytimes.com/2026/07/20/arts/dance/swan-lake-american-ballet-theater-extra-supernumerary.html
+
+**Cat Cohen Turned Her Stroke Into a Punchline and Off Broadway Show**\
+`“Broad Strokes” recounts this singing comedian’s medical emergency, juxtaposing “something brash and grotesque and humiliating with something completely heartfelt.”`\
+https://www.nytimes.com/2026/07/20/theater/cat-cohen-broad-strokes-comedy.html
+
+**‘National Treasure,’ the Over-Engineered, Delightfully Dumb U.S. History Lesson**\
+`Nicolas Cage, Diane Kruger and Justin Bartha raced from conspiracy theory to conspiracy theory in this 2004 blockbuster about stealing the Declaration of Independence.`\
+https://www.nytimes.com/2026/07/20/movies/national-treasure-nicolas-cage.html
+
+**To Sell the ‘Odyssey,’ Publishers, Like Its Hero, Get Wily**\
+`The market for Homer’s epic poem is as crowded as a certain Ithacan palace, and publishers have had to get crafty to attract readers to their editions.`\
+https://www.nytimes.com/2026/07/20/books/odyssey-book-editions.html
+
+**How New York’s Historic Homes Freshened Up for America’s 250th**\
+`House museums that predate the American Revolution renovated for this anniversary year.`\
+https://www.nytimes.com/2026/07/20/realestate/historic-homes-new-york-250.html
+
+**Word of the Day: obsidian**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/20/learning/word-of-the-day-obsidian.html
+
+**Why Epidemics Breed Rage at Health Workers**\
+`Some people have fought Ebola containment measures in the Democratic Republic of Congo. Scholars have seen similar responses across societies and throughout history.`\
+https://www.nytimes.com/2026/07/20/magazine/ebola-health-workers.html
+
+**A.I. Drones Are Coming. We Are Not Ready.**\
+`World leaders are marching us toward an uncertain era of new warfare — fast.`\
+https://www.nytimes.com/2026/07/20/opinion/ai-drones-modern-warfare.html
+
+**Can I Wear Big Jewels With My Jeans and T-Shirt?**\
+`A reader wonders how jeweled up someone can be.`\
+https://www.nytimes.com/2026/07/20/fashion/big-jewelry-casual-fashion.html
+
+**Cinephiles Took Their Own Journeys to See ‘The Odyssey’ in IMAX 70mm**\
+`To see Christopher Nolan’s interpretation of an epic journey in his preferred IMAX 70mm format, admirers packed their bags and took out their passports.`\
+https://www.nytimes.com/2026/07/20/movies/odyssey-imax-70mm-theaters.html
+
+**Book Review: ‘The Lost Founder,’ by Jesse Wegman**\
+`In “The Lost Founder,” the journalist Jesse Wegman looks back at a largely forgotten and singular voice that helped make the United States what it is today.`\
+https://www.nytimes.com/2026/07/20/books/review/the-lost-founder-jesse-wegman.html
+
+**The Second Home Tax Is a Win for New York**\
+`The recent debate over the new pied-à-terre tax in the city offers a useful case study.`\
+https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
+
+**Texas Book List: See What Students Will Be Required to Read**\
+`What is essential reading? Texas has an answer: Classics, including the Bible.`\
+https://www.nytimes.com/2026/07/20/us/texas-schools-required-reading-books.html
+
 **U.S. Sought Phone Records of Times Journalists and Their Relatives**\
 `The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
 https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
