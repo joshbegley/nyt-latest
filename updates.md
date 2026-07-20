@@ -1,3 +1,7 @@
+**Two More Patients Die in Outbreak of Legionnaires’ Disease in Manhattan**\
+`The second victim was an 88-year-old retired businessman and Air Force veteran who lived on the Upper East Side, his lawyer said.`\
+https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
+
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
 `Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows, Jordan Wood and Nirav Shah ended their bids.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html

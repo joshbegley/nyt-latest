@@ -58,7 +58,7 @@ https://www.nytimes.com/es/2026/07/19/espanol/america-latina/terremoto-peru-sier
 `Officials said one person had been killed and more than 15 had been injured, with that toll likely to rise. The attacks on Kyiv coincided with Ukraine’s targeting of oil and gas facilities in Russia, which has prompted fuel shortages there.`\
 https://www.nytimes.com/video/world/europe/100000011040280/kyiv-ukraine-attacks-russia-war.html
 
-**Second Patient Dies in Outbreak of Legionnaires’ Disease in Manhattan**\
+**Two More Patients Die in Outbreak of Legionnaires’ Disease in Manhattan**\
 `The second victim was an 88-year-old retired businessman and Air Force veteran who lived on the Upper East Side, his lawyer said.`\
 https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
 

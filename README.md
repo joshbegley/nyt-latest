@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3, Episode 5 Recap: Under Pressure**\
+`Queen Rhaenrya is beginning to sound a little paranoid. That rarely bodes well with an autocrat.`\
+https://www.nytimes.com/2026/07/19/arts/television/house-of-the-dragon-recap-season-3-episode-5.html
+
 **Spain Fans Celebrate World Cup Victory**\
 `Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
 https://www.nytimes.com/video/sports/soccer/100000011040598/spain-fans-celebrate-world-cup-victory.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/19/podcasts/the-daily/the-world-cup-final-is-her
 **NYT Connections Answers for July 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
 https://www.nytimes.com/2026/07/19/crosswords/connections-companion-1135.html
-
-**Today’s Wordle Hints for July 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
-https://www.nytimes.com/2026/07/19/crosswords/wordle-review-1857.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
