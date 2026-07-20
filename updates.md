@@ -1,3 +1,11 @@
+**A pesar del ‘falso positivo’ en una prueba, Taylor Farms sigue en el centro de la investigación del brote de ciclosporosis**\
+`La FDA dijo que continuaba investigando al proveedor como un actor importante en el brote.`\
+https://www.nytimes.com/es/2026/07/20/espanol/taylor-farms-brote-ciclosporosis.html
+
+**Will a Sex Scandal Involving Mark Lamb Matter in Arizona GOP House Primary?**\
+`The contest in a deeply religious part of the state is a test of the power of a Trump endorsement.`\
+https://www.nytimes.com/2026/07/20/us/politics/arizona-house-primary-lamb.html
+
 **Iran War Live Updates: Iranian -Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
 https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz

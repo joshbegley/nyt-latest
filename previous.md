@@ -1,3 +1,11 @@
+**A pesar del ‘falso positivo’ en una prueba, Taylor Farms sigue en el centro de la investigación del brote de ciclosporosis**\
+`La FDA dijo que continuaba investigando al proveedor como un actor importante en el brote.`\
+https://www.nytimes.com/es/2026/07/20/espanol/taylor-farms-brote-ciclosporosis.html
+
+**Will a Sex Scandal Involving Mark Lamb Matter in Arizona GOP House Primary?**\
+`The contest in a deeply religious part of the state is a test of the power of a Trump endorsement.`\
+https://www.nytimes.com/2026/07/20/us/politics/arizona-house-primary-lamb.html
+
 **Trump Orders a 50% Tariff on Many Canadian Goods**\
 `Also, Britain has a new prime minister. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/07/20/briefing/trump-canada-tariffs-britain-new-leader.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/20/opinion/iran-war-us-deaths.html
 **Judge Temporarily Pauses Paramount-Warner Bros. Deal**\
 `The delay is intended to give the court time to consider a lawsuit that argues the $111 billion merger violates antitrust laws.`\
 https://www.nytimes.com/2026/07/20/business/media/paramount-warner-bros-deal.html
-
-**Wildfire Smoke Gives Way to Powerful Thunderstorms in the Midwest and Northeast**\
-`The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
-https://www.nytimes.com/2026/07/20/weather/wisconsin-midwest-storms-tornado-forecast.html
-
-**El Mayo, Who Founded Sinaloa Cartel, Sentenced to Life in Prison**\
-`Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
-https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
 
 **Iran War Live Updates: Iranian -Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
