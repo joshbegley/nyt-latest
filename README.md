@@ -1,3 +1,11 @@
+**How Google’s A.I. Search Is Imperiling the Open Web**\
+`As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
+https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
+
+**‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
+`Mobile apps are easy to make with artificial intelligence. That doesn’t mean people are excited to use them.`\
+https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
+
 **Armored Cars, Now on the American Road**\
 `Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
 https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/arts/dance/swan-lake-american-ballet-theater-
 **Cat Cohen Turned Her Stroke Into a Punchline and Off Broadway Show**\
 `“Broad Strokes” recounts this singing comedian’s medical emergency, juxtaposing “something brash and grotesque and humiliating with something completely heartfelt.”`\
 https://www.nytimes.com/2026/07/20/theater/cat-cohen-broad-strokes-comedy.html
-
-**‘National Treasure,’ the Over-Engineered, Delightfully Dumb U.S. History Lesson**\
-`Nicolas Cage, Diane Kruger and Justin Bartha raced from conspiracy theory to conspiracy theory in this 2004 blockbuster about stealing the Declaration of Independence.`\
-https://www.nytimes.com/2026/07/20/movies/national-treasure-nicolas-cage.html
-
-**How New York’s Historic Homes Freshened Up for America’s 250th**\
-`House museums that predate the American Revolution renovated for this anniversary year.`\
-https://www.nytimes.com/2026/07/20/realestate/historic-homes-new-york-250.html
 

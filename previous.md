@@ -1,3 +1,7 @@
+**Armored Cars, Now on the American Road**\
+`Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
+https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
+
 **Soaring Egg Prices Are Hitting China Hard**\
 `China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
 https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/movies/national-treasure-nicolas-cage.html
 **How New York’s Historic Homes Freshened Up for America’s 250th**\
 `House museums that predate the American Revolution renovated for this anniversary year.`\
 https://www.nytimes.com/2026/07/20/realestate/historic-homes-new-york-250.html
-
-**To Sell the ‘Odyssey,’ Publishers, Like Its Hero, Get Wily**\
-`The market for Homer’s epic poem is as crowded as a certain Ithacan palace, and publishers have had to get crafty to attract readers to their editions.`\
-https://www.nytimes.com/2026/07/20/books/odyssey-book-editions.html
 

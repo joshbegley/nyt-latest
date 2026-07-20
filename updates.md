@@ -1,3 +1,7 @@
+**Armored Cars, Now on the American Road**\
+`Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
+https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
+
 **Soaring Egg Prices Are Hitting China Hard**\
 `China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
 https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
