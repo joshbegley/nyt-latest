@@ -1,3 +1,11 @@
+**Spain Wins the 2026 World Cup**\
+`Welcome to the final episode of the Daily Cup!`\
+https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
+
+**Rubio Says That U.S. Is Still Open to Diplomacy With Iran**\
+`Secretary of State Marco Rubio said Iran had signaled it wanted to negotiate. Iran’s foreign ministry spokesman said Tehran had received new proposals from mediators.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/rubio-us-iran-war-diplomacy.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html

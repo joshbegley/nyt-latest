@@ -1,3 +1,7 @@
+**Spain Wins the 2026 World Cup**\
+`Welcome to the final episode of the Daily Cup!`\
+https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
@@ -163,7 +167,7 @@ https://www.nytimes.com/2026/07/20/crosswords/spelling-bee-forum.html
 https://www.nytimes.com/video/sports/soccer/100000011041199/world-cup-final-spain-argentina.html
 
 **Rubio Says That U.S. Is Still Open to Diplomacy With Iran**\
-`Secretary of State Marco Rubio also said that Iran has signaled it wants to negotiate with the United States, even as the two sides escalated their attacks.`\
+`Secretary of State Marco Rubio said Iran had signaled it wanted to negotiate. Iran’s foreign ministry spokesman said Tehran had received new proposals from mediators.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/rubio-us-iran-war-diplomacy.html
 
 **Spain Rejoices and Argentina Weeps as 2026 World Cup Ends**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/07/20/world/asia/hong-kong-apartment-fi
 **Tehran and Washington Face a ‘Wake Up Moment’ Over the War**\
 `U.S. and Iranian attacks are unfolding in a way that risks a wider war they cannot contain, analysts warn, unless they can return to negotiations quickly.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalation.html
-
-**Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
-`Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
-https://www.nytimes.com/2026/07/20/world/europe/britain-new-prime-minister-challenges.html
 
