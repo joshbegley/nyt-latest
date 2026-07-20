@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
 
 **Man Sets Off Explosive Device Outside Federal Building in Manhattan**\
-`The building, 26 Federal Plaza, houses the New York field office of Immigrations and Customs Enforcement.`\
+`The building, 26 Federal Plaza, houses the New York field office of Immigration and Customs Enforcement.`\
 https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
 
 **How Google’s A.I. Search Is Imperiling the Open Web**\

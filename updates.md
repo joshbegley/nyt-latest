@@ -1,3 +1,11 @@
+**El Air Force One nuevo será retirado para ser equipado ‘al máximo’, dice Trump**\
+`Se ha cuestionado si las capacidades defensivas del avión donado por Catar son adecuadas para proteger a un presidente de EE. UU. y otros pasajeros.`\
+https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
+
+**Man Sets Off Explosive Device Outside Federal Building in Manhattan**\
+`The building, 26 Federal Plaza, houses the New York field office of Immigrations and Customs Enforcement.`\
+https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
+
 **How Google’s A.I. Search Is Imperiling the Open Web**\
 `As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
 https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
