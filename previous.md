@@ -1,3 +1,27 @@
+**More Trump Tariffs Are Coming**\
+`Jamieson Greer, the U.S. trade representative, tells a Times reporter why he thinks that the administration’s tariff policy is working as intended.`\
+https://www.nytimes.com/2026/07/20/podcasts/the-daily/more-trump-tariffs-are-coming.html
+
+**U.S. Service Members Killed as War Expands, and Federal Cases Against Protesters Crumble**\
+`Plus, what to know about the next British prime minister.`\
+https://www.nytimes.com/2026/07/20/podcasts/the-headlines/service-members-killed-iran-federal-cases-protesters.html
+
+**NYT Connections Companion for July 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/20/crosswords/connections-companion-1136.html
+
+**NYT Strands Hints for July 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/20/crosswords/strands-sidekick-870.html
+
+**Today’s Wordle Hints for July 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/20/crosswords/wordle-review-1858.html
+
+**Keir Starmer Makes Final Speech as British Prime Minister**\
+`Britain’s outgoing prime minister, Keir Starmer, makes a final speech in Downing Street before handing the reins to Andy Burnham.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer-makes-final-speech-as-british-prime-minister.html
+
 **North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
 `Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
 https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/07/20/crosswords/spelling-bee-forum.html
 **Spain Wins 2026 World Cup**\
 `Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
 https://www.nytimes.com/video/sports/soccer/100000011041199/world-cup-final-spain-argentina.html
-
-**Rubio Says That U.S. Is Still Open to Diplomacy With Iran**\
-`Secretary of State Marco Rubio said Iran had signaled it wanted to negotiate. Iran’s foreign ministry spokesman said Tehran had received new proposals from mediators.`\
-https://www.nytimes.com/2026/07/20/world/middleeast/rubio-us-iran-war-diplomacy.html
-
-**Spain Rejoices and Argentina Weeps as 2026 World Cup Ends**\
-`See how crowds in Madrid and in Rosario, Argentina, took in the tournament’s nail-biter final. Spain prevailed, 1-0.`\
-https://www.nytimes.com/2026/07/20/sports/world-cup/world-cup-final-spain-argentina-reactions.html
-
-**‘Ransom Canyon,’ and 5 More Shows to Watch on TV This Week**\
-`The second season of the cowboy drama airs. And a documentary shows the behind the scenes of the “Heartstopper: Forever” movie.`\
-https://www.nytimes.com/2026/07/20/arts/television/ransom-canyon-tv-shows-to-watch.html
-
-**World Cup 2026: See How Spain Finally Broke Through Argentina’s Defense in Extra Time**\
-`View in 3-D the single goal that secured Spain’s World Cup title against Argentina, the reigning champion.`\
-https://www.nytimes.com/interactive/2026/07/20/sports/soccer/spain-argentina-world-cup-final-goal.html
-
-**India’s CJP Party Leads Protest March to Parliament After Exam Leaks**\
-`The demonstrations were prompted in part after questions for the country’s biggest medical school entrance exam were leaked, forcing millions to retake the test.`\
-https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html
-
-**The Things Left Behind in the Hong Kong Apartment Fire**\
-`Months after a deadly fire in Hong Kong killed their loved ones, they went home to survey the ruins. Here’s what they brought back with them.`\
-https://www.nytimes.com/interactive/2026/07/20/world/asia/hong-kong-apartment-fire-families.html
 

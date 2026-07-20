@@ -1,3 +1,27 @@
+**More Trump Tariffs Are Coming**\
+`Jamieson Greer, the U.S. trade representative, tells a Times reporter why he thinks that the administration’s tariff policy is working as intended.`\
+https://www.nytimes.com/2026/07/20/podcasts/the-daily/more-trump-tariffs-are-coming.html
+
+**U.S. Service Members Killed as War Expands, and Federal Cases Against Protesters Crumble**\
+`Plus, what to know about the next British prime minister.`\
+https://www.nytimes.com/2026/07/20/podcasts/the-headlines/service-members-killed-iran-federal-cases-protesters.html
+
+**NYT Connections Companion for July 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/20/crosswords/connections-companion-1136.html
+
+**NYT Strands Hints for July 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/20/crosswords/strands-sidekick-870.html
+
+**Today’s Wordle Hints for July 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/20/crosswords/wordle-review-1858.html
+
+**Keir Starmer Makes Final Speech as British Prime Minister**\
+`Britain’s outgoing prime minister, Keir Starmer, makes a final speech in Downing Street before handing the reins to Andy Burnham.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer-makes-final-speech-as-british-prime-minister.html
+
 **North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
 `Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
 https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
