@@ -1,3 +1,7 @@
+**When Will the Wildfire Smoke End? Latest Air Quality Updates and Maps**\
+`On Monday, hazy skies and poor air quality continued to affect parts of the Midwest and Great Lakes region.`\
+https://www.nytimes.com/2026/07/20/weather/canadian-wildfire-smoke-air-quality-us.html
+
 **Live Updates: Burnham Becomes U.K. Prime Minister and Pledges to End Homelessness**\
 `In his first address, Andy Burnham acknowledged that he is Britain’s seventh leader in a decade and vowed to usher in a “circuit breaker moment” to change the direction of government.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
