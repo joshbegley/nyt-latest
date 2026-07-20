@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041434/20vid-starmer-clip-2821.html
+
+**Live Updates: Burnham Set to Become Britain’s New Prime Minister After Starmer’s Final Speech**\
+`In his farewell address, Keir Starmer thanked the British people and said he goes with “good grace.” Andy Burnham will become Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 **Zelensky Faces Pressure to Remove Ukraine’s Top General**\
 `Demonstrators and many soldiers want President Volodymyr Zelensky to reaffirm the vision of drone warfare laid out by the defense minister he fired last week.`\
 https://www.nytimes.com/2026/07/20/world/europe/ukraine-zelensky-general-defense-minister.html
