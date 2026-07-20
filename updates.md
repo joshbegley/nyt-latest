@@ -1,3 +1,7 @@
+**Trump Says New Air Force One Will Be Taken Out of Service to Be ‘Maxed Out’**\
+`The Qatari-donated plane has been under scrutiny over whether it is fitted with sufficient defensive capabilities to adequately protect a U.S. president and others traveling on it.`\
+https://www.nytimes.com/2026/07/19/us/politics/trump-air-force-modifications.html
+
 **Two More Patients Die in Outbreak of Legionnaires’ Disease in Manhattan**\
 `The deaths brought the toll in the outbreak to three. The second person who died was an 88-year-old retired businessman who lived on the Upper East Side, his lawyer said.`\
 https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
