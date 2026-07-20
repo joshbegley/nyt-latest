@@ -1,3 +1,11 @@
+**No Corrections: July 20, 2026**\
+`No corrections appeared in print on Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/20/corrections/no-corrections-july-20-2026.html
+
+**Quote of the Day: Heartbreak of Quakes Is Doubled for Venezuela’s Many Migrants**\
+`Quotation of the Day for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/20/pageoneplus/quote-of-the-day-heartbreak-of-quakes-is-doubled-for-venezuelas-many-migrants.html
+
 **Trump Says New Air Force One Will Be Taken Out of Service to Be ‘Maxed Out’**\
 `The Qatari-donated plane has been under scrutiny over whether it is fitted with sufficient defensive capabilities to adequately protect a U.S. president and others traveling on it.`\
 https://www.nytimes.com/2026/07/19/us/politics/trump-air-force-modifications.html
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/07/19/briefing/take-a-pilgrimage-not-a-trip.html
 **The Beautiful Game**\
 `A conversation about the World Cup.`\
 https://www.nytimes.com/2026/07/19/briefing/world-cup-final.html
-
-**When Will the Wildfire Smoke Clear?**\
-`Forecasters expected the worst conditions across the Great Lakes region on Sunday, with air quality alerts in effect across the area.`\
-https://www.nytimes.com/2026/07/19/weather/wildfire-smoke-latest-updates.html
-
-**‘We Would Pile Into the Convertible and Head to Chinatown’**\
-`The writer Jean Hanff Korelitz, the comedian Roy Wood Jr. and other notable friends of Metropolitan Diary share their New York City stories as the column marks its 50th anniversary.`\
-https://www.nytimes.com/2026/07/19/nyregion/metropolitan-diary.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
