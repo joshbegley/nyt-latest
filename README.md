@@ -1,3 +1,7 @@
+**El gobierno de Trump solicitó registros telefónicos de reporteros del Times y de sus familiares**\
+`El gobierno de EE. UU. está buscando de manera agresiva las fuentes confidenciales de los periodistas del Times que escribieron sobre el nuevo Air Force One del presidente. El Times le ha pedido a un juez que anule los citatorios.`\
+https://www.nytimes.com/es/2026/07/20/espanol/negocios/trump-new-york-times-registros-telefonicos-periodistas.html
+
 **Lindsey Graham’s Sister, Darline Graham, Says She Will Run to Succeed Him**\
 `Ms. Graham, who filled her brother’s Senate seat in South Carolina after his death, does not appear to have previous political experience. But she does have President Trump’s endorsement.`\
 https://www.nytimes.com/2026/07/20/us/politics/darline-graham-south-carolina-senate-race.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-t
 **Andy Burnham Becomes U.K. Prime Minister**\
 `Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
 https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
-
-**Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
-`Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
-https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

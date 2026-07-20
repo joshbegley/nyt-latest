@@ -1,3 +1,19 @@
+**Lindsey Graham’s Sister, Darline Graham, Says She Will Run to Succeed Him**\
+`Ms. Graham, who filled her brother’s Senate seat in South Carolina after his death, does not appear to have previous political experience. But she does have President Trump’s endorsement.`\
+https://www.nytimes.com/2026/07/20/us/politics/darline-graham-south-carolina-senate-race.html
+
+**JD Vance Is ‘Entirely Plastic’**\
+`JD Vance and Lindsey Graham both went from “never Trump” to MAGA loyalists. But the Opinion columnist Bret Stephens argues on “The Opinions” that the difference between them is that Graham held on to his core beliefs and got things done, while Vance has made a name for himself by endorsing “whatever suits a political moment.”`\
+https://www.nytimes.com/video/opinion/100000011034795/jd-vance-is-entirely-plastic.html
+
+**Anthropic’s New Ad for Claude Is a Mess**\
+`The “Hard Fork” co-hosts Kevin Roose and Casey Newton break down Anthropic’s latest ad for Claude and discuss the confusing messages of the commercial.`\
+https://www.nytimes.com/video/podcasts/100000011042695/anthropics-new-ad-for-claude-is-a-mess.html
+
+**Despite ‘False Positive’ Test, Taylor Farms Is Still Focus of Cyclospora Investigation**\
+`The F.D.A. said it was continuing to look into the supplier as a big player in the outbreak.`\
+https://www.nytimes.com/2026/07/20/well/eat/cyclospora-false-positive-lettuce-taylor-farms-fda.html
+
 **In Gaza, Spain’s Win Brings a Moment of Joy and Distraction**\
 `Many in the enclave supported Spain, which has recognized Palestinian statehood. Argentina had strong support among Israeli soccer fans.`\
 https://www.nytimes.com/2026/07/20/world/world-cup-spain-gaza-watch-parties.html
