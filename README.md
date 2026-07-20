@@ -1,3 +1,7 @@
+**Zelensky Faces Pressure to Remove Ukraine’s Top General**\
+`Demonstrators and many soldiers want President Volodymyr Zelensky to reaffirm the vision of drone warfare laid out by the defense minister he fired last week.`\
+https://www.nytimes.com/2026/07/20/world/europe/ukraine-zelensky-general-defense-minister.html
+
 **More Trump Tariffs Are Coming**\
 `Jamieson Greer, the U.S. trade representative, tells a Times reporter why he thinks that the administration’s tariff policy is working as intended.`\
 https://www.nytimes.com/2026/07/20/podcasts/the-daily/more-trump-tariffs-are-coming.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
 
-**Live Updates: Starmer Speaks as Burnham Set to Become Britain’s New Leader**\
-`Keir Starmer is giving his final address as prime minister. Andy Burnham will become Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+**Live Updates: Burnham Set to Become Britain’s New Prime Minister After Starmer’s Final Speech**\
+`Andy Burnham spent the past nine years as the mayor of one of Britain’s fastest-growing regions. He will become the seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
 
 **5 Things to Know About the Maine Senate Candidate Troy Jackson**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/nyregion/building-community-with-1-coffees-a-
 **NYT Spelling Bee Answers for July 20, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/20/crosswords/spelling-bee-forum.html
-
-**Spain Wins 2026 World Cup**\
-`Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
-https://www.nytimes.com/video/sports/soccer/100000011041199/world-cup-final-spain-argentina.html
 
