@@ -1,43 +1,3 @@
-**U.S. Sought Phone Records of Times Journalists and Their Relatives**\
-`The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
-https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
-
-**España recibe la Copa Mundial de manos de Trump, que pausa sus ataques**\
-`El presidente estadounidense, que había calificado a España de “gente mala y sin remedio”, mostró diplomacia el domingo al galardonar a la selección del país.`\
-https://www.nytimes.com/es/2026/07/20/espanol/mundo/trump-espana-copa-mundial.html
-
-**Students March Toward India’s Parliament Over Exam Scandal**\
-`Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
-https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
-
-**Mapa: la trayectoria de la depresión tropical Two en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Two.`\
-https://www.nytimes.com/es/interactive/2026/07/20/espanol/two-mapa-trayectoria.html
-
-**Houthis in Yemen Declare Red Sea Blockade on Saudi Arabia**\
-`The Iran-backed Houthi militia, which controls parts of Yemen, has in the past blockaded the Red Sea by threatening a choke point crucial to Saudi oil exports and global shipping.`\
-https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-red-sea-blockade.html
-
-**Denise Oliver-Velez, a Powerful Voice of the Left, Dies at 78**\
-`She became the highest-ranking female member of the Young Lords in New York, where she pressed for women’s rights, and later joined the Black Panthers.`\
-https://www.nytimes.com/2026/07/20/us/denise-oliver-velez-dead.html
-
-**Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
-`For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
-https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
-
-**Today, In Short**\
-`Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
-https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
-
-**Peanut Noodles With Spicy Tofu**\
-`Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
-https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
-
-**Andy Burnham Becomes U.K. Prime Minister**\
-`Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
-https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
-
 **Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
 `Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
 https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
@@ -67,7 +27,7 @@ https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.h
 https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
 
 **Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
-`The building, 26 Federal Plaza, houses the New York field office of Immigration and Customs Enforcement.`\
+`The man, who was detained, threatened passers-by, lit a fire and set off fireworks, police said, at the building, which houses an Immigration and Customs Enforcement office.`\
 https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
 
 **How Google’s A.I. Search Is Imperiling the Open Web**\
@@ -197,4 +157,44 @@ https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
 **5 Things to Know About the Maine Senate Candidate Troy Jackson**\
 `Mr. Jackson, who has emerged as the clear front-runner to replace Graham Platner, is a Republican turned Democrat who is seen as close to Mr. Platner on policy.`\
 https://www.nytimes.com/2026/07/20/us/politics/troy-jackson-maine-senate.html
+
+**In Maine Senate Race, Democrats Go From Chaos to Coronation**\
+`Troy Jackson’s emergence as the clear front-runner to replace Graham Platner spares the party some challenges but points to some new ones.`\
+https://www.nytimes.com/2026/07/20/us/politics/maine-democrats-senate-jackson-platner.html
+
+**Fui víctima del contenido basura**\
+`Alguien usó IA para escribir mi biografía. Miles de libros más de ese tipo están contaminando Amazon. ¿Quién está detrás de toda esta bazofia?`\
+https://www.nytimes.com/es/2026/07/20/espanol/negocios/ia-bazofia-libros-amazon.html
+
+**Pentagon Withheld Dozens of U.S. Military Injuries in Iran War**\
+`Central Command is not required to release information about injured troops, especially when they quickly return to duty, a military official said.`\
+https://www.nytimes.com/2026/07/20/us/politics/troops-injured-jordan-iran-war.html
+
+**Enough Democratic Drama. North Carolina Has a Better, Boring Way.**\
+`There are important lessons in my state’s Senate race.`\
+https://www.nytimes.com/2026/07/20/opinion/roy-cooper-senate-election.html
+
+**Why Silicon Valley Can’t Stop Looking Over Its Shoulder at China**\
+`Chinese companies are offering artificial intelligence that is nearly as good as the leading U.S. technologies, but it’s still America’s race to lose.`\
+https://www.nytimes.com/2026/07/20/technology/china-us-ai-race.html
+
+**7 U.S. Botanical Gardens You Won’t Believe Are in the City**\
+`Across America, botanical gardens large and small are perfect for a quick getaway where you can breathe fresh air, find a patch of shade and touch grass.`\
+https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
+
+**How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
+`After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
+https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
+
+**Book Review: ‘Cool Machine,’ by Colson Whitehead**\
+`The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
+https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
+
+**Trial Begins for Lindsay Clancy, Charged With Murdering Her 3 Children**\
+`A Massachusetts mother charged in the killing of her children goes on trial on Monday. The small coastal town of Duxbury is preparing to relive a case focused on postpartum mental health.`\
+https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.html
+
+**What to Know About the Preliminary Hearing in D4vd’s Murder Case**\
+`The singer is charged with killing Celeste Rivas Hernandez, a teenager whose decomposed body was found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
 

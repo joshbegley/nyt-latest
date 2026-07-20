@@ -1,3 +1,11 @@
+**U.S. Sought Phone Records of Times Journalists and Their Relatives**\
+`The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
+https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
+
+**España recibe la Copa Mundial de manos de Trump, que pausa sus ataques**\
+`El presidente estadounidense, que había calificado a España de “gente mala y sin remedio”, mostró diplomacia el domingo al galardonar a la selección del país.`\
+https://www.nytimes.com/es/2026/07/20/espanol/mundo/trump-espana-copa-mundial.html
+
 **Students March Toward India’s Parliament Over Exam Scandal**\
 `Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
 https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
