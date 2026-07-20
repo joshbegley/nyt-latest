@@ -1,3 +1,7 @@
+**Tears in Argentina for Lionel Messi’s ‘Last Tango’**\
+`There were still fireworks and smoke bombs, but the nation was disappointed for its soccer star after he lost in his likely last World Cup.`\
+https://www.nytimes.com/2026/07/19/world/americas/messi-argentina-buenos-aires-last-tango.html
+
 **Did This World Cup Change Soccer Forever?**\
 `With a wartime host nation, a referee deported and a ban overturned after a call from the White House, the 2026 tournament tested FIFA like no other.`\
 https://www.nytimes.com/2026/07/19/world/europe/fifa-world-cup-final.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/19/crosswords/wordle-review-1857.html
 **Social Media Hacked Our Attention. A.I. Scares Me More.**\
 `A.I. plays on our heartstrings, manipulating the systems in our brains that bond us to other people.`\
 https://www.nytimes.com/2026/07/19/opinion/ai-attention-social-media-attachment.html
-
-**NYT Strands Hints for July 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
-https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
 `The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\

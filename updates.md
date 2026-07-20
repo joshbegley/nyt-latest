@@ -1,3 +1,7 @@
+**Tears in Argentina for Lionel Messi’s ‘Last Tango’**\
+`There were still fireworks and smoke bombs, but the nation was disappointed for its soccer star after he lost in his likely last World Cup.`\
+https://www.nytimes.com/2026/07/19/world/americas/messi-argentina-buenos-aires-last-tango.html
+
 **World Cup Updates: ‘I Can’t Believe We Get to Be Here,’ Say Fans Watching the Final**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
