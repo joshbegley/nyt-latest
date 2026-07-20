@@ -130,6 +130,10 @@ https://www.nytimes.com/2026/07/19/dining/get-me-to-the-grill.html
 `Track the latest polls in Florida's 24th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-24-polls-2026.html
 
+**Sánchez will attend the World Cup final, and so will his vocal critic, Trump.**\
+`(No description)`\
+https://www.nytimes.com/article/tension-looms-as-trump-and-sanchez-will-attend-the-world-cup-final.html
+
 **Misery in the Epicenter of Cyclospora: ‘A Baseball Bat to Your Abdomen’**\
 `The debilitating malady has gripped Monroe County, Mich.`\
 https://www.nytimes.com/2026/07/19/us/cyclospora-michigan.html

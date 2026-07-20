@@ -1,3 +1,7 @@
+**Sánchez will attend the World Cup final, and so will his vocal critic, Trump.**\
+`(No description)`\
+https://www.nytimes.com/article/tension-looms-as-trump-and-sanchez-will-attend-the-world-cup-final.html
+
 **Trump Says New Air Force One Will Be Taken Out of Service to Be ‘Maxed Out’**\
 `The Qatari-donated plane has been under scrutiny over whether it is fitted with sufficient defensive capabilities to adequately protect a U.S. president and others traveling on it.`\
 https://www.nytimes.com/2026/07/19/us/politics/trump-air-force-modifications.html
