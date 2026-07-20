@@ -1,3 +1,7 @@
+**U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
+`A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
+https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
+
 **Mi hijo murió a manos de ICE. Exijo que haya rendición de cuentas**\
 `Ningún estadounidense que haya vivido una tragedia como la mía debería tener que luchar para obtener respuestas de su propio gobierno.`\
 https://www.nytimes.com/es/2026/07/20/espanol/opinion/ice-muerte-texas.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/19/world/middleeast/us-warplanes-mideast-iran.ht
 **Man Killed by Truck After ICE Encounter in Florida Was Visiting From Mexico**\
 `A Central Florida nonprofit group identified the man as Juan Jairo Coronilla Durán and said he had planned to return home to his family.`\
 https://www.nytimes.com/2026/07/19/us/florida-ice-death-mexico-visit.html
-
-**Maps: Tracking Tropical Depression Two**\
-`See the likely path and wind arrival times for Two`\
-https://www.nytimes.com/interactive/2026/07/19/weather/tropical-depression-two-map-path-tracker.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\

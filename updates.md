@@ -1,3 +1,7 @@
+**U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
+`A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
+https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
+
 **Global Oil Price Crosses $90 a Barrel as U.S.-Iran Conflict Widens**\
 `Brent crude, the global benchmark for oil, rose more than 3 percent as trading resumed on Sunday, while S&P 500 futures remained essentially unchanged.`\
 https://www.nytimes.com/2026/07/19/business/oil-prices-stocks-gas.html
