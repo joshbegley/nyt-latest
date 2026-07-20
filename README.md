@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
 
-**Live Updates: Burnham Becomes Britain’s Prime Minister After Starmer Officially Resigns**\
+**Live Updates: Burnham Becomes Britain’s Prime Minister**\
 `In a day of ceremonies, King Charles III formally asked Andy Burnham to form a new government. He is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
 

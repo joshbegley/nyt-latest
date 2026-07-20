@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
+
+**Live Updates: Burnham Becomes Britain’s Prime Minister After Starmer Officially Resigns**\
+`In a day of ceremonies, King Charles III formally asked Andy Burnham to form a new government. He is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 **Andy Burnham Makes First Speech as Britain’s Prime Minister**\
 `Andy Burnham delivers his first speech as Britain’s new prime minister at 10 Downing Street.`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer-makes-final-speech-as-british-prime-minister.html
