@@ -1,3 +1,7 @@
+**Trump Orders a 50% Tariff on Many Canadian Goods**\
+`Also, Britain has a new prime minister. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/20/briefing/trump-canada-tariffs-britain-new-leader.html
+
 **Pope Leo Calls for Nuclear Disarmament in Latest Antiwar Message**\
 `In a new book published on Tuesday, Leo said that a race to nuclear de-escalation has been “obscured by a race to armament that today frightens and terrifies.”`\
 https://www.nytimes.com/2026/07/20/world/europe/pope-leo-nuclear-disarmament-anti-war-message.html
@@ -130,8 +134,8 @@ https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
 `The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in Britain, including rape, sex trafficking and charges related to indecent images of a child.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
 
-**Israel’s Ambassador to U.N. Lashes Out at Mamdani Over Netanyahu Arrest Threats**\
-`The “threat is empty,” the ambassador, Danny Danon, said in an address to the U.N. General Assembly.`\
+**Trump Says Netanyahu Will Not Be Arrested in the U.S.**\
+`New York’s mayor, Zohran Mamdani, told The New York Times, he was looking into whether he could arrest Prime Minister Benjamin Netanyahu when he comes to New York for the U.N. General Assembly.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-arrest.html
 
 **Man Starts Fire Outside Federal Building in Manhattan**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/weather/wisconsin-midwest-storms-tornado-fore
 **El Mayo, Who Founded Sinaloa Cartel, Sentenced to Life in Prison**\
 `Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
 https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
-
-**Mapa: la trayectoria de la tormenta tropical Fausto en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Fausto.`\
-https://www.nytimes.com/es/interactive/2026/07/20/espanol/fausto-mapa-trayectoria.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\

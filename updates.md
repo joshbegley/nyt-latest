@@ -1,3 +1,11 @@
+**Trump Orders a 50% Tariff on Many Canadian Goods**\
+`Also, Britain has a new prime minister. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/20/briefing/trump-canada-tariffs-britain-new-leader.html
+
+**Trump Says Netanyahu Will Not Be Arrested in the U.S.**\
+`New York’s mayor, Zohran Mamdani, told The New York Times, he was looking into whether he could arrest Prime Minister Benjamin Netanyahu when he comes to New York for the U.N. General Assembly.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-arrest.html
+
 **Pope Leo Calls for Nuclear Disarmament in Latest Antiwar Message**\
 `In a new book published on Tuesday, Leo said that a race to nuclear de-escalation has been “obscured by a race to armament that today frightens and terrifies.”`\
 https://www.nytimes.com/2026/07/20/world/europe/pope-leo-nuclear-disarmament-anti-war-message.html
