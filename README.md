@@ -32,7 +32,7 @@ https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalatio
 
 **Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
 `Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
-https://www.nytimes.com/2026/07/20/world/europe/five-of-the-main-challenges-awaiting-britains-new-prime-minister.html
+https://www.nytimes.com/2026/07/20/world/europe/britain-new-prime-minister-challenges.html
 
 **No Corrections: July 20, 2026**\
 `No corrections appeared in print on Monday, July 20, 2026.`\
