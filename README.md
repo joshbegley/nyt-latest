@@ -1,3 +1,7 @@
+**Despite ‘False Positive’ Test, Taylor Farms Is Still Focus of Cyclospora Investigation**\
+`The F.D.A. said it was continuing to look into the supplier as a big player in the outbreak.`\
+https://www.nytimes.com/2026/07/20/well/eat/cyclospora-false-positive-lettuce-taylor-farms-fda.html
+
 **In Gaza, Spain’s Win Brings a Moment of Joy and Distraction**\
 `Many in the enclave supported Spain, which has recognized Palestinian statehood. Argentina had strong support among Israeli soccer fans.`\
 https://www.nytimes.com/2026/07/20/world/world-cup-spain-gaza-watch-parties.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/opinion/cyclospora-outbreak-symptoms-lettuce.
 **Dave Dawson, Co-Founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
 `He and his wife knew nothing about the business when they decided to produce lighting in Charleston, S.C. Their company became a beacon of American manufacturing.`\
 https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
-
-**As Budget Cuts Loom, French Theater Turns Up the Political Heat**\
-`This year’s Avignon Festival has transformed into a staging ground for protests, defiant new works and some early 2027 presidential campaigning.`\
-https://www.nytimes.com/2026/07/20/theater/france-theater-cuts-politics-avignon-festival.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

@@ -1,3 +1,11 @@
+**In Gaza, Spain’s Win Brings a Moment of Joy and Distraction**\
+`Many in the enclave supported Spain, which has recognized Palestinian statehood. Argentina had strong support among Israeli soccer fans.`\
+https://www.nytimes.com/2026/07/20/world/world-cup-spain-gaza-watch-parties.html
+
+**El Mayo Zambada es condenado a cadena perpetua**\
+`Ismael Zambada García, uno de los fundadores del Cártel de Sinaloa, usó un ejército de sicarios y amplia corrupción política para traficar drogas ilegales a EE. UU.`\
+https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/mayo-zambada-cadena-perpetua.html
+
 **White House Adds Jefferson Statue to the Rose Garden**\
 `The statue, which depicts the third president drafting the Declaration of Independence, joins those of Washington, Franklin and Hamilton.`\
 https://www.nytimes.com/2026/07/20/arts/design/thomas-jefferson-statue-rose-garden-white-house.html
