@@ -1,3 +1,7 @@
+**White House Adds Jefferson Statue to the Rose Garden**\
+`The statue, which depicts the third president drafting the Declaration of Independence, joins those of Washington, Franklin and Hamilton.`\
+https://www.nytimes.com/2026/07/20/arts/design/thomas-jefferson-statue-rose-garden-white-house.html
+
 **Terremotos en Venezuela: el rescate de mascotas brinda algo de consuelo y alegría**\
 `Los voluntarios están reuniendo a las mascotas con sus familias, ofreciéndoles a los damnificados consuelo en medio de la pérdida y la devastación.`\
 https://www.nytimes.com/es/2026/07/20/espanol/america-latina/terremotos-venezuela-busqueda-mascotas.html
@@ -16,7 +20,7 @@ https://www.nytimes.com/es/2026/07/20/espanol/mundo/guerra-iran-estados-unidos.h
 
 **Faced With Piles of New Paperwork, People Are Losing Food Stamps**\
 `Arizona’s Supplemental Nutrition Assistance Program rolls have plummeted, offering a possible preview of national trends as states try to avoid new federal penalties.`\
-https://www.nytimes.com/2026/07/20/us/politics/losing-food-stamps.html
+https://www.nytimes.com/2026/07/20/us/politics/snap-food-stamps-arizona.html
 
 **OpenAI and Anthropic Are (Still) Beefing**\
 `“These companies hate each other.” The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss the constant hatred felt between Anthropic and OpenAI and what the companies have done to mitigate it.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.h
 **El Air Force One nuevo será retirado para ser equipado ‘al máximo’, dice Trump**\
 `Se ha cuestionado si las capacidades defensivas del avión donado por Catar son adecuadas para proteger a un presidente de EE. UU. y otros pasajeros.`\
 https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
-
-**Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
-`The man threatened passers-by, lit a fire and set off fireworks, police said, and was then detained. The building houses an Immigration and Customs Enforcement office.`\
-https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

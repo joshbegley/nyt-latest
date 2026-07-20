@@ -1,3 +1,11 @@
+**White House Adds Jefferson Statue to the Rose Garden**\
+`The statue, which depicts the third president drafting the Declaration of Independence, joins those of Washington, Franklin and Hamilton.`\
+https://www.nytimes.com/2026/07/20/arts/design/thomas-jefferson-statue-rose-garden-white-house.html
+
+**Faced With Piles of New Paperwork, People Are Losing Food Stamps**\
+`Arizona’s Supplemental Nutrition Assistance Program rolls have plummeted, offering a possible preview of national trends as states try to avoid new federal penalties.`\
+https://www.nytimes.com/2026/07/20/us/politics/snap-food-stamps-arizona.html
+
 **Terremotos en Venezuela: el rescate de mascotas brinda algo de consuelo y alegría**\
 `Los voluntarios están reuniendo a las mascotas con sus familias, ofreciéndoles a los damnificados consuelo en medio de la pérdida y la devastación.`\
 https://www.nytimes.com/es/2026/07/20/espanol/america-latina/terremotos-venezuela-busqueda-mascotas.html
