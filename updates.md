@@ -1,3 +1,7 @@
+**Live Updates: Burnham Set to Become Britain’s New Prime Minister After Starmer Officially Resigns**\
+`In his farewell address, Keir Starmer thanked the British people and said he goes with “good grace.” Andy Burnham will become Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041434/20vid-starmer-clip-2821.html

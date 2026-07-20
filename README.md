@@ -1,3 +1,7 @@
+**Burnham Set to Become Britain’s First Openly Roman Catholic Prime Minister**\
+`Andy Burnham has spoken of Catholicism as part of his cultural identity rather than as a fervent religious faith.`\
+https://www.nytimes.com/2026/07/20/world/europe/burnham-openly-roman-catholic-prime-minister.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041434/20vid-starmer-clip-2821.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/20/espanol/opinion/ice-muerte-texas.html
 **Micah Lasher, Congressman in Waiting, Has a Few Tricks Up His Sleeve**\
 `Mr. Lasher, the likely successor to Representative Jerry Nadler, has an unusual back story: As a teenager, he was a prodigy who performed magic tricks on national television.`\
 https://www.nytimes.com/2026/07/20/nyregion/micah-lasher-magic.html
-
-**Building Community with $1 Coffees, a Salsa Club and Patience**\
-`The 14th Street Y in the East Village has worked to become a social gathering place in a city where sharing space does not always mean building a connection.`\
-https://www.nytimes.com/2026/07/20/nyregion/building-community-with-1-coffees-a-salsa-club-and-patience.html
 
