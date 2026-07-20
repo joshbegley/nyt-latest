@@ -1,3 +1,7 @@
+**Indian Protesters to March on Parliament After Exam Leaks**\
+`The Cockroach Janta Party’s demonstration in New Delhi has swelled since police forcibly removed Sonam Wangchuk, a prominent activist who has been on a hunger strike, on Saturday.`\
+https://www.nytimes.com/2026/07/20/world/asia/india-protesters-cockroach-party-exam-hunger-strike.html
+
 **The Things Left Behind in the Hong Kong Apartment Fire**\
 `Months after a deadly fire in Hong Kong killed their loved ones, they went home to survey the ruins. Here’s what they brought back with them.`\
 https://www.nytimes.com/interactive/2026/07/20/world/asia/hong-kong-apartment-fire-families.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/article/tension-looms-as-trump-and-sanchez-will-attend-t
 **Misery in the Epicenter of Cyclospora: ‘A Baseball Bat to Your Abdomen’**\
 `The debilitating malady has gripped Monroe County, Mich.`\
 https://www.nytimes.com/2026/07/19/us/cyclospora-michigan.html
-
-**American Jews in Difficult Times**\
-`Readers respond to “The Liberal American Jew’s Dilemma,” an Opinion guest essay by Nicholas Lemann. Also: Madonna’s message; death of a laborer.`\
-https://www.nytimes.com/2026/07/19/opinion/american-jews.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
