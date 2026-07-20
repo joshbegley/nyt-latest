@@ -1,3 +1,7 @@
+**Spain Wins 2026 World Cup**\
+`Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
+https://www.nytimes.com/video/sports/soccer/100000011041199/world-cup-final-spain-argentina.html
+
 **Rubio Says That U.S. Is Still Open to Diplomacy With Iran**\
 `Secretary of State Marco Rubio also said that Iran has signaled it wants to negotiate with the United States, even as the two sides escalated their attacks.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/rubio-us-iran-war-diplomacy.html

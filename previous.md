@@ -1,3 +1,7 @@
+**Spain Wins 2026 World Cup**\
+`Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
+https://www.nytimes.com/video/sports/soccer/100000011041199/world-cup-final-spain-argentina.html
+
 **Rubio Says That U.S. Is Still Open to Diplomacy With Iran**\
 `Secretary of State Marco Rubio also said that Iran has signaled it wants to negotiate with the United States, even as the two sides escalated their attacks.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/rubio-us-iran-war-diplomacy.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
 `Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows, Jordan Wood and Nirav Shah ended their bids.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
-
-**Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
-`Jordan’s role in U.S. operations against Iran has grown as other allies in the region have restricted Washington’s ability to use their bases and airspace.`\
-https://www.nytimes.com/2026/07/19/world/middleeast/iran-war-jordan-us.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
