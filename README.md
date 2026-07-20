@@ -2,7 +2,7 @@
 `Se ha cuestionado si las capacidades defensivas del avión donado por Catar son adecuadas para proteger a un presidente de EE. UU. y otros pasajeros.`\
 https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
 
-**Man Sets Off Explosive Device Outside Federal Building in Manhattan**\
+**Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
 `The building, 26 Federal Plaza, houses the New York field office of Immigration and Customs Enforcement.`\
 https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
 
