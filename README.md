@@ -1,3 +1,7 @@
+**Trump Says New Air Force One Will Be Taken Out of Service to Be ‘Maxed Out’**\
+`The Qatari-donated plane has been under scrutiny over whether it is fitted with sufficient defensive capabilities to adequately protect a U.S. president and others traveling on it.`\
+https://www.nytimes.com/2026/07/19/us/politics/trump-air-force-modifications.html
+
 **Family of Five Found Dead After Storms Flooded Utah Canyon**\
 `A Provo fire captain, his wife and their three sons were found dead over the weekend near a campground in southern Utah. They were likely flood victims, the authorities said.`\
 https://www.nytimes.com/2026/07/19/us/utah-flooding-deaths.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/19/weather/wildfire-smoke-latest-updates.html
 **‘We Would Pile Into the Convertible and Head to Chinatown’**\
 `The writer Jean Hanff Korelitz, the comedian Roy Wood Jr. and other notable friends of Metropolitan Diary share their New York City stories as the column marks its 50th anniversary.`\
 https://www.nytimes.com/2026/07/19/nyregion/metropolitan-diary.html
-
-**sunday-daily-world-cup-messi-Spain-Argentina**\
-`Today, Spain’s unstoppable machine faces Lionel Messi’s immovable Argentina.`\
-https://www.nytimes.com/2026/07/19/podcasts/the-daily/the-world-cup-final-is-here.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
