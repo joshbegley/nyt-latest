@@ -1,3 +1,11 @@
+**In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
+`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows, Jordan Wood and Nirav Shah ended their bids.`\
+https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
+
+**Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
+`The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
+https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
+
 **Spain Fans Celebrate World Cup Victory**\
 `Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
 https://www.nytimes.com/video/sports/soccer/100000011040598/spain-fans-celebrate-world-cup-victory.html

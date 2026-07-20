@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/07/19/us/politics/fbi-ice-agents-investigations-sho
 https://www.nytimes.com/interactive/2026/07/19/world/americas/quake-tracker-peru.html
 
 **In Maine Senate Race, Jackson Sprints Ahead of Pack, as Bellows Drops Out**\
-`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows and Nirav Shah ended their bids.`\
+`Troy Jackson, a progressive, solidified his clear edge in the contest to replace Graham Platner, as Shenna Bellows, Jordan Wood and Nirav Shah ended their bids.`\
 https://www.nytimes.com/2026/07/19/us/politics/maine-senate-bellows-jackson-platner-democrats.html
 
 **Increased Cooperation With U.S. Has Put Jordan in Iran’s Cross Hairs**\
@@ -158,8 +158,8 @@ https://www.nytimes.com/2026/07/19/crosswords/connections-companion-1135.html
 `Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
 https://www.nytimes.com/2026/07/19/crosswords/wordle-review-1857.html
 
-**Iran War Live Updates: Another U.S. Service Member Is Killed as Two Sides Edge Toward Wider War**\
-`The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
+**Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
+`The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 
 **World Cup Updates: ‘I Can’t Believe We Get to Be Here,’ Say Fans Watching the Final**\
