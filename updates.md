@@ -1,3 +1,7 @@
+**Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
+`As chancellor, John Healey, who quit as defense secretary in the former government, will fill one of the most consequential posts, overseeing fiscal and economic policy.`\
+https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
+
 **California Fires Destroyed Many Cars. Owners Are Trying to Save Them.**\
 `People in and around Altadena don’t want to give up on their beloved cars. Some have been resurrected and some turned into art.`\
 https://www.nytimes.com/2026/07/20/automobiles/collectibles/altadena-fires-cars-california.html
