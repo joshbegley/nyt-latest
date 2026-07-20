@@ -1,3 +1,11 @@
+**Students March Toward India’s Parliament Over Exam Scandal**\
+`Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
+https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
+
+**Mapa: la trayectoria de la depresión tropical Two en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Two.`\
+https://www.nytimes.com/es/interactive/2026/07/20/espanol/two-mapa-trayectoria.html
+
 **Houthis in Yemen Declare Red Sea Blockade on Saudi Arabia**\
 `The Iran-backed Houthi militia, which controls parts of Yemen, has in the past blockaded the Red Sea by threatening a choke point crucial to Saudi oil exports and global shipping.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-red-sea-blockade.html
