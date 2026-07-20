@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
+https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
+
+**Peanut Noodles With Spicy Tofu**\
+`Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
+https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
+
 **Andy Burnham Becomes U.K. Prime Minister**\
 `Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
 https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
 **How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
 `After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
 https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
-
-**Book Review: ‘Cool Machine,’ by Colson Whitehead**\
-`The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
-https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
-
-**Trial Begins for Lindsay Clancy, Charged With Murdering Her 3 Children**\
-`A Massachusetts mother charged in the killing of her children goes on trial on Monday. The small coastal town of Duxbury is preparing to relive a case focused on postpartum mental health.`\
-https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.html
 

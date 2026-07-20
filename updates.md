@@ -1,3 +1,7 @@
+**Andy Burnham Becomes U.K. Prime Minister**\
+`Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
+https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
+
 **Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
 `Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
 https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
