@@ -1,3 +1,7 @@
+**Terremotos en Venezuela: el rescate de mascotas brinda algo de consuelo y alegría**\
+`Los voluntarios están reuniendo a las mascotas con sus familias, ofreciéndoles a los damnificados consuelo en medio de la pérdida y la devastación.`\
+https://www.nytimes.com/es/2026/07/20/espanol/america-latina/terremotos-venezuela-busqueda-mascotas.html
+
 **What Arizona Reveals About the Future of Food Stamps**\
 `The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months, and it may be a preview of changes nationwide. Our reporter Jason DeParle traveled to the state to understand why this happened and what effect it’s had.`\
 https://www.nytimes.com/video/us/100000010943219/what-arizona-reveals-about-the-future-of-food-stamps.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retir
 **Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
 `The man threatened passers-by, lit a fire and set off fireworks, police said, and was then detained. The building houses an Immigration and Customs Enforcement office.`\
 https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
-
-**How Google’s A.I. Search Is Imperiling the Open Web**\
-`As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
-https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
