@@ -1,3 +1,7 @@
+**There’s Nothing Casual About Andy Burnham’s Casual Style**\
+`Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
+https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
+
 **Pentagon Identifies 2 U.S. Soldiers Killed in Jordan**\
 `Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
 https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/us/texas-schools-required-reading-books.html
 **Does Lymphatic Drainage Massage Make Your Skin Healthier?**\
 `The technique has been used to increase circulation and in some cases reduce fluid buildup. Whether it tightens and brightens your skin is less clear.`\
 https://www.nytimes.com/2026/07/20/well/lymphatic-drainage-massage-scam-or-not.html
-
-**Iran War Live Updates: U.S. and Iran Signal Hope for Diplomacy Despite New Attacks**\
-`Energy prices rose on Monday amid the escalating strikes by the United States and Iran. Still, both countries’ top diplomats indicated that they were open to restarting talks.`\
-https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
 

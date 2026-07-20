@@ -1,3 +1,7 @@
+**There’s Nothing Casual About Andy Burnham’s Casual Style**\
+`Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
+https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
+
 **Pentagon Identifies 2 U.S. Soldiers Killed in Jordan**\
 `Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
 https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
