@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.htm
 https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
 
 **‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
-`As the summer heats up, here’s seven not-to-miss Off Broadway shows.`\
+`As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
 https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
 
 **Can Arizona Republicans Stop Feuding Long Enough to Win Back the State?**\

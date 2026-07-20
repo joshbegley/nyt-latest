@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/07/20/movies/odyssey-imax-70mm-theaters.html
 `In “The Lost Founder,” the journalist Jesse Wegman looks back at a largely forgotten and singular voice that helped make the United States what it is today.`\
 https://www.nytimes.com/2026/07/20/books/review/the-lost-founder-jesse-wegman.html
 
-**Taxing New York’s Second Homes Is a Step Toward Fairness**\
+**The Second Home Tax Is a Win for New York**\
 `The recent debate over the new pied-à-terre tax in the city offers a useful case study.`\
 https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
 
