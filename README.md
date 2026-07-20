@@ -1,3 +1,7 @@
+**Spain Rejoices and Argentina Weeps as 2026 World Cup Ends**\
+`See how crowds in Madrid and in Rosario, Argentina, took in the tournament’s nail-biter final. Spain prevailed, 1-0.`\
+https://www.nytimes.com/2026/07/20/sports/world-cup/world-cup-final-spain-argentina-reactions.html
+
 **‘Ransom Canyon,’ and 5 More Shows to Watch on TV This Week**\
 `The second season of the cowboy drama airs. And a documentary shows the behind the scenes of the “Heartstopper: Forever” movie.`\
 https://www.nytimes.com/2026/07/20/arts/television/ransom-canyon-tv-shows-to-watch.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/07/19/world/middleeast/iran-war-jordan-us.html
 **Get Me to the Grill**\
 `I can’t wait to make these grilled chicken thighs, with tomato and avocado grilled alongside them for nice caramelized notes.`\
 https://www.nytimes.com/2026/07/19/dining/get-me-to-the-grill.html
-
-**Who Is Ahead in Florida's 24th Congressional District?**\
-`Track the latest polls in Florida's 24th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-24-polls-2026.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
