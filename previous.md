@@ -1,3 +1,7 @@
+**North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
+`Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
+https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
+
 **Spain Wins the 2026 World Cup**\
 `Welcome to the final episode of the Daily Cup!`\
 https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar
 **The Things Left Behind in the Hong Kong Apartment Fire**\
 `Months after a deadly fire in Hong Kong killed their loved ones, they went home to survey the ruins. Here’s what they brought back with them.`\
 https://www.nytimes.com/interactive/2026/07/20/world/asia/hong-kong-apartment-fire-families.html
-
-**Tehran and Washington Face a ‘Wake Up Moment’ Over the War**\
-`U.S. and Iranian attacks are unfolding in a way that risks a wider war they cannot contain, analysts warn, unless they can return to negotiations quickly.`\
-https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalation.html
 

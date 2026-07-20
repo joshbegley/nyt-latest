@@ -1,3 +1,7 @@
+**North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
+`Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
+https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
+
 **Spain Wins the 2026 World Cup**\
 `Welcome to the final episode of the Daily Cup!`\
 https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
