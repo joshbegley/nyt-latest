@@ -1,3 +1,7 @@
+**Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
+`Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
+https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
+
 **Good Grain Bowl**\
 `Ali Slagle’s roasted mushroom and halloumi grain bowl is exactly the sort of simple, healthful meal I want to be cooking and eating right now.`\
 https://www.nytimes.com/2026/07/20/dining/good-grain-bowl.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/07/20/world/europe/behind-the-scenes-downing-street
 `On Monday, hazy skies and poor air quality continued to affect parts of the Midwest and Great Lakes region.`\
 https://www.nytimes.com/2026/07/20/weather/canadian-wildfire-smoke-air-quality-us.html
 
-**Here’s What Greeks Think of Nolan’s ‘The Odyssey.’ (It’s Their Story, After All.)**\
+**Here’s What Greeks Think of Christopher Nolan’s ‘The Odyssey’**\
 `Before its release, some in the country were highly skeptical about the new depiction of a beloved tale. But many who saw it over opening weekend came back with positive reviews.`\
 https://www.nytimes.com/2026/07/20/movies/the-odyssey-movie-greece.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.htm
 **What to Know About the Preliminary Hearing in D4vd’s Murder Case**\
 `The singer is charged with killing Celeste Rivas Hernandez, a teenager whose decomposed body was found in the trunk of his Tesla.`\
 https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
-
-**‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
-`As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
-https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
 
