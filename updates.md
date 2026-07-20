@@ -1,3 +1,11 @@
+**American A.I. Giants Like Alphabet Face Fresh Tests**\
+`Rapid advancements in Chinese artificial intelligence models raise more questions about costly technology spending, as Google’s parent prepares to report earnings.`\
+https://www.nytimes.com/2026/07/20/business/dealbook/ai-china-alphabet.html
+
+**Aiming for My Fastest Marathon, I Turned to Distance Running’s Mecca**\
+`A New York Times reporter’s quest to beat the personal best he set 14 years ago took him to a Kenyan village, where the biggest benefit he got was not what he expected.`\
+https://www.nytimes.com/2026/07/20/world/africa/kenya-iten-marathon-training.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnham-inside-92405.html

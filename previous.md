@@ -1,3 +1,11 @@
+**American A.I. Giants Like Alphabet Face Fresh Tests**\
+`Rapid advancements in Chinese artificial intelligence models raise more questions about costly technology spending, as Google’s parent prepares to report earnings.`\
+https://www.nytimes.com/2026/07/20/business/dealbook/ai-china-alphabet.html
+
+**Aiming for My Fastest Marathon, I Turned to Distance Running’s Mecca**\
+`A New York Times reporter’s quest to beat the personal best he set 14 years ago took him to a Kenyan village, where the biggest benefit he got was not what he expected.`\
+https://www.nytimes.com/2026/07/20/world/africa/kenya-iten-marathon-training.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnham-inside-92405.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/20/movies/odyssey-imax-70mm-theaters.html
 **Book Review: ‘The Lost Founder,’ by Jesse Wegman**\
 `In “The Lost Founder,” the journalist Jesse Wegman looks back at a largely forgotten and singular voice that helped make the United States what it is today.`\
 https://www.nytimes.com/2026/07/20/books/review/the-lost-founder-jesse-wegman.html
-
-**The Second Home Tax Is a Win for New York**\
-`The recent debate over the new pied-à-terre tax in the city offers a useful case study.`\
-https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
-
-**Texas Book List: See What Students Will Be Required to Read**\
-`What is essential reading? Texas has an answer: Classics, including the Bible.`\
-https://www.nytimes.com/2026/07/20/us/texas-schools-required-reading-books.html
 
