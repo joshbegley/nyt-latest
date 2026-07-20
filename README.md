@@ -1,3 +1,7 @@
+**Keir Starmer Makes Final Speech as British Prime Minister**\
+`Britain’s outgoing prime minister, Keir Starmer, makes a final speech in Downing Street before handing the reins to Andy Burnham.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer-makes-final-speech-as-british-prime-minister.html
+
 **North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
 `Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
 https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/07/20/sports/soccer/spain-argentina-wor
 **India’s CJP Party Leads Protest March to Parliament After Exam Leaks**\
 `The demonstrations were prompted in part after questions for the country’s biggest medical school entrance exam were leaked, forcing millions to retake the test.`\
 https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html
-
-**The Things Left Behind in the Hong Kong Apartment Fire**\
-`Months after a deadly fire in Hong Kong killed their loved ones, they went home to survey the ruins. Here’s what they brought back with them.`\
-https://www.nytimes.com/interactive/2026/07/20/world/asia/hong-kong-apartment-fire-families.html
 
