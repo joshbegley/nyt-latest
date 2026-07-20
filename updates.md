@@ -1,3 +1,11 @@
+**Who Is Ahead in Florida's 4th Congressional District?**\
+`Track the latest polls in Florida's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-4-polls-2026.html
+
+**The World Cup Halftime Show Had Star Power. But the Style Missed the Point.**\
+`Most performers for the halftime show, including BTS, Gustavo Dudamel and Madonna, dressed for the occasion but didn’t hit the mark.`\
+https://www.nytimes.com/2026/07/20/style/world-cup-halftime-show-fashion.html
+
 **What Happens Behind the Scenes Once Burnham Enters 10 Downing Street**\
 `Calls with foreign leaders, cabinet appointments and writing the “letters of last resort”: Andy Burnham’s first hours and days in office will be busy.`\
 https://www.nytimes.com/2026/07/20/world/europe/behind-the-scenes-downing-street.html
