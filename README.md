@@ -1,3 +1,7 @@
+**In Gaza, Spain’s Win Brings a Moment of Joy and Distraction**\
+`Many in the enclave supported Spain, which has recognized Palestinian statehood. Argentina had strong support among Israeli soccer fans.`\
+https://www.nytimes.com/2026/07/20/world/world-cup-spain-gaza-watch-parties.html
+
 **El Mayo Zambada es condenado a cadena perpetua**\
 `Ismael Zambada García, uno de los fundadores del Cártel de Sinaloa, usó un ejército de sicarios y amplia corrupción política para traficar drogas ilegales a EE. UU.`\
 https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/mayo-zambada-cadena-perpetua.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
 **As Budget Cuts Loom, French Theater Turns Up the Political Heat**\
 `This year’s Avignon Festival has transformed into a staging ground for protests, defiant new works and some early 2027 presidential campaigning.`\
 https://www.nytimes.com/2026/07/20/theater/france-theater-cuts-politics-avignon-festival.html
-
-**Maps: Tracking Tropical Storm Fausto**\
-`See the likely path and wind arrival times for Fausto`\
-https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
