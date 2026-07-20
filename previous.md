@@ -1,3 +1,19 @@
+**Judge Tosses Justice Department Challenge to Minnesota Immigration Laws**\
+`The Trump administration, which flooded Minnesota with immigration agents this year, argued that policies limiting cooperation with ICE were unconstitutional.`\
+https://www.nytimes.com/2026/07/20/us/minnesota-immigration-lawsuit.html
+
+**I’m a Screenwriter. Hollywood Is in Trouble.**\
+`A scriptwriter’s lament about Hollywood’s decline`\
+https://www.nytimes.com/2026/07/20/opinion/paramount-warner-bros-merger-hollywood.html
+
+**The Sewer Knows What You Ate**\
+`During the Covid-19 pandemic, wastewater testing became a virus warning system. Now, scientists are using the approach to understand how communities eat.`\
+https://www.nytimes.com/2026/07/20/science/sewer-diet-research.html
+
+**G.O.P. Boxed In on Iran War as Trump Sidelines Congress**\
+`Republicans now face a worst-case political scenario of being asked to fund an unpopular war over which they have exercised little oversight.`\
+https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
+
 **Tate Brothers to Stay Jailed as Lawyer Says They Will Fight Extradition**\
 `The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in the United Kingdom, including rape, trafficking and charges related to indecent images of a child.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/07/20/style/world-cup-halftime-show-fashion.html
 **What Happens Behind the Scenes Once Burnham Enters 10 Downing Street**\
 `Calls with foreign leaders, cabinet appointments and writing the “letters of last resort”: Andy Burnham’s first hours and days in office will be busy.`\
 https://www.nytimes.com/2026/07/20/world/europe/behind-the-scenes-downing-street.html
-
-**When Will the Wildfire Smoke End? Latest Air Quality Updates and Maps**\
-`On Monday, hazy skies and poor air quality continued to affect parts of the Midwest and Great Lakes region.`\
-https://www.nytimes.com/2026/07/20/weather/canadian-wildfire-smoke-air-quality-us.html
-
-**Here’s What Greeks Think of Christopher Nolan’s ‘The Odyssey’**\
-`Before its release, some in the country were highly skeptical about the new depiction of a beloved tale. But many who saw it over opening weekend came back with positive reviews.`\
-https://www.nytimes.com/2026/07/20/movies/the-odyssey-movie-greece.html
-
-**American A.I. Giants Like Alphabet Face Fresh Tests**\
-`Rapid advancements in Chinese artificial intelligence models raise more questions about costly technology spending, as Google’s parent prepares to report earnings.`\
-https://www.nytimes.com/2026/07/20/business/dealbook/ai-china-alphabet.html
-
-**Aiming for My Fastest Marathon, I Turned to Distance Running’s Mecca**\
-`A New York Times reporter’s quest to beat the personal best he set 14 years ago took him to a Kenyan village, where the biggest benefit he got was not what he expected.`\
-https://www.nytimes.com/2026/07/20/world/africa/kenya-iten-marathon-training.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

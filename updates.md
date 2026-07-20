@@ -1,3 +1,19 @@
+**Judge Tosses Justice Department Challenge to Minnesota Immigration Laws**\
+`The Trump administration, which flooded Minnesota with immigration agents this year, argued that policies limiting cooperation with ICE were unconstitutional.`\
+https://www.nytimes.com/2026/07/20/us/minnesota-immigration-lawsuit.html
+
+**I’m a Screenwriter. Hollywood Is in Trouble.**\
+`A scriptwriter’s lament about Hollywood’s decline`\
+https://www.nytimes.com/2026/07/20/opinion/paramount-warner-bros-merger-hollywood.html
+
+**The Sewer Knows What You Ate**\
+`During the Covid-19 pandemic, wastewater testing became a virus warning system. Now, scientists are using the approach to understand how communities eat.`\
+https://www.nytimes.com/2026/07/20/science/sewer-diet-research.html
+
+**G.O.P. Boxed In on Iran War as Trump Sidelines Congress**\
+`Republicans now face a worst-case political scenario of being asked to fund an unpopular war over which they have exercised little oversight.`\
+https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
+
 **Tate Brothers to Stay Jailed as Lawyer Says They Will Fight Extradition**\
 `The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in the United Kingdom, including rape, trafficking and charges related to indecent images of a child.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
