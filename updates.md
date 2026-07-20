@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 3, Episode 5 Recap: Under Pressure**\
+`Queen Rhaenrya is beginning to sound a little paranoid. That rarely bodes well with an autocrat.`\
+https://www.nytimes.com/2026/07/19/arts/television/house-of-the-dragon-recap-season-3-episode-5.html
+
 **Two More Patients Die in Outbreak of Legionnaires’ Disease in Manhattan**\
 `The second victim was an 88-year-old retired businessman and Air Force veteran who lived on the Upper East Side, his lawyer said.`\
 https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
