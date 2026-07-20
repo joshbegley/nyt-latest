@@ -1,3 +1,11 @@
+**5 Found Dead in Ohio After Child Tells Driver His ‘Family Was in the River’**\
+`Two women and three men were pulled from the Scioto River, outside Columbus.`\
+https://www.nytimes.com/2026/07/20/us/scioto-river-drowning-ohio.html
+
+**Maine Democrats Are Replacing an Oysterman With a Lumberjack. It Might Just Work.**\
+`For the state’s progressives, Graham Platner was tempting. Troy Jackson is tested.`\
+https://www.nytimes.com/2026/07/20/opinion/troy-jackson-maine-democrats.html
+
 **White House Says New Air Force One Will Be Out of Service for a Month for ‘Upgrades’**\
 `The White House press secretary said the unspecified “enhancements” would take place this fall. The plane has been under scrutiny over whether it has sufficient defensive capabilities.`\
 https://www.nytimes.com/2026/07/20/us/politics/new-air-force-one-upgrades.html
