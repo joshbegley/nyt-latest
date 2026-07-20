@@ -1,3 +1,7 @@
+**Live Updates: Burnham Becomes Britain’s Prime Minister**\
+`In a day of ceremonies, King Charles III formally asked Andy Burnham to form a new government. He is Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
