@@ -1,3 +1,11 @@
+**Trump Says New Air Force One to Be ‘Maxed Out’**\
+`President Trump said on Sunday that the new Air Force One, donated by Qatar, would be taken out of service to be “maxed out.”`\
+https://www.nytimes.com/video/us/100000011042805/trump-air-force-one-qatar-security.html
+
+**Trump Attacks Nation’s Top Scientific Body Over Climate Chapter in Manual**\
+`The president joined Republican officials who slammed the National Academies of Sciences for a chapter about climate science in an educational guide for judges.`\
+https://www.nytimes.com/2026/07/20/climate/climate-change-manual-national-academy-science.html
+
 **Epidemics and Rage**\
 `Societies have always struggled with hostile reactions to health care workers during epidemics. Why?`\
 https://www.nytimes.com/2026/07/20/world/epidemics-rage-ebola-first-responders.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-i
 **Mapa: la trayectoria de la depresión tropical Two en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Two.`\
 https://www.nytimes.com/es/interactive/2026/07/20/espanol/two-mapa-trayectoria.html
-
-**Houthis in Yemen Declare Red Sea Blockade on Saudi Arabia**\
-`The Iran-backed Houthi militia, which controls parts of Yemen, has in the past blockaded the Red Sea by threatening a choke point crucial to Saudi oil exports and global shipping.`\
-https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-red-sea-blockade.html
-
-**Denise Oliver-Velez, a Powerful Voice of the Left, Dies at 78**\
-`She became the highest-ranking female member of the Young Lords in New York, where she pressed for women’s rights, and later joined the Black Panthers.`\
-https://www.nytimes.com/2026/07/20/us/denise-oliver-velez-dead.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
