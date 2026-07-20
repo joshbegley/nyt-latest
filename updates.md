@@ -1,3 +1,7 @@
+**World Cup Updates: ‘I Can’t Believe We Get to Be Here,’ Say Fans Watching the Final**\
+`(No description)`\
+https://www.nytimes.com/live/2026/us/fifa-world-cup
+
 **Did This World Cup Change Soccer Forever?**\
 `With a wartime host nation, a referee deported and a ban overturned after a call from the White House, the 2026 tournament tested FIFA like no other.`\
 https://www.nytimes.com/2026/07/19/world/europe/fifa-world-cup-final.html
