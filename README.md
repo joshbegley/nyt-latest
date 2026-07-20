@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041486/20vid-burnham-car-66076.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
 
 **Your Questions, Answered**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
 **Ukraine War Momentum Helps Spur Interest in Postwar Investment**\
 `At a conference on reconstruction, the focus shifted to private investment, not donor assistance.`\
 https://www.nytimes.com/2026/07/20/world/europe/ukraine-post-war-reconstruction.html
-
-**U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
-`A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
-https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
 
