@@ -1,3 +1,19 @@
+**Good Grain Bowl**\
+`Ali Slagle’s roasted mushroom and halloumi grain bowl is exactly the sort of simple, healthful meal I want to be cooking and eating right now.`\
+https://www.nytimes.com/2026/07/20/dining/good-grain-bowl.html
+
+**This Is Why Our Fresh Produce Keeps Making Us Sick**\
+`Cyclospora outbreaks are just a small part of a much larger food safety crisis linked to fresh produce.`\
+https://www.nytimes.com/2026/07/20/opinion/cyclospora-outbreak-symptoms-lettuce.html
+
+**Dave Dawson, Co-founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
+`He and his wife knew nothing about the business when they decided to produce lighting in Charleston, S.C. Their company became a beacon of American manufacturing.`\
+https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
+
+**As Budget Cuts Loom, French Theater Turns Up the Political Heat**\
+`This year’s Avignon Festival has transformed into a staging ground for protests, defiant new works and some early 2027 presidential campaigning.`\
+https://www.nytimes.com/2026/07/20/theater/france-theater-cuts-politics-avignon-festival.html
+
 **Maps: Tracking Tropical Storm Fausto**\
 `See the likely path and wind arrival times for Fausto`\
 https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.ht
 **‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
 `As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
 https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
-
-**Can Arizona Republicans Stop Feuding Long Enough to Win Back the State?**\
-`Some Republicans fear the party is poised to repeat past mistakes by nominating candidates in Tuesday’s primaries who are viewed as too extreme to sway moderate voters.`\
-https://www.nytimes.com/2026/07/20/us/politics/arizona-republicans-fighting.html
-
-**These Public Housing Pathways Are Made From Wine Corks**\
-`At Marlboro Houses in Brooklyn, corks have been recycled into walkways, and bright yellow benches and sculptures have brightened the outdoor space.`\
-https://www.nytimes.com/2026/07/20/nyregion/cork-pathways-marlboro-houses-brooklyn.html
-
-**Capping the Price of Health Care Is a Mistake**\
-`A government bureaucrat doesn’t know how much your medicine or doctor’s visit should cost.`\
-https://www.nytimes.com/2026/07/20/opinion/health-care-prices-insurance-caps.html
-
-**The Best Genetic Risk Tools Don’t Work Equally for Everyone**\
-`Genetic prediction models are poised to revolutionize medicine. But because they have been trained on European DNA, they threaten to widen health care disparities.`\
-https://www.nytimes.com/2026/07/20/science/polygenic-risk-scores-diversity.html
 

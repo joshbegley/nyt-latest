@@ -1,3 +1,19 @@
+**Good Grain Bowl**\
+`Ali Slagle’s roasted mushroom and halloumi grain bowl is exactly the sort of simple, healthful meal I want to be cooking and eating right now.`\
+https://www.nytimes.com/2026/07/20/dining/good-grain-bowl.html
+
+**This Is Why Our Fresh Produce Keeps Making Us Sick**\
+`Cyclospora outbreaks are just a small part of a much larger food safety crisis linked to fresh produce.`\
+https://www.nytimes.com/2026/07/20/opinion/cyclospora-outbreak-symptoms-lettuce.html
+
+**Dave Dawson, Co-founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
+`He and his wife knew nothing about the business when they decided to produce lighting in Charleston, S.C. Their company became a beacon of American manufacturing.`\
+https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
+
+**As Budget Cuts Loom, French Theater Turns Up the Political Heat**\
+`This year’s Avignon Festival has transformed into a staging ground for protests, defiant new works and some early 2027 presidential campaigning.`\
+https://www.nytimes.com/2026/07/20/theater/france-theater-cuts-politics-avignon-festival.html
+
 **Maps: Tracking Tropical Storm Fausto**\
 `See the likely path and wind arrival times for Fausto`\
 https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.html
