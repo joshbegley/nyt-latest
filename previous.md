@@ -1,6 +1,14 @@
+**Maine Democrats Are About to Replace an Oysterman With a Lumberjack. It Might Just Work.**\
+`For the state’s progressives, Graham Platner was tempting. Troy Jackson is tested.`\
+https://www.nytimes.com/2026/07/20/opinion/troy-jackson-maine-democrats.html
+
+**U.K. Prosecutors File Murder Charge in Ann Widdecombe Death**\
+`A 28-year-old man has been charged in connection with the death of Ann Widdecombe, a right-wing figure whose body was found in her home this month.`\
+https://www.nytimes.com/2026/07/20/world/europe/uk-ann-widdecombe-murder.html
+
 **Trump to Impose 50% Tariff on Many Canadian Goods**\
-`The administration will use an untested legal provision to put significant duties on Canadian exports, reigniting a trade clash with one of America’s biggest trading partners.`\
-https://www.nytimes.com/2026/07/20/business/economy/trump-to-impose-50-tariff-on-many-canadian-goods.html
+`The administration will use an untested legal provision to put significant duties on Canadian exports, reigniting a clash with one of America’s biggest trading partners.`\
+https://www.nytimes.com/2026/07/20/business/economy/trump-tariffs-canada.html
 
 **Trump Says New Air Force One to Be ‘Maxed Out’**\
 `President Trump said on Sunday that the new Air Force One, donated by Qatar, would be taken out of service to be “maxed out.”`\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/20/world/middleeast/gaza-talks-khalil-al-hayya-l
 **Trump Administration Sought Phone Records of Times Journalists and Their Relatives**\
 `The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
 https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
-
-**España recibe la Copa Mundial de manos de Trump, que pausa sus ataques**\
-`El presidente estadounidense, que había calificado a España de “gente mala y sin remedio”, mostró diplomacia el domingo al galardonar a la selección del país.`\
-https://www.nytimes.com/es/2026/07/20/espanol/mundo/trump-espana-copa-mundial.html
-
-**Students March Toward India’s Parliament Over Exam Scandal**\
-`Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
-https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\

@@ -1,3 +1,15 @@
+**Maine Democrats Are About to Replace an Oysterman With a Lumberjack. It Might Just Work.**\
+`For the state’s progressives, Graham Platner was tempting. Troy Jackson is tested.`\
+https://www.nytimes.com/2026/07/20/opinion/troy-jackson-maine-democrats.html
+
+**U.K. Prosecutors File Murder Charge in Ann Widdecombe Death**\
+`A 28-year-old man has been charged in connection with the death of Ann Widdecombe, a right-wing figure whose body was found in her home this month.`\
+https://www.nytimes.com/2026/07/20/world/europe/uk-ann-widdecombe-murder.html
+
+**Trump to Impose 50% Tariff on Many Canadian Goods**\
+`The administration will use an untested legal provision to put significant duties on Canadian exports, reigniting a clash with one of America’s biggest trading partners.`\
+https://www.nytimes.com/2026/07/20/business/economy/trump-tariffs-canada.html
+
 **Trump to Impose 50% Tariff on Many Canadian Goods**\
 `The administration will use an untested legal provision to put significant duties on Canadian exports, reigniting a trade clash with one of America’s biggest trading partners.`\
 https://www.nytimes.com/2026/07/20/business/economy/trump-to-impose-50-tariff-on-many-canadian-goods.html
