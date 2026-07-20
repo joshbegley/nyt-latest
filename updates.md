@@ -1,3 +1,7 @@
+**Why Epidemics Breed Rage at Health Workers**\
+`Some people have fought Ebola containment measures in the Democratic Republic of Congo. Scholars have seen similar responses across societies and throughout history.`\
+https://www.nytimes.com/2026/07/20/magazine/ebola-health-workers.html
+
 **Who Is Ahead in Florida's 4th Congressional District?**\
 `Track the latest polls in Florida's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-4-polls-2026.html

@@ -1,3 +1,11 @@
+**Soaring Egg Prices Are Hitting China Hard**\
+`China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
+https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
+
+**Greece Hopes Andy Burnham Will Return the Parthenon Sculptures**\
+`The artworks, also known as the Parthenon marbles, once decorated the renowned ancient temple in Athens, Greece. They have been displayed in the British Museum in London for decades.`\
+https://www.nytimes.com/2026/07/20/arts/greece-andy-burnham-parthenon-sculptures.html
+
 **Who Is Ahead in Florida's 4th Congressional District?**\
 `Track the latest polls in Florida's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-4-polls-2026.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/realestate/historic-homes-new-york-250.html
 **To Sell the ‘Odyssey,’ Publishers, Like Its Hero, Get Wily**\
 `The market for Homer’s epic poem is as crowded as a certain Ithacan palace, and publishers have had to get crafty to attract readers to their editions.`\
 https://www.nytimes.com/2026/07/20/books/odyssey-book-editions.html
-
-**Word of the Day: obsidian**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/20/learning/word-of-the-day-obsidian.html
-
-**Why Epidemics Breed Rage at Health Workers**\
-`Some people have fought Ebola containment measures in the Democratic Republic of Congo. Scholars have seen similar responses across societies and throughout history.`\
-https://www.nytimes.com/2026/07/20/magazine/ebola-health-workers.html
 

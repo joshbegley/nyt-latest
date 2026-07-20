@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/07/20/books/odyssey-book-editions.html
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/20/learning/word-of-the-day-obsidian.html
 
-**A.I. Drones Are Coming. We Are Not Ready.**\
-`World leaders are marching us toward an uncertain era of new warfare — fast.`\
-https://www.nytimes.com/2026/07/20/opinion/ai-drones-modern-warfare.html
+**Why Epidemics Breed Rage at Health Workers**\
+`Some people have fought Ebola containment measures in the Democratic Republic of Congo. Scholars have seen similar responses across societies and throughout history.`\
+https://www.nytimes.com/2026/07/20/magazine/ebola-health-workers.html
 
