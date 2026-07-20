@@ -1,8 +1,12 @@
+**Trump to Impose 50% Tariff on Many Canadian Goods**\
+`The administration will use an untested legal provision to put significant duties on Canadian exports, reigniting a trade clash with one of America’s biggest trading partners.`\
+https://www.nytimes.com/2026/07/20/business/economy/trump-to-impose-50-tariff-on-many-canadian-goods.html
+
 **Trump Says New Air Force One to Be ‘Maxed Out’**\
 `President Trump said on Sunday that the new Air Force One, donated by Qatar, would be taken out of service to be “maxed out.”`\
 https://www.nytimes.com/video/us/100000011042805/trump-air-force-one-qatar-security.html
 
-**Trump Attacks Nation’s Top Scientific Body Over Climate Chapter in Manual**\
+**Trump Attacks National Academies Over Climate Chapter in Judges’ Manual**\
 `The president joined Republican officials who slammed the National Academies of Sciences for a chapter about climate science in an educational guide for judges.`\
 https://www.nytimes.com/2026/07/20/climate/climate-change-manual-national-academy-science.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/20/espanol/mundo/trump-espana-copa-mundial.ht
 **Students March Toward India’s Parliament Over Exam Scandal**\
 `Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
 https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
-
-**Mapa: la trayectoria de la depresión tropical Two en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Two.`\
-https://www.nytimes.com/es/interactive/2026/07/20/espanol/two-mapa-trayectoria.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\

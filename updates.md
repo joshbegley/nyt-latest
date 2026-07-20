@@ -1,3 +1,15 @@
+**Trump Says New Air Force One to Be ‘Maxed Out’**\
+`President Trump said on Sunday that the new Air Force One, donated by Qatar, would be taken out of service to be “maxed out.”`\
+https://www.nytimes.com/video/us/100000011042805/trump-air-force-one-qatar-security.html
+
+**Trump Attacks Nation’s Top Scientific Body Over Climate Chapter in Manual**\
+`The president joined Republican officials who slammed the National Academies of Sciences for a chapter about climate science in an educational guide for judges.`\
+https://www.nytimes.com/2026/07/20/climate/climate-change-manual-national-academy-science.html
+
+**Despite ‘False Positive’ Test, Taylor Farms Is Still Focus of Cyclospora Investigation**\
+`The F.D.A. said it was continuing to look into the supplier as a big player in the outbreak as states reported stark increases in cases.`\
+https://www.nytimes.com/2026/07/20/well/eat/cyclospora-false-positive-lettuce-taylor-farms-fda.html
+
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\
 https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
