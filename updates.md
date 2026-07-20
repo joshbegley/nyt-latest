@@ -1,3 +1,11 @@
+**Trump to Impose 50% Tariff on Many Canadian Goods**\
+`The administration will use an untested legal provision to put significant duties on Canadian exports, reigniting a trade clash with one of America’s biggest trading partners.`\
+https://www.nytimes.com/2026/07/20/business/economy/trump-to-impose-50-tariff-on-many-canadian-goods.html
+
+**Trump Attacks National Academies Over Climate Chapter in Judges’ Manual**\
+`The president joined Republican officials who slammed the National Academies of Sciences for a chapter about climate science in an educational guide for judges.`\
+https://www.nytimes.com/2026/07/20/climate/climate-change-manual-national-academy-science.html
+
 **Trump Says New Air Force One to Be ‘Maxed Out’**\
 `President Trump said on Sunday that the new Air Force One, donated by Qatar, would be taken out of service to be “maxed out.”`\
 https://www.nytimes.com/video/us/100000011042805/trump-air-force-one-qatar-security.html
