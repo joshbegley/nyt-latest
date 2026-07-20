@@ -1,3 +1,7 @@
+**Andy Burnham Makes First Speech as Britain’s Prime Minister**\
+`Andy Burnham delivers his first speech as Britain’s new prime minister at 10 Downing Street.`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer-makes-final-speech-as-british-prime-minister.html
+
 **Your Questions, Answered**\
 `We look at political donations, housing and the national debt.`\
 https://www.nytimes.com/2026/07/20/briefing/your-questions-answered.html

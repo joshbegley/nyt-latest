@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/07/20/crosswords/strands-sidekick-870.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, July 21, 2026.`\
 https://www.nytimes.com/2026/07/20/crosswords/wordle-review-1858.html
 
-**Keir Starmer Makes Final Speech as British Prime Minister**\
-`Britain’s outgoing prime minister, Keir Starmer, makes a final speech in Downing Street before handing the reins to Andy Burnham.`\
+**Andy Burnham Makes First Speech as Britain’s Prime Minister**\
+`Andy Burnham delivers his first speech as Britain’s new prime minister at 10 Downing Street.`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer-makes-final-speech-as-british-prime-minister.html
 
 **North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
