@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Fausto**\
+`See the likely path and wind arrival times for Fausto`\
+https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.html
+
 **El Air Force One nuevo será retirado para ser equipado ‘al máximo’, dice Trump**\
 `Se ha cuestionado si las capacidades defensivas del avión donado por Catar son adecuadas para proteger a un presidente de EE. UU. y otros pasajeros.`\
 https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/opinion/health-care-prices-insurance-caps.htm
 **The Best Genetic Risk Tools Don’t Work Equally for Everyone**\
 `Genetic prediction models are poised to revolutionize medicine. But because they have been trained on European DNA, they threaten to widen health care disparities.`\
 https://www.nytimes.com/2026/07/20/science/polygenic-risk-scores-diversity.html
-
-**America Has 2 Political Parties but 8 Political Tribes**\
-`Think of our two major political parties as two coalitions.`\
-https://www.nytimes.com/2026/07/20/opinion/voters-political-parties-coalitions.html
 
