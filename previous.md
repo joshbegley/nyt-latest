@@ -2,7 +2,7 @@
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Fausto.`\
 https://www.nytimes.com/es/interactive/2026/07/20/espanol/fausto-mapa-trayectoria.html
 
-**Read the document**\
+**Read The Times’s Motion in Response to the Trump Administration Subpoenas**\
 `Read the motion filed by lawyers for The New York Times regarding the federal government’s effort to subpoena phone records of the news outlet’s journalists.`\
 https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-government-letter-re-additional-subpoenas.html
 
@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-g
 `Seen as closer to Iran, Khalil al-Hayya served as the Palestinian militant group’s chief negotiator with Israel and the Trump administration during the Gaza war.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/gaza-talks-khalil-al-hayya-leader.html
 
-**U.S. Sought Phone Records of Times Journalists and Their Relatives**\
+**Trump Administration Sought Phone Records of Times Journalists and Their Relatives**\
 `The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
 https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
 
