@@ -1,3 +1,7 @@
+**Outcry in Italy After Man Dies While Being Restrained by Police**\
+`The death of the man, a Moroccan resident of Italy, set off an outcry across the country and prompted comparisons to the death of George Floyd in the United States.`\
+https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-george-floyd.html
+
 **Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
 `As chancellor, John Healey, the former defense secretary, will fill one of the government’s most consequential posts, overseeing spending and debt, and shepherding economic policy.`\
 https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/world/europe/ukraine-zelensky-general-defense
 **More Trump Tariffs Are Coming**\
 `Jamieson Greer, the U.S. trade representative, tells a Times reporter why he thinks that the administration’s tariff policy is working as intended.`\
 https://www.nytimes.com/2026/07/20/podcasts/the-daily/more-trump-tariffs-are-coming.html
-
-**U.S. Service Members Killed as War Expands, and Federal Cases Against Protesters Crumble**\
-`Plus, what to know about the next British prime minister.`\
-https://www.nytimes.com/2026/07/20/podcasts/the-headlines/service-members-killed-iran-federal-cases-protesters.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
