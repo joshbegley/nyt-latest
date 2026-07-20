@@ -1,3 +1,19 @@
+**Faced With Piles of New Paperwork, People Are Losing Food Stamps**\
+`Arizona’s Supplemental Nutrition Assistance Program rolls have plummeted, offering a possible preview of national trends as states try to avoid new federal penalties.`\
+https://www.nytimes.com/2026/07/20/us/politics/losing-food-stamps.html
+
+**OpenAI and Anthropic Are (Still) Beefing**\
+`“These companies hate each other.” The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss the constant hatred felt between Anthropic and OpenAI and what the companies have done to mitigate it.`\
+https://www.nytimes.com/video/podcasts/100000011042584/openai-and-anthropic-are-still-beefing.html
+
+**España celebra la victoria en el Mundial con un optimismo más amplio**\
+`Para muchos aficionados, la victoria en la Copa Mundial consolidó la creencia de que algo prometedor —a nivel cultural, económico y deportivo— está ocurriendo en el país.`\
+https://www.nytimes.com/es/2026/07/20/espanol/mundo/espana-campeon-mundial.html
+
+**Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
+`The man threatened passers-by, lit a fire and set off fireworks, police said, and was then detained. The building houses an Immigration and Customs Enforcement office.`\
+https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
+
 **Apple Accuses OpenAI of Trying to Steal Hardware Secrets**\
 `Apple’s recent lawsuit against OpenAI is filled with allegations, one of which accuses OpenAI of stealing the technique for a secret metal-finishing process Apple uses.`\
 https://www.nytimes.com/video/podcasts/100000011042532/apple-accuses-openai-of-trying-to-steal-hardware-secrets.html

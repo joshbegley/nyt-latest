@@ -1,3 +1,15 @@
+**Faced With Piles of New Paperwork, People Are Losing Food Stamps**\
+`Arizona’s Supplemental Nutrition Assistance Program rolls have plummeted, offering a possible preview of national trends as states try to avoid new federal penalties.`\
+https://www.nytimes.com/2026/07/20/us/politics/losing-food-stamps.html
+
+**OpenAI and Anthropic Are (Still) Beefing**\
+`“These companies hate each other.” The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss the constant hatred felt between Anthropic and OpenAI and what the companies have done to mitigate it.`\
+https://www.nytimes.com/video/podcasts/100000011042584/openai-and-anthropic-are-still-beefing.html
+
+**España celebra la victoria en el Mundial con un optimismo más amplio**\
+`Para muchos aficionados, la victoria en la Copa Mundial consolidó la creencia de que algo prometedor —a nivel cultural, económico y deportivo— está ocurriendo en el país.`\
+https://www.nytimes.com/es/2026/07/20/espanol/mundo/espana-campeon-mundial.html
+
 **Apple Accuses OpenAI of Trying to Steal Hardware Secrets**\
 `Apple’s recent lawsuit against OpenAI is filled with allegations, one of which accuses OpenAI of stealing the technique for a secret metal-finishing process Apple uses.`\
 https://www.nytimes.com/video/podcasts/100000011042532/apple-accuses-openai-of-trying-to-steal-hardware-secrets.html
@@ -163,7 +175,7 @@ https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.h
 https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
 
 **Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
-`The man, who was detained, threatened passers-by, lit a fire and set off fireworks, police said, at the building, which houses an Immigration and Customs Enforcement office.`\
+`The man threatened passers-by, lit a fire and set off fireworks, police said, and was then detained. The building houses an Immigration and Customs Enforcement office.`\
 https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
 
 **How Google’s A.I. Search Is Imperiling the Open Web**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drive
 **Soaring Egg Prices Are Hitting China Hard**\
 `China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
 https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
-
-**Greece Hopes Andy Burnham Will Return the Parthenon Sculptures**\
-`The artworks, also known as the Parthenon marbles, once decorated the renowned ancient temple in Athens, Greece. They have been displayed in the British Museum in London for decades.`\
-https://www.nytimes.com/2026/07/20/arts/greece-andy-burnham-parthenon-sculptures.html
-
-**Who Is Ahead in Florida's 4th Congressional District?**\
-`Track the latest polls in Florida's 4th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-4-polls-2026.html
-
-**The World Cup Halftime Show Had Star Power. But the Style Missed the Point.**\
-`Most performers for the halftime show, including BTS, Gustavo Dudamel and Madonna, dressed for the occasion but didn’t hit the mark.`\
-https://www.nytimes.com/2026/07/20/style/world-cup-halftime-show-fashion.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

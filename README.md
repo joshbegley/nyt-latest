@@ -1,3 +1,7 @@
+**Teherán y Washington enfrentan un momento decisivo en la guerra**\
+`Los ataques de EE. UU. e Irán avanzan de una forma que podría provocar una guerra más amplia que no puedan contener, advierten los analistas, a menos que regresen rápido a las negociaciones.`\
+https://www.nytimes.com/es/2026/07/20/espanol/mundo/guerra-iran-estados-unidos.html
+
 **Faced With Piles of New Paperwork, People Are Losing Food Stamps**\
 `Arizona’s Supplemental Nutrition Assistance Program rolls have plummeted, offering a possible preview of national trends as states try to avoid new federal penalties.`\
 https://www.nytimes.com/2026/07/20/us/politics/losing-food-stamps.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
 **Armored Cars, Now on the American Road**\
 `Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
 https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
-
-**Soaring Egg Prices Are Hitting China Hard**\
-`China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
-https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
