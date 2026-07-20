@@ -1,3 +1,11 @@
+**Houthis in Yemen Declare Red Sea Blockade on Saudi Arabia**\
+`The Iran-backed Houthi militia, which controls parts of Yemen, has in the past blockaded the Red Sea by threatening a choke point crucial to Saudi oil exports and global shipping.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-red-sea-blockade.html
+
+**Denise Oliver-Velez, a Powerful Voice of the Left, Dies at 78**\
+`She became the highest-ranking female member of the Young Lords in New York, where she pressed for women’s rights, and later joined the Black Panthers.`\
+https://www.nytimes.com/2026/07/20/us/denise-oliver-velez-dead.html
+
 **Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
 `For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
 https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/us/politics/troops-injured-jordan-iran-war.ht
 **Enough Democratic Drama. North Carolina Has a Better, Boring Way.**\
 `There are important lessons in my state’s Senate race.`\
 https://www.nytimes.com/2026/07/20/opinion/roy-cooper-senate-election.html
-
-**Why Silicon Valley Can’t Stop Looking Over Its Shoulder at China**\
-`Chinese companies are offering artificial intelligence that is nearly as good as the leading U.S. technologies, but it’s still America’s race to lose.`\
-https://www.nytimes.com/2026/07/20/technology/china-us-ai-race.html
-
-**7 U.S. Botanical Gardens You Won’t Believe Are in the City**\
-`Across America, botanical gardens large and small are perfect for a quick getaway where you can breathe fresh air, find a patch of shade and touch grass.`\
-https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
 

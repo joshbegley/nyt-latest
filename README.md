@@ -1,3 +1,11 @@
+**Students March Toward India’s Parliament Over Exam Scandal**\
+`Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
+https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
+
+**Mapa: la trayectoria de la depresión tropical Two en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Two.`\
+https://www.nytimes.com/es/interactive/2026/07/20/espanol/two-mapa-trayectoria.html
+
 **Houthis in Yemen Declare Red Sea Blockade on Saudi Arabia**\
 `The Iran-backed Houthi militia, which controls parts of Yemen, has in the past blockaded the Red Sea by threatening a choke point crucial to Saudi oil exports and global shipping.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-red-sea-blockade.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/us/politics/maine-democrats-senate-jackson-pl
 **Fui víctima del contenido basura**\
 `Alguien usó IA para escribir mi biografía. Miles de libros más de ese tipo están contaminando Amazon. ¿Quién está detrás de toda esta bazofia?`\
 https://www.nytimes.com/es/2026/07/20/espanol/negocios/ia-bazofia-libros-amazon.html
-
-**Pentagon Withheld Dozens of U.S. Military Injuries in Iran War**\
-`Central Command is not required to release information about injured troops, especially when they quickly return to duty, a military official said.`\
-https://www.nytimes.com/2026/07/20/us/politics/troops-injured-jordan-iran-war.html
-
-**Enough Democratic Drama. North Carolina Has a Better, Boring Way.**\
-`There are important lessons in my state’s Senate race.`\
-https://www.nytimes.com/2026/07/20/opinion/roy-cooper-senate-election.html
 
