@@ -1,3 +1,11 @@
+**‘Ransom Canyon,’ and 5 More Shows to Watch on TV This Week**\
+`The second season of the cowboy drama airs. And a documentary shows the behind the scenes of the “Heartstopper: Forever” movie.`\
+https://www.nytimes.com/2026/07/20/arts/television/ransom-canyon-tv-shows-to-watch.html
+
+**World Cup 2026: See How Spain Finally Broke Through Argentina’s Defense in Extra Time**\
+`View in 3-D the single goal that secured Spain’s World Cup title against Argentina, the reigning champion.`\
+https://www.nytimes.com/interactive/2026/07/20/sports/soccer/spain-argentina-world-cup-final-goal.html
+
 **India’s CJP Party Leads Protest March to Parliament After Exam Leaks**\
 `The Cockroach Janta Party’s demonstration in New Delhi has swelled since police forcibly removed Sonam Wangchuk, a prominent activist who has been on a hunger strike, on Saturday.`\
 https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html
