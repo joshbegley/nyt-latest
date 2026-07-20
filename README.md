@@ -1,111 +1,3 @@
-**Today, In Short**\
-`Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
-https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
-
-**Peanut Noodles With Spicy Tofu**\
-`Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
-https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
-
-**Andy Burnham Becomes U.K. Prime Minister**\
-`Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
-https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
-
-**Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
-`Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
-https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
-
-**Good Grain Bowl**\
-`Ali Slagle’s roasted mushroom and halloumi grain bowl is exactly the sort of simple, healthful meal I want to be cooking and eating right now.`\
-https://www.nytimes.com/2026/07/20/dining/good-grain-bowl.html
-
-**This Is Why Our Fresh Produce Keeps Making Us Sick**\
-`Cyclospora outbreaks are just a small part of a much larger food safety crisis linked to fresh produce.`\
-https://www.nytimes.com/2026/07/20/opinion/cyclospora-outbreak-symptoms-lettuce.html
-
-**Dave Dawson, Co-founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
-`He and his wife knew nothing about the business when they decided to produce lighting in Charleston, S.C. Their company became a beacon of American manufacturing.`\
-https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
-
-**As Budget Cuts Loom, French Theater Turns Up the Political Heat**\
-`This year’s Avignon Festival has transformed into a staging ground for protests, defiant new works and some early 2027 presidential campaigning.`\
-https://www.nytimes.com/2026/07/20/theater/france-theater-cuts-politics-avignon-festival.html
-
-**Maps: Tracking Tropical Storm Fausto**\
-`See the likely path and wind arrival times for Fausto`\
-https://www.nytimes.com/interactive/2026/07/20/weather/fausto-map-path-tracker.html
-
-**El Air Force One nuevo será retirado para ser equipado ‘al máximo’, dice Trump**\
-`Se ha cuestionado si las capacidades defensivas del avión donado por Catar son adecuadas para proteger a un presidente de EE. UU. y otros pasajeros.`\
-https://www.nytimes.com/es/2026/07/20/espanol/estados-unidos/air-force-one-retirado-equipamiento.html
-
-**Man Sets Off Explosive Device Outside 26 Federal Plaza in NYC**\
-`The man, who was detained, threatened passers-by, lit a fire and set off fireworks, police said, at the building, which houses an Immigration and Customs Enforcement office.`\
-https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhattan.html
-
-**How Google’s A.I. Search Is Imperiling the Open Web**\
-`As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
-https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
-
-**A.I. ‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
-`Mobile apps are easy to make with artificial intelligence. That doesn’t mean people are excited to use them.`\
-https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
-
-**Armored Cars, Now on the American Road**\
-`Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
-https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
-
-**Soaring Egg Prices Are Hitting China Hard**\
-`China consumes more eggs per capita than almost every other country, so a recent spike in costs is touching a nerve.`\
-https://www.nytimes.com/2026/07/20/business/china-eggs-expensive.html
-
-**Greece Hopes Andy Burnham Will Return the Parthenon Sculptures**\
-`The artworks, also known as the Parthenon marbles, once decorated the renowned ancient temple in Athens, Greece. They have been displayed in the British Museum in London for decades.`\
-https://www.nytimes.com/2026/07/20/arts/greece-andy-burnham-parthenon-sculptures.html
-
-**Who Is Ahead in Florida's 4th Congressional District?**\
-`Track the latest polls in Florida's 4th Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-4-polls-2026.html
-
-**The World Cup Halftime Show Had Star Power. But the Style Missed the Point.**\
-`Most performers for the halftime show, including BTS, Gustavo Dudamel and Madonna, dressed for the occasion but didn’t hit the mark.`\
-https://www.nytimes.com/2026/07/20/style/world-cup-halftime-show-fashion.html
-
-**What Happens Behind the Scenes Once Burnham Enters 10 Downing Street**\
-`Calls with foreign leaders, cabinet appointments and writing the “letters of last resort”: Andy Burnham’s first hours and days in office will be busy.`\
-https://www.nytimes.com/2026/07/20/world/europe/behind-the-scenes-downing-street.html
-
-**When Will the Wildfire Smoke End? Latest Air Quality Updates and Maps**\
-`On Monday, hazy skies and poor air quality continued to affect parts of the Midwest and Great Lakes region.`\
-https://www.nytimes.com/2026/07/20/weather/canadian-wildfire-smoke-air-quality-us.html
-
-**Here’s What Greeks Think of Christopher Nolan’s ‘The Odyssey’**\
-`Before its release, some in the country were highly skeptical about the new depiction of a beloved tale. But many who saw it over opening weekend came back with positive reviews.`\
-https://www.nytimes.com/2026/07/20/movies/the-odyssey-movie-greece.html
-
-**American A.I. Giants Like Alphabet Face Fresh Tests**\
-`Rapid advancements in Chinese artificial intelligence models raise more questions about costly technology spending, as Google’s parent prepares to report earnings.`\
-https://www.nytimes.com/2026/07/20/business/dealbook/ai-china-alphabet.html
-
-**Aiming for My Fastest Marathon, I Turned to Distance Running’s Mecca**\
-`A New York Times reporter’s quest to beat the personal best he set 14 years ago took him to a Kenyan village, where the biggest benefit he got was not what he expected.`\
-https://www.nytimes.com/2026/07/20/world/africa/kenya-iten-marathon-training.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnham-inside-92405.html
-
-**There’s Nothing Casual About Andy Burnham’s Casual Style**\
-`Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
-https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
-
-**Pentagon Identifies 2 U.S. Soldiers Killed in Jordan During Iran Strike**\
-`Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
-https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011041486/20vid-burnham-car-66076.html
-
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
@@ -197,4 +89,108 @@ https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
 **How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
 `After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
 https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
+
+**Book Review: ‘Cool Machine,’ by Colson Whitehead**\
+`The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
+https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
+
+**Trial Begins for Lindsay Clancy, Charged With Murdering Her 3 Children**\
+`A Massachusetts mother charged in the killing of her children goes on trial on Monday. The small coastal town of Duxbury is preparing to relive a case focused on postpartum mental health.`\
+https://www.nytimes.com/2026/07/20/us/lindsey-clancy-murder-trial-duxbury-ma.html
+
+**What to Know About the Preliminary Hearing in D4vd’s Murder Case**\
+`The singer is charged with killing Celeste Rivas Hernandez, a teenager whose decomposed body was found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/07/20/arts/music/d4vd-preliminary-hearing-murder.html
+
+**‘Heated Rivalry,’ ‘Dukes,’ With Jane Wickline, and More Must-See Theater**\
+`As the summer heats up, our critics are raving about these seven not-to-miss Off Broadway shows.`\
+https://www.nytimes.com/2026/07/20/theater/heated-rivalry-dukes-jane-wickline-othello-theater-picks.html
+
+**Can Arizona Republicans Stop Feuding Long Enough to Win Back the State?**\
+`Some Republicans fear the party is poised to repeat past mistakes by nominating candidates in Tuesday’s primaries who are viewed as too extreme to sway moderate voters.`\
+https://www.nytimes.com/2026/07/20/us/politics/arizona-republicans-fighting.html
+
+**These Public Housing Pathways Are Made From Wine Corks**\
+`At Marlboro Houses in Brooklyn, corks have been recycled into walkways, and bright yellow benches and sculptures have brightened the outdoor space.`\
+https://www.nytimes.com/2026/07/20/nyregion/cork-pathways-marlboro-houses-brooklyn.html
+
+**Capping the Price of Health Care Is a Mistake**\
+`A government bureaucrat doesn’t know how much your medicine or doctor’s visit should cost.`\
+https://www.nytimes.com/2026/07/20/opinion/health-care-prices-insurance-caps.html
+
+**The Best Genetic Risk Tools Don’t Work Equally for Everyone**\
+`Genetic prediction models are poised to revolutionize medicine. But because they have been trained on European DNA, they threaten to widen health care disparities.`\
+https://www.nytimes.com/2026/07/20/science/polygenic-risk-scores-diversity.html
+
+**America Has 2 Political Parties but 8 Political Tribes**\
+`Think of our two major political parties as two coalitions.`\
+https://www.nytimes.com/2026/07/20/opinion/voters-political-parties-coalitions.html
+
+**The Nerves and Thrills of Being a ‘Swan Lake’ Extra**\
+`Our reporter, a lapsed dancer, got an intimate glimpse of the action in the American Ballet Theater’s production.`\
+https://www.nytimes.com/2026/07/20/arts/dance/swan-lake-american-ballet-theater-extra-supernumerary.html
+
+**Cat Cohen Turned Her Stroke Into a Punchline and Off Broadway Show**\
+`“Broad Strokes” recounts this singing comedian’s medical emergency, juxtaposing “something brash and grotesque and humiliating with something completely heartfelt.”`\
+https://www.nytimes.com/2026/07/20/theater/cat-cohen-broad-strokes-comedy.html
+
+**‘National Treasure,’ the Over-Engineered, Delightfully Dumb U.S. History Lesson**\
+`Nicolas Cage, Diane Kruger and Justin Bartha raced from conspiracy theory to conspiracy theory in this 2004 blockbuster about stealing the Declaration of Independence.`\
+https://www.nytimes.com/2026/07/20/movies/national-treasure-nicolas-cage.html
+
+**To Sell Homer’s ‘Odyssey,’ Book Publishers Get Creative**\
+`The market for the epic poem is as crowded as a certain Ithacan palace, and publishers have had to get crafty to attract readers to their editions.`\
+https://www.nytimes.com/2026/07/20/books/odyssey-book-editions.html
+
+**How New York’s Historic Homes Freshened Up for America’s 250th**\
+`House museums that predate the American Revolution renovated for this anniversary year.`\
+https://www.nytimes.com/2026/07/20/realestate/historic-homes-new-york-250.html
+
+**Word of the Day: obsidian**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/20/learning/word-of-the-day-obsidian.html
+
+**Why Epidemics Breed Rage at Health Workers**\
+`Some people have fought Ebola containment measures in the Democratic Republic of Congo. Scholars have seen similar responses across societies and throughout history.`\
+https://www.nytimes.com/2026/07/20/magazine/ebola-health-workers.html
+
+**A.I. Drones Are Coming. We Are Not Ready.**\
+`World leaders are marching us toward an uncertain era of new warfare — fast.`\
+https://www.nytimes.com/2026/07/20/opinion/ai-drones-modern-warfare.html
+
+**Can I Wear Big Jewels With My Jeans and T-Shirt?**\
+`A reader wonders how jeweled up someone can be.`\
+https://www.nytimes.com/2026/07/20/fashion/big-jewelry-casual-fashion.html
+
+**Cinephiles Took Their Own Journeys to See ‘The Odyssey’ in IMAX 70mm**\
+`To see Christopher Nolan’s interpretation of an epic journey in his preferred IMAX 70mm format, admirers packed their bags and took out their passports.`\
+https://www.nytimes.com/2026/07/20/movies/odyssey-imax-70mm-theaters.html
+
+**Book Review: ‘The Lost Founder,’ by Jesse Wegman**\
+`In “The Lost Founder,” the journalist Jesse Wegman looks back at a largely forgotten and singular voice that helped make the United States what it is today.`\
+https://www.nytimes.com/2026/07/20/books/review/the-lost-founder-jesse-wegman.html
+
+**The Second Home Tax Is a Win for New York**\
+`The recent debate over the new pied-à-terre tax in the city offers a useful case study.`\
+https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
+
+**Texas Book List: See What Students Will Be Required to Read**\
+`What is essential reading? Texas has an answer: Classics, including the Bible.`\
+https://www.nytimes.com/2026/07/20/us/texas-schools-required-reading-books.html
+
+**Does Lymphatic Drainage Massage Make Your Skin Healthier?**\
+`The technique has been used to increase circulation and in some cases reduce fluid buildup. Whether it tightens and brightens your skin is less clear.`\
+https://www.nytimes.com/2026/07/20/well/lymphatic-drainage-massage-scam-or-not.html
+
+**Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
+`The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
+https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
+
+**Ukraine War Momentum Helps Spur Interest in Postwar Investment**\
+`At a conference on reconstruction, the focus shifted to private investment, not donor assistance.`\
+https://www.nytimes.com/2026/07/20/world/europe/ukraine-post-war-reconstruction.html
+
+**U.S. Average Gas Price Returns to $4 a Gallon as Iran Crisis Escalates**\
+`A month ago, drivers were enjoying some relief at the pump after the U.S. and Iran signed a deal intended to reopen the Strait of Hormuz. Now, prices are rising again.`\
+https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
 

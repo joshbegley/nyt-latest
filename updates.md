@@ -1,3 +1,51 @@
+**North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
+`Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
+https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
+
+**Spain Wins the 2026 World Cup**\
+`Welcome to the final episode of the Daily Cup!`\
+https://www.nytimes.com/2026/07/20/podcasts/world-cup-spain.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
+
+**Live Updates: Burnham Becomes U.K. Prime Minister and Pledges to End Homelessness**\
+`In his first address, Andy Burnham acknowledged that he is Britain’s seventh leader in a decade and vowed to usher in a “circuit breaker moment” to change the direction of government.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
+**5 Things to Know About the Maine Senate Candidate Troy Jackson**\
+`Mr. Jackson, who has emerged as the clear front-runner to replace Graham Platner, is a Republican turned Democrat who is seen as close to Mr. Platner on policy.`\
+https://www.nytimes.com/2026/07/20/us/politics/troy-jackson-maine-senate.html
+
+**In Maine Senate Race, Democrats Go From Chaos to Coronation**\
+`Troy Jackson’s emergence as the clear front-runner to replace Graham Platner spares the party some challenges but points to some new ones.`\
+https://www.nytimes.com/2026/07/20/us/politics/maine-democrats-senate-jackson-platner.html
+
+**Fui víctima del contenido basura**\
+`Alguien usó IA para escribir mi biografía. Miles de libros más de ese tipo están contaminando Amazon. ¿Quién está detrás de toda esta bazofia?`\
+https://www.nytimes.com/es/2026/07/20/espanol/negocios/ia-bazofia-libros-amazon.html
+
+**Pentagon Withheld Dozens of U.S. Military Injuries in Iran War**\
+`Central Command is not required to release information about injured troops, especially when they quickly return to duty, a military official said.`\
+https://www.nytimes.com/2026/07/20/us/politics/troops-injured-jordan-iran-war.html
+
+**Enough Democratic Drama. North Carolina Has a Better, Boring Way.**\
+`There are important lessons in my state’s Senate race.`\
+https://www.nytimes.com/2026/07/20/opinion/roy-cooper-senate-election.html
+
+**Why Silicon Valley Can’t Stop Looking Over Its Shoulder at China**\
+`Chinese companies are offering artificial intelligence that is nearly as good as the leading U.S. technologies, but it’s still America’s race to lose.`\
+https://www.nytimes.com/2026/07/20/technology/china-us-ai-race.html
+
+**7 U.S. Botanical Gardens You Won’t Believe Are in the City**\
+`Across America, botanical gardens large and small are perfect for a quick getaway where you can breathe fresh air, find a patch of shade and touch grass.`\
+https://www.nytimes.com/2026/07/20/travel/botanical-gardens-us-cities.html
+
+**How a Professor Lives on $130,000 in Marine Park, Brooklyn**\
+`After Beth Evans’s life was uprooted two decades ago, she found stability. But with two years left until retirement, she is wondering what her financial future holds.`\
+https://www.nytimes.com/interactive/2026/07/20/nyregion/nyc-budgeting-affordability-evans.html
+
 **Wildfire Smoke Gives Way to Powerful Thunderstorms in the Midwest and Northeast**\
 `The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
 https://www.nytimes.com/2026/07/20/weather/midwest-thunderstorm-tornado-forecast.html
