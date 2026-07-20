@@ -1,3 +1,7 @@
+**Gustavo Dudamel dirigió un homenaje a las víctimas en Venezuela**\
+`La Orquesta Filarmónica de Nueva York y la Orquesta Sinfónica Simón Bolívar de Venezuela se han unido por primera vez para rendir tributo a un país en duelo.`\
+https://www.nytimes.com/es/2026/07/20/espanol/cultura/gustavo-dudamel-victimas-terremoto-venezuela.html
+
 **Outcry in Italy After Man Dies While Being Restrained by Police**\
 `The death of the man, a Moroccan resident of Italy, set off an outcry across the country and prompted comparisons to the death of George Floyd in the United States.`\
 https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-george-floyd.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/embedded/world/europe/100000011041434/20vid-starme
 **Zelensky Faces Pressure to Remove Ukraine’s Top General**\
 `Demonstrators and many soldiers want President Volodymyr Zelensky to reaffirm the vision of drone warfare laid out by the defense minister he fired last week.`\
 https://www.nytimes.com/2026/07/20/world/europe/ukraine-zelensky-general-defense-minister.html
-
-**More Trump Tariffs Are Coming**\
-`Jamieson Greer, the U.S. trade representative, tells a Times reporter why he thinks that the administration’s tariff policy is working as intended.`\
-https://www.nytimes.com/2026/07/20/podcasts/the-daily/more-trump-tariffs-are-coming.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\

@@ -1,3 +1,23 @@
+**Outcry in Italy After Man Dies While Being Restrained by Police**\
+`The death of the man, a Moroccan resident of Italy, set off an outcry across the country and prompted comparisons to the death of George Floyd in the United States.`\
+https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-george-floyd.html
+
+**Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
+`As chancellor, John Healey, the former defense secretary, will fill one of the government’s most consequential posts, overseeing spending and debt, and shepherding economic policy.`\
+https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
+
+**American Deaths in the Iran War**\
+`Readers react to the intensifying conflict. Also: Free speech and Israeli writers; treasuring immigrants.`\
+https://www.nytimes.com/2026/07/20/opinion/iran-war-us-deaths.html
+
+**Judge Temporarily Pauses Paramount-Warner Bros. Deal**\
+`The delay is intended to give the court time to consider a lawsuit that argues the $111 billion merger violates antitrust laws.`\
+https://www.nytimes.com/2026/07/20/business/media/paramount-warner-bros-deal.html
+
+**Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
+`The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
+https://www.nytimes.com/live/2026/07/20/world/iran-war-strikes-trump-hormuz
+
 **Wildfire Smoke Gives Way to Powerful Thunderstorms in the Midwest and Northeast**\
 `The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
 https://www.nytimes.com/2026/07/20/weather/wisconsin-midwest-storms-tornado-forecast.html
