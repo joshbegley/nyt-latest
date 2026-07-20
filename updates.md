@@ -1,3 +1,7 @@
+**Two More Patients Die in Outbreak of Legionnaires’ Disease in Manhattan**\
+`The deaths brought the toll in the outbreak to three. The second person who died was an 88-year-old retired businessman who lived on the Upper East Side, his lawyer said.`\
+https://www.nytimes.com/2026/07/19/nyregion/legionnaires-disease-second-death-nyc.html
+
 **Family of Five Found Dead After Storms Flooded Utah Canyon**\
 `A Provo fire captain, his wife and their three sons were found dead over the weekend near a campground in southern Utah. They were likely flood victims, the authorities said.`\
 https://www.nytimes.com/2026/07/19/us/utah-flooding-deaths.html
