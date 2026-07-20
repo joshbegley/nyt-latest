@@ -1,3 +1,7 @@
+**Live Updates: Burnham Becomes U.K. Prime Minister and Pledges to End Homelessness**\
+`In his first address, Andy Burnham acknowledged that he is Britain’s seventh leader in a decade and vowed to usher in a “circuit breaker moment” to change the direction of government.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
 **Here’s What Greeks Think of Nolan’s ‘The Odyssey.’ (It’s Their Story, After All.)**\
 `Before its release, some in the country were highly skeptical about the new depiction of a beloved tale. But many who saw it over opening weekend came back with positive reviews.`\
 https://www.nytimes.com/2026/07/20/movies/the-odyssey-movie-greece.html

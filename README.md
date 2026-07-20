@@ -1,3 +1,7 @@
+**When Will the Wildfire Smoke End? Latest Air Quality Updates and Maps**\
+`On Monday, hazy skies and poor air quality continued to affect parts of the Midwest and Great Lakes region.`\
+https://www.nytimes.com/2026/07/20/weather/canadian-wildfire-smoke-air-quality-us.html
+
 **Here’s What Greeks Think of Nolan’s ‘The Odyssey.’ (It’s Their Story, After All.)**\
 `Before its release, some in the country were highly skeptical about the new depiction of a beloved tale. But many who saw it over opening weekend came back with positive reviews.`\
 https://www.nytimes.com/2026/07/20/movies/the-odyssey-movie-greece.html
