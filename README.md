@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041434/20vid-starmer-clip-2821.html
+
 **Zelensky Faces Pressure to Remove Ukraine’s Top General**\
 `Demonstrators and many soldiers want President Volodymyr Zelensky to reaffirm the vision of drone warfare laid out by the defense minister he fired last week.`\
 https://www.nytimes.com/2026/07/20/world/europe/ukraine-zelensky-general-defense-minister.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/nyregion/micah-lasher-magic.html
 **Building Community with $1 Coffees, a Salsa Club and Patience**\
 `The 14th Street Y in the East Village has worked to become a social gathering place in a city where sharing space does not always mean building a connection.`\
 https://www.nytimes.com/2026/07/20/nyregion/building-community-with-1-coffees-a-salsa-club-and-patience.html
-
-**NYT Spelling Bee Answers for July 20, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/20/crosswords/spelling-bee-forum.html
 
