@@ -1,3 +1,7 @@
+**Burnham Set to Become Britain’s First Openly Roman Catholic Prime Minister**\
+`Andy Burnham has spoken of Catholicism as part of his cultural identity rather than as a fervent religious faith.`\
+https://www.nytimes.com/2026/07/20/world/europe/burnham-openly-roman-catholic-prime-minister.html
+
 **Live Updates: Burnham Set to Become Britain’s New Prime Minister After Starmer Officially Resigns**\
 `In his farewell address, Keir Starmer thanked the British people and said he goes with “good grace.” Andy Burnham will become Britain’s seventh leader in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
 https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer

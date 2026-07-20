@@ -1,3 +1,7 @@
+**Your Questions, Answered**\
+`We look at political donations, housing and the national debt.`\
+https://www.nytimes.com/2026/07/20/briefing/your-questions-answered.html
+
 **Burnham Set to Become Britain’s First Openly Roman Catholic Prime Minister**\
 `Andy Burnham has spoken of Catholicism as part of his cultural identity rather than as a fervent religious faith.`\
 https://www.nytimes.com/2026/07/20/world/europe/burnham-openly-roman-catholic-prime-minister.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/business/four-dollar-gas-iran-war.html
 **Mi hijo murió a manos de ICE. Exijo que haya rendición de cuentas**\
 `Ningún estadounidense que haya vivido una tragedia como la mía debería tener que luchar para obtener respuestas de su propio gobierno.`\
 https://www.nytimes.com/es/2026/07/20/espanol/opinion/ice-muerte-texas.html
-
-**Micah Lasher, Congressman in Waiting, Has a Few Tricks Up His Sleeve**\
-`Mr. Lasher, the likely successor to Representative Jerry Nadler, has an unusual back story: As a teenager, he was a prodigy who performed magic tricks on national television.`\
-https://www.nytimes.com/2026/07/20/nyregion/micah-lasher-magic.html
 
