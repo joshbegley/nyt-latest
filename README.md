@@ -1,3 +1,7 @@
+**Family of Five Found Dead After Storms Flooded Utah Canyon**\
+`A Provo fire captain, his wife and their three sons were found dead over the weekend near a campground in southern Utah. They were likely flood victims, the authorities said.`\
+https://www.nytimes.com/2026/07/19/us/utah-flooding-deaths.html
+
 **‘House of the Dragon’ Season 3, Episode 5 Recap: Under Pressure**\
 `Queen Rhaenrya is beginning to sound a little paranoid. That rarely bodes well with an autocrat.`\
 https://www.nytimes.com/2026/07/19/arts/television/house-of-the-dragon-recap-season-3-episode-5.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/07/19/nyregion/metropolitan-diary.html
 **sunday-daily-world-cup-messi-Spain-Argentina**\
 `Today, Spain’s unstoppable machine faces Lionel Messi’s immovable Argentina.`\
 https://www.nytimes.com/2026/07/19/podcasts/the-daily/the-world-cup-final-is-here.html
-
-**NYT Connections Answers for July 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, July 20, 2026.`\
-https://www.nytimes.com/2026/07/19/crosswords/connections-companion-1135.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
