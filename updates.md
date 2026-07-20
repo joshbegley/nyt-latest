@@ -1,3 +1,15 @@
+**Terremotos en Venezuela: el rescate de mascotas brinda algo de consuelo y alegría**\
+`Los voluntarios están reuniendo a las mascotas con sus familias, ofreciéndoles a los damnificados consuelo en medio de la pérdida y la devastación.`\
+https://www.nytimes.com/es/2026/07/20/espanol/america-latina/terremotos-venezuela-busqueda-mascotas.html
+
+**What Arizona Reveals About the Future of Food Stamps**\
+`The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months, and it may be a preview of changes nationwide. Our reporter Jason DeParle traveled to the state to understand why this happened and what effect it’s had.`\
+https://www.nytimes.com/video/us/100000010943219/what-arizona-reveals-about-the-future-of-food-stamps.html
+
+**Burnham’s Day 1 as Prime Minister: A Homeless Shelter, a Palace and Downing Street**\
+`As Andy Burnham became Britain’s seventh leader in a decade on Monday, he tried to show that he will govern differently.`\
+https://www.nytimes.com/2026/07/20/world/europe/andy-burnham-uk.html
+
 **Teherán y Washington enfrentan un momento decisivo en la guerra**\
 `Los ataques de EE. UU. e Irán avanzan de una forma que podría provocar una guerra más amplia que no puedan contener, advierten los analistas, a menos que regresen rápido a las negociaciones.`\
 https://www.nytimes.com/es/2026/07/20/espanol/mundo/guerra-iran-estados-unidos.html
