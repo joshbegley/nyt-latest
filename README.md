@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041274/20vid-larry-clip-87618.html
+
+**Live Updates: Burnham Set to Become Britain’s New Leader**\
+`Andy Burnham spent the past nine years as the mayor of one of Britain’s fastest-growing regions. He will become the seventh prime minister in a decade, reflecting a period of turmoil after the Brexit vote in 2016.`\
+https://www.nytimes.com/live/2026/07/20/world/uk-prime-minister-burnham-starmer
+
+**5 Things to Know About the Maine Senate Candidate Troy Jackson**\
+`Mr. Jackson, who has emerged as the clear front-runner to replace Graham Platner, is a Republican turned Democrat who is seen as close to Mr. Platner on policy.`\
+https://www.nytimes.com/2026/07/20/us/politics/troy-jackson-maine-senate.html
+
 **In Maine Senate Race, Democrats Go From Chaos to Coronation**\
 `Troy Jackson’s emergence as the clear front-runner to replace Graham Platner spares the party some challenges but points to some new ones.`\
 https://www.nytimes.com/2026/07/20/us/politics/maine-democrats-senate-jackson-platner.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalatio
 **Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
 `Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
 https://www.nytimes.com/2026/07/20/world/europe/britain-new-prime-minister-challenges.html
-
-**No Corrections: July 20, 2026**\
-`No corrections appeared in print on Monday, July 20, 2026.`\
-https://www.nytimes.com/2026/07/20/corrections/no-corrections-july-20-2026.html
-
-**Quote of the Day: Heartbreak of Quakes Is Doubled for Venezuela’s Many Migrants**\
-`Quotation of the Day for Monday, July 20, 2026.`\
-https://www.nytimes.com/2026/07/20/pageoneplus/quote-of-the-day-heartbreak-of-quakes-is-doubled-for-venezuelas-many-migrants.html
-
-**Trump Says New Air Force One Will Be Taken Out of Service to Be ‘Maxed Out’**\
-`The Qatari-donated plane has been under scrutiny over whether it is fitted with sufficient defensive capabilities to adequately protect a U.S. president and others traveling on it.`\
-https://www.nytimes.com/2026/07/19/us/politics/trump-air-force-modifications.html
 
