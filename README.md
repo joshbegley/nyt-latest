@@ -1,8 +1,12 @@
+**5 Found Dead in Ohio After Child Tells Driver His ‘Family Was in the River’**\
+`Two women and three men were pulled from the Scioto River, outside Columbus.`\
+https://www.nytimes.com/2026/07/20/us/scioto-river-drowning-ohio.html
+
 **White House Says New Air Force One Will Be Out of Service for a Month for ‘Upgrades’**\
 `The White House press secretary said the unspecified “enhancements” would take place this fall. The plane has been under scrutiny over whether it has sufficient defensive capabilities.`\
 https://www.nytimes.com/2026/07/20/us/politics/new-air-force-one-upgrades.html
 
-**Maine Democrats Are About to Replace an Oysterman With a Lumberjack. It Might Just Work.**\
+**Maine Democrats Are Replacing an Oysterman With a Lumberjack. It Might Just Work.**\
 `For the state’s progressives, Graham Platner was tempting. Troy Jackson is tested.`\
 https://www.nytimes.com/2026/07/20/opinion/troy-jackson-maine-democrats.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/interactive/2026/07/20/espanol/fausto-mapa-trayectori
 **Read The Times’s Motion in Response to the Trump Administration Subpoenas**\
 `Read the motion filed by lawyers for The New York Times regarding the federal government’s effort to subpoena phone records of the news outlet’s journalists.`\
 https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-government-letter-re-additional-subpoenas.html
-
-**Hamas Names Khalil al-Hayya as Its New Leader**\
-`Seen as closer to Iran, Khalil al-Hayya served as the Palestinian militant group’s chief negotiator with Israel and the Trump administration during the Gaza war.`\
-https://www.nytimes.com/2026/07/20/world/middleeast/gaza-talks-khalil-al-hayya-leader.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators, while the U.S. launched strikes against Iran for a 10th consecutive night.`\

@@ -1,3 +1,7 @@
+**White House Says New Air Force One Will Be Out of Service for a Month for ‘Upgrades’**\
+`The White House press secretary said the unspecified “enhancements” would take place this fall. The plane has been under scrutiny over whether it has sufficient defensive capabilities.`\
+https://www.nytimes.com/2026/07/20/us/politics/new-air-force-one-upgrades.html
+
 **Despite ‘False Positive’ Test, Taylor Farms Is Still Focus of Cyclospora Investigation**\
 `The F.D.A. said it was continuing to look into the supplier’s role in the outbreak as states reported stark increases in cases.`\
 https://www.nytimes.com/2026/07/20/well/eat/cyclospora-false-positive-lettuce-taylor-farms-fda.html
