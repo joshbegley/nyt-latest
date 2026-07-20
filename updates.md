@@ -1,3 +1,7 @@
+**El gobierno de Trump solicitó registros telefónicos de reporteros del Times y de sus familiares**\
+`El gobierno de EE. UU. está buscando de manera agresiva las fuentes confidenciales de los periodistas del Times que escribieron sobre el nuevo Air Force One del presidente. El Times le ha pedido a un juez que anule los citatorios.`\
+https://www.nytimes.com/es/2026/07/20/espanol/negocios/trump-new-york-times-registros-telefonicos-periodistas.html
+
 **Lindsey Graham’s Sister, Darline Graham, Says She Will Run to Succeed Him**\
 `Ms. Graham, who filled her brother’s Senate seat in South Carolina after his death, does not appear to have previous political experience. But she does have President Trump’s endorsement.`\
 https://www.nytimes.com/2026/07/20/us/politics/darline-graham-south-carolina-senate-race.html

@@ -1,3 +1,7 @@
+**Will Frontier A.I. Labs Continue Poaching Academic Economists?**\
+`This week on “Hard Fork,” co-hosts Kevin Roose and Casey Newton talk with Erik Brynjolfsson, an economics professor and A.I. expert, about frontier A.I. labs hiring economists from academic departments —and what his poaching price would be.`\
+https://www.nytimes.com/video/podcasts/100000011042721/will-frontier-ai-labs-continue-poaching-academic-economists.html
+
 **El gobierno de Trump solicitó registros telefónicos de reporteros del Times y de sus familiares**\
 `El gobierno de EE. UU. está buscando de manera agresiva las fuentes confidenciales de los periodistas del Times que escribieron sobre el nuevo Air Force One del presidente. El Times le ha pedido a un juez que anule los citatorios.`\
 https://www.nytimes.com/es/2026/07/20/espanol/negocios/trump-new-york-times-registros-telefonicos-periodistas.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
 **Peanut Noodles With Spicy Tofu**\
 `Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
 https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
-
-**Andy Burnham Becomes U.K. Prime Minister**\
-`Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
-https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
