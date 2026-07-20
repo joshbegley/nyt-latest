@@ -1,3 +1,7 @@
+**Wildfire Smoke Gives Way to Powerful Thunderstorms in the Midwest and Northeast**\
+`The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
+https://www.nytimes.com/2026/07/20/weather/midwest-thunderstorm-tornado-forecast.html
+
 **Wildfire Smoke Gives Way to Powerful Storms Threatening Millions of People**\
 `The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
 https://www.nytimes.com/2026/07/20/weather/midwest-thunderstorm-tornado-forecast.html
