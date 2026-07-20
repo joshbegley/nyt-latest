@@ -1,3 +1,7 @@
+**Despite ‘False Positive’ Test, Taylor Farms Is Still Focus of Cyclospora Investigation**\
+`The F.D.A. said it was continuing to look into the supplier’s role in the outbreak as states reported stark increases in cases.`\
+https://www.nytimes.com/2026/07/20/well/eat/cyclospora-false-positive-lettuce-taylor-farms-fda.html
+
 **Maine Democrats Are About to Replace an Oysterman With a Lumberjack. It Might Just Work.**\
 `For the state’s progressives, Graham Platner was tempting. Troy Jackson is tested.`\
 https://www.nytimes.com/2026/07/20/opinion/troy-jackson-maine-democrats.html

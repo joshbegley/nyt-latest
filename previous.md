@@ -51,7 +51,7 @@ https://www.nytimes.com/video/opinion/100000011034795/jd-vance-is-entirely-plast
 https://www.nytimes.com/video/podcasts/100000011042695/anthropics-new-ad-for-claude-is-a-mess.html
 
 **Despite ‘False Positive’ Test, Taylor Farms Is Still Focus of Cyclospora Investigation**\
-`The F.D.A. said it was continuing to look into the supplier as a big player in the outbreak as states reported stark increases in cases.`\
+`The F.D.A. said it was continuing to look into the supplier’s role in the outbreak as states reported stark increases in cases.`\
 https://www.nytimes.com/2026/07/20/well/eat/cyclospora-false-positive-lettuce-taylor-farms-fda.html
 
 **In Gaza, Spain’s Win Brings a Moment of Joy and Distraction**\
