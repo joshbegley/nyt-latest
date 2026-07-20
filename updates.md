@@ -1,3 +1,11 @@
+**No Corrections: July 20, 2026**\
+`No corrections appeared in print on Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/20/corrections/no-corrections-july-20-2026.html
+
+**Quote of the Day: Heartbreak of Quakes Is Doubled for Venezuela’s Many Migrants**\
+`Quotation of the Day for Monday, July 20, 2026.`\
+https://www.nytimes.com/2026/07/20/pageoneplus/quote-of-the-day-heartbreak-of-quakes-is-doubled-for-venezuelas-many-migrants.html
+
 **Sánchez will attend the World Cup final, and so will his vocal critic, Trump.**\
 `(No description)`\
 https://www.nytimes.com/article/tension-looms-as-trump-and-sanchez-will-attend-the-world-cup-final.html

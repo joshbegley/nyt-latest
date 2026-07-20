@@ -1,3 +1,15 @@
+**The Things Left Behind in the Hong Kong Apartment Fire**\
+`Months after a deadly fire in Hong Kong killed their loved ones, they went home to survey the ruins. Here’s what they brought back with them.`\
+https://www.nytimes.com/interactive/2026/07/20/world/asia/hong-kong-apartment-fire-families.html
+
+**Tehran and Washington Face a ‘Wake Up Moment’ Over the War**\
+`U.S. and Iranian attacks are unfolding in a way that risks a wider war they cannot contain, analysts warn, unless they can return to negotiations quickly.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalation.html
+
+**Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
+`Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
+https://www.nytimes.com/2026/07/20/world/europe/five-of-the-main-challenges-awaiting-britains-new-prime-minister.html
+
 **No Corrections: July 20, 2026**\
 `No corrections appeared in print on Monday, July 20, 2026.`\
 https://www.nytimes.com/2026/07/20/corrections/no-corrections-july-20-2026.html
@@ -149,18 +161,6 @@ https://www.nytimes.com/2026/07/19/us/cyclospora-michigan.html
 **American Jews in Difficult Times**\
 `Readers respond to “The Liberal American Jew’s Dilemma,” an Opinion guest essay by Nicholas Lemann. Also: Madonna’s message; death of a laborer.`\
 https://www.nytimes.com/2026/07/19/opinion/american-jews.html
-
-**Tajín Chicken and Peppers at the Push of a Button**\
-`A five-star slow cooker recipe that won’t heat up your house, and more summer weeknight savers.`\
-https://www.nytimes.com/2026/07/19/dining/tajin-chicken-and-peppers-at-the-push-of-a-button.html
-
-**Take a Pilgrimage, Not a Trip**\
-`I worship the sun, and I will travel to find it. This summer, I’ve been considering the difference between a trip and a pilgrimage.`\
-https://www.nytimes.com/2026/07/19/briefing/take-a-pilgrimage-not-a-trip.html
-
-**The Beautiful Game**\
-`A conversation about the World Cup.`\
-https://www.nytimes.com/2026/07/19/briefing/world-cup-final.html
 
 **Iran War Live Updates: Another U.S. Service Member Is Killed as War Expands**\
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
