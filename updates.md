@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnham-inside-92405.html
+
 **There’s Nothing Casual About Andy Burnham’s Casual Style**\
 `Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
 https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html

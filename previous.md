@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnham-inside-92405.html
+
 **There’s Nothing Casual About Andy Burnham’s Casual Style**\
 `Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
 https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/20/opinion/second-home-tax-nyc-fairness.html
 **Texas Book List: See What Students Will Be Required to Read**\
 `What is essential reading? Texas has an answer: Classics, including the Bible.`\
 https://www.nytimes.com/2026/07/20/us/texas-schools-required-reading-books.html
-
-**Does Lymphatic Drainage Massage Make Your Skin Healthier?**\
-`The technique has been used to increase circulation and in some cases reduce fluid buildup. Whether it tightens and brightens your skin is less clear.`\
-https://www.nytimes.com/2026/07/20/well/lymphatic-drainage-massage-scam-or-not.html
 
