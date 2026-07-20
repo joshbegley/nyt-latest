@@ -1,3 +1,11 @@
+**What Arizona Reveals About the Future of Food Stamps**\
+`The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months, and it may be a preview of changes nationwide. Our reporter Jason DeParle traveled to the state to understand why this happened and what effect it’s had.`\
+https://www.nytimes.com/video/us/100000010943219/what-arizona-reveals-about-the-future-of-food-stamps.html
+
+**Burnham’s Day 1 as Prime Minister: A Homeless Shelter, a Palace and Downing Street**\
+`As Andy Burnham became Britain’s seventh leader in a decade on Monday, he tried to show that he will govern differently.`\
+https://www.nytimes.com/2026/07/20/world/europe/andy-burnham-uk.html
+
 **Teherán y Washington enfrentan un momento decisivo en la guerra**\
 `Los ataques de EE. UU. e Irán avanzan de una forma que podría provocar una guerra más amplia que no puedan contener, advierten los analistas, a menos que regresen rápido a las negociaciones.`\
 https://www.nytimes.com/es/2026/07/20/espanol/mundo/guerra-iran-estados-unidos.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhatta
 **How Google’s A.I. Search Is Imperiling the Open Web**\
 `As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
 https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
-
-**A.I. ‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
-`Mobile apps are easy to make with artificial intelligence. That doesn’t mean people are excited to use them.`\
-https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
-
-**Armored Cars, Now on the American Road**\
-`Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
-https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
