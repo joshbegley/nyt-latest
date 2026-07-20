@@ -1,3 +1,7 @@
+**Wildfire Smoke Gives Way to Powerful Storms Threatening Millions of People**\
+`The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
+https://www.nytimes.com/2026/07/20/weather/midwest-thunderstorm-tornado-forecast.html
+
 **El Mayo, Who Founded Sinaloa Cartel, Sentenced to Life in Prison**\
 `Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
 https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/07/20/nyregion/nyc-explosion-federal-plaza-manhatta
 `As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
 https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
 
-**‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
+**A.I. ‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
 `Mobile apps are easy to make with artificial intelligence. That doesn’t mean people are excited to use them.`\
 https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/crosswords/wordle-review-1858.html
 **Andy Burnham Makes First Speech as Britain’s Prime Minister**\
 `Andy Burnham delivers his first speech as Britain’s new prime minister at 10 Downing Street.`\
 https://www.nytimes.com/video/embedded/world/europe/100000011041261/keir-starmer-makes-final-speech-as-british-prime-minister.html
-
-**North Sea Drilling Offers First Test for Burnham’s Relationship With Trump**\
-`Andy Burnham has not yet met President Trump, but the two men will be expected to speak shortly after Mr. Burnham becomes prime minister.`\
-https://www.nytimes.com/2026/07/20/world/europe/burnham-trump-uk-us-relationship-north-sea-oil.html
 
