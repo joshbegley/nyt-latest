@@ -1,3 +1,7 @@
+**Epidemics and Rage**\
+`Societies have always struggled with hostile reactions to health care workers during epidemics. Why?`\
+https://www.nytimes.com/2026/07/20/world/epidemics-rage-ebola-first-responders.html
+
 **Evacuees of Ontario’s Wildfires Wait and Worry**\
 `Flames crept, and then sprinted, toward unsuspecting residents who fled remote parts of northwestern Ontario. Now they want to know why officials weren’t prepared.`\
 https://www.nytimes.com/2026/07/20/world/canada/ontario-wildfire-evacuations-thunder-bay.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-r
 **Denise Oliver-Velez, a Powerful Voice of the Left, Dies at 78**\
 `She became the highest-ranking female member of the Young Lords in New York, where she pressed for women’s rights, and later joined the Black Panthers.`\
 https://www.nytimes.com/2026/07/20/us/denise-oliver-velez-dead.html
-
-**Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
-`For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
-https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
