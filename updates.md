@@ -1,3 +1,67 @@
+**Wildfire Smoke Gives Way to Powerful Thunderstorms in the Midwest and Northeast**\
+`The Midwest and the Northeast are facing potentially intense thunderstorms Monday and Tuesday.`\
+https://www.nytimes.com/2026/07/20/weather/wisconsin-midwest-storms-tornado-forecast.html
+
+**El Mayo, Who Founded Sinaloa Cartel, Sentenced to Life in Prison**\
+`Ismael Zambada García, better known as El Mayo, used an army of hit men and widespread political corruption to smuggle illegal drugs into the United States.`\
+https://www.nytimes.com/2026/07/20/nyregion/el-mayo-who-founded-sinaloa-cartel-sentenced-to-life-in-prison.html
+
+**Mapa: la trayectoria de la tormenta tropical Fausto en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Fausto.`\
+https://www.nytimes.com/es/interactive/2026/07/20/espanol/fausto-mapa-trayectoria.html
+
+**Read The Times’s Motion in Response to the Trump Administration Subpoenas**\
+`Read the motion filed by lawyers for The New York Times regarding the federal government’s effort to subpoena phone records of the news outlet’s journalists.`\
+https://www.nytimes.com/interactive/2026/07/20/us/letter-motion-in-response-to-government-letter-re-additional-subpoenas.html
+
+**Hamas Names Khalil al-Hayya as Its New Leader**\
+`Seen as closer to Iran, Khalil al-Hayya served as the Palestinian militant group’s chief negotiator with Israel and the Trump administration during the Gaza war.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/gaza-talks-khalil-al-hayya-leader.html
+
+**Trump Administration Sought Phone Records of Times Journalists and Their Relatives**\
+`The government is aggressively seeking the confidential sources of Times reporters who wrote about the president’s new Air Force One. The Times has asked a judge to quash the subpoenas.`\
+https://www.nytimes.com/2026/07/20/business/media/new-york-times-subpoenas-phone-records.html
+
+**España recibe la Copa Mundial de manos de Trump, que pausa sus ataques**\
+`El presidente estadounidense, que había calificado a España de “gente mala y sin remedio”, mostró diplomacia el domingo al galardonar a la selección del país.`\
+https://www.nytimes.com/es/2026/07/20/espanol/mundo/trump-espana-copa-mundial.html
+
+**Students March Toward India’s Parliament Over Exam Scandal**\
+`Clashes broke out between the police and supporters of India’s youth-led Cockroach Janta Party movement, as thousands marched toward parliament on Monday over the government’s medical exam scandal.`\
+https://www.nytimes.com/video/world/asia/100000011041256/students-march-toward-indias-parliament-over-exam-scandal.html
+
+**Mapa: la trayectoria de la depresión tropical Two en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Two.`\
+https://www.nytimes.com/es/interactive/2026/07/20/espanol/two-mapa-trayectoria.html
+
+**Houthis in Yemen Declare Red Sea Blockade on Saudi Arabia**\
+`The Iran-backed Houthi militia, which controls parts of Yemen, has in the past blockaded the Red Sea by threatening a choke point crucial to Saudi oil exports and global shipping.`\
+https://www.nytimes.com/2026/07/20/world/middleeast/yemen-houthis-saudi-arabia-red-sea-blockade.html
+
+**Denise Oliver-Velez, a Powerful Voice of the Left, Dies at 78**\
+`She became the highest-ranking female member of the Young Lords in New York, where she pressed for women’s rights, and later joined the Black Panthers.`\
+https://www.nytimes.com/2026/07/20/us/denise-oliver-velez-dead.html
+
+**Spain Celebrates Both a Soccer Win and a Sense of Wider Success**\
+`For many fans, the World Cup victory cemented a belief that something promising — a cultural, economic and sports revival — is happening in the country.`\
+https://www.nytimes.com/2026/07/20/world/europe/spain-victory-world-cup.html
+
+**Today, In Short**\
+`Saxophones. World Cup. And “grandma hobbies” are having a resurgence.`\
+https://www.nytimes.com/2026/07/20/briefing/today-in-short.html
+
+**Peanut Noodles With Spicy Tofu**\
+`Delicious and well-balanced, this silky noodle recipe starts with a no-cook peanut butter sauce seasoned with pantry ingredients.`\
+https://www.nytimes.com/video/dining/100000011041824/peanut-noodles-with-spicy-tofu.html
+
+**Andy Burnham Becomes U.K. Prime Minister**\
+`Andy Burnham officially became Britain’s seventh prime minister in the last ten years on Monday after being formally invited to form a government by King Charles.`\
+https://www.nytimes.com/video/world/europe/100000011041457/andy-burnham-uk-prime-minister.html
+
+**Brote de ‘Cyclospora’: ¿es seguro comer lechuga?**\
+`Funcionarios federales de salud han vinculado un gran brote de ciclosporiasis a la lechuga picada que se sirve en Taco Bell. ¿Es segura la lechuga de los supermercados y restaurantes?`\
+https://www.nytimes.com/es/2026/07/20/espanol/cyclospora-riesgo-comer-lechuga.html
+
 **Book Review: ‘Cool Machine,’ by Colson Whitehead**\
 `The final installment of his Harlem crime trilogy is full of heists, cultural shifts and nostalgia for 1980s New York.`\
 https://www.nytimes.com/2026/07/20/books/review/colson-whitehead-cool-machine.html
