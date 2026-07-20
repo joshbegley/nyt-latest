@@ -1,3 +1,7 @@
+**Man Starts Fire Outside Federal Building in Manhattan**\
+`A man started a fire and set off explosives outside a federal building in Manhattan that houses an Immigration and Customs Enforcement office.`\
+https://www.nytimes.com/video/us/100000011041998/nyc-federal-plaza-immigration-ice-incident.html
+
 **California Fires Destroyed Many Cars. Owners Are Trying to Save Them.**\
 `People in and around Altadena don’t want to give up on their beloved cars. Some have been resurrected and some turned into art.`\
 https://www.nytimes.com/2026/07/20/automobiles/collectibles/altadena-fires-cars-california.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/embedded/world/europe/100000011041525/20vid-burnha
 **There’s Nothing Casual About Andy Burnham’s Casual Style**\
 `Though it is smart. The new British prime minister is ushering in a new era of Westminster dressing.`\
 https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
-
-**Pentagon Identifies 2 U.S. Soldiers Killed in Jordan During Iran Strike**\
-`Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
-https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
