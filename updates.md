@@ -1,3 +1,7 @@
+**Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister**\
+`Andy Burnham, who is set to enter Downing Street on Monday, faces a long and daunting list of issues. Here are some of the most urgent.`\
+https://www.nytimes.com/2026/07/20/world/europe/britain-new-prime-minister-challenges.html
+
 **Spain Wins 2026 World Cup**\
 `Fans of Spain’s men’s national soccer team celebrated its World Cup victory on Sunday after Spain beat Argentina, 1-0, in extra time.`\
 https://www.nytimes.com/video/sports/soccer/100000011041199/world-cup-final-spain-argentina.html
