@@ -1,3 +1,15 @@
+**In Venezuela’s Rubble, a Search for the Family Pets**\
+`Volunteers are reuniting pets with families, offering Venezuelans comfort amid loss and devastation.`\
+https://www.nytimes.com/2026/07/20/world/americas/venezuela-earthquakes-volunteer-pets.html
+
+**The Design of the Jensen Interceptor Is Still Beloved 50 Years Later**\
+`The Jensen Interceptor featured a wraparound glass hatch that turned heads.`\
+https://www.nytimes.com/2026/07/20/automobiles/collectibles/jensen-interceptor-design.html
+
+**Dave Dawson, Co-Founder of Bespoke Lighting Company Urban Electric, Dies at 53**\
+`He and his wife knew nothing about the business when they decided to produce lighting in Charleston, S.C. Their company became a beacon of American manufacturing.`\
+https://www.nytimes.com/2026/07/20/arts/design/dave-dawson-dead.html
+
 **Inside the Deadly U.S. Airstrike on a Shadow Fleet Tanker**\
 `Evidence suggests the ship on which three Indian sailors died was not moving when it was struck in the Gulf of Oman, but it had been engaged in risky offshore transfers of oil.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/inside-the-deadly-us-airstrike-on-a-shadow-fleet-tanker.html
