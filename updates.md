@@ -1,3 +1,7 @@
+**Spain Rejoices and Argentina Weeps as 2026 World Cup Ends**\
+`See how crowds in Madrid and in Rosario, Argentina, took in the tournament’s nail-biter final. Spain prevailed, 1-0.`\
+https://www.nytimes.com/2026/07/20/sports/world-cup/world-cup-final-spain-argentina-reactions.html
+
 **‘Ransom Canyon,’ and 5 More Shows to Watch on TV This Week**\
 `The second season of the cowboy drama airs. And a documentary shows the behind the scenes of the “Heartstopper: Forever” movie.`\
 https://www.nytimes.com/2026/07/20/arts/television/ransom-canyon-tv-shows-to-watch.html

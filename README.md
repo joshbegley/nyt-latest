@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/07/19/dining/get-me-to-the-grill.html
 `The Pentagon said a service member was killed in northern Iraq while troops disposed of an Iranian drone. It also said “unidentified remains” were found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 
-**World Cup Updates: ‘I Can’t Believe We Get to Be Here,’ Say Fans Watching the Final**\
+**World Cup Updates: Cheers in Spain and Tears in Argentina After Nail-Biter Final**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 
