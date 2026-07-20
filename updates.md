@@ -1,3 +1,11 @@
+**How Google’s A.I. Search Is Imperiling the Open Web**\
+`As Google incorporates more artificial intelligence into search, people are spending more time on Google. Some website operators are crying foul.`\
+https://www.nytimes.com/2026/07/20/technology/google-ai-open-web.html
+
+**‘Vibecoded’ Apps Are Flooding Apple’s App Store**\
+`Mobile apps are easy to make with artificial intelligence. That doesn’t mean people are excited to use them.`\
+https://www.nytimes.com/2026/07/20/technology/apple-app-store-vibecoding.html
+
 **Armored Cars, Now on the American Road**\
 `Drivers are paying for amenities once reserved for banks, law enforcement and the military.`\
 https://www.nytimes.com/2026/07/20/style/armored-cars-bulletproof-american-drivers.html
