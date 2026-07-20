@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/07/19/crosswords/strands-sidekick-869.html
 `The Pentagon said a service member was killed in northern Iraq on Saturday while troops disposed of an Iranian drone. It also said “unidentified remains” had been found in Jordan, where an earlier attack had left two soldiers dead and another missing.`\
 https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz
 
-**World Cup Updates: MetLife Stadium Faces Huge Last Test Hosting Grand Finale**\
+**World Cup Updates: ‘I Can’t Believe We Get to Be Here,’ Say Fans Watching the Final**\
 `(No description)`\
 https://www.nytimes.com/live/2026/us/fifa-world-cup
 
