@@ -31,7 +31,7 @@ https://www.nytimes.com/es/2026/07/20/espanol/cultura/gustavo-dudamel-victimas-t
 https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-george-floyd.html
 
 **Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
-`As chancellor, John Healey, who quit as defense secretary in the former government, will fill one of the most consequential posts, overseeing spending and debt, and shepherding economic policy.`\
+`As chancellor, John Healey, who quit as defense secretary in the former government, will fill one of the most consequential posts, overseeing fiscal and economic policy.`\
 https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
 
 **American Deaths in the Iran War**\

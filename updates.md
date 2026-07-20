@@ -1,3 +1,11 @@
+**California Fires Destroyed Many Cars. Owners Are Trying to Save Them.**\
+`People in and around Altadena don’t want to give up on their beloved cars. Some have been resurrected and some turned into art.`\
+https://www.nytimes.com/2026/07/20/automobiles/collectibles/altadena-fires-cars-california.html
+
+**Car Collectors Are Increasingly Shopping on Online Auctions**\
+`Many collectors buy their classics online and never touch them until they arrive in their garage. And the practice is growing.`\
+https://www.nytimes.com/2026/07/20/automobiles/collectibles/cars-no-test-drive.html
+
 **In Venezuela’s Rubble, a Search for the Family Pets**\
 `Volunteers are reuniting pets with families, offering Venezuelans comfort amid loss and devastation.`\
 https://www.nytimes.com/2026/07/20/world/americas/venezuela-earthquakes-volunteer-pets.html

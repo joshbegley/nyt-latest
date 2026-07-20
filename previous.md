@@ -1,3 +1,11 @@
+**California Fires Destroyed Many Cars. Owners Are Trying to Save Them.**\
+`People in and around Altadena don’t want to give up on their beloved cars. Some have been resurrected and some turned into art.`\
+https://www.nytimes.com/2026/07/20/automobiles/collectibles/altadena-fires-cars-california.html
+
+**Car Collectors Are Increasingly Shopping on Online Auctions**\
+`Many collectors buy their classics online and never touch them until they arrive in their garage. And the practice is growing.`\
+https://www.nytimes.com/2026/07/20/automobiles/collectibles/cars-no-test-drive.html
+
 **In Venezuela’s Rubble, a Search for the Family Pets**\
 `Volunteers are reuniting pets with families, offering Venezuelans comfort amid loss and devastation.`\
 https://www.nytimes.com/2026/07/20/world/americas/venezuela-earthquakes-volunteer-pets.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/20/style/andy-burnham-prime-minister-style.html
 **Pentagon Identifies 2 U.S. Soldiers Killed in Jordan During Iran Strike**\
 `Both were active-duty soldiers, the Defense Department said. They were killed in action after an Iranian strike on a U.S. base on Friday.`\
 https://www.nytimes.com/2026/07/20/us/iran-war-us-soldiers-killed-jordan-identified.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011041486/20vid-burnham-car-66076.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011041462/20vid-burnham-palace-69661.html
 
 **Iran War Live Updates: Iran-Backed Houthis Expand Conflict With Red Sea Blockade**\
 `The move against Saudi ships will add new pressure on energy markets. Tehran said it had received new proposals from mediators.`\
