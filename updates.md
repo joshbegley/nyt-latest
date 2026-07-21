@@ -1,3 +1,11 @@
+**Roger Rogoff Files Suit Challenging Trump’s Power to Fire Him**\
+`In the first lawsuit of its kind, Roger Rogoff argues that the Trump administration cannot fire him as U.S. attorney without first winning Senate approval for another candidate.`\
+https://www.nytimes.com/2026/07/21/us/roger-rogoff-doj-lawsuit.html
+
+**Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
+`A 2023 software glitch at the state’s Motor Vehicle Commission led to roughly 6,600 noncitizens being registered to vote during the Murphy administration, Gov. Mikie Sherrill announced.`\
+https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
+
 **Trump Pushes Chinese Election Threat, but Files Show Russia’s Heavy Hand**\
 `Intelligence documents that the White House released to back up President Trump’s claims about China highlight Russian efforts to influence U.S. elections.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-china-russia-election.html

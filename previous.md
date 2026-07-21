@@ -1,3 +1,7 @@
+**Roger Rogoff Files Suit Challenging Trump’s Power to Fire Him**\
+`In the first lawsuit of its kind, Roger Rogoff argues that the Trump administration cannot fire him as U.S. attorney without first winning Senate approval for another candidate.`\
+https://www.nytimes.com/2026/07/21/us/roger-rogoff-doj-lawsuit.html
+
 **Trump Pushes Chinese Election Threat, but Files Show Russia’s Heavy Hand**\
 `Intelligence documents that the White House released to back up President Trump’s claims about China highlight Russian efforts to influence U.S. elections.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-china-russia-election.html
@@ -74,8 +78,8 @@ https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.h
 `The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
 https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
 
-**D.M.V. Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
-`A software glitch in 2023 at the New Jersey Department of Motor Vehicles led to roughly 6,600 noncitizens being registered to vote, Gov. Mikie Sherrill announced on Tuesday.`\
+**Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
+`A 2023 software glitch at the state’s Motor Vehicle Commission led to roughly 6,600 noncitizens being registered to vote during the Murphy administration, Gov. Mikie Sherrill announced.`\
 https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
 
 **Oil Firms Knew for Decades of Methane’s Danger to Planet, Documents Suggest**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-h
 **Arizona First Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-1-primary.html
-
-**Arizona Eighth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-8-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
