@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011045150/Biz-Bangladesh-Irrigation-video.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011045038/21vid-hegseth-interruptions.html
+
 **Houthis Threaten Red Sea Blockade, Putting Oil Market at Greater Risk**\
 `With the Strait of Hormuz effectively closed, the militant group’s threats in the Red Sea jeopardize Saudi Arabia’s main workaround for oil exports.`\
 https://www.nytimes.com/2026/07/21/business/oil-red-sea-houthis.html
