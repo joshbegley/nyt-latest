@@ -1,3 +1,7 @@
+**Lives Lost**\
+`We look at the American casualties in the war with Iran.`\
+https://www.nytimes.com/2026/07/21/briefing/american-casualties-iran-war.html
+
 **‘Les Misérables’ in Concert and More: A Show’s Never-Ending Life**\
 `Concert versions and touring productions keep the spirit of 19th-century French revolutionaries alive.`\
 https://www.nytimes.com/2026/07/21/theater/les-miserables-valjean-javert.html
