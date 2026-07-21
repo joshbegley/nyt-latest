@@ -1,3 +1,15 @@
+**Epidemias de ira**\
+`Las sociedades siempre han tenido que lidiar con reacciones hostiles dirigidas contra los trabajadores de la salud durante las epidemias. ¿Por qué?`\
+https://www.nytimes.com/es/2026/07/21/espanol/mundo/epidemias-ira-trabajadores-salud.html
+
+**Philippines Says Sailor Was Injured in Skirmish With Chinese Coast Guard**\
+`China said it was not the aggressor in the episode, which was the latest flare-up in the South China Sea between the two countries.`\
+https://www.nytimes.com/2026/07/21/world/asia/philippines-south-china-sea-sailor-injured.html
+
+**Protesters Rally Against Zelensky’s Firing of Defense Minister**\
+`Demonstrators in Ukraine spoke out against President Volodymyr Zelensky, who fired Ukraine’s defense minister, Mykhailo Fedorov, last week. Mr. Fedorov had risen in popularity after he promoted drone warfare.`\
+https://www.nytimes.com/video/world/europe/100000011042816/kyiv-zelensky-protests-defense-minister.html
+
 **As the Iran War Escalates, Is the U.S. Hiding Its Toll?**\
 `Officials said dozens of U.S. service members have been injured in the war this month. The Pentagon said it didn’t initially disclose the injuries to protect operational security.`\
 https://www.nytimes.com/2026/07/21/podcasts/the-daily/iran-war-us-soldiers.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/21/fashion/watches-vortic-colorado.html
 **Advice on Traveling With Autism and for Parents of Neurodiverse Children**\
 `The noise and chaos of flying can be overwhelming for people on the spectrum. Here are some ways to ease the stress and make the trip more comfortable.`\
 https://www.nytimes.com/2026/07/21/travel/autism-neurodiverse-children-travel-tips.html
-
-**The Serenity of a Stream Leads to a Prizewinning Watch**\
-`Shin Ohno’s adaptable pocket watch takes the top award at the 2026 F.P. Journe Young Talent Competition.`\
-https://www.nytimes.com/2026/07/21/fashion/watches-journe-talent-competition-japan.html
-
-**An Executive’s Love of Roses Influenced His Brand**\
-`Yves Piaget’s lifelong passion for blooms has been reflected in Piaget’s watches and jewelry.`\
-https://www.nytimes.com/2026/07/21/fashion/yves-piaget-roses-monaco.html
-
-**Should I Use Vaginal Estrogen for Menopause Symptoms?**\
-`Here’s what to consider before trying it.`\
-https://www.nytimes.com/2026/07/21/well/live/vaginal-estrogen-menopause-symptoms.html
 
