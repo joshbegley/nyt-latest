@@ -1,3 +1,7 @@
+**NYC Businesses Brace for More Flooding With Severe Storms in the Forecast**\
+`Some businesses in low-lying areas of New York City have developed routines to keep their goods and customers dry.`\
+https://www.nytimes.com/2026/07/21/nyregion/nyc-flooding-storms-rain.html
+
 **A Wartime Rift in Ukraine**\
 `President Volodymyr Zelensky fired his top general after a feud between old-school officers and younger innovators spilled into the streets.`\
 https://www.nytimes.com/2026/07/21/world/ukraine-general-fired-india-protests.html
