@@ -1,3 +1,7 @@
+**Even Under Populism, Elite Failure Is Still a Problem**\
+`A new critique of Trumpism is too easy on elites.`\
+https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
+
 **NYC Businesses Brace for More Flooding With Severe Storms in the Forecast**\
 `Some businesses in low-lying areas of New York City have developed routines to keep their goods and customers dry.`\
 https://www.nytimes.com/2026/07/21/nyregion/nyc-flooding-storms-rain.html
