@@ -1,5 +1,9 @@
 ****\
 `(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011045150/Biz-Bangladesh-Irrigation-video.html
+
+****\
+`(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011045038/21vid-hegseth-interruptions.html
 
 **Restaurant Review: Stars in New York**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/technology/meta-ai-facebook-instagram-account
 **Democrats Demand Information From Law Firm Over Its Deal With Trump**\
 `The demand from top congressional Democrats signals their plans to investigate the nature of law firms’ agreements with the Trump administration if they return to power after the midterm elections.`\
 https://www.nytimes.com/2026/07/21/us/politics/democrats-demand-information-from-law-firm-over-its-deal-with-trump.html
-
-**Judges Reject Biden’s Effort to Keep Memoir Recordings Private**\
-`The former president is fighting the Justice Department’s effort to release tapes and transcripts.`\
-https://www.nytimes.com/2026/07/21/us/politics/biden-recordings.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
