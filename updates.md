@@ -1,3 +1,15 @@
+**A Wartime Rift in Ukraine**\
+`President Volodymyr Zelensky fired his top general after a feud between old-school officers and younger innovators spilled into the streets.`\
+https://www.nytimes.com/2026/07/21/world/ukraine-general-fired-india-protests.html
+
+**Call the Veep, Agent Mulder!**\
+`Have the “space Jews” come to get us at last?`\
+https://www.nytimes.com/2026/07/21/opinion/jd-vance-vice-president.html
+
+**What to Know About Iran’s Pickaxe Mountain**\
+`The fortified underground complex, in central Iran, is about one mile away from the Natanz uranium enrichment facility.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/pickaxe-mountain-iran-nuclear.html
+
 **What to Know About Iran’s Pickaxe Mountain**\
 `The fortified underground complex, in central Iran, is about one mile away from the Natanz uranium enrichment facility.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/what-to-know-about-irans-pickaxe-mountain.html

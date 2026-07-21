@@ -1,6 +1,14 @@
+**A Wartime Rift in Ukraine**\
+`President Volodymyr Zelensky fired his top general after a feud between old-school officers and younger innovators spilled into the streets.`\
+https://www.nytimes.com/2026/07/21/world/ukraine-general-fired-india-protests.html
+
+**Call the Veep, Agent Mulder!**\
+`Have the “space Jews” come to get us at last?`\
+https://www.nytimes.com/2026/07/21/opinion/jd-vance-vice-president.html
+
 **What to Know About Iran’s Pickaxe Mountain**\
 `The fortified underground complex, in central Iran, is about one mile away from the Natanz uranium enrichment facility.`\
-https://www.nytimes.com/2026/07/21/world/middleeast/what-to-know-about-irans-pickaxe-mountain.html
+https://www.nytimes.com/2026/07/21/world/middleeast/pickaxe-mountain-iran-nuclear.html
 
 **What the Cyclospora Outbreak Reveals**\
 `Warming is expected to fuel the spread of food-borne pathogens. We might not be prepared.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contami
 **Kaylee Hottle, ‘Godzilla vs. Kong’ Actress, Dies in Car Crash**\
 `A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
 https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
-
-**How Republicans Turned Olive Garden Into a Voter ID Talking Point**\
-`Republicans claim that Olive Garden polices its Never-Ending Pasta Bowl more tightly than the United States does its elections. It’s not that simple.`\
-https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-act-republicans.html
-
-**Restaurant Review: Chez Panisse and Bar Panisse in Berkeley**\
-`The Bay Area farm-to-table classic changed the American restaurant scene. Now it has opened a dynamic new place right next door.`\
-https://www.nytimes.com/2026/07/21/dining/restaurant-review-chez-panisse.html
 
