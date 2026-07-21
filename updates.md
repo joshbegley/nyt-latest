@@ -1,3 +1,11 @@
+**Drenaje linfático para el rostro: ¿qué beneficios tiene?**\
+`La técnica se ha utilizado para aumentar la circulación y, en algunos casos, reducir la acumulación de líquidos. Es menos claro si tensa e ilumina tu piel.`\
+https://www.nytimes.com/es/2026/07/21/espanol/masaje-drenaje-linfatico-piel-rostro.html
+
+**France Joins a Global Move Toward to Restricting Social Media for Children**\
+`Its new law, the first of its kind enacted by a European country, will ban access to some accounts for anyone under 15.`\
+https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
+
 **Watch Live: Hegseth and Caine Testify Before the Senate**\
 `Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations Committee.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011043847/watch-live-hegseth-and-caine-testify-before-the-senate.html
