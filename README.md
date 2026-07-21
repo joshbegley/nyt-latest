@@ -1,3 +1,11 @@
+**When Protesters Speak, Zelensky Listens, in the Ukrainian Tradition**\
+`With anger high over the firing of the defense minister, the president’s office is signaling an openness to compromise.`\
+https://www.nytimes.com/2026/07/21/world/europe/ukraine-zelensky-protests.html
+
+**‘Play, Don’t Pay’: Meet the College Football YouTuber Who Led a Gaming Revolt**\
+`James Bordeaux explains what happens when creators show principles — and how populism can work online.`\
+https://www.nytimes.com/2026/07/21/podcasts/pay-dont-play-college-football-youtuber-gaming-revolt.html
+
 **Tuesday Forecast: Millions In Northeast Face Heavy Rain and Powerful Winds**\
 `Forecasters zeroed in on an area from Kentucky to New York as being the most at risk for dangerous weather.`\
 https://www.nytimes.com/2026/07/21/weather/new-york-rain-flood-forecast.html
@@ -167,7 +175,7 @@ https://www.nytimes.com/2026/07/21/fashion/clocks-paris-france.html
 https://www.nytimes.com/2026/07/21/books/review/bitchy-roberta-gregory.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
-`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
+`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
 https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
 
 **UK’s New Prime Minister Burnham Orders Cut in Taxes on Electricity**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/arts/television/late-night-trump-soccer-fifa-
 **Los griegos opinan sobre ‘La odisea’ de Nolan**\
 `Antes de su llegada a las salas, muchos en Grecia dudaban de esta nueva versión de un relato que consideran suyo. Pero tras el fin de semana de estreno, las reseñas fueron en su mayoría positivas.`\
 https://www.nytimes.com/es/2026/07/21/espanol/cultura/odisea-nolan-grecia.html
-
-**¿Es así como se ve una era posalfabetizada?**\
-`No son los niños los que dejaron de leer. Son sus abuelos.`\
-https://www.nytimes.com/es/2026/07/21/espanol/opinion/leer-telefonos-celulares.html
-
-**The World Cup in New York and New Jersey, by the Numbers**\
-`The World Cup brought hordes of soccer fans to town, and locals flocked to watch parties. But did the games deliver on promises of an economic boon?`\
-https://www.nytimes.com/2026/07/21/nyregion/world-cup-nyc-nj-economy.html
 
