@@ -1,3 +1,19 @@
+**La ‘Cyclospora’ se propaga a través de las heces humanas. ¿Cómo llegó al suministro de alimentos?**\
+`El gran número de casos sugiere que el excremento ingresó al sistema alimentario a una “escala sorprendente”.`\
+https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contaminacion-comida.html
+
+**Kaylee Hottle, Actress in ‘Godzilla’ Movies, Is Killed in Car Crash**\
+`A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
+https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
+
+**How Republicans Made Olive Garden Into a Voter ID Talking Point**\
+`Republicans claim that Olive Garden polices its Never-Ending Pasta Bowl more tightly than the United States does its elections. It’s not that simple.`\
+https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-act-republicans.html
+
+**Restaurant Review: Chez Panisse and Bar Panisse in Berkeley**\
+`The Bay Area farm-to-table classic changed the American restaurant scene. Now it has opened a dynamic new place right next door.`\
+https://www.nytimes.com/2026/07/21/dining/restaurant-review-chez-panisse.html
+
 **France Is Poised to Restrict Social Media for Children**\
 `Its new law, which would be the first of its kind enacted by a European country, would ban access to some accounts for anyone under 15.`\
 https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
