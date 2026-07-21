@@ -1,3 +1,15 @@
+**Susumu Tonegawa Dies at 86; Nobel Laureate Showed How Antibodies Fight Infection**\
+`The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
+https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
+
+**Software Error Led to 400 Noncitizens Voting in N.J., Gov. Sherrill Says**\
+`The New Jersey Department of Motor Vehicles glitch also led to roughly 6,600 noncitizens being registered to vote.`\
+https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
+
+**Oil Firms Knew for Decades of Methane’s Danger to Planet, Documents Suggest**\
+`The companies knew they were releasing more of the greenhouse gas than they publicly reported, according to industry files cited by the Center for Climate Integrity, an activist organization.`\
+https://www.nytimes.com/2026/07/21/climate/methane-natural-gas-leaks-flaring.html
+
 **The Next Big Thing in Men’s Pants? It’s Stolen From the Ladies.**\
 `Plus: Japan’s leg-hair debate and some final World Cup fashion thoughts.`\
 https://www.nytimes.com/2026/07/21/style/pants-paper-bag-menswear.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.htm
 **Lives Lost**\
 `We look at the American casualties in the war with Iran.`\
 https://www.nytimes.com/2026/07/21/briefing/american-casualties-iran-war.html
-
-**Lebanese Army Accuses Israeli Troops of Firing as Its Forces Deploy in ‘Pilot Zone’**\
-`The Israeli military was withdrawing from a village under a U.S.-brokered deal to transfer control of occupied areas to Lebanon after months of war. The Israeli military did not immediately comment.`\
-https://www.nytimes.com/2026/07/21/world/middleeast/lebanon-israel-ceasefire-plan.html
-
-**Epidemias de ira**\
-`Las sociedades siempre han tenido que lidiar con reacciones hostiles dirigidas contra los trabajadores de la salud durante las epidemias. ¿Por qué?`\
-https://www.nytimes.com/es/2026/07/21/espanol/mundo/epidemias-ira-trabajadores-salud.html
-
-**Philippines Says Sailor Was Injured in Skirmish With Chinese Coast Guard**\
-`China said it was not the aggressor in the episode, which was the latest flare-up in the South China Sea between the two countries.`\
-https://www.nytimes.com/2026/07/21/world/asia/philippines-south-china-sea-sailor-injured.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
