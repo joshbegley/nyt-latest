@@ -1,3 +1,7 @@
+**Daniel Ortega, presidente de Nicaragua, dice que planea abolir las elecciones**\
+`Ortega, copresidente del país junto a su esposa, Rosario Murillo, es acusado de manipular las elecciones recientes. Ahora, el líder autoritario dice que la nación ni siquiera celebrará una votación.`\
+https://www.nytimes.com/es/2026/07/20/espanol/america-latina/nicaragua-ortega-elecciones.html
+
 **Trump Rejected Nearly 6,000 Clemency Applications Amid Hope of Pardon Wave**\
 `Expectations were raised for a raft of pardons in connection with the country’s 250th birthday but the president granted fewer than 20 on July 3.`\
 https://www.nytimes.com/2026/07/20/us/politics/trump-rejected-clemency-applications.html
