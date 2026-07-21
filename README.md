@@ -1,3 +1,7 @@
+**Mykhailo Drapatyi: What to Know About Ukraine’s New Top General**\
+`Maj. Gen. Mykhailo Drapatyi, a decorated commander, is popular both inside and outside of his country.`\
+https://www.nytimes.com/2026/07/21/world/europe/ukraine-mykhailo-drapatyi.html
+
 **Cyclospora Cases in the U.S. Hit Record High**\
 `Federal health officials have confirmed another 2,500 cases of the parasitic infection.`\
 https://www.nytimes.com/2026/07/21/well/cyclospora-cases-record-cdc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011043974/jimothy-viral-raccoon-seattle.h
 **El Pentágono ocultó la cifra de soldados heridos en ataques recientes de Irán**\
 `En las redes sociales, el Pentágono informó el lunes que la cifra de militares estadounidenses muertos, heridos o desaparecidos por los ataques iraníes desde el 7 de julio había ascendido a casi 100.`\
 https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/guerra-iran-soldados-heridos.html
-
-**How Laurie Anderson and Julia Sherman Throw a Party**\
-`For a memorable sweet and a celebratory gathering, the chef and writer Julia Sherman teamed up with the musician and artist.`\
-https://www.nytimes.com/2026/07/21/t-magazine/laurie-anderson-julia-sherman-oberon-lunch.html
 
