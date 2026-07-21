@@ -1,3 +1,11 @@
+**Judges Reject Biden’s Effort to Keep Memoir Recordings Private**\
+`The former president is fighting the Justice Department’s effort to release tapes and transcripts.`\
+https://www.nytimes.com/2026/07/21/us/politics/biden-recordings.html
+
+**Europe Cancels Venice Biennale Funding Over Russia’s Return**\
+`The European authorities had warned the organizers of the major art show for months that they would lose funding if Russia took part.`\
+https://www.nytimes.com/2026/07/21/arts/design/european-commission-venice-biennale-russia.html
+
 **Today, In Short**\
 `Bats. Gatekeepers. And shorts at the office.`\
 https://www.nytimes.com/2026/07/21/briefing/today-in-short.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/podcasts/pay-dont-play-college-football-youtu
 **Tuesday Forecast: Millions In Northeast Face Heavy Rain and Powerful Winds**\
 `Forecasters zeroed in on an area from Kentucky to New York as being the most at risk for dangerous weather.`\
 https://www.nytimes.com/2026/07/21/weather/new-york-rain-flood-forecast.html
-
-**Trump’s Kiss of Death**\
-`On top of everything else, the president is inept.`\
-https://www.nytimes.com/2026/07/21/opinion/trump-inept-second-term.html
-
-**Cyclospora Spreads Through Human Feces. How Did It Get Into Our Food Supply?**\
-`The large number of cases suggests that excrement entered the food system on a “surprising scale.”`\
-https://www.nytimes.com/2026/07/21/well/eat/how-cyclospora-contaminates-food.html
 

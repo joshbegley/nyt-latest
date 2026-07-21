@@ -1,3 +1,11 @@
+**Judges Reject Biden’s Effort to Keep Memoir Recordings Private**\
+`The former president is fighting the Justice Department’s effort to release tapes and transcripts.`\
+https://www.nytimes.com/2026/07/21/us/politics/biden-recordings.html
+
+**Europe Cancels Venice Biennale Funding Over Russia’s Return**\
+`The European authorities had warned the organizers of the major art show for months that they would lose funding if Russia took part.`\
+https://www.nytimes.com/2026/07/21/arts/design/european-commission-venice-biennale-russia.html
+
 **Today, In Short**\
 `Bats. Gatekeepers. And shorts at the office.`\
 https://www.nytimes.com/2026/07/21/briefing/today-in-short.html
