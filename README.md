@@ -1,3 +1,7 @@
+**Así buscaron dos chicos a sus familiares en los escombros de La Guaira**\
+`Winder y Deivi Delfín excavaron durante 26 días para encontrar los cuerpos de su madre, su hermano y su abuela.`\
+https://www.nytimes.com/es/2026/07/21/espanol/america-latina/venezuela-terremotos-busqueda-victimas.html
+
 **Pentagon Identifies Soldier Killed in Iran War as Sgt. Michael Emmanuel Swinton**\
 `Sgt. Michael Emmanuel Swinton, the 17th service member to be named, was killed during the disposal of a drone in northern Iraq.`\
 https://www.nytimes.com/2026/07/21/us/pentagon-identifies-soldier-iran-war-emmanuel-swinton.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/health/hantavirus-quarantine-americans.html
 **Philippe Stern Took Risks. Patek Philippe Shows They Paid Off.**\
 `As president of the Swiss brand until 2009, he put his faith in preserving mechanical watchmaking, a decision now seen as key to the company’s current success.`\
 https://www.nytimes.com/2026/07/21/fashion/philippe-stern-patek-philippe.html
-
-**Maduro’s Case Is Due Back in Court. Prosecutors May Be in for a Big Surprise.**\
-`It’s a story a century old.`\
-https://www.nytimes.com/2026/07/21/opinion/nicolas-maduro-court-extradition.html
 
