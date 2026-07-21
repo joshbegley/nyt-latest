@@ -1,3 +1,7 @@
+**New UK Prime Minister Burnham Promises Hope and Change. The Hurdles Are High.**\
+`Britain’s new prime minister, Andy Burnham, promised policies that would give average Britons financial “breathing space.” His opponents are already doling out criticism.`\
+https://www.nytimes.com/2026/07/21/world/europe/andy-burnham-new-uk-prime-minister-policies.html
+
 **Flash Floods Kill at Least 23 in Afghanistan**\
 `Dozens remained missing after floods swept through a city in Nuristan, an isolated province in the country’s east.`\
 https://www.nytimes.com/2026/07/21/world/asia/afghanistan-floods-deaths-nuristan.html

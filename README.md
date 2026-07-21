@@ -1,3 +1,7 @@
+**NYT Strands Hints for July 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/21/crosswords/strands-sidekick-871.html
+
 **New UK Prime Minister Burnham Promises Hope and Change. The Hurdles Are High.**\
 `Britain’s new prime minister, Andy Burnham, promised policies that would give average Britons financial “breathing space.” His opponents are already doling out criticism.`\
 https://www.nytimes.com/2026/07/21/world/europe/andy-burnham-new-uk-prime-minister-policies.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/europe/uk-andy-burnham-electricity-tax-
 **Ferry Capsizes in Guyana, Killing Dozens**\
 `A ferry in Guyana thought to be overloaded capsized over the weekend, killing dozens. Many are still missing, and the authorities said the total number of victims was unclear.`\
 https://www.nytimes.com/video/world/americas/100000011043291/guyana-ferry-sinking-barima.html
-
-**Australian Woman Gives Birth to ‘Miracle’ Identical Quadruplets**\
-`Doctors said the arrival of Emily, Harriet, Catherine and Alexa, who were conceived naturally and split from one fertilized egg, is an extremely rare event.`\
-https://www.nytimes.com/2026/07/21/world/australia/australia-identical-quadruplets-birth.html
 
