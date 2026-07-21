@@ -1,3 +1,7 @@
+**Street Style Look of the Week: Ex-Roommates Still on the Same Fashion Wavelength**\
+`It’s been a while since Angelina Ellis and Aiden Smith roomed together at Butler University, but the sartorial synchronicity still flares up on occasion.`\
+https://www.nytimes.com/2026/07/21/style/street-style-look-cutoff-denim.html
+
 **Trump Is Squeezing Canada. Don’t Expect Carney to Roll Over.**\
 `The president’s new tariffs on a top U.S. trading partner aim at gaining concessions, but the Canadian government, and the public, have been bracing for the escalation.`\
 https://www.nytimes.com/2026/07/21/world/canada/trump-carney-trade-tariffs.html
