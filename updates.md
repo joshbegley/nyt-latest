@@ -1,3 +1,11 @@
+**Houthis Threaten to Block Saudi Ships in Red Sea**\
+`Supporters of the Iran-backed Houthi militia in Yemen rallied on Monday after it said it would block Saudi ships in the Red Sea, threatening to open a new front in the war rippling across the Middle East.`\
+https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blockade-saudi-arabia-red-sea.html
+
+**Will the U.S. and China Build Walls Around A.I.?**\
+`Rapid advancements in Chinese artificial intelligence models reportedly have Washington and Beijing considering new ways to protect their technology sectors.`\
+https://www.nytimes.com/2026/07/21/business/dealbook/us-china-ai-limits.html
+
 **Pan Am Clipper Endeavor Is Found After Over 70 Years Lost at Sea**\
 `Fifty-two of the 69 people aboard the plane died when it crashed off Puerto Rico and sank to the bottom of the Atlantic Ocean.`\
 https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.html

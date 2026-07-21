@@ -1,3 +1,11 @@
+**Houthis Threaten to Block Saudi Ships in Red Sea**\
+`Supporters of the Iran-backed Houthi militia in Yemen rallied on Monday after it said it would block Saudi ships in the Red Sea, threatening to open a new front in the war rippling across the Middle East.`\
+https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blockade-saudi-arabia-red-sea.html
+
+**Will the U.S. and China Build Walls Around A.I.?**\
+`Rapid advancements in Chinese artificial intelligence models reportedly have Washington and Beijing considering new ways to protect their technology sectors.`\
+https://www.nytimes.com/2026/07/21/business/dealbook/us-china-ai-limits.html
+
 **Pan Am Clipper Endeavor Is Found After Over 70 Years Lost at Sea**\
 `Fifty-two of the 69 people aboard the plane died when it crashed off Puerto Rico and sank to the bottom of the Atlantic Ocean.`\
 https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/books/review/the-mortons-justine-larbalestier
 **Patek Philippe Debuted the Nautilus 50 Years Ago**\
 `Four new pieces commemorate the golden anniversary of a design that initially attracted little enthusiasm but now is the brand’s defining model.`\
 https://www.nytimes.com/2026/07/21/fashion/watches-patek-philippe-nautilus-at-50.html
-
-**What’s in a Watch Shape?**\
-`The unusual silhouettes popular in the 1960s and 1970s seem to be recapturing the fancy of fans.`\
-https://www.nytimes.com/2026/07/21/fashion/watch-shapes-cartier.html
-
-**Cristo Fernandez Talks Returning to Pro Soccer After “Ted Lasso”**\
-`Cristo Fernandez was a soccer player before he was an actor. After finding TV stardom, he’s making the unlikely return to his first career.`\
-https://www.nytimes.com/2026/07/21/arts/television/cristo-fernandez-dani-rojas-interview.html
 
