@@ -1,3 +1,7 @@
+**Review Says Gates Foundation Did Not Participate in Epstein Crimes**\
+`A review by an outside law firm hired by the Gates Foundation investigated only the philanthropy and not Mr. Gates or his private office.`\
+https://www.nytimes.com/2026/07/21/business/gates-foundation-epstein.html
+
 **Here is the official plan to fix issues at Rikers Island**\
 `The official in charge of fixing New York City’s troubled jails submitted a plan to a federal judge on Tuesday to improve conditions at Rikers Island, calling for changes to investigations and discipline, as well as to some infrastructure.`\
 https://www.nytimes.com/interactive/2026/07/21/nyregion/rikers-plan.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/briefing/today-in-short.html
 **Google Releases Three New Gemini A.I. Models**\
 `The models include one that is the company’s most powerful and another that is fine-tuned for cybersecurity, as Google competes with rivals like OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/07/21/technology/google-ai-cybersecurity-gemini.html
-
-**Ava DuVernay’s Documentary ’14th’ Will Close New York Film Festival**\
-`Described as a “sequel of sorts” to “13TH,” the new movie argues that the 14th Amendment, which guarantees birthright citizenship, is under attack.`\
-https://www.nytimes.com/2026/07/21/movies/ava-duvernay-14th-new-york-film-festival.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

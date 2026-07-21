@@ -1,3 +1,7 @@
+**Here is the official plan to fix issues at Rikers Island**\
+`The official in charge of fixing New York City’s troubled jails submitted a plan to a federal judge on Tuesday to improve conditions at Rikers Island, calling for changes to investigations and discipline, as well as to some infrastructure.`\
+https://www.nytimes.com/interactive/2026/07/21/nyregion/rikers-plan.html
+
 **Zelensky Dismisses Ukraine’s Top General**\
 `The move follows a wave of protests in response to the firing of the defense minister, who had clashed with the general over how to fight the war.`\
 https://www.nytimes.com/2026/07/21/world/europe/ukraine-syrskyi-russia-war-fedorov-zelensky-protest.html

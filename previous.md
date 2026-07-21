@@ -1,3 +1,7 @@
+**Here is the official plan to fix issues at Rikers Island**\
+`The official in charge of fixing New York City’s troubled jails submitted a plan to a federal judge on Tuesday to improve conditions at Rikers Island, calling for changes to investigations and discipline, as well as to some infrastructure.`\
+https://www.nytimes.com/interactive/2026/07/21/nyregion/rikers-plan.html
+
 **Zelensky Dismisses Ukraine’s Top General**\
 `The move follows a wave of protests in response to the firing of the defense minister, who had clashed with the general over how to fight the war.`\
 https://www.nytimes.com/2026/07/21/world/europe/ukraine-syrskyi-russia-war-fedorov-zelensky-protest.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/technology/google-ai-cybersecurity-gemini.htm
 **Ava DuVernay’s Documentary ’14th’ Will Close New York Film Festival**\
 `Described as a “sequel of sorts” to “13TH,” the new movie argues that the 14th Amendment, which guarantees birthright citizenship, is under attack.`\
 https://www.nytimes.com/2026/07/21/movies/ava-duvernay-14th-new-york-film-festival.html
-
-**Arizona Mine Inspector Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-mine-inspector-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
