@@ -1,3 +1,83 @@
+**Google Releases Three New Gemini A.I. Models**\
+`The models include one that is the company’s most powerful and another that is fine-tuned for cybersecurity, as Google competes with rivals like OpenAI and Anthropic.`\
+https://www.nytimes.com/2026/07/21/technology/google-ai-cybersecurity-gemini.html
+
+**Ava DuVernay’s Documentary ’14th’ Will Close New York Film Festival**\
+`Described as a “sequel of sorts” to “13TH,” the new movie argues that the 14th Amendment, which guarantees birthright citizenship, is under attack.`\
+https://www.nytimes.com/2026/07/21/movies/ava-duvernay-14th-new-york-film-festival.html
+
+**Arizona Mine Inspector Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-mine-inspector-primary.html
+
+**Arizona Corporation Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-corporation-commissioner-primary.html
+
+**Arizona Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary elections.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-primary.html
+
+**Arizona Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-attorney-general-primary.html
+
+**Arizona Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-9-primary.html
+
+**Arizona Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-5-primary.html
+
+**Arizona Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-3-primary.html
+
+**Arizona Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-6-primary.html
+
+**Arizona Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-2-primary.html
+
+**Arizona Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-4-primary.html
+
+**Arizona First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-1-primary.html
+
+**Arizona Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-8-primary.html
+
+**Arizona Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-treasurer-primary.html
+
+**Arizona Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-secretary-of-state-primary.html
+
+**Arizona Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-7-primary.html
+
+**Arizona Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-governor-primary.html
+
+**Arizona School Superintendent Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-school-superintendent-primary.html
+
+**Cameron Hamilton Poised to Lead FEMA Once More**\
+`Cameron Hamilton defended the agency last year when President Trump talked about eliminating it. Emergency managers hope for more stability if he’s confirmed as administrator.`\
+https://www.nytimes.com/2026/07/21/climate/cameron-hamilton-fema-trump.html
+
 **Democrats’ Top Senate Candidate in Maine Won’t Support Schumer for Leader**\
 `Troy Jackson, who is set to become the party’s nominee, also said in an interview that he was not sure he wanted the support of Senator Chuck Schumer in the general election.`\
 https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-schumer-maine-senate.html
