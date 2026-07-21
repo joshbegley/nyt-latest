@@ -1,3 +1,7 @@
+**Pan Am Clipper Endeavor Is Found After Over 70 Years Lost at Sea**\
+`Fifty-two of the 69 people aboard the plane died when it crashed off Puerto Rico and sank to the bottom of the Atlantic Ocean.`\
+https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.html
+
 **Lives Lost**\
 `We look at the American casualties in the war with Iran.`\
 https://www.nytimes.com/2026/07/21/briefing/american-casualties-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/fashion/watch-shapes-cartier.html
 **Cristo Fernandez Talks Returning to Pro Soccer After “Ted Lasso”**\
 `Cristo Fernandez was a soccer player before he was an actor. After finding TV stardom, he’s making the unlikely return to his first career.`\
 https://www.nytimes.com/2026/07/21/arts/television/cristo-fernandez-dani-rojas-interview.html
-
-**A Dad’s Solution to His Son’s Difficulty With Watches**\
-`Darren Sher has dyslexia, so he recognized the problem his dyslexic son had telling time. His answer: the Sher Kids Watch with an easy-to-read dial.`\
-https://www.nytimes.com/2026/07/21/fashion/watches-dyslexia-darren-sher.html
 
