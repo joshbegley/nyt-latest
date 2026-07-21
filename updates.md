@@ -1,3 +1,7 @@
+**Tate Brothers to Stay in Jail as New Details About Charges Emerge**\
+`In court documents unsealed on Monday, British prosecutors accused the “manosphere” influencers of choking women, sometimes until they passed out, and then raping them.`\
+https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
+
 **Trial Date Set for Former Olympian Accused of Damaging Reflecting Pool**\
 `David Hearn, 67, who is charged with destruction of property, has pleaded not guilty. He is one of several people the authorities say vandalized the pool.`\
 https://www.nytimes.com/2026/07/20/us/david-hearn-reflecting-pool-vandalism-trial.html
