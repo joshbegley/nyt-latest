@@ -1,3 +1,7 @@
+**Israeli Troops Shoot Near Lebanese Army Deploying in ‘Pilot Zone’**\
+`Israeli forces fired shots near Lebanese Army troops on Tuesday as they took the first steps in a new U.S.-brokered plan to transfer control of occupied areas to Beirut.`\
+https://www.nytimes.com/video/world/middleeast/100000011044082/lebanon-israel-pilot-zone.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011045183/21vid-hegseth-lloyd-austin.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/dining/restaurant-review-chez-panisse.html
 **France Joins a Global Move Toward Restricting Social Media for Children**\
 `Its new law, the first of its kind enacted by a European country, will ban access to some accounts for anyone under 15.`\
 https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
-
-**Las frutas y verduras nos siguen enfermando. Esta es la razón**\
-`Los brotes de “Cyclospora” son solo una fracción de la crisis de seguridad alimentaria vinculada a los productos agrícolas frescos. No hay soluciones rápidas ni fáciles para este problema.`\
-https://www.nytimes.com/es/2026/07/21/espanol/opinion/cyclospora-sintomas-lechuga.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

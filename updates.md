@@ -1,3 +1,19 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011045183/21vid-hegseth-lloyd-austin.html
+
+**With Another Storm On the Way, Businesses Brace for More Flooding**\
+`Some businesses in low-lying areas of New York City have developed routines to keep their goods and customers dry.`\
+https://www.nytimes.com/2026/07/21/nyregion/nyc-flooding-storms-rain.html
+
+**Why Does Fashion Heart N.Y.?**\
+`T Magazine’s editor at large, Nick Haramis, examines why fashion designers can’t get enough of New York City.`\
+https://www.nytimes.com/video/t-magazine/100000011045163/why-does-fashion-heart-ny.html
+
+**Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\
+`The quick-fix fantasies of the world’s strongmen.`\
+https://www.nytimes.com/2026/07/21/opinion/trump-netanyahu-putin-war.html
+
 **France Passes Law Restricting Social Media for Youths**\
 `France is the first European country to ban access to social media for anyone under 15. The law could go into effect as soon as Sept. 1.`\
 https://www.nytimes.com/video/world/europe/100000011043897/france-law-social-media-ban-restrictions.html
