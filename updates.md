@@ -1,3 +1,19 @@
+**Shining a Spotlight on the Atrocities in Sudan**\
+`Readers respond to an editorial, “The World Must Wake Up to the Horror in Sudan.” Also: Young people and guns; “gray divorce.”`\
+https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html
+
+**Hungry Spicy Doesn’t Pull Its Punches**\
+`A location of Kings Co. Imperial for Park Slope, Brooklyn, a new Frenchette bakery and more restaurant news.`\
+https://www.nytimes.com/2026/07/21/dining/hungry-spicy-nyc-restaurant-openings.html
+
+**D.M.V. Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
+`A software glitch in 2023 at the New Jersey Department of Motor Vehicles led to roughly 6,600 noncitizens being registered to vote, Gov. Mikie Sherrill announced on Tuesday.`\
+https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
+
+**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
+`Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
+https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
+
 **India’s Young Protesters are Bloodied but Unbowed**\
 `A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
 https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html

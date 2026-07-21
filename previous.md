@@ -1,3 +1,11 @@
+**Shining a Spotlight on the Atrocities in Sudan**\
+`Readers respond to an editorial, “The World Must Wake Up to the Horror in Sudan.” Also: Young people and guns; “gray divorce.”`\
+https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html
+
+**Hungry Spicy Doesn’t Pull Its Punches**\
+`A location of Kings Co. Imperial for Park Slope, Brooklyn, a new Frenchette bakery and more restaurant news.`\
+https://www.nytimes.com/2026/07/21/dining/hungry-spicy-nyc-restaurant-openings.html
+
 **India’s Young Protesters are Bloodied but Unbowed**\
 `A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
 https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.h
 https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
 
 **D.M.V. Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
-`The New Jersey Department of Motor Vehicles software glitch also registered roughly 6,600 noncitizens to vote, Gov. Mikie Sherrill announced on Tuesday.`\
+`A software glitch in 2023 at the New Jersey Department of Motor Vehicles led to roughly 6,600 noncitizens being registered to vote, Gov. Mikie Sherrill announced on Tuesday.`\
 https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
 
 **Oil Firms Knew for Decades of Methane’s Danger to Planet, Documents Suggest**\
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/07/21/us/pentagon-identifies-soldier-iran-war-emman
 `It’s been a while since Angelina Ellis and Aiden Smith roomed together at Butler University, but the sartorial synchronicity still flares up on occasion.`\
 https://www.nytimes.com/2026/07/21/style/street-style-look-cutoff-denim.html
 
-**Trump Escalates Canada Tariffs as Mark Carney Holds Firm**\
-`The president’s new tariffs on a top U.S. trading partner aim at gaining concessions, but the Canadian government, and the public, have been bracing for the escalation.`\
-https://www.nytimes.com/2026/07/21/world/canada/trump-carney-trade-tariffs.html
-
-**Houthis Threaten to Block Saudi Ships in Red Sea**\
-`Supporters of the Iran-backed Houthi militia in Yemen rallied on Monday after it said it would block Saudi ships in the Red Sea, threatening to open a new front in the war rippling across the Middle East.`\
-https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blockade-saudi-arabia-red-sea.html
-
-**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
-`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
+**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
+`Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
 https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
 
