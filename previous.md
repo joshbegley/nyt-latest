@@ -1,3 +1,7 @@
+**UK’s New Prime Minister Burnham Orders Cut in Taxes on Electricity**\
+`Prime Minister Andy Burnham moved quickly to confront the high cost of living. And President Trump wished him well after a phone call between the two leaders.`\
+https://www.nytimes.com/2026/07/21/world/europe/uk-andy-burnham-electricity-tax-vat.html
+
 **Ferry Capsizes in Guyana, Killing Dozens**\
 `A ferry in Guyana thought to be overloaded capsized over the weekend, killing dozens. Many are still missing, and the authorities said the total number of victims was unclear.`\
 https://www.nytimes.com/video/world/americas/100000011043291/guyana-ferry-sinking-barima.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/20/espanol/america-latina/terremotos-venezuel
 **What Arizona Reveals About the Future of Food Stamps**\
 `The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months, and it may be a preview of changes nationwide. Our reporter Jason DeParle traveled to the state to understand why this happened and what effect it’s had.`\
 https://www.nytimes.com/video/us/100000010943219/what-arizona-reveals-about-the-future-of-food-stamps.html
-
-**Inside Andy Burnham’s 1st Day as U.K. Prime Minister**\
-`As Andy Burnham became Britain’s seventh leader in a decade on Monday, he tried to show that he will govern differently.`\
-https://www.nytimes.com/2026/07/20/world/europe/andy-burnham-uk.html
 

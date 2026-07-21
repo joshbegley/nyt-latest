@@ -1,3 +1,7 @@
+**UK’s New Prime Minister Burnham Orders Cut in Taxes on Electricity**\
+`Prime Minister Andy Burnham moved quickly to confront the high cost of living. And President Trump wished him well after a phone call between the two leaders.`\
+https://www.nytimes.com/2026/07/21/world/europe/uk-andy-burnham-electricity-tax-vat.html
+
 **Ferry Capsizes in Guyana, Killing Dozens**\
 `A ferry in Guyana thought to be overloaded capsized over the weekend, killing dozens. Many are still missing, and the authorities said the total number of victims was unclear.`\
 https://www.nytimes.com/video/world/americas/100000011043291/guyana-ferry-sinking-barima.html
