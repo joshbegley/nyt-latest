@@ -1,3 +1,11 @@
+**Book Review: ‘Unsayable,’ by Michael Cunningham**\
+`Blending autobiography with meditations on craft, “Unsayable” feels destined for the graduation gift bag.`\
+https://www.nytimes.com/2026/07/21/books/review/unsayable-michael-cunningham.html
+
+**Lebanese Army Accuses Israeli Troops of Firing as Its Forces Deploy in ‘Pilot Zone’**\
+`The Israeli military was withdrawing from a village under a U.S.-brokered deal to transfer control of occupied areas to Lebanon after months of war. The Israeli military did not immediately comment.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/lebanon-israel-ceasefire-plan.html
+
 **The Teenage Boys In Search of Their Mother After the Venezuela Earthquake**\
 `After Venezuela’s devastating earthquakes, Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
 https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
