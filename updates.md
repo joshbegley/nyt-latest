@@ -1,3 +1,15 @@
+**How Laurie Anderson and Julia Sherman Throw a Party**\
+`For a memorable sweet and a celebratory gathering, the chef and writer Julia Sherman teamed up with the musician and artist.`\
+https://www.nytimes.com/2026/07/21/t-magazine/laurie-anderson-julia-sherman-oberon-lunch.html
+
+**India’s Young Protesters Are Bloodied but Unbowed**\
+`A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
+https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
+
+**How Republicans Turned Olive Garden Into a Voter ID Talking Point**\
+`Republicans claim that Olive Garden polices its Never-Ending Pasta Bowl more tightly than the United States does its elections. It’s not that simple.`\
+https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-act-republicans.html
+
 **Shining a Spotlight on the Atrocities in Sudan**\
 `Readers respond to an editorial, “The World Must Wake Up to the Horror in Sudan.” Also: Young people and guns; “gray divorce.”`\
 https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html

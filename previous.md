@@ -1,3 +1,7 @@
+**How Laurie Anderson and Julia Sherman Throw a Party**\
+`For a memorable sweet and a celebratory gathering, the chef and writer Julia Sherman teamed up with the musician and artist.`\
+https://www.nytimes.com/2026/07/21/t-magazine/laurie-anderson-julia-sherman-oberon-lunch.html
+
 **Shining a Spotlight on the Atrocities in Sudan**\
 `Readers respond to an editorial, “The World Must Wake Up to the Horror in Sudan.” Also: Young people and guns; “gray divorce.”`\
 https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html
 `A location of Kings Co. Imperial for Park Slope, Brooklyn, a new Frenchette bakery and more restaurant news.`\
 https://www.nytimes.com/2026/07/21/dining/hungry-spicy-nyc-restaurant-openings.html
 
-**India’s Young Protesters are Bloodied but Unbowed**\
+**India’s Young Protesters Are Bloodied but Unbowed**\
 `A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
 https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
 
@@ -42,7 +46,7 @@ https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contami
 `A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
 https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
 
-**How Republicans Made Olive Garden Into a Voter ID Talking Point**\
+**How Republicans Turned Olive Garden Into a Voter ID Talking Point**\
 `Republicans claim that Olive Garden polices its Never-Ending Pasta Bowl more tightly than the United States does its elections. It’s not that simple.`\
 https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-act-republicans.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/21/espanol/america-latina/venezuela-terremoto
 **Pentagon Identifies Soldier Killed in Iran War as Sgt. Michael Emmanuel Swinton**\
 `Sgt. Michael Emmanuel Swinton, the 17th service member to be named, was killed during the disposal of a drone in northern Iraq.`\
 https://www.nytimes.com/2026/07/21/us/pentagon-identifies-soldier-iran-war-emmanuel-swinton.html
-
-**Street Style Look of the Week: Ex-Roommates Still on the Same Fashion Wavelength**\
-`It’s been a while since Angelina Ellis and Aiden Smith roomed together at Butler University, but the sartorial synchronicity still flares up on occasion.`\
-https://www.nytimes.com/2026/07/21/style/street-style-look-cutoff-denim.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
