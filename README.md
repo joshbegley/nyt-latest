@@ -1,3 +1,7 @@
+**Trump to Impose 50% Tariffs on Wide Range of Canadian Goods**\
+`President Trump signed orders on Monday to impose a 50 percent tariff on a wide range of Canadian exports, including wine and dairy products.`\
+https://www.nytimes.com/video/us/politics/100000011042976/trump-canada-goods-tariffs.html
+
 **Daniel Ortega, President of Nicaragua, Says He Plans to Abolish Elections**\
 `Daniel Ortega has been accused of rigging recent elections in Nicaragua. Now, the authoritarian leader says the nation won’t even hold a vote.`\
 https://www.nytimes.com/2026/07/20/world/americas/nicaragua-ortega-abolish-elections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/world/americas/venezuela-earthquakes-voluntee
 **The Design of the Jensen Interceptor Is Still Beloved 50 Years Later**\
 `The Jensen Interceptor featured a wraparound glass hatch that turned heads.`\
 https://www.nytimes.com/2026/07/20/automobiles/collectibles/jensen-interceptor-design.html
-
-**Inside the Deadly U.S. Airstrike on a Shadow Fleet Tanker**\
-`Evidence suggests the ship on which three Indian sailors died was not moving when it was struck in the Gulf of Oman, but it had been engaged in risky offshore transfers of oil.`\
-https://www.nytimes.com/2026/07/20/world/middleeast/inside-the-deadly-us-airstrike-on-a-shadow-fleet-tanker.html
 
