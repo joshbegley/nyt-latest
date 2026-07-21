@@ -1,3 +1,11 @@
+**Jimothy, a Short-Spined Raccoon, Has Become an Internet Sensation**\
+`Kiana Hall’s video of the unusually round raccoon has gone viral, making the animal a celebrity in Seattle and beyond.`\
+https://www.nytimes.com/video/us/100000011043974/jimothy-viral-raccoon-seattle.html
+
+**El Pentágono ocultó la cifra de soldados heridos en ataques recientes de Irán**\
+`En las redes sociales, el Pentágono informó el lunes que la cifra de militares estadounidenses muertos, heridos o desaparecidos por los ataques iraníes desde el 7 de julio había ascendido a casi 100.`\
+https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/guerra-iran-soldados-heridos.html
+
 **How Laurie Anderson and Julia Sherman Throw a Party**\
 `For a memorable sweet and a celebratory gathering, the chef and writer Julia Sherman teamed up with the musician and artist.`\
 https://www.nytimes.com/2026/07/21/t-magazine/laurie-anderson-julia-sherman-oberon-lunch.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/21/business/asia-strategic-oil-reserves.html
 **1,700 H.I.V. Treatment Sites Closed After Trump Aid Cuts, a Study Finds**\
 `New research also shows that children and high-risk adult populations have been particularly affected.`\
 https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html
-
-**Así buscaron dos chicos a sus familiares en los escombros de La Guaira**\
-`Winder y Deivi Delfín excavaron durante 26 días para encontrar los cuerpos de su madre, su hermano y su abuela.`\
-https://www.nytimes.com/es/2026/07/21/espanol/america-latina/venezuela-terremotos-busqueda-victimas.html
-
-**Pentagon Identifies Soldier Killed in Iran War as Sgt. Michael Emmanuel Swinton**\
-`Sgt. Michael Emmanuel Swinton, the 17th service member to be named, was killed during the disposal of a drone in northern Iraq.`\
-https://www.nytimes.com/2026/07/21/us/pentagon-identifies-soldier-iran-war-emmanuel-swinton.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
