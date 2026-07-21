@@ -1,3 +1,23 @@
+**Inside the Fight to Rid South Africa of Black Immigrants**\
+`As immigration surges in the country, activists are going to extreme lengths to expel foreign nationals, often taking the law into their own hands.`\
+https://www.nytimes.com/2026/07/21/world/africa/south-africa-migrants.html
+
+**The Last Song That Made Me Cry, and 4 Other Recommendations**\
+`Listen to tracks from Phoebe Bridgers, Kelela, L7 and more.`\
+https://www.nytimes.com/2026/07/21/arts/music/amplifier-newsletter-phoebe-bridgers-kelela-spoon.html
+
+**3 Myths Fueling Anti-Immigrant Sentiment in South Africa**\
+`As the nation convulses with protests and violence, data and research suggest that some of the biggest arguments against foreigners don’t stand up against the facts.`\
+https://www.nytimes.com/2026/07/21/world/africa/south-africa-immigration-protests-explainer.html
+
+**Monkeys Understand Shapes in Almost the Same Way as Humans**\
+`Our geometric intuition, long considered something that sets us apart, seems to be shared with other primates.`\
+https://www.nytimes.com/2026/07/21/science/monkeys-cognition-shapes-geometry.html
+
+**Los hutíes de Yemen podrían entrar a la guerra entre EE. UU. e Irán**\
+`La milicia hutí en Yemen, respaldada por Irán, ha declarado un bloqueo a Arabia Saudita en el mar Rojo, lo que abriría un nuevo frente en el conflicto que se extiende por Medio Oriente.`\
+https://www.nytimes.com/es/2026/07/21/espanol/mundo/guerra-huties-yemen-iran.html
+
 **Meet Jimothy, the Seattle Raccoon Who Is Taking Over the Internet**\
 `The stout raccoon, which has a spinal condition, is “an example to all of us that you don’t have to be perfect to be loved,” a Seattle City Council member said.`\
 https://www.nytimes.com/2026/07/21/style/jimothy-raccoon-seattle-videos.html
