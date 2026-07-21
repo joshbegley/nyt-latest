@@ -1,3 +1,7 @@
+**Watch Live: Hegseth and Caine Testify Before the Senate**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations Committee.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011043847/watch-live-hegseth-and-caine-testify-before-the-senate.html
+
 **Trump impondrá un arancel del 50% a muchos productos canadienses**\
 `El gobierno de EE. UU. utilizará una disposición legal no probada para imponer aranceles significativos a las exportaciones canadienses, lo cual reavivará un conflicto con uno de los mayores socios comerciales del país.`\
 https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/trump-aranceles-canada.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-trea
 **Arizona Secretary of State Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-secretary-of-state-primary.html
-
-**Arizona Seventh Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-7-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
