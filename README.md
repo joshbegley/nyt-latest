@@ -1,3 +1,7 @@
+**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
+`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
+https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
+
 **UK’s New Prime Minister Burnham Orders Cut in Taxes on Electricity**\
 `Prime Minister Andy Burnham moved quickly to confront the high cost of living. And President Trump wished him well after a phone call between the two leaders.`\
 https://www.nytimes.com/2026/07/21/world/europe/uk-andy-burnham-electricity-tax-vat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/arts/design/thomas-jefferson-statue-rose-gard
 **Terremotos en Venezuela: el rescate de mascotas brinda algo de consuelo y alegría**\
 `Los voluntarios están reuniendo a las mascotas con sus familias, ofreciéndoles a los damnificados consuelo en medio de la pérdida y la devastación.`\
 https://www.nytimes.com/es/2026/07/20/espanol/america-latina/terremotos-venezuela-busqueda-mascotas.html
-
-**What Arizona Reveals About the Future of Food Stamps**\
-`The number of people who receive nutrition assistance in Arizona has dropped significantly in a matter of months, and it may be a preview of changes nationwide. Our reporter Jason DeParle traveled to the state to understand why this happened and what effect it’s had.`\
-https://www.nytimes.com/video/us/100000010943219/what-arizona-reveals-about-the-future-of-food-stamps.html
 
