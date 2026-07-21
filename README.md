@@ -1,3 +1,7 @@
+**What the Cyclospora Outbreak Reveals**\
+`Warming is expected to fuel the spread of food-borne pathogens. We might not be prepared.`\
+https://www.nytimes.com/2026/07/21/climate/climate-cyclospora.html
+
 **Israeli Troops Shoot Near Lebanese Army Deploying in ‘Pilot Zone’**\
 `Israeli forces fired shots near Lebanese Army troops on Tuesday as they took the first steps in a new U.S.-brokered plan to transfer control of occupied areas to Beirut.`\
 https://www.nytimes.com/video/world/middleeast/100000011044082/lebanon-israel-pilot-zone.html
@@ -151,7 +155,7 @@ https://www.nytimes.com/2026/07/21/dining/hungry-spicy-nyc-restaurant-openings.h
 https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
 
 **Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
-`The Pentagon seeks an additional $80 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
+`The Pentagon seeks an additional $70 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
 https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
 
 **Netanyahu Ad Uses a Questionable Tactic Against Bereaved Rival**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/dining/restaurant-review-chez-panisse.html
 **France Joins a Global Move Toward Restricting Social Media for Children**\
 `Its new law, the first of its kind enacted by a European country, will ban access to some accounts for anyone under 15.`\
 https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
-
-**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
-`Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
-https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
 
