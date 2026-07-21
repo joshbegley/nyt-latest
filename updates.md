@@ -1,3 +1,11 @@
+**Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
+`The Pentagon seeks an additional $80 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
+https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
+
+**D.M.V. Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
+`The New Jersey Department of Motor Vehicles software glitch also registered roughly 6,600 noncitizens to vote, Gov. Mikie Sherrill announced on Tuesday.`\
+https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
+
 **Netanyahu Ad Uses a Questionable Tactic Against Bereaved Rival**\
 `A.I.-generated images showing Gadi Eisenkot, the Israeli leader’s top challenger in upcoming elections, played on anti-Arab sentiments and used images seen as disrespectful to his son, who was killed in the recent Gaza war.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.html
