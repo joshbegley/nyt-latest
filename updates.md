@@ -1,3 +1,7 @@
+**Pan Am Clipper Endeavor Is Found After Over 70 Years Lost at Sea**\
+`Fifty-two of the 69 people aboard the plane died when it crashed off Puerto Rico and sank to the bottom of the Atlantic Ocean.`\
+https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.html
+
 **How Two Brothers Dug for Dead Relatives: With a Shovel and a Kitchen Knife**\
 `After Venezuela’s devastating earthquakes, Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
 https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
