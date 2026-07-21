@@ -1,3 +1,11 @@
+**Former Conductor to Plead Guilty in Child Sex Abuse Imagery Case**\
+`Julian Wachner, the former music director at Trinity Church in New York, faces up to 10 years in prison after reaching a plea deal.`\
+https://www.nytimes.com/2026/07/21/arts/music/wachner-plea-deal-child-sex-abuse-imagery-trinity-church.html
+
+**Salmon With Anchovy-Garlic Butter**\
+`In this recipe from Cooking’s Melissa Clark, linked below, minced anchovies and garlic add a complex salinity to seared salmon, enriching and deepening its flavor.`\
+https://www.nytimes.com/video/dining/100000011044726/salmon-with-anchovy-garlic-butter.html
+
 **Zelensky Removes Ukraine’s Top General**\
 `Also, the Pentagon estimates the Iran war has cost $37.5 billion. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/07/21/briefing/zelensky-removes-top-general.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html
 **Hungry Spicy Doesn’t Pull Its Punches**\
 `A location of Kings Co. Imperial for Park Slope, Brooklyn, a new Frenchette bakery and more restaurant news.`\
 https://www.nytimes.com/2026/07/21/dining/hungry-spicy-nyc-restaurant-openings.html
-
-**India’s Young Protesters Are Bloodied but Unbowed**\
-`A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
-https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
-
-**Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
-`The Pentagon seeks an additional $70 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
-https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
 
