@@ -1,3 +1,11 @@
+**Water Plants Under Fire in the Gulf Are Crucial to Civilians**\
+`Several days of airstrikes have hit water and energy plants in Kuwait, a nation that relies on desalination for 90 percent of its drinking water.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-east.html
+
+**Senate Panel Advances Jay Clayton as Next Spy Chief on Party-Line Vote**\
+`Assuming he is confirmed by the full Senate as expected, Mr. Clayton will take command of the Office of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
+https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html
+
 **Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\
 `Bad decisions and arrogance lead to dead-end wars.`\
 https://www.nytimes.com/2026/07/21/opinion/trump-netanyahu-putin-war.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-prim
 **Arizona Attorney General Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-attorney-general-primary.html
-
-**Arizona Ninth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-9-primary.html
-
-**Arizona Fifth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-5-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

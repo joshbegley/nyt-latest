@@ -1,3 +1,11 @@
+**Water Plants Under Fire in the Gulf Are Crucial to Civilians**\
+`Several days of airstrikes have hit water and energy plants in Kuwait, a nation that relies on desalination for 90 percent of its drinking water.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-east.html
+
+**Senate Panel Advances Jay Clayton as Next Spy Chief on Party-Line Vote**\
+`Assuming he is confirmed by the full Senate as expected, Mr. Clayton will take command of the Office of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
+https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html
+
 **Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\
 `Bad decisions and arrogance lead to dead-end wars.`\
 https://www.nytimes.com/2026/07/21/opinion/trump-netanyahu-putin-war.html
