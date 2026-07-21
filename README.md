@@ -1,8 +1,84 @@
+**Google Releases Three New Gemini A.I. Models**\
+`The models include one that is the company’s most powerful and another that is fine-tuned for cybersecurity, as Google competes with rivals like OpenAI and Anthropic.`\
+https://www.nytimes.com/2026/07/21/technology/google-ai-cybersecurity-gemini.html
+
+**Ava DuVernay’s Documentary ’14th’ Will Close New York Film Festival**\
+`Described as a “sequel of sorts” to “13TH,” the new movie argues that the 14th Amendment, which guarantees birthright citizenship, is under attack.`\
+https://www.nytimes.com/2026/07/21/movies/ava-duvernay-14th-new-york-film-festival.html
+
+**Arizona Mine Inspector Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-mine-inspector-primary.html
+
+**Arizona Corporation Commissioner Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-corporation-commissioner-primary.html
+
+**Arizona Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary elections.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-primary.html
+
+**Arizona Attorney General Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-attorney-general-primary.html
+
+**Arizona Ninth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-9-primary.html
+
+**Arizona Fifth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-5-primary.html
+
+**Arizona Third Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-3-primary.html
+
+**Arizona Sixth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-6-primary.html
+
+**Arizona Second Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-2-primary.html
+
+**Arizona Fourth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-4-primary.html
+
+**Arizona First Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-1-primary.html
+
+**Arizona Eighth Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-8-primary.html
+
+**Arizona Treasurer Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-treasurer-primary.html
+
+**Arizona Secretary of State Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-secretary-of-state-primary.html
+
+**Arizona Seventh Congressional District Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-7-primary.html
+
+**Arizona Governor Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-governor-primary.html
+
+**Arizona School Superintendent Primary 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona primary election.`\
+https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-school-superintendent-primary.html
+
 **Democrats’ Top Senate Candidate in Maine Won’t Support Schumer for Leader**\
 `Troy Jackson, who is set to become the party’s nominee, also said in an interview that he was not sure he wanted the support of Senator Chuck Schumer in the general election.`\
 https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-schumer-maine-senate.html
 
-**He Got Fired From FEMA. His Return Could Mark a New Era for Disasters.**\
+**Cameron Hamilton Poised to Lead FEMA Once More**\
 `Cameron Hamilton defended the agency last year when President Trump talked about eliminating it. Emergency managers hope for more stability if he’s confirmed as administrator.`\
 https://www.nytimes.com/2026/07/21/climate/cameron-hamilton-fema-trump.html
 
@@ -121,80 +197,4 @@ https://www.nytimes.com/2026/07/21/well/eat/how-cyclospora-contaminates-food.htm
 **‘Too Rare to Care’? A New Center for Rare Diseases Hopes to Change That**\
 `A new nonprofit wants to streamline gene therapy for diseases often avoided by pharmaceutical companies — making treatment more like a routine procedure than a bespoke drug.`\
 https://www.nytimes.com/2026/07/21/health/gene-therapy-rare-diseases-epilepsy.html
-
-**Corrections: July 21, 2026**\
-`Corrections that appeared in print on Tuesday, July 21, 2026.`\
-https://www.nytimes.com/2026/07/21/pageoneplus/corrections-july-21-2026.html
-
-**The Teenage Boys In Search of Their Mother After the Venezuela Earthquake**\
-`After Venezuela’s devastating earthquakes, Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
-https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
-
-**Once Anti-Abortion, Now a Progressive: The Evolution of a Maine Democrat**\
-`Troy Jackson, who is expected to become his party’s nominee in the state’s marquee Senate race, has long been an economic populist, but his positions on social issues have changed markedly over time.`\
-https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-maine-senate.html
-
-**He Sent $1 to Mamdani. City Hall Sent It Back.**\
-`A Brooklyn artist had hoped that the mayor would tape the decorated dollar bill above his desk “just like at a bodega.”`\
-https://www.nytimes.com/2026/07/21/nyregion/mamdani-dollar-bill-artist.html
-
-**Clothes Have All Started Looking the Same. Blame the Algorithm.**\
-`Fast fashion and mall brands used to look to the runways for inspiration. Now, much of their output has been run through an algorithm.`\
-https://www.nytimes.com/2026/07/21/opinion/fashion-slop-boring.html
-
-**What We Know About Tuesday’s Arizona Primaries**\
-`Arizona primary voters will choose nominees for governor, secretary of state and for key races that could determine control of the House.`\
-https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-election-what-we-know.html
-
-**Houthis in Yemen Edge Closer to Entering U.S.-Iran War**\
-`The Iran-backed Houthi militia in Yemen has declared a Red Sea blockade on Saudi Arabia, potentially opening a new front in the war rippling across the Middle East.`\
-https://www.nytimes.com/2026/07/21/world/middleeast/houthis-yemen-iran-war.html
-
-**It’s the Wrong Way to Address A.I. Job Loss. Trump Loves It.**\
-`The president has had the government take shares in all sorts of corporations. This approach would be particularly bad for the A.I. industry.`\
-https://www.nytimes.com/2026/07/21/opinion/artificial-intelligence-government-trump.html
-
-**Why States Are Making It Harder to Save Money With Solar Panels**\
-`The changes are costing homeowners money. But they also reflect a changing grid — and the need for home batteries.`\
-https://www.nytimes.com/2026/07/21/upshot/solar-panels-prices-batteries.html
-
-**Like It or Not, Summer Means Storytime at Ballet Theater**\
-`The company wrapped up its Met season of safe war horses with multiple debuts and a slew of promotions, including the onstage appointment of three principals.`\
-https://www.nytimes.com/2026/07/21/arts/dance/american-ballet-theater-summer-dancer-standouts.html
-
-**‘Les Misérables’ in Concert and More: A Show’s Never-Ending Life**\
-`Concert versions and touring productions keep the spirit of 19th-century French revolutionaries alive.`\
-https://www.nytimes.com/2026/07/21/theater/les-miserables-valjean-javert.html
-
-**Bill Maher Feuded With Trump. Did He Get the Last Laugh?**\
-`How the late-night host won comedy’s biggest prize — despite the White House’s objections.`\
-https://www.nytimes.com/2026/07/21/magazine/bill-maher-trump-mark-twain-prize.html
-
-**The U.S. Is Pulling Back on Energy Efficiency**\
-`The Trump administration is undoing fuel-saving efforts even as war in Iran, data centers and heat waves are pushing up gasoline and electricity costs.`\
-https://www.nytimes.com/2026/07/21/climate/trump-energy-efficiency-standards.html
-
-**How a 911 Call Led to the Nation’s Strictest Trans Bathroom Law**\
-`People in Sandpoint, Idaho, don’t know how to characterize a woman’s brush with a transgender woman in a Y.M.C.A. locker room, but the emergency call that followed is still reverberating.`\
-https://www.nytimes.com/2026/07/21/us/sandpoint-idaho-transgender-bathroom-law.html
-
-**Hot, Uncomfortable, Matchless: Opera Pilgrims Can’t Quit Bayreuth**\
-`The Bayreuth Festival, where Wagner’s operas have been performed for 150 years, is inconvenient and unpleasant. Why does it have such a hold on fans?`\
-https://www.nytimes.com/2026/07/21/arts/music/bayreuth-wagner-150.html
-
-**Renovating a Century-Old House in Forest Hills Gardens, Queens**\
-`The landscape architect Kate Orff and her family have created a habitat for wildlife, and themselves, in Forest Hills Gardens.`\
-https://www.nytimes.com/2026/07/21/realestate/renovation-forrest-hills-gardens-tudor.html
-
-**Book Review: ‘The Frenchmen,’ by Emily Eakin**\
-`In “The Frenchmen,” Emily Eakin traces the rise and fall of postmodernist philosophy, and the surprising ways its influence lingers.`\
-https://www.nytimes.com/2026/07/21/books/review/how-a-band-of-difficult-thinkers-shaped-one-author-and-the-world.html
-
-**Word of the Day: rhapsodize**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/21/learning/word-of-the-day-rhapsodize.html
-
-**7 Other ‘Odyssey’ Movie Adaptations to Stream Now**\
-`For decades, filmmakers have been borrowing plot lines and metaphors from Homer’s epic for adventures set in different eras and realities.`\
-https://www.nytimes.com/2026/07/21/movies/the-odyssey-movie-adaptations.html
 
