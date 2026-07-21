@@ -1,3 +1,11 @@
+**Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\
+`Bad decisions and arrogance lead to dead-end wars.`\
+https://www.nytimes.com/2026/07/21/opinion/trump-netanyahu-putin-war.html
+
+**Muere Kaylee Hottle, actriz de las películas de ‘Godzilla', en un accidente de auto**\
+`La actriz adolescente sorda apareció en “Godzilla vs. Kong” y “Godzilla y Kong: el nuevo imperio”.`\
+https://www.nytimes.com/es/2026/07/21/espanol/cultura/kaylee-hottle-actriz-godzilla-muerte.html
+
 **Plas Johnson, Saxophonist Behind ‘The Pink Panther,’ Dies at 94**\
 `His recording for the theme song, written by Henry Mancini, included a solo improvised in the studio. He also backed Frank Sinatra and Barbra Streisand.`\
 https://www.nytimes.com/2026/07/21/arts/music/plas-johnson-dead.html
