@@ -1,3 +1,11 @@
+**El papa León hace un llamado al desarme nuclear en su nuevo libro**\
+`Su nuevo mensaje evita señalar países concretos, pero deja claro que el desarme, no la acumulación de poder militar, es la vía hacia una paz verdadera.`\
+https://www.nytimes.com/es/2026/07/20/espanol/mundo/papa-leon-desarme-nuclear-nuevo-libro.html
+
+**Tate Brothers to Stay in Jail as They Fight Extradition on Rape Charges**\
+`In court documents unsealed on Monday, British prosecutors accused the “manosphere” influencers of choking women, sometimes until they passed out, and then raping them.`\
+https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
+
 **How Trump’s Immigration Crackdown Is Hurting Elder Care**\
 `Retirement communities already grappling with labor shortages are being forced to terminate caregivers at a time when more Americans are living longer.`\
 https://www.nytimes.com/2026/07/20/us/immigration-trump-senior-living-staffing.html
