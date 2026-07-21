@@ -1,3 +1,11 @@
+**Ferry Capsizes in Guyana, Killing Dozens**\
+`A ferry in Guyana thought to be overloaded capsized over the weekend, killing dozens. Many are still missing, and the authorities said the total number of victims was unclear.`\
+https://www.nytimes.com/video/world/americas/100000011043291/guyana-ferry-sinking-barima.html
+
+**Australian Woman Gives Birth to ‘Miracle’ Identical Quadruplets**\
+`Doctors said the arrival of Emily, Harriet, Catherine and Alexa, who were conceived naturally and split from one fertilized egg, is an extremely rare event.`\
+https://www.nytimes.com/2026/07/21/world/australia/australia-identical-quadruplets-birth.html
+
 **Seth Meyers Calls Trump ‘The Sports Reaper’**\
 `The late-night host joked that the president’s sports curse had struck again after he backed Lionel Messi of Argentina, which then lost the World Cup final to Spain.`\
 https://www.nytimes.com/2026/07/21/arts/television/late-night-trump-soccer-fifa-curse.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000010943219/what-arizona-reveals-about-the-
 **Inside Andy Burnham’s 1st Day as U.K. Prime Minister**\
 `As Andy Burnham became Britain’s seventh leader in a decade on Monday, he tried to show that he will govern differently.`\
 https://www.nytimes.com/2026/07/20/world/europe/andy-burnham-uk.html
-
-**Teherán y Washington enfrentan un momento decisivo en la guerra**\
-`Los ataques de EE. UU. e Irán avanzan de una forma que podría provocar una guerra más amplia que no puedan contener, advierten los analistas, a menos que regresen rápido a las negociaciones.`\
-https://www.nytimes.com/es/2026/07/20/espanol/mundo/guerra-iran-estados-unidos.html
-
-**Faced With Piles of New Paperwork, People Are Losing Food Stamps**\
-`Arizona’s Supplemental Nutrition Assistance Program rolls have plummeted, offering a possible preview of national trends as states try to avoid new federal penalties.`\
-https://www.nytimes.com/2026/07/20/us/politics/snap-food-stamps-arizona.html
 
