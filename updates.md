@@ -1,3 +1,11 @@
+**Restaurant Review: Stars in New York**\
+`At Stars in the East Village, the hit-making team behind Claud and Penny find the balance between compelling food and well-curated drinks.`\
+https://www.nytimes.com/2026/07/21/dining/restaurant-review-stars-nyc.html
+
+**Houthi Blockade Could Worsen an Already Fragile Oil Market**\
+`With the Strait of Hormuz effectively closed, the militant group’s threats in the Red Sea jeopardize Saudi Arabia’s main workaround for oil exports.`\
+https://www.nytimes.com/2026/07/21/business/oil-red-sea-houthis.html
+
 **Review Says Gates Foundation Did Not Participate in Epstein Crimes**\
 `A review by an outside law firm hired by the Gates Foundation investigated only the philanthropy and not Mr. Gates or his private office.`\
 https://www.nytimes.com/2026/07/21/business/gates-foundation-epstein.html
