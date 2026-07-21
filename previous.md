@@ -1,3 +1,11 @@
+**Democrats’ Top Senate Candidate in Maine Won’t Support Schumer for Leader**\
+`Troy Jackson, who is set to become the party’s nominee, also said in an interview that he was not sure he wanted the support of Senator Chuck Schumer in the general election.`\
+https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-schumer-maine-senate.html
+
+**He Got Fired From FEMA. His Return Could Mark a New Era for Disasters.**\
+`Cameron Hamilton defended the agency last year when President Trump talked about eliminating it. Emergency managers hope for more stability if he’s confirmed as administrator.`\
+https://www.nytimes.com/2026/07/21/climate/cameron-hamilton-fema-trump.html
+
 **Book Review: ‘Unsayable,’ by Michael Cunningham**\
 `Blending autobiography with meditations on craft, “Unsayable” feels destined for the graduation gift bag.`\
 https://www.nytimes.com/2026/07/21/books/review/unsayable-michael-cunningham.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/learning/word-of-the-day-rhapsodize.html
 **7 Other ‘Odyssey’ Movie Adaptations to Stream Now**\
 `For decades, filmmakers have been borrowing plot lines and metaphors from Homer’s epic for adventures set in different eras and realities.`\
 https://www.nytimes.com/2026/07/21/movies/the-odyssey-movie-adaptations.html
-
-**Why Does This Jacket Cost $770? Because It Made Me a New Man.**\
-`Lots of men are geeking out over very expensive clothes — and I became one of them.`\
-https://www.nytimes.com/2026/07/21/magazine/menswear-clothes.html
-
-**The Fake Influencers Selling Wellness on Your Feed**\
-`The New York Times found hundreds of A.I.-generated doctors, healers and wellness influencers on social media touting the health benefits of supplements to American consumers. Many of these hyperrealistic looking ads promise medical miracles, and appear to be targeting older women, while making misleading health claims for a profit.`\
-https://www.nytimes.com/video/technology/100000011001849/ai-influencers-health-supplements-fake-ads.html
 

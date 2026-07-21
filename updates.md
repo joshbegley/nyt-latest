@@ -1,3 +1,11 @@
+**Democrats’ Top Senate Candidate in Maine Won’t Support Schumer for Leader**\
+`Troy Jackson, who is set to become the party’s nominee, also said in an interview that he was not sure he wanted the support of Senator Chuck Schumer in the general election.`\
+https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-schumer-maine-senate.html
+
+**He Got Fired From FEMA. His Return Could Mark a New Era for Disasters.**\
+`Cameron Hamilton defended the agency last year when President Trump talked about eliminating it. Emergency managers hope for more stability if he’s confirmed as administrator.`\
+https://www.nytimes.com/2026/07/21/climate/cameron-hamilton-fema-trump.html
+
 **Book Review: ‘Unsayable,’ by Michael Cunningham**\
 `Blending autobiography with meditations on craft, “Unsayable” feels destined for the graduation gift bag.`\
 https://www.nytimes.com/2026/07/21/books/review/unsayable-michael-cunningham.html
