@@ -1,3 +1,7 @@
+**Cyclosporiasis Cases in the United States Hit Record High**\
+`Federal health officials have confirmed another 2,500 cases of the parasitic infection.`\
+https://www.nytimes.com/2026/07/21/well/cyclospora-cases-record-cdc.html
+
 **Jury Deadlocks on Murder Charges Against 2 Men in California Mass Shooting**\
 `The defendants were convicted of weapons charges in connection with the 2022 shootout in Sacramento, which left six people dead and 13 others injured outside a downtown arena.`\
 https://www.nytimes.com/2026/07/21/us/sacramento-mass-shooting-trial-verdict.html

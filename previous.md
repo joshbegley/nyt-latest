@@ -1,3 +1,7 @@
+**Cyclosporiasis Cases in the United States Hit Record High**\
+`Federal health officials have confirmed another 2,500 cases of the parasitic infection.`\
+https://www.nytimes.com/2026/07/21/well/cyclospora-cases-record-cdc.html
+
 **Jury Deadlocks on Murder Charges Against 2 Men in California Mass Shooting**\
 `The defendants were convicted of weapons charges in connection with the 2022 shootout in Sacramento, which left six people dead and 13 others injured outside a downtown arena.`\
 https://www.nytimes.com/2026/07/21/us/sacramento-mass-shooting-trial-verdict.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/guerra-iran-soldado
 **How Laurie Anderson and Julia Sherman Throw a Party**\
 `For a memorable sweet and a celebratory gathering, the chef and writer Julia Sherman teamed up with the musician and artist.`\
 https://www.nytimes.com/2026/07/21/t-magazine/laurie-anderson-julia-sherman-oberon-lunch.html
-
-**Shining a Spotlight on the Atrocities in Sudan**\
-`Readers respond to an editorial, “The World Must Wake Up to the Horror in Sudan.” Also: Young people and guns; “gray divorce.”`\
-https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html
 
