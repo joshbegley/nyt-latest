@@ -1,3 +1,11 @@
+**Pentagon Identifies Soldier Killed in Iran War as Sgt. Michael Emmanuel Swinton**\
+`Sgt. Michael Emmanuel Swinton, the 17th service member to be named, was killed during the disposal of a drone in northern Iraq.`\
+https://www.nytimes.com/2026/07/21/us/pentagon-identifies-soldier-iran-war-emmanuel-swinton.html
+
+**Why Does This Jacket Cost $770? Because It Made Me a New Man.**\
+`Lots of men are geeking out over very expensive clothes — and I became one of them.`\
+https://www.nytimes.com/2026/07/21/magazine/menswear-clothes.html
+
 **What We Know About Tuesday’s Arizona Primaries**\
 `Arizona primary voters will choose nominees for governor, secretary of state and for key races that could determine control of the House.`\
 https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-election-what-we-know.html

@@ -1,3 +1,7 @@
+**Pentagon Identifies Soldier Killed in Iran War as Sgt. Michael Emmanuel Swinton**\
+`Sgt. Michael Emmanuel Swinton, the 17th service member to be named, was killed during the disposal of a drone in northern Iraq.`\
+https://www.nytimes.com/2026/07/21/us/pentagon-identifies-soldier-iran-war-emmanuel-swinton.html
+
 **Street Style Look of the Week: Ex-Roommates Still on the Same Fashion Wavelength**\
 `It’s been a while since Angelina Ellis and Aiden Smith roomed together at Butler University, but the sartorial synchronicity still flares up on occasion.`\
 https://www.nytimes.com/2026/07/21/style/street-style-look-cutoff-denim.html
@@ -170,7 +174,7 @@ https://www.nytimes.com/2026/07/21/learning/word-of-the-day-rhapsodize.html
 `For decades, filmmakers have been borrowing plot lines and metaphors from Homer’s epic for adventures set in different eras and realities.`\
 https://www.nytimes.com/2026/07/21/movies/the-odyssey-movie-adaptations.html
 
-**I Thought ‘Menswear’ Was for Other Men. Then I Touched the Perfect Hat.**\
+**Why Does This Jacket Cost $770? Because It Made Me a New Man.**\
 `Lots of men are geeking out over very expensive clothes — and I became one of them.`\
 https://www.nytimes.com/2026/07/21/magazine/menswear-clothes.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/fashion/philippe-stern-patek-philippe.html
 **Maduro’s Case Is Due Back in Court. Prosecutors May Be in for a Big Surprise.**\
 `It’s a story a century old.`\
 https://www.nytimes.com/2026/07/21/opinion/nicolas-maduro-court-extradition.html
-
-**In Venice, Clocks That Convey More Than Just Time**\
-`The artist Julian Charrière weathered 19th-century clocks in limestone caves and under waterfalls to remind viewers of our connection to nature.`\
-https://www.nytimes.com/2026/07/21/fashion/clocks-julian-charriere-museo-correr-venice.html
 
