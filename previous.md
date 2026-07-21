@@ -1,3 +1,7 @@
+**Democrats Demand Information From Law Firm Over Its Deal With Trump**\
+`The demand from top congressional Democrats signals their plans to investigate the nature of law firms’ agreements with the Trump administration if they return to power after the midterm elections.`\
+https://www.nytimes.com/2026/07/21/us/politics/democrats-demand-information-from-law-firm-over-its-deal-with-trump.html
+
 **Judges Reject Biden’s Effort to Keep Memoir Recordings Private**\
 `The former president is fighting the Justice Department’s effort to release tapes and transcripts.`\
 https://www.nytimes.com/2026/07/21/us/politics/biden-recordings.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/europe/ukraine-zelensky-protests.html
 **‘Play, Don’t Pay’: Meet the College Football YouTuber Who Led a Gaming Revolt**\
 `James Bordeaux explains what happens when creators show principles — and how populism can work online.`\
 https://www.nytimes.com/2026/07/21/podcasts/pay-dont-play-college-football-youtuber-gaming-revolt.html
-
-**Tuesday Forecast: Millions In Northeast Face Heavy Rain and Powerful Winds**\
-`Forecasters zeroed in on an area from Kentucky to New York as being the most at risk for dangerous weather.`\
-https://www.nytimes.com/2026/07/21/weather/new-york-rain-flood-forecast.html
 

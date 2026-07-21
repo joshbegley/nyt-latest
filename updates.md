@@ -1,3 +1,7 @@
+**Democrats Demand Information From Law Firm Over Its Deal With Trump**\
+`The demand from top congressional Democrats signals their plans to investigate the nature of law firms’ agreements with the Trump administration if they return to power after the midterm elections.`\
+https://www.nytimes.com/2026/07/21/us/politics/democrats-demand-information-from-law-firm-over-its-deal-with-trump.html
+
 **Judges Reject Biden’s Effort to Keep Memoir Recordings Private**\
 `The former president is fighting the Justice Department’s effort to release tapes and transcripts.`\
 https://www.nytimes.com/2026/07/21/us/politics/biden-recordings.html
