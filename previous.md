@@ -1,3 +1,7 @@
+**What Happened When Meta Used A.I. to Ban Accounts on Facebook and Instagram**\
+`Users said the technology mistakenly deleted their accounts. To resolve the issue, they still had to rely on A.I.`\
+https://www.nytimes.com/2026/07/21/technology/meta-ai-facebook-instagram-accounts.html
+
 **Democrats Demand Information From Law Firm Over Its Deal With Trump**\
 `The demand from top congressional Democrats signals their plans to investigate the nature of law firms’ agreements with the Trump administration if they return to power after the midterm elections.`\
 https://www.nytimes.com/2026/07/21/us/politics/democrats-demand-information-from-law-firm-over-its-deal-with-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/asia/afghanistan-floods-deaths-nuristan
 **When Protesters Speak, Zelensky Listens, in the Ukrainian Tradition**\
 `With anger high over the firing of the defense minister, the president’s office is signaling an openness to compromise.`\
 https://www.nytimes.com/2026/07/21/world/europe/ukraine-zelensky-protests.html
-
-**‘Play, Don’t Pay’: Meet the College Football YouTuber Who Led a Gaming Revolt**\
-`James Bordeaux explains what happens when creators show principles — and how populism can work online.`\
-https://www.nytimes.com/2026/07/21/podcasts/pay-dont-play-college-football-youtuber-gaming-revolt.html
 
