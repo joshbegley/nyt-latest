@@ -1,3 +1,7 @@
+**What to Know About Iran’s Pickaxe Mountain**\
+`The fortified underground complex, in central Iran, is about one mile away from the Natanz uranium enrichment facility.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/what-to-know-about-irans-pickaxe-mountain.html
+
 **What the Cyclospora Outbreak Reveals**\
 `Warming is expected to fuel the spread of food-borne pathogens. We might not be prepared.`\
 https://www.nytimes.com/2026/07/21/climate/climate-cyclospora.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-
 **Restaurant Review: Chez Panisse and Bar Panisse in Berkeley**\
 `The Bay Area farm-to-table classic changed the American restaurant scene. Now it has opened a dynamic new place right next door.`\
 https://www.nytimes.com/2026/07/21/dining/restaurant-review-chez-panisse.html
-
-**France Joins a Global Move Toward Restricting Social Media for Children**\
-`Its new law, the first of its kind enacted by a European country, will ban access to some accounts for anyone under 15.`\
-https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
 

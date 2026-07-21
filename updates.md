@@ -1,3 +1,15 @@
+**What the Cyclospora Outbreak Reveals**\
+`Warming is expected to fuel the spread of food-borne pathogens. We might not be prepared.`\
+https://www.nytimes.com/2026/07/21/climate/climate-cyclospora.html
+
+**Israeli Troops Shoot Near Lebanese Army Deploying in ‘Pilot Zone’**\
+`Israeli forces fired shots near Lebanese Army troops on Tuesday as they took the first steps in a new U.S.-brokered plan to transfer control of occupied areas to Beirut.`\
+https://www.nytimes.com/video/world/middleeast/100000011044082/lebanon-israel-pilot-zone.html
+
+**Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
+`The Pentagon seeks an additional $70 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
+https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011045183/21vid-hegseth-lloyd-austin.html
