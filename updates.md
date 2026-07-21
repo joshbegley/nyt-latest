@@ -1,3 +1,7 @@
+**British Politician Ann Widdecombe Was Murdered with a Hammer, Prosecutors Say**\
+`The politician, Ann Widdecombe, was eating lunch at home when a man walked in and asked whether she had bank cards, security footage showed.`\
+https://www.nytimes.com/2026/07/21/world/europe/ann-widdecombe-death-hammer.html
+
 **What Happened When Meta Used A.I. to Ban Accounts on Facebook and Instagram**\
 `Users said the technology mistakenly deleted their accounts. To resolve the issue, they still had to rely on A.I.`\
 https://www.nytimes.com/2026/07/21/technology/meta-ai-facebook-instagram-accounts.html
