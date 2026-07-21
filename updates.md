@@ -1,3 +1,7 @@
+**How Two Brothers Dug for Dead Relatives: With a Shovel and a Kitchen Knife**\
+`After Venezuela’s devastating earthquakes, Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
+https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
+
 **Lives Lost**\
 `We look at the American casualties in the war with Iran.`\
 https://www.nytimes.com/2026/07/21/briefing/american-casualties-iran-war.html
