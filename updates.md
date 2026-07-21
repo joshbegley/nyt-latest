@@ -1,3 +1,11 @@
+**Oil Buyers Battered by the Iran War Energy Crisis Race to Build Buffers**\
+`As rising fuel costs clobber their economies, the Philippines and other developing countries in Asia are pushing to build strategic petroleum reserves to cushion against future shocks.`\
+https://www.nytimes.com/2026/07/21/business/asia-strategic-oil-reserves.html
+
+**1,700 H.I.V. Treatment Sites Closed After Trump Aid Cuts, a Study Finds**\
+`New research also shows that children and high-risk adult populations have been particularly affected.`\
+https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html
+
 **Así buscaron dos chicos a sus familiares en los escombros de La Guaira**\
 `Winder y Deivi Delfín excavaron durante 26 días para encontrar los cuerpos de su madre, su hermano y su abuela.`\
 https://www.nytimes.com/es/2026/07/21/espanol/america-latina/venezuela-terremotos-busqueda-victimas.html
