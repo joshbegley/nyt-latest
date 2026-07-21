@@ -1,3 +1,7 @@
+**Lives Lost**\
+`We look at the American casualties in the war with Iran.`\
+https://www.nytimes.com/2026/07/21/briefing/american-casualties-iran-war.html
+
 **Lebanese Troops Deploy in Israeli-Held Village Under New Cease-Fire Plan**\
 `The Israeli military withdrew from the village under a U.S.-brokered deal to transfer control of occupied areas back to Lebanon after months of war. But Hezbollah has rejected the truce.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/lebanon-israel-ceasefire-plan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/arts/television/cristo-fernandez-dani-rojas-i
 **A Dad’s Solution to His Son’s Difficulty With Watches**\
 `Darren Sher has dyslexia, so he recognized the problem his dyslexic son had telling time. His answer: the Sher Kids Watch with an easy-to-read dial.`\
 https://www.nytimes.com/2026/07/21/fashion/watches-dyslexia-darren-sher.html
-
-**A Medical Emergency Refocuses a Watch Brand and Its Founder**\
-`R.T. Custer’s recovery from a stroke has had as much of an effect on his Vortic Watch Company as it has had on his mind-set.`\
-https://www.nytimes.com/2026/07/21/fashion/watches-vortic-colorado.html
 
