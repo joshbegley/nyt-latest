@@ -1,3 +1,7 @@
+**Jury Deadlocks on Murder Charges Against 2 Men in California Mass Shooting**\
+`The defendants were convicted of weapons charges in connection with the 2022 shootout in Sacramento, which left six people dead and 13 others injured outside a downtown arena.`\
+https://www.nytimes.com/2026/07/21/us/sacramento-mass-shooting-trial-verdict.html
+
 **Former Conductor to Plead Guilty in Child Sex Abuse Imagery Case**\
 `Julian Wachner, the former music director at Trinity Church in New York, faces up to 10 years in prison after reaching a plea deal.`\
 https://www.nytimes.com/2026/07/21/arts/music/wachner-plea-deal-child-sex-abuse-imagery-trinity-church.html
