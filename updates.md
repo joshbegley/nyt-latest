@@ -1,3 +1,11 @@
+**Trump Officials Withhold $1 Billion in Medicaid Funds From California and Minnesota Over Suspected Fraud**\
+`The administration accused California and Minnesota of fraudulent activity in their public health insurance programs.`\
+https://www.nytimes.com/2026/07/21/us/politics/trump-administration-medicaid-california-minnesota-fraud.html
+
+**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
+`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
+https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
+
 **Las frutas y verduras nos siguen enfermando. Esta es la razón**\
 `Los brotes de “Cyclospora” son solo una fracción de la crisis de seguridad alimentaria vinculada a los productos agrícolas frescos. No hay soluciones rápidas ni fáciles para este problema.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/cyclospora-sintomas-lechuga.html
