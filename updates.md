@@ -1,3 +1,11 @@
+**Watch Live: Hegseth and Caine Testify Before the Senate**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations Committee.`\
+https://www.nytimes.com/video/embedded/us/politics/100000011043847/watch-live-hegseth-and-caine-testify-before-the-senate.html
+
+**Trump impondrá un arancel del 50% a muchos productos canadienses**\
+`El gobierno de EE. UU. utilizará una disposición legal no probada para imponer aranceles significativos a las exportaciones canadienses, lo cual reavivará un conflicto con uno de los mayores socios comerciales del país.`\
+https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/trump-aranceles-canada.html
+
 **Inside the Fight to Rid South Africa of Black Immigrants**\
 `As immigration surges in the country, activists are going to extreme lengths to expel foreign nationals, often taking the law into their own hands.`\
 https://www.nytimes.com/2026/07/21/world/africa/south-africa-migrants.html
