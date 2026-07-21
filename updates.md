@@ -1,3 +1,23 @@
+**Trump’s Kiss of Death**\
+`On top of everything else, the president is inept.`\
+https://www.nytimes.com/2026/07/21/opinion/trump-inept-second-term.html
+
+**Cyclospora Spreads Through Human Feces. How Did It Get Into Our Food Supply?**\
+`The large number of cases suggests that excrement entered the food system on a “surprising scale.”`\
+https://www.nytimes.com/2026/07/21/well/eat/how-cyclospora-contaminates-food.html
+
+**‘Too Rare to Care’? A New Center for Rare Diseases Hopes to Change That**\
+`A new nonprofit wants to streamline gene therapy for diseases often avoided by pharmaceutical companies — making treatment more like a routine procedure than a bespoke drug.`\
+https://www.nytimes.com/2026/07/21/health/gene-therapy-rare-diseases-epilepsy.html
+
+**Corrections: July 21, 2026**\
+`Corrections that appeared in print on Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/21/pageoneplus/corrections-july-21-2026.html
+
+**Two Young Brothers and Their Search for Venezuela’s Dead**\
+`Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
+https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
+
 **Once Anti-Abortion, Now a Progressive: The Evolution of a Maine Democrat**\
 `Troy Jackson, who is expected to become his party’s nominee in the state’s marquee Senate race, has long been an economic populist, but his positions on social issues have changed markedly over time.`\
 https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-maine-senate.html

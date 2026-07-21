@@ -36,7 +36,7 @@ https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-election-what-we
 
 **Houthis in Yemen Edge Closer to Entering U.S.-Iran War**\
 `The Iran-backed Houthi militia in Yemen has declared a Red Sea blockade on Saudi Arabia, potentially opening up a new front in the war rippling across the Middle East.`\
-https://www.nytimes.com/2026/07/21/world/middleeast/houthis-in-yemen-edge-closer-to-entering-us-iran-war.html
+https://www.nytimes.com/2026/07/21/world/middleeast/houthis-yemen-iran-war.html
 
 **It’s the Wrong Way to Address A.I. Job Loss. Trump Loves It.**\
 `The president has had the government take shares in all sorts of corporations. This approach would be particularly bad for the A.I. industry.`\
