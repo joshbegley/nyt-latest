@@ -1,3 +1,11 @@
+**Zelensky Dismisses Ukraine’s Top General**\
+`The move follows a wave of protests in response to the firing of the defense minister, who had clashed with the general over how to fight the war.`\
+https://www.nytimes.com/2026/07/21/world/europe/ukraine-syrskyi-russia-war-fedorov-zelensky-protest.html
+
+**Troy Jackson Tightens Hold on Democratic Senate Nomination in Maine**\
+`State Democrats released a ballot for their nominating convention on Saturday that includes Mr. Jackson and three long-shot candidates with little public support from delegates.`\
+https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-maine-senate-democrats.html
+
 **New Poster for ‘La La Land’ Fixes Ryan Gosling’s Wayward Hand**\
 `Gosling’s hand position during a dance scene didn’t match Emma Stone’s, haunting him for years after the movie’s release.`\
 https://www.nytimes.com/2026/07/21/movies/la-la-land-poster-gosling-hand.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/21/movies/ava-duvernay-14th-new-york-film-festiv
 **Arizona Mine Inspector Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-mine-inspector-primary.html
-
-**Arizona Corporation Commissioner Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-corporation-commissioner-primary.html
-
-**Arizona Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary elections.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
