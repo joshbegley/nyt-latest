@@ -1,3 +1,19 @@
+**¿Es así como se ve una era posalfabetizada?**\
+`No son los niños los que dejaron de leer. Son sus abuelos.`\
+https://www.nytimes.com/es/2026/07/21/espanol/opinion/leer-telefonos-celulares.html
+
+**The World Cup in New York and New Jersey, by the Numbers**\
+`The World Cup brought hordes of soccer fans to town, and locals flocked to watch parties. But did the games deliver on promises of an economic boon?`\
+https://www.nytimes.com/2026/07/21/nyregion/world-cup-nyc-nj-economy.html
+
+**NYT Spelling Bee Answers for July 21, 2025**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/21/crosswords/spelling-bee-forum.html
+
+**A Newsletter That Looks on the Bright Side of Things**\
+`In The Good List, Melissa Kirsch challenges readers to investigate their own lives and find happiness in places they might not expect.`\
+https://www.nytimes.com/2026/07/21/insider/good-list-newsletter.html
+
 **China enfrenta un dilema del huevo y la gallina**\
 `El país consume más huevos por habitante que casi cualquier otra nación, por lo que el reciente incremento de los costos no ha pasado desapercibido.`\
 https://www.nytimes.com/es/2026/07/21/espanol/negocios/china-economia-precio-huevos.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011042584/openai-and-anthropic-are-
 **España celebra la victoria en el Mundial con un optimismo más amplio**\
 `Para muchos aficionados, la victoria en la Copa Mundial consolidó la creencia de que algo prometedor —a nivel cultural, económico y deportivo— está ocurriendo en el país.`\
 https://www.nytimes.com/es/2026/07/20/espanol/mundo/espana-campeon-mundial.html
-
-**Apple Accuses OpenAI of Trying to Steal Hardware Secrets**\
-`Apple’s recent lawsuit against OpenAI is filled with allegations, one of which accuses OpenAI of stealing the technique for a secret metal-finishing process Apple uses.`\
-https://www.nytimes.com/video/podcasts/100000011042532/apple-accuses-openai-of-trying-to-steal-hardware-secrets.html
-
-**Judge Tosses Justice Department Challenge to Minnesota Immigration Laws**\
-`The Trump administration, which flooded Minnesota with immigration agents this year, argued that policies limiting cooperation with ICE were unconstitutional.`\
-https://www.nytimes.com/2026/07/20/us/minnesota-immigration-lawsuit.html
-
-**I’m a Screenwriter. Hollywood Is in Trouble.**\
-`A scriptwriter’s lament about Hollywood’s decline`\
-https://www.nytimes.com/2026/07/20/opinion/paramount-warner-bros-merger-hollywood.html
-
-**The Sewer Knows What You Ate**\
-`During the Covid-19 pandemic, wastewater testing became a virus warning system. Now, scientists are using the approach to understand how communities eat.`\
-https://www.nytimes.com/2026/07/20/science/sewer-diet-research.html
 

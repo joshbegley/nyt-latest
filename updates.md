@@ -1,3 +1,19 @@
+**¿Es así como se ve una era posalfabetizada?**\
+`No son los niños los que dejaron de leer. Son sus abuelos.`\
+https://www.nytimes.com/es/2026/07/21/espanol/opinion/leer-telefonos-celulares.html
+
+**The World Cup in New York and New Jersey, by the Numbers**\
+`The World Cup brought hordes of soccer fans to town, and locals flocked to watch parties. But did the games deliver on promises of an economic boon?`\
+https://www.nytimes.com/2026/07/21/nyregion/world-cup-nyc-nj-economy.html
+
+**NYT Spelling Bee Answers for July 21, 2025**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/21/crosswords/spelling-bee-forum.html
+
+**A Newsletter That Looks on the Bright Side of Things**\
+`In The Good List, Melissa Kirsch challenges readers to investigate their own lives and find happiness in places they might not expect.`\
+https://www.nytimes.com/2026/07/21/insider/good-list-newsletter.html
+
 **China enfrenta un dilema del huevo y la gallina**\
 `El país consume más huevos por habitante que casi cualquier otra nación, por lo que el reciente incremento de los costos no ha pasado desapercibido.`\
 https://www.nytimes.com/es/2026/07/21/espanol/negocios/china-economia-precio-huevos.html
