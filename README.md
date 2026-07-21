@@ -1,3 +1,23 @@
+**Inside the Fight to Rid South Africa of Black Immigrants**\
+`As immigration surges in the country, activists are going to extreme lengths to expel foreign nationals, often taking the law into their own hands.`\
+https://www.nytimes.com/2026/07/21/world/africa/south-africa-migrants.html
+
+**The Last Song That Made Me Cry, and 4 Other Recommendations**\
+`Listen to tracks from Phoebe Bridgers, Kelela, L7 and more.`\
+https://www.nytimes.com/2026/07/21/arts/music/amplifier-newsletter-phoebe-bridgers-kelela-spoon.html
+
+**3 Myths Fueling Anti-Immigrant Sentiment in South Africa**\
+`As the nation convulses with protests and violence, data and research suggest that some of the biggest arguments against foreigners don’t stand up against the facts.`\
+https://www.nytimes.com/2026/07/21/world/africa/south-africa-immigration-protests-explainer.html
+
+**Monkeys Understand Shapes in Almost the Same Way as Humans**\
+`Our geometric intuition, long considered something that sets us apart, seems to be shared with other primates.`\
+https://www.nytimes.com/2026/07/21/science/monkeys-cognition-shapes-geometry.html
+
+**Los hutíes de Yemen podrían entrar a la guerra entre EE. UU. e Irán**\
+`La milicia hutí en Yemen, respaldada por Irán, ha declarado un bloqueo a Arabia Saudita en el mar Rojo, lo que abriría un nuevo frente en el conflicto que se extiende por Medio Oriente.`\
+https://www.nytimes.com/es/2026/07/21/espanol/mundo/guerra-huties-yemen-iran.html
+
 **Meet Jimothy, the Seattle Raccoon Who Is Taking Over the Internet**\
 `The stout raccoon, which has a spinal condition, is “an example to all of us that you don’t have to be perfect to be loved,” a Seattle City Council member said.`\
 https://www.nytimes.com/2026/07/21/style/jimothy-raccoon-seattle-videos.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-h
 **Arizona Governor Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-governor-primary.html
-
-**Arizona School Superintendent Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-school-superintendent-primary.html
-
-**Democrats’ Top Senate Candidate in Maine Won’t Support Schumer for Leader**\
-`Troy Jackson, who is set to become the party’s nominee, also said in an interview that he was not sure he wanted the support of Senator Chuck Schumer in the general election.`\
-https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-schumer-maine-senate.html
-
-**Cameron Hamilton Poised to Lead FEMA Once More**\
-`Cameron Hamilton defended the agency last year when President Trump talked about eliminating it. Emergency managers hope for more stability if he’s confirmed as administrator.`\
-https://www.nytimes.com/2026/07/21/climate/cameron-hamilton-fema-trump.html
-
-**Book Review: ‘Unsayable,’ by Michael Cunningham**\
-`Blending autobiography with meditations on craft, “Unsayable” feels destined for the graduation gift bag.`\
-https://www.nytimes.com/2026/07/21/books/review/unsayable-michael-cunningham.html
-
-**Oil Buyers Battered by the Iran War Energy Crisis Race to Build Buffers**\
-`As rising fuel costs clobber their economies, the Philippines and other developing countries in Asia are pushing to build strategic petroleum reserves to cushion against future shocks.`\
-https://www.nytimes.com/2026/07/21/business/asia-strategic-oil-reserves.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
