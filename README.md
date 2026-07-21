@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
 
 **Software Error Led to 400 Noncitizens Voting in N.J., Gov. Sherrill Says**\
-`The New Jersey Department of Motor Vehicles glitch also led to roughly 6,600 noncitizens being registered to vote.`\
+`The New Jersey Department of Motor Vehicles glitch also led to roughly 6,600 noncitizens being registered to vote, Gov. Mikie Sherrill announced on Tuesday.`\
 https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
 
 **Oil Firms Knew for Decades of Methane’s Danger to Planet, Documents Suggest**\

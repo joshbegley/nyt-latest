@@ -1,3 +1,15 @@
+**Susumu Tonegawa Dies at 86; Nobel Laureate Showed How Antibodies Fight Infection**\
+`The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
+https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
+
+**Software Error Led to 400 Noncitizens Voting in N.J., Gov. Sherrill Says**\
+`The New Jersey Department of Motor Vehicles glitch also led to roughly 6,600 noncitizens being registered to vote.`\
+https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
+
+**Oil Firms Knew for Decades of Methane’s Danger to Planet, Documents Suggest**\
+`The companies knew they were releasing more of the greenhouse gas than they publicly reported, according to industry files cited by the Center for Climate Integrity, an activist organization.`\
+https://www.nytimes.com/2026/07/21/climate/methane-natural-gas-leaks-flaring.html
+
 **The Next Big Thing in Men’s Pants? It’s Stolen From the Ladies.**\
 `Plus: Japan’s leg-hair debate and some final World Cup fashion thoughts.`\
 https://www.nytimes.com/2026/07/21/style/pants-paper-bag-menswear.html
