@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 21, 2026**\
+`Kenneth Cortes thinks out loud.`\
+https://www.nytimes.com/2026/07/20/crosswords/daily-puzzle-2026-07-21.html
+
 **At Least 27 Dead in Guyana After Ferry Capsizes**\
 `Dozens of others are feared dead as crews scour for bodies after the vessel sank on its way to a gold-mining outpost in the South American country.`\
 https://www.nytimes.com/2026/07/20/world/americas/guyana-ferry-sinking-barima.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/automobiles/collectibles/altadena-fires-cars-
 **Car Collectors Are Increasingly Shopping on Online Auctions**\
 `Many collectors buy their classics online and never touch them until they arrive in their garage. And the practice is growing.`\
 https://www.nytimes.com/2026/07/20/automobiles/collectibles/cars-no-test-drive.html
-
-**In Venezuela’s Rubble, a Search for the Family Pets**\
-`Volunteers are reuniting pets with families, offering Venezuelans comfort amid loss and devastation.`\
-https://www.nytimes.com/2026/07/20/world/americas/venezuela-earthquakes-volunteer-pets.html
 

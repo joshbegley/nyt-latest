@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 21, 2026**\
+`Kenneth Cortes thinks out loud.`\
+https://www.nytimes.com/2026/07/20/crosswords/daily-puzzle-2026-07-21.html
+
 **At Least 27 Dead in Guyana After Ferry Capsizes**\
 `Dozens of others are feared dead as crews scour for bodies after the vessel sank on its way to a gold-mining outpost in the South American country.`\
 https://www.nytimes.com/2026/07/20/world/americas/guyana-ferry-sinking-barima.html
