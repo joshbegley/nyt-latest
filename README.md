@@ -1,3 +1,7 @@
+**Daniel Ortega, President of Nicaragua, Says He Plans to Abolish Elections**\
+`Daniel Ortega has been accused of rigging recent elections in Nicaragua. Now, the authoritarian leader says the nation won’t even hold a vote.`\
+https://www.nytimes.com/2026/07/20/world/americas/nicaragua-ortega-abolish-elections.html
+
 **Trial Date Set for Former Olympian Accused of Damaging Reflecting Pool**\
 `David Hearn, 67, who is charged with destruction of property, has pleaded not guilty. He is one of several people the authorities say vandalized the pool.`\
 https://www.nytimes.com/2026/07/20/us/david-hearn-reflecting-pool-vandalism-trial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/automobiles/collectibles/jensen-interceptor-d
 **Inside the Deadly U.S. Airstrike on a Shadow Fleet Tanker**\
 `Evidence suggests the ship on which three Indian sailors died was not moving when it was struck in the Gulf of Oman, but it had been engaged in risky offshore transfers of oil.`\
 https://www.nytimes.com/2026/07/20/world/middleeast/inside-the-deadly-us-airstrike-on-a-shadow-fleet-tanker.html
-
-**Shooting Near Santa Monica Pier Leaves One Dead**\
-`The Santa Monica Police Department said its officers were investigating the shooting in a parking lot on the pier’s north side.`\
-https://www.nytimes.com/2026/07/20/us/santa-monica-pier-shooting.html
 
