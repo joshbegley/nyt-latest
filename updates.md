@@ -1,3 +1,7 @@
+**Los griegos opinan sobre ‘La odisea’ de Nolan**\
+`Antes de su llegada a las salas, muchos en Grecia dudaban de esta nueva versión de un relato que consideran suyo. Pero tras el fin de semana de estreno, las reseñas fueron en su mayoría positivas.`\
+https://www.nytimes.com/es/2026/07/21/espanol/cultura/odisea-nolan-grecia.html
+
 **¿Es así como se ve una era posalfabetizada?**\
 `No son los niños los que dejaron de leer. Son sus abuelos.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/leer-telefonos-celulares.html

@@ -1,3 +1,7 @@
+**Los griegos opinan sobre ‘La odisea’ de Nolan**\
+`Antes de su llegada a las salas, muchos en Grecia dudaban de esta nueva versión de un relato que consideran suyo. Pero tras el fin de semana de estreno, las reseñas fueron en su mayoría positivas.`\
+https://www.nytimes.com/es/2026/07/21/espanol/cultura/odisea-nolan-grecia.html
+
 **¿Es así como se ve una era posalfabetizada?**\
 `No son los niños los que dejaron de leer. Son sus abuelos.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/leer-telefonos-celulares.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/us/politics/snap-food-stamps-arizona.html
 **OpenAI and Anthropic Are (Still) Beefing**\
 `“These companies hate each other.” The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss the constant hatred felt between Anthropic and OpenAI and what the companies have done to mitigate it.`\
 https://www.nytimes.com/video/podcasts/100000011042584/openai-and-anthropic-are-still-beefing.html
-
-**España celebra la victoria en el Mundial con un optimismo más amplio**\
-`Para muchos aficionados, la victoria en la Copa Mundial consolidó la creencia de que algo prometedor —a nivel cultural, económico y deportivo— está ocurriendo en el país.`\
-https://www.nytimes.com/es/2026/07/20/espanol/mundo/espana-campeon-mundial.html
 
