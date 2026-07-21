@@ -1,3 +1,7 @@
+**At Least 27 Dead in Guyana After Ferry Capsizes**\
+`Dozens of others are feared dead as crews scour for bodies after the vessel sank on its way to a gold-mining outpost in the South American country.`\
+https://www.nytimes.com/2026/07/20/world/americas/guyana-ferry-sinking-barima.html
+
 **Trump to Impose 50% Tariffs on Wide Range of Canadian Goods**\
 `President Trump signed orders on Monday to impose a 50 percent tariff on a wide range of Canadian exports, including wine and dairy products.`\
 https://www.nytimes.com/video/us/politics/100000011042976/trump-canada-goods-tariffs.html
