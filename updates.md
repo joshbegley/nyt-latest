@@ -1,3 +1,15 @@
+**When Protesters Speak, Zelensky Listens, in the Ukrainian Tradition**\
+`With anger high over the firing of the defense minister, the president’s office is signaling an openness to compromise.`\
+https://www.nytimes.com/2026/07/21/world/europe/ukraine-zelensky-protests.html
+
+**‘Play, Don’t Pay’: Meet the College Football YouTuber Who Led a Gaming Revolt**\
+`James Bordeaux explains what happens when creators show principles — and how populism can work online.`\
+https://www.nytimes.com/2026/07/21/podcasts/pay-dont-play-college-football-youtuber-gaming-revolt.html
+
+**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
+`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
+https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
+
 **Tuesday Forecast: Millions In Northeast Face Heavy Rain and Powerful Winds**\
 `Forecasters zeroed in on an area from Kentucky to New York as being the most at risk for dangerous weather.`\
 https://www.nytimes.com/2026/07/21/weather/new-york-rain-flood-forecast.html

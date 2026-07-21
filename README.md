@@ -1,3 +1,7 @@
+**Flash Floods Kill at Least 23 in Afghanistan**\
+`Dozens remained missing after floods swept through a city in Nuristan, an isolated province in the country’s east.`\
+https://www.nytimes.com/2026/07/21/world/asia/afghanistan-floods-deaths-nuristan.html
+
 **When Protesters Speak, Zelensky Listens, in the Ukrainian Tradition**\
 `With anger high over the firing of the defense minister, the president’s office is signaling an openness to compromise.`\
 https://www.nytimes.com/2026/07/21/world/europe/ukraine-zelensky-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/australia/australia-identical-quadruple
 **Seth Meyers Calls Trump ‘The Sports Reaper’**\
 `The late-night host joked that the president’s sports curse had struck again after he backed Lionel Messi of Argentina, which then lost the World Cup final to Spain.`\
 https://www.nytimes.com/2026/07/21/arts/television/late-night-trump-soccer-fifa-curse.html
-
-**Los griegos opinan sobre ‘La odisea’ de Nolan**\
-`Antes de su llegada a las salas, muchos en Grecia dudaban de esta nueva versión de un relato que consideran suyo. Pero tras el fin de semana de estreno, las reseñas fueron en su mayoría positivas.`\
-https://www.nytimes.com/es/2026/07/21/espanol/cultura/odisea-nolan-grecia.html
 
