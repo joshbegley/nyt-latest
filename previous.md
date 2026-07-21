@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/07/21/nyregion/mamdani-dollar-bill-artist.html
 https://www.nytimes.com/2026/07/21/opinion/fashion-slop-boring.html
 
 **What We Know About Tuesday’s Arizona Primaries**\
-`Arizona primary voters will chose nominees for governor, secretary of state and for key races that could determine control of the House.`\
+`Arizona primary voters will choose nominees for governor, secretary of state and for key races that could determine control of the House.`\
 https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-election-what-we-know.html
 
 **Houthis in Yemen Edge Closer to Entering U.S.-Iran War**\

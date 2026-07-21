@@ -1,3 +1,7 @@
+**What We Know About Tuesday’s Arizona Primaries**\
+`Arizona primary voters will choose nominees for governor, secretary of state and for key races that could determine control of the House.`\
+https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-election-what-we-know.html
+
 **Street Style Look of the Week: Ex-Roommates Still on the Same Fashion Wavelength**\
 `It’s been a while since Angelina Ellis and Aiden Smith roomed together at Butler University, but the sartorial synchronicity still flares up on occasion.`\
 https://www.nytimes.com/2026/07/21/style/street-style-look-cutoff-denim.html
