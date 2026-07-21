@@ -1,3 +1,11 @@
+**Oil Buyers Battered by the Iran War Energy Crisis Race to Build Buffers**\
+`As rising fuel costs clobber their economies, the Philippines and other developing countries in Asia are pushing to build strategic petroleum reserves to cushion against future shocks.`\
+https://www.nytimes.com/2026/07/21/business/asia-strategic-oil-reserves.html
+
+**1,700 H.I.V. Treatment Sites Closed After Trump Aid Cuts, a Study Finds**\
+`New research also shows that children and high-risk adult populations have been particularly affected.`\
+https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html
+
 **Así buscaron dos chicos a sus familiares en los escombros de La Guaira**\
 `Winder y Deivi Delfín excavaron durante 26 días para encontrar los cuerpos de su madre, su hermano y su abuela.`\
 https://www.nytimes.com/es/2026/07/21/espanol/america-latina/venezuela-terremotos-busqueda-victimas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/technology/100000011001849/ai-influencers-health-s
 **When Listening to Music Was a Team Sport**\
 `An exhibition at the Cooper Hewitt celebrates the glorious machines that gave us the soundtracks of our lives before streaming sites shoved them toward obsolescence.`\
 https://www.nytimes.com/2026/07/21/arts/design/art-of-noise-cooper-hewitt-smithsonian-design.html
-
-**The Ordeal of a 42-Day Hantavirus Quarantine: ‘I Felt Like a Prisoner’**\
-`Eighteen Americans were isolated for weeks in a Nebraska quarantine facility after being exposed to the deadly virus on a cruise ship. Many found the experience traumatic.`\
-https://www.nytimes.com/2026/07/21/health/hantavirus-quarantine-americans.html
-
-**Philippe Stern Took Risks. Patek Philippe Shows They Paid Off.**\
-`As president of the Swiss brand until 2009, he put his faith in preserving mechanical watchmaking, a decision now seen as key to the company’s current success.`\
-https://www.nytimes.com/2026/07/21/fashion/philippe-stern-patek-philippe.html
 
