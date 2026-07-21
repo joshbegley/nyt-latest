@@ -1,3 +1,7 @@
+**Drenaje linfático para el rostro: ¿qué beneficios tiene?**\
+`La técnica se ha utilizado para aumentar la circulación y, en algunos casos, reducir la acumulación de líquidos. Es menos claro si tensa e ilumina tu piel.`\
+https://www.nytimes.com/es/2026/07/21/espanol/masaje-drenaje-linfatico-piel-rostro.html
+
 **Watch Live: Hegseth and Caine Testify Before the Senate**\
 `Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations Committee.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011043847/watch-live-hegseth-and-caine-testify-before-the-senate.html
@@ -94,8 +98,8 @@ https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-
 `The Bay Area farm-to-table classic changed the American restaurant scene. Now it has opened a dynamic new place right next door.`\
 https://www.nytimes.com/2026/07/21/dining/restaurant-review-chez-panisse.html
 
-**France Is Poised to Restrict Social Media for Children**\
-`Its new law, which would be the first of its kind enacted by a European country, would ban access to some accounts for anyone under 15.`\
+**France Joins a Global Move Toward to Restricting Social Media for Children**\
+`Its new law, the first of its kind enacted by a European country, will ban access to some accounts for anyone under 15.`\
 https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
 
 **Las frutas y verduras nos siguen enfermando. Esta es la razón**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-h
 **Arizona Treasurer Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-treasurer-primary.html
-
-**Arizona Secretary of State Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-secretary-of-state-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
