@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011045183/21vid-hegseth-lloyd-austin.html
+
+**With Another Storm On the Way, Businesses Brace for More Flooding**\
+`Some businesses in low-lying areas of New York City have developed routines to keep their goods and customers dry.`\
+https://www.nytimes.com/2026/07/21/nyregion/nyc-flooding-storms-rain.html
+
 **Why Does Fashion Heart N.Y.?**\
 `T Magazine’s editor at large, Nick Haramis, examines why fashion designers can’t get enough of New York City.`\
 https://www.nytimes.com/video/t-magazine/100000011045163/why-does-fashion-heart-ny.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
 **Las frutas y verduras nos siguen enfermando. Esta es la razón**\
 `Los brotes de “Cyclospora” son solo una fracción de la crisis de seguridad alimentaria vinculada a los productos agrícolas frescos. No hay soluciones rápidas ni fáciles para este problema.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/cyclospora-sintomas-lechuga.html
-
-**Trump Officials Withhold $1 Billion in Medicaid Funds From California and Minnesota Over Suspected Fraud**\
-`The administration accused California and Minnesota of fraudulent activity in their public health insurance programs.`\
-https://www.nytimes.com/2026/07/21/us/politics/trump-administration-medicaid-california-minnesota-fraud.html
-
-**British Politician Ann Widdecombe Was Murdered with a Hammer, Prosecutors Say**\
-`The politician, Ann Widdecombe, was eating lunch at home when a man walked in and asked whether she had bank cards, security footage showed.`\
-https://www.nytimes.com/2026/07/21/world/europe/ann-widdecombe-death-hammer.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
