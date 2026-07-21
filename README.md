@@ -1,3 +1,7 @@
+**Even Under Populism, Elite Failure Is Still a Problem**\
+`A new critique of Trumpism is too easy on elites.`\
+https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
+
 **A Wartime Rift in Ukraine**\
 `President Volodymyr Zelensky fired his top general after a feud between old-school officers and younger innovators spilled into the streets.`\
 https://www.nytimes.com/2026/07/21/world/ukraine-general-fired-india-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/style/pants-paper-bag-menswear.html
 **La ‘Cyclospora’ se propaga a través de las heces humanas. ¿Cómo llegó al suministro de alimentos?**\
 `El gran número de casos sugiere que el excremento ingresó al sistema alimentario a una “escala sorprendente”.`\
 https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contaminacion-comida.html
-
-**Kaylee Hottle, ‘Godzilla vs. Kong’ Actress, Dies in Car Crash**\
-`A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
-https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
 
