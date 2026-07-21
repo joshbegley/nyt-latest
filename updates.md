@@ -1,3 +1,7 @@
+**Review Says Gates Foundation Did Not Participate in Epstein Crimes**\
+`A review by an outside law firm hired by the Gates Foundation investigated only the philanthropy and not Mr. Gates or his private office.`\
+https://www.nytimes.com/2026/07/21/business/gates-foundation-epstein.html
+
 **Here is the official plan to fix issues at Rikers Island**\
 `The official in charge of fixing New York City’s troubled jails submitted a plan to a federal judge on Tuesday to improve conditions at Rikers Island, calling for changes to investigations and discipline, as well as to some infrastructure.`\
 https://www.nytimes.com/interactive/2026/07/21/nyregion/rikers-plan.html

@@ -1,3 +1,7 @@
+**Houthi Blockade Could Worsen an Already Fragile Oil Market**\
+`With the Strait of Hormuz effectively closed, the militant group’s threats in the Red Sea jeopardize Saudi Arabia’s main workaround for oil exports.`\
+https://www.nytimes.com/2026/07/21/business/oil-red-sea-houthis.html
+
 **Review Says Gates Foundation Did Not Participate in Epstein Crimes**\
 `A review by an outside law firm hired by the Gates Foundation investigated only the philanthropy and not Mr. Gates or his private office.`\
 https://www.nytimes.com/2026/07/21/business/gates-foundation-epstein.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/arts/design/european-commission-venice-bienna
 **Today, In Short**\
 `Bats. Gatekeepers. And shorts at the office.`\
 https://www.nytimes.com/2026/07/21/briefing/today-in-short.html
-
-**Google Releases Three New Gemini A.I. Models**\
-`The models include one that is the company’s most powerful and another that is fine-tuned for cybersecurity, as Google competes with rivals like OpenAI and Anthropic.`\
-https://www.nytimes.com/2026/07/21/technology/google-ai-cybersecurity-gemini.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
