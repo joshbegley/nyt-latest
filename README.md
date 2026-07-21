@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011045038/21vid-hegseth-interruptions.html
+
 **Restaurant Review: Stars in New York**\
 `At Stars in the East Village, the hit-making team behind Claud and Penny find the balance between compelling food and well-curated drinks.`\
 https://www.nytimes.com/2026/07/21/dining/restaurant-review-stars-nyc.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/us/politics/democrats-demand-information-from
 **Judges Reject Biden’s Effort to Keep Memoir Recordings Private**\
 `The former president is fighting the Justice Department’s effort to release tapes and transcripts.`\
 https://www.nytimes.com/2026/07/21/us/politics/biden-recordings.html
-
-**Europe Cancels Venice Biennale Funding Over Russia’s Return**\
-`The European authorities had warned the organizers of the major art show for months that they would lose funding if Russia took part.`\
-https://www.nytimes.com/2026/07/21/arts/design/european-commission-venice-biennale-russia.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

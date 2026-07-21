@@ -1,3 +1,15 @@
+**Houthis Threaten Red Sea Blockade, Putting Oil Market at Greater Risk**\
+`With the Strait of Hormuz effectively closed, the militant group’s threats in the Red Sea jeopardize Saudi Arabia’s main workaround for oil exports.`\
+https://www.nytimes.com/2026/07/21/business/oil-red-sea-houthis.html
+
+**Zelensky Dismisses Ukraine’s Top General After Protests**\
+`The move followed the firing of a popular defense minister, who had clashed with the general over how to fight the war.`\
+https://www.nytimes.com/2026/07/21/world/europe/ukraine-syrskyi-russia-war-fedorov-zelensky-protest.html
+
+**Troy Jackson Tightens Hold on Democratic Senate Nomination in Maine**\
+`State Democrats released a ballot for their nominating convention on Saturday that includes Mr. Jackson and two long-shot candidates with little public support from delegates.`\
+https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-maine-senate-democrats.html
+
 **Restaurant Review: Stars in New York**\
 `At Stars in the East Village, the hit-making team behind Claud and Penny find the balance between compelling food and well-curated drinks.`\
 https://www.nytimes.com/2026/07/21/dining/restaurant-review-stars-nyc.html
