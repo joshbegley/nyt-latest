@@ -1,3 +1,7 @@
+**Lebanese Troops Deploy in Israeli-Held Village Under New Cease-Fire Plan**\
+`The Israeli military withdrew from the village under a U.S.-brokered deal to transfer control of occupied areas back to Lebanon after months of war. But Hezbollah has rejected the truce.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/lebanon-israel-ceasefire-plan.html
+
 **Epidemias de ira**\
 `Las sociedades siempre han tenido que lidiar con reacciones hostiles dirigidas contra los trabajadores de la salud durante las epidemias. ¿Por qué?`\
 https://www.nytimes.com/es/2026/07/21/espanol/mundo/epidemias-ira-trabajadores-salud.html

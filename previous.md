@@ -1,3 +1,7 @@
+**Lebanese Troops Deploy in Israeli-Held Village Under New Cease-Fire Plan**\
+`The Israeli military withdrew from the village under a U.S.-brokered deal to transfer control of occupied areas back to Lebanon after months of war. But Hezbollah has rejected the truce.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/lebanon-israel-ceasefire-plan.html
+
 **Epidemias de ira**\
 `Las sociedades siempre han tenido que lidiar con reacciones hostiles dirigidas contra los trabajadores de la salud durante las epidemias. ¿Por qué?`\
 https://www.nytimes.com/es/2026/07/21/espanol/mundo/epidemias-ira-trabajadores-salud.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/fashion/watches-dyslexia-darren-sher.html
 **A Medical Emergency Refocuses a Watch Brand and Its Founder**\
 `R.T. Custer’s recovery from a stroke has had as much of an effect on his Vortic Watch Company as it has had on his mind-set.`\
 https://www.nytimes.com/2026/07/21/fashion/watches-vortic-colorado.html
-
-**Advice on Traveling With Autism and for Parents of Neurodiverse Children**\
-`The noise and chaos of flying can be overwhelming for people on the spectrum. Here are some ways to ease the stress and make the trip more comfortable.`\
-https://www.nytimes.com/2026/07/21/travel/autism-neurodiverse-children-travel-tips.html
 
