@@ -1,3 +1,7 @@
+**China enfrenta un dilema del huevo y la gallina**\
+`El país consume más huevos por habitante que casi cualquier otra nación, por lo que el reciente incremento de los costos no ha pasado desapercibido.`\
+https://www.nytimes.com/es/2026/07/21/espanol/negocios/china-economia-precio-huevos.html
+
 **The Grim Lessons of Israel’s War in Gaza**\
 `Israel has not been held accountable for its actions in Gaza. The nation and the individuals and countries enabling it to escape punishment may only benefit.`\
 https://www.nytimes.com/2026/07/21/opinion/israel-gaza-palestinians-genocide.html

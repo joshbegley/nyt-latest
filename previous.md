@@ -1,3 +1,7 @@
+**China enfrenta un dilema del huevo y la gallina**\
+`El país consume más huevos por habitante que casi cualquier otra nación, por lo que el reciente incremento de los costos no ha pasado desapercibido.`\
+https://www.nytimes.com/es/2026/07/21/espanol/negocios/china-economia-precio-huevos.html
+
 **The Grim Lessons of Israel’s War in Gaza**\
 `Israel has not been held accountable for its actions in Gaza. The nation and the individuals and countries enabling it to escape punishment may only benefit.`\
 https://www.nytimes.com/2026/07/21/opinion/israel-gaza-palestinians-genocide.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/opinion/paramount-warner-bros-merger-hollywoo
 **The Sewer Knows What You Ate**\
 `During the Covid-19 pandemic, wastewater testing became a virus warning system. Now, scientists are using the approach to understand how communities eat.`\
 https://www.nytimes.com/2026/07/20/science/sewer-diet-research.html
-
-**G.O.P. Boxed In on Iran War as Trump Sidelines Congress**\
-`Republicans now face a worst-case political scenario of being asked to fund an unpopular war over which they have exercised little oversight.`\
-https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
 
