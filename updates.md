@@ -1,3 +1,7 @@
+**Cyclosporiasis Cases Hit Record High in U.S.**\
+`Federal health officials have confirmed another 2,500 cases of the parasitic infection.`\
+https://www.nytimes.com/2026/07/21/well/cyclospora-cases-record-cdc.html
+
 **Cyclosporiasis Cases in the United States Hit Record High**\
 `Federal health officials have confirmed another 2,500 cases of the parasitic infection.`\
 https://www.nytimes.com/2026/07/21/well/cyclospora-cases-record-cdc.html
