@@ -1,3 +1,15 @@
+**Hegseth Estimates Iran War Has Cost $37.5 Billion**\
+`Defense Secretary Pete Hegseth is requesting as much as $70 billion in emergency military spending after nearly five months of war.`\
+https://www.nytimes.com/2026/07/21/us/politics/iran-war-cost-estimate.html
+
+**OpenAI Says Its A.I. Models Went Rogue and Attacked a Digital Library**\
+`The incident, which targeted the computer systems of another company called Hugging Face, happened while OpenAI was testing the systems.`\
+https://www.nytimes.com/2026/07/21/technology/openai-attack-hugging-face.html
+
+**Mamdani’s Version of DOGE Tries to Put a New Spin on Efficiency**\
+`The mayor’s version has sought to include public input as it formulates changes to the New York City Charter aimed at streamlining the government.`\
+https://www.nytimes.com/2026/07/21/nyregion/mamdani-coge-charter-revision.html
+
 **Even Under Populism, Elite Failure Is Still a Problem**\
 `A new critique of Trumpism is too easy on elites.`\
 https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
@@ -39,7 +51,7 @@ https://www.nytimes.com/video/t-magazine/100000011045163/why-does-fashion-heart-
 https://www.nytimes.com/video/world/europe/100000011043897/france-law-social-media-ban-restrictions.html
 
 ****\
-`(No description)`\
+`tktktkt`\
 https://www.nytimes.com/video/embedded/business/100000011045150/Biz-Bangladesh-Irrigation-video.html
 
 ****\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
 **Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
 `A 2023 software glitch at the state’s Motor Vehicle Commission led to roughly 6,600 noncitizens being registered to vote during the Murphy administration, Gov. Mikie Sherrill announced.`\
 https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
-
-**Oil Firms Knew for Decades of Methane’s Danger to Planet, Documents Suggest**\
-`The companies knew they were releasing more of the greenhouse gas than they publicly reported, according to industry files cited by the Center for Climate Integrity, an activist organization.`\
-https://www.nytimes.com/2026/07/21/climate/methane-natural-gas-leaks-flaring.html
-
-**The Next Big Thing in Men’s Pants? It’s Stolen From the Ladies.**\
-`Plus: Japan’s leg-hair debate and some final World Cup fashion thoughts.`\
-https://www.nytimes.com/2026/07/21/style/pants-paper-bag-menswear.html
-
-**La ‘Cyclospora’ se propaga a través de las heces humanas. ¿Cómo llegó al suministro de alimentos?**\
-`El gran número de casos sugiere que el excremento ingresó al sistema alimentario a una “escala sorprendente”.`\
-https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contaminacion-comida.html
 

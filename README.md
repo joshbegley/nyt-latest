@@ -91,7 +91,7 @@ https://www.nytimes.com/2026/07/21/movies/la-la-land-poster-gosling-hand.html
 https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-east.html
 
 **Senate Panel Advances Jay Clayton as Next Spy Chief on Party-Line Vote**\
-`Assuming he is confirmed by the full Senate as expected, Mr. Clayton will take command of the Office of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
+`If the full Senate confirms him as expected, Mr. Clayton will take over the Office of the Director of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
 https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html
 
 **Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\

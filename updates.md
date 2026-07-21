@@ -1,3 +1,19 @@
+**Hegseth Estimates Iran War Has Cost $37.5 Billion**\
+`Defense Secretary Pete Hegseth is requesting as much as $70 billion in emergency military spending after nearly five months of war.`\
+https://www.nytimes.com/2026/07/21/us/politics/iran-war-cost-estimate.html
+
+**OpenAI Says Its A.I. Models Went Rogue and Attacked a Digital Library**\
+`The incident, which targeted the computer systems of another company called Hugging Face, happened while OpenAI was testing the systems.`\
+https://www.nytimes.com/2026/07/21/technology/openai-attack-hugging-face.html
+
+**Mamdani’s Version of DOGE Tries to Put a New Spin on Efficiency**\
+`The mayor’s version has sought to include public input as it formulates changes to the New York City Charter aimed at streamlining the government.`\
+https://www.nytimes.com/2026/07/21/nyregion/mamdani-coge-charter-revision.html
+
+****\
+`tktktkt`\
+https://www.nytimes.com/video/embedded/business/100000011045150/Biz-Bangladesh-Irrigation-video.html
+
 **Even Under Populism, Elite Failure Is Still a Problem**\
 `A new critique of Trumpism is too easy on elites.`\
 https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
