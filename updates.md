@@ -1,3 +1,7 @@
+**Senate Panel Advances Jay Clayton as Next Spy Chief on Party-Line Vote**\
+`If the full Senate confirms him as expected, Mr. Clayton will take over the Office of the Director of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
+https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html
+
 **Hegseth Estimates Iran War Has Cost $37.5 Billion**\
 `Defense Secretary Pete Hegseth is requesting as much as $70 billion in emergency military spending after nearly five months of war.`\
 https://www.nytimes.com/2026/07/21/us/politics/iran-war-cost-estimate.html
