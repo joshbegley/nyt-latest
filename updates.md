@@ -1,3 +1,11 @@
+**Plas Johnson, Saxophonist Behind ‘The Pink Panther,’ Dies at 94**\
+`His recording for the theme song, written by Henry Mancini, included a solo improvised in the studio. He also backed Frank Sinatra and Barbra Streisand.`\
+https://www.nytimes.com/2026/07/21/arts/music/plas-johnson-dead.html
+
+**Muere Kaylee Hottle, actriz de las películas de “Godzilla”, en un accidente de auto**\
+`La actriz adolescente sorda apareció en “Godzilla vs. Kong” y “Godzilla y Kong: el nuevo imperio”.`\
+https://www.nytimes.com/es/2026/07/21/espanol/cultura/kaylee-hottle-actriz-godzilla-muerte.html
+
 **El caso de Maduro podría estar a punto de dar un giro**\
 `Cuando el líder depuesto vuelva a la corte, los fiscales federales podrían encontrar un obstáculo: los tribunales de EE. UU. no tienen autoridad para juzgarlo.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/nicolas-maduro-extradicion.html
