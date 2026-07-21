@@ -1,8 +1,12 @@
+**La ‘Cyclospora’ se propaga a través de las heces humanas. ¿Cómo llegó al suministro de alimentos?**\
+`El gran número de casos sugiere que el excremento ingresó al sistema alimentario a una “escala sorprendente”.`\
+https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contaminacion-comida.html
+
 **Kaylee Hottle, Actress in ‘Godzilla’ Movies, Is Killed in Car Crash**\
 `A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
 https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
 
-**How the G.O.P. Made Pasta Into a Voter ID Talking Point**\
+**How Republicans Made Olive Garden Into a Voter ID Talking Point**\
 `Republicans claim that Olive Garden polices its Never-Ending Pasta Bowl more tightly than the United States does its elections. It’s not that simple.`\
 https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-act-republicans.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/world/asia/philippines-south-china-sea-sailor
 **Protesters Rally Against Zelensky’s Firing of Defense Minister**\
 `Demonstrators in Ukraine spoke out against President Volodymyr Zelensky, who fired Ukraine’s defense minister, Mykhailo Fedorov, last week. Mr. Fedorov had risen in popularity after he promoted drone warfare.`\
 https://www.nytimes.com/video/world/europe/100000011042816/kyiv-zelensky-protests-defense-minister.html
-
-**As the Iran War Escalates, Is the U.S. Hiding Its Toll?**\
-`Officials said dozens of U.S. service members have been injured in the war this month. The Pentagon said it didn’t initially disclose the injuries to protect operational security.`\
-https://www.nytimes.com/2026/07/21/podcasts/the-daily/iran-war-us-soldiers.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
