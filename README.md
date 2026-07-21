@@ -1,3 +1,7 @@
+**Restaurant Review: Stars in New York**\
+`At Stars in the East Village, the hit-making team behind Claud and Penny find the balance between compelling food and well-curated drinks.`\
+https://www.nytimes.com/2026/07/21/dining/restaurant-review-stars-nyc.html
+
 **Houthi Blockade Could Worsen an Already Fragile Oil Market**\
 `With the Strait of Hormuz effectively closed, the militant group’s threats in the Red Sea jeopardize Saudi Arabia’s main workaround for oil exports.`\
 https://www.nytimes.com/2026/07/21/business/oil-red-sea-houthis.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/us/politics/biden-recordings.html
 **Europe Cancels Venice Biennale Funding Over Russia’s Return**\
 `The European authorities had warned the organizers of the major art show for months that they would lose funding if Russia took part.`\
 https://www.nytimes.com/2026/07/21/arts/design/european-commission-venice-biennale-russia.html
-
-**Today, In Short**\
-`Bats. Gatekeepers. And shorts at the office.`\
-https://www.nytimes.com/2026/07/21/briefing/today-in-short.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
