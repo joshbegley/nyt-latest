@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/07/21/health/gene-therapy-rare-diseases-epilepsy.ht
 `Corrections that appeared in print on Tuesday, July 21, 2026.`\
 https://www.nytimes.com/2026/07/21/pageoneplus/corrections-july-21-2026.html
 
-**Two Young Brothers and Their Search for Venezuela’s Dead**\
-`Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
+**How Two Brothers Dug for Dead Relatives: With a Shovel and a Kitchen Knife**\
+`After Venezuela’s devastating earthquakes, Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
 https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
 
 **Once Anti-Abortion, Now a Progressive: The Evolution of a Maine Democrat**\
