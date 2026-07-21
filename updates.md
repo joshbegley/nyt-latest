@@ -1,3 +1,11 @@
+**Trump Is Squeezing Canada. Don’t Expect Carney to Roll Over.**\
+`The president’s new tariffs on a top U.S. trading partner aim at gaining concessions, but the Canadian government, and the public, have been bracing for the escalation.`\
+https://www.nytimes.com/2026/07/21/world/canada/trump-carney-trade-tariffs.html
+
+**Houthis in Yemen Edge Closer to Entering U.S.-Iran War**\
+`The Iran-backed Houthi militia in Yemen has declared a Red Sea blockade on Saudi Arabia, potentially opening a new front in the war rippling across the Middle East.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/houthis-yemen-iran-war.html
+
 **Houthis Threaten to Block Saudi Ships in Red Sea**\
 `Supporters of the Iran-backed Houthi militia in Yemen rallied on Monday after it said it would block Saudi ships in the Red Sea, threatening to open a new front in the war rippling across the Middle East.`\
 https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blockade-saudi-arabia-red-sea.html

@@ -1,3 +1,7 @@
+**Trump Is Squeezing Canada. Don’t Expect Carney to Roll Over.**\
+`The president’s new tariffs on a top U.S. trading partner aim at gaining concessions, but the Canadian government, and the public, have been bracing for the escalation.`\
+https://www.nytimes.com/2026/07/21/world/canada/trump-carney-trade-tariffs.html
+
 **Houthis Threaten to Block Saudi Ships in Red Sea**\
 `Supporters of the Iran-backed Houthi militia in Yemen rallied on Monday after it said it would block Saudi ships in the Red Sea, threatening to open a new front in the war rippling across the Middle East.`\
 https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blockade-saudi-arabia-red-sea.html
@@ -111,7 +115,7 @@ https://www.nytimes.com/2026/07/21/opinion/fashion-slop-boring.html
 https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-election-what-we-know.html
 
 **Houthis in Yemen Edge Closer to Entering U.S.-Iran War**\
-`The Iran-backed Houthi militia in Yemen has declared a Red Sea blockade on Saudi Arabia, potentially opening up a new front in the war rippling across the Middle East.`\
+`The Iran-backed Houthi militia in Yemen has declared a Red Sea blockade on Saudi Arabia, potentially opening a new front in the war rippling across the Middle East.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/houthis-yemen-iran-war.html
 
 **It’s the Wrong Way to Address A.I. Job Loss. Trump Loves It.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/fashion/clocks-julian-charriere-museo-correr-
 **Book Review: ‘The Mortons,’ by Justine Larbalestier and Scott Westerfeld**\
 `In “The Mortons,” a young hit woman — a prodigy at killing — is tested by inherited secrets and her own morality.`\
 https://www.nytimes.com/2026/07/21/books/review/the-mortons-justine-larbalestier-scott-westerfeld.html
-
-**Patek Philippe Debuted the Nautilus 50 Years Ago**\
-`Four new pieces commemorate the golden anniversary of a design that initially attracted little enthusiasm but now is the brand’s defining model.`\
-https://www.nytimes.com/2026/07/21/fashion/watches-patek-philippe-nautilus-at-50.html
 
