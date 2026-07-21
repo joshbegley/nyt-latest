@@ -1,3 +1,7 @@
+**Netanyahu Ad Uses a Questionable Tactic Against Bereaved Rival**\
+`A.I.-generated images showing Gadi Eisenkot, the Israeli leader’s top challenger in upcoming elections, played on anti-Arab sentiments and used images seen as disrespectful to his son, who was killed in the recent Gaza war.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.html
+
 **Susumu Tonegawa Dies at 86; Nobel Laureate Showed How Antibodies Fight Infection**\
 `The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
 https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/business/dealbook/us-china-ai-limits.html
 **Pan Am Clipper Endeavor Is Found After Over 70 Years Lost at Sea**\
 `Fifty-two of the 69 people aboard the plane died when it crashed off Puerto Rico and sank to the bottom of the Atlantic Ocean.`\
 https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.html
-
-**Lives Lost**\
-`We look at the American casualties in the war with Iran.`\
-https://www.nytimes.com/2026/07/21/briefing/american-casualties-iran-war.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
