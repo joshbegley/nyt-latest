@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Bats. Gatekeepers. And shorts at the office.`\
+https://www.nytimes.com/2026/07/21/briefing/today-in-short.html
+
 **Google Releases Three New Gemini A.I. Models**\
 `The models include one that is the company’s most powerful and another that is fine-tuned for cybersecurity, as Google competes with rivals like OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/07/21/technology/google-ai-cybersecurity-gemini.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/opinion/trump-inept-second-term.html
 **Cyclospora Spreads Through Human Feces. How Did It Get Into Our Food Supply?**\
 `The large number of cases suggests that excrement entered the food system on a “surprising scale.”`\
 https://www.nytimes.com/2026/07/21/well/eat/how-cyclospora-contaminates-food.html
-
-**‘Too Rare to Care’? A New Center for Rare Diseases Hopes to Change That**\
-`A new nonprofit wants to streamline gene therapy for diseases often avoided by pharmaceutical companies — making treatment more like a routine procedure than a bespoke drug.`\
-https://www.nytimes.com/2026/07/21/health/gene-therapy-rare-diseases-epilepsy.html
 

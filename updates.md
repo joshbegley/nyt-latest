@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Bats. Gatekeepers. And shorts at the office.`\
+https://www.nytimes.com/2026/07/21/briefing/today-in-short.html
+
 **Google Releases Three New Gemini A.I. Models**\
 `The models include one that is the company’s most powerful and another that is fine-tuned for cybersecurity, as Google competes with rivals like OpenAI and Anthropic.`\
 https://www.nytimes.com/2026/07/21/technology/google-ai-cybersecurity-gemini.html
