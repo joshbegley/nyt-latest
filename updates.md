@@ -1,3 +1,7 @@
+**India’s Young Protesters are Bloodied but Unbowed**\
+`A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
+https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
+
 **Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
 `The Pentagon seeks an additional $80 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
 https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
