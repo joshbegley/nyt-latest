@@ -1,3 +1,11 @@
+**Ferry Capsizes in Guyana, Killing Dozens**\
+`A ferry in Guyana thought to be overloaded capsized over the weekend, killing dozens. Many are still missing, and the authorities said the total number of victims was unclear.`\
+https://www.nytimes.com/video/world/americas/100000011043291/guyana-ferry-sinking-barima.html
+
+**Australian Woman Gives Birth to ‘Miracle’ Identical Quadruplets**\
+`Doctors said the arrival of Emily, Harriet, Catherine and Alexa, who were conceived naturally and split from one fertilized egg, is an extremely rare event.`\
+https://www.nytimes.com/2026/07/21/world/australia/australia-identical-quadruplets-birth.html
+
 **Seth Meyers Calls Trump ‘The Sports Reaper’**\
 `The late-night host joked that the president’s sports curse had struck again after he backed Lionel Messi of Argentina, which then lost the World Cup final to Spain.`\
 https://www.nytimes.com/2026/07/21/arts/television/late-night-trump-soccer-fifa-curse.html
