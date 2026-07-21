@@ -1,3 +1,7 @@
+**Flash Floods Kill at Least 23 in Afghanistan**\
+`Dozens remained missing after floods swept through a city in Nuristan, an isolated province in the country’s east.`\
+https://www.nytimes.com/2026/07/21/world/asia/afghanistan-floods-deaths-nuristan.html
+
 **When Protesters Speak, Zelensky Listens, in the Ukrainian Tradition**\
 `With anger high over the firing of the defense minister, the president’s office is signaling an openness to compromise.`\
 https://www.nytimes.com/2026/07/21/world/europe/ukraine-zelensky-protests.html
