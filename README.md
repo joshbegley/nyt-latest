@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/07/20/science/sewer-diet-research.html
 `Republicans now face a worst-case political scenario of being asked to fund an unpopular war over which they have exercised little oversight.`\
 https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
 
-**Tate Brothers to Stay in Jail as They Fight Extradition on Rape Charges**\
+**Tate Brothers to Stay in Jail as New Details About Charges Emerge**\
 `In court documents unsealed on Monday, British prosecutors accused the “manosphere” influencers of choking women, sometimes until they passed out, and then raping them.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
 
