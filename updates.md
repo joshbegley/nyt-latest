@@ -1,3 +1,7 @@
+**France Is Poised to Restrict Social Media for Children**\
+`Its new law, which would be the first of its kind enacted by a European country, would ban access to some accounts for anyone under 15.`\
+https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
+
 **Trump Officials Withhold $1 Billion in Medicaid Funds From California and Minnesota Over Suspected Fraud**\
 `The administration accused California and Minnesota of fraudulent activity in their public health insurance programs.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-administration-medicaid-california-minnesota-fraud.html

@@ -1,3 +1,15 @@
+**Kaylee Hottle, Actress in ‘Godzilla’ Movies, Is Killed in Car Crash**\
+`A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
+https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
+
+**How the G.O.P. Made Pasta Into a Voter ID Talking Point**\
+`Republicans claim that Olive Garden polices its Never-Ending Pasta Bowl more tightly than the United States does its elections. It’s not that simple.`\
+https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-act-republicans.html
+
+**Restaurant Review: Chez Panisse and Bar Panisse in Berkeley**\
+`The Bay Area farm-to-table classic changed the American restaurant scene. Now it has opened a dynamic new place right next door.`\
+https://www.nytimes.com/2026/07/21/dining/restaurant-review-chez-panisse.html
+
 **France Is Poised to Restrict Social Media for Children**\
 `Its new law, which would be the first of its kind enacted by a European country, would ban access to some accounts for anyone under 15.`\
 https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/world/europe/100000011042816/kyiv-zelensky-protest
 **As the Iran War Escalates, Is the U.S. Hiding Its Toll?**\
 `Officials said dozens of U.S. service members have been injured in the war this month. The Pentagon said it didn’t initially disclose the injuries to protect operational security.`\
 https://www.nytimes.com/2026/07/21/podcasts/the-daily/iran-war-us-soldiers.html
-
-**A New Threat to Global Shipping, and a Huge Drop-Off in Food Stamps**\
-`Plus, when A.I. writes your biography.`\
-https://www.nytimes.com/2026/07/21/podcasts/the-headlines/yemen-blockade-food-stamps.html
-
-**NYT Connections Answers for July 22, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
-https://www.nytimes.com/2026/07/21/crosswords/connections-companion-1137.html
-
-**Today’s Wordle Hints for July 22, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
-https://www.nytimes.com/2026/07/21/crosswords/wordle-review-1859.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\

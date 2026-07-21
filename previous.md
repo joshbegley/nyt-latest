@@ -1,3 +1,7 @@
+**France Is Poised to Restrict Social Media for Children**\
+`Its new law, which would be the first of its kind enacted by a European country, would ban access to some accounts for anyone under 15.`\
+https://www.nytimes.com/2026/07/21/world/europe/france-social-media-ban.html
+
 **Las frutas y verduras nos siguen enfermando. Esta es la razón**\
 `Los brotes de “Cyclospora” son solo una fracción de la crisis de seguridad alimentaria vinculada a los productos agrícolas frescos. No hay soluciones rápidas ni fáciles para este problema.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/cyclospora-sintomas-lechuga.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/crosswords/connections-companion-1137.html
 **Today’s Wordle Hints for July 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
 https://www.nytimes.com/2026/07/21/crosswords/wordle-review-1859.html
-
-**A Family’s Daring Escape From North Korea**\
-`Their resolve for freedom hardened during the pandemic, when they lived through a crippling food shortage and were forced to witness frequent public executions.`\
-https://www.nytimes.com/2026/07/21/world/asia/south-korea-family-defection-escape.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
