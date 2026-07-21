@@ -1,3 +1,11 @@
+**¿Cómo se podría resolver la crisis del estrecho de Ormuz?**\
+`Un grupo de investigación se basó en un pacto europeo sobre el carbón y el acero, ahora desaparecido, para sugerir la formación de una coalición de países que compartiría el control del estrecho de Ormuz.`\
+https://www.nytimes.com/es/2026/07/21/espanol/mundo/estrecho-ormuz-trump-iran-acuerdo.html
+
+**Quote of the Day: In Tokyo Offices, a Leg-Baring Take on Business Casual**\
+`Quotation of the Day for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/21/pageoneplus/quote-of-the-day-in-tokyo-offices-a-leg-baring-take-on-business-casual.html
+
 **Daniel Ortega, presidente de Nicaragua, dice que planea abolir las elecciones**\
 `Ortega, copresidente del país junto a su esposa, Rosario Murillo, es acusado de manipular las elecciones recientes. Ahora, el líder autoritario dice que la nación ni siquiera celebrará una votación.`\
 https://www.nytimes.com/es/2026/07/20/espanol/america-latina/nicaragua-ortega-elecciones.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
 **Tate Brothers to Stay in Jail as New Details About Charges Emerge**\
 `In court documents unsealed on Monday, British prosecutors accused the “manosphere” influencers of choking women, sometimes until they passed out, and then raping them.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
-
-**Trump Says Netanyahu Will Not Be Arrested in the U.S.**\
-`New York’s mayor, Zohran Mamdani, told The New York Times, he was looking into whether he could arrest Prime Minister Benjamin Netanyahu when he comes to New York for the U.N. General Assembly.`\
-https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-arrest.html
-
-**Man Starts Fire Outside Federal Building in Manhattan**\
-`A man started a fire and set off explosives outside a federal building in Manhattan that houses an Immigration and Customs Enforcement office.`\
-https://www.nytimes.com/video/us/100000011041998/nyc-federal-plaza-immigration-ice-incident.html
 

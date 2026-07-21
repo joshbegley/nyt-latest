@@ -1,3 +1,11 @@
+**¿Cómo se podría resolver la crisis del estrecho de Ormuz?**\
+`Un grupo de investigación se basó en un pacto europeo sobre el carbón y el acero, ahora desaparecido, para sugerir la formación de una coalición de países que compartiría el control del estrecho de Ormuz.`\
+https://www.nytimes.com/es/2026/07/21/espanol/mundo/estrecho-ormuz-trump-iran-acuerdo.html
+
+**Quote of the Day: In Tokyo Offices, a Leg-Baring Take on Business Casual**\
+`Quotation of the Day for Tuesday, July 21, 2026.`\
+https://www.nytimes.com/2026/07/21/pageoneplus/quote-of-the-day-in-tokyo-offices-a-leg-baring-take-on-business-casual.html
+
 **Daniel Ortega, presidente de Nicaragua, dice que planea abolir las elecciones**\
 `Ortega, copresidente del país junto a su esposa, Rosario Murillo, es acusado de manipular las elecciones recientes. Ahora, el líder autoritario dice que la nación ni siquiera celebrará una votación.`\
 https://www.nytimes.com/es/2026/07/20/espanol/america-latina/nicaragua-ortega-elecciones.html
