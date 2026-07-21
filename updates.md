@@ -1,3 +1,11 @@
+**The Next Big Thing in Men’s Pants? It’s Stolen From the Ladies.**\
+`Plus: Japan’s leg-hair debate and some final World Cup fashion thoughts.`\
+https://www.nytimes.com/2026/07/21/style/pants-paper-bag-menswear.html
+
+**Trump Escalates Canada Tariffs as Mark Carney Holds Firm**\
+`The president’s new tariffs on a top U.S. trading partner aim at gaining concessions, but the Canadian government, and the public, have been bracing for the escalation.`\
+https://www.nytimes.com/2026/07/21/world/canada/trump-carney-trade-tariffs.html
+
 **La ‘Cyclospora’ se propaga a través de las heces humanas. ¿Cómo llegó al suministro de alimentos?**\
 `El gran número de casos sugiere que el excremento ingresó al sistema alimentario a una “escala sorprendente”.`\
 https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contaminacion-comida.html

@@ -1,3 +1,7 @@
+**The Next Big Thing in Men’s Pants? It’s Stolen From the Ladies.**\
+`Plus: Japan’s leg-hair debate and some final World Cup fashion thoughts.`\
+https://www.nytimes.com/2026/07/21/style/pants-paper-bag-menswear.html
+
 **La ‘Cyclospora’ se propaga a través de las heces humanas. ¿Cómo llegó al suministro de alimentos?**\
 `El gran número de casos sugiere que el excremento ingresó al sistema alimentario a una “escala sorprendente”.`\
 https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contaminacion-comida.html
@@ -158,7 +162,7 @@ https://www.nytimes.com/2026/07/21/us/pentagon-identifies-soldier-iran-war-emman
 `It’s been a while since Angelina Ellis and Aiden Smith roomed together at Butler University, but the sartorial synchronicity still flares up on occasion.`\
 https://www.nytimes.com/2026/07/21/style/street-style-look-cutoff-denim.html
 
-**Trump Is Squeezing Canada. Don’t Expect Carney to Roll Over.**\
+**Trump Escalates Canada Tariffs as Mark Carney Holds Firm**\
 `The president’s new tariffs on a top U.S. trading partner aim at gaining concessions, but the Canadian government, and the public, have been bracing for the escalation.`\
 https://www.nytimes.com/2026/07/21/world/canada/trump-carney-trade-tariffs.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/21/espanol/mundo/epidemias-ira-trabajadores-s
 **Philippines Says Sailor Was Injured in Skirmish With Chinese Coast Guard**\
 `China said it was not the aggressor in the episode, which was the latest flare-up in the South China Sea between the two countries.`\
 https://www.nytimes.com/2026/07/21/world/asia/philippines-south-china-sea-sailor-injured.html
-
-**Protesters Rally Against Zelensky’s Firing of Defense Minister**\
-`Demonstrators in Ukraine spoke out against President Volodymyr Zelensky, who fired Ukraine’s defense minister, Mykhailo Fedorov, last week. Mr. Fedorov had risen in popularity after he promoted drone warfare.`\
-https://www.nytimes.com/video/world/europe/100000011042816/kyiv-zelensky-protests-defense-minister.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
