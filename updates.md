@@ -1,3 +1,7 @@
+**Seth Meyers Calls Trump ‘The Sports Reaper’**\
+`The late-night host joked that the president’s sports curse had struck again after he backed Lionel Messi of Argentina, which then lost the World Cup final to Spain.`\
+https://www.nytimes.com/2026/07/21/arts/television/late-night-trump-soccer-fifa-curse.html
+
 **Los griegos opinan sobre ‘La odisea’ de Nolan**\
 `Antes de su llegada a las salas, muchos en Grecia dudaban de esta nueva versión de un relato que consideran suyo. Pero tras el fin de semana de estreno, las reseñas fueron en su mayoría positivas.`\
 https://www.nytimes.com/es/2026/07/21/espanol/cultura/odisea-nolan-grecia.html

@@ -1,3 +1,7 @@
+**Seth Meyers Calls Trump ‘The Sports Reaper’**\
+`The late-night host joked that the president’s sports curse had struck again after he backed Lionel Messi of Argentina, which then lost the World Cup final to Spain.`\
+https://www.nytimes.com/2026/07/21/arts/television/late-night-trump-soccer-fifa-curse.html
+
 **Los griegos opinan sobre ‘La odisea’ de Nolan**\
 `Antes de su llegada a las salas, muchos en Grecia dudaban de esta nueva versión de un relato que consideran suyo. Pero tras el fin de semana de estreno, las reseñas fueron en su mayoría positivas.`\
 https://www.nytimes.com/es/2026/07/21/espanol/cultura/odisea-nolan-grecia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/20/espanol/mundo/guerra-iran-estados-unidos.h
 **Faced With Piles of New Paperwork, People Are Losing Food Stamps**\
 `Arizona’s Supplemental Nutrition Assistance Program rolls have plummeted, offering a possible preview of national trends as states try to avoid new federal penalties.`\
 https://www.nytimes.com/2026/07/20/us/politics/snap-food-stamps-arizona.html
-
-**OpenAI and Anthropic Are (Still) Beefing**\
-`“These companies hate each other.” The “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss the constant hatred felt between Anthropic and OpenAI and what the companies have done to mitigate it.`\
-https://www.nytimes.com/video/podcasts/100000011042584/openai-and-anthropic-are-still-beefing.html
 
