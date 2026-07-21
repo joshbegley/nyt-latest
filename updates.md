@@ -1,3 +1,7 @@
+**‘Les Misérables’ in Concert and More: A Show’s Never-Ending Life**\
+`Concert versions and touring productions keep the spirit of 19th-century French revolutionaries alive.`\
+https://www.nytimes.com/2026/07/21/theater/les-miserables-valjean-javert.html
+
 **Lebanese Troops Deploy in Israeli-Held Village Under New Cease-Fire Plan**\
 `The Israeli military withdrew from the village under a U.S.-brokered deal to transfer control of occupied areas back to Lebanon after months of war. But Hezbollah has rejected the truce.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/lebanon-israel-ceasefire-plan.html

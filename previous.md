@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/07/21/upshot/solar-panels-prices-batteries.html
 `The company wrapped up its Met season of safe war horses with multiple debuts and a slew of promotions, including the onstage appointment of three principals.`\
 https://www.nytimes.com/2026/07/21/arts/dance/american-ballet-theater-summer-dancer-standouts.html
 
-**The Never-Ending Life of ‘Les Misérables’**\
+**‘Les Misérables’ in Concert and More: A Show’s Never-Ending Life**\
 `Concert versions and touring productions keep the spirit of 19th-century French revolutionaries alive.`\
 https://www.nytimes.com/2026/07/21/theater/les-miserables-valjean-javert.html
 
