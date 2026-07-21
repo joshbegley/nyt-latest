@@ -1,3 +1,7 @@
+**Epidemias de ira**\
+`Las sociedades siempre han tenido que lidiar con reacciones hostiles dirigidas contra los trabajadores de la salud durante las epidemias. ¿Por qué?`\
+https://www.nytimes.com/es/2026/07/21/espanol/mundo/epidemias-ira-trabajadores-salud.html
+
 **Philippines Says Sailor Was Injured in Skirmish With Chinese Coast Guard**\
 `China said it was not the aggressor in the episode, which was the latest flare-up in the South China Sea between the two countries.`\
 https://www.nytimes.com/2026/07/21/world/asia/philippines-south-china-sea-sailor-injured.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/fashion/watches-vortic-colorado.html
 **Advice on Traveling With Autism and for Parents of Neurodiverse Children**\
 `The noise and chaos of flying can be overwhelming for people on the spectrum. Here are some ways to ease the stress and make the trip more comfortable.`\
 https://www.nytimes.com/2026/07/21/travel/autism-neurodiverse-children-travel-tips.html
-
-**The Serenity of a Stream Leads to a Prizewinning Watch**\
-`Shin Ohno’s adaptable pocket watch takes the top award at the 2026 F.P. Journe Young Talent Competition.`\
-https://www.nytimes.com/2026/07/21/fashion/watches-journe-talent-competition-japan.html
 
