@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011045389/21vid-hegseth-kennedy.html
+
 **Small Plane Crashes Into House Near Houston**\
 `The plane, a Piper J3C-65, struck the house in Fulshear, Texas, around 6:45 a.m. on Monday, the authorities said. Its pilot was in serious condition on Tuesday, a hospital spokesman said.`\
 https://www.nytimes.com/2026/07/21/us/texas-plane-crash-home.html

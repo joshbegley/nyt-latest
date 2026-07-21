@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011045389/21vid-hegseth-kennedy.html
+
 **Small Plane Crashes Into House Near Houston**\
 `The plane, a Piper J3C-65, struck the house in Fulshear, Texas, around 6:45 a.m. on Monday, the authorities said. Its pilot was in serious condition on Tuesday, a hospital spokesman said.`\
 https://www.nytimes.com/2026/07/21/us/texas-plane-crash-home.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
 **Netanyahu Ad Uses a Questionable Tactic Against Bereaved Rival**\
 `A.I.-generated images showing Gadi Eisenkot, the Israeli leader’s top challenger in upcoming elections, played on anti-Arab sentiments and used images seen as disrespectful to his son, who was killed in the recent Gaza war.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.html
-
-**Susumu Tonegawa Dies at 86; Nobel Laureate Showed How Antibodies Fight Infection**\
-`The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
-https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
 
