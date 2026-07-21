@@ -1,3 +1,11 @@
+**Netanyahu Ad Uses a Questionable Tactic Against Bereaved Rival**\
+`A.I.-generated images showing Gadi Eisenkot, the Israeli leader’s top challenger in upcoming elections, played on anti-Arab sentiments and used images seen as disrespectful to his son, who was killed in the recent Gaza war.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.html
+
+**Software Error Led to 400 Noncitizens Voting in N.J., Gov. Sherrill Says**\
+`The New Jersey Department of Motor Vehicles glitch also led to roughly 6,600 noncitizens being registered to vote, Gov. Mikie Sherrill announced on Tuesday.`\
+https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
+
 **Susumu Tonegawa Dies at 86; Nobel Laureate Showed How Antibodies Fight Infection**\
 `The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
 https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html

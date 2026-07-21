@@ -1,3 +1,7 @@
+**Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
+`The Pentagon seeks an additional $80 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
+https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
+
 **Netanyahu Ad Uses a Questionable Tactic Against Bereaved Rival**\
 `A.I.-generated images showing Gadi Eisenkot, the Israeli leader’s top challenger in upcoming elections, played on anti-Arab sentiments and used images seen as disrespectful to his son, who was killed in the recent Gaza war.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.h
 `The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
 https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
 
-**Software Error Led to 400 Noncitizens Voting in N.J., Gov. Sherrill Says**\
-`The New Jersey Department of Motor Vehicles glitch also led to roughly 6,600 noncitizens being registered to vote, Gov. Mikie Sherrill announced on Tuesday.`\
+**D.M.V. Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
+`The New Jersey Department of Motor Vehicles software glitch also registered roughly 6,600 noncitizens to vote, Gov. Mikie Sherrill announced on Tuesday.`\
 https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
 
 **Oil Firms Knew for Decades of Methane’s Danger to Planet, Documents Suggest**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blo
 **Will the U.S. and China Build Walls Around A.I.?**\
 `Rapid advancements in Chinese artificial intelligence models reportedly have Washington and Beijing considering new ways to protect their technology sectors.`\
 https://www.nytimes.com/2026/07/21/business/dealbook/us-china-ai-limits.html
-
-**Pan Am Clipper Endeavor Is Found After Over 70 Years Lost at Sea**\
-`Fifty-two of the 69 people aboard the plane died when it crashed off Puerto Rico and sank to the bottom of the Atlantic Ocean.`\
-https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
