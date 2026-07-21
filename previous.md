@@ -1,3 +1,7 @@
+**New Poster for ‘La La Land’ Fixes Ryan Gosling’s Wayward Hand**\
+`Gosling’s hand position during a dance scene didn’t match Emma Stone’s, haunting him for years after the movie’s release.`\
+https://www.nytimes.com/2026/07/21/movies/la-la-land-poster-gosling-hand.html
+
 **Water Plants Under Fire in the Gulf Are Crucial to Civilians**\
 `Several days of airstrikes have hit water and energy plants in Kuwait, a nation that relies on desalination for 90 percent of its drinking water.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-east.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-corp
 **Arizona Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary elections.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-primary.html
-
-**Arizona Attorney General Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-attorney-general-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

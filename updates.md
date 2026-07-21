@@ -1,3 +1,7 @@
+**New Poster for ‘La La Land’ Fixes Ryan Gosling’s Wayward Hand**\
+`Gosling’s hand position during a dance scene didn’t match Emma Stone’s, haunting him for years after the movie’s release.`\
+https://www.nytimes.com/2026/07/21/movies/la-la-land-poster-gosling-hand.html
+
 **Water Plants Under Fire in the Gulf Are Crucial to Civilians**\
 `Several days of airstrikes have hit water and energy plants in Kuwait, a nation that relies on desalination for 90 percent of its drinking water.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-east.html
