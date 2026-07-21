@@ -1,3 +1,7 @@
+**Trump to Impose 50% Tariffs on Wide Range of Canadian Goods**\
+`President Trump signed orders on Monday to impose a 50 percent tariff on a wide range of Canadian exports, including wine and dairy products.`\
+https://www.nytimes.com/video/us/politics/100000011042976/trump-canada-goods-tariffs.html
+
 **Daniel Ortega, President of Nicaragua, Says He Plans to Abolish Elections**\
 `Daniel Ortega has been accused of rigging recent elections in Nicaragua. Now, the authoritarian leader says the nation won’t even hold a vote.`\
 https://www.nytimes.com/2026/07/20/world/americas/nicaragua-ortega-abolish-elections.html
