@@ -1,3 +1,11 @@
+**El caso de Maduro podría estar a punto de dar un giro**\
+`Cuando el líder depuesto vuelva a la corte, los fiscales federales podrían encontrar un obstáculo: los tribunales de EE. UU. no tienen autoridad para juzgarlo.`\
+https://www.nytimes.com/es/2026/07/21/espanol/opinion/nicolas-maduro-extradicion.html
+
+**G.O.P. Lawmakers Join White House in Challenging a Smithsonian Museum**\
+`A House subcommittee questioned the director of the National Museum of American History after a scathing White House report characterized it as insufficiently patriotic.`\
+https://www.nytimes.com/2026/07/21/arts/design/trump-republicans-smithsonian-american-history.html
+
 **Roger Rogoff Files Suit Challenging Trump’s Power to Fire Him**\
 `In the first lawsuit of its kind, Roger Rogoff argues that the Trump administration cannot fire him as U.S. attorney without first winning Senate approval for another candidate.`\
 https://www.nytimes.com/2026/07/21/us/roger-rogoff-doj-lawsuit.html
@@ -94,7 +102,7 @@ https://www.nytimes.com/2026/07/21/style/pants-paper-bag-menswear.html
 `El gran número de casos sugiere que el excremento ingresó al sistema alimentario a una “escala sorprendente”.`\
 https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contaminacion-comida.html
 
-**Kaylee Hottle, Actress in ‘Godzilla’ Movies, Is Killed in Car Crash**\
+**Kaylee Hottle, ‘Godzilla vs. Kong’ Actress, Dies in Car Crash**\
 `A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
 https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-h
 **Arizona Second Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-2-primary.html
-
-**Arizona Fourth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-4-primary.html
-
-**Arizona First Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-1-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

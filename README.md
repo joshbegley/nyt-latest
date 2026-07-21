@@ -1,3 +1,11 @@
+**Plas Johnson, Saxophonist Behind ‘The Pink Panther,’ Dies at 94**\
+`His recording for the theme song, written by Henry Mancini, included a solo improvised in the studio. He also backed Frank Sinatra and Barbra Streisand.`\
+https://www.nytimes.com/2026/07/21/arts/music/plas-johnson-dead.html
+
+**Muere Kaylee Hottle, actriz de las películas de “Godzilla”, en un accidente de auto**\
+`La actriz adolescente sorda apareció en “Godzilla vs. Kong” y “Godzilla y Kong: el nuevo imperio”.`\
+https://www.nytimes.com/es/2026/07/21/espanol/cultura/kaylee-hottle-actriz-godzilla-muerte.html
+
 **El caso de Maduro podría estar a punto de dar un giro**\
 `Cuando el líder depuesto vuelva a la corte, los fiscales federales podrían encontrar un obstáculo: los tribunales de EE. UU. no tienen autoridad para juzgarlo.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/nicolas-maduro-extradicion.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-h
 **Arizona Third Congressional District Primary 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona primary election.`\
 https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-3-primary.html
-
-**Arizona Sixth Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-6-primary.html
-
-**Arizona Second Congressional District Primary 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona primary election.`\
-https://www.nytimes.com/interactive/2026/07/21/us/elections/results-arizona-us-house-2-primary.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

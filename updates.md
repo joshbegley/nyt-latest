@@ -1,3 +1,15 @@
+**El caso de Maduro podría estar a punto de dar un giro**\
+`Cuando el líder depuesto vuelva a la corte, los fiscales federales podrían encontrar un obstáculo: los tribunales de EE. UU. no tienen autoridad para juzgarlo.`\
+https://www.nytimes.com/es/2026/07/21/espanol/opinion/nicolas-maduro-extradicion.html
+
+**G.O.P. Lawmakers Join White House in Challenging a Smithsonian Museum**\
+`A House subcommittee questioned the director of the National Museum of American History after a scathing White House report characterized it as insufficiently patriotic.`\
+https://www.nytimes.com/2026/07/21/arts/design/trump-republicans-smithsonian-american-history.html
+
+**Kaylee Hottle, ‘Godzilla vs. Kong’ Actress, Dies in Car Crash**\
+`A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
+https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
+
 **Roger Rogoff Files Suit Challenging Trump’s Power to Fire Him**\
 `In the first lawsuit of its kind, Roger Rogoff argues that the Trump administration cannot fire him as U.S. attorney without first winning Senate approval for another candidate.`\
 https://www.nytimes.com/2026/07/21/us/roger-rogoff-doj-lawsuit.html
