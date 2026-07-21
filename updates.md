@@ -1,3 +1,27 @@
+**As the Iran War Escalates, Is the U.S. Hiding Its Toll?**\
+`Officials said dozens of U.S. service members have been injured in the war this month. The Pentagon said it didn’t initially disclose the injuries to protect operational security.`\
+https://www.nytimes.com/2026/07/21/podcasts/the-daily/iran-war-us-soldiers.html
+
+**A New Threat to Global Shipping, and a Huge Drop-Off in Food Stamps**\
+`Plus, when A.I. writes your biography.`\
+https://www.nytimes.com/2026/07/21/podcasts/the-headlines/yemen-blockade-food-stamps.html
+
+**NYT Connections Answers for July 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/21/crosswords/connections-companion-1137.html
+
+**Today’s Wordle Hints for July 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/21/crosswords/wordle-review-1859.html
+
+**A Family’s Daring Escape From North Korea**\
+`Their resolve for freedom hardened during the pandemic, when they lived through a crippling food shortage and were forced to witness frequent public executions.`\
+https://www.nytimes.com/2026/07/21/world/asia/south-korea-family-defection-escape.html
+
+**NYT Strands Hints for July 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/21/crosswords/strands-sidekick-871.html
+
 **New UK Prime Minister Burnham Promises Hope and Change. The Hurdles Are High.**\
 `Britain’s new prime minister, Andy Burnham, promised policies that would give average Britons financial “breathing space.” His opponents are already doling out criticism.`\
 https://www.nytimes.com/2026/07/21/world/europe/andy-burnham-new-uk-prime-minister-policies.html

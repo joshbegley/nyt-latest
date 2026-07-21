@@ -1,3 +1,27 @@
+**As the Iran War Escalates, Is the U.S. Hiding Its Toll?**\
+`Officials said dozens of U.S. service members have been injured in the war this month. The Pentagon said it didn’t initially disclose the injuries to protect operational security.`\
+https://www.nytimes.com/2026/07/21/podcasts/the-daily/iran-war-us-soldiers.html
+
+**A New Threat to Global Shipping, and a Huge Drop-Off in Food Stamps**\
+`Plus, when A.I. writes your biography.`\
+https://www.nytimes.com/2026/07/21/podcasts/the-headlines/yemen-blockade-food-stamps.html
+
+**NYT Connections Answers for July 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/21/crosswords/connections-companion-1137.html
+
+**Today’s Wordle Hints for July 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/21/crosswords/wordle-review-1859.html
+
+**A Family’s Daring Escape From North Korea**\
+`Their resolve for freedom hardened during the pandemic, when they lived through a crippling food shortage and were forced to witness frequent public executions.`\
+https://www.nytimes.com/2026/07/21/world/asia/south-korea-family-defection-escape.html
+
+**NYT Strands Hints for July 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/21/crosswords/strands-sidekick-871.html
+
 **New UK Prime Minister Burnham Promises Hope and Change. The Hurdles Are High.**\
 `Britain’s new prime minister, Andy Burnham, promised policies that would give average Britons financial “breathing space.” His opponents are already doling out criticism.`\
 https://www.nytimes.com/2026/07/21/world/europe/andy-burnham-new-uk-prime-minister-policies.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/21/fashion/yves-piaget-roses-monaco.html
 **Should I Use Vaginal Estrogen for Menopause Symptoms?**\
 `Here’s what to consider before trying it.`\
 https://www.nytimes.com/2026/07/21/well/live/vaginal-estrogen-menopause-symptoms.html
-
-**It’s Monday in Paris. Time to Wind the Clocks.**\
-`Enzo Meschin and his four co-workers are responsible for maintaining, repairing and restoring 250 of the city’s historic timepieces.`\
-https://www.nytimes.com/2026/07/21/fashion/clocks-paris-france.html
-
-**Book Review: ‘Bitchy!,’ by Roberta Gregory**\
-`A new compendium of Roberta Gregory’s comics does away with delicacy in the name of feminism.`\
-https://www.nytimes.com/2026/07/21/books/review/bitchy-roberta-gregory.html
-
-**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
-`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
-https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
-
-**UK’s New Prime Minister Burnham Orders Cut in Taxes on Electricity**\
-`Prime Minister Andy Burnham moved quickly to confront the high cost of living. And President Trump wished him well after a phone call between the two leaders.`\
-https://www.nytimes.com/2026/07/21/world/europe/uk-andy-burnham-electricity-tax-vat.html
-
-**Ferry Capsizes in Guyana, Killing Dozens**\
-`A ferry in Guyana thought to be overloaded capsized over the weekend, killing dozens. Many are still missing, and the authorities said the total number of victims was unclear.`\
-https://www.nytimes.com/video/world/americas/100000011043291/guyana-ferry-sinking-barima.html
-
-**Australian Woman Gives Birth to ‘Miracle’ Identical Quadruplets**\
-`Doctors said the arrival of Emily, Harriet, Catherine and Alexa, who were conceived naturally and split from one fertilized egg, is an extremely rare event.`\
-https://www.nytimes.com/2026/07/21/world/australia/australia-identical-quadruplets-birth.html
 
