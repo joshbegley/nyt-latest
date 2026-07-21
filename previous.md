@@ -1,3 +1,7 @@
+**France Passes Law Restricting Social Media for Youths**\
+`France is the first European country to ban access to social media for anyone under 15. The law could go into effect as soon as Sept. 1.`\
+https://www.nytimes.com/video/world/europe/100000011043897/france-law-social-media-ban-restrictions.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011045150/Biz-Bangladesh-Irrigation-video.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/world/europe/ann-widdecombe-death-hammer.html
 **What Happened When Meta Used A.I. to Ban Accounts on Facebook and Instagram**\
 `Users said the technology mistakenly deleted their accounts. To resolve the issue, they still had to rely on A.I.`\
 https://www.nytimes.com/2026/07/21/technology/meta-ai-facebook-instagram-accounts.html
-
-**Democrats Demand Information From Law Firm Over Its Deal With Trump**\
-`The demand from top congressional Democrats signals their plans to investigate the nature of law firms’ agreements with the Trump administration if they return to power after the midterm elections.`\
-https://www.nytimes.com/2026/07/21/us/politics/democrats-demand-information-from-law-firm-over-its-deal-with-trump.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

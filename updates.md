@@ -1,3 +1,7 @@
+**France Passes Law Restricting Social Media for Youths**\
+`France is the first European country to ban access to social media for anyone under 15. The law could go into effect as soon as Sept. 1.`\
+https://www.nytimes.com/video/world/europe/100000011043897/france-law-social-media-ban-restrictions.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011045150/Biz-Bangladesh-Irrigation-video.html

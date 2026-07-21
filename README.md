@@ -1,3 +1,7 @@
+**Why Does Fashion Heart N.Y.?**\
+`T Magazine’s editor at large, Nick Haramis, examines why fashion designers can’t get enough of New York City.`\
+https://www.nytimes.com/video/t-magazine/100000011045163/why-does-fashion-heart-ny.html
+
 **France Passes Law Restricting Social Media for Youths**\
 `France is the first European country to ban access to social media for anyone under 15. The law could go into effect as soon as Sept. 1.`\
 https://www.nytimes.com/video/world/europe/100000011043897/france-law-social-media-ban-restrictions.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-ea
 https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html
 
 **Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\
-`Bad decisions and arrogance lead to dead-end wars.`\
+`The quick-fix fantasies of the world’s strongmen.`\
 https://www.nytimes.com/2026/07/21/opinion/trump-netanyahu-putin-war.html
 
 **Plas Johnson, Saxophonist Behind ‘The Pink Panther,’ Dies at 94**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/us/politics/trump-administration-medicaid-cal
 **British Politician Ann Widdecombe Was Murdered with a Hammer, Prosecutors Say**\
 `The politician, Ann Widdecombe, was eating lunch at home when a man walked in and asked whether she had bank cards, security footage showed.`\
 https://www.nytimes.com/2026/07/21/world/europe/ann-widdecombe-death-hammer.html
-
-**What Happened When Meta Used A.I. to Ban Accounts on Facebook and Instagram**\
-`Users said the technology mistakenly deleted their accounts. To resolve the issue, they still had to rely on A.I.`\
-https://www.nytimes.com/2026/07/21/technology/meta-ai-facebook-instagram-accounts.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\
