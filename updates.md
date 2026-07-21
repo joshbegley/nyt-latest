@@ -1,3 +1,11 @@
+**Trial Date Set for Former Olympian Accused of Damaging Reflecting Pool**\
+`David Hearn, 67, who is charged with destruction of property, has pleaded not guilty. He is one of several people the authorities say vandalized the pool.`\
+https://www.nytimes.com/2026/07/20/us/david-hearn-reflecting-pool-vandalism-trial.html
+
+**Tropical Storm Bertha Forms Near the Gulf Coast**\
+`Bertha, the second named storm of the Atlantic hurricane season, is expected to drop heavy rain in the region this week.`\
+https://www.nytimes.com/2026/07/20/weather/tropical-storm-bertha-updates.html
+
 **El papa León hace un llamado al desarme nuclear en su nuevo libro**\
 `Su nuevo mensaje evita señalar países concretos, pero deja claro que el desarme, no la acumulación de poder militar, es la vía hacia una paz verdadera.`\
 https://www.nytimes.com/es/2026/07/20/espanol/mundo/papa-leon-desarme-nuclear-nuevo-libro.html

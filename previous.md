@@ -1,3 +1,11 @@
+**Trial Date Set for Former Olympian Accused of Damaging Reflecting Pool**\
+`David Hearn, 67, who is charged with destruction of property, has pleaded not guilty. He is one of several people the authorities say vandalized the pool.`\
+https://www.nytimes.com/2026/07/20/us/david-hearn-reflecting-pool-vandalism-trial.html
+
+**Tropical Storm Bertha Forms Near the Gulf Coast**\
+`Bertha, the second named storm of the Atlantic hurricane season, is expected to drop heavy rain in the region this week.`\
+https://www.nytimes.com/2026/07/20/weather/tropical-storm-bertha-updates.html
+
 **El papa León hace un llamado al desarme nuclear en su nuevo libro**\
 `Su nuevo mensaje evita señalar países concretos, pero deja claro que el desarme, no la acumulación de poder militar, es la vía hacia una paz verdadera.`\
 https://www.nytimes.com/es/2026/07/20/espanol/mundo/papa-leon-desarme-nuclear-nuevo-libro.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/20/world/middleeast/inside-the-deadly-us-airstri
 **Shooting Near Santa Monica Pier Leaves One Dead**\
 `The Santa Monica Police Department said its officers were investigating the shooting in a parking lot on the pier’s north side.`\
 https://www.nytimes.com/2026/07/20/us/santa-monica-pier-shooting.html
-
-**Gustavo Dudamel dirigió un homenaje a las víctimas en Venezuela**\
-`La Orquesta Filarmónica de Nueva York y la Orquesta Sinfónica Simón Bolívar de Venezuela se han unido por primera vez para rendir tributo a un país en duelo.`\
-https://www.nytimes.com/es/2026/07/20/espanol/cultura/gustavo-dudamel-victimas-terremoto-venezuela.html
-
-**Outcry in Italy After Man Dies While Being Restrained by Police**\
-`The death of the man, a Moroccan resident of Italy, set off an outcry across the country and prompted comparisons to the death of George Floyd in the United States.`\
-https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-george-floyd.html
 
