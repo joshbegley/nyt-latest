@@ -1,7 +1,3 @@
-**El papa León hace un llamado al desarme nuclear en su nuevo libro**\
-`Su nuevo mensaje evita señalar países concretos, pero deja claro que el desarme, no la acumulación de poder militar, es la vía hacia una paz verdadera.`\
-https://www.nytimes.com/es/2026/07/20/espanol/mundo/papa-leon-desarme-nuclear-nuevo-libro.html
-
 **How Trump’s Immigration Crackdown Is Hurting Elder Care**\
 `Retirement communities already grappling with labor shortages are being forced to terminate caregivers at a time when more Americans are living longer.`\
 https://www.nytimes.com/2026/07/20/us/immigration-trump-senior-living-staffing.html
@@ -155,7 +151,7 @@ https://www.nytimes.com/2026/07/20/science/sewer-diet-research.html
 https://www.nytimes.com/2026/07/20/us/politics/gop-trump-iran-war.html
 
 **Tate Brothers to Stay in Jail as They Fight Extradition on Rape Charges**\
-`In court documents unsealed on Monday, British prosecutors accused the “manosphere” influencers of choking women, sometimes until they passed out, and then raping them.`\
+`The “manosphere” influencers, who were arrested in Florida, are accused of dozens of new crimes in Britain, including rape, sex trafficking and charges related to indecent images of a child.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
 
 **Trump Says Netanyahu Will Not Be Arrested in the U.S.**\
@@ -197,4 +193,8 @@ https://www.nytimes.com/es/2026/07/20/espanol/cultura/gustavo-dudamel-victimas-t
 **Outcry in Italy After Man Dies While Being Restrained by Police**\
 `The death of the man, a Moroccan resident of Italy, set off an outcry across the country and prompted comparisons to the death of George Floyd in the United States.`\
 https://www.nytimes.com/2026/07/20/world/europe/moroccan-italy-police-death-george-floyd.html
+
+**Andy Burnham, New UK Prime Minister, Names John Healey As Top Finance Official**\
+`As chancellor, John Healey, who quit as defense secretary in the former government, will fill one of the most consequential posts, overseeing fiscal and economic policy.`\
+https://www.nytimes.com/2026/07/20/business/andy-burnham-john-healey.html
 
