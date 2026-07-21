@@ -1,3 +1,7 @@
+**Book Review: ‘Unsayable,’ by Michael Cunningham**\
+`Blending autobiography with meditations on craft, “Unsayable” feels destined for the graduation gift bag.`\
+https://www.nytimes.com/2026/07/21/books/review/unsayable-michael-cunningham.html
+
 **Oil Buyers Battered by the Iran War Energy Crisis Race to Build Buffers**\
 `As rising fuel costs clobber their economies, the Philippines and other developing countries in Asia are pushing to build strategic petroleum reserves to cushion against future shocks.`\
 https://www.nytimes.com/2026/07/21/business/asia-strategic-oil-reserves.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.htm
 `We look at the American casualties in the war with Iran.`\
 https://www.nytimes.com/2026/07/21/briefing/american-casualties-iran-war.html
 
-**Lebanese Troops Deploy in Israeli-Held Village Under New Cease-Fire Plan**\
-`The Israeli military withdrew from the village under a U.S.-brokered deal to transfer control of occupied areas back to Lebanon after months of war. But Hezbollah has rejected the truce.`\
+**Lebanese Army Accuses Israeli Troops of Firing as Its Forces Deploy in ‘Pilot Zone’**\
+`The Israeli military was withdrawing from a village under a U.S.-brokered deal to transfer control of occupied areas to Lebanon after months of war. The Israeli military did not immediately comment.`\
 https://www.nytimes.com/2026/07/21/world/middleeast/lebanon-israel-ceasefire-plan.html
 
 **Epidemias de ira**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/magazine/menswear-clothes.html
 **The Fake Influencers Selling Wellness on Your Feed**\
 `The New York Times found hundreds of A.I.-generated doctors, healers and wellness influencers on social media touting the health benefits of supplements to American consumers. Many of these hyperrealistic looking ads promise medical miracles, and appear to be targeting older women, while making misleading health claims for a profit.`\
 https://www.nytimes.com/video/technology/100000011001849/ai-influencers-health-supplements-fake-ads.html
-
-**When Listening to Music Was a Team Sport**\
-`An exhibition at the Cooper Hewitt celebrates the glorious machines that gave us the soundtracks of our lives before streaming sites shoved them toward obsolescence.`\
-https://www.nytimes.com/2026/07/21/arts/design/art-of-noise-cooper-hewitt-smithsonian-design.html
 
