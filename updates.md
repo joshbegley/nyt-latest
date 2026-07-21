@@ -1,3 +1,7 @@
+**Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
+`The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
+https://www.nytimes.com/live/2026/07/21/world/iran-war-strikes-trump-hormuz
+
 **UK’s New Prime Minister Burnham Orders Cut in Taxes on Electricity**\
 `Prime Minister Andy Burnham moved quickly to confront the high cost of living. And President Trump wished him well after a phone call between the two leaders.`\
 https://www.nytimes.com/2026/07/21/world/europe/uk-andy-burnham-electricity-tax-vat.html
