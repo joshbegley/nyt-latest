@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/21/opinion/sudan-atrocities.html
 `A location of Kings Co. Imperial for Park Slope, Brooklyn, a new Frenchette bakery and more restaurant news.`\
 https://www.nytimes.com/2026/07/21/dining/hungry-spicy-nyc-restaurant-openings.html
 
-**India’s Young Protesters are Bloodied but Unbowed**\
+**India’s Young Protesters Are Bloodied but Unbowed**\
 `A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
 https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
 
@@ -46,7 +46,7 @@ https://www.nytimes.com/es/2026/07/21/espanol/estilos-de-vida/cyclospora-contami
 `A deaf teenage actress, she appeared in “Godzilla vs. Kong” and “Godzilla x Kong: The New Empire.”`\
 https://www.nytimes.com/2026/07/21/us/kaylee-hottle-godzilla-kong-dead.html
 
-**How Republicans Made Olive Garden Into a Voter ID Talking Point**\
+**How Republicans Turned Olive Garden Into a Voter ID Talking Point**\
 `Republicans claim that Olive Garden polices its Never-Ending Pasta Bowl more tightly than the United States does its elections. It’s not that simple.`\
 https://www.nytimes.com/2026/07/21/us/politics/olive-garden-voting-save-america-act-republicans.html
 
