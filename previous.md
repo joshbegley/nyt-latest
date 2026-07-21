@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/07/21/health/gene-therapy-rare-diseases-epilepsy.ht
 `Corrections that appeared in print on Tuesday, July 21, 2026.`\
 https://www.nytimes.com/2026/07/21/pageoneplus/corrections-july-21-2026.html
 
-**The Teenage Boys Digging for Their Mother’s Body**\
+**The Teenage Boys In Search of Their Mother After the Venezuela Earthquake**\
 `After Venezuela’s devastating earthquakes, Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
 https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
 

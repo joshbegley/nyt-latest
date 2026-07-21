@@ -1,3 +1,7 @@
+**The Teenage Boys In Search of Their Mother After the Venezuela Earthquake**\
+`After Venezuela’s devastating earthquakes, Winder and Deivi Delfín dug every day for 26 days to find the bodies of their mother, brother and grandmother.`\
+https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html
+
 **Oil Buyers Battered by the Iran War Energy Crisis Race to Build Buffers**\
 `As rising fuel costs clobber their economies, the Philippines and other developing countries in Asia are pushing to build strategic petroleum reserves to cushion against future shocks.`\
 https://www.nytimes.com/2026/07/21/business/asia-strategic-oil-reserves.html
