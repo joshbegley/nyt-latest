@@ -1,3 +1,7 @@
+**Meet Jimothy, the Seattle Raccoon Who Is Taking Over the Internet**\
+`The stout raccoon, which has a spinal condition, is “an example to all of us that you don’t have to be perfect to be loved,” a Seattle City Council member said.`\
+https://www.nytimes.com/2026/07/21/style/jimothy-raccoon-seattle-videos.html
+
 **Jimothy, a Short-Spined Raccoon, Has Become an Internet Sensation**\
 `Kiana Hall’s video of the unusually round raccoon has gone viral, making the animal a celebrity in Seattle and beyond.`\
 https://www.nytimes.com/video/us/100000011043974/jimothy-viral-raccoon-seattle.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/books/review/unsayable-michael-cunningham.htm
 **Oil Buyers Battered by the Iran War Energy Crisis Race to Build Buffers**\
 `As rising fuel costs clobber their economies, the Philippines and other developing countries in Asia are pushing to build strategic petroleum reserves to cushion against future shocks.`\
 https://www.nytimes.com/2026/07/21/business/asia-strategic-oil-reserves.html
-
-**1,700 H.I.V. Treatment Sites Closed After Trump Aid Cuts, a Study Finds**\
-`New research also shows that children and high-risk adult populations have been particularly affected.`\
-https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War and Economic Upheaval**\
 `Two oil tankers made U-turns a day after the Iran-backed militant group in Yemen threatened traffic in another vital shipping route. President Trump said he expected to keep firing on Iran after trading attacks for 10 straight nights.`\

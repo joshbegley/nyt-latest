@@ -1,3 +1,7 @@
+**Meet Jimothy, the Seattle Raccoon Who Is Taking Over the Internet**\
+`The stout raccoon, which has a spinal condition, is “an example to all of us that you don’t have to be perfect to be loved,” a Seattle City Council member said.`\
+https://www.nytimes.com/2026/07/21/style/jimothy-raccoon-seattle-videos.html
+
 **Jimothy, a Short-Spined Raccoon, Has Become an Internet Sensation**\
 `Kiana Hall’s video of the unusually round raccoon has gone viral, making the animal a celebrity in Seattle and beyond.`\
 https://www.nytimes.com/video/us/100000011043974/jimothy-viral-raccoon-seattle.html
