@@ -1,3 +1,11 @@
+**Tuesday Forecast: Millions In Northeast Face Heavy Rain and Powerful Winds**\
+`Forecasters zeroed in on an area from Kentucky to New York as being the most at risk for dangerous weather.`\
+https://www.nytimes.com/2026/07/21/weather/new-york-rain-flood-forecast.html
+
+**Houthis in Yemen Edge Closer to Entering U.S.-Iran War**\
+`The Iran-backed Houthi militia in Yemen has declared a Red Sea blockade on Saudi Arabia, potentially opening up a new front in the war rippling across the Middle East.`\
+https://www.nytimes.com/2026/07/21/world/middleeast/houthis-yemen-iran-war.html
+
 **Trump’s Kiss of Death**\
 `On top of everything else, the president is inept.`\
 https://www.nytimes.com/2026/07/21/opinion/trump-inept-second-term.html
