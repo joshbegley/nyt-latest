@@ -1,3 +1,7 @@
+**Las frutas y verduras nos siguen enfermando. Esta es la razón**\
+`Los brotes de “Cyclospora” son solo una fracción de la crisis de seguridad alimentaria vinculada a los productos agrícolas frescos. No hay soluciones rápidas ni fáciles para este problema.`\
+https://www.nytimes.com/es/2026/07/21/espanol/opinion/cyclospora-sintomas-lechuga.html
+
 **British Politician Ann Widdecombe Was Murdered with a Hammer, Prosecutors Say**\
 `The politician, Ann Widdecombe, was eating lunch at home when a man walked in and asked whether she had bank cards, security footage showed.`\
 https://www.nytimes.com/2026/07/21/world/europe/ann-widdecombe-death-hammer.html
@@ -142,6 +146,10 @@ https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blo
 `Rapid advancements in Chinese artificial intelligence models reportedly have Washington and Beijing considering new ways to protect their technology sectors.`\
 https://www.nytimes.com/2026/07/21/business/dealbook/us-china-ai-limits.html
 
+**Trump Administration Live Updates: White House Withholds Medicaid Funds for California and Minnesota**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/21/us/trump-news
+
 **Pan Am Clipper Endeavor Is Found After Over 70 Years Lost at Sea**\
 `Fifty-two of the 69 people aboard the plane died when it crashed off Puerto Rico and sank to the bottom of the Atlantic Ocean.`\
 https://www.nytimes.com/2026/07/21/us/pan-am-clipper-endeavor-wreckage-found.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/world/asia/south-korea-family-defection-escap
 **NYT Strands Hints for July 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 22, 2026.`\
 https://www.nytimes.com/2026/07/21/crosswords/strands-sidekick-871.html
-
-**New UK Prime Minister Burnham Promises Hope and Change. The Hurdles Are High.**\
-`Britain’s new prime minister, Andy Burnham, promised policies that would give average Britons financial “breathing space.” His opponents are already doling out criticism.`\
-https://www.nytimes.com/2026/07/21/world/europe/andy-burnham-new-uk-prime-minister-policies.html
-
-**Flash Floods Kill at Least 23 in Afghanistan**\
-`Dozens remained missing after floods swept through a city in Nuristan, an isolated province in the country’s east.`\
-https://www.nytimes.com/2026/07/21/world/asia/afghanistan-floods-deaths-nuristan.html
 
