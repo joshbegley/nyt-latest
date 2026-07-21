@@ -1,3 +1,7 @@
+**Daniel Ortega, President of Nicaragua, Says He Plans to Abolish Elections**\
+`Daniel Ortega has been accused of rigging recent elections in Nicaragua. Now, the authoritarian leader says the nation won’t even hold a vote.`\
+https://www.nytimes.com/2026/07/20/world/americas/nicaragua-ortega-abolish-elections.html
+
 **Tate Brothers to Stay in Jail as New Details About Charges Emerge**\
 `In court documents unsealed on Monday, British prosecutors accused the “manosphere” influencers of choking women, sometimes until they passed out, and then raping them.`\
 https://www.nytimes.com/2026/07/20/us/andrew-tristan-tate-brothers-hearing.html
