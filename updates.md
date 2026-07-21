@@ -1,3 +1,7 @@
+**The Grim Lessons of Israel’s War in Gaza**\
+`Israel has not been held accountable for its actions in Gaza. The nation and the individuals and countries enabling it to escape punishment may only benefit.`\
+https://www.nytimes.com/2026/07/21/opinion/israel-gaza-palestinians-genocide.html
+
 **¿Cómo se podría resolver la crisis del estrecho de Ormuz?**\
 `Un grupo de investigación se basó en un pacto europeo sobre el carbón y el acero, ahora desaparecido, para sugerir la formación de una coalición de países que compartiría el control del estrecho de Ormuz.`\
 https://www.nytimes.com/es/2026/07/21/espanol/mundo/estrecho-ormuz-trump-iran-acuerdo.html
