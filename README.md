@@ -1,3 +1,7 @@
+**Daniel Ortega, presidente de Nicaragua, dice que planea abolir las elecciones**\
+`Ortega, copresidente del país junto a su esposa, Rosario Murillo, es acusado de manipular las elecciones recientes. Ahora, el líder autoritario dice que la nación ni siquiera celebrará una votación.`\
+https://www.nytimes.com/es/2026/07/20/espanol/america-latina/nicaragua-ortega-elecciones.html
+
 **Trump Rejected Nearly 6,000 Clemency Applications Amid Hope of Pardon Wave**\
 `Expectations were raised for a raft of pardons in connection with the country’s 250th birthday but the president granted fewer than 20 on July 3.`\
 https://www.nytimes.com/2026/07/20/us/politics/trump-rejected-clemency-applications.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/20/world/middleeast/israel-un-mamdani-netanyahu-
 **Man Starts Fire Outside Federal Building in Manhattan**\
 `A man started a fire and set off explosives outside a federal building in Manhattan that houses an Immigration and Customs Enforcement office.`\
 https://www.nytimes.com/video/us/100000011041998/nyc-federal-plaza-immigration-ice-incident.html
-
-**California Fires Destroyed Many Cars. Owners Are Trying to Save Them.**\
-`People in and around Altadena don’t want to give up on their beloved cars. Some have been resurrected and some turned into art.`\
-https://www.nytimes.com/2026/07/20/automobiles/collectibles/altadena-fires-cars-california.html
 

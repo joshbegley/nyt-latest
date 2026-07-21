@@ -1,3 +1,7 @@
+**Trump Rejected Nearly 6,000 Clemency Applications Amid Hope of Pardon Wave**\
+`Expectations were raised for a raft of pardons in connection with the country’s 250th birthday but the president granted fewer than 20 on July 3.`\
+https://www.nytimes.com/2026/07/20/us/politics/trump-rejected-clemency-applications.html
+
 **NYT Crossword Answers for July 21, 2026**\
 `Kenneth Cortes thinks out loud.`\
 https://www.nytimes.com/2026/07/20/crosswords/daily-puzzle-2026-07-21.html
