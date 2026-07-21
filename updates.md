@@ -1,3 +1,7 @@
+**Small Plane Crashes Into House Near Houston**\
+`The plane, a Piper J3C-65, struck the house in Fulshear, Texas, around 6:45 a.m. on Monday, the authorities said. Its pilot was in serious condition on Tuesday, a hospital spokesman said.`\
+https://www.nytimes.com/2026/07/21/us/texas-plane-crash-home.html
+
 **Senate Panel Advances Jay Clayton as Next Spy Chief on Party-Line Vote**\
 `If the full Senate confirms him as expected, Mr. Clayton will take over the Office of the Director of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
 https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html

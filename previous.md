@@ -1,3 +1,7 @@
+**Small Plane Crashes Into House Near Houston**\
+`The plane, a Piper J3C-65, struck the house in Fulshear, Texas, around 6:45 a.m. on Monday, the authorities said. Its pilot was in serious condition on Tuesday, a hospital spokesman said.`\
+https://www.nytimes.com/2026/07/21/us/texas-plane-crash-home.html
+
 **Hegseth Estimates Iran War Has Cost $37.5 Billion**\
 `Defense Secretary Pete Hegseth is requesting as much as $70 billion in emergency military spending after nearly five months of war.`\
 https://www.nytimes.com/2026/07/21/us/politics/iran-war-cost-estimate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.h
 **Susumu Tonegawa Dies at 86; Nobel Laureate Showed How Antibodies Fight Infection**\
 `The first Japanese scientist to win the Nobel Prize in Physiology or Medicine, he went on to discover how memories are stored, advancing understanding of how the brain works.`\
 https://www.nytimes.com/2026/07/21/science/susumu-tonegawa-dead.html
-
-**Error Led to 400 Noncitizens Voting in New Jersey, Governor Says**\
-`A 2023 software glitch at the state’s Motor Vehicle Commission led to roughly 6,600 noncitizens being registered to vote during the Murphy administration, Gov. Mikie Sherrill announced.`\
-https://www.nytimes.com/2026/07/21/nyregion/noncitizen-voting-new-jersey-error.html
 
