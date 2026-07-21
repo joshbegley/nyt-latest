@@ -1,3 +1,7 @@
+**Tuesday Forecast: Millions In Northeast Face Heavy Rain and Powerful Winds**\
+`Forecasters zeroed in on an area from Kentucky to New York as being the most at risk for dangerous weather.`\
+https://www.nytimes.com/2026/07/21/weather/new-york-rain-flood-forecast.html
+
 **Trump’s Kiss of Death**\
 `On top of everything else, the president is inept.`\
 https://www.nytimes.com/2026/07/21/opinion/trump-inept-second-term.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/21/espanol/opinion/leer-telefonos-celulares.h
 **The World Cup in New York and New Jersey, by the Numbers**\
 `The World Cup brought hordes of soccer fans to town, and locals flocked to watch parties. But did the games deliver on promises of an economic boon?`\
 https://www.nytimes.com/2026/07/21/nyregion/world-cup-nyc-nj-economy.html
-
-**NYT Spelling Bee Answers for July 21, 2025**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/21/crosswords/spelling-bee-forum.html
 
