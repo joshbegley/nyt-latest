@@ -1,3 +1,7 @@
+**India’s Young Protesters are Bloodied but Unbowed**\
+`A day after police forcibly broke up demonstrations, thousands returned to the protest site in New Delhi to keep pushing for action over the country’s failings in education.`\
+https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html
+
 **Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
 `The Pentagon seeks an additional $80 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
 https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/21/world/canada/trump-carney-trade-tariffs.html
 **Houthis Threaten to Block Saudi Ships in Red Sea**\
 `Supporters of the Iran-backed Houthi militia in Yemen rallied on Monday after it said it would block Saudi ships in the Red Sea, threatening to open a new front in the war rippling across the Middle East.`\
 https://www.nytimes.com/video/world/middleeast/100000011043551/yemen-houthis-blockade-saudi-arabia-red-sea.html
-
-**Will the U.S. and China Build Walls Around A.I.?**\
-`Rapid advancements in Chinese artificial intelligence models reportedly have Washington and Beijing considering new ways to protect their technology sectors.`\
-https://www.nytimes.com/2026/07/21/business/dealbook/us-china-ai-limits.html
 
 **Iran War Live Updates: Houthi Threat Adds to Fears of Wider War as U.S. and Iran Trade Strikes**\
 `The United States and Iran launched attacks for a 10th straight night, as concerns grew over a threat from the Houthis, the Iranian-backed militant group in Yemen, to impose a blockade on Saudi ships.`\
