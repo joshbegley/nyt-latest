@@ -1,3 +1,7 @@
+**Zelensky Removes Ukraine’s Top General**\
+`Also, the Pentagon estimates the Iran war has cost $37.5 billion. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/07/21/briefing/zelensky-removes-top-general.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011045389/21vid-hegseth-kennedy.html

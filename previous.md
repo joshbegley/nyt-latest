@@ -1,3 +1,7 @@
+**Zelensky Removes Ukraine’s Top General**\
+`Also, the Pentagon estimates the Iran war has cost $37.5 billion. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/07/21/briefing/zelensky-removes-top-general.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011045389/21vid-hegseth-kennedy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-par
 **Hegseth and Caine Will Appear Before Senators to Seek More Money for Iran War**\
 `The Pentagon seeks an additional $70 billion to cover the costs of the conflict and replenish depleted weapons stocks.`\
 https://www.nytimes.com/2026/07/21/us/iran-war-funding.html
-
-**Netanyahu Ad Uses a Questionable Tactic Against Bereaved Rival**\
-`A.I.-generated images showing Gadi Eisenkot, the Israeli leader’s top challenger in upcoming elections, played on anti-Arab sentiments and used images seen as disrespectful to his son, who was killed in the recent Gaza war.`\
-https://www.nytimes.com/2026/07/21/world/middleeast/netanyahu-ad-gadi-eisenkot.html
 
