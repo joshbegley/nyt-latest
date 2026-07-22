@@ -1,3 +1,7 @@
+**Quote of the Day: Lillian Roberts, Rousing leader of Municipal Union, Dies at 98**\
+`Quotation of the Day for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/22/pageoneplus/quote-of-the-day-lillian-roberts-rousing-leader-of-municipal-union-dies-at-98.html
+
 **Mamdani Calls Netanyahu a ‘War Criminal’ and Calls on U.S. to Arrest Him**\
 `Mayor Zohran Mamdani challenged the United States to execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, which New York itself cannot do.`\
 https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
