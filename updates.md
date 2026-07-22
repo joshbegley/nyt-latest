@@ -1,3 +1,11 @@
+**The Rise of Loneliness Influencers**\
+`“You don’t have to get married or be in a relationship to make a life for yourself,” Christine Emba says on “The Opinions,” arguing that the rise of loneliness influencers reflects a broader shift: Women no longer need relationships for economic or social survival.`\
+https://www.nytimes.com/video/opinion/100000011046629/the-rise-of-loneliness-influencers.html
+
+**Israeli Banks Threaten to Cut Off Palestinian Economy**\
+`Two Israeli financial firms have long served as partners to Palestinian banks, handling transactions that make possible the West Bank’s imports and exports.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html
+
 **Intimidation Charges Dismissed Against Louisiana Attorney General**\
 `Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’ Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
 https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html

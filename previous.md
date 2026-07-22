@@ -1,3 +1,7 @@
+**The Rise of Loneliness Influencers**\
+`“You don’t have to get married or be in a relationship to make a life for yourself,” Christine Emba says on “The Opinions,” arguing that the rise of loneliness influencers reflects a broader shift: Women no longer need relationships for economic or social survival.`\
+https://www.nytimes.com/video/opinion/100000011046629/the-rise-of-loneliness-influencers.html
+
 **Intimidation Charges Dismissed Against Louisiana Attorney General**\
 `Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’ Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
 https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/07/22/opinion/gen-z-sex-celibacy-relationships.html
 https://www.nytimes.com/video/opinion/100000011035163/gen-z-ers-are-ditching-sex-they-might-be-on-to-something.html
 
 **Israeli Banks Threaten to Cut Off Palestinian Economy**\
-`Two Israeli financial firms have long served as partners to Palestinian banks, handling transactions that make possible much of West Bank imports and exports.`\
+`Two Israeli financial firms have long served as partners to Palestinian banks, handling transactions that make possible the West Bank’s imports and exports.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html
 
 **What Can a Poll Tell Us?**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-inep
 **Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince**\
 `Saudi Arabia had for years sought the controversial deal to obtain American nuclear technology. It is expected to be sealed on Wednesday, deepening U.S.-Saudi ties for decades to come.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
-
-**Conoce a Jimothy, el mapache que se apodera de Instagram**\
-`Un mapache de Seattle con una afección en la columna ha pasado de ser una leyenda local a una celebridad internacional luego de que varios videos en los que aparece circularan en las redes sociales.`\
-https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/jimothy-mapache-instagram.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
