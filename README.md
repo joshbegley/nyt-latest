@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/07/22/us/politics/teen-pregnancy-prevention-trump.h
 `In a new book, the historian Kim Phillips-Fein chronicles a “shadow tradition” of anti-egalitarians who fought against America’s founding ideals.`\
 https://www.nytimes.com/2026/07/22/books/review/country-of-lords-kim-phillips-fein.html
 
-**The Enduring Popularity of ‘the Surrendered Wife’**\
+**The Enduring Popularity of ‘The Surrendered Wife’**\
 `The best-selling author Laura Doyle believes women can be too controlling. Many women — of all types — credit her with saving their marriages.`\
 https://www.nytimes.com/2026/07/22/us/laura-doyle-surrendered-wife.html
 
