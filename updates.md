@@ -1,3 +1,11 @@
+**Trump’s 50% Tariffs on Canada: What to Know, and What’s Next**\
+`The president said punishing 50 percent tariffs would begin by Aug. 19, a significant escalation of the trade war between Canada and the U.S. that he started over a year ago.`\
+https://www.nytimes.com/2026/07/22/world/canada/canada-trump-tariffs-trade.html
+
+**Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
+`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
+https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
+
 **Should Queer Parents Have Zingers Ready for Boneheaded Questions?**\
 `Two moms who are tired of intrusive comments about sperm donation and “mom names” want quippy comebacks they can roll out as needed. Is there a better way?`\
 https://www.nytimes.com/2026/07/22/style/queer-family-sperm-donation-impolite-questions.html

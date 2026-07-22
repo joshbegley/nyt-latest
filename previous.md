@@ -1,3 +1,7 @@
+**Trump’s 50% Tariffs on Canada: What to Know, and What’s Next**\
+`The president said punishing 50 percent tariffs would begin by Aug. 19, a significant escalation of the trade war between Canada and the U.S. that he started over a year ago.`\
+https://www.nytimes.com/2026/07/22/world/canada/canada-trump-tariffs-trade.html
+
 **Should Queer Parents Have Zingers Ready for Boneheaded Questions?**\
 `Two moms who are tired of intrusive comments about sperm donation and “mom names” want quippy comebacks they can roll out as needed. Is there a better way?`\
 https://www.nytimes.com/2026/07/22/style/queer-family-sperm-donation-impolite-questions.html
@@ -58,8 +62,8 @@ https://www.nytimes.com/2026/07/22/crosswords/strands-sidekick-872.html
 `Con miles de casos reportados en Estados Unidos, la investigación sobre el brote alimenta el temor a nuevas restricciones sobre los productos agrícolas mexicanos.`\
 https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclospora-lechuga-taylor-farms.html
 
-**Iran War Live Updates: Rubio Signals No Letup in U.S. Strikes**\
-`Secretary of State Marco Rubio said that the United States would continue attacking Iran as long as it tried to control the Strait of Hormuz, and suggested that Tehran was “not serious” about diplomacy.`\
+**Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
+`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
 
 **Joe McCarthy Lives!**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/books/review/language-of-liars-antimemetics-m
 **How Donald Trump Jr.’s 1789 Capital Is Cashing In Without Apology**\
 `The fledgling firm, run by the president’s oldest son and his partner Omeed Malik, has made investments in A.I. and defense technology that have tripled in value in just months.`\
 https://www.nytimes.com/2026/07/22/business/donald-trump-jr-1789-capital.html
-
-**After Decades of Caution, Germany Is Shaking Up How It Makes Weapons**\
-`As threats from Moscow rise and support from Washington dwindles, the German military is reinventing how it researches, funds and wields 21st-century arms.`\
-https://www.nytimes.com/2026/07/22/world/europe/germany-rearmament-innovation-reinvention-arms.html
 
