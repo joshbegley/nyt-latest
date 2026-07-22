@@ -1,3 +1,11 @@
+**Iran’s Neighbors Long for a Deal, Any Deal, to End the War**\
+`Business owners in Pakistan are getting impatient for a chance to finally trade goods and oil along their long shared border with Iran.`\
+https://www.nytimes.com/2026/07/22/world/asia/iran-pakistan-karachi-trade-oil.html
+
+**Russia Will Not Yield**\
+`A journey around the globe showed the country’s relentless adaptation.`\
+https://www.nytimes.com/2026/07/22/opinion/russia-putin-ukraine-west.html
+
 **Quote of the Day: Lillian Roberts, Rousing leader of Municipal Union, Dies at 98**\
 `Quotation of the Day for Wednesday, July 22, 2026.`\
 https://www.nytimes.com/2026/07/22/pageoneplus/quote-of-the-day-lillian-roberts-rousing-leader-of-municipal-union-dies-at-98.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-maine-senate-democra
 **New Poster for ‘La La Land’ Fixes Ryan Gosling’s Wayward Hand**\
 `Gosling’s hand position during a dance scene didn’t match Emma Stone’s, haunting him for years after the movie’s release.`\
 https://www.nytimes.com/2026/07/21/movies/la-la-land-poster-gosling-hand.html
-
-**Water Plants Under Fire in the Gulf Are Crucial to Civilians**\
-`Several days of airstrikes have hit water and energy plants in Kuwait, a nation that relies on desalination for 90 percent of its drinking water.`\
-https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-east.html
-
-**Senate Panel Advances Jay Clayton as Next Spy Chief on Party-Line Vote**\
-`If the full Senate confirms him as expected, Mr. Clayton will take over the Office of the Director of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
-https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html
 
