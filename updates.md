@@ -1,3 +1,7 @@
+**Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
+`A fire in the Pleasanton, Calif., area was spreading quickly across dry hillsides and threatening neighborhoods.`\
+https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
+
 **Hegseth Estimates Cost of Iran War Has Reached $37.5 Billion**\
 `Defense Secretary Pete Hegseth appeared before the Senate Appropriations Committee Tuesday to request an additional $70 billion to fund the war and replenish weapons stockpiles.`\
 https://www.nytimes.com/video/us/politics/100000011045230/hegseth-hearing-iran-war-cost.html

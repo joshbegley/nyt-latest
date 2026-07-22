@@ -1,3 +1,7 @@
+**Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
+`A fire in the Pleasanton, Calif., area was spreading quickly across dry hillsides and threatening neighborhoods.`\
+https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
+
 **Trump Plans to Impose Tariffs on Generic Drugs**\
 `The administration has repeatedly said it will impose steep pharmaceutical tariffs but has not followed through on them.`\
 https://www.nytimes.com/2026/07/21/business/trump-tariffs-generic-drugs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/21/espanol/masaje-drenaje-linfatico-piel-rost
 **Watch Live: Hegseth and Caine Testify Before the Senate**\
 `Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations Committee.`\
 https://www.nytimes.com/video/embedded/us/politics/100000011043847/watch-live-hegseth-and-caine-testify-before-the-senate.html
-
-**Trump impondrá un arancel del 50% a muchos productos canadienses**\
-`El gobierno de EE. UU. utilizará una disposición legal no probada para imponer aranceles significativos a las exportaciones canadienses, lo cual reavivará un conflicto con uno de los mayores socios comerciales del país.`\
-https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/trump-aranceles-canada.html
 
