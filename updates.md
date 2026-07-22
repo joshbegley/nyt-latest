@@ -1,3 +1,19 @@
+**What Visuals Show About Recent Damage to U.S. Military Sites in the Middle East**\
+`Video footage and satellite images reveal new details about Iranian strikes on U.S. targets during the latest flare-up in fighting.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/iran-war-us-bases-images.html
+
+**Doreen Broadnax, Famous (as Sparky D) for ’80s Rap Battle, Dies at 61**\
+`Tossing verbal grenades back and forth with Roxanne Shanté, she helped establish a lasting hip-hop truism: Bad blood is good business.`\
+https://www.nytimes.com/2026/07/22/arts/music/sparky-d-dead.html
+
+**Alphabet Quadruples Profit to $112 Billion, Fueled by A.I. Investments**\
+`Google’s parent company, which has spent heavily on artificial intelligence, also showed growth across its businesses, particularly in cloud computing.`\
+https://www.nytimes.com/2026/07/22/technology/alphabet-google-earnings-profit.html
+
+**U.S. Troops, Seriously Wounded in Recent Strikes, Were Flown to Germany for Help**\
+`The seriously wounded service members are among the roughly 100 American troops that the Defense Department recently said were injured by Iranian attacks since early July.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/us-troops-iran-germany.html
+
 **House Adopts $95 Billion G.O.P. Budget for Iran War**\
 `Republican leaders muscled through resistance in their own ranks to approve the budget blueprint for the war and other measures, but its prospects were far dimmer in the Senate.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html

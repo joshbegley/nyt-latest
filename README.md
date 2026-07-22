@@ -1,3 +1,11 @@
+**Why the Student Opposition Movement Is Growing in India**\
+`Thousands of young people angry about India’s education system continued to protest in New Delhi on Wednesday.`\
+https://www.nytimes.com/video/world/asia/100000011047080/india-youth-protest-cockroach-janta-party.html
+
+**Peter Lassally, Longtime Late-Night TV Producer, Dies at 93**\
+`He was known as the “host whisperer” for his success at producing shows starring Johnny Carson, David Letterman and Craig Ferguson.`\
+https://www.nytimes.com/2026/07/22/arts/television/peter-lassally-dead.html
+
 **What Visuals Show About Recent Damage to U.S. Military Sites in the Middle East**\
 `Video footage and satellite images reveal new details about Iranian strikes on U.S. targets during the latest flare-up in fighting.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/iran-war-us-bases-images.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000011035163/gen-z-ers-are-ditching-sex
 **Israeli Banks Threaten to Cut Off Palestinian Economy**\
 `Two Israeli financial firms have long served as partners to Palestinian banks, handling transactions that make possible the West Bank’s imports and exports.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html
-
-**What Can a Poll Tell Us?**\
-`Everyone wants to know who will win an election, but polls do more than predicting outcomes. The polling reporter Ruth Igielnik shares how polls are also judged on their ability to reveal electorate dynamics.`\
-https://www.nytimes.com/video/insider/100000010994126/what-can-a-poll-tell-us.html
-
-**Map: 3.5-Magnitude Earthquake Shakes Western Nevada**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/22/us/earthquake-tracker-nevada.html
 

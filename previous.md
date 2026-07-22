@@ -1,3 +1,11 @@
+**What Visuals Show About Recent Damage to U.S. Military Sites in the Middle East**\
+`Video footage and satellite images reveal new details about Iranian strikes on U.S. targets during the latest flare-up in fighting.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/iran-war-us-bases-images.html
+
+**Doreen Broadnax, Famous (as Sparky D) for ’80s Rap Battle, Dies at 61**\
+`Tossing verbal grenades back and forth with Roxanne Shanté, she helped establish a lasting hip-hop truism: Bad blood is good business.`\
+https://www.nytimes.com/2026/07/22/arts/music/sparky-d-dead.html
+
 **The U.S. Signs a Nuclear Pact With Saudi Arabia**\
 `Also, Trump threatens to retaliate against civilian targets in Iran.`\
 https://www.nytimes.com/2026/07/22/briefing/the-us-signs-a-nuclear-pact-with-saudi-arabia.html
@@ -78,7 +86,7 @@ https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers
 `President Trump on Wednesday oversaw the return of four U.S. Army soldiers recently killed overseas in the war with Iran.`\
 https://www.nytimes.com/video/us/politics/100000011046811/trump-iran-war-fallen-soldiers.html
 
-**Alphabet Quadruples Profit to Nearly $120 Billion, Fueled by A.I. Investments**\
+**Alphabet Quadruples Profit to $112 Billion, Fueled by A.I. Investments**\
 `Google’s parent company, which has spent heavily on artificial intelligence, also showed growth across its businesses, particularly in cloud computing.`\
 https://www.nytimes.com/2026/07/22/technology/alphabet-google-earnings-profit.html
 
@@ -136,7 +144,7 @@ https://www.nytimes.com/2026/07/22/climate/dunes-sagebrush-lizard-trump.html
 
 **U.S. Troops, Seriously Wounded in Recent Strikes, Were Flown to Germany for Help**\
 `The seriously wounded service members are among the roughly 100 American troops that the Defense Department recently said were injured by Iranian attacks since early July.`\
-https://www.nytimes.com/2026/07/22/world/middleeast/american-troops-seriously-wounded-in-recent-strikes-were-flown-to-germany-for-help.html
+https://www.nytimes.com/2026/07/22/world/middleeast/us-troops-iran-germany.html
 
 **Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
 `Tenisha Delilah Warner said in a lawsuit filed in Georgia that she was entitled to the money according to a premarital agreement.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/insider/100000010994126/what-can-a-poll-tell-us.ht
 **Map: 3.5-Magnitude Earthquake Shakes Western Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/22/us/earthquake-tracker-nevada.html
-
-**Tiny Love Stories: ‘A Full, Hiccuping Meltdown Over Nothing’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/07/22/style/tiny-modern-love-stories-a-full-hiccuping-meltdown-over-nothing.html
-
-**Why Are Young People in India Protesting?**\
-`A youth-led movement angry over the education system and a lack of jobs is posing a rare challenge to a government that has ruled for more than a decade with a firm hand.`\
-https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html
 
