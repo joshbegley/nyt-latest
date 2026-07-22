@@ -1,3 +1,7 @@
+**Should Queer Parents Have Zingers Ready for Boneheaded Questions?**\
+`Two moms who are tired of intrusive comments about sperm donation and “mom names” want quippy comebacks they can roll out as needed. Is there a better way?`\
+https://www.nytimes.com/2026/07/22/style/queer-family-sperm-donation-impolite-questions.html
+
 **On Cats, Dystopian Novels and Sleep: The Winners of Week 5 of Our Summer Reading Contest**\
 `This week we honor a video and two essays. Congratulations to Runhu Xu, Penelope Irwin and Clarissa Tick!`\
 https://www.nytimes.com/2026/07/22/learning/on-cats-dystopian-novels-and-sleep-the-winners-of-week-5-of-our-summer-reading-contest.html

@@ -1,3 +1,7 @@
+**Should Queer Parents Have Zingers Ready for Boneheaded Questions?**\
+`Two moms who are tired of intrusive comments about sperm donation and “mom names” want quippy comebacks they can roll out as needed. Is there a better way?`\
+https://www.nytimes.com/2026/07/22/style/queer-family-sperm-donation-impolite-questions.html
+
 **On Cats, Dystopian Novels and Sleep: The Winners of Week 5 of Our Summer Reading Contest**\
 `This week we honor a video and two essays. Congratulations to Runhu Xu, Penelope Irwin and Clarissa Tick!`\
 https://www.nytimes.com/2026/07/22/learning/on-cats-dystopian-novels-and-sleep-the-winners-of-week-5-of-our-summer-reading-contest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/business/donald-trump-jr-1789-capital.html
 **After Decades of Caution, Germany Is Shaking Up How It Makes Weapons**\
 `As threats from Moscow rise and support from Washington dwindles, the German military is reinventing how it researches, funds and wields 21st-century arms.`\
 https://www.nytimes.com/2026/07/22/world/europe/germany-rearmament-innovation-reinvention-arms.html
-
-**Mamdani Challenges U.S. to Execute Arrest Warrant Against Netanyahu**\
-`Mayor Zohran Mamdani said New York could not execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, but he called on the United States to do so.`\
-https://www.nytimes.com/video/us/politics/100000011045919/mamdani-netanyahu-arrest-warrant.html
 
