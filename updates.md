@@ -1,3 +1,7 @@
+**‘Help Never Came.’ Canadian Wildfire Evacuees Want to Know Why.**\
+`Residents of northwestern Ontario say their warnings about fires they spotted were dismissed and official information as the flames spread often didn’t come at all.`\
+https://www.nytimes.com/2026/07/22/world/canada/ontario-wildfires-canada-smoke.html
+
 **Where U.S. government data is disappearing**\
 `Plus, the quest to preserve public data.`\
 https://www.nytimes.com/2026/07/22/headway/where-us-government-data-is-disappearing.html
