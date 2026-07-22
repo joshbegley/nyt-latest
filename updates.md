@@ -1,3 +1,15 @@
+**Colombia, el mayor falsificador de dólares del mundo**\
+`Así siguieron el rastro de uno de los mayores maestros de la falsificación de dinero del mundo.`\
+https://www.nytimes.com/es/2026/07/22/espanol/dolares-dinero-falso-colombia.html
+
+**Man Who Attacked Salman Rushdie Faces Terrorism Charges in Federal Trial**\
+`Mr. Rushdie is expected to testify against Hadi Matar, the man who repeatedly stabbed him in 2022. Mr. Matar’s lawyers argue that he acted on his own, not on behalf of Iran.`\
+https://www.nytimes.com/2026/07/22/nyregion/salman-rushdie-hadi-matar-terror-trial.html
+
+**NYT Spelling Bee Answers for July 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/22/crosswords/spelling-bee-forum.html
+
 **遺留之物**\
 `香港一場致命大火奪走他們摯愛的生命。數月後，他們重返宏福苑，查看火災廢墟。以下是他們從中帶回的物品。`\
 https://www.nytimes.com/zh-hant/interactive/2026/07/22/chinese/hong-kong-fire-objects-families.html
