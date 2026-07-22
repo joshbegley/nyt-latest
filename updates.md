@@ -1,3 +1,7 @@
+**Trump Pick Wins G.O.P. Nomination to Challenge Arizona Governor**\
+`Representative Andy Biggs, a conservative Republican and an ally of the president, will try to unite Republicans against Gov. Katie Hobbs in a crucial swing state.`\
+https://www.nytimes.com/2026/07/21/us/elections/arizona-governor-andy-biggs-republican-primary.html
+
 **Mamdani Calls Netanyahu a ‘War Criminal’ and Calls on U.S. to Arrest Him**\
 `Mayor Zohran Mamdani challenged the U.S. to execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, which New York itself cannot do.`\
 https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html

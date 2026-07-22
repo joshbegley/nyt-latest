@@ -1,3 +1,7 @@
+**Trump Pick Wins G.O.P. Nomination to Challenge Arizona Governor**\
+`Representative Andy Biggs, a conservative Republican and an ally of the president, will try to unite Republicans against Gov. Katie Hobbs in a crucial swing state.`\
+https://www.nytimes.com/2026/07/21/us/elections/arizona-governor-andy-biggs-republican-primary.html
+
 **Trump Administration Is Said to Reach Broad Nuclear Deal With Saudis**\
 `Some U.S. lawmakers from both parties and Israeli officials have expressed opposition to such a plan, fearing that the kingdom could use a civilian nuclear project to eventually develop nuclear weapons.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-saudi-nuclear-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/arts/music/plas-johnson-dead.html
 **Muere Kaylee Hottle, actriz de las películas de ‘Godzilla', en un accidente de auto**\
 `La actriz adolescente sorda apareció en “Godzilla vs. Kong” y “Godzilla y Kong: el nuevo imperio”.`\
 https://www.nytimes.com/es/2026/07/21/espanol/cultura/kaylee-hottle-actriz-godzilla-muerte.html
-
-**El caso de Maduro podría estar a punto de dar un giro**\
-`Cuando el líder depuesto vuelva a la corte, los fiscales federales podrían encontrar un obstáculo: los tribunales de EE. UU. no tienen autoridad para juzgarlo.`\
-https://www.nytimes.com/es/2026/07/21/espanol/opinion/nicolas-maduro-extradicion.html
 
