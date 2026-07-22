@@ -1,3 +1,11 @@
+**Trump’s Trade Negotiator Doubles Down on Tariffs Before Global Duties Expire**\
+`Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
+https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
+
+**U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race**\
+`An Israeli minister sought to downplay the expected deal, while critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
+
 **House Republicans Have Tied the Defense Policy Bill to Trump’s SAVE Act**\
 `House Republicans have tied their entire legislative agenda to President Trump’s voting restriction measure, as he has demanded.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-voter-id.html

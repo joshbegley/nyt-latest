@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/07/22/magazine/college-tuition-stepdaughter-ethics.
 `Thieves stole crown jewels from the Apollo Gallery at the Louvre Museum in October, forcing its closure. Tourists finally returned on Wednesday.`\
 https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html
 
-**Trump Administration Plans to Stick With Tariffs, Trade Representative Says**\
+**Trump’s Trade Negotiator Doubles Down on Tariffs Before Global Duties Expire**\
 `Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
 https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
 
@@ -151,7 +151,7 @@ https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.ht
 https://www.nytimes.com/2026/07/22/arts/design/tate-museums-jessica-morgan-director.html
 
 **U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race**\
-`An Israeli minister sought to downplay the expected deal, but critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
+`An Israeli minister sought to downplay the expected deal, while critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
 
 **Dirty Lettuce**\
