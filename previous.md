@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.
 `Gen. Oleksandr Syrskyi, who commanded crucial battles, oversaw an expansion of drone warfare against Russia, but many Ukrainians want even more.`\
 https://www.nytimes.com/2026/07/22/world/europe/ukraine-syrskyi-general-russia-war.html
 
-**Global Oil Price Vaults Over $95 a Barrel as War Threats Intensify**\
+**Global Oil Price Jumps as War Threats Intensify**\
 `The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
 

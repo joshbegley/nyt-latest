@@ -1,3 +1,7 @@
+**Global Oil Price Jumps as War Threats Intensify**\
+`The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
+https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
+
 **Dirty Lettuce**\
 `We look into the cyclospora outbreak.`\
 https://www.nytimes.com/2026/07/22/briefing/cyclospora-outbreak.html
