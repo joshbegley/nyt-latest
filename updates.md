@@ -1,3 +1,11 @@
+**The Sex Recession Started With Millennials**\
+`The story of America’s sex recession doesn’t begin with Gen Z. Carter Sherman argues that millennials were already having less sex than previous generations — changing how we should think about what’s happening today.`\
+https://www.nytimes.com/video/opinion/100000011035171/the-sex-recession-started-with-millennials.html
+
+**Intimidation Charges Dismissed Against Louisiana Attorney General**\
+`Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’s Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
+https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html
+
 **The Rise of Loneliness Influencers**\
 `“You don’t have to get married or be in a relationship to make a life for yourself,” Christine Emba says on “The Opinions,” arguing that the rise of loneliness influencers reflects a broader shift: Women no longer need relationships for economic or social survival.`\
 https://www.nytimes.com/video/opinion/100000011046629/the-rise-of-loneliness-influencers.html

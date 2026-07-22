@@ -1,9 +1,13 @@
+**The Sex Recession Started With Millennials**\
+`The story of America’s sex recession doesn’t begin with Gen Z. Carter Sherman argues that millennials were already having less sex than previous generations — changing how we should think about what’s happening today.`\
+https://www.nytimes.com/video/opinion/100000011035171/the-sex-recession-started-with-millennials.html
+
 **The Rise of Loneliness Influencers**\
 `“You don’t have to get married or be in a relationship to make a life for yourself,” Christine Emba says on “The Opinions,” arguing that the rise of loneliness influencers reflects a broader shift: Women no longer need relationships for economic or social survival.`\
 https://www.nytimes.com/video/opinion/100000011046629/the-rise-of-loneliness-influencers.html
 
 **Intimidation Charges Dismissed Against Louisiana Attorney General**\
-`Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’ Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
+`Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’s Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
 https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html
 
 **Sony Revives Cinerama Dome in Los Angeles as Box Office Sales Rebound**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-s
 **El beso de la muerte de Trump**\
 `El presidente también es un inepto.`\
 https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html
-
-**Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince**\
-`Saudi Arabia had for years sought the controversial deal to obtain American nuclear technology. It is expected to be sealed on Wednesday, deepening U.S.-Saudi ties for decades to come.`\
-https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
