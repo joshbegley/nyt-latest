@@ -1,3 +1,87 @@
+**Iran War Live Updates: Rubio Signals No Letup in U.S. Strikes**\
+`Secretary of State Marco Rubio said that the United States would continue attacking Iran as long as it tried to control the Strait of Hormuz, and suggested that Tehran was “not serious” about diplomacy.`\
+https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
+
+**Joe McCarthy Lives!**\
+`Trump’s attempt to drum up a third red scare is certain to fail.`\
+https://www.nytimes.com/2026/07/22/opinion/trump-red-scare-midterms.html
+
+**Interpretó a una estrella del fútbol en ‘Ted Lasso’. Ahora está de vuelta en la cancha**\
+`Cristo Fernández fue futbolista antes que actor. Tras alcanzar el estrellato en la televisión, hace un improbable regreso a su primera carrera.`\
+https://www.nytimes.com/es/2026/07/22/espanol/cultura/ted-lasso-cristo-fernandez-futbol.html
+
+**‘The Five-Star Weekend’ Makes Middle Age Look Magical**\
+`Lately, the media loves to humiliate women in their 40s and 50s; this show reveres them.`\
+https://www.nytimes.com/2026/07/22/opinion/five-star-weekend-women-aging.html
+
+**See How Houthis Put the Red Sea at Risk as an Alternative Oil Route**\
+`Saudi Arabia has diverted huge amounts of oil to the Red Sea since the Iran war began, but now the Iranian-backed Houthi militants say that they intend to block that route.`\
+https://www.nytimes.com/2026/07/22/business/energy-environment/red-sea-saudi-arabia-houthis.html
+
+**A Lettuce-Growing Region in Mexico Stomachs the Fallout From the Cyclospora Outbreak**\
+`In central Mexico, a lettuce-growing region has been potentially linked to an outbreak in the U.S. that has sickened thousands.`\
+https://www.nytimes.com/2026/07/22/world/americas/cyclospora-lettuce-mexico-guanajuato.html
+
+**Who Should Represent Michigan?**\
+`Times Opinion convened a panel of experts to help voters make sense of the race.`\
+https://www.nytimes.com/interactive/2026/07/22/opinion/michigan-senate-primary-election.html
+
+**Corrections: July 22, 2026**\
+`Corrections that appeared in print on Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/22/pageoneplus/corrections-july-22-2026.html
+
+**Tariffs Will Long Outlive Trump**\
+`We will be stuck with tariffs long after this president is out of office.`\
+https://www.nytimes.com/2026/07/22/opinion/tariffs-canada-trump-bond-market.html
+
+**Modern Love: My Disability Makes My Life Sex Life Even Hotter**\
+`The actor and filmmaker Kyla Harris has discovered creative ways to give and receive pleasure.`\
+https://www.nytimes.com/2026/07/22/podcasts/modern-love-kyla-harris-disabled-sex.html
+
+**Even the Architects Said the Build Would Be Nearly Impossible**\
+`An architect and his client overcame a steep site and regulatory hurdles to build a 730-square-foot house that hovers over the water in Sonoma County, Calif.`\
+https://www.nytimes.com/2026/07/22/realestate/even-the-architects-said-the-build-would-be-nearly-impossible.html
+
+**‘White Nights’: A Loner’s All-Consuming Crush**\
+`Immaculately realized and restored, Luchino Visconti’s adaptation of Dostoyevsky’s short story about a chance encounter on a bridge arrives at Film Forum.`\
+https://www.nytimes.com/2026/07/22/movies/white-nights-film-forum.html
+
+**For Bats, New York’s a Wonderful Town**\
+`It looks as though the bat population is rising in the city, where the creatures have bounced back after a disease lessened their ranks some years back.`\
+https://www.nytimes.com/2026/07/22/nyregion/for-bats-new-yorks-a-wonderful-town.html
+
+**At a Utah Campus, an Emotional Odyssey After Charlie Kirk’s Death**\
+`Since Mr. Kirk was gunned down at Utah Valley University, the school and its students have struggled to find a way forward.`\
+https://www.nytimes.com/2026/07/22/us/charlie-kirk-utah-valley-university.html
+
+**Marlboro Music: Where Artists Have Time to Chase Perfection**\
+`The Marlboro Music Festival, now in its 75th summer, allows artists to practice for however long they’d like, with no pressure to perform.`\
+https://www.nytimes.com/2026/07/22/arts/music/marlboro-music-festival-75.html
+
+**Pick Your Favorite $2.5 Million Home**\
+`This week’s properties are in Santa Fe, N.M., New Gloucester, Maine, and Lake Forest, Ill.`\
+https://www.nytimes.com/2026/07/22/realestate/pick-your-favorite-2-5-million-homes-in-santa-fe-new-gloucester-lake-forest.html
+
+**‘Fast Charlie,’ ‘Lucky Grandma’ and More Streaming Gems**\
+`Skip the endless scrolling with these seven overlooked movie recommendations.`\
+https://www.nytimes.com/2026/07/22/movies/fast-charlie-lucky-grandma-and-more-streaming-gems.html
+
+**Laredo’s Future Rides on Trump’s Next Trade Move**\
+`The economy of Laredo, Texas, has boomed under the president’s global tariffs. Now, his demands may threaten its success.`\
+https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-laredo-trade-mexico.html
+
+**He’s the Last Great Land Artist You’ve Never Heard of**\
+`Charles Ross spent 50 years building  “Star Axis,” a naked-eye observatory in New Mexico. Now his masterwork is ready. How to share it with a changed world?`\
+https://www.nytimes.com/2026/07/22/arts/design/hes-the-last-great-land-artist-youve-never-heard-of.html
+
+**A Hiker Confronts His Fear of Heights at Ausable Chasm in Upstate N.Y.**\
+`A jittery hiker signed up for a via ferrata tour on the cliffs of an Adirondacks gorge. Here’s what he learned on the ledges, rungs and exposed bridges.`\
+https://www.nytimes.com/2026/07/22/travel/hiking-acrophobic-ausable-chasm-adirondacks.html
+
+**See Which 52 Places to Go We’ve Already Visited From Warsaw to Bangkok**\
+`Now halfway through the year, we’ve made it to 11 of our picks, uncovering lesser-known spots where the American Revolution was fought, all-night parties in Poland and more.`\
+https://www.nytimes.com/2026/07/22/travel/vacation-destinations-warsaw-bangkok-barcelona.html
+
 **Six Years After a Reckoning, Criterion Puts ‘Cinematic Blackness’ in Focus**\
 `Adding a curator, the Criterion Collection expanded its offerings and its vision of Black film. But auteurs continue to push the company on what inclusion means.`\
 https://www.nytimes.com/2026/07/22/arts/six-years-after-a-reckoning-criterion-puts-cinematic-blackness-in-focus.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/07/22/pageoneplus/quote-of-the-day-lillian-roberts-
 ****\
 `Mayor Zohran Mamdani, in an interview published Saturday, described what he would do when Prime Minister Benjamin Netanyahu comes to New York City for the United Nations General Assembly.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011045753/21vid-met-mamdani-netanyahu-theintv-46801.html
-
-**Election Denier Wins G.O.P. Nomination to Be Arizona’s Top Election Official**\
-`State Representative Alexander Kolodin will take on Adrian Fontes, the incumbent Democratic secretary of state, after defeating a more moderate Republican in the primary.`\
-https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-secretary-of-state-alexander-kolodin-wins.html
-
-**Trump Pick Wins G.O.P. Nomination to Challenge Arizona Governor**\
-`Representative Andy Biggs, a conservative Republican and an ally of the president, will try to unite Republicans against Gov. Katie Hobbs in a crucial swing state.`\
-https://www.nytimes.com/2026/07/21/us/elections/arizona-governor-andy-biggs-republican-primary.html
-
-**Saudis Reach Deal With U.S. That Could Let Them Enrich Nuclear Fuel**\
-`U.S. lawmakers and Israeli officials have expressed opposition to such a plan, to be announced Wednesday, fearing that the kingdom could use a civilian nuclear project to develop nuclear weapons.`\
-https://www.nytimes.com/2026/07/21/us/politics/trump-saudi-nuclear-deal.html
-
-**House Narrowly Passes Stopgap Spending Bill, but Shutdown Fight Looms**\
-`Republicans managed to push through legislation to fund the government through Dec. 4. But with Democrats opposed, the stage is set for a broader battle.`\
-https://www.nytimes.com/2026/07/21/us/politics/house-stopgap-spending-bill-shutdown.html
-
-**NYT Crossword Answers for July 23, 2026**\
-`Damon Gulczynski puzzles over the mysteries of the universe.`\
-https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-23.html
-
-**NYT Crossword Answers for July 22, 2026**\
-`Rebecca Goldstein rigs up a clever crossword.`\
-https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-22.html
-
-**Mamdani Calls Netanyahu a ‘War Criminal’ and Calls on U.S. to Arrest Him**\
-`Mayor Zohran Mamdani challenged the United States to execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, which New York itself cannot do.`\
-https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
-
-**Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
-`One firefighter was injured as a fire spread quickly across dry hillsides in Northern California, forcing some residents to evacuate.`\
-https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
-
-**Trump Plans to Impose Tariffs on Generic Drugs**\
-`The administration has repeatedly said it will impose steep pharmaceutical tariffs but has not followed through on them.`\
-https://www.nytimes.com/2026/07/21/business/trump-tariffs-generic-drugs.html
-
-**Zelensky Fires Ukraine’s Top General After Days of Protests**\
-`President Volodymyr Zelensky of Ukraine dismissed Gen. Oleksandr Syrskyi after supporters of the ousted defense minister, Mykhailo Fedorov, took to the streets to call for the general’s ousting.`\
-https://www.nytimes.com/video/world/europe/100000011045087/zelensky-fires-ukraines-top-general-after-days-of-protests.html
-
-**Inquiry Into James Dolan’s Use of Facial Recognition Ends in Modest Fines**\
-`The New York State Liquor Authority withdrew charges that tied facial recognition systems at James Dolan’s MSG Entertainment to exclusionary practices and issued $30,000 in fines for an unrelated offense.`\
-https://www.nytimes.com/2026/07/21/nyregion/msg-dolan-fine-liquor-authority.html
-
-**Trump Lifts Ban on Direct Flights to Lebanon**\
-`The prohibition had been in place since 1985, when it was imposed in response to Hezbollah’s hijacking of TWA Flight 847.`\
-https://www.nytimes.com/2026/07/21/us/politics/trump-lebanon-flights-ban.html
-
-**Tornadoes Are Reported in Kentucky as Storms Sweep Across U.S.**\
-`Storms set off tornado warnings all the way to New York on Tuesday. Forecasters also warned of flash flooding.`\
-https://www.nytimes.com/2026/07/21/weather/kentucky-tornado-wind-storm.html
-
-**Whitney Cummings’s Trump Joke at Kennedy Center Is Cut From Netflix Special**\
-`At the Mark Twain Prize ceremony, the comedian Whitney Cummings made a joke about the president that seemed to refer to Jeffrey Epstein.`\
-https://www.nytimes.com/2026/07/21/arts/television/whitney-cummings-trump-joke-kennedy-center.html
-
-**With His Latest Threats, Trump Signals to Iran That He Is Willing to Escalate**\
-`President Trump is facing a critical moment in the war, which has failed to bring about the “unconditional surrender” he once demanded.`\
-https://www.nytimes.com/2026/07/21/us/politics/trump-iran-threats.html
-
-**Hegseth Estimates Cost of Iran War Has Reached $37.5 Billion**\
-`Defense Secretary Pete Hegseth appeared before the Senate Appropriations Committee Tuesday to request an additional $70 billion to fund the war and replenish weapons stockpiles.`\
-https://www.nytimes.com/video/us/politics/100000011045230/hegseth-hearing-iran-war-cost.html
-
-**Mykhailo Drapatyi: What to Know About Ukraine’s New Top General**\
-`Maj. Gen. Mykhailo Drapatyi, a decorated commander, is popular both inside and outside of his country.`\
-https://www.nytimes.com/2026/07/21/world/europe/ukraine-mykhailo-drapatyi.html
-
-**Cyclospora Cases in the U.S. Hit Record High**\
-`Federal health officials have confirmed another 2,500 cases of the parasitic infection.`\
-https://www.nytimes.com/2026/07/21/well/cyclospora-cases-record-cdc.html
-
-**Jury Deadlocks on Murder Charges Against 2 Men in California Mass Shooting**\
-`The defendants were convicted of weapons charges in connection with the 2022 shootout in Sacramento, which left six people dead and 13 others injured outside a downtown arena.`\
-https://www.nytimes.com/2026/07/21/us/sacramento-mass-shooting-trial-verdict.html
-
-**Former Conductor to Plead Guilty in Child Sex Abuse Imagery Case**\
-`Julian Wachner, the former music director at Trinity Church in New York, faces up to 10 years in prison after reaching a plea deal.`\
-https://www.nytimes.com/2026/07/21/arts/music/wachner-plea-deal-child-sex-abuse-imagery-trinity-church.html
-
-**Salmon With Anchovy-Garlic Butter**\
-`In this recipe from Cooking’s Melissa Clark, linked below, minced anchovies and garlic add a complex salinity to seared salmon, enriching and deepening its flavor.`\
-https://www.nytimes.com/video/dining/100000011044726/salmon-with-anchovy-garlic-butter.html
 
