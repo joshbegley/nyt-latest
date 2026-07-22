@@ -1,3 +1,15 @@
+**Coveted U.S. Nuclear Deal is a Coup for Saudi Crown Prince**\
+`Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
+
+**Conoce a Jimothy, el mapache que se apodera de Instagram**\
+`Un mapache de Seattle con una afección en la columna ha pasado de ser una leyenda local a una celebridad internacional luego de que varios videos en los que aparece circularan en las redes sociales.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/jimothy-mapache-instagram.html
+
+**A.I. Is Lifting Markets and the Economy and Raising Risks for Both**\
+`Investment in artificial intelligence and related companies is lifting the stock market and spending across the economy.`\
+https://www.nytimes.com/2026/07/22/business/economy/stocks-economy-ai.html
+
 **The Enduring Popularity of ‘The Surrendered Wife’**\
 `The best-selling author Laura Doyle believes women can be too controlling. Many women — of all types — credit her with saving their marriages.`\
 https://www.nytimes.com/2026/07/22/us/laura-doyle-surrendered-wife.html

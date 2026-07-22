@@ -1,3 +1,7 @@
+**El beso de la muerte de Trump**\
+`El presidente también es un inepto.`\
+https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html
+
 **Coveted U.S. Nuclear Deal is a Coup for Saudi Crown Prince**\
 `Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.ht
 `After leading the Dia Art Foundation for over a decade, Jessica Morgan is returning to London to run Tate at a challenging time for the renowned group of art museums.`\
 https://www.nytimes.com/2026/07/22/arts/design/tate-museums-jessica-morgan-director.html
 
-**Expected U.S.-Saudi Nuclear Deal Fuels Israeli Concerns of Regional Arms Race**\
-`An Israeli minister sought to downplay the deal, but critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
+**U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race**\
+`An Israeli minister sought to downplay the expected deal, but critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
 
 **Dirty Lettuce**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/arts/music/kenneth-blume-kenny-beats-geese.ht
 **Word of the Day: fatuous**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/22/learning/word-of-the-day-fatuous.html
-
-**8 Books to Help You Navigate Divorce**\
-`Whether you’re contemplating a split, or in the process of one, these books can help.`\
-https://www.nytimes.com/2026/07/22/well/8-books-to-help-you-navigate-divorce.html
 

@@ -1,3 +1,15 @@
+**Coveted U.S. Nuclear Deal is a Coup for Saudi Crown Prince**\
+`Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
+
+**Conoce a Jimothy, el mapache que se apodera de Instagram**\
+`Un mapache de Seattle con una afección en la columna ha pasado de ser una leyenda local a una celebridad internacional luego de que varios videos en los que aparece circularan en las redes sociales.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/jimothy-mapache-instagram.html
+
+**A.I. Is Lifting Markets and the Economy and Raising Risks for Both**\
+`Investment in artificial intelligence and related companies is lifting the stock market and spending across the economy.`\
+https://www.nytimes.com/2026/07/22/business/economy/stocks-economy-ai.html
+
 **OpenAI Sued Over ChatGPT’s ‘Dangerous’ Health Advice**\
 `The case appears to be the first to argue that a chatbot’s advice harmed someone seeking guidance about a medical condition.`\
 https://www.nytimes.com/2026/07/22/well/openai-chatgpt-health-lawsuit.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/22/learning/word-of-the-day-fatuous.html
 **8 Books to Help You Navigate Divorce**\
 `Whether you’re contemplating a split, or in the process of one, these books can help.`\
 https://www.nytimes.com/2026/07/22/well/8-books-to-help-you-navigate-divorce.html
-
-**This French Ballet Star Wants You to Know He Really Cares**\
-`Hugo Marchand, an étoile at Paris Opera Ballet, brings his intensity and some high-wattage friends to New York City Center’s Artists at the Center.`\
-https://www.nytimes.com/2026/07/22/arts/dance/hugo-marchand-paris-opera-ballet-new-york-city-center.html
-
-**Book Review: ‘Dad, Love, Me: A Memoir,’ by Matthew Quick**\
-`Matthew Quick’s memoir takes the form of a letter to his father as dementia slowly dismantles the man who once terrified him.`\
-https://www.nytimes.com/2026/07/22/books/review/dad-love-me-matthew-quick.html
-
-**Improv Classes Are Helping N.H.L. and M.L.B. Teams to Train Their Rookies**\
-`Second City, the Chicago comedy institution, is working with sports teams to help media-train their rookies.`\
-https://www.nytimes.com/2026/07/22/style/second-city-improv-athletes-nhl.html
 
