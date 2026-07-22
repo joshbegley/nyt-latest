@@ -1,3 +1,7 @@
+****\
+`Mayor Zohran Mamdani, in an interview published Saturday, described what he would do when Prime Minister Benjamin Netanyahu comes to New York City for the United Nations General Assembly.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011045753/21vid-met-mamdani-netanyahu-theintv-46801.html
+
 **Election Denier Wins G.O.P. Nomination to Be Arizona’s Top Election Official**\
 `State Representative Alexander Kolodin will take on Adrian Fontes, the incumbent Democratic secretary of state, after defeating a more moderate Republican in the primary.`\
 https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-secretary-of-state-alexander-kolodin-wins.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-secretary-of-sta
 `Representative Andy Biggs, a conservative Republican and an ally of the president, will try to unite Republicans against Gov. Katie Hobbs in a crucial swing state.`\
 https://www.nytimes.com/2026/07/21/us/elections/arizona-governor-andy-biggs-republican-primary.html
 
-**Trump Administration Is Said to Reach Broad Nuclear Deal With Saudis**\
-`Some U.S. lawmakers from both parties and Israeli officials have expressed opposition to such a plan, fearing that the kingdom could use a civilian nuclear project to eventually develop nuclear weapons.`\
+**Saudis Reach Deal With U.S. That Could Let Them Enrich Nuclear Fuel**\
+`U.S. lawmakers and Israeli officials have expressed opposition to such a plan, to be announced Wednesday, fearing that the kingdom could use a civilian nuclear project to develop nuclear weapons.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-saudi-nuclear-deal.html
 
 **House Narrowly Passes Stopgap Spending Bill, but Shutdown Fight Looms**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chie
 **Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\
 `The quick-fix fantasies of the world’s strongmen.`\
 https://www.nytimes.com/2026/07/21/opinion/trump-netanyahu-putin-war.html
-
-**Plas Johnson, Saxophonist Behind ‘The Pink Panther,’ Dies at 94**\
-`His recording for the theme song, written by Henry Mancini, included a solo improvised in the studio. He also backed Frank Sinatra and Barbra Streisand.`\
-https://www.nytimes.com/2026/07/21/arts/music/plas-johnson-dead.html
 
