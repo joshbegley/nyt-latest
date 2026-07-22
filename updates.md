@@ -1,3 +1,15 @@
+**They Wrote a Picture Book to Encourage Bipartisanship**\
+`Ellie Gottheimer and Larra Mullin, who met when their fathers were in Congress, make a case for bipartisanship in a picture book about dogs working together.`\
+https://www.nytimes.com/2026/07/22/books/ellie-gottheimer-larra-mullin-childrens-book.html
+
+**I’m Disabled. My Sex Life is Amazing.**\
+`The filmmaker and actor Kyla Harris talks about how an occupational therapist helped her find a way to use a sex toy with a partner. “As a disabled person, the thing that I rely on most is creativity,” she told Anna Martin, host of the “Modern Love” podcast.`\
+https://www.nytimes.com/video/podcasts/100000011047383/kyla-harris-disability-sex.html
+
+**Three Airports Plan to Ditch T.S.A. Amid Push for Private Security**\
+`The airports have opted in to the agency’s new security model, an agency spokesperson confirmed on Wednesday. A union official said the move could jeopardize public safety.`\
+https://www.nytimes.com/2026/07/22/travel/tsa-privatization-push.html
+
 **House Adopts $95 Billion G.O.P. Budget for Iran War**\
 `Republican leaders muscled through resistance in their own ranks to approve the budget blueprint, but its prospects were far dimmer in the Senate.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html
