@@ -2,9 +2,9 @@
 `A reader responds to a guest essay about Latino Americans in crisis. Also: Dogs on summer vacation; chatting while waiting in line; the joy of dressing up.`\
 https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
 
-**The U.S. Has Rules for Nuclear Deals With Other Countries. Here’s How They Work.**\
+**How the Trump Administration’s Nuclear Deal With Saudi Arabia May Work**\
 `The Trump administration is expected to announce an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
-https://www.nytimes.com/2026/07/22/world/middleeast/the-us-has-rules-for-nuclear-deals-with-other-countries-heres-how-they-work.html
+https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal-123-agreement.html
 
 **‘Help Never Came.’ Canadian Wildfire Evacuees Want to Know Why.**\
 `Residents of northwestern Ontario say their warnings about fires they spotted were dismissed and official information as the flames spread often didn’t come at all.`\

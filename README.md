@@ -1,3 +1,11 @@
+**House Republicans Have Tied the Defense Policy Bill to Trump’s SAVE Act**\
+`House Republicans have tied their entire legislative agenda to President Trump’s voting restriction measure, as he has demanded.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-voter-id.html
+
+**25 Intriguing Photos to Make Students Think**\
+`A new slide show of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
+https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
+
 **A Latino American Public Health Emergency**\
 `A reader responds to a guest essay about Latino Americans in crisis. Also: Dogs on summer vacation; chatting while waiting in line; the joy of dressing up.`\
 https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
 `The Trump administration is expected to announce an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal-123-agreement.html
 
-**‘Help Never Came.’ Canadian Wildfire Evacuees Want to Know Why.**\
+**Canadian Wildfire Evacuees Outraged Over Lacking Support and Communication**\
 `Residents of northwestern Ontario say their warnings about fires they spotted were dismissed and official information as the flames spread often didn’t come at all.`\
 https://www.nytimes.com/2026/07/22/world/canada/ontario-wildfires-canada-smoke.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclos
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
-
-**Trump’s New Insult Won’t Save Republicans**\
-`The president’s attempt to drum up a third red scare is certain to fail.`\
-https://www.nytimes.com/2026/07/22/opinion/trump-red-scare-midterms.html
-
-**Interpretó a una estrella del fútbol en ‘Ted Lasso’. Ahora está de vuelta en la cancha**\
-`Cristo Fernández fue futbolista antes que actor. Tras alcanzar el estrellato en la televisión, hace un improbable regreso a su primera carrera.`\
-https://www.nytimes.com/es/2026/07/22/espanol/cultura/ted-lasso-cristo-fernandez-futbol.html
 
