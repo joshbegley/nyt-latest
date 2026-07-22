@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 23, 2026**\
+`Damon Gulczynski puzzles over the mysteries of the universe.`\
+https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-23.html
+
+**NYT Crossword Answers for July 22, 2026**\
+`Rebecca Goldstein rigs up a clever crossword.`\
+https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-22.html
+
 **Mamdani Says Netanyahu Is a ‘War Criminal’ but New York Can’t Arrest Him**\
 `Mayor Zohran Mamdani, in a video address, challenged the U.S. government to execute an international arrest warrant against the Israeli prime minister.`\
 https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html

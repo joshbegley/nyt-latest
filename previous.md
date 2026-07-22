@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 23, 2026**\
+`Damon Gulczynski puzzles over the mysteries of the universe.`\
+https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-23.html
+
+**NYT Crossword Answers for July 22, 2026**\
+`Rebecca Goldstein rigs up a clever crossword.`\
+https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-22.html
+
 **Mamdani Says Netanyahu Is a ‘War Criminal’ but New York Can’t Arrest Him**\
 `Mayor Zohran Mamdani, in a video address, challenged the U.S. government to execute an international arrest warrant against the Israeli prime minister.`\
 https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/21/arts/design/trump-republicans-smithsonian-ame
 **Roger Rogoff Files Suit Challenging Trump’s Power to Fire Him**\
 `In the first lawsuit of its kind, Roger Rogoff argues that the Trump administration cannot fire him as U.S. attorney without first winning Senate approval for another candidate.`\
 https://www.nytimes.com/2026/07/21/us/roger-rogoff-doj-lawsuit.html
-
-**Trump Pushes Chinese Election Threat, but Files Show Russia’s Heavy Hand**\
-`Intelligence documents that the White House released to back up President Trump’s claims about China highlight Russian efforts to influence U.S. elections.`\
-https://www.nytimes.com/2026/07/21/us/politics/trump-china-russia-election.html
-
-**Drenaje linfático para el rostro: ¿qué beneficios tiene?**\
-`La técnica se ha utilizado para aumentar la circulación y, en algunos casos, reducir la acumulación de líquidos. Es menos claro si tensa e ilumina tu piel.`\
-https://www.nytimes.com/es/2026/07/21/espanol/masaje-drenaje-linfatico-piel-rostro.html
 
