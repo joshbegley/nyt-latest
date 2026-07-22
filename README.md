@@ -1,3 +1,19 @@
+**Deep in This Lake, a Contagious Cancer Is Spreading**\
+`Transmissible tumors have been reported in a handful of animal species, but never before among fish. Is it possible in humans?`\
+https://www.nytimes.com/2026/07/22/science/contagious-cancer-catfish.html
+
+**Rubio and Chinese Diplomat Make Plans for Trump and Xi’s Washington Summit**\
+`Secretary of State Marco Rubio spent much of a meeting with China’s foreign minister discussing the summit, but did not bring up President Trump’s claims of election interference by China.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-xi-rubio-manila-china.html
+
+**Today, In Short**\
+`Jimothy. Charlie Kirk. And botanical gardens.`\
+https://www.nytimes.com/2026/07/22/briefing/today-in-short.html
+
+**How Our Reporters Linked Big Vehicles to Pedestrian Deaths**\
+`A New York Times investigation found that the large trucks and S.U.V.s on American roads today are far more lethal than their predecessors.`\
+https://www.nytimes.com/2026/07/22/insider/truck-suv-crash-investigation.html
+
 **Shooting Ranges Go Quiet Luxury**\
 `Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
 https://www.nytimes.com/2026/07/22/style/gun-club-the-range-los-angeles.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/22/movies/fast-charlie-lucky-grandma-and-more-st
 **Laredo’s Future Rides on Trump’s Next Trade Move**\
 `The economy of Laredo, Texas, has boomed under the president’s global tariffs. Now, his demands may threaten its success.`\
 https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-laredo-trade-mexico.html
-
-**He’s the Last Great Land Artist You’ve Never Heard Of**\
-`Charles Ross spent 50 years building “Star Axis,” a naked-eye observatory in New Mexico. Now his masterwork is ready. How to share it with a changed world?`\
-https://www.nytimes.com/2026/07/22/arts/design/charles-ross-star-axis-land-art.html
-
-**A Hiker Confronts His Fear of Heights at Ausable Chasm in Upstate N.Y.**\
-`A jittery hiker signed up for a via ferrata tour on the cliffs of an Adirondacks gorge. Here’s what he learned on the ledges, rungs and exposed bridges.`\
-https://www.nytimes.com/2026/07/22/travel/hiking-acrophobic-ausable-chasm-adirondacks.html
-
-**See Which 52 Places to Go We’ve Already Visited From Warsaw to Bangkok**\
-`Now halfway through the year, we’ve made it to 11 of our picks, uncovering lesser-known spots where the American Revolution was fought, all-night parties in Poland and more.`\
-https://www.nytimes.com/2026/07/22/travel/vacation-destinations-warsaw-bangkok-barcelona.html
-
-**Six Years After a Reckoning, Criterion Puts ‘Cinematic Blackness’ in Focus**\
-`Adding a curator, the Criterion Collection expanded its offerings and its vision of Black film. But auteurs continue to push the company on what inclusion means.`\
-https://www.nytimes.com/2026/07/22/arts/criterion-collection-black-film.html
 
