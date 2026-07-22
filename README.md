@@ -1,4 +1,8 @@
-**U.S. Signs Deal That Could Help Saudis Enrich Nuclear Fuel**\
+**El juicio de Nicolás Maduro comenzaría en junio de 2027**\
+`Maduro y Cilia Flores, su esposa, fueron capturados por el ejército estadounidense en enero y desde entonces han estado recluidos en una cárcel de Brooklyn. Se han declarado no culpables de los cargos en su contra.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/nicolas-maduro-juicio-fechas.html
+
+**U.S. Signs Deal to Help Saudis Obtain Nuclear Power**\
 `The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
 https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/22/us/james-woolsey-dead.html
 **House Republicans Have Tied the Defense Policy Bill to Trump’s SAVE Act**\
 `House Republicans have tied their entire legislative agenda to President Trump’s voting restriction measure, as he has demanded.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-voter-id.html
-
-**25 Intriguing Photos to Make Students Think**\
-`A new collection of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
-https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
