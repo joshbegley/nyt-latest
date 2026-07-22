@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/07/22/us/james-woolsey-dead.html
 https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-voter-id.html
 
 **25 Intriguing Photos to Make Students Think**\
-`A new slide show of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
+`A new collection of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
 https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
 
 **A Latino American Public Health Emergency**\

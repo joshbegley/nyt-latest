@@ -1,3 +1,11 @@
+**Map: 3.6-Magnitude Earthquake Shakes Western Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/22/us/earthquake-tracker-nevada.html
+
+**Tiny Love Stories: ‘A Full, Hiccuping Meltdown Over Nothing’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/22/style/tiny-modern-love-stories-a-full-hiccuping-meltdown-over-nothing.html
+
 **Why Are Young People in India Protesting?**\
 `A youth-led movement angry over the education system and a lack of jobs is posing a rare challenge to a government that has ruled for more than a decade with a firm hand.`\
 https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html
