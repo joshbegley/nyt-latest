@@ -1,3 +1,7 @@
+**Trump Administration Plans to Stick With Tariffs, Trade Representative Says**\
+`Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
+https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
+
 **Deep in This Lake, a Contagious Cancer Is Spreading**\
 `Transmissible tumors have been reported in a handful of animal species, but never before among fish. Is it possible in humans?`\
 https://www.nytimes.com/2026/07/22/science/contagious-cancer-catfish.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/realestate/pick-your-favorite-2-5-million-hom
 **‘Fast Charlie,’ ‘Lucky Grandma’ and More Streaming Gems**\
 `Skip the endless scrolling with these seven overlooked movie recommendations.`\
 https://www.nytimes.com/2026/07/22/movies/fast-charlie-lucky-grandma-and-more-streaming-gems.html
-
-**Laredo’s Future Rides on Trump’s Next Trade Move**\
-`The economy of Laredo, Texas, has boomed under the president’s global tariffs. Now, his demands may threaten its success.`\
-https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-laredo-trade-mexico.html
 
