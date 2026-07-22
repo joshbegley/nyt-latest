@@ -1,3 +1,7 @@
+**My (Crazy, Heartbreaking, Glorious) World Cup Adventure**\
+`Soccer is perfect for screens. But being there in person showed me a side of the sport — and of my fellow human beings — that I’ll never forget.`\
+https://www.nytimes.com/2026/07/22/magazine/world-cup-recap.html
+
 **Louvre Museum Reopens Gallery After Brazen Robbery**\
 `The Louvre Museum’s Apollo Gallery was reopened to visitors for the first time on Wednesday since a brazen robbery last year.`\
 https://www.nytimes.com/video/world/europe/100000011047123/france-louvre-reopening-jewels.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/22/science/contagious-cancer-catfish.html
 **Rubio and Chinese Diplomat Make Plans for Trump and Xi’s Washington Summit**\
 `Secretary of State Marco Rubio spent much of a meeting with China’s foreign minister discussing the summit, but did not bring up President Trump’s claims of election interference by China.`\
 https://www.nytimes.com/2026/07/22/us/politics/trump-xi-rubio-manila-china.html
-
-**Today, In Short**\
-`Jimothy. Charlie Kirk. And botanical gardens.`\
-https://www.nytimes.com/2026/07/22/briefing/today-in-short.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\

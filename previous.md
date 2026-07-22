@@ -190,11 +190,7 @@ https://www.nytimes.com/2026/07/22/us/politics/trump-xi-rubio-manila-china.html
 `Jimothy. Charlie Kirk. And botanical gardens.`\
 https://www.nytimes.com/2026/07/22/briefing/today-in-short.html
 
-**How Our Reporters Linked Big Vehicles to Pedestrian Deaths**\
-`A New York Times investigation found that the large trucks and S.U.V.s on American roads today are far more lethal than their predecessors.`\
-https://www.nytimes.com/2026/07/22/insider/truck-suv-crash-investigation.html
-
-**Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
-`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz.`\
+**Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
+`President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
 

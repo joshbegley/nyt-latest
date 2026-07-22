@@ -1,3 +1,7 @@
+**Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
+`President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
+https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
+
 **Louvre Museum Reopens Gallery After Brazen Robbery**\
 `The Louvre Museum’s Apollo Gallery was reopened to visitors for the first time on Wednesday since a brazen robbery last year.`\
 https://www.nytimes.com/video/world/europe/100000011047123/france-louvre-reopening-jewels.html
