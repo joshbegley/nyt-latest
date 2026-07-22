@@ -1,3 +1,11 @@
+**Dubai Cuts Deal For New Port to Bypass Strait of Hormuz**\
+`A Dubai-based logistics giant unveiled a deal with the United Arab Emirates on Wednesday to develop a new port system that would bypass the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/22/world/dubai-cuts-deal-for-new-port-to-bypass-strait-of-hormuz.html
+
+**Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
+`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz.`\
+https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
+
 **Nothing Can Prevent the New Wildfires. We Have to Adapt.**\
 `Suppression is not enough.`\
 https://www.nytimes.com/2026/07/22/opinion/climate-wildfires-smoke-adaptation.html
