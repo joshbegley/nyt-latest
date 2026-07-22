@@ -1,3 +1,7 @@
+**U.S. Signs Deal That Could Let Saudis Enrich Nuclear Fuel**\
+`The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
+https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
+
 **El nuevo póster de ‘La La Land’ corrige la mano de Ryan Gosling**\
 `Durante una escena de baile, la mano de Gosling no coincidía con la de Emma Stone, un detalle que lo persiguió durante años después del estreno.`\
 https://www.nytimes.com/es/2026/07/22/espanol/cultura/poster-la-la-land-mano-ryan-gosling.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-vote
 **25 Intriguing Photos to Make Students Think**\
 `A new collection of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
 https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
-
-**A Latino American Public Health Emergency**\
-`A reader responds to a guest essay about Latino Americans in crisis. Also: Dogs on summer vacation; chatting while waiting in line; the joy of dressing up.`\
-https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
