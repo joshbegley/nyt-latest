@@ -1,3 +1,11 @@
+**Model Scout Who Connected Women to Epstein Is Found Dead in France**\
+`Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
+https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
+
+**Six Years After a Reckoning, Criterion Puts ‘Cinematic Blackness’ in Focus**\
+`Adding a curator, the Criterion Collection expanded its offerings and its vision of Black film. But auteurs continue to push the company on what inclusion means.`\
+https://www.nytimes.com/2026/07/22/arts/criterion-collection-black-film.html
+
 **El beso de la muerte de Trump**\
 `El presidente también es un inepto.`\
 https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html

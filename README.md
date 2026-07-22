@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-s
 `El presidente también es un inepto.`\
 https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html
 
-**Coveted U.S. Nuclear Deal is a Coup for Saudi Crown Prince**\
+**Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince**\
 `Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
 
