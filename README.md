@@ -1,3 +1,11 @@
+**A Latino American Public Health Emergency**\
+`A reader responds to a guest essay about Latino Americans in crisis. Also: Dogs on summer vacation; chatting while waiting in line; the joy of dressing up.`\
+https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
+
+**The U.S. Has Rules for Nuclear Deals With Other Countries. Here’s How They Work.**\
+`The Trump administration is expected to announce an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/the-us-has-rules-for-nuclear-deals-with-other-countries-heres-how-they-work.html
+
 **‘Help Never Came.’ Canadian Wildfire Evacuees Want to Know Why.**\
 `Residents of northwestern Ontario say their warnings about fires they spotted were dismissed and official information as the flames spread often didn’t come at all.`\
 https://www.nytimes.com/2026/07/22/world/canada/ontario-wildfires-canada-smoke.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/22/opinion/trump-red-scare-midterms.html
 **Interpretó a una estrella del fútbol en ‘Ted Lasso’. Ahora está de vuelta en la cancha**\
 `Cristo Fernández fue futbolista antes que actor. Tras alcanzar el estrellato en la televisión, hace un improbable regreso a su primera carrera.`\
 https://www.nytimes.com/es/2026/07/22/espanol/cultura/ted-lasso-cristo-fernandez-futbol.html
-
-**‘The Five-Star Weekend’ Makes Middle Age Look Magical**\
-`Lately, the media loves to humiliate women in their 40s and 50s; this show reveres them.`\
-https://www.nytimes.com/2026/07/22/opinion/five-star-weekend-women-aging.html
-
-**See How Houthis Put the Red Sea at Risk as an Alternative Oil Route**\
-`Saudi Arabia has diverted huge amounts of oil to the Red Sea since the Iran war began, but now the Iranian-backed Houthi militants say that they intend to block that route.`\
-https://www.nytimes.com/2026/07/22/business/energy-environment/red-sea-saudi-arabia-houthis.html
 
