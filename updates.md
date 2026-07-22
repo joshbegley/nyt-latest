@@ -1,3 +1,7 @@
+**Mamdani Knew He Couldn’t Arrest Netanyahu. But He Could Denounce Him.**\
+`In a video message, the mayor of New York City said he could not legally arrest Israel’s prime minister but reinforced his position as a voice of the international left.`\
+https://www.nytimes.com/2026/07/22/nyregion/mamdani-netanyahu-speech.html
+
 **‘Charlie Kirk Memorial Highway’ Signs Face Backlash From Vietnam Veterans**\
 `The signs appeared last month on a stretch of Tennessee State Route 386 north of Nashville that was designated Vietnam Veterans Boulevard nearly four decades ago.`\
 https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html

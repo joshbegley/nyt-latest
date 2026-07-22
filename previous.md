@@ -1,3 +1,7 @@
+**Mamdani Knew He Couldn’t Arrest Netanyahu. But He Could Denounce Him.**\
+`In a video message, the mayor of New York City said he could not legally arrest Israel’s prime minister but reinforced his position as a voice of the international left.`\
+https://www.nytimes.com/2026/07/22/nyregion/mamdani-netanyahu-speech.html
+
 **‘Charlie Kirk Memorial Highway’ Signs Face Backlash From Vietnam Veterans**\
 `The signs appeared last month on a stretch of Tennessee State Route 386 north of Nashville that was designated Vietnam Veterans Boulevard nearly four decades ago.`\
 https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/22/world/europe/hitler-birthplace-austria-police
 **What to Know About the Death of Nolan Wells in Mississippi**\
 `Nearly three weeks after the 18-year-old was found dead off an island near the Mississippi coast, there have been no conclusive answers as to what happened.`\
 https://www.nytimes.com/2026/07/22/us/nolan-wells-death-mississippi-horn-island-autopsy.html
-
-**Los saudíes llegan a un acuerdo con EE. UU. que podría permitirles enriquecer su combustible nuclear**\
-`Legisladores estadounidenses y funcionarios israelíes se oponen a dicho plan, que se anunciará el miércoles, por temor a que el reino pueda desarrollar armas nucleares.`\
-https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-arabia-saudita-acuerdo-nuclear.html
 
