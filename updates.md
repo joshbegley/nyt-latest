@@ -1,3 +1,19 @@
+**Gen Z-ers Are Ditching Sex. They Might Be On to Something.**\
+`Is celibacy cool now?`\
+https://www.nytimes.com/2026/07/22/opinion/gen-z-sex-celibacy-relationships.html
+
+**Gen Z-ers Are Ditching Sex. They Might Be On to Something.**\
+`Is celibacy cool now?`\
+https://www.nytimes.com/video/opinion/100000011035163/gen-z-ers-are-ditching-sex-they-might-be-on-to-something.html
+
+**Israeli Banks Threaten to Cut Off Palestinian Economy**\
+`Two Israeli financial firms have long served as partners to Palestinian banks, handling transactions that make possible much of West Bank imports and exports.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html
+
+**What Can a Poll Tell Us?**\
+`Everyone wants to know who’s going to win an election, but predicting the outcome isn’t a poll’s only job. The polling reporter Ruth Igielnik shares how polls are also judged on their ability to reveal the dynamics underlying a race, as well as to uncover how shifting tides and core issues shape the views of the electorate.`\
+https://www.nytimes.com/video/insider/100000010994126/what-can-a-poll-tell-us.html
+
 **25 Intriguing Photos to Make Students Think**\
 `A new collection of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
 https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
