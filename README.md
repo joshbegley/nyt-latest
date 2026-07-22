@@ -1,6 +1,62 @@
+**Six Years After a Reckoning, Criterion Puts ‘Cinematic Blackness’ in Focus**\
+`Adding a curator, the Criterion Collection expanded its offerings and its vision of Black film. But auteurs continue to push the company on what inclusion means.`\
+https://www.nytimes.com/2026/07/22/arts/six-years-after-a-reckoning-criterion-puts-cinematic-blackness-in-focus.html
+
+**A ‘Disgustingly Beautiful’ Glass-Brick Renovation Makes Its Mark**\
+`A historic building in TriBeCa stood out for its short stature. A glass-brick addition was the unconventional solution.`\
+https://www.nytimes.com/2026/07/22/realestate/tribeca-50-hudson-street-glass.html
+
+**Government Overhauls Teen Pregnancy Program to Focus on Marriage and Starting Families**\
+`The administration canceled federal grants to organizations across the country, accusing them of encouraging premarital sex. New criteria say programs should stress abstinence.`\
+https://www.nytimes.com/2026/07/22/us/politics/teen-pregnancy-prevention-trump.html
+
+**Book Review: ‘Country of Lords,’ by Kim Phillips-Fein**\
+`In a new book, the historian Kim Phillips-Fein chronicles a “shadow tradition” of anti-egalitarians who fought against America’s founding ideals.`\
+https://www.nytimes.com/2026/07/22/books/review/country-of-lords-kim-phillips-fein.html
+
+**The Enduring Popularity of ‘the Surrendered Wife’**\
+`The best-selling author Laura Doyle believes women can be too controlling. Many women — of all types — credit her with saving their marriages.`\
+https://www.nytimes.com/2026/07/22/us/laura-doyle-surrendered-wife.html
+
+**Kenneth Blume Steps Out of Kenny Beats’s Shadow**\
+`The hitmaker formerly known as Kenny Beats was behind breakthrough albums for Geese, Vince Staples, Idles and Fcukers. On a new solo project, he turns his focus inward.`\
+https://www.nytimes.com/2026/07/22/arts/music/kenneth-blume-kenny-beats-geese.html
+
+**Word of the Day: fatuous**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/22/learning/word-of-the-day-fatuous.html
+
+**8 Books to Help You Navigate Divorce**\
+`Whether you’re contemplating a split, or in the process of one, these books can help.`\
+https://www.nytimes.com/2026/07/22/well/8-books-to-help-you-navigate-divorce.html
+
+**This French Ballet Star Wants You to Know He Really Cares**\
+`Hugo Marchand, an étoile at Paris Opera Ballet, brings his intensity and some high-wattage friends to New York City Center’s Artists at the Center.`\
+https://www.nytimes.com/2026/07/22/arts/dance/hugo-marchand-paris-opera-ballet-new-york-city-center.html
+
+**Book Review: ‘Dad, Love, Me: A Memoir,’ by Matthew Quick**\
+`Matthew Quick’s memoir takes the form of a letter to his father as dementia slowly dismantles the man who once terrified him.`\
+https://www.nytimes.com/2026/07/22/books/review/dad-love-me-matthew-quick.html
+
+**Improv Classes Are Helping N.H.L. and M.L.B. Teams to Train Their Rookies**\
+`Second City, the Chicago comedy institution, is working with sports teams to help media-train their rookies.`\
+https://www.nytimes.com/2026/07/22/style/second-city-improv-athletes-nhl.html
+
+**New Science Fiction About Truth and Lies in an Age of War**\
+`Three recent novels explore the use of deception by both invaders and the invaded.`\
+https://www.nytimes.com/2026/07/22/books/review/language-of-liars-antimemetics-misheard-world.html
+
+**How Donald Trump Jr.’s 1789 Capital Is Cashing In Without Apology**\
+`The fledgling firm, run by the president’s oldest son and his partner Omeed Malik, has made investments in A.I. and defense technology that have tripled in value in just months.`\
+https://www.nytimes.com/2026/07/22/business/donald-trump-jr-1789-capital.html
+
+**Germany’s Military Buyers Look to Reduce Caution and Embrace Drones**\
+`As threats from Moscow rise and support from Washington dwindles, the German military is reinventing how it researches, funds and wields 21st-century arms.`\
+https://www.nytimes.com/2026/07/22/world/europe/germany-rearmament-innovation-reinvention-arms.html
+
 **Mamdani Challenges U.S. to Execute Arrest Warrant Against Netanyahu**\
 `Mayor Zohran Mamdani said New York could not execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, but he called on the United States to do so.`\
-https://www.nytimes.com/video/us/politics/100000011045919/mamdani-challenges-us-to-execute-arrest-warrant-against-netanyahu.html
+https://www.nytimes.com/video/us/politics/100000011045919/mamdani-netanyahu-arrest-warrant.html
 
 **K-pop’s NewJeans Hints at Comeback After Monthslong Feud With Its Label**\
 `The girl group had tried to cut ties with Ador, a subsidiary of the behemoth Hybe, but a court squashed that effort.`\
@@ -141,60 +197,4 @@ https://www.nytimes.com/2026/07/21/arts/music/wachner-plea-deal-child-sex-abuse-
 **Salmon With Anchovy-Garlic Butter**\
 `In this recipe from Cooking’s Melissa Clark, linked below, minced anchovies and garlic add a complex salinity to seared salmon, enriching and deepening its flavor.`\
 https://www.nytimes.com/video/dining/100000011044726/salmon-with-anchovy-garlic-butter.html
-
-**Zelensky Removes Ukraine’s Top General**\
-`Also, the Pentagon estimates the Iran war has cost $37.5 billion. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/07/21/briefing/zelensky-removes-top-general.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011045389/21vid-hegseth-kennedy.html
-
-**Small Plane Crashes Into House Near Houston**\
-`The plane, a Piper J3C-65, struck the house in Fulshear, Texas, around 6:45 a.m. on Monday, the authorities said. Its pilot was in serious condition on Tuesday, a hospital spokesman said.`\
-https://www.nytimes.com/2026/07/21/us/texas-plane-crash-home.html
-
-**Hegseth Estimates Iran War Has Cost $37.5 Billion**\
-`Defense Secretary Pete Hegseth is requesting as much as $70 billion in emergency military spending after nearly five months of war.`\
-https://www.nytimes.com/2026/07/21/us/politics/iran-war-cost-estimate.html
-
-**OpenAI Says Its A.I. Models Went Rogue and Attacked a Digital Library**\
-`The incident, which targeted the computer systems of another company called Hugging Face, happened while OpenAI was testing the systems.`\
-https://www.nytimes.com/2026/07/21/technology/openai-attack-hugging-face.html
-
-**Mamdani’s Version of DOGE Tries to Put a New Spin on Efficiency**\
-`The mayor’s version has sought to include public input as it formulates changes to the New York City Charter aimed at streamlining the government.`\
-https://www.nytimes.com/2026/07/21/nyregion/mamdani-coge-charter-revision.html
-
-**A New Critique of Trumpism Goes Too Easy on Elites**\
-`Even under populism, elite failure is still a problem.`\
-https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
-
-**A Wartime Rift in Ukraine**\
-`President Volodymyr Zelensky fired his top general after a feud between old-school officers and younger innovators spilled into the streets.`\
-https://www.nytimes.com/2026/07/21/world/ukraine-general-fired-india-protests.html
-
-**Call the Veep, Agent Mulder!**\
-`Have the “space Jews” come to get us at last?`\
-https://www.nytimes.com/2026/07/21/opinion/jd-vance-vice-president.html
-
-**What to Know About Iran’s Pickaxe Mountain**\
-`The fortified underground complex, in central Iran, is about one mile away from the Natanz uranium enrichment facility.`\
-https://www.nytimes.com/2026/07/21/world/middleeast/pickaxe-mountain-iran-nuclear.html
-
-**What the Cyclospora Outbreak Reveals**\
-`Warming is expected to fuel the spread of food-borne pathogens. We might not be prepared.`\
-https://www.nytimes.com/2026/07/21/climate/climate-cyclospora.html
-
-**Israeli Troops Shoot Near Lebanese Army Deploying in ‘Pilot Zone’**\
-`Israeli forces fired shots near Lebanese Army troops on Tuesday as they took the first steps in a new U.S.-brokered plan to transfer control of occupied areas to Beirut.`\
-https://www.nytimes.com/video/world/middleeast/100000011044082/lebanon-israel-pilot-zone.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011045183/21vid-hegseth-lloyd-austin.html
-
-**NYC Businesses Brace for More Flooding With Severe Storms in the Forecast**\
-`Some businesses in low-lying areas of New York City have developed routines to keep their goods and customers dry.`\
-https://www.nytimes.com/2026/07/21/nyregion/nyc-flooding-storms-rain.html
 
