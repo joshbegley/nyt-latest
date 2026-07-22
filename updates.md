@@ -1,3 +1,7 @@
+**遺留之物**\
+`香港一場致命大火奪走他們摯愛的生命。數月後，他們重返宏福苑，查看火災廢墟。以下是他們從中帶回的物品。`\
+https://www.nytimes.com/zh-hant/interactive/2026/07/22/chinese/hong-kong-fire-objects-families.html
+
 **Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
 `One firefighter was injured as a fire spread quickly across dry hillsides in Northern California, forcing some residents to evacuate.`\
 https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
