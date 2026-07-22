@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/07/21/technology/openai-attack-hugging-face.html
 `The mayor’s version has sought to include public input as it formulates changes to the New York City Charter aimed at streamlining the government.`\
 https://www.nytimes.com/2026/07/21/nyregion/mamdani-coge-charter-revision.html
 
-**Even Under Populism, Elite Failure Is Still a Problem**\
-`A new critique of Trumpism is too easy on elites.`\
+**A New Critique of Trumpism Goes Too Easy on Elites**\
+`Even under populism, elite failure is still a problem.`\
 https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
 
 **A Wartime Rift in Ukraine**\

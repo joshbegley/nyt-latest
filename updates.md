@@ -1,3 +1,7 @@
+**A New Critique of Trumpism Goes Too Easy on Elites**\
+`Even under populism, elite failure is still a problem.`\
+https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
+
 **With His Latest Threats, Trump Signals to Iran That He Is Willing to Escalate**\
 `President Trump is facing a critical moment in the war, which has failed to bring about the “unconditional surrender” he once demanded.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-iran-threats.html
