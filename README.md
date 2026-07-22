@@ -1,3 +1,15 @@
+**Lawsuit Against Meta Over Social Media Addiction Is Dropped**\
+`For Meta, the move was a reprieve after it and YouTube were found guilty in another case in March of negligence and personal injury for their platforms’ addictive features.`\
+https://www.nytimes.com/2026/07/22/technology/meta-social-media-lawsuit.html
+
+**Air Pollution From Wildfire Smoke Set Records for Many, Analysis Shows**\
+`Many towns and cities recorded their highest readings of one pollutant, known as PM 2.5, in 20 years.`\
+https://www.nytimes.com/2026/07/22/weather/canada-wildfire-smoke-air-quality-aqi-how-bad.html
+
+**Hitler’s Birthplace in Austria Is Now a Police Station**\
+`The government repurposed the 17th century building in hopes of preventing the site from becoming an attraction for Nazi sympathizers.`\
+https://www.nytimes.com/2026/07/22/world/europe/hitler-birthplace-austria-police-station.html
+
 **What to Know About the Death of Nolan Wells in Mississippi**\
 `Nearly three weeks after the 18-year-old was found dead off an island near the Mississippi coast, there have been no conclusive answers as to what happened.`\
 https://www.nytimes.com/2026/07/22/us/nolan-wells-death-mississippi-horn-island-autopsy.html
@@ -22,7 +34,7 @@ https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-ec
 `Everyone wants to know who’s going to win an election, but predicting the outcome isn’t a poll’s only job. The polling reporter Ruth Igielnik shares how polls are also judged on their ability to reveal the dynamics underlying a race, as well as to uncover how shifting tides and core issues shape the views of the electorate.`\
 https://www.nytimes.com/video/insider/100000010994126/what-can-a-poll-tell-us.html
 
-**Map: 3.6-Magnitude Earthquake Shakes Western Nevada**\
+**Map: 3.5-Magnitude Earthquake Shakes Western Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/22/us/earthquake-tracker-nevada.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/22/style/queer-family-sperm-donation-impolite-qu
 **On Cats, Dystopian Novels and Sleep: The Winners of Week 5 of Our Summer Reading Contest**\
 `This week we honor a video and two essays. Congratulations to Runhu Xu, Penelope Irwin and Clarissa Tick!`\
 https://www.nytimes.com/2026/07/22/learning/on-cats-dystopian-novels-and-sleep-the-winners-of-week-5-of-our-summer-reading-contest.html
-
-**Trump’s New Trade Fights (and Deals)**\
-`President Trump has resumed his approach of big threats against some trading partners and generous pacts with others. Experts see new risks.`\
-https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.html
-
-**Tate Museums Taps Leader of Dia Art Foundation as Next Director**\
-`After leading the Dia Art Foundation for over a decade, Jessica Morgan is returning to London to run Tate at a challenging time for the renowned group of art museums.`\
-https://www.nytimes.com/2026/07/22/arts/design/tate-museums-jessica-morgan-director.html
-
-**U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race**\
-`An Israeli minister sought to downplay the expected deal, while critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
-https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
 
