@@ -1,3 +1,15 @@
+**Trump’s New Trade Fights (and Deals)**\
+`President Trump has resumed his approach of big threats against some trading partners and generous pacts with others. Experts see new risks.`\
+https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.html
+
+**Tate Museums Taps Leader of Dia Art Foundation as Next Director**\
+`After leading the Dia Art Foundation for over a decade, Jessica Morgan is returning to London to run Tate at a challenging time for the renowned group of art museums.`\
+https://www.nytimes.com/2026/07/22/arts/design/tate-museums-jessica-morgan-director.html
+
+**Expected U.S.-Saudi Nuclear Deal Fuels Israeli Concerns of Regional Arms Race**\
+`An Israeli minister sought to downplay the deal, but critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
+
 **Dirty Lettuce**\
 `We look into the cyclospora outbreak.`\
 https://www.nytimes.com/2026/07/22/briefing/cyclospora-outbreak.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011045919/mamdani-netanyahu-arre
 **K-pop’s NewJeans Hints at Comeback After Monthslong Feud With Its Label**\
 `The girl group had tried to cut ties with Ador, a subsidiary of the behemoth Hybe, but a court squashed that effort.`\
 https://www.nytimes.com/2026/07/22/world/asia/newjeans-summer-comeback.html
-
-**Tornadoes, Floods and Thunderstorms Hit U.S.**\
-`A sprawling weather system prompted flash flood alerts and tornado warnings from Kentucky up to New England on Tuesday.`\
-https://www.nytimes.com/video/weather/100000011045921/weather-tornado-warning-floods-storm.html
-
-**Colombia, el mayor falsificador de dólares del mundo**\
-`Así siguieron el rastro de uno de los mayores maestros de la falsificación de dinero del mundo.`\
-https://www.nytimes.com/es/2026/07/22/espanol/dolares-dinero-falso-colombia.html
-
-**Man Who Attacked Salman Rushdie Faces Terrorism Charges in Federal Trial**\
-`Mr. Rushdie is expected to testify against Hadi Matar, the man who repeatedly stabbed him in 2022. Mr. Matar’s lawyers argue that he acted on his own, not on behalf of Iran.`\
-https://www.nytimes.com/2026/07/22/nyregion/salman-rushdie-hadi-matar-terror-trial.html
 
