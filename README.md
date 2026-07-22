@@ -1,3 +1,7 @@
+**遺留之物**\
+`香港一場致命大火奪走他們摯愛的生命。數月後，他們重返宏福苑，查看火災廢墟。以下是他們從中帶回的物品。`\
+https://www.nytimes.com/zh-hant/interactive/2026/07/22/chinese/hong-kong-fire-objects-families.html
+
 **Japan Is Startled by Prime Minister’s Grueling Sleep Schedule**\
 `Sanae Takaichi has said she gets just “zero to three hours” of sleep a night, prompting a debate in the country over work-life balance.`\
 https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/dining/restaurant-review-stars-nyc.html
 **Houthis Threaten Red Sea Blockade, Putting Oil Market at Greater Risk**\
 `With the Strait of Hormuz effectively closed, the militant group’s threats in the Red Sea jeopardize Saudi Arabia’s main workaround for oil exports.`\
 https://www.nytimes.com/2026/07/21/business/oil-red-sea-houthis.html
-
-**Review Says Gates Foundation Did Not Participate in Epstein Crimes**\
-`A review by an outside law firm hired by the Gates Foundation investigated only the philanthropy and not Mr. Gates or his private office.`\
-https://www.nytimes.com/2026/07/21/business/gates-foundation-epstein.html
 
