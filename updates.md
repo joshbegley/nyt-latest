@@ -1,3 +1,7 @@
+**Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
+`One firefighter was injured as a fire spread quickly across dry hillsides in Northern California, forcing some residents to evacuate.`\
+https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
+
 **Tornadoes Are Reported in Kentucky as Storms Sweep Across U.S.**\
 `Storms set off tornado warnings all the way to New York on Tuesday. Forecasters also warned of flash flooding.`\
 https://www.nytimes.com/2026/07/21/weather/kentucky-tornado-wind-storm.html

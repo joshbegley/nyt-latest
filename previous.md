@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-22.html
 https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
 
 **Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
-`A fire in the Pleasanton, Calif., area was spreading quickly across dry hillsides and threatening neighborhoods.`\
+`One firefighter was injured as a fire spread quickly across dry hillsides in Northern California, forcing some residents to evacuate.`\
 https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
 
 **Trump Plans to Impose Tariffs on Generic Drugs**\
