@@ -1,3 +1,7 @@
+**¿Aquí comenzó el brote de ‘Cyclospora’? Una región de México espera la respuesta**\
+`Con miles de casos reportados en Estados Unidos, la investigación sobre el brote alimenta el temor a nuevas restricciones sobre los productos agrícolas mexicanos.`\
+https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclospora-lechuga-taylor-farms.html
+
 **Iran War Live Updates: Rubio Signals No Letup in U.S. Strikes**\
 `Secretary of State Marco Rubio said that the United States would continue attacking Iran as long as it tried to control the Strait of Hormuz, and suggested that Tehran was “not serious” about diplomacy.`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz

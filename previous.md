@@ -1,3 +1,7 @@
+**¿Aquí comenzó el brote de ‘Cyclospora’? Una región de México espera la respuesta**\
+`Con miles de casos reportados en Estados Unidos, la investigación sobre el brote alimenta el temor a nuevas restricciones sobre los productos agrícolas mexicanos.`\
+https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclospora-lechuga-taylor-farms.html
+
 **Iran War Live Updates: Rubio Signals No Letup in U.S. Strikes**\
 `Secretary of State Marco Rubio said that the United States would continue attacking Iran as long as it tried to control the Strait of Hormuz, and suggested that Tehran was “not serious” about diplomacy.`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/opinion/russia-putin-ukraine-west.html
 **Quote of the Day: Lillian Roberts, Rousing leader of Municipal Union, Dies at 98**\
 `Quotation of the Day for Wednesday, July 22, 2026.`\
 https://www.nytimes.com/2026/07/22/pageoneplus/quote-of-the-day-lillian-roberts-rousing-leader-of-municipal-union-dies-at-98.html
-
-****\
-`Mayor Zohran Mamdani, in an interview published Saturday, described what he would do when Prime Minister Benjamin Netanyahu comes to New York City for the United Nations General Assembly.`\
-https://www.nytimes.com/video/embedded/nyregion/100000011045753/21vid-met-mamdani-netanyahu-theintv-46801.html
 
