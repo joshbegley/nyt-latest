@@ -1,3 +1,11 @@
+**Ukraine’s New Military Chief Faces a Monumental Test**\
+`Maj. Gen. Mykhailo Drapatyi faces a balancing act between asserting the independence favored by military reformers and accommodating political input on battlefield strategy.`\
+https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.html
+
+**Firing of Ukraine’s Top General Signals the End of an Era**\
+`Gen. Oleksandr Syrskyi, who commanded crucial battles, oversaw an expansion of drone warfare against Russia, but many Ukrainians want even more.`\
+https://www.nytimes.com/2026/07/22/world/europe/ukraine-syrskyi-general-russia-war.html
+
 **Global Oil Price Vaults Over $95 a Barrel as War Threats Intensify**\
 `The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
