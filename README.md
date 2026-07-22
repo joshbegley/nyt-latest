@@ -1,3 +1,7 @@
+**Louvre Gallery Reopens After Brazen Jewel Heist**\
+`Thieves stole crown jewels from the Apollo Gallery at the Louvre Museum in October, forcing its closure. Tourists finally returned on Wednesday.`\
+https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html
+
 **Trump Administration Plans to Stick With Tariffs, Trade Representative Says**\
 `Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
 https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/arts/music/marlboro-music-festival-75.html
 **Pick Your Favorite $2.5 Million Home**\
 `This week’s properties are in Santa Fe, N.M., New Gloucester, Maine, and Lake Forest, Ill.`\
 https://www.nytimes.com/2026/07/22/realestate/pick-your-favorite-2-5-million-homes-in-santa-fe-new-gloucester-lake-forest.html
-
-**‘Fast Charlie,’ ‘Lucky Grandma’ and More Streaming Gems**\
-`Skip the endless scrolling with these seven overlooked movie recommendations.`\
-https://www.nytimes.com/2026/07/22/movies/fast-charlie-lucky-grandma-and-more-streaming-gems.html
 
