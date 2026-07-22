@@ -1,3 +1,11 @@
+**The Next Big Tests for the Left: Michigan, Wisconsin and Minnesota**\
+`Progressives are now fighting in swingier terrain in purple or light-blue states.`\
+https://www.nytimes.com/2026/07/22/us/politics/progressives-michigan-wisconsin-minnesota.html
+
+**House Republicans Pass Stock Trading Bill Tied to SAVE Act and Voter ID Measure**\
+`The measure has drawn bipartisan backing amid a public outcry against the practice, but Democrats opposed it after Republicans added a voter ID requirement.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-bill-stock-trades-congress.html
+
 **Hitler’s Birthplace in Austria Becomes a Police Station**\
 `The Austrian government has turned the building where Adolf Hitler was born into a police station in an attempt to deter the site from becoming an attraction for Nazi sympathizers. The building opened on Wednesday.`\
 https://www.nytimes.com/video/world/europe/100000011046889/hitlers-birthplace-in-austria-becomes-a-police-station.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/22/nyregion/nicolas-maduros-trial-date.html
 **Una rutina de 20 minutos para fortalecer tu tren superior**\
 `Estos ejercicios pueden ayudar a mejorar tu postura y hacer que los movimientos cotidianos se sientan más cómodos.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/rutina-ejercicios-tren-superior.html
-
-**Fire Ravaged the Glasgow School of Art. It May Cost Too Much to Restore It.**\
-`Designed by Charles Rennie Mackintosh, the Glasgow School of Art is one of Britain’s most famous buildings. The school says it can’t undertake a planned “faithful restoration” alone.`\
-https://www.nytimes.com/2026/07/22/arts/design/glasgow-school-of-art-fire.html
-
-**South Carolina and Nevada Fight to Kick Off Democrats’ 2028 Presidential Calendar**\
-`The calendar order could be hugely important to the 2028 presidential primary race. Democratic insiders will try to sketch out a schedule this week, and rival states are sniping at one another.`\
-https://www.nytimes.com/2026/07/22/us/politics/south-carolina-nevada-democrats-2028-presidential-calendar.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
