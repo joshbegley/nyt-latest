@@ -1,3 +1,15 @@
+**House Republicans Have Tied the Defense Policy Bill to Trump’s SAVE Act**\
+`House Republicans have tied their entire legislative agenda to President Trump’s voting restriction measure, as he has demanded.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-voter-id.html
+
+**25 Intriguing Photos to Make Students Think**\
+`A new slide show of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
+https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
+
+**Canadian Wildfire Evacuees Outraged Over Lacking Support and Communication**\
+`Residents of northwestern Ontario say their warnings about fires they spotted were dismissed and official information as the flames spread often didn’t come at all.`\
+https://www.nytimes.com/2026/07/22/world/canada/ontario-wildfires-canada-smoke.html
+
 **How the Trump Administration’s Nuclear Deal With Saudi Arabia May Work**\
 `The Trump administration is expected to announce an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal-123-agreement.html

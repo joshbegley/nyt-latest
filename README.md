@@ -151,7 +151,7 @@ https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.ht
 https://www.nytimes.com/2026/07/22/arts/design/tate-museums-jessica-morgan-director.html
 
 **U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race**\
-`An Israeli minister sought to downplay the expected deal, but critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
+`An Israeli minister sought to downplay the expected deal, while critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
 
 **Dirty Lettuce**\
