@@ -1,3 +1,7 @@
+**Dirty Lettuce**\
+`We look into the cyclospora outbreak.`\
+https://www.nytimes.com/2026/07/22/briefing/cyclospora-outbreak.html
+
 **Ukraine’s New Military Chief Faces a Monumental Test**\
 `Maj. Gen. Mykhailo Drapatyi faces a balancing act between asserting the independence favored by military reformers and accommodating political input on battlefield strategy.`\
 https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.html
