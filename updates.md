@@ -1,3 +1,7 @@
+**6 Takeaways From Arizona’s Tense, Trump-Dominated Primaries**\
+`Republicans nominated a former N.F.L. kicker in a top House battleground, a Trump loyalist for governor and an election denier for the state’s top election post.`\
+https://www.nytimes.com/2026/07/22/us/politics/arizona-primary-takeaways.html
+
 **Iran’s Neighbors Long for a Deal, Any Deal, to End the War**\
 `Business owners in Pakistan are getting impatient for a chance to finally trade goods and oil along their long shared border with Iran.`\
 https://www.nytimes.com/2026/07/22/world/asia/iran-pakistan-karachi-trade-oil.html

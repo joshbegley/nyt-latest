@@ -1,3 +1,7 @@
+**6 Takeaways From Arizona’s Tense, Trump-Dominated Primaries**\
+`Republicans nominated a former N.F.L. kicker in a top House battleground, a Trump loyalist for governor and an election denier for the state’s top election post.`\
+https://www.nytimes.com/2026/07/22/us/politics/arizona-primary-takeaways.html
+
 **Iran’s Neighbors Long for a Deal, Any Deal, to End the War**\
 `Business owners in Pakistan are getting impatient for a chance to finally trade goods and oil along their long shared border with Iran.`\
 https://www.nytimes.com/2026/07/22/world/asia/iran-pakistan-karachi-trade-oil.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/europe/ukraine-syrskyi-russia-war-fedor
 **Troy Jackson Tightens Hold on Democratic Senate Nomination in Maine**\
 `State Democrats released a ballot for their nominating convention on Saturday that includes Mr. Jackson and two long-shot candidates with little public support from delegates.`\
 https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-maine-senate-democrats.html
-
-**New Poster for ‘La La Land’ Fixes Ryan Gosling’s Wayward Hand**\
-`Gosling’s hand position during a dance scene didn’t match Emma Stone’s, haunting him for years after the movie’s release.`\
-https://www.nytimes.com/2026/07/21/movies/la-la-land-poster-gosling-hand.html
 
