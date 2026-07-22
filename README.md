@@ -1,3 +1,7 @@
+**Quote of the Day: Lillian Roberts, Rousing leader of Municipal Union, Dies at 98**\
+`Quotation of the Day for Wednesday, July 22, 2026.`\
+https://www.nytimes.com/2026/07/22/pageoneplus/quote-of-the-day-lillian-roberts-rousing-leader-of-municipal-union-dies-at-98.html
+
 ****\
 `Mayor Zohran Mamdani, in an interview published Saturday, described what he would do when Prime Minister Benjamin Netanyahu comes to New York City for the United Nations General Assembly.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011045753/21vid-met-mamdani-netanyahu-theintv-46801.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/world/middleeast/desalination-water-middle-ea
 **Senate Panel Advances Jay Clayton as Next Spy Chief on Party-Line Vote**\
 `If the full Senate confirms him as expected, Mr. Clayton will take over the Office of the Director of National Intelligence from Bill Pulte, a housing official with little national security experience.`\
 https://www.nytimes.com/2026/07/21/us/politics/senate-panel-jay-clayton-spy-chief.html
-
-**Trump, Netanyahu and Putin Have All Blundered Into Dead-End Wars**\
-`The quick-fix fantasies of the world’s strongmen.`\
-https://www.nytimes.com/2026/07/21/opinion/trump-netanyahu-putin-war.html
 
