@@ -1,3 +1,7 @@
+**My Stepdaughter’s College Was Paid For. Do We Have to Cover Grad School?**\
+`She’s angry that we saved for her siblings’ college educations but not for hers.`\
+https://www.nytimes.com/2026/07/22/magazine/college-tuition-stepdaughter-ethics.html
+
 **Louvre Gallery Reopens After Brazen Jewel Heist**\
 `Thieves stole crown jewels from the Apollo Gallery at the Louvre Museum in October, forcing its closure. Tourists finally returned on Wednesday.`\
 https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/us/charlie-kirk-utah-valley-university.html
 **Marlboro Music: Where Artists Have Time to Chase Perfection**\
 `The Marlboro Music Festival, now in its 75th summer, allows artists to practice for however long they’d like, with no pressure to perform.`\
 https://www.nytimes.com/2026/07/22/arts/music/marlboro-music-festival-75.html
-
-**Pick Your Favorite $2.5 Million Home**\
-`This week’s properties are in Santa Fe, N.M., New Gloucester, Maine, and Lake Forest, Ill.`\
-https://www.nytimes.com/2026/07/22/realestate/pick-your-favorite-2-5-million-homes-in-santa-fe-new-gloucester-lake-forest.html
 
