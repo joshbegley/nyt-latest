@@ -1,3 +1,7 @@
+**Trump Plans to Impose Tariffs on Generic Drugs**\
+`The administration has repeatedly said it will impose steep pharmaceutical tariffs but has not followed through on them.`\
+https://www.nytimes.com/2026/07/21/business/trump-tariffs-generic-drugs.html
+
 **Zelensky Fires Ukraine’s Top General After Days of Protests**\
 `President Volodymyr Zelensky of Ukraine dismissed Gen. Oleksandr Syrskyi after supporters of the ousted defense minister, Mykhailo Fedorov, took to the streets to call for the general’s ousting.`\
 https://www.nytimes.com/video/world/europe/100000011045087/zelensky-fires-ukraines-top-general-after-days-of-protests.html

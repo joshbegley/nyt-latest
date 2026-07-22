@@ -1,3 +1,7 @@
+**Trump Plans to Impose Tariffs on Generic Drugs**\
+`The administration has repeatedly said it will impose steep pharmaceutical tariffs but has not followed through on them.`\
+https://www.nytimes.com/2026/07/21/business/trump-tariffs-generic-drugs.html
+
 **Zelensky Fires Ukraine’s Top General After Days of Protests**\
 `President Volodymyr Zelensky of Ukraine dismissed Gen. Oleksandr Syrskyi after supporters of the ousted defense minister, Mykhailo Fedorov, took to the streets to call for the general’s ousting.`\
 https://www.nytimes.com/video/world/europe/100000011045087/zelensky-fires-ukraines-top-general-after-days-of-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011043847/watch-live-he
 **Trump impondrá un arancel del 50% a muchos productos canadienses**\
 `El gobierno de EE. UU. utilizará una disposición legal no probada para imponer aranceles significativos a las exportaciones canadienses, lo cual reavivará un conflicto con uno de los mayores socios comerciales del país.`\
 https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/trump-aranceles-canada.html
-
-**Inside the Fight to Rid South Africa of Black Immigrants**\
-`As immigration surges in the country, activists are going to extreme lengths to expel foreign nationals, often taking the law into their own hands.`\
-https://www.nytimes.com/2026/07/21/world/africa/south-africa-migrants.html
 
