@@ -1,3 +1,7 @@
+**The Enduring Popularity of ‘The Surrendered Wife’**\
+`The best-selling author Laura Doyle believes women can be too controlling. Many women — of all types — credit her with saving their marriages.`\
+https://www.nytimes.com/2026/07/22/us/laura-doyle-surrendered-wife.html
+
 **OpenAI Sued Over ChatGPT’s ‘Dangerous’ Health Advice**\
 `The case appears to be the first to argue that a chatbot’s advice harmed someone seeking guidance about a medical condition.`\
 https://www.nytimes.com/2026/07/22/well/openai-chatgpt-health-lawsuit.html
