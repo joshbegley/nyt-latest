@@ -1,3 +1,15 @@
+**The U.S. Signs a Nuclear Pact With Saudi Arabia**\
+`Also, Trump threatens to retaliate against civilian targets in Iran.`\
+https://www.nytimes.com/2026/07/22/briefing/the-us-signs-a-nuclear-pact-with-saudi-arabia.html
+
+**Jason Alexander Apologizes for to Courtney Stodden for 2012 Comedy Sketch**\
+`Alexander rubs a phone against the actress’s breasts in the Funny or Die comedy sketch, which was published when she was 17.`\
+https://www.nytimes.com/2026/07/22/arts/television/jason-alexander-apology-courtney-stodden.html
+
+**One-Pan Dumplings With Greens**\
+`This lifesaver of a recipe, linked below, calls for cooking dumplings and kale together in one skillet.`\
+https://www.nytimes.com/video/dining/100000011047749/one-pan-dumplings-with-greens.html
+
 **El juicio de Nicolás Maduro comenzaría en junio de 2027**\
 `Maduro y Cilia Flores, su esposa, fueron capturados por el ejército estadounidense en enero y desde entonces han estado recluidos en una cárcel de Brooklyn. Se han declarado no culpables de los cargos en su contra.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/nicolas-maduro-juicio-fechas.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/22/style/tiny-modern-love-stories-a-full-hiccupi
 **Why Are Young People in India Protesting?**\
 `A youth-led movement angry over the education system and a lack of jobs is posing a rare challenge to a government that has ruled for more than a decade with a firm hand.`\
 https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html
-
-**Who Is Ahead in Ohio's 10th Congressional District?**\
-`Track the latest polls in Ohio's 10th Congressional District.`\
-https://www.nytimes.com/interactive/polls/ohio-us-house-10-polls-2026.html
-
-**James Woolsey, Embattled C.I.A. Director Under Clinton, Dies at 84**\
-`He arrived in Washington a conservative Democrat and drifted rightward, supporting the 2003 invasion of Iraq and Donald J. Trump’s 2016 presidential bid.`\
-https://www.nytimes.com/2026/07/22/us/james-woolsey-dead.html
-
-**House Republicans Have Tied the Defense Policy Bill to Trump’s SAVE Act**\
-`House Republicans have tied their entire legislative agenda to President Trump’s voting restriction measure, as he has demanded.`\
-https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-voter-id.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
