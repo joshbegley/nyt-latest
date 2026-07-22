@@ -1,3 +1,15 @@
+**Louvre Gallery Reopens After Brazen Jewel Heist**\
+`Thieves stole crown jewels from the Apollo Gallery at the Louvre Museum in October, forcing its closure. Tourists finally returned on Wednesday.`\
+https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html
+
+**Shooting Ranges Go Quiet Luxury**\
+`Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
+https://www.nytimes.com/2026/07/22/style/gun-club-los-angeles.html
+
+**Stocks and the Economy Are Increasingly Relying on the A.I. Boom**\
+`Investment in artificial intelligence and related companies is lifting the stock market and spending across the economy.`\
+https://www.nytimes.com/2026/07/22/business/economy/stocks-economy-ai.html
+
 **Trump Administration Plans to Stick With Tariffs, Trade Representative Says**\
 `Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
 https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html

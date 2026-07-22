@@ -1,3 +1,7 @@
+**Louvre Gallery Reopens After Brazen Jewel Heist**\
+`Thieves stole crown jewels from the Apollo Gallery at the Louvre Museum in October, forcing its closure. Tourists finally returned on Wednesday.`\
+https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html
+
 **Trump Administration Plans to Stick With Tariffs, Trade Representative Says**\
 `Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
 https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/07/22/insider/truck-suv-crash-investigation.html
 
 **Shooting Ranges Go Quiet Luxury**\
 `Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
-https://www.nytimes.com/2026/07/22/style/gun-club-the-range-los-angeles.html
+https://www.nytimes.com/2026/07/22/style/gun-club-los-angeles.html
 
 **Stir-Fry Your Lettuce, Ragù Your Green Beans and Cake Your Coconut**\
 `Classic and clever summer comforts.`\
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal
 `Un mapache de Seattle con una afección en la columna ha pasado de ser una leyenda local a una celebridad internacional luego de que varios videos en los que aparece circularan en las redes sociales.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/jimothy-mapache-instagram.html
 
-**A.I. Is Lifting Markets and the Economy and Raising Risks for Both**\
+**Stocks and the Economy Are Increasingly Relying on the A.I. Boom**\
 `Investment in artificial intelligence and related companies is lifting the stock market and spending across the economy.`\
 https://www.nytimes.com/2026/07/22/business/economy/stocks-economy-ai.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/arts/music/marlboro-music-festival-75.html
 **Pick Your Favorite $2.5 Million Home**\
 `This week’s properties are in Santa Fe, N.M., New Gloucester, Maine, and Lake Forest, Ill.`\
 https://www.nytimes.com/2026/07/22/realestate/pick-your-favorite-2-5-million-homes-in-santa-fe-new-gloucester-lake-forest.html
-
-**‘Fast Charlie,’ ‘Lucky Grandma’ and More Streaming Gems**\
-`Skip the endless scrolling with these seven overlooked movie recommendations.`\
-https://www.nytimes.com/2026/07/22/movies/fast-charlie-lucky-grandma-and-more-streaming-gems.html
 
