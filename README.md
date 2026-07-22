@@ -1,3 +1,7 @@
+**Tornadoes, Floods and Thunderstorms Hit U.S.**\
+`A sprawling weather system prompted flash flood alerts and tornado warnings from Kentucky up to New England on Tuesday.`\
+https://www.nytimes.com/video/weather/100000011045921/weather-tornado-warning-floods-storm.html
+
 **Colombia, el mayor falsificador de dólares del mundo**\
 `Así siguieron el rastro de uno de los mayores maestros de la falsificación de dinero del mundo.`\
 https://www.nytimes.com/es/2026/07/22/espanol/dolares-dinero-falso-colombia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011045163/why-does-fashion-heart-
 **France Passes Law Restricting Social Media for Youths**\
 `France is the first European country to ban access to social media for anyone under 15. The law could go into effect as soon as Sept. 1.`\
 https://www.nytimes.com/video/world/europe/100000011043897/france-law-social-media-ban-restrictions.html
-
-****\
-`tktktkt`\
-https://www.nytimes.com/video/embedded/business/100000011045150/Biz-Bangladesh-Irrigation-video.html
 
