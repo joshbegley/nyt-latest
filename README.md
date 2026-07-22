@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Bring Joy and Delight to Your Day**\
+`Forgetting yourself, listening to forests and The Most ‘Wuthering Heights’ Day Ever.`\
+https://www.nytimes.com/2026/07/22/briefing/22-the-good-list-gellhorn-kate-bush.html
+
 **Dubai Firm Cuts Deal for New Port to Bypass Strait of Hormuz**\
 `A Dubai-based logistics giant unveiled a deal with the United Arab Emirates on Wednesday to develop a new port system that would bypass the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/22/world/dubai-cuts-deal-for-new-port-to-bypass-strait-of-hormuz.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/22/theater/oskar-eustis-public-theater.html
 **How Christopher Nolan Proved the ‘Odyssey’ Haters Wrong**\
 `The success of “The Odyssey,” and the potent political ideas at its core, only prove how tiresome the prerelease debate about “woke” really was.`\
 https://www.nytimes.com/2026/07/22/opinion/odyssey-nolan-woke-debate.html
-
-**MrBeast Marries Thea Booysen in Private Island Wedding**\
-`The YouTube star married Thea Booysen, who is also a content creator, on a private island owned by Richard Branson.`\
-https://www.nytimes.com/2026/07/22/style/mr-beast-wedding-thea-booysen.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz.`\
