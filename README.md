@@ -1,3 +1,7 @@
+**What to Know About the Death of Nolan Wells in Mississippi**\
+`Nearly three weeks after the 18-year-old was found dead off an island near the Mississippi coast, there have been no conclusive answers as to what happened.`\
+https://www.nytimes.com/2026/07/22/us/nolan-wells-death-mississippi-horn-island-autopsy.html
+
 **Los saudíes llegan a un acuerdo con EE. UU. que podría permitirles enriquecer su combustible nuclear**\
 `Legisladores estadounidenses y funcionarios israelíes se oponen a dicho plan, que se anunciará el miércoles, por temor a que el reino pueda desarrollar armas nucleares.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-arabia-saudita-acuerdo-nuclear.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/arts/design/tate-museums-jessica-morgan-direc
 **U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race**\
 `An Israeli minister sought to downplay the expected deal, while critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
-
-**Dirty Lettuce**\
-`We look into the cyclospora outbreak.`\
-https://www.nytimes.com/2026/07/22/briefing/cyclospora-outbreak.html
 
