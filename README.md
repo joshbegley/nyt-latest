@@ -1,3 +1,11 @@
+**Map: 3.6-Magnitude Earthquake Shakes Western Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/22/us/earthquake-tracker-nevada.html
+
+**Tiny Love Stories: ‘A Full, Hiccuping Meltdown Over Nothing’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/22/style/tiny-modern-love-stories-a-full-hiccuping-meltdown-over-nothing.html
+
 **Why Are Young People in India Protesting?**\
 `A youth-led movement angry over the education system and a lack of jobs is posing a rare challenge to a government that has ruled for more than a decade with a firm hand.`\
 https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/22/podcasts/the-daily/trump-housing-immigrants.h
 **NYT Connections Answers for July 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
 https://www.nytimes.com/2026/07/22/crosswords/connections-companion-1138.html
-
-**Trump Reaches Contentious New Nuclear Deal, and A.I. Models Go Rogue**\
-`Plus, what is a Jimothy?`\
-https://www.nytimes.com/2026/07/22/podcasts/the-headlines/trump-nuclear-deal-ai-model-rogue.html
-
-**Today’s Wordle Hints for July 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
-https://www.nytimes.com/2026/07/22/crosswords/wordle-review-1860.html
 
