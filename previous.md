@@ -1,3 +1,11 @@
+**Tesla Profit Falls Even as Car Sales Rebound**\
+`The company is selling more cars, but the company’s profit was down because of price cuts and higher expenses.`\
+https://www.nytimes.com/2026/07/22/business/tesla-earnings-elon-musk.html
+
+**A Soldier’s Death Overseas Stuns a Neighborhood in Queens**\
+`Sgt. Angel Rampersad, 28, is believed to have been killed in an Iranian attack on Jordan last week. In Ozone Park, where her family lived, neighbors mourned and remembered her.`\
+https://www.nytimes.com/2026/07/22/nyregion/iran-war-angel-rampersad.html
+
 **What Were the Lotus-Eaters Eating?**\
 `In Homer’s epic, Odysseus’s men eat something so powerful that they forget about home. Which plants could have produced such a soporific, narcotic and amnesiac effect?`\
 https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/22/insider/truck-suv-crash-investigation.html
 **Shooting Ranges Go Quiet Luxury**\
 `Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
 https://www.nytimes.com/2026/07/22/style/gun-club-los-angeles.html
-
-**Stir-Fry Your Lettuce, Ragù Your Green Beans and Cake Your Coconut**\
-`Classic and clever summer comforts.`\
-https://www.nytimes.com/2026/07/22/dining/stir-fry-your-lettuce-ragu-your-green-beans-and-cake-your-coconut.html
-
-**Oskar Eustis Is Stepping Down From the Public Theater**\
-`Eustis has been the Public Theater’s artistic director for 21 years, stewarding Free Shakespeare in the Park, nurturing “Hamilton” and navigating the coronavirus pandemic.`\
-https://www.nytimes.com/2026/07/22/theater/oskar-eustis-public-theater.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz.`\

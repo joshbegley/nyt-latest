@@ -1,3 +1,11 @@
+**Tesla Profit Falls Even as Car Sales Rebound**\
+`The company is selling more cars, but the company’s profit was down because of price cuts and higher expenses.`\
+https://www.nytimes.com/2026/07/22/business/tesla-earnings-elon-musk.html
+
+**A Soldier’s Death Overseas Stuns a Neighborhood in Queens**\
+`Sgt. Angel Rampersad, 28, is believed to have been killed in an Iranian attack on Jordan last week. In Ozone Park, where her family lived, neighbors mourned and remembered her.`\
+https://www.nytimes.com/2026/07/22/nyregion/iran-war-angel-rampersad.html
+
 **What Were the Lotus-Eaters Eating?**\
 `In Homer’s epic, Odysseus’s men eat something so powerful that they forget about home. Which plants could have produced such a soporific, narcotic and amnesiac effect?`\
 https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
