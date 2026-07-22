@@ -1,3 +1,7 @@
+**K-pop’s NewJeans Hints at Comeback After Monthslong Feud With Its Label**\
+`The girl group had tried to cut ties with Ador, a subsidiary of the behemoth Hybe, but a court squashed that effort.`\
+https://www.nytimes.com/2026/07/22/world/asia/newjeans-summer-comeback.html
+
 **Tornadoes, Floods and Thunderstorms Hit U.S.**\
 `A sprawling weather system prompted flash flood alerts and tornado warnings from Kentucky up to New England on Tuesday.`\
 https://www.nytimes.com/video/weather/100000011045921/weather-tornado-warning-floods-storm.html

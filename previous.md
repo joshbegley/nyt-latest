@@ -1,3 +1,7 @@
+**K-pop’s NewJeans Hints at Comeback After Monthslong Feud With Its Label**\
+`The girl group had tried to cut ties with Ador, a subsidiary of the behemoth Hybe, but a court squashed that effort.`\
+https://www.nytimes.com/2026/07/22/world/asia/newjeans-summer-comeback.html
+
 **Tornadoes, Floods and Thunderstorms Hit U.S.**\
 `A sprawling weather system prompted flash flood alerts and tornado warnings from Kentucky up to New England on Tuesday.`\
 https://www.nytimes.com/video/weather/100000011045921/weather-tornado-warning-floods-storm.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/nyregion/nyc-flooding-storms-rain.html
 **Why Does Fashion Heart N.Y.?**\
 `T Magazine’s editor at large, Nick Haramis, examines why fashion designers can’t get enough of New York City.`\
 https://www.nytimes.com/video/t-magazine/100000011045163/why-does-fashion-heart-ny.html
-
-**France Passes Law Restricting Social Media for Youths**\
-`France is the first European country to ban access to social media for anyone under 15. The law could go into effect as soon as Sept. 1.`\
-https://www.nytimes.com/video/world/europe/100000011043897/france-law-social-media-ban-restrictions.html
 
