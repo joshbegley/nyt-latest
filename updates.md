@@ -1,3 +1,7 @@
+**Mamdani Challenges U.S. to Execute Arrest Warrant Against Netanyahu**\
+`Mayor Zohran Mamdani said New York could not execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, but he called on the United States to do so.`\
+https://www.nytimes.com/video/us/politics/100000011045919/mamdani-challenges-us-to-execute-arrest-warrant-against-netanyahu.html
+
 **K-pop’s NewJeans Hints at Comeback After Monthslong Feud With Its Label**\
 `The girl group had tried to cut ties with Ador, a subsidiary of the behemoth Hybe, but a court squashed that effort.`\
 https://www.nytimes.com/2026/07/22/world/asia/newjeans-summer-comeback.html
