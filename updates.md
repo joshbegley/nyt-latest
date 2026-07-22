@@ -1,3 +1,19 @@
+**U.S. Signs Deal That Could Let Saudis Enrich Nuclear Fuel**\
+`The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
+https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
+
+**El nuevo póster de ‘La La Land’ corrige la mano de Ryan Gosling**\
+`Durante una escena de baile, la mano de Gosling no coincidía con la de Emma Stone, un detalle que lo persiguió durante años después del estreno.`\
+https://www.nytimes.com/es/2026/07/22/espanol/cultura/poster-la-la-land-mano-ryan-gosling.html
+
+**Hitler’s Birthplace in Austria Becomes a Police Station**\
+`The Austrian government has turned the building where Adolf Hitler was born into a police station in an attempt to deter the site from becoming an attraction for Nazi sympathizers. The building opened on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000011046889/hitler-birthplace-austria-police-station.html
+
+**What to Know as Tropical Storm Bertha Makes Landfall on Louisiana Coast**\
+`The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
+https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html
+
 **They Wrote a Picture Book to Encourage Bipartisanship**\
 `Ellie Gottheimer and Larra Mullin, who met when their fathers were in Congress, make a case for bipartisanship in a picture book about dogs working together.`\
 https://www.nytimes.com/2026/07/22/books/ellie-gottheimer-larra-mullin-childrens-book.html

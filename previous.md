@@ -1,3 +1,11 @@
+**U.S. Signs Deal That Could Let Saudis Enrich Nuclear Fuel**\
+`The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
+https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
+
+**El nuevo póster de ‘La La Land’ corrige la mano de Ryan Gosling**\
+`Durante una escena de baile, la mano de Gosling no coincidía con la de Emma Stone, un detalle que lo persiguió durante años después del estreno.`\
+https://www.nytimes.com/es/2026/07/22/espanol/cultura/poster-la-la-land-mano-ryan-gosling.html
+
 **They Wrote a Picture Book to Encourage Bipartisanship**\
 `Ellie Gottheimer and Larra Mullin, who met when their fathers were in Congress, make a case for bipartisanship in a picture book about dogs working together.`\
 https://www.nytimes.com/2026/07/22/books/ellie-gottheimer-larra-mullin-childrens-book.html
@@ -24,7 +32,7 @@ https://www.nytimes.com/2026/07/22/us/politics/house-bill-stock-trades-congress.
 
 **Hitler’s Birthplace in Austria Becomes a Police Station**\
 `The Austrian government has turned the building where Adolf Hitler was born into a police station in an attempt to deter the site from becoming an attraction for Nazi sympathizers. The building opened on Wednesday.`\
-https://www.nytimes.com/video/world/europe/100000011046889/hitlers-birthplace-in-austria-becomes-a-police-station.html
+https://www.nytimes.com/video/world/europe/100000011046889/hitler-birthplace-austria-police-station.html
 
 **Saudi Arabia’s Nuclear Plans**\
 `The U.S. will help the Saudis develop a civilian nuclear program, with uncertain consequences for the Middle East.`\
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/07/22/upshot/doctors-huge-payments-trump.html
 `Republicans pushed through the $1.15 trillion bill over opposition from Democrats, who said backing it was akin to embracing the war.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-defense-bill-iran-war.html
 
-**3 Things to Know as Tropical Storm Bertha Meanders West**\
+**What to Know as Tropical Storm Bertha Makes Landfall on Louisiana Coast**\
 `The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
 https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-vote
 **25 Intriguing Photos to Make Students Think**\
 `A new collection of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
 https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
-
-**A Latino American Public Health Emergency**\
-`A reader responds to a guest essay about Latino Americans in crisis. Also: Dogs on summer vacation; chatting while waiting in line; the joy of dressing up.`\
-https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
-
-**How the Trump Administration’s Nuclear Deal With Saudi Arabia May Work**\
-`The Trump administration  announced an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
-https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal-123-agreement.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
