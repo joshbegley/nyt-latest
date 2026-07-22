@@ -1,3 +1,7 @@
+**Mamdani Challenges U.S. to Execute Arrest Warrant Against Netanyahu**\
+`Mayor Zohran Mamdani said New York could not execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, but he called on the United States to do so.`\
+https://www.nytimes.com/video/us/politics/100000011045919/mamdani-challenges-us-to-execute-arrest-warrant-against-netanyahu.html
+
 **K-pop’s NewJeans Hints at Comeback After Monthslong Feud With Its Label**\
 `The girl group had tried to cut ties with Ador, a subsidiary of the behemoth Hybe, but a court squashed that effort.`\
 https://www.nytimes.com/2026/07/22/world/asia/newjeans-summer-comeback.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011045183/21vid-hegseth
 **NYC Businesses Brace for More Flooding With Severe Storms in the Forecast**\
 `Some businesses in low-lying areas of New York City have developed routines to keep their goods and customers dry.`\
 https://www.nytimes.com/2026/07/21/nyregion/nyc-flooding-storms-rain.html
-
-**Why Does Fashion Heart N.Y.?**\
-`T Magazine’s editor at large, Nick Haramis, examines why fashion designers can’t get enough of New York City.`\
-https://www.nytimes.com/video/t-magazine/100000011045163/why-does-fashion-heart-ny.html
 
