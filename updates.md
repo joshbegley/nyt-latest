@@ -1,3 +1,27 @@
+**3 Things to Know as Tropical Storm Bertha Meanders West**\
+`The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
+https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html
+
+**Bobbi Queen, Fashion Arbiter Who Nurtured Stars, Dies at 84**\
+`As an influential editor at Women’s Wear Daily, she championed generations of designers, including Donna Karan and Vera Wang.`\
+https://www.nytimes.com/2026/07/22/style/bobbi-queen-dead.html
+
+**Speaking for Fallen Soldiers, Trump Says They Supported the Iran War**\
+`President Trump attended a dignified transfer for the soldiers as Americans were growing increasingly critical of the war.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html
+
+**Trump Attends the Return of Four Soldiers Killed in Iran War**\
+`President Trump on Wednesday oversaw the return of four U.S. Army soldiers recently killed overseas in the war with Iran.`\
+https://www.nytimes.com/video/us/politics/100000011046811/trump-iran-war-fallen-soldiers.html
+
+**Alphabet Quadruples Profit to Nearly $120 Billion, Fueled by A.I. Investments**\
+`Google’s parent company, which has spent heavily on artificial intelligence, also showed growth across its businesses, particularly in cloud computing.`\
+https://www.nytimes.com/2026/07/22/technology/alphabet-google-earnings-profit.html
+
+**How the Trump Administration’s Nuclear Deal With Saudi Arabia May Work**\
+`The Trump administration  announced an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal-123-agreement.html
+
 **My (Crazy, Heartbreaking, Glorious) World Cup Adventure**\
 `Soccer is perfect for screens. But being there in person showed me a side of the sport — and of my fellow human beings — that I’ll never forget.`\
 https://www.nytimes.com/2026/07/22/magazine/world-cup-recap.html
