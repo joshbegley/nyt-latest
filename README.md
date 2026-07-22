@@ -1,3 +1,7 @@
+**What Were the Lotus-Eaters Eating?**\
+`In Homer’s epic, Odysseus’s men eat something so powerful that they forget about home. Which plants could have produced such a soporific, narcotic and amnesiac effect?`\
+https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
+
 **The Good List: 6 Things to Bring Joy and Delight to Your Day**\
 `Forgetting yourself, listening to forests and The Most ‘Wuthering Heights’ Day Ever.`\
 https://www.nytimes.com/2026/07/22/briefing/22-the-good-list-gellhorn-kate-bush.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/22/dining/stir-fry-your-lettuce-ragu-your-green-
 **Oskar Eustis Is Stepping Down From the Public Theater**\
 `Eustis has been the Public Theater’s artistic director for 21 years, stewarding Free Shakespeare in the Park, nurturing “Hamilton” and navigating the coronavirus pandemic.`\
 https://www.nytimes.com/2026/07/22/theater/oskar-eustis-public-theater.html
-
-**How Christopher Nolan Proved the ‘Odyssey’ Haters Wrong**\
-`The success of “The Odyssey,” and the potent political ideas at its core, only prove how tiresome the prerelease debate about “woke” really was.`\
-https://www.nytimes.com/2026/07/22/opinion/odyssey-nolan-woke-debate.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz.`\
