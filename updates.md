@@ -1,3 +1,7 @@
+**My Stepdaughter’s College Was Paid For. Do We Have to Cover Grad School?**\
+`She’s angry that we saved for her siblings’ college educations but not for hers.`\
+https://www.nytimes.com/2026/07/22/magazine/college-tuition-stepdaughter-ethics.html
+
 **Louvre Gallery Reopens After Brazen Jewel Heist**\
 `Thieves stole crown jewels from the Apollo Gallery at the Louvre Museum in October, forcing its closure. Tourists finally returned on Wednesday.`\
 https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html

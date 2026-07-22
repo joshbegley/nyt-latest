@@ -142,8 +142,8 @@ https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclos
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
 
-**Joe McCarthy Lives!**\
-`Trump’s attempt to drum up a third red scare is certain to fail.`\
+**Trump’s New Insult Won’t Save Republicans**\
+`The president’s attempt to drum up a third red scare is certain to fail.`\
 https://www.nytimes.com/2026/07/22/opinion/trump-red-scare-midterms.html
 
 **Interpretó a una estrella del fútbol en ‘Ted Lasso’. Ahora está de vuelta en la cancha**\
