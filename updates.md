@@ -1,3 +1,23 @@
+**Shooting Ranges Go Quiet Luxury**\
+`Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
+https://www.nytimes.com/2026/07/22/style/gun-club-the-range-los-angeles.html
+
+**Stir-Fry Your Lettuce, Ragù Your Green Beans and Cake Your Coconut**\
+`Classic and clever summer comforts.`\
+https://www.nytimes.com/2026/07/22/dining/stir-fry-your-lettuce-ragu-your-green-beans-and-cake-your-coconut.html
+
+**Oskar Eustis Is Stepping Down From the Public Theater**\
+`Eustis has been the Public Theater’s artistic director for 21 years, stewarding Free Shakespeare in the Park, nurturing “Hamilton” and navigating the coronavirus pandemic.`\
+https://www.nytimes.com/2026/07/22/theater/oskar-eustis-public-theater.html
+
+**How Christopher Nolan Proved the ‘Odyssey’ Haters Wrong**\
+`The success of “The Odyssey,” and the potent political ideas at its core, only prove how tiresome the prerelease debate about “woke” really was.`\
+https://www.nytimes.com/2026/07/22/opinion/odyssey-nolan-woke-debate.html
+
+**MrBeast Marries Thea Booysen in Private Island Wedding**\
+`The YouTube star married Thea Booysen, who is also a content creator, on a private island owned by Richard Branson.`\
+https://www.nytimes.com/2026/07/22/style/mr-beast-wedding-thea-booysen.html
+
 **Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince**\
 `Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html

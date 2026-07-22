@@ -1,3 +1,23 @@
+**Shooting Ranges Go Quiet Luxury**\
+`Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
+https://www.nytimes.com/2026/07/22/style/gun-club-the-range-los-angeles.html
+
+**Stir-Fry Your Lettuce, Ragù Your Green Beans and Cake Your Coconut**\
+`Classic and clever summer comforts.`\
+https://www.nytimes.com/2026/07/22/dining/stir-fry-your-lettuce-ragu-your-green-beans-and-cake-your-coconut.html
+
+**Oskar Eustis Is Stepping Down From the Public Theater**\
+`Eustis has been the Public Theater’s artistic director for 21 years, stewarding Free Shakespeare in the Park, nurturing “Hamilton” and navigating the coronavirus pandemic.`\
+https://www.nytimes.com/2026/07/22/theater/oskar-eustis-public-theater.html
+
+**How Christopher Nolan Proved the ‘Odyssey’ Haters Wrong**\
+`The success of “The Odyssey,” and the potent political ideas at its core, only prove how tiresome the prerelease debate about “woke” really was.`\
+https://www.nytimes.com/2026/07/22/opinion/odyssey-nolan-woke-debate.html
+
+**MrBeast Marries Thea Booysen in Private Island Wedding**\
+`The YouTube star married Thea Booysen, who is also a content creator, on a private island owned by Richard Branson.`\
+https://www.nytimes.com/2026/07/22/style/mr-beast-wedding-thea-booysen.html
+
 **Model Scout Who Connected Women to Epstein Is Found Dead in France**\
 `Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
 https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/22/travel/vacation-destinations-warsaw-bangkok-b
 **Six Years After a Reckoning, Criterion Puts ‘Cinematic Blackness’ in Focus**\
 `Adding a curator, the Criterion Collection expanded its offerings and its vision of Black film. But auteurs continue to push the company on what inclusion means.`\
 https://www.nytimes.com/2026/07/22/arts/criterion-collection-black-film.html
-
-**A ‘Disgustingly Beautiful’ Glass-Brick Renovation Makes Its Mark**\
-`A historic building in TriBeCa stood out for its short stature. A glass-brick addition was the unconventional solution.`\
-https://www.nytimes.com/2026/07/22/realestate/tribeca-50-hudson-street-glass.html
-
-**Government Overhauls Teen Pregnancy Program to Focus on Marriage and Starting Families**\
-`The administration canceled federal grants to organizations across the country, accusing them of encouraging premarital sex. New criteria say programs should stress abstinence.`\
-https://www.nytimes.com/2026/07/22/us/politics/teen-pregnancy-prevention-trump.html
-
-**Book Review: ‘Country of Lords,’ by Kim Phillips-Fein**\
-`In a new book, the historian Kim Phillips-Fein chronicles a “shadow tradition” of anti-egalitarians who fought against America’s founding ideals.`\
-https://www.nytimes.com/2026/07/22/books/review/country-of-lords-kim-phillips-fein.html
-
-**The Enduring Popularity of ‘The Surrendered Wife’**\
-`The best-selling author Laura Doyle believes women can be too controlling. Many women — of all types — credit her with saving their marriages.`\
-https://www.nytimes.com/2026/07/22/us/laura-doyle-surrendered-wife.html
-
-**Kenneth Blume Steps Out of Kenny Beats’s Shadow**\
-`The hitmaker formerly known as Kenny Beats was behind breakthrough albums for Geese, Vince Staples, Idles and Fcukers. On a new solo project, he turns his focus inward.`\
-https://www.nytimes.com/2026/07/22/arts/music/kenneth-blume-kenny-beats-geese.html
 
