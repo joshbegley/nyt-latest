@@ -1,3 +1,23 @@
+**Trump’s Clashing Goals: More Housing, Fewer Immigrants**\
+`A new law aims to speed up building housing around the country. At the same time, the construction sector is reliant on foreign-born workers.`\
+https://www.nytimes.com/2026/07/22/podcasts/the-daily/trump-housing-immigrants.html
+
+**Trump Reaches Contentious New Nuclear Deal, and A.I. Models Go Rogue**\
+`Plus, what is a Jimothy?`\
+https://www.nytimes.com/2026/07/22/podcasts/the-headlines/trump-nuclear-deal-ai-model-rogue.html
+
+**NYT Connections Answers for July 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
+https://www.nytimes.com/2026/07/22/crosswords/connections-companion-1138.html
+
+**Today’s Wordle Hints for July 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
+https://www.nytimes.com/2026/07/22/crosswords/wordle-review-1860.html
+
+**NYT Strands Hints for July 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
+https://www.nytimes.com/2026/07/22/crosswords/strands-sidekick-872.html
+
 **¿Aquí comenzó el brote de ‘Cyclospora’? Una región de México espera la respuesta**\
 `Con miles de casos reportados en Estados Unidos, la investigación sobre el brote alimenta el temor a nuevas restricciones sobre los productos agrícolas mexicanos.`\
 https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclospora-lechuga-taylor-farms.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html
 **‘The Daily Show’ Tackles Trump’s Latest Move in His ‘War on Canada’**\
 `“Fighting again with Canada?” Desi Lydic said about the president imposing new tariffs on the country. “I thought we were going to work this ‘oot.’”`\
 https://www.nytimes.com/2026/07/22/arts/television/desi-lydic-trump-canada-tariffs.html
-
-**El audaz escape de una familia de Corea del Norte**\
-`Su determinación de alcanzar la libertad se fortaleció durante la pandemia, cuando vivieron una devastadora escasez de alimentos y se vieron obligados a presenciar frecuentes ejecuciones públicas.`\
-https://www.nytimes.com/es/2026/07/22/espanol/mundo/corea-norte-escape-desertores.html
-
-**6 Takeaways From Arizona’s Tense, Trump-Dominated Primaries**\
-`Republicans nominated a former N.F.L. kicker in a top House battleground, a Trump loyalist for governor and an election denier for the state’s top election post.`\
-https://www.nytimes.com/2026/07/22/us/politics/arizona-primary-takeaways.html
-
-**Iran’s Neighbors Long for a Deal, Any Deal, to End the War**\
-`Business owners in Pakistan are getting impatient for a chance to finally trade goods and oil along their long shared border with Iran.`\
-https://www.nytimes.com/2026/07/22/world/asia/iran-pakistan-karachi-trade-oil.html
-
-**Russia Will Not Yield**\
-`A journey around the globe showed the country’s relentless adaptation.`\
-https://www.nytimes.com/2026/07/22/opinion/russia-putin-ukraine-west.html
-
-**Quote of the Day: Lillian Roberts, Rousing leader of Municipal Union, Dies at 98**\
-`Quotation of the Day for Wednesday, July 22, 2026.`\
-https://www.nytimes.com/2026/07/22/pageoneplus/quote-of-the-day-lillian-roberts-rousing-leader-of-municipal-union-dies-at-98.html
 
