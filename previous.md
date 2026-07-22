@@ -1,3 +1,7 @@
+**Fire Ravaged the Glasgow School of Art. It May Cost Too Much to Restore It.**\
+`Designed by Charles Rennie Mackintosh, the Glasgow School of Art is one of Britain’s most famous buildings. The school says it can’t undertake a planned “faithful restoration” alone.`\
+https://www.nytimes.com/2026/07/22/arts/design/glasgow-school-of-art-fire.html
+
 **South Carolina and Nevada Fight to Kick Off Democrats’ 2028 Presidential Calendar**\
 `The calendar order could be hugely important to the 2028 presidential primary race. Democratic insiders will try to sketch out a schedule this week, and rival states are sniping at one another.`\
 https://www.nytimes.com/2026/07/22/us/politics/south-carolina-nevada-democrats-2028-presidential-calendar.html
@@ -66,7 +70,7 @@ https://www.nytimes.com/2026/07/22/opinion/odyssey-nolan-woke-debate.html
 `The YouTube star married Thea Booysen, who is also a content creator, on a private island owned by Richard Branson.`\
 https://www.nytimes.com/2026/07/22/style/mr-beast-wedding-thea-booysen.html
 
-**Model Scout Who Connected Women to Epstein Is Found Dead in France**\
+**Daniel Siad, Model Scout Who Connected Women to Epstein, Is Found Dead in France**\
 `Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
 https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/pageoneplus/corrections-july-22-2026.html
 **Tariffs Will Long Outlive Trump**\
 `We will be stuck with tariffs long after this president is out of office.`\
 https://www.nytimes.com/2026/07/22/opinion/tariffs-canada-trump-bond-market.html
-
-**Modern Love: My Disability Makes My Life Sex Life Even Hotter**\
-`The actor and filmmaker Kyla Harris has discovered creative ways to give and receive pleasure.`\
-https://www.nytimes.com/2026/07/22/podcasts/modern-love-kyla-harris-disabled-sex.html
 

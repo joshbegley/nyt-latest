@@ -1,3 +1,11 @@
+**Fire Ravaged the Glasgow School of Art. It May Cost Too Much to Restore It.**\
+`Designed by Charles Rennie Mackintosh, the Glasgow School of Art is one of Britain’s most famous buildings. The school says it can’t undertake a planned “faithful restoration” alone.`\
+https://www.nytimes.com/2026/07/22/arts/design/glasgow-school-of-art-fire.html
+
+**Daniel Siad, Model Scout Who Connected Women to Epstein, Is Found Dead in France**\
+`Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
+https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
+
 **South Carolina and Nevada Fight to Kick Off Democrats’ 2028 Presidential Calendar**\
 `The calendar order could be hugely important to the 2028 presidential primary race. Democratic insiders will try to sketch out a schedule this week, and rival states are sniping at one another.`\
 https://www.nytimes.com/2026/07/22/us/politics/south-carolina-nevada-democrats-2028-presidential-calendar.html

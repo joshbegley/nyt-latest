@@ -1,3 +1,15 @@
+**Where U.S. government data is disappearing**\
+`Plus, the quest to preserve public data.`\
+https://www.nytimes.com/2026/07/22/headway/where-us-government-data-is-disappearing.html
+
+**Judge Sets June 2027 Trial Date for Nicolás Maduro, Captured Venezuelan Leader**\
+`Mr. Maduro and his wife were seized by the U.S. military in January and have been held in a Brooklyn jail since. They have pleaded not guilty to the charges against them.`\
+https://www.nytimes.com/2026/07/22/nyregion/nicolas-maduros-trial-date.html
+
+**Una rutina de 20 minutos para fortalecer tu tren superior**\
+`Estos ejercicios pueden ayudar a mejorar tu postura y hacer que los movimientos cotidianos se sientan más cómodos.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/rutina-ejercicios-tren-superior.html
+
 **Fire Ravaged the Glasgow School of Art. It May Cost Too Much to Restore It.**\
 `Designed by Charles Rennie Mackintosh, the Glasgow School of Art is one of Britain’s most famous buildings. The school says it can’t undertake a planned “faithful restoration” alone.`\
 https://www.nytimes.com/2026/07/22/arts/design/glasgow-school-of-art-fire.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/22/business/energy-environment/red-sea-saudi-ara
 **A Mexican Town Was Known for Lettuce. Now It’s Because of Cyclospora.**\
 `In central Mexico, a lettuce-growing region has been potentially linked to an outbreak in the U.S. that has sickened thousands.`\
 https://www.nytimes.com/2026/07/22/world/americas/cyclospora-lettuce-mexico-guanajuato.html
-
-**Who Should Represent Michigan?**\
-`Times Opinion convened a panel of experts to help voters make sense of the race.`\
-https://www.nytimes.com/interactive/2026/07/22/opinion/michigan-senate-primary-election.html
-
-**Corrections: July 22, 2026**\
-`Corrections that appeared in print on Wednesday, July 22, 2026.`\
-https://www.nytimes.com/2026/07/22/pageoneplus/corrections-july-22-2026.html
-
-**Tariffs Will Long Outlive Trump**\
-`We will be stuck with tariffs long after this president is out of office.`\
-https://www.nytimes.com/2026/07/22/opinion/tariffs-canada-trump-bond-market.html
 
