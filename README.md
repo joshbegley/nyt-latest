@@ -1,3 +1,7 @@
+**Dubai Cuts Deal For New Port to Bypass Strait of Hormuz**\
+`A Dubai-based logistics giant unveiled a deal with the United Arab Emirates on Wednesday to develop a new port system that would bypass the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/22/world/dubai-cuts-deal-for-new-port-to-bypass-strait-of-hormuz.html
+
 **Nothing Can Prevent the New Wildfires. We Have to Adapt.**\
 `Suppression is not enough.`\
 https://www.nytimes.com/2026/07/22/opinion/climate-wildfires-smoke-adaptation.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/07/22/opinion/odyssey-nolan-woke-debate.html
 `The YouTube star married Thea Booysen, who is also a content creator, on a private island owned by Richard Branson.`\
 https://www.nytimes.com/2026/07/22/style/mr-beast-wedding-thea-booysen.html
 
-**Daniel Siad, Model Scout Who Connected Women to Epstein, Is Found Dead in France**\
-`Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
-https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
-
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
-`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
+`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz.`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
 

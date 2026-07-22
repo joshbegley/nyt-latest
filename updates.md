@@ -1,3 +1,7 @@
+**Nothing Can Prevent the New Wildfires. We Have to Adapt.**\
+`Suppression is not enough.`\
+https://www.nytimes.com/2026/07/22/opinion/climate-wildfires-smoke-adaptation.html
+
 **The Sex Recession Started With Millennials**\
 `The story of America’s sex recession doesn’t begin with Gen Z. Carter Sherman argues that millennials were already having less sex than previous generations — changing how we should think about what’s happening today.`\
 https://www.nytimes.com/video/opinion/100000011035171/the-sex-recession-started-with-millennials.html

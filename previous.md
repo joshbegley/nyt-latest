@@ -1,3 +1,7 @@
+**Nothing Can Prevent the New Wildfires. We Have to Adapt.**\
+`Suppression is not enough.`\
+https://www.nytimes.com/2026/07/22/opinion/climate-wildfires-smoke-adaptation.html
+
 **The Sex Recession Started With Millennials**\
 `The story of America’s sex recession doesn’t begin with Gen Z. Carter Sherman argues that millennials were already having less sex than previous generations — changing how we should think about what’s happening today.`\
 https://www.nytimes.com/video/opinion/100000011035171/the-sex-recession-started-with-millennials.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/22/style/mr-beast-wedding-thea-booysen.html
 **Daniel Siad, Model Scout Who Connected Women to Epstein, Is Found Dead in France**\
 `Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
 https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
-
-**El beso de la muerte de Trump**\
-`El presidente también es un inepto.`\
-https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
