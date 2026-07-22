@@ -1,3 +1,11 @@
+**He’s the Last Great Land Artist You’ve Never Heard Of**\
+`Charles Ross spent 50 years building “Star Axis,” a naked-eye observatory in New Mexico. Now his masterwork is ready. How to share it with a changed world?`\
+https://www.nytimes.com/2026/07/22/arts/design/charles-ross-star-axis-land-art.html
+
+**After Decades of Caution, Germany Is Shaking Up How It Makes Weapons**\
+`As threats from Moscow rise and support from Washington dwindles, the German military is reinventing how it researches, funds and wields 21st-century arms.`\
+https://www.nytimes.com/2026/07/22/world/europe/germany-rearmament-innovation-reinvention-arms.html
+
 **Trump’s New Trade Fights (and Deals)**\
 `President Trump has resumed his approach of big threats against some trading partners and generous pacts with others. Experts see new risks.`\
 https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.html
