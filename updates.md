@@ -1,3 +1,11 @@
+**Mamdani Calls Netanyahu a ‘War Criminal’ and Calls on U.S. to Arrest Him**\
+`Mayor Zohran Mamdani challenged the U.S. to execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, which New York itself cannot do.`\
+https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
+
+**Inquiry Into James Dolan’s Use of Facial Recognition Ends in Modest Fines**\
+`The New York State Liquor Authority withdrew charges that tied facial recognition systems at James Dolan’s MSG Entertainment to exclusionary practices and issued $30,000 in fines for an unrelated offense.`\
+https://www.nytimes.com/2026/07/21/nyregion/msg-dolan-fine-liquor-authority.html
+
 **Trump Administration Is Said to Reach Broad Nuclear Deal With Saudis**\
 `Some U.S. lawmakers from both parties and Israeli officials have expressed opposition to such a plan, fearing that the kingdom could use a civilian nuclear project to eventually develop nuclear weapons.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-saudi-nuclear-deal.html
