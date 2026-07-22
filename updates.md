@@ -1,3 +1,7 @@
+**Tornadoes, Floods and Thunderstorms Hit U.S.**\
+`A sprawling weather system prompted flash flood alerts and tornado warnings from Kentucky up to New England on Tuesday.`\
+https://www.nytimes.com/video/weather/100000011045921/weather-tornado-warning-floods-storm.html
+
 **Colombia, el mayor falsificador de dólares del mundo**\
 `Así siguieron el rastro de uno de los mayores maestros de la falsificación de dinero del mundo.`\
 https://www.nytimes.com/es/2026/07/22/espanol/dolares-dinero-falso-colombia.html
