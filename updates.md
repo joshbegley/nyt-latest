@@ -1,3 +1,7 @@
+**On Cats, Dystopian Novels and Sleep: The Winners of Week 5 of Our Summer Reading Contest**\
+`This week we honor a video and two essays. Congratulations to Runhu Xu, Penelope Irwin and Clarissa Tick!`\
+https://www.nytimes.com/2026/07/22/learning/on-cats-dystopian-novels-and-sleep-the-winners-of-week-5-of-our-summer-reading-contest.html
+
 **He’s the Last Great Land Artist You’ve Never Heard Of**\
 `Charles Ross spent 50 years building “Star Axis,” a naked-eye observatory in New Mexico. Now his masterwork is ready. How to share it with a changed world?`\
 https://www.nytimes.com/2026/07/22/arts/design/charles-ross-star-axis-land-art.html

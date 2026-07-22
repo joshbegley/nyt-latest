@@ -1,3 +1,7 @@
+**On Cats, Dystopian Novels and Sleep: The Winners of Week 5 of Our Summer Reading Contest**\
+`This week we honor a video and two essays. Congratulations to Runhu Xu, Penelope Irwin and Clarissa Tick!`\
+https://www.nytimes.com/2026/07/22/learning/on-cats-dystopian-novels-and-sleep-the-winners-of-week-5-of-our-summer-reading-contest.html
+
 **Trump’s New Trade Fights (and Deals)**\
 `President Trump has resumed his approach of big threats against some trading partners and generous pacts with others. Experts see new risks.`\
 https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/world/europe/germany-rearmament-innovation-re
 **Mamdani Challenges U.S. to Execute Arrest Warrant Against Netanyahu**\
 `Mayor Zohran Mamdani said New York could not execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, but he called on the United States to do so.`\
 https://www.nytimes.com/video/us/politics/100000011045919/mamdani-netanyahu-arrest-warrant.html
-
-**K-pop’s NewJeans Hints at Comeback After Monthslong Feud With Its Label**\
-`The girl group had tried to cut ties with Ador, a subsidiary of the behemoth Hybe, but a court squashed that effort.`\
-https://www.nytimes.com/2026/07/22/world/asia/newjeans-summer-comeback.html
 
