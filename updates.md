@@ -1,3 +1,7 @@
+**Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince**\
+`Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
+
 **Model Scout Who Connected Women to Epstein Is Found Dead in France**\
 `Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
 https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
