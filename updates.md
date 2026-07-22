@@ -1,3 +1,15 @@
+**‘Charlie Kirk Memorial Highway’ Signs Face Backlash From Vietnam Veterans**\
+`The signs appeared last month on a stretch of Tennessee State Route 386 north of Nashville that was designated Vietnam Veterans Boulevard nearly four decades ago.`\
+https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html
+
+**OpenAI dice que sus modelos de IA se descontrolaron y atacaron una biblioteca digital**\
+`El ataque, dirigido a los sistemas informáticos de la empresa Hugging Face, ocurrió mientras OpenAI evaluaba sus propios sistemas.`\
+https://www.nytimes.com/es/2026/07/22/espanol/negocios/openai-ataque-biblioteca-digital-hugging-face.html
+
+**Trump’s Plan for Science: More Money for A.I., Less for Universities**\
+`Michael Kratsios, President Trump’s science adviser, proposed overhauling how the government funds research. Democrats said Mr. Trump’s actions had weakened science.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-research-funding-artificial-intelligence.html
+
 **Trump Plan for ‘Golden Age’ of Science: More Money for A.I., Less for Universities**\
 `Michael Kratsios, President Trump’s science adviser, proposed overhauling how the government funds research. Democrats said Mr. Trump’s actions had weakened science.`\
 https://www.nytimes.com/2026/07/22/us/politics/trump-research-funding-artificial-intelligence.html
