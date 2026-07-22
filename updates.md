@@ -1,3 +1,7 @@
+**Trump’s New Insult Won’t Save Republicans**\
+`The president’s attempt to drum up a third red scare is certain to fail.`\
+https://www.nytimes.com/2026/07/22/opinion/trump-red-scare-midterms.html
+
 **My Stepdaughter’s College Was Paid For. Do We Have to Cover Grad School?**\
 `She’s angry that we saved for her siblings’ college educations but not for hers.`\
 https://www.nytimes.com/2026/07/22/magazine/college-tuition-stepdaughter-ethics.html

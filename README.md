@@ -1,3 +1,7 @@
+**Los casos de ciclosporiasis en EE. UU. alcanzan un máximo histórico**\
+`Funcionarios federales de salud confirman otros 2500 casos de la infección parasitaria.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/ciclosporiasis-ee-uu-maximo-historico.html
+
 **My Stepdaughter’s College Was Paid For. Do We Have to Cover Grad School?**\
 `She’s angry that we saved for her siblings’ college educations but not for hers.`\
 https://www.nytimes.com/2026/07/22/magazine/college-tuition-stepdaughter-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/nyregion/for-bats-new-yorks-a-wonderful-town.
 **At a Utah Campus, an Emotional Odyssey After Charlie Kirk’s Death**\
 `Since Mr. Kirk was gunned down at Utah Valley University, the school and its students have struggled to find a way forward.`\
 https://www.nytimes.com/2026/07/22/us/charlie-kirk-utah-valley-university.html
-
-**Marlboro Music: Where Artists Have Time to Chase Perfection**\
-`The Marlboro Music Festival, now in its 75th summer, allows artists to practice for however long they’d like, with no pressure to perform.`\
-https://www.nytimes.com/2026/07/22/arts/music/marlboro-music-festival-75.html
 
