@@ -1,3 +1,7 @@
+**Election Denier Wins G.O.P. Nomination to Be Arizona’s Top Election Official**\
+`State Representative Alexander Kolodin will take on Adrian Fontes, the incumbent Democratic secretary of state, after defeating a more moderate Republican in the primary.`\
+https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-secretary-of-state-alexander-kolodin-wins.html
+
 **Trump Pick Wins G.O.P. Nomination to Challenge Arizona Governor**\
 `Representative Andy Biggs, a conservative Republican and an ally of the president, will try to unite Republicans against Gov. Katie Hobbs in a crucial swing state.`\
 https://www.nytimes.com/2026/07/21/us/elections/arizona-governor-andy-biggs-republican-primary.html
