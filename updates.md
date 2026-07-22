@@ -1,3 +1,15 @@
+**Japan Is Startled by Prime Minister’s Grueling Sleep Schedule**\
+`Sanae Takaichi has said she gets just “zero to three hours” of sleep a night, prompting a debate in the country over work-life balance.`\
+https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html
+
+**‘The Daily Show’ Tackles Trump’s Latest Move in His ‘War on Canada’**\
+`“Fighting again with Canada?” Desi Lydic said about the president imposing new tariffs on the country. “I thought we were going to work this ‘oot.’”`\
+https://www.nytimes.com/2026/07/22/arts/television/desi-lydic-trump-canada-tariffs.html
+
+**El audaz escape de una familia de Corea del Norte**\
+`Su determinación de alcanzar la libertad se fortaleció durante la pandemia, cuando vivieron una devastadora escasez de alimentos y se vieron obligados a presenciar frecuentes ejecuciones públicas.`\
+https://www.nytimes.com/es/2026/07/22/espanol/mundo/corea-norte-escape-desertores.html
+
 **6 Takeaways From Arizona’s Tense, Trump-Dominated Primaries**\
 `Republicans nominated a former N.F.L. kicker in a top House battleground, a Trump loyalist for governor and an election denier for the state’s top election post.`\
 https://www.nytimes.com/2026/07/22/us/politics/arizona-primary-takeaways.html

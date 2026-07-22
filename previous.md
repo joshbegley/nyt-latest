@@ -1,3 +1,15 @@
+**Japan Is Startled by Prime Minister’s Grueling Sleep Schedule**\
+`Sanae Takaichi has said she gets just “zero to three hours” of sleep a night, prompting a debate in the country over work-life balance.`\
+https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html
+
+**‘The Daily Show’ Tackles Trump’s Latest Move in His ‘War on Canada’**\
+`“Fighting again with Canada?” Desi Lydic said about the president imposing new tariffs on the country. “I thought we were going to work this ‘oot.’”`\
+https://www.nytimes.com/2026/07/22/arts/television/desi-lydic-trump-canada-tariffs.html
+
+**El audaz escape de una familia de Corea del Norte**\
+`Su determinación de alcanzar la libertad se fortaleció durante la pandemia, cuando vivieron una devastadora escasez de alimentos y se vieron obligados a presenciar frecuentes ejecuciones públicas.`\
+https://www.nytimes.com/es/2026/07/22/espanol/mundo/corea-norte-escape-desertores.html
+
 **6 Takeaways From Arizona’s Tense, Trump-Dominated Primaries**\
 `Republicans nominated a former N.F.L. kicker in a top House battleground, a Trump loyalist for governor and an election denier for the state’s top election post.`\
 https://www.nytimes.com/2026/07/22/us/politics/arizona-primary-takeaways.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/21/business/oil-red-sea-houthis.html
 **Review Says Gates Foundation Did Not Participate in Epstein Crimes**\
 `A review by an outside law firm hired by the Gates Foundation investigated only the philanthropy and not Mr. Gates or his private office.`\
 https://www.nytimes.com/2026/07/21/business/gates-foundation-epstein.html
-
-**Here is the official plan to fix issues at Rikers Island**\
-`The official in charge of fixing New York City’s troubled jails submitted a plan to a federal judge on Tuesday to improve conditions at Rikers Island, calling for changes to investigations and discipline, as well as to some infrastructure.`\
-https://www.nytimes.com/interactive/2026/07/21/nyregion/rikers-plan.html
-
-**Zelensky Dismisses Ukraine’s Top General After Protests**\
-`The move followed the firing of a popular defense minister, who had clashed with the general over how to fight the war.`\
-https://www.nytimes.com/2026/07/21/world/europe/ukraine-syrskyi-russia-war-fedorov-zelensky-protest.html
-
-**Troy Jackson Tightens Hold on Democratic Senate Nomination in Maine**\
-`State Democrats released a ballot for their nominating convention on Saturday that includes Mr. Jackson and two long-shot candidates with little public support from delegates.`\
-https://www.nytimes.com/2026/07/21/us/politics/troy-jackson-maine-senate-democrats.html
 
