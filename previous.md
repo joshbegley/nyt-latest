@@ -1,3 +1,7 @@
+**Trump Administration Is Said to Reach Broad Nuclear Deal With Saudis**\
+`Some U.S. lawmakers from both parties and Israeli officials have expressed opposition to such a plan, fearing that the kingdom could use a civilian nuclear project to eventually develop nuclear weapons.`\
+https://www.nytimes.com/2026/07/21/us/politics/trump-saudi-nuclear-deal.html
+
 **House Narrowly Passes Stopgap Spending Bill, but Shutdown Fight Looms**\
 `Republicans managed to push through legislation to fund the government through Dec. 4. But with Democrats opposed, the stage is set for a broader battle.`\
 https://www.nytimes.com/2026/07/21/us/politics/house-stopgap-spending-bill-shutdown.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/21/espanol/cultura/kaylee-hottle-actriz-godzi
 **El caso de Maduro podría estar a punto de dar un giro**\
 `Cuando el líder depuesto vuelva a la corte, los fiscales federales podrían encontrar un obstáculo: los tribunales de EE. UU. no tienen autoridad para juzgarlo.`\
 https://www.nytimes.com/es/2026/07/21/espanol/opinion/nicolas-maduro-extradicion.html
-
-**G.O.P. Lawmakers Join White House in Challenging a Smithsonian Museum**\
-`A House subcommittee questioned the director of the National Museum of American History after a scathing White House report characterized it as insufficiently patriotic.`\
-https://www.nytimes.com/2026/07/21/arts/design/trump-republicans-smithsonian-american-history.html
 

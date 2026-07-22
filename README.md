@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/07/21/business/trump-tariffs-generic-drugs.html
 https://www.nytimes.com/video/world/europe/100000011045087/zelensky-fires-ukraines-top-general-after-days-of-protests.html
 
 **Inquiry Into James Dolan’s Use of Facial Recognition Ends in Modest Fines**\
-`The New York Liquor Authority withdrew charges that tied facial recognition systems at James Dolan’s MSG Entertainment to exclusionary practices and issued $30,000 in fines for an unrelated offense.`\
+`The New York State Liquor Authority withdrew charges that tied facial recognition systems at James Dolan’s MSG Entertainment to exclusionary practices and issued $30,000 in fines for an unrelated offense.`\
 https://www.nytimes.com/2026/07/21/nyregion/msg-dolan-fine-liquor-authority.html
 
 **Trump Lifts Ban on Direct Flights to Lebanon**\

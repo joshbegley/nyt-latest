@@ -1,3 +1,7 @@
+**Trump Administration Is Said to Reach Broad Nuclear Deal With Saudis**\
+`Some U.S. lawmakers from both parties and Israeli officials have expressed opposition to such a plan, fearing that the kingdom could use a civilian nuclear project to eventually develop nuclear weapons.`\
+https://www.nytimes.com/2026/07/21/us/politics/trump-saudi-nuclear-deal.html
+
 **House Narrowly Passes Stopgap Spending Bill, but Shutdown Fight Looms**\
 `Republicans managed to push through legislation to fund the government through Dec. 4. But with Democrats opposed, the stage is set for a broader battle.`\
 https://www.nytimes.com/2026/07/21/us/politics/house-stopgap-spending-bill-shutdown.html
