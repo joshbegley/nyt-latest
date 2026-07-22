@@ -1,3 +1,7 @@
+**Mamdani Calls Netanyahu a ‘War Criminal’ and Calls on U.S. to Arrest Him**\
+`Mayor Zohran Mamdani challenged the United States to execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, which New York itself cannot do.`\
+https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
+
 ****\
 `Mayor Zohran Mamdani, in an interview published Saturday, described what he would do when Prime Minister Benjamin Netanyahu comes to New York City for the United Nations General Assembly.`\
 https://www.nytimes.com/video/embedded/nyregion/100000011045753/21vid-met-mamdani-netanyahu-theintv-46801.html
