@@ -1,3 +1,15 @@
+**Intimidation Charges Dismissed Against Louisiana Attorney General**\
+`Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’ Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
+https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html
+
+**Sony Revives Cinerama Dome in Los Angeles as Box Office Sales Rebound**\
+`The iconic Cinerama Dome and adjacent 14-screen theater complex will reopen in 2028 after a renovation. The venue closed in 2020 because of the pandemic.`\
+https://www.nytimes.com/2026/07/22/business/media/cinerama-dome-sony-pictures-hollywood.html
+
+**Dunes Sagebrush Lizard Stripped of Endangered Status by Judge**\
+`The dunes sagebrush lizard, found only in the oil-rich Permian Basin, was classified as endangered two years ago.`\
+https://www.nytimes.com/2026/07/22/climate/dunes-sagebrush-lizard-trump.html
+
 **Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
 `Tenisha Delilah Warner said in a lawsuit filed in Georgia that she was entitled to the money according to a premarital agreement.`\
 https://www.nytimes.com/2026/07/22/us/malcolm-jamal-warner-wife-family-dispute-lawsuit.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal
 **Conoce a Jimothy, el mapache que se apodera de Instagram**\
 `Un mapache de Seattle con una afección en la columna ha pasado de ser una leyenda local a una celebridad internacional luego de que varios videos en los que aparece circularan en las redes sociales.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/jimothy-mapache-instagram.html
-
-**Stocks and the Economy Are Increasingly Relying on the A.I. Boom**\
-`Investment in artificial intelligence and related companies is lifting the stock market and spending across the economy.`\
-https://www.nytimes.com/2026/07/22/business/economy/stocks-economy-ai.html
-
-**OpenAI Sued Over ChatGPT’s ‘Dangerous’ Health Advice**\
-`The case appears to be the first to argue that a chatbot’s advice harmed someone seeking guidance about a medical condition.`\
-https://www.nytimes.com/2026/07/22/well/openai-chatgpt-health-lawsuit.html
-
-**Perdido en el mar, el Pan Am Clipper Endeavor es hallado tras más de 70 años**\
-`Cincuenta y dos de las 69 personas a bordo del avión murieron cuando se estrelló frente a la costa de Puerto Rico y se hundió hasta el fondo del océano Atlántico.`\
-https://www.nytimes.com/es/2026/07/22/espanol/mundo/panam-clipper-hallazgo-atlantico.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
