@@ -1,3 +1,7 @@
+**Perdido en el mar, el Pan Am Clipper Endeavor es hallado tras más de 70 años**\
+`Cincuenta y dos de las 69 personas a bordo del avión murieron cuando se estrelló frente a la costa de Puerto Rico y se hundió hasta el fondo del océano Atlántico.`\
+https://www.nytimes.com/es/2026/07/22/espanol/mundo/panam-clipper-hallazgo-atlantico.html
+
 **A Mexican Town Was Known for Lettuce. Now It’s Because of Cyclospora.**\
 `In central Mexico, a lettuce-growing region has been potentially linked to an outbreak in the U.S. that has sickened thousands.`\
 https://www.nytimes.com/2026/07/22/world/americas/cyclospora-lettuce-mexico-guanajuato.html
