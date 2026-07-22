@@ -1,3 +1,15 @@
+**Trump’s New Trade Fights (and Deals)**\
+`President Trump has resumed his approach of big threats against some trading partners and generous pacts with others. Experts see new risks.`\
+https://www.nytimes.com/2026/07/22/business/dealbook/trump-trade-saudi-canada.html
+
+**Tate Museums Taps Leader of Dia Art Foundation as Next Director**\
+`After leading the Dia Art Foundation for over a decade, Jessica Morgan is returning to London to run Tate at a challenging time for the renowned group of art museums.`\
+https://www.nytimes.com/2026/07/22/arts/design/tate-museums-jessica-morgan-director.html
+
+**Expected U.S.-Saudi Nuclear Deal Fuels Israeli Concerns of Regional Arms Race**\
+`An Israeli minister sought to downplay the deal, but critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
+
 **Global Oil Price Jumps as War Threats Intensify**\
 `The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
