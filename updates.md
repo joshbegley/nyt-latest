@@ -1,3 +1,11 @@
+**South Carolina and Nevada Fight to Kick Off Democrats’ 2028 Presidential Calendar**\
+`The calendar order could be hugely important to the 2028 presidential primary race. Democratic insiders will try to sketch out a schedule this week, and rival states are sniping at one another.`\
+https://www.nytimes.com/2026/07/22/us/politics/south-carolina-nevada-democrats-2028-presidential-calendar.html
+
+**‘The Vampire Lestat’ Was a Dissonant Viewing Experience**\
+`This season of “The Vampire Lestat” featured an outstanding lead performance but an unrecognizable title character.`\
+https://www.nytimes.com/2026/07/22/arts/television/the-vampire-lestat-season-finale.html
+
 **With 2 Hires, Mamdani Blends Economic Development With Economic Justice**\
 `Anthony E. Shorris, a former deputy mayor and a partner at McKinsey, and Lina Khan, the former chair of the Federal Trade Commission, will lead the city’s Economic Development Corporation.`\
 https://www.nytimes.com/2026/07/22/nyregion/lina-khan-shorris-edc-mamdani.html

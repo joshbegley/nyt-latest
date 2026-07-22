@@ -1,3 +1,11 @@
+**South Carolina and Nevada Fight to Kick Off Democrats’ 2028 Presidential Calendar**\
+`The calendar order could be hugely important to the 2028 presidential primary race. Democratic insiders will try to sketch out a schedule this week, and rival states are sniping at one another.`\
+https://www.nytimes.com/2026/07/22/us/politics/south-carolina-nevada-democrats-2028-presidential-calendar.html
+
+**‘The Vampire Lestat’ Was a Dissonant Viewing Experience**\
+`This season of “The Vampire Lestat” featured an outstanding lead performance but an unrecognizable title character.`\
+https://www.nytimes.com/2026/07/22/arts/television/the-vampire-lestat-season-finale.html
+
 **With 2 Hires, Mamdani Blends Economic Development With Economic Justice**\
 `Anthony E. Shorris, a former deputy mayor and a partner at McKinsey, and Lina Khan, the former chair of the Federal Trade Commission, will lead the city’s Economic Development Corporation.`\
 https://www.nytimes.com/2026/07/22/nyregion/lina-khan-shorris-edc-mamdani.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/22/opinion/tariffs-canada-trump-bond-market.html
 **Modern Love: My Disability Makes My Life Sex Life Even Hotter**\
 `The actor and filmmaker Kyla Harris has discovered creative ways to give and receive pleasure.`\
 https://www.nytimes.com/2026/07/22/podcasts/modern-love-kyla-harris-disabled-sex.html
-
-**Even the Architects Said the Build Would Be Nearly Impossible**\
-`An architect and his client overcame a steep site and regulatory hurdles to build a 730-square-foot house that hovers over the water in Sonoma County, Calif.`\
-https://www.nytimes.com/2026/07/22/realestate/even-the-architects-said-the-build-would-be-nearly-impossible.html
-
-**‘White Nights’: A Loner’s All-Consuming Crush**\
-`Immaculately realized and restored, Luchino Visconti’s adaptation of Dostoyevsky’s short story about a chance encounter on a bridge arrives at Film Forum.`\
-https://www.nytimes.com/2026/07/22/movies/white-nights-film-forum.html
 
