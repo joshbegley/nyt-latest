@@ -1,3 +1,7 @@
+**‘Help Never Came.’ Canadian Wildfire Evacuees Want to Know Why.**\
+`Residents of northwestern Ontario say their warnings about fires they spotted were dismissed and official information as the flames spread often didn’t come at all.`\
+https://www.nytimes.com/2026/07/22/world/canada/ontario-wildfires-canada-smoke.html
+
 **Where U.S. government data is disappearing**\
 `Plus, the quest to preserve public data.`\
 https://www.nytimes.com/2026/07/22/headway/where-us-government-data-is-disappearing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/opinion/five-star-weekend-women-aging.html
 **See How Houthis Put the Red Sea at Risk as an Alternative Oil Route**\
 `Saudi Arabia has diverted huge amounts of oil to the Red Sea since the Iran war began, but now the Iranian-backed Houthi militants say that they intend to block that route.`\
 https://www.nytimes.com/2026/07/22/business/energy-environment/red-sea-saudi-arabia-houthis.html
-
-**A Mexican Town Was Known for Lettuce. Now It’s Because of Cyclospora.**\
-`In central Mexico, a lettuce-growing region has been potentially linked to an outbreak in the U.S. that has sickened thousands.`\
-https://www.nytimes.com/2026/07/22/world/americas/cyclospora-lettuce-mexico-guanajuato.html
 
