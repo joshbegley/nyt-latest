@@ -1,3 +1,11 @@
+**Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
+`Tenisha Delilah Warner said in a lawsuit filed in Georgia that she was entitled to the money according to a premarital agreement.`\
+https://www.nytimes.com/2026/07/22/us/malcolm-jamal-warner-wife-family-dispute-lawsuit.html
+
+**Lo que hay que saber sobre los aranceles de Trump a Canadá y qué viene después**\
+`El presidente dijo que los aranceles del 50 por ciento comenzarían a más tardar el 19 de agosto, una escalada significativa de la guerra comercial entre Canadá y EE. UU. que inició hace más de un año.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-canada-aranceles-acuerdo-comercial.html
+
 **Lawsuit Against Meta Over Social Media Addiction Is Dropped**\
 `For Meta, the move was a reprieve after it and YouTube were found guilty in another case in March of negligence and personal injury for their platforms’ addictive features.`\
 https://www.nytimes.com/2026/07/22/technology/meta-social-media-lawsuit.html
