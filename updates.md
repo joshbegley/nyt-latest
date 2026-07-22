@@ -1,3 +1,19 @@
+**Deep in This Lake, a Contagious Cancer Is Spreading**\
+`Transmissible tumors have been reported in a handful of animal species, but never before among fish. Is it possible in humans?`\
+https://www.nytimes.com/2026/07/22/science/contagious-cancer-catfish.html
+
+**Rubio and Chinese Diplomat Make Plans for Trump and Xi’s Washington Summit**\
+`Secretary of State Marco Rubio spent much of a meeting with China’s foreign minister discussing the summit, but did not bring up President Trump’s claims of election interference by China.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-xi-rubio-manila-china.html
+
+**Today, In Short**\
+`Jimothy. Charlie Kirk. And botanical gardens.`\
+https://www.nytimes.com/2026/07/22/briefing/today-in-short.html
+
+**How Our Reporters Linked Big Vehicles to Pedestrian Deaths**\
+`A New York Times investigation found that the large trucks and S.U.V.s on American roads today are far more lethal than their predecessors.`\
+https://www.nytimes.com/2026/07/22/insider/truck-suv-crash-investigation.html
+
 **Shooting Ranges Go Quiet Luxury**\
 `Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
 https://www.nytimes.com/2026/07/22/style/gun-club-the-range-los-angeles.html
