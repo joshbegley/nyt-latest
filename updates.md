@@ -1,3 +1,11 @@
+****\
+`Mayor Zohran Mamdani, in an interview published Saturday, described what he would do when Prime Minister Benjamin Netanyahu comes to New York City for the United Nations General Assembly.`\
+https://www.nytimes.com/video/embedded/nyregion/100000011045753/21vid-met-mamdani-netanyahu-theintv-46801.html
+
+**Saudis Reach Deal With U.S. That Could Let Them Enrich Nuclear Fuel**\
+`U.S. lawmakers and Israeli officials have expressed opposition to such a plan, to be announced Wednesday, fearing that the kingdom could use a civilian nuclear project to develop nuclear weapons.`\
+https://www.nytimes.com/2026/07/21/us/politics/trump-saudi-nuclear-deal.html
+
 **Election Denier Wins G.O.P. Nomination to Be Arizona’s Top Election Official**\
 `State Representative Alexander Kolodin will take on Adrian Fontes, the incumbent Democratic secretary of state, after defeating a more moderate Republican in the primary.`\
 https://www.nytimes.com/2026/07/21/us/elections/arizona-primary-secretary-of-state-alexander-kolodin-wins.html
