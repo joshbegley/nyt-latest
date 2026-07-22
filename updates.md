@@ -1,3 +1,11 @@
+**El beso de la muerte de Trump**\
+`El presidente también es un inepto.`\
+https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html
+
+**U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race**\
+`An Israeli minister sought to downplay the expected deal, but critics said it could spur other regional countries to pursue a nuclear program, and potentially the creation of a bomb.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html
+
 **Coveted U.S. Nuclear Deal is a Coup for Saudi Crown Prince**\
 `Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html

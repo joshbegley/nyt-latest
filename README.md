@@ -1,3 +1,7 @@
+**Model Scout Who Connected Women to Epstein Is Found Dead in France**\
+`Daniel Siad, who was found dead on Monday, repeatedly introduced Jeffrey Epstein to young women, according to messages he exchanged with Mr. Epstein. Mr. Siad had denied wrongdoing.`\
+https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html
+
 **El beso de la muerte de Trump**\
 `El presidente también es un inepto.`\
 https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html
@@ -172,7 +176,7 @@ https://www.nytimes.com/2026/07/22/travel/vacation-destinations-warsaw-bangkok-b
 
 **Six Years After a Reckoning, Criterion Puts ‘Cinematic Blackness’ in Focus**\
 `Adding a curator, the Criterion Collection expanded its offerings and its vision of Black film. But auteurs continue to push the company on what inclusion means.`\
-https://www.nytimes.com/2026/07/22/arts/six-years-after-a-reckoning-criterion-puts-cinematic-blackness-in-focus.html
+https://www.nytimes.com/2026/07/22/arts/criterion-collection-black-film.html
 
 **A ‘Disgustingly Beautiful’ Glass-Brick Renovation Makes Its Mark**\
 `A historic building in TriBeCa stood out for its short stature. A glass-brick addition was the unconventional solution.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/us/laura-doyle-surrendered-wife.html
 **Kenneth Blume Steps Out of Kenny Beats’s Shadow**\
 `The hitmaker formerly known as Kenny Beats was behind breakthrough albums for Geese, Vince Staples, Idles and Fcukers. On a new solo project, he turns his focus inward.`\
 https://www.nytimes.com/2026/07/22/arts/music/kenneth-blume-kenny-beats-geese.html
-
-**Word of the Day: fatuous**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/22/learning/word-of-the-day-fatuous.html
 
