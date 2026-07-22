@@ -1,3 +1,7 @@
+**Tornadoes Are Reported in Kentucky as Storms Sweep Across U.S.**\
+`Storms set off tornado warnings all the way to New York on Tuesday. Forecasters also warned of flash flooding.`\
+https://www.nytimes.com/2026/07/21/weather/kentucky-tornado-wind-storm.html
+
 **Japan Is Startled by Prime Minister’s Grueling Sleep Schedule**\
 `Sanae Takaichi has said she gets just “zero to three hours” of sleep a night, prompting a debate in the country over work-life balance.`\
 https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html

@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/07/21/nyregion/msg-dolan-fine-liquor-authority.html
 `The prohibition had been in place since 1985, when it was imposed in response to Hezbollah’s hijacking of TWA Flight 847.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-lebanon-flights-ban.html
 
-**Tornadoes Are Reported in Kentucky as Storms Sweep Across the U.S.**\
+**Tornadoes Are Reported in Kentucky as Storms Sweep Across U.S.**\
 `Storms set off tornado warnings all the way to New York on Tuesday. Forecasters also warned of flash flooding.`\
 https://www.nytimes.com/2026/07/21/weather/kentucky-tornado-wind-storm.html
 
