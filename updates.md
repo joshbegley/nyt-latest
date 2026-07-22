@@ -1,3 +1,7 @@
+**Trump Administration Plans to Stick With Tariffs, Trade Representative Says**\
+`Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
+https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
+
 **Deep in This Lake, a Contagious Cancer Is Spreading**\
 `Transmissible tumors have been reported in a handful of animal species, but never before among fish. Is it possible in humans?`\
 https://www.nytimes.com/2026/07/22/science/contagious-cancer-catfish.html
