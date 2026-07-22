@@ -1,3 +1,11 @@
+**James Woolsey, Embattled C.I.A. Director Under Clinton, Dies at 84**\
+`He arrived in Washington a conservative Democrat and drifted rightward, supporting the 2003 invasion of Iraq and Donald J. Trump’s 2016 presidential bid.`\
+https://www.nytimes.com/2026/07/22/us/james-woolsey-dead.html
+
+**Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince**\
+`Saudi Arabia had for years sought the controversial deal to obtain American nuclear technology. It is expected to be sealed on Wednesday, deepening U.S.-Saudi ties for decades to come.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
+
 **Trump’s Trade Negotiator Doubles Down on Tariffs Before Global Duties Expire**\
 `Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
 https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
