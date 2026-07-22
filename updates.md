@@ -1,3 +1,15 @@
+**Intimidation Charges Dismissed Against Louisiana Attorney General**\
+`Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’ Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
+https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html
+
+**Sony Revives Cinerama Dome in Los Angeles as Box Office Sales Rebound**\
+`The iconic Cinerama Dome and adjacent 14-screen theater complex will reopen in 2028 after a renovation. The venue closed in 2020 because of the pandemic.`\
+https://www.nytimes.com/2026/07/22/business/media/cinerama-dome-sony-pictures-hollywood.html
+
+**Dunes Sagebrush Lizard Stripped of Endangered Status by Judge**\
+`The dunes sagebrush lizard, found only in the oil-rich Permian Basin, was classified as endangered two years ago.`\
+https://www.nytimes.com/2026/07/22/climate/dunes-sagebrush-lizard-trump.html
+
 **Gen Z-ers Are Ditching Sex. They Might Be Onto Something.**\
 `Is celibacy cool now?`\
 https://www.nytimes.com/2026/07/22/opinion/gen-z-sex-celibacy-relationships.html
