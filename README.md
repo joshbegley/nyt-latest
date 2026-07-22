@@ -1,3 +1,7 @@
+**Dirty Lettuce**\
+`We look into the cyclospora outbreak.`\
+https://www.nytimes.com/2026/07/22/briefing/cyclospora-outbreak.html
+
 **Ukraine’s New Military Chief Faces a Monumental Test**\
 `Maj. Gen. Mykhailo Drapatyi faces a balancing act between asserting the independence favored by military reformers and accommodating political input on battlefield strategy.`\
 https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.html
@@ -14,13 +18,13 @@ https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
 `A new law aims to speed up building housing around the country. At the same time, the construction sector is reliant on foreign-born workers.`\
 https://www.nytimes.com/2026/07/22/podcasts/the-daily/trump-housing-immigrants.html
 
-**Trump Reaches Contentious New Nuclear Deal, and A.I. Models Go Rogue**\
-`Plus, what is a Jimothy?`\
-https://www.nytimes.com/2026/07/22/podcasts/the-headlines/trump-nuclear-deal-ai-model-rogue.html
-
 **NYT Connections Answers for July 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
 https://www.nytimes.com/2026/07/22/crosswords/connections-companion-1138.html
+
+**Trump Reaches Contentious New Nuclear Deal, and A.I. Models Go Rogue**\
+`Plus, what is a Jimothy?`\
+https://www.nytimes.com/2026/07/22/podcasts/the-headlines/trump-nuclear-deal-ai-model-rogue.html
 
 **Today’s Wordle Hints for July 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/22/espanol/dolares-dinero-falso-colombia.html
 **Man Who Attacked Salman Rushdie Faces Terrorism Charges in Federal Trial**\
 `Mr. Rushdie is expected to testify against Hadi Matar, the man who repeatedly stabbed him in 2022. Mr. Matar’s lawyers argue that he acted on his own, not on behalf of Iran.`\
 https://www.nytimes.com/2026/07/22/nyregion/salman-rushdie-hadi-matar-terror-trial.html
-
-**NYT Spelling Bee Answers for July 22, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/22/crosswords/spelling-bee-forum.html
 
