@@ -122,9 +122,9 @@ https://www.nytimes.com/2026/07/22/movies/fast-charlie-lucky-grandma-and-more-st
 `The economy of Laredo, Texas, has boomed under the president’s global tariffs. Now, his demands may threaten its success.`\
 https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-laredo-trade-mexico.html
 
-**He’s the Last Great Land Artist You’ve Never Heard of**\
-`Charles Ross spent 50 years building  “Star Axis,” a naked-eye observatory in New Mexico. Now his masterwork is ready. How to share it with a changed world?`\
-https://www.nytimes.com/2026/07/22/arts/design/hes-the-last-great-land-artist-youve-never-heard-of.html
+**He’s the Last Great Land Artist You’ve Never Heard Of**\
+`Charles Ross spent 50 years building “Star Axis,” a naked-eye observatory in New Mexico. Now his masterwork is ready. How to share it with a changed world?`\
+https://www.nytimes.com/2026/07/22/arts/design/charles-ross-star-axis-land-art.html
 
 **A Hiker Confronts His Fear of Heights at Ausable Chasm in Upstate N.Y.**\
 `A jittery hiker signed up for a via ferrata tour on the cliffs of an Adirondacks gorge. Here’s what he learned on the ledges, rungs and exposed bridges.`\
@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/07/22/books/review/language-of-liars-antimemetics-m
 `The fledgling firm, run by the president’s oldest son and his partner Omeed Malik, has made investments in A.I. and defense technology that have tripled in value in just months.`\
 https://www.nytimes.com/2026/07/22/business/donald-trump-jr-1789-capital.html
 
-**Germany’s Military Buyers Look to Reduce Caution and Embrace Drones**\
+**After Decades of Caution, Germany Is Shaking Up How It Makes Weapons**\
 `As threats from Moscow rise and support from Washington dwindles, the German military is reinventing how it researches, funds and wields 21st-century arms.`\
 https://www.nytimes.com/2026/07/22/world/europe/germany-rearmament-innovation-reinvention-arms.html
 
