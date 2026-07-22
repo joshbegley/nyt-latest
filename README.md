@@ -1,3 +1,7 @@
+**James Woolsey, Embattled C.I.A. Director Under Clinton, Dies at 84**\
+`He arrived in Washington a conservative Democrat and drifted rightward, supporting the 2003 invasion of Iraq and Donald J. Trump’s 2016 presidential bid.`\
+https://www.nytimes.com/2026/07/22/us/james-woolsey-dead.html
+
 **House Republicans Have Tied the Defense Policy Bill to Trump’s SAVE Act**\
 `House Republicans have tied their entire legislative agenda to President Trump’s voting restriction measure, as he has demanded.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-gop-defense-bill-trump-voter-id.html
@@ -111,7 +115,7 @@ https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-s
 https://www.nytimes.com/es/2026/07/22/espanol/opinion/trump-segundo-mandato-ineptitud.html
 
 **Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince**\
-`Saudi Arabia had for years sought the controversial deal to transfer American nuclear technology to the kingdom. It is expected to be sealed on Wednesday.`\
+`Saudi Arabia had for years sought the controversial deal to obtain American nuclear technology. It is expected to be sealed on Wednesday, deepening U.S.-Saudi ties for decades to come.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html
 
 **Conoce a Jimothy, el mapache que se apodera de Instagram**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/crosswords/strands-sidekick-872.html
 **¿Aquí comenzó el brote de ‘Cyclospora’? Una región de México espera la respuesta**\
 `Con miles de casos reportados en Estados Unidos, la investigación sobre el brote alimenta el temor a nuevas restricciones sobre los productos agrícolas mexicanos.`\
 https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclospora-lechuga-taylor-farms.html
-
-**Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
-`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
-https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
 
