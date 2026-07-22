@@ -1,3 +1,27 @@
+**The Next Big Tests for the Left: Michigan, Wisconsin and Minnesota**\
+`Progressives are now fighting in swingier terrain in purple or light-blue states.`\
+https://www.nytimes.com/2026/07/22/us/politics/progressives-michigan-wisconsin-minnesota.html
+
+**House Republicans Pass Stock Trading Bill Tied to SAVE Act and Voter ID Measure**\
+`The measure has drawn bipartisan backing amid a public outcry against the practice, but Democrats opposed it after Republicans added a voter ID requirement.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-bill-stock-trades-congress.html
+
+**Hitler’s Birthplace in Austria Becomes a Police Station**\
+`The Austrian government has turned the building where Adolf Hitler was born into a police station in an attempt to deter the site from becoming an attraction for Nazi sympathizers. The building opened on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000011046889/hitlers-birthplace-in-austria-becomes-a-police-station.html
+
+**Saudi Arabia’s Nuclear Plans**\
+`The U.S. will help the Saudis develop a civilian nuclear program, with uncertain consequences for the Middle East.`\
+https://www.nytimes.com/2026/07/22/world/saudi-nuclear-deal-trump-houthis.html
+
+**Trump Administration Says Surprise Billing Law Is Being ‘Gamed’ by Doctors**\
+`For the first time, officials have acknowledged problems with the No Surprises Act, which has led to huge payments.`\
+https://www.nytimes.com/2026/07/22/upshot/doctors-huge-payments-trump.html
+
+**Hitler’s Birthplace in Austria Is Now a Police Station**\
+`The government repurposed the 17th-century building in hopes of preventing the site from becoming an attraction for Nazi sympathizers.`\
+https://www.nytimes.com/2026/07/22/world/europe/hitler-birthplace-austria-police-station.html
+
 **House Passes Defense Bill Amid Iran War Divide**\
 `Republicans pushed through the $1.15 trillion bill over opposition from Democrats, who said backing it was akin to embracing the war.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-defense-bill-iran-war.html
