@@ -1,3 +1,11 @@
+**El juicio de Nicolás Maduro comenzaría en junio de 2027**\
+`Maduro y Cilia Flores, su esposa, fueron capturados por el ejército estadounidense en enero y desde entonces han estado recluidos en una cárcel de Brooklyn. Se han declarado no culpables de los cargos en su contra.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/nicolas-maduro-juicio-fechas.html
+
+**U.S. Signs Deal to Help Saudis Obtain Nuclear Power**\
+`The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
+https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
+
 **U.S. Signs Deal That Could Help Saudis Enrich Nuclear Fuel**\
 `The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
 https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
