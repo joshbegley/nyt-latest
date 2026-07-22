@@ -1,3 +1,7 @@
+**U.S. Signs Deal That Could Help Saudis Enrich Nuclear Fuel**\
+`The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
+https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
+
 **U.S. Signs Deal That Could Let Saudis Enrich Nuclear Fuel**\
 `The accord is intended to further bind the United States with the Saudi government as the war with Iran strains the relationship.`\
 https://www.nytimes.com/2026/07/22/us/trump-saudi-nuclear-deal.html
