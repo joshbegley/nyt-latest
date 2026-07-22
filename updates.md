@@ -1,3 +1,7 @@
+**A Mexican Town Was Known for Lettuce. Now It’s Because of Cyclospora.**\
+`In central Mexico, a lettuce-growing region has been potentially linked to an outbreak in the U.S. that has sickened thousands.`\
+https://www.nytimes.com/2026/07/22/world/americas/cyclospora-lettuce-mexico-guanajuato.html
+
 **Trump’s 50% Tariffs on Canada: What to Know, and What’s Next**\
 `The president said punishing 50 percent tariffs would begin by Aug. 19, a significant escalation of the trade war between Canada and the U.S. that he started over a year ago.`\
 https://www.nytimes.com/2026/07/22/world/canada/canada-trump-tariffs-trade.html

@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/07/22/opinion/five-star-weekend-women-aging.html
 `Saudi Arabia has diverted huge amounts of oil to the Red Sea since the Iran war began, but now the Iranian-backed Houthi militants say that they intend to block that route.`\
 https://www.nytimes.com/2026/07/22/business/energy-environment/red-sea-saudi-arabia-houthis.html
 
-**A Lettuce-Growing Region in Mexico Stomachs the Fallout From the Cyclospora Outbreak**\
+**A Mexican Town Was Known for Lettuce. Now It’s Because of Cyclospora.**\
 `In central Mexico, a lettuce-growing region has been potentially linked to an outbreak in the U.S. that has sickened thousands.`\
 https://www.nytimes.com/2026/07/22/world/americas/cyclospora-lettuce-mexico-guanajuato.html
 

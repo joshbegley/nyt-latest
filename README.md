@@ -1,3 +1,7 @@
+**Perdido en el mar, el Pan Am Clipper Endeavor es hallado tras más de 70 años**\
+`Cincuenta y dos de las 69 personas a bordo del avión murieron cuando se estrelló frente a la costa de Puerto Rico y se hundió hasta el fondo del océano Atlántico.`\
+https://www.nytimes.com/es/2026/07/22/espanol/mundo/panam-clipper-hallazgo-atlantico.html
+
 **Trump’s 50% Tariffs on Canada: What to Know, and What’s Next**\
 `The president said punishing 50 percent tariffs would begin by Aug. 19, a significant escalation of the trade war between Canada and the U.S. that he started over a year ago.`\
 https://www.nytimes.com/2026/07/22/world/canada/canada-trump-tariffs-trade.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/style/second-city-improv-athletes-nhl.html
 **New Science Fiction About Truth and Lies in an Age of War**\
 `Three recent novels explore the use of deception by both invaders and the invaded.`\
 https://www.nytimes.com/2026/07/22/books/review/language-of-liars-antimemetics-misheard-world.html
-
-**How Donald Trump Jr.’s 1789 Capital Is Cashing In Without Apology**\
-`The fledgling firm, run by the president’s oldest son and his partner Omeed Malik, has made investments in A.I. and defense technology that have tripled in value in just months.`\
-https://www.nytimes.com/2026/07/22/business/donald-trump-jr-1789-capital.html
 
