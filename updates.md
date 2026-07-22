@@ -1,3 +1,15 @@
+**The U.S. Signs a Nuclear Pact With Saudi Arabia**\
+`Also, Trump threatens to retaliate against civilian targets in Iran.`\
+https://www.nytimes.com/2026/07/22/briefing/the-us-signs-a-nuclear-pact-with-saudi-arabia.html
+
+**Jason Alexander Apologizes for to Courtney Stodden for 2012 Comedy Sketch**\
+`Alexander rubs a phone against the actress’s breasts in the Funny or Die comedy sketch, which was published when she was 17.`\
+https://www.nytimes.com/2026/07/22/arts/television/jason-alexander-apology-courtney-stodden.html
+
+**One-Pan Dumplings With Greens**\
+`This lifesaver of a recipe, linked below, calls for cooking dumplings and kale together in one skillet.`\
+https://www.nytimes.com/video/dining/100000011047749/one-pan-dumplings-with-greens.html
+
 **El juicio de Nicolás Maduro comenzaría en junio de 2027**\
 `Maduro y Cilia Flores, su esposa, fueron capturados por el ejército estadounidense en enero y desde entonces han estado recluidos en una cárcel de Brooklyn. Se han declarado no culpables de los cargos en su contra.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/nicolas-maduro-juicio-fechas.html
