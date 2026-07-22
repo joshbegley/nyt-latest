@@ -1,3 +1,11 @@
+**Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
+`Tenisha Delilah Warner said in a lawsuit filed in Georgia that she was entitled to the money according to a premarital agreement.`\
+https://www.nytimes.com/2026/07/22/us/malcolm-jamal-warner-wife-family-dispute-lawsuit.html
+
+**Lo que hay que saber sobre los aranceles de Trump a Canadá y qué viene después**\
+`El presidente dijo que los aranceles del 50 por ciento comenzarían a más tardar el 19 de agosto, una escalada significativa de la guerra comercial entre Canadá y EE. UU. que inició hace más de un año.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-canada-aranceles-acuerdo-comercial.html
+
 **Lawsuit Against Meta Over Social Media Addiction Is Dropped**\
 `For Meta, the move was a reprieve after it and YouTube were found guilty in another case in March of negligence and personal injury for their platforms’ addictive features.`\
 https://www.nytimes.com/2026/07/22/technology/meta-social-media-lawsuit.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/22/espanol/mundo/panam-clipper-hallazgo-atlan
 **Trump’s 50% Tariffs on Canada: What to Know, and What’s Next**\
 `The president said punishing 50 percent tariffs would begin by Aug. 19, a significant escalation of the trade war between Canada and the U.S. that he started over a year ago.`\
 https://www.nytimes.com/2026/07/22/world/canada/canada-trump-tariffs-trade.html
-
-**Should Queer Parents Have Zingers Ready for Boneheaded Questions?**\
-`Two moms who are tired of intrusive comments about sperm donation and “mom names” want quippy comebacks they can roll out as needed. Is there a better way?`\
-https://www.nytimes.com/2026/07/22/style/queer-family-sperm-donation-impolite-questions.html
-
-**On Cats, Dystopian Novels and Sleep: The Winners of Week 5 of Our Summer Reading Contest**\
-`This week we honor a video and two essays. Congratulations to Runhu Xu, Penelope Irwin and Clarissa Tick!`\
-https://www.nytimes.com/2026/07/22/learning/on-cats-dystopian-novels-and-sleep-the-winners-of-week-5-of-our-summer-reading-contest.html
 

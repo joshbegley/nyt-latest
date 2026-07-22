@@ -1,3 +1,23 @@
+**Lawsuit Against Meta Over Social Media Addiction Is Dropped**\
+`For Meta, the move was a reprieve after it and YouTube were found guilty in another case in March of negligence and personal injury for their platforms’ addictive features.`\
+https://www.nytimes.com/2026/07/22/technology/meta-social-media-lawsuit.html
+
+**Air Pollution From Wildfire Smoke Set Records for Many, Analysis Shows**\
+`Many towns and cities recorded their highest readings of one pollutant, known as PM 2.5, in 20 years.`\
+https://www.nytimes.com/2026/07/22/weather/canada-wildfire-smoke-air-quality-aqi-how-bad.html
+
+**Hitler’s Birthplace in Austria Is Now a Police Station**\
+`The government repurposed the 17th century building in hopes of preventing the site from becoming an attraction for Nazi sympathizers.`\
+https://www.nytimes.com/2026/07/22/world/europe/hitler-birthplace-austria-police-station.html
+
+**What to Know About the Death of Nolan Wells in Mississippi**\
+`Nearly three weeks after the 18-year-old was found dead off an island near the Mississippi coast, there have been no conclusive answers as to what happened.`\
+https://www.nytimes.com/2026/07/22/us/nolan-wells-death-mississippi-horn-island-autopsy.html
+
+**Map: 3.5-Magnitude Earthquake Shakes Western Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/22/us/earthquake-tracker-nevada.html
+
 **Los saudíes llegan a un acuerdo con EE. UU. que podría permitirles enriquecer su combustible nuclear**\
 `Legisladores estadounidenses y funcionarios israelíes se oponen a dicho plan, que se anunciará el miércoles, por temor a que el reino pueda desarrollar armas nucleares.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-arabia-saudita-acuerdo-nuclear.html
