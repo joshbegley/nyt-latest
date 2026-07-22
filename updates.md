@@ -1,3 +1,15 @@
+**Trump Plan for ‘Golden Age’ of Science: More Money for A.I., Less for Universities**\
+`Michael Kratsios, President Trump’s science adviser, proposed overhauling how the government funds research. Democrats said Mr. Trump’s actions had weakened science.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-research-funding-artificial-intelligence.html
+
+**Why the Student Opposition Movement Is Growing in India**\
+`Thousands of young people angry about India’s education system continued to protest in New Delhi on Wednesday.`\
+https://www.nytimes.com/video/world/asia/100000011047080/india-youth-protest-cockroach-janta-party.html
+
+**Peter Lassally, Longtime Late-Night TV Producer, Dies at 93**\
+`He was known as the “host whisperer” for his success at producing shows starring Johnny Carson, David Letterman and Craig Ferguson.`\
+https://www.nytimes.com/2026/07/22/arts/television/peter-lassally-dead.html
+
 **What Visuals Show About Recent Damage to U.S. Military Sites in the Middle East**\
 `Video footage and satellite images reveal new details about Iranian strikes on U.S. targets during the latest flare-up in fighting.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/iran-war-us-bases-images.html
