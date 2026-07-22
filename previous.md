@@ -1,7 +1,3 @@
-**Hegseth Estimates Cost of Iran War Has Reached $37.5 Billion**\
-`During a Senate Appropriations Committee hearing on Tuesday, Defense Secretary Pete Hegseth said that the latest estimate for the cost of the Iran war had reached $37.5 billion, up from around $29 billion in early May. He appeared before the committee to request an additional $70 billion to fund the war, as well as to replenish weapons stockpiles.`\
-https://www.nytimes.com/video/us/politics/100000011045230/hegseth-hearing-iran-war-cost.html
-
 **Mykhailo Drapatyi: What to Know About Ukraine’s New Top General**\
 `Maj. Gen. Mykhailo Drapatyi, a decorated commander, is popular both inside and outside of his country.`\
 https://www.nytimes.com/2026/07/21/world/europe/ukraine-mykhailo-drapatyi.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/07/21/style/jimothy-raccoon-seattle-videos.html
 **Jimothy, a Short-Spined Raccoon, Has Become an Internet Sensation**\
 `Kiana Hall’s video of the unusually round raccoon has gone viral, making the animal a celebrity in Seattle and beyond.`\
 https://www.nytimes.com/video/us/100000011043974/jimothy-viral-raccoon-seattle.html
+
+**El Pentágono ocultó la cifra de soldados heridos en ataques recientes de Irán**\
+`En las redes sociales, el Pentágono informó el lunes que la cifra de militares estadounidenses muertos, heridos o desaparecidos por los ataques iraníes desde el 7 de julio había ascendido a casi 100.`\
+https://www.nytimes.com/es/2026/07/21/espanol/estados-unidos/guerra-iran-soldados-heridos.html
 
