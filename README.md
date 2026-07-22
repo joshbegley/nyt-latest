@@ -1,3 +1,7 @@
+**Trump Plan for ‘Golden Age’ of Science: More Money for A.I., Less for Universities**\
+`Michael Kratsios, President Trump’s science adviser, proposed overhauling how the government funds research. Democrats said Mr. Trump’s actions had weakened science.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-research-funding-artificial-intelligence.html
+
 **Why the Student Opposition Movement Is Growing in India**\
 `Thousands of young people angry about India’s education system continued to protest in New Delhi on Wednesday.`\
 https://www.nytimes.com/video/world/asia/100000011047080/india-youth-protest-cockroach-janta-party.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/22/opinion/gen-z-sex-celibacy-relationships.html
 **Gen Z-ers Are Ditching Sex. They Might Be On to Something.**\
 `Is celibacy cool now?`\
 https://www.nytimes.com/video/opinion/100000011035163/gen-z-ers-are-ditching-sex-they-might-be-on-to-something.html
-
-**Israeli Banks Threaten to Cut Off Palestinian Economy**\
-`Two Israeli financial firms have long served as partners to Palestinian banks, handling transactions that make possible the West Bank’s imports and exports.`\
-https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html
 
