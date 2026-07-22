@@ -1,3 +1,7 @@
+**25 Intriguing Photos to Make Students Think**\
+`A new collection of some of our favorite “What’s Going On in This Picture?” posts, culled from the last six years of images.`\
+https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-students-think.html
+
 **Map: 3.6-Magnitude Earthquake Shakes Western Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/22/us/earthquake-tracker-nevada.html
