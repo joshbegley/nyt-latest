@@ -1,3 +1,7 @@
+**House Adopts $95 Billion G.O.P. Budget for Iran War**\
+`Republican leaders muscled through resistance in their own ranks to approve the budget blueprint, but its prospects were far dimmer in the Senate.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html
+
 **The Next Big Tests for the Left: Michigan, Wisconsin and Minnesota**\
 `Progressives are now fighting in swingier terrain in purple or light-blue states.`\
 https://www.nytimes.com/2026/07/22/us/politics/progressives-michigan-wisconsin-minnesota.html

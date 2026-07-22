@@ -1,3 +1,15 @@
+**They Wrote a Picture Book to Encourage Bipartisanship**\
+`Ellie Gottheimer and Larra Mullin, who met when their fathers were in Congress, make a case for bipartisanship in a picture book about dogs working together.`\
+https://www.nytimes.com/2026/07/22/books/ellie-gottheimer-larra-mullin-childrens-book.html
+
+**I’m Disabled. My Sex Life is Amazing.**\
+`The filmmaker and actor Kyla Harris talks about how an occupational therapist helped her find a way to use a sex toy with a partner. “As a disabled person, the thing that I rely on most is creativity,” she told Anna Martin, host of the “Modern Love” podcast.`\
+https://www.nytimes.com/video/podcasts/100000011047383/kyla-harris-disability-sex.html
+
+**Three Airports Plan to Ditch T.S.A. Amid Push for Private Security**\
+`The airports have opted in to the agency’s new security model, an agency spokesperson confirmed on Wednesday. A union official said the move could jeopardize public safety.`\
+https://www.nytimes.com/2026/07/22/travel/tsa-privatization-push.html
+
 **House Adopts $95 Billion G.O.P. Budget for Iran War**\
 `Republican leaders muscled through resistance in their own ranks to approve the budget blueprint, but its prospects were far dimmer in the Senate.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
 **How the Trump Administration’s Nuclear Deal With Saudi Arabia May Work**\
 `The Trump administration  announced an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal-123-agreement.html
-
-**Canadian Wildfire Evacuees Outraged Over Lacking Support and Communication**\
-`Residents of northwestern Ontario say their warnings about fires they spotted were dismissed and official information as the flames spread often didn’t come at all.`\
-https://www.nytimes.com/2026/07/22/world/canada/ontario-wildfires-canada-smoke.html
-
-**Where U.S. Government Data Is Disappearing**\
-`Plus, the quest to preserve public data.`\
-https://www.nytimes.com/2026/07/22/headway/where-us-government-data-is-disappearing.html
-
-**Judge Sets June 2027 Trial Date for Nicolás Maduro, Captured Venezuelan Leader**\
-`Mr. Maduro and his wife were seized by the U.S. military in January and have been held in a Brooklyn jail since. They have pleaded not guilty to the charges against them.`\
-https://www.nytimes.com/2026/07/22/nyregion/nicolas-maduros-trial-date.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\

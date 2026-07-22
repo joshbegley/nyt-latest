@@ -1,3 +1,7 @@
+**House Adopts $95 Billion G.O.P. Budget for Iran War**\
+`Republican leaders muscled through resistance in their own ranks to approve the budget blueprint, but its prospects were far dimmer in the Senate.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html
+
 **The Next Big Tests for the Left: Michigan, Wisconsin and Minnesota**\
 `Progressives are now fighting in swingier terrain in purple or light-blue states.`\
 https://www.nytimes.com/2026/07/22/us/politics/progressives-michigan-wisconsin-minnesota.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/22/headway/where-us-government-data-is-disappear
 **Judge Sets June 2027 Trial Date for Nicolás Maduro, Captured Venezuelan Leader**\
 `Mr. Maduro and his wife were seized by the U.S. military in January and have been held in a Brooklyn jail since. They have pleaded not guilty to the charges against them.`\
 https://www.nytimes.com/2026/07/22/nyregion/nicolas-maduros-trial-date.html
-
-**Una rutina de 20 minutos para fortalecer tu tren superior**\
-`Estos ejercicios pueden ayudar a mejorar tu postura y hacer que los movimientos cotidianos se sientan más cómodos.`\
-https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/rutina-ejercicios-tren-superior.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
