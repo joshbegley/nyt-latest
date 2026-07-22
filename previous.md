@@ -1,3 +1,7 @@
+**Mamdani Says Netanyahu Is a ‘War Criminal’ but New York Can’t Arrest Him**\
+`Mayor Zohran Mamdani, in a video address, challenged the U.S. government to execute an international arrest warrant against the Israeli prime minister.`\
+https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
+
 **Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
 `A fire in the Pleasanton, Calif., area was spreading quickly across dry hillsides and threatening neighborhoods.`\
 https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/21/us/politics/trump-china-russia-election.html
 **Drenaje linfático para el rostro: ¿qué beneficios tiene?**\
 `La técnica se ha utilizado para aumentar la circulación y, en algunos casos, reducir la acumulación de líquidos. Es menos claro si tensa e ilumina tu piel.`\
 https://www.nytimes.com/es/2026/07/21/espanol/masaje-drenaje-linfatico-piel-rostro.html
-
-**Watch Live: Hegseth and Caine Testify Before the Senate**\
-`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, testify before the Senate Appropriations Committee.`\
-https://www.nytimes.com/video/embedded/us/politics/100000011043847/watch-live-hegseth-and-caine-testify-before-the-senate.html
 

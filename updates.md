@@ -1,3 +1,7 @@
+**Mamdani Says Netanyahu Is a ‘War Criminal’ but New York Can’t Arrest Him**\
+`Mayor Zohran Mamdani, in a video address, challenged the U.S. government to execute an international arrest warrant against the Israeli prime minister.`\
+https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
+
 **Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
 `A fire in the Pleasanton, Calif., area was spreading quickly across dry hillsides and threatening neighborhoods.`\
 https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
