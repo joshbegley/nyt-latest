@@ -1,3 +1,11 @@
+**Gen Z-ers Are Ditching Sex. They Might Be Onto Something.**\
+`Is celibacy cool now?`\
+https://www.nytimes.com/2026/07/22/opinion/gen-z-sex-celibacy-relationships.html
+
+**Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
+`President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz. Secretary of State Marco Rubio earlier suggested that Tehran was “not serious” about diplomacy.`\
+https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
+
 **Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
 `Tenisha Delilah Warner said in a lawsuit filed in Georgia that she was entitled to the money according to a premarital agreement.`\
 https://www.nytimes.com/2026/07/22/us/malcolm-jamal-warner-wife-family-dispute-lawsuit.html
