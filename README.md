@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-23.html
 https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-22.html
 
 **Mamdani Calls Netanyahu a ‘War Criminal’ and Calls on U.S. to Arrest Him**\
-`Mayor Zohran Mamdani challenged the U.S. to execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, which New York itself cannot do.`\
+`Mayor Zohran Mamdani challenged the United States to execute an international arrest warrant against Prime Minister Benjamin Netanyahu of Israel, which New York itself cannot do.`\
 https://www.nytimes.com/2026/07/21/nyregion/mamdani-netanyahu-arrest-warrant.html
 
 **Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
