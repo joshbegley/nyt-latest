@@ -1,3 +1,7 @@
+**What Were the Lotus-Eaters Eating?**\
+`In Homer’s epic, Odysseus’s men eat something so powerful that they forget about home. Which plants could have produced such a soporific, narcotic and amnesiac effect?`\
+https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
+
 **The Good List: 6 Things to Bring Joy and Delight to Your Day**\
 `Forgetting yourself, listening to forests and The Most ‘Wuthering Heights’ Day Ever.`\
 https://www.nytimes.com/2026/07/22/briefing/22-the-good-list-gellhorn-kate-bush.html
