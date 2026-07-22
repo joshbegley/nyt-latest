@@ -1,3 +1,11 @@
+**OpenAI Sued Over ChatGPT’s ‘Dangerous’ Health Advice**\
+`The case appears to be the first to argue that a chatbot’s advice harmed someone seeking guidance about a medical condition.`\
+https://www.nytimes.com/2026/07/22/well/openai-chatgpt-health-lawsuit.html
+
+**Global Oil Price Jumps as War Threats Intensify**\
+`But stock investors shrug off Iran developments as they await crucial earnings reports from tech firms including Alphabet and Tesla.`\
+https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
+
 **Perdido en el mar, el Pan Am Clipper Endeavor es hallado tras más de 70 años**\
 `Cincuenta y dos de las 69 personas a bordo del avión murieron cuando se estrelló frente a la costa de Puerto Rico y se hundió hasta el fondo del océano Atlántico.`\
 https://www.nytimes.com/es/2026/07/22/espanol/mundo/panam-clipper-hallazgo-atlantico.html

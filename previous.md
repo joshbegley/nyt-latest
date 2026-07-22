@@ -1,3 +1,7 @@
+**OpenAI Sued Over ChatGPT’s ‘Dangerous’ Health Advice**\
+`The case appears to be the first to argue that a chatbot’s advice harmed someone seeking guidance about a medical condition.`\
+https://www.nytimes.com/2026/07/22/well/openai-chatgpt-health-lawsuit.html
+
 **Perdido en el mar, el Pan Am Clipper Endeavor es hallado tras más de 70 años**\
 `Cincuenta y dos de las 69 personas a bordo del avión murieron cuando se estrelló frente a la costa de Puerto Rico y se hundió hasta el fondo del océano Atlántico.`\
 https://www.nytimes.com/es/2026/07/22/espanol/mundo/panam-clipper-hallazgo-atlantico.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.
 https://www.nytimes.com/2026/07/22/world/europe/ukraine-syrskyi-general-russia-war.html
 
 **Global Oil Price Jumps as War Threats Intensify**\
-`The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
+`But stock investors shrug off Iran developments as they await crucial earnings reports from tech firms including Alphabet and Tesla.`\
 https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
 
 **Trump’s Clashing Goals: More Housing, Fewer Immigrants**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/books/review/dad-love-me-matthew-quick.html
 **Improv Classes Are Helping N.H.L. and M.L.B. Teams to Train Their Rookies**\
 `Second City, the Chicago comedy institution, is working with sports teams to help media-train their rookies.`\
 https://www.nytimes.com/2026/07/22/style/second-city-improv-athletes-nhl.html
-
-**New Science Fiction About Truth and Lies in an Age of War**\
-`Three recent novels explore the use of deception by both invaders and the invaded.`\
-https://www.nytimes.com/2026/07/22/books/review/language-of-liars-antimemetics-misheard-world.html
 
