@@ -1,3 +1,11 @@
+**Why Are Young People in India Protesting?**\
+`A youth-led movement angry over the education system and a lack of jobs is posing a rare challenge to a government that has ruled for more than a decade with a firm hand.`\
+https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html
+
+**Who Is Ahead in Ohio's 10th Congressional District?**\
+`Track the latest polls in Ohio's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-10-polls-2026.html
+
 **James Woolsey, Embattled C.I.A. Director Under Clinton, Dies at 84**\
 `He arrived in Washington a conservative Democrat and drifted rightward, supporting the 2003 invasion of Iraq and Donald J. Trump’s 2016 presidential bid.`\
 https://www.nytimes.com/2026/07/22/us/james-woolsey-dead.html

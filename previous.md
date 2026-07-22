@@ -1,3 +1,11 @@
+**Why Are Young People in India Protesting?**\
+`A youth-led movement angry over the education system and a lack of jobs is posing a rare challenge to a government that has ruled for more than a decade with a firm hand.`\
+https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html
+
+**Who Is Ahead in Ohio's 10th Congressional District?**\
+`Track the latest polls in Ohio's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-10-polls-2026.html
+
 **James Woolsey, Embattled C.I.A. Director Under Clinton, Dies at 84**\
 `He arrived in Washington a conservative Democrat and drifted rightward, supporting the 2003 invasion of Iraq and Donald J. Trump’s 2016 presidential bid.`\
 https://www.nytimes.com/2026/07/22/us/james-woolsey-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/22/podcasts/the-headlines/trump-nuclear-deal-ai-
 **Today’s Wordle Hints for July 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
 https://www.nytimes.com/2026/07/22/crosswords/wordle-review-1860.html
-
-**NYT Strands Hints for July 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 23, 2026.`\
-https://www.nytimes.com/2026/07/22/crosswords/strands-sidekick-872.html
-
-**¿Aquí comenzó el brote de ‘Cyclospora’? Una región de México espera la respuesta**\
-`Con miles de casos reportados en Estados Unidos, la investigación sobre el brote alimenta el temor a nuevas restricciones sobre los productos agrícolas mexicanos.`\
-https://www.nytimes.com/es/2026/07/22/espanol/america-latina/mexico-brote-cyclospora-lechuga-taylor-farms.html
 
