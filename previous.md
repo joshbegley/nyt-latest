@@ -1,3 +1,7 @@
+**Los saudíes llegan a un acuerdo con EE. UU. que podría permitirles enriquecer su combustible nuclear**\
+`Legisladores estadounidenses y funcionarios israelíes se oponen a dicho plan, que se anunciará el miércoles, por temor a que el reino pueda desarrollar armas nucleares.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-arabia-saudita-acuerdo-nuclear.html
+
 **Gen Z-ers Are Ditching Sex. They Might Be On to Something.**\
 `Is celibacy cool now?`\
 https://www.nytimes.com/2026/07/22/opinion/gen-z-sex-celibacy-relationships.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.ht
 **Dirty Lettuce**\
 `We look into the cyclospora outbreak.`\
 https://www.nytimes.com/2026/07/22/briefing/cyclospora-outbreak.html
-
-**Ukraine’s New Military Chief Faces a Monumental Test**\
-`Maj. Gen. Mykhailo Drapatyi faces a balancing act between asserting the independence favored by military reformers and accommodating political input on battlefield strategy.`\
-https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.html
 

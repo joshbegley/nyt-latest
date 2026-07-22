@@ -1,3 +1,7 @@
+**Los saudíes llegan a un acuerdo con EE. UU. que podría permitirles enriquecer su combustible nuclear**\
+`Legisladores estadounidenses y funcionarios israelíes se oponen a dicho plan, que se anunciará el miércoles, por temor a que el reino pueda desarrollar armas nucleares.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-arabia-saudita-acuerdo-nuclear.html
+
 **Gen Z-ers Are Ditching Sex. They Might Be On to Something.**\
 `Is celibacy cool now?`\
 https://www.nytimes.com/2026/07/22/opinion/gen-z-sex-celibacy-relationships.html
