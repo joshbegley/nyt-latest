@@ -1,3 +1,11 @@
+**House Passes Defense Bill Amid Iran War Divide**\
+`Republicans pushed through the $1.15 trillion bill over opposition from Democrats, who said backing it was akin to embracing the war.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-defense-bill-iran-war.html
+
+**Dubai Firm Cuts Deal for New Port to Bypass Strait of Hormuz**\
+`A Dubai-based logistics giant unveiled a deal on Wednesday to develop shipping terminals on the United Arab Emirates’ east coast.`\
+https://www.nytimes.com/2026/07/22/world/dubai-cuts-deal-for-new-port-to-bypass-strait-of-hormuz.html
+
 **3 Things to Know as Tropical Storm Bertha Meanders West**\
 `The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
 https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html

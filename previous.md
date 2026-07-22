@@ -1,3 +1,7 @@
+**House Passes Defense Bill Amid Iran War Divide**\
+`Republicans pushed through the $1.15 trillion bill over opposition from Democrats, who said backing it was akin to embracing the war.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-defense-bill-iran-war.html
+
 **3 Things to Know as Tropical Storm Bertha Meanders West**\
 `The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
 https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
 https://www.nytimes.com/2026/07/22/briefing/22-the-good-list-gellhorn-kate-bush.html
 
 **Dubai Firm Cuts Deal for New Port to Bypass Strait of Hormuz**\
-`A Dubai-based logistics giant unveiled a deal with the United Arab Emirates on Wednesday to develop a new port system that would bypass the Strait of Hormuz.`\
+`A Dubai-based logistics giant unveiled a deal on Wednesday to develop shipping terminals on the United Arab Emirates’ east coast.`\
 https://www.nytimes.com/2026/07/22/world/dubai-cuts-deal-for-new-port-to-bypass-strait-of-hormuz.html
 
 **Nothing Can Prevent the New Wildfires. We Have to Adapt.**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/22/nyregion/lina-khan-shorris-edc-mamdani.html
 **Trump Administration Pressures Some Immigrants to Self-Deport With Fines Up to $1.8 Million**\
 `Tens of thousands of immigrants have received letters to pay up or leave, as the government enlists debt collectors and seizes tax refunds.`\
 https://www.nytimes.com/2026/07/22/us/immigration-civil-fines-self-deportation.html
-
-**Los casos de ciclosporiasis en EE. UU. alcanzan un máximo histórico**\
-`Funcionarios federales de salud confirman otros 2500 casos de la infección parasitaria.`\
-https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/ciclosporiasis-ee-uu-maximo-historico.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
