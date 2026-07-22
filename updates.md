@@ -1,3 +1,11 @@
+**Iran’s Neighbors Long for a Deal, Any Deal, to End the War**\
+`Business owners in Pakistan are getting impatient for a chance to finally trade goods and oil along their long shared border with Iran.`\
+https://www.nytimes.com/2026/07/22/world/asia/iran-pakistan-karachi-trade-oil.html
+
+**Russia Will Not Yield**\
+`A journey around the globe showed the country’s relentless adaptation.`\
+https://www.nytimes.com/2026/07/22/opinion/russia-putin-ukraine-west.html
+
 **Quote of the Day: Lillian Roberts, Rousing leader of Municipal Union, Dies at 98**\
 `Quotation of the Day for Wednesday, July 22, 2026.`\
 https://www.nytimes.com/2026/07/22/pageoneplus/quote-of-the-day-lillian-roberts-rousing-leader-of-municipal-union-dies-at-98.html
