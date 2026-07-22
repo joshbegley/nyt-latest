@@ -1,3 +1,15 @@
+**House Adopts $95 Billion G.O.P. Budget for Iran War**\
+`Republican leaders muscled through resistance in their own ranks to approve the budget blueprint for the war and other measures, but its prospects were far dimmer in the Senate.`\
+https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html
+
+**What Were the Lotus-Eaters Eating in Homer’s ‘Odyssey’?**\
+`In Homer’s epic, Odysseus’s men eat something so powerful that they forget about home. Which plants could have produced such a soporific, narcotic and amnesiac effect?`\
+https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
+
+**U.S. Troops, Seriously Wounded in Recent Strikes, Were Flown to Germany for Help**\
+`The seriously wounded service members are among the roughly 100 American troops that the Defense Department recently said were injured by Iranian attacks since early July.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/american-troops-seriously-wounded-in-recent-strikes-were-flown-to-germany-for-help.html
+
 **The U.S. Signs a Nuclear Pact With Saudi Arabia**\
 `Also, Trump threatens to retaliate against civilian targets in Iran.`\
 https://www.nytimes.com/2026/07/22/briefing/the-us-signs-a-nuclear-pact-with-saudi-arabia.html

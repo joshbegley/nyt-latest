@@ -35,7 +35,7 @@ https://www.nytimes.com/video/podcasts/100000011047383/kyla-harris-disability-se
 https://www.nytimes.com/2026/07/22/travel/tsa-privatization-push.html
 
 **House Adopts $95 Billion G.O.P. Budget for Iran War**\
-`Republican leaders muscled through resistance in their own ranks to approve the budget blueprint, but its prospects were far dimmer in the Senate.`\
+`Republican leaders muscled through resistance in their own ranks to approve the budget blueprint for the war and other measures, but its prospects were far dimmer in the Senate.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html
 
 **The Next Big Tests for the Left: Michigan, Wisconsin and Minnesota**\
@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/07/22/business/tesla-earnings-elon-musk.html
 `Sgt. Angel Rampersad, 28, is believed to have been killed in an Iranian attack on Jordan last week. In Ozone Park, where her family lived, neighbors mourned and remembered her.`\
 https://www.nytimes.com/2026/07/22/nyregion/iran-war-angel-rampersad.html
 
-**What Were the Lotus-Eaters Eating?**\
+**What Were the Lotus-Eaters Eating in Homer’s ‘Odyssey’?**\
 `In Homer’s epic, Odysseus’s men eat something so powerful that they forget about home. Which plants could have produced such a soporific, narcotic and amnesiac effect?`\
 https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
 
@@ -133,6 +133,10 @@ https://www.nytimes.com/2026/07/22/business/media/cinerama-dome-sony-pictures-ho
 **Dunes Sagebrush Lizard Stripped of Endangered Status by Judge**\
 `The dunes sagebrush lizard, found only in the oil-rich Permian Basin, was classified as endangered two years ago.`\
 https://www.nytimes.com/2026/07/22/climate/dunes-sagebrush-lizard-trump.html
+
+**U.S. Troops, Seriously Wounded in Recent Strikes, Were Flown to Germany for Help**\
+`The seriously wounded service members are among the roughly 100 American troops that the Defense Department recently said were injured by Iranian attacks since early July.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/american-troops-seriously-wounded-in-recent-strikes-were-flown-to-germany-for-help.html
 
 **Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
 `Tenisha Delilah Warner said in a lawsuit filed in Georgia that she was entitled to the money according to a premarital agreement.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/22/style/tiny-modern-love-stories-a-full-hiccupi
 **Why Are Young People in India Protesting?**\
 `A youth-led movement angry over the education system and a lack of jobs is posing a rare challenge to a government that has ruled for more than a decade with a firm hand.`\
 https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html
-
-**Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
-`President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
-https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
 
