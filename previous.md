@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/07/21/arts/television/whitney-cummings-trump-joke-k
 https://www.nytimes.com/2026/07/21/us/politics/trump-iran-threats.html
 
 **Hegseth Estimates Cost of Iran War Has Reached $37.5 Billion**\
-`During a Senate Appropriations Committee hearing on Tuesday, Defense Secretary Pete Hegseth said that the latest estimate for the cost of the Iran war had reached $37.5 billion, up from around $29 billion in early May. He appeared before the committee to request an additional $70 billion to fund the war, as well as to replenish weapons stockpiles.`\
+`Defense Secretary Pete Hegseth appeared before the Senate Appropriations Committee Tuesday to request an additional $70 billion to fund the war and replenish weapons stockpiles.`\
 https://www.nytimes.com/video/us/politics/100000011045230/hegseth-hearing-iran-war-cost.html
 
 **Mykhailo Drapatyi: What to Know About Ukraine’s New Top General**\

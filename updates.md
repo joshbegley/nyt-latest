@@ -1,3 +1,7 @@
+**Hegseth Estimates Cost of Iran War Has Reached $37.5 Billion**\
+`Defense Secretary Pete Hegseth appeared before the Senate Appropriations Committee Tuesday to request an additional $70 billion to fund the war and replenish weapons stockpiles.`\
+https://www.nytimes.com/video/us/politics/100000011045230/hegseth-hearing-iran-war-cost.html
+
 **Trump Plans to Impose Tariffs on Generic Drugs**\
 `The administration has repeatedly said it will impose steep pharmaceutical tariffs but has not followed through on them.`\
 https://www.nytimes.com/2026/07/21/business/trump-tariffs-generic-drugs.html
