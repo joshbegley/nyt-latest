@@ -1,3 +1,15 @@
+**With Saudi Deal, Trump Loosens Nuclear Standards for One Close Ally**\
+`Nuclear experts say it throws fuel on the smoldering fire of atomic proliferation, creating a destabilizing situation that could raise the risk of nuclear war.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-saudi-nuclear-standards.html
+
+**Clarity Act Mired In Debate Over Whether to Bar President From Selling Crypto**\
+`Democrats and Republicans are haggling about the Clarity Act, a major bill pushed by the crypto industry, as it moves closer to a Senate vote.`\
+https://www.nytimes.com/2026/07/22/technology/crypto-bill-trump.html
+
+**How the Pentagon Withholds Iran War Details**\
+`Our Pentagon correspondent Helene Cooper explains how a lack of transparency reflects a tension between the Pentagon’s claims of operational security and the American public’s right to know what the military is doing in Iran.`\
+https://www.nytimes.com/video/us/100000011042608/how-the-pentagon-withholds-iran-war-details.html
+
 **Mamdani Knew He Couldn’t Arrest Netanyahu. But He Could Denounce Him.**\
 `In a video message, the mayor of New York City said he could not legally arrest Israel’s prime minister but reinforced his position as a voice of the international left.`\
 https://www.nytimes.com/2026/07/22/nyregion/mamdani-netanyahu-speech.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-canada-arance
 **Lawsuit Against Meta Over Social Media Addiction Is Dropped**\
 `For Meta, the move was a reprieve after it and YouTube were found guilty in another case in March of negligence and personal injury for their platforms’ addictive features.`\
 https://www.nytimes.com/2026/07/22/technology/meta-social-media-lawsuit.html
-
-**Air Pollution From Wildfire Smoke Set Records for Many, Analysis Shows**\
-`Many towns and cities recorded their highest readings of one pollutant, known as PM 2.5, in 20 years.`\
-https://www.nytimes.com/2026/07/22/weather/canada-wildfire-smoke-air-quality-aqi-how-bad.html
-
-**Hitler’s Birthplace in Austria Is Now a Police Station**\
-`The government repurposed the 17th-century building in hopes of preventing the site from becoming an attraction for Nazi sympathizers.`\
-https://www.nytimes.com/2026/07/22/world/europe/hitler-birthplace-austria-police-station.html
-
-**What to Know About the Death of Nolan Wells in Mississippi**\
-`Nearly three weeks after the 18-year-old was found dead off an island near the Mississippi coast, there have been no conclusive answers as to what happened.`\
-https://www.nytimes.com/2026/07/22/us/nolan-wells-death-mississippi-horn-island-autopsy.html
 

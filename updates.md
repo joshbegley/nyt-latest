@@ -1,3 +1,15 @@
+**With Saudi Deal, Trump Loosens Nuclear Standards for One Close Ally**\
+`Nuclear experts say it throws fuel on the smoldering fire of atomic proliferation, creating a destabilizing situation that could raise the risk of nuclear war.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-saudi-nuclear-standards.html
+
+**Clarity Act Mired In Debate Over Whether to Bar President From Selling Crypto**\
+`Democrats and Republicans are haggling about the Clarity Act, a major bill pushed by the crypto industry, as it moves closer to a Senate vote.`\
+https://www.nytimes.com/2026/07/22/technology/crypto-bill-trump.html
+
+**How the Pentagon Withholds Iran War Details**\
+`Our Pentagon correspondent Helene Cooper explains how a lack of transparency reflects a tension between the Pentagon’s claims of operational security and the American public’s right to know what the military is doing in Iran.`\
+https://www.nytimes.com/video/us/100000011042608/how-the-pentagon-withholds-iran-war-details.html
+
 **Mamdani Knew He Couldn’t Arrest Netanyahu. But He Could Denounce Him.**\
 `In a video message, the mayor of New York City said he could not legally arrest Israel’s prime minister but reinforced his position as a voice of the international left.`\
 https://www.nytimes.com/2026/07/22/nyregion/mamdani-netanyahu-speech.html
