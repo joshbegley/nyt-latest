@@ -1,3 +1,7 @@
+**With His Latest Threats, Trump Signals to Iran That He Is Willing to Escalate**\
+`President Trump is facing a critical moment in the war, which has failed to bring about the “unconditional surrender” he once demanded.`\
+https://www.nytimes.com/2026/07/21/us/politics/trump-iran-threats.html
+
 **Hegseth Estimates Cost of Iran War Has Reached $37.5 Billion**\
 `During a Senate Appropriations Committee hearing on Tuesday, Defense Secretary Pete Hegseth said that the latest estimate for the cost of the Iran war had reached $37.5 billion, up from around $29 billion in early May. He appeared before the committee to request an additional $70 billion to fund the war, as well as to replenish weapons stockpiles.`\
 https://www.nytimes.com/video/us/politics/100000011045230/hegseth-hearing-iran-war-cost.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/21/espanol/mundo/guerra-huties-yemen-iran.htm
 **Meet Jimothy, the Seattle Raccoon Who Is Taking Over the Internet**\
 `The stout raccoon, which has a spinal condition, is “an example to all of us that you don’t have to be perfect to be loved,” a Seattle City Council member said.`\
 https://www.nytimes.com/2026/07/21/style/jimothy-raccoon-seattle-videos.html
-
-**Jimothy, a Short-Spined Raccoon, Has Become an Internet Sensation**\
-`Kiana Hall’s video of the unusually round raccoon has gone viral, making the animal a celebrity in Seattle and beyond.`\
-https://www.nytimes.com/video/us/100000011043974/jimothy-viral-raccoon-seattle.html
 
