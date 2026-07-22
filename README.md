@@ -1,3 +1,23 @@
+**3 Things to Know as Tropical Storm Bertha Meanders West**\
+`The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
+https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html
+
+**Bobbi Queen, Fashion Arbiter Who Nurtured Stars, Dies at 84**\
+`As an influential editor at Women’s Wear Daily, she championed generations of designers, including Donna Karan and Vera Wang.`\
+https://www.nytimes.com/2026/07/22/style/bobbi-queen-dead.html
+
+**Speaking for Fallen Soldiers, Trump Says They Supported the Iran War**\
+`President Trump attended a dignified transfer for the soldiers as Americans were growing increasingly critical of the war.`\
+https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html
+
+**Trump Attends the Return of Four Soldiers Killed in Iran War**\
+`President Trump on Wednesday oversaw the return of four U.S. Army soldiers recently killed overseas in the war with Iran.`\
+https://www.nytimes.com/video/us/politics/100000011046811/trump-iran-war-fallen-soldiers.html
+
+**Alphabet Quadruples Profit to Nearly $120 Billion, Fueled by A.I. Investments**\
+`Google’s parent company, which has spent heavily on artificial intelligence, also showed growth across its businesses, particularly in cloud computing.`\
+https://www.nytimes.com/2026/07/22/technology/alphabet-google-earnings-profit.html
+
 **My (Crazy, Heartbreaking, Glorious) World Cup Adventure**\
 `Soccer is perfect for screens. But being there in person showed me a side of the sport — and of my fellow human beings — that I’ll never forget.`\
 https://www.nytimes.com/2026/07/22/magazine/world-cup-recap.html
@@ -127,7 +147,7 @@ https://www.nytimes.com/2026/07/22/learning/25-intriguing-photos-to-make-student
 https://www.nytimes.com/2026/07/22/opinion/immigration-latinos-health.html
 
 **How the Trump Administration’s Nuclear Deal With Saudi Arabia May Work**\
-`The Trump administration is expected to announce an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
+`The Trump administration  announced an agreement with Saudi Arabia on a civilian nuclear program. Such deals, known as 123 Agreements, are designed to prevent the development of weapons.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal-123-agreement.html
 
 **Canadian Wildfire Evacuees Outraged Over Lacking Support and Communication**\
@@ -169,26 +189,6 @@ https://www.nytimes.com/2026/07/22/us/immigration-civil-fines-self-deportation.h
 **Los casos de ciclosporiasis en EE. UU. alcanzan un máximo histórico**\
 `Funcionarios federales de salud confirman otros 2500 casos de la infección parasitaria.`\
 https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/ciclosporiasis-ee-uu-maximo-historico.html
-
-**My Stepdaughter’s College Was Paid For. Do We Have to Cover Grad School?**\
-`She’s angry that we saved for her siblings’ college educations but not for hers.`\
-https://www.nytimes.com/2026/07/22/magazine/college-tuition-stepdaughter-ethics.html
-
-**Louvre Gallery Reopens After Brazen Jewel Heist**\
-`Thieves stole crown jewels from the Apollo Gallery at the Louvre Museum in October, forcing its closure. Tourists finally returned on Wednesday.`\
-https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html
-
-**Trump’s Trade Negotiator Doubles Down on Tariffs Before Global Duties Expire**\
-`Jamieson Greer, the president’s top trade negotiator, told the Senate that the United States remained intent on tariffs as it prepared to replace duties the Supreme Court struck down.`\
-https://www.nytimes.com/2026/07/22/business/economy/trump-tariffs-jamieson-greer.html
-
-**Deep in This Lake, a Contagious Cancer Is Spreading**\
-`Transmissible tumors have been reported in a handful of animal species, but never before among fish. Is it possible in humans?`\
-https://www.nytimes.com/2026/07/22/science/contagious-cancer-catfish.html
-
-**Rubio and Chinese Diplomat Make Plans for Trump and Xi’s Washington Summit**\
-`Secretary of State Marco Rubio spent much of a meeting with China’s foreign minister discussing the summit, but did not bring up President Trump’s claims of election interference by China.`\
-https://www.nytimes.com/2026/07/22/us/politics/trump-xi-rubio-manila-china.html
 
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\

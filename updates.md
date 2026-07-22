@@ -1,3 +1,7 @@
+**My (Crazy, Heartbreaking, Glorious) World Cup Adventure**\
+`Soccer is perfect for screens. But being there in person showed me a side of the sport — and of my fellow human beings — that I’ll never forget.`\
+https://www.nytimes.com/2026/07/22/magazine/world-cup-recap.html
+
 **Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets**\
 `President Trump said the United States would target a bridge or power plant if Iran fired on ships in the Strait of Hormuz. Iran’s foreign minister repeated his nation’s position of an “eye for an eye.”`\
 https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz
