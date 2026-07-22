@@ -1,3 +1,15 @@
+**With 2 Hires, Mamdani Blends Economic Development With Economic Justice**\
+`Anthony E. Shorris, a former deputy mayor and a partner at McKinsey, and Lina Khan, the former chair of the Federal Trade Commission, will lead the city’s Economic Development Corporation.`\
+https://www.nytimes.com/2026/07/22/nyregion/lina-khan-shorris-edc-mamdani.html
+
+**Trump Administration Pressures Some Immigrants to Self-Deport With Fines Up to $1.8 Million**\
+`Tens of thousands of immigrants have received letters to pay up or leave, as the government enlists debt collectors and seizes tax refunds.`\
+https://www.nytimes.com/2026/07/22/us/immigration-civil-fines-self-deportation.html
+
+**Los casos de ciclosporiasis en EE. UU. alcanzan un máximo histórico**\
+`Funcionarios federales de salud confirman otros 2500 casos de la infección parasitaria.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/ciclosporiasis-ee-uu-maximo-historico.html
+
 **Trump’s New Insult Won’t Save Republicans**\
 `The president’s attempt to drum up a third red scare is certain to fail.`\
 https://www.nytimes.com/2026/07/22/opinion/trump-red-scare-midterms.html

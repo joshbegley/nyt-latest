@@ -1,3 +1,15 @@
+**With 2 Hires, Mamdani Blends Economic Development With Economic Justice**\
+`Anthony E. Shorris, a former deputy mayor and a partner at McKinsey, and Lina Khan, the former chair of the Federal Trade Commission, will lead the city’s Economic Development Corporation.`\
+https://www.nytimes.com/2026/07/22/nyregion/lina-khan-shorris-edc-mamdani.html
+
+**Trump Administration Pressures Some Immigrants to Self-Deport With Fines Up to $1.8 Million**\
+`Tens of thousands of immigrants have received letters to pay up or leave, as the government enlists debt collectors and seizes tax refunds.`\
+https://www.nytimes.com/2026/07/22/us/immigration-civil-fines-self-deportation.html
+
+**Los casos de ciclosporiasis en EE. UU. alcanzan un máximo histórico**\
+`Funcionarios federales de salud confirman otros 2500 casos de la infección parasitaria.`\
+https://www.nytimes.com/es/2026/07/22/espanol/estilos-de-vida/ciclosporiasis-ee-uu-maximo-historico.html
+
 **My Stepdaughter’s College Was Paid For. Do We Have to Cover Grad School?**\
 `She’s angry that we saved for her siblings’ college educations but not for hers.`\
 https://www.nytimes.com/2026/07/22/magazine/college-tuition-stepdaughter-ethics.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/22/realestate/even-the-architects-said-the-build
 **‘White Nights’: A Loner’s All-Consuming Crush**\
 `Immaculately realized and restored, Luchino Visconti’s adaptation of Dostoyevsky’s short story about a chance encounter on a bridge arrives at Film Forum.`\
 https://www.nytimes.com/2026/07/22/movies/white-nights-film-forum.html
-
-**For Bats, New York’s a Wonderful Town**\
-`It looks as though the bat population is rising in the city, where the creatures have bounced back after a disease lessened their ranks some years back.`\
-https://www.nytimes.com/2026/07/22/nyregion/for-bats-new-yorks-a-wonderful-town.html
-
-**At a Utah Campus, an Emotional Odyssey After Charlie Kirk’s Death**\
-`Since Mr. Kirk was gunned down at Utah Valley University, the school and its students have struggled to find a way forward.`\
-https://www.nytimes.com/2026/07/22/us/charlie-kirk-utah-valley-university.html
-
-**Marlboro Music: Where Artists Have Time to Chase Perfection**\
-`The Marlboro Music Festival, now in its 75th summer, allows artists to practice for however long they’d like, with no pressure to perform.`\
-https://www.nytimes.com/2026/07/22/arts/music/marlboro-music-festival-75.html
 
