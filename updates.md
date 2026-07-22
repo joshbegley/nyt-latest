@@ -1,3 +1,7 @@
+**Global Oil Price Vaults Over $95 a Barrel as War Threats Intensify**\
+`The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
+https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
+
 **Trump’s Clashing Goals: More Housing, Fewer Immigrants**\
 `A new law aims to speed up building housing around the country. At the same time, the construction sector is reliant on foreign-born workers.`\
 https://www.nytimes.com/2026/07/22/podcasts/the-daily/trump-housing-immigrants.html

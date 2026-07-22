@@ -1,3 +1,7 @@
+**Global Oil Price Vaults Over $95 a Barrel as War Threats Intensify**\
+`The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
+https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
+
 **Trump’s Clashing Goals: More Housing, Fewer Immigrants**\
 `A new law aims to speed up building housing around the country. At the same time, the construction sector is reliant on foreign-born workers.`\
 https://www.nytimes.com/2026/07/22/podcasts/the-daily/trump-housing-immigrants.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/zh-hant/interactive/2026/07/22/chinese/hong-kong-fire-ob
 **Japan Is Startled by Prime Minister’s Grueling Sleep Schedule**\
 `Sanae Takaichi has said she gets just “zero to three hours” of sleep a night, prompting a debate in the country over work-life balance.`\
 https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html
-
-**‘The Daily Show’ Tackles Trump’s Latest Move in His ‘War on Canada’**\
-`“Fighting again with Canada?” Desi Lydic said about the president imposing new tariffs on the country. “I thought we were going to work this ‘oot.’”`\
-https://www.nytimes.com/2026/07/22/arts/television/desi-lydic-trump-canada-tariffs.html
 
