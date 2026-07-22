@@ -1,4 +1,4 @@
-**Bay Area Wildfire Prompts Evacuation Orders for Thousands of Residents**\
+**Wildfire Threatening Pleasanton Prompts Evacuation Order for Thousands**\
 `A fire in the Pleasanton, Calif., area was spreading quickly across dry hillsides and threatening neighborhoods.`\
 https://www.nytimes.com/2026/07/21/us/little-fire-pleasanton-ca.html
 
