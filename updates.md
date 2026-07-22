@@ -1,3 +1,11 @@
+**Louvre Museum Reopens Gallery After Brazen Robbery**\
+`The Louvre Museum’s Apollo Gallery was reopened to visitors for the first time on Wednesday since a brazen robbery last year.`\
+https://www.nytimes.com/video/world/europe/100000011047123/france-louvre-reopening-jewels.html
+
+**What Can a Poll Tell Us?**\
+`Everyone wants to know who will win an election, but polls do more than predicting outcomes. The polling reporter Ruth Igielnik shares how polls are also judged on their ability to reveal electorate dynamics.`\
+https://www.nytimes.com/video/insider/100000010994126/what-can-a-poll-tell-us.html
+
 **Tesla Profit Falls Even as Car Sales Rebound**\
 `The company is selling more cars, but the company’s profit was down because of price cuts and higher expenses.`\
 https://www.nytimes.com/2026/07/22/business/tesla-earnings-elon-musk.html

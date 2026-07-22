@@ -1,3 +1,7 @@
+**Louvre Museum Reopens Gallery After Brazen Robbery**\
+`The Louvre Museum’s Apollo Gallery was reopened to visitors for the first time on Wednesday since a brazen robbery last year.`\
+https://www.nytimes.com/video/world/europe/100000011047123/france-louvre-reopening-jewels.html
+
 **Tesla Profit Falls Even as Car Sales Rebound**\
 `The company is selling more cars, but the company’s profit was down because of price cuts and higher expenses.`\
 https://www.nytimes.com/2026/07/22/business/tesla-earnings-elon-musk.html
@@ -83,7 +87,7 @@ https://www.nytimes.com/video/opinion/100000011035163/gen-z-ers-are-ditching-sex
 https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html
 
 **What Can a Poll Tell Us?**\
-`Everyone wants to know who’s going to win an election, but predicting the outcome isn’t a poll’s only job. The polling reporter Ruth Igielnik shares how polls are also judged on their ability to reveal the dynamics underlying a race, as well as to uncover how shifting tides and core issues shape the views of the electorate.`\
+`Everyone wants to know who will win an election, but polls do more than predicting outcomes. The polling reporter Ruth Igielnik shares how polls are also judged on their ability to reveal electorate dynamics.`\
 https://www.nytimes.com/video/insider/100000010994126/what-can-a-poll-tell-us.html
 
 **Map: 3.5-Magnitude Earthquake Shakes Western Nevada**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/22/briefing/today-in-short.html
 **How Our Reporters Linked Big Vehicles to Pedestrian Deaths**\
 `A New York Times investigation found that the large trucks and S.U.V.s on American roads today are far more lethal than their predecessors.`\
 https://www.nytimes.com/2026/07/22/insider/truck-suv-crash-investigation.html
-
-**Shooting Ranges Go Quiet Luxury**\
-`Sleek interiors, plush lounges and four-figure membership fees — some of today’s ranges are more aptly called “guntry clubs.”`\
-https://www.nytimes.com/2026/07/22/style/gun-club-los-angeles.html
 
 **Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait**\
 `President Trump said the United States would target a bridge or power plant, including in or near the Iranian capital, if Iran fired on the Strait of Hormuz.`\
