@@ -134,8 +134,8 @@ https://www.nytimes.com/2026/07/22/business/media/cinerama-dome-sony-pictures-ho
 `The dunes sagebrush lizard, found only in the oil-rich Permian Basin, was classified as endangered two years ago.`\
 https://www.nytimes.com/2026/07/22/climate/dunes-sagebrush-lizard-trump.html
 
-**American troops, seriously wounded in recent strikes, were flown to Germany for help.**\
-`(No description)`\
+**U.S. Troops, Seriously Wounded in Recent Strikes, Were Flown to Germany for Help**\
+`The seriously wounded service members are among the roughly 100 American troops that the Defense Department recently said were injured by Iranian attacks since early July.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/american-troops-seriously-wounded-in-recent-strikes-were-flown-to-germany-for-help.html
 
 **Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
