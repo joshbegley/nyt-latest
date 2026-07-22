@@ -1,3 +1,11 @@
+**Ukraine’s New Military Chief Faces a Monumental Test**\
+`Maj. Gen. Mykhailo Drapatyi faces a balancing act between asserting the independence favored by military reformers and accommodating political input on battlefield strategy.`\
+https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.html
+
+**Firing of Ukraine’s Top General Signals the End of an Era**\
+`Gen. Oleksandr Syrskyi, who commanded crucial battles, oversaw an expansion of drone warfare against Russia, but many Ukrainians want even more.`\
+https://www.nytimes.com/2026/07/22/world/europe/ukraine-syrskyi-general-russia-war.html
+
 **Global Oil Price Vaults Over $95 a Barrel as War Threats Intensify**\
 `The risk of continued fighting and a threatened blockade in the Red Sea added to uncertainty about the flow of energy from the region.`\
 https://www.nytimes.com/2026/07/22/business/oil-prices-iran-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/22/nyregion/salman-rushdie-hadi-matar-terror-tri
 **NYT Spelling Bee Answers for July 22, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/22/crosswords/spelling-bee-forum.html
-
-**遺留之物**\
-`香港一場致命大火奪走他們摯愛的生命。數月後，他們重返宏福苑，查看火災廢墟。以下是他們從中帶回的物品。`\
-https://www.nytimes.com/zh-hant/interactive/2026/07/22/chinese/hong-kong-fire-objects-families.html
-
-**Japan Is Startled by Prime Minister’s Grueling Sleep Schedule**\
-`Sanae Takaichi has said she gets just “zero to three hours” of sleep a night, prompting a debate in the country over work-life balance.`\
-https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html
 
