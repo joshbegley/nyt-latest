@@ -1,3 +1,7 @@
+**House Narrowly Passes Stopgap Spending Bill, but Shutdown Fight Looms**\
+`Republicans managed to push through legislation to fund the government through Dec. 4. But with most Democrats opposed, the stage is set for a broader battle.`\
+https://www.nytimes.com/2026/07/21/us/politics/house-stopgap-spending-bill-shutdown.html
+
 **NYT Crossword Answers for July 23, 2026**\
 `Damon Gulczynski puzzles over the mysteries of the universe.`\
 https://www.nytimes.com/2026/07/21/crosswords/daily-puzzle-2026-07-23.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/21/espanol/opinion/nicolas-maduro-extradicion
 **G.O.P. Lawmakers Join White House in Challenging a Smithsonian Museum**\
 `A House subcommittee questioned the director of the National Museum of American History after a scathing White House report characterized it as insufficiently patriotic.`\
 https://www.nytimes.com/2026/07/21/arts/design/trump-republicans-smithsonian-american-history.html
-
-**Roger Rogoff Files Suit Challenging Trump’s Power to Fire Him**\
-`In the first lawsuit of its kind, Roger Rogoff argues that the Trump administration cannot fire him as U.S. attorney without first winning Senate approval for another candidate.`\
-https://www.nytimes.com/2026/07/21/us/roger-rogoff-doj-lawsuit.html
 

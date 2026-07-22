@@ -1,5 +1,5 @@
 **House Narrowly Passes Stopgap Spending Bill, but Shutdown Fight Looms**\
-`Republicans managed to push through legislation to fund the government through Dec. 4. But with most Democrats opposed, the stage is set for a broader battle.`\
+`Republicans managed to push through legislation to fund the government through Dec. 4. But with Democrats opposed, the stage is set for a broader battle.`\
 https://www.nytimes.com/2026/07/21/us/politics/house-stopgap-spending-bill-shutdown.html
 
 **NYT Crossword Answers for July 23, 2026**\
