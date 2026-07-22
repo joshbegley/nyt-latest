@@ -1,3 +1,15 @@
+**Trump Lifts Ban on Direct Flights to Lebanon**\
+`The prohibition had been in place since 1985, when it was imposed in response to Hezbollah’s hijacking of TWA Flight 847.`\
+https://www.nytimes.com/2026/07/21/us/politics/trump-lebanon-flights-ban.html
+
+**Tornadoes Are Reported in Kentucky as Storms Sweep Across the U.S.**\
+`Storms set off tornado warnings all the way to New York on Tuesday. Forecasters also warned of flash flooding.`\
+https://www.nytimes.com/2026/07/21/weather/kentucky-tornado-wind-storm.html
+
+**Whitney Cummings’s Trump Joke at Kennedy Center Is Cut From Netflix Special**\
+`At the Mark Twain Prize ceremony, the comedian Whitney Cummings made a joke about the president that seemed to refer to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/07/21/arts/television/whitney-cummings-trump-joke-kennedy-center.html
+
 **With His Latest Threats, Trump Signals to Iran That He Is Willing to Escalate**\
 `President Trump is facing a critical moment in the war, which has failed to bring about the “unconditional surrender” he once demanded.`\
 https://www.nytimes.com/2026/07/21/us/politics/trump-iran-threats.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/21/arts/music/amplifier-newsletter-phoebe-bridge
 **3 Myths Fueling Anti-Immigrant Sentiment in South Africa**\
 `As the nation convulses with protests and violence, data and research suggest that some of the biggest arguments against foreigners don’t stand up against the facts.`\
 https://www.nytimes.com/2026/07/21/world/africa/south-africa-immigration-protests-explainer.html
-
-**Monkeys Understand Shapes in Almost the Same Way as Humans**\
-`Our geometric intuition, long considered something that sets us apart, seems to be shared with other primates.`\
-https://www.nytimes.com/2026/07/21/science/monkeys-cognition-shapes-geometry.html
-
-**Los hutíes de Yemen podrían entrar a la guerra entre EE. UU. e Irán**\
-`La milicia hutí en Yemen, respaldada por Irán, ha declarado un bloqueo a Arabia Saudita en el mar Rojo, lo que abriría un nuevo frente en el conflicto que se extiende por Medio Oriente.`\
-https://www.nytimes.com/es/2026/07/21/espanol/mundo/guerra-huties-yemen-iran.html
-
-**Meet Jimothy, the Seattle Raccoon Who Is Taking Over the Internet**\
-`The stout raccoon, which has a spinal condition, is “an example to all of us that you don’t have to be perfect to be loved,” a Seattle City Council member said.`\
-https://www.nytimes.com/2026/07/21/style/jimothy-raccoon-seattle-videos.html
 

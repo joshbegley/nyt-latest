@@ -1,3 +1,15 @@
+**Trump Lifts Ban on Direct Flights to Lebanon**\
+`The prohibition had been in place since 1985, when it was imposed in response to Hezbollah’s hijacking of TWA Flight 847.`\
+https://www.nytimes.com/2026/07/21/us/politics/trump-lebanon-flights-ban.html
+
+**Tornadoes Are Reported in Kentucky as Storms Sweep Across the U.S.**\
+`Storms set off tornado warnings all the way to New York on Tuesday. Forecasters also warned of flash flooding.`\
+https://www.nytimes.com/2026/07/21/weather/kentucky-tornado-wind-storm.html
+
+**Whitney Cummings’s Trump Joke at Kennedy Center Is Cut From Netflix Special**\
+`At the Mark Twain Prize ceremony, the comedian Whitney Cummings made a joke about the president that seemed to refer to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/07/21/arts/television/whitney-cummings-trump-joke-kennedy-center.html
+
 **A New Critique of Trumpism Goes Too Easy on Elites**\
 `Even under populism, elite failure is still a problem.`\
 https://www.nytimes.com/2026/07/21/opinion/populism-elites-richard-hanania.html
