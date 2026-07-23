@@ -1,3 +1,7 @@
+**Estos son los mejores y peores hábitos para tu hígado**\
+`Las enfermedades hepáticas están en aumento en todo el mundo. Tu dieta, tu rutina de ejercicios y otras afecciones médicas pueden afectar tu riesgo.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peores-habitos.html
+
 **Chaos Breaks Out at Border Crossings in Iraq**\
 `Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/t-magazine/orange-coffee-cafes.html
 **How Trump and His Allies Can Corrupt the Midterms**\
 `Stop the steal before it starts.`\
 https://www.nytimes.com/2026/07/23/opinion/trump-midterms-fraud-corruption.html
-
-**How Can Anyone Trust This Crew With Anything?**\
-`JD Vance isn’t going to save us. Neither is Pete Hegseth.`\
-https://www.nytimes.com/2026/07/23/opinion/trump-vance-iran-cyclospora.html
 

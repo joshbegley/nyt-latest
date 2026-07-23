@@ -1,3 +1,7 @@
+**Chaos Breaks Out at Border Crossings in Iraq**\
+`Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
+
 **‘Odyssey’ Popcorn Buckets Help Fuel a $100 Million Market**\
 `Once, a tub of popcorn was just a tub of popcorn. Now, ‘collectible concession vessels’ could make one chain more than $100 million.`\
 https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets.html
