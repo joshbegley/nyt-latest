@@ -1,3 +1,11 @@
+**U.S.-Saudi Deal Prompts Fears of a World With Looser Nuclear Rules**\
+`In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
+https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
+
+**It’s So Hot That Japan Needs a New Word For It**\
+`Japan this week recorded its first kokushobi, a term that means “cruel heat day,” as temperatures reached 104 degrees. It is not the only country that has scrambled for a new summer vocabulary.`\
+https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
+
 **It’s So Hot That Japan Needs a New Word for It**\
 `Japan this week recorded its first kokushobi, a term that means “cruel heat day,” as temperatures reached 104 degrees. It is not the only country that has scrambled for a new summer vocabulary.`\
 https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
