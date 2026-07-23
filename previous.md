@@ -1,3 +1,7 @@
+**¿Debes usar estrógeno vaginal para los síntomas de la menopausia?**\
+`Esto es lo que debes tomar en cuenta antes de probarlo.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/estrogeno-vaginal-menopausia.html
+
 **Who is Ahead in Idaho's 1st Congressional District?**\
 `Track the latest polls in Idaho's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/idaho-us-house-1-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attac
 **U.S.-Saudi Deal Prompts Fears of a Global Nuclear Arms Race**\
 `In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
 https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
-
-**It’s So Hot That Japan Needs a New Word for It**\
-`Japan this week recorded its first kokushobi, a term that means “cruel heat day,” as temperatures reached 104 degrees. It is not the only country that has scrambled for a new summer vocabulary.`\
-https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
 

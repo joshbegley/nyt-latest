@@ -1,3 +1,7 @@
+**¿Debes usar estrógeno vaginal para los síntomas de la menopausia?**\
+`Esto es lo que debes tomar en cuenta antes de probarlo.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/estrogeno-vaginal-menopausia.html
+
 **Who is Ahead in Idaho's 1st Congressional District?**\
 `Track the latest polls in Idaho's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/idaho-us-house-1-polls-2026.html
