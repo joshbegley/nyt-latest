@@ -1,3 +1,19 @@
+**Bear Dies After Getting Stranded Atop Electric Pole in New Mexico**\
+`The animal’s plight alarmed onlookers and highlighted the drought conditions that are forcing wild bears closer to where people live in search of food.`\
+https://www.nytimes.com/2026/07/23/us/new-mexico-bear-electrical-pole-death.html
+
+**Tugboat Captain Pleads Guilty in Miami Crash That Killed 3 Children**\
+`Prosecutors said the captain’s view was blocked as the barge he was pushing struck a sailboat carrying young campers and a counselor on Biscayne Bay.`\
+https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty.html
+
+**Salman Rushdie Recalls ‘Lake of Blood’ in Testimony Against His Attacker**\
+`Mr. Rushdie, an author, testified about the 2022 stabbing in upstate New York, where he was speaking at a literary festival. He was left blind in one eye, with scars all over his body.`\
+https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
+
+**Trump to Impose New Global Tariffs of Around 10% After Previous Duties Lapse**\
+`The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
+https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
+
 **Two People Stabbed Near Central Park in New York City, Police Say**\
 `The police said they had detained a person of interest. It was not immediately clear what led to the attack in the affluent Manhattan neighborhood.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
