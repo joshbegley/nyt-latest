@@ -1,3 +1,27 @@
+**Conor Oberst on Hitting Rock Bottom**\
+`The musician Conor Oberst spoke with Joe Coscarelli and Jon Caramanica, hosts of “Popcast,” about navigating stardom, overcoming health struggles, writing political music and playing with his band, Bright Eyes.`\
+https://www.nytimes.com/video/podcasts/100000011046258/conor-oberst-on-hitting-rock-bottom.html
+
+**Democratic Voters Keep Defying the Party Establishment**\
+`The House Democratic campaign arm has stepped up its interventions in high-profile contested primaries. But this week, it suffered its third primary defeat in two months.`\
+https://www.nytimes.com/2026/07/23/us/politics/democrats-dccc-house.html
+
+**How Conor Oberst of Bright Eyes Came Back From The Brink**\
+`Watch the full conversation with Conor Oberst on Popcast.`\
+https://www.nytimes.com/video/podcasts/100000011046262/bright-eyes-conor-oberst-popcast-interview.html
+
+**Trump to Impose Tariffs on More Than 80 Countries**\
+`Also, oil hits $100 a barrel. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/23/briefing/trump-impose-tariffs-popcorn-buckets.html
+
+**Number of U.S. Troop Deaths Suddenly Appears Lower on Pentagon Website**\
+`Three military officials and a Pentagon spokesman gave conflicting explanations for why the number of Americans killed in the Iran war had changed.`\
+https://www.nytimes.com/2026/07/23/us/politics/iran-troop-deaths.html
+
+**Trump-Thune Rift Intensifies Over Stalled Election Bill**\
+`A White House spokeswoman said President Trump’s patience was running thin. The top Senate Republican said she should try finding the votes.`\
+https://www.nytimes.com/2026/07/23/us/politics/trump-thune-senate-election-bill.html
+
 **Canada: Neighbor or 51st State?**\
 `Is the United States actually going to annex Canada? On “Interesting Times,” the Opinion columnist Ross Douthat pushes the senior Trump administration official Elbridge Colby on just how real the threat of annexation is.`\
 https://www.nytimes.com/video/opinion/100000011037618/canada-neighbor-or-51st-state.html
