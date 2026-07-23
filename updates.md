@@ -1,3 +1,7 @@
+**Chaos Breaks Out at Border Crossings With Iraq**\
+`Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
+
 **Secret Service Agent in JD Vance’s Detail Under Investigation**\
 `The Secret Service said that a member of Vice President JD Vance’s team was accused of “compromising operational and information security.”`\
 https://www.nytimes.com/2026/07/23/us/politics/vance-secret-service.html
