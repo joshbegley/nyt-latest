@@ -1,3 +1,7 @@
+**Trump Adds New Condition to Nuclear Deal With Saudi Arabia**\
+`In a post on social media on Thursday, President Trump said the nuclear agreement between nations was now “totally subject” to Saudi Arabia joining the Abraham Accords. This condition was not mentioned in the administration’s announcement after the deal was signed on Wednesday.`\
+https://www.nytimes.com/video/us/politics/100000011049244/saudi-arabia-nuclear-deal-abraham-accord.html
+
 **Strikes Against Saudi Tankers in the Red Sea Send Oil Past $100 a Barrel**\
 `President Trump threatened attacks on Houthi militants after the Iranian ally said it had hit two Saudi Arabian-flagged vessels.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/red-sea-strikes-oil-houthis.html
