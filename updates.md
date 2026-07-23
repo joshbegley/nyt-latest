@@ -1,3 +1,7 @@
+**Global Oil Price Nears $100 a Barrel as Conflict With Iran Deepens**\
+`The Houthis claimed to have attacked two ships in the Red Sea, and Iran said a third caught fire near the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/23/business/iran-crude-oil-gas-stock-prices.html
+
 **The Unlikeliest Performance-Enhancing Drug**\
 `Smooth jazz makes a comeback as a cure for the internet age.`\
 https://www.nytimes.com/2026/07/23/podcasts/smooth-jazz-performance-enhancing-drug-sport.html
