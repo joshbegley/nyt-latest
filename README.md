@@ -1,3 +1,7 @@
+**Global Oil Price Hits $100 a Barrel for First Time Since May**\
+`The recent rebound reflects traders’ growing concern about the expanding war, which now extends from the Persian Gulf to the Red Sea.`\
+https://www.nytimes.com/2026/07/23/business/oil-price-100-dollars.html
+
 **Ford Will Use Apple Software in New Self-Driving System**\
 `In a first, Apple Maps will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
 https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/technology/personaltech/chatgpt-gemini-prompt
 **‘Hadestown: The Musical’ Review: A Theatrical Triumph, Onscreen**\
 `The director Brett Sullivan gives viewers the best seat in the house, with delicate camerawork that moves with the rhythms of Anaïs Mitchell’s soulful score.`\
 https://www.nytimes.com/2026/07/23/movies/hadestown-the-musical-review.html
-
-**‘A Sad and Beautiful World’ Review: A Love to Overcome Fear**\
-`In Lebanon, a lush romance in uncertain times asks what keeps us human.`\
-https://www.nytimes.com/2026/07/23/movies/a-sad-and-beautiful-world-review.html
 
