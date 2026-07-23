@@ -1,3 +1,7 @@
+**Former Head of All-Girls School Indicted, Accused of Ignoring Abuse Reports**\
+`Jean Norris, who ran Miss Hall’s School in Massachusetts, was charged with reckless endangerment of a child. A former teacher under her tenure faces three rape charges.`\
+https://www.nytimes.com/2026/07/22/us/head-of-miss-halls-school-indicted.html
+
 **Amish Shah Wins Democratic Primary in Swing Arizona House District**\
 `Dr. Amish Shah, who beat the choice of the party’s House campaign arm, will face Jay Feely, a Republican, in a battleground district that covers parts of Phoenix.`\
 https://www.nytimes.com/2026/07/22/us/politics/amish-shah-arizona-house-democrats.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/22/world/dubai-cuts-deal-for-new-port-to-bypass-
 **Nothing Can Prevent the New Wildfires. We Have to Adapt.**\
 `Suppression is not enough.`\
 https://www.nytimes.com/2026/07/22/opinion/climate-wildfires-smoke-adaptation.html
-
-**The Sex Recession Started With Millennials**\
-`The story of America’s sex recession doesn’t begin with Gen Z. Carter Sherman argues that millennials were already having less sex than previous generations — changing how we should think about what’s happening today.`\
-https://www.nytimes.com/video/opinion/100000011035171/the-sex-recession-started-with-millennials.html
 

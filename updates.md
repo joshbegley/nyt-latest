@@ -1,3 +1,7 @@
+**Amish Shah Wins Democratic Primary in Swing Arizona House District**\
+`Dr. Amish Shah, who beat the choice of the party’s House campaign arm, will face Jay Feely, a Republican, in a battleground district that covers parts of Phoenix.`\
+https://www.nytimes.com/2026/07/22/us/politics/amish-shah-arizona-house-democrats.html
+
 **Republican Lawmaker Urges Charges Against Jack Smith**\
 `The criminal referral could provide a catalyst for a prosecution of Mr. Smith, who as special counsel became a top target of the president’s retribution campaign.`\
 https://www.nytimes.com/2026/07/22/us/politics/jack-smith-jim-jordan-charges.html
