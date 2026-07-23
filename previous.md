@@ -1,3 +1,11 @@
+**El futuro de una ciudad fronteriza depende de las próximas medidas comerciales de Trump**\
+`Laredo, Texas, se ha convertido en el principal puerto de entrada de EE. UU. Las nuevas negociaciones podrían echar por tierra ese éxito.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/laredo-frontera-comercio-aranceles.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011048265/00int-indonesia-dispatch-15680.html
+
 **Late Night Rags on Trump and His Cabinet Joining TikTok**\
 `“Right now TikTok is, like, ‘Oh, no, are we the new Facebook?’” Jimmy Fallon said on “The Tonight Show.”`\
 https://www.nytimes.com/2026/07/23/arts/television/late-night-trump-administration-tiktok.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers
 **Trump Attends the Return of Four Soldiers Killed in Iran War**\
 `President Trump on Wednesday oversaw the return of four U.S. Army soldiers recently killed overseas in the war with Iran.`\
 https://www.nytimes.com/video/us/politics/100000011046811/trump-iran-war-fallen-soldiers.html
-
-**Alphabet Quadruples Profit to $112 Billion, Fueled by A.I. Investments**\
-`Google’s parent company, which has spent heavily on artificial intelligence, also showed growth across its businesses, particularly in cloud computing.`\
-https://www.nytimes.com/2026/07/22/technology/alphabet-google-earnings-profit.html
-
-**My (Crazy, Heartbreaking, Glorious) World Cup Adventure**\
-`Soccer is perfect for screens. But being there in person showed me a side of the sport — and of my fellow human beings — that I’ll never forget.`\
-https://www.nytimes.com/2026/07/22/magazine/world-cup-recap.html
 

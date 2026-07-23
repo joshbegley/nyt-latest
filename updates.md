@@ -1,3 +1,11 @@
+**El futuro de una ciudad fronteriza depende de las próximas medidas comerciales de Trump**\
+`Laredo, Texas, se ha convertido en el principal puerto de entrada de EE. UU. Las nuevas negociaciones podrían echar por tierra ese éxito.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/laredo-frontera-comercio-aranceles.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011048265/00int-indonesia-dispatch-15680.html
+
 **Late Night Rags on Trump and His Cabinet Joining TikTok**\
 `“Right now TikTok is, like, ‘Oh, no, are we the new Facebook?’” Jimmy Fallon said on “The Tonight Show.”`\
 https://www.nytimes.com/2026/07/23/arts/television/late-night-trump-administration-tiktok.html
