@@ -1,3 +1,11 @@
+**A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon**\
+`Kyiv is escalating its air war by striking commercial warehouses, trying to bring the conflict closer to home for ordinary Russians.`\
+https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attacks.html
+
+**U.S.-Saudi Deal Prompts Fears of a Nuclear Arms Race**\
+`In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
+https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
+
 **It’s So Hot That Japan Needs a New Word for It**\
 `Japan this week recorded its first kokushobi, a term that means “cruel heat day,” as temperatures reached 104 degrees. It is not the only country that has scrambled for a new summer vocabulary.`\
 https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
