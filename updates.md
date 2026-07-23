@@ -1,3 +1,7 @@
+**Trump’s New Demand for Nuclear Deal Puts Saudis in a Bind**\
+`Saudi Arabia has long said that a condition of normalizing relations with Israel would be a pathway toward Palestinian statehood, a prospect that Israel’s current government has rejected.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/trump-saudi-arabia-palestinian-state.html
+
 **Los Angeles Homeless Population Grows Again, After 2 Years of Decline**\
 `Los Angeles had an increase in homeless residents between early 2025 and early 2026. The rise could hurt Mayor Karen Bass as she runs for re-election.`\
 https://www.nytimes.com/2026/07/23/us/los-angeles-homeless-increase.html
