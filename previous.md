@@ -151,7 +151,7 @@ https://www.nytimes.com/2026/07/23/crosswords/strands-sidekick-873.html
 https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
 
 **Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It Wants to Go Nuclear.**\
-`Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But the world’s largest exporter of crude oil has other motives for diversifying its energy mix.`\
+`Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But there are other reasons for the world’s largest oil exporter to diversify its energy mix.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
 
 **Iran War Live Updates: Attacks in Red Sea Send Oil Prices Over $100 a Barrel**\

@@ -1,3 +1,7 @@
+**Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It Wants to Go Nuclear.**\
+`Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But there are other reasons for the world’s largest oil exporter to diversify its energy mix.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
+
 **El acuerdo entre EE. UU. y Arabia Saudita suscita temores de una carrera armamentista nuclear mundial**\
 `En Europa, Asia y Medio Oriente, los países buscan capacidades nucleares para protegerse de vecinos agresivos y de un Washington que se retira, lo cual podría crear una era más desenfrenada.`\
 https://www.nytimes.com/es/2026/07/23/espanol/mundo/eeuu-arabia-saudita-acuerdo-nuclear.html
