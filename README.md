@@ -1,3 +1,7 @@
+**Trump Prepares Yet Another Strategy to Resurrect Global Tariffs**\
+`The administration’s 10 percent global tariffs are set to expire at midnight, but officials have been preparing replacements.`\
+https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
+
 **Supreme Court Turbocharges Presidential Power**\
 `A pair of decisions reshaped the structure of the federal government.`\
 https://www.nytimes.com/2026/07/23/us/politics/the-docket-presidential-power-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/opinion/trump-vance-iran-cyclospora.html
 **You’ve Just Won… the Chance to Buy a House**\
 `In a novel public-private partnership, a Chicago suburb raffled off the opportunity for local residents to buy houses below market rate.`\
 https://www.nytimes.com/2026/07/23/realestate/chicago-housing-raffle.html
-
-**Nuclear Energy Revival Puts Westinghouse in Prime Position**\
-`The company, which filed for bankruptcy protection in 2017, stands to benefit from growing support for nuclear power and President Trump’s deal with Saudi Arabia.`\
-https://www.nytimes.com/2026/07/23/business/energy-environment/westinghouse-nuclear-energy-trump-saudi-arabia.html
 
