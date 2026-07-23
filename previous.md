@@ -1,3 +1,19 @@
+**Canada: Neighbor or 51st State?**\
+`Is the United States actually going to annex Canada? On “Interesting Times,” the Opinion columnist Ross Douthat pushes the senior Trump administration official Elbridge Colby on just how real the threat of annexation is.`\
+https://www.nytimes.com/video/opinion/100000011037618/canada-neighbor-or-51st-state.html
+
+**A Lakers Jacket, Bought for $3 at Goodwill, Fetches Nearly $90,000 at Auction**\
+`Quinn Brown, a 19-year-old thrifter from Portland, Ore., bought a warm-up jacket worn by Wilt Chamberlain for $3.07. Six months later, Sotheby’s auctioned it off for $89,600.`\
+https://www.nytimes.com/2026/07/23/us/lakers-wilt-chamberlain-jacket-auction.html
+
+**‘Trying and Failing’ in Iran**\
+`What message is America’s performance in the Iran war sending the rest of the world? Elbridge Colby, under secretary of defense for policy, argues on “Interesting Times” that it’s one of American strength.`\
+https://www.nytimes.com/video/opinion/100000011037619/canada-neighbor-or-51st-state.html
+
+**Trump-Thune Rift Intensifies Over Stalled Election Bill**\
+`A White House spokeswoman said President Trump’s patience was running thin. The top Senate Republican said she should try finding the votes.`\
+https://www.nytimes.com/2026/07/23/us/politics/trump-thune-rift-intensifies-over-stalled-election-bill.html
+
 **El gobierno de Trump retirará las citaciones emitidas a periodistas del Times**\
 `Un juez federal cuestionó el manejo de las citaciones por parte del gobierno, las cuales el Times calificó como un intento de intimidar a la prensa libre.`\
 https://www.nytimes.com/es/2026/07/23/espanol/negocios/trump-citatorios-periodistas-new-york-times.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/23/dining/charred-shrimp-with-shimi-sauce-to-sha
 **Trump’s Tariff Runaround Defies the Courts and Common Sense**\
 `The administration will keep trying to run around rulings against import fees.`\
 https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
-
-**Daniel Siad, reclutador de modelos con enlaces a Epstein es hallado muerto en Francia**\
-`Daniel Siad le presentó repetidamente mujeres jóvenes a Jeffrey Epstein, según mensajes entre ambos. Siad había negado haber cometido algún delito.`\
-https://www.nytimes.com/es/2026/07/23/espanol/mundo/epstein-daniel-siad-modelos-muerte.html
-
-**House Rebukes Trump on Iran in War Powers Vote as Senate Blocks Debate**\
-`For the second time, a few House Republicans joined Democrats to back a measure calling on the president to seek authorization for the war.`\
-https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.html
-
-**China Rewrites the ‘Soft Power’ Playbook for the A.I. Age**\
-`China is seeking global influence and good will with its open, low-cost artificial intelligence software.`\
-https://www.nytimes.com/2026/07/23/business/china-ai-soft-power.html
-
-**‘Odyssey’ Popcorn Buckets Help Fuel a $100 Million Market**\
-`Once, a tub of popcorn was just a tub of popcorn. Now, ‘collectible concession vessels’ could make one chain more than $100 million.`\
-https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets.html
 

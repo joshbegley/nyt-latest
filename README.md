@@ -1,3 +1,7 @@
+**Number of U.S. Troop Deaths Suddenly Appears Lower on Pentagon Website**\
+`Three military officials and a Pentagon spokesman gave conflicting explanations for why the number of Americans killed in the Iran war had changed.`\
+https://www.nytimes.com/2026/07/23/us/politics/iran-troop-deaths.html
+
 **Canada: Neighbor or 51st State?**\
 `Is the United States actually going to annex Canada? On “Interesting Times,” the Opinion columnist Ross Douthat pushes the senior Trump administration official Elbridge Colby on just how real the threat of annexation is.`\
 https://www.nytimes.com/video/opinion/100000011037618/canada-neighbor-or-51st-state.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/video/opinion/100000011037619/canada-neighbor-or-51st-st
 
 **Trump-Thune Rift Intensifies Over Stalled Election Bill**\
 `A White House spokeswoman said President Trump’s patience was running thin. The top Senate Republican said she should try finding the votes.`\
-https://www.nytimes.com/2026/07/23/us/politics/trump-thune-rift-intensifies-over-stalled-election-bill.html
+https://www.nytimes.com/2026/07/23/us/politics/trump-thune-senate-election-bill.html
 
 **El gobierno de Trump retirará las citaciones emitidas a periodistas del Times**\
 `Un juez federal cuestionó el manejo de las citaciones por parte del gobierno, las cuales el Times calificó como un intento de intimidar a la prensa libre.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011048325/police-shooting-wis
 **Charred Shrimp With Shimi Sauce to Share**\
 `(No description)`\
 https://www.nytimes.com/2026/07/23/dining/charred-shrimp-with-shimi-sauce-to-share.html
-
-**Trump’s Tariff Runaround Defies the Courts and Common Sense**\
-`The administration will keep trying to run around rulings against import fees.`\
-https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
 
