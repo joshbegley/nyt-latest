@@ -1,3 +1,7 @@
+**Former Head of All-Girls School Indicted, Accused of Ignoring Abuse Reports**\
+`Jean Norris, who ran Miss Hall’s School in Massachusetts, was charged with reckless endangerment of a child. A former teacher under her tenure faces three rape charges.`\
+https://www.nytimes.com/2026/07/22/us/head-of-miss-halls-school-indicted.html
+
 **Amish Shah Wins Democratic Primary in Swing Arizona House District**\
 `Dr. Amish Shah, who beat the choice of the party’s House campaign arm, will face Jay Feely, a Republican, in a battleground district that covers parts of Phoenix.`\
 https://www.nytimes.com/2026/07/22/us/politics/amish-shah-arizona-house-democrats.html
