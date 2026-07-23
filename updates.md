@@ -1,3 +1,31 @@
+**Google Hit With $1 Billion Fine By EU Over Search Engine Practices**\
+`At a tense moment for trans-Atlantic trade, the European Union accused Google of anti-competitive business practices.`\
+https://www.nytimes.com/2026/07/23/business/google-eu-fine-search-competition.html
+
+**Why Is the U.S. Building the Saudi Nuclear Program While Destroying Iran’s?**\
+`Our reporter explains what both countries are getting out of the deal.`\
+https://www.nytimes.com/2026/07/23/podcasts/the-daily/saudi-nuclear-program.html
+
+**U.S. Employers Forced to Fire Thousands of Immigrants, and a Showdown over Peptides**\
+`Plus, America says no thanks to salad.`\
+https://www.nytimes.com/2026/07/23/podcasts/the-headlines/immigrants-peptides-salad.html
+
+**NYT Connections Answers for July 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/23/crosswords/connections-companion-1139.html
+
+**NYT Strands Hints for July 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/23/crosswords/strands-sidekick-873.html
+
+**Today’s Wordle Hints for July 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
+
+**Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It’s Going Nuclear.**\
+`The world’s largest exporter of crude oil stands to benefit from diversifying its energy sources — and freeing up more oil to sell.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
+
 **Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
 `The price of Brent crude rose above $98 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. Overnight, the U.S. and Iran showed no letup in their fighting.`\
 https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
