@@ -1,3 +1,7 @@
+**Debate Over Ancient Iranian Jewelry Worn by Zendaya to ‘Odyssey’ Event**\
+`The actress wore earrings to an event for “The Odyssey” that a London gallery has said were made from an ancient artifact.`\
+https://www.nytimes.com/2026/07/22/style/zendaya-odyssey-earrings-jewelry.html
+
 **Jason Alexander Apologizes for 2012 Sketch With Teenage Courtney Stodden**\
 `Alexander rubs a phone against the actress’s breasts in the Funny or Die comedy sketch, which was published when she was 17.`\
 https://www.nytimes.com/2026/07/22/arts/television/jason-alexander-apology-courtney-stodden.html
