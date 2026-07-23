@@ -1,3 +1,7 @@
+**Global Oil Prices Rise as Conflict with Iran Deepens**\
+`The Houthis claimed to have attacked two ships in the Red Sea, and Iran said a third caught fire near the Strait of Hormuz.`\
+https://www.nytimes.com/2026/07/23/business/crude-oil-gas-stock-prices.html
+
 **Haiti Needs Stability, Not Mass Deportations**\
 `Deporting Haitian migrants will further destabilize a country in crisis.`\
 https://www.nytimes.com/2026/07/23/opinion/trump-haiti-tps-immigration.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/22/technology/alphabet-google-earnings-profit.ht
 **My (Crazy, Heartbreaking, Glorious) World Cup Adventure**\
 `Soccer is perfect for screens. But being there in person showed me a side of the sport — and of my fellow human beings — that I’ll never forget.`\
 https://www.nytimes.com/2026/07/22/magazine/world-cup-recap.html
-
-**Louvre Museum Reopens Gallery After Brazen Robbery**\
-`The Louvre Museum’s Apollo Gallery was reopened to visitors for the first time on Wednesday since a brazen robbery last year.`\
-https://www.nytimes.com/video/world/europe/100000011047123/france-louvre-reopening-jewels.html
 

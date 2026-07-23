@@ -1,3 +1,7 @@
+**Haiti Needs Stability, Not Mass Deportations**\
+`Deporting Haitian migrants will further destabilize a country in crisis.`\
+https://www.nytimes.com/2026/07/23/opinion/trump-haiti-tps-immigration.html
+
 **Quote of the Day: From Skeptical to Smitten: An American Evolution**\
 `Quotation of the Day for Thursday, July 23, 2026.`\
 https://www.nytimes.com/2026/07/23/pageoneplus/quote-of-the-day-from-skeptical-to-smitten-an-american-evolution.html
