@@ -1,3 +1,7 @@
+**Republican Lawmaker Urges Charges Against Jack Smith**\
+`The criminal referral could provide a catalyst for a prosecution of Mr. Smith, who as special counsel became a top target of the president’s retribution campaign.`\
+https://www.nytimes.com/2026/07/22/us/politics/jack-smith-jim-jordan-charges.html
+
 **Fire in San Diego County Prompts Evacuation Orders**\
 `More than 2,000 people have been told to flee the Creelman fire, which has burned more than 300 acres without any containment near Ramona, Calif.`\
 https://www.nytimes.com/2026/07/22/us/fire-in-san-diego-county-prompts-evacuation-orders.html
