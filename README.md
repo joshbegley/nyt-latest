@@ -1,3 +1,7 @@
+**Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
+`As savvy as he could be volatile, he advised Nancy Pelosi and Dianne Feinstein, ran for mayor of San Francisco and bought The San Francisco Examiner.`\
+https://www.nytimes.com/2026/07/23/us/politics/clint-reilly-dead.html
+
 **Illinois Changes Tack on Data Centers**\
 `At the Aspen Ideas climate conference, Gov. JB Pritzker spoke about disincentivizing data centers instead of providing financial incentives.`\
 https://www.nytimes.com/2026/07/23/climate/data-centers-pritzker.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/07/23/climate/data-centers-pritzker.html
 `La clientela de cadenas de restaurantes como Chipotle y Chopt ha caído desde que comenzaron los avisos sobre infecciones por “Cyclospora” relacionadas con la lechuga en EE. UU.`\
 https://www.nytimes.com/es/2026/07/23/espanol/negocios/cyclospora-brote-lechuga-restaurantes.html
 
-**What’s in a name? Depends where you are.**\
+**What’s in a Name? Depends Where You Are.**\
 `Place names change with time, depending on how the locals understand them.`\
 https://www.nytimes.com/2026/07/23/opinion/place-names-pronunciation-language.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html
 **Global Oil Price Hits $100 a Barrel for First Time Since May**\
 `The recent rebound reflects traders’ growing concern about the expanding war, which now extends from the Persian Gulf to the Red Sea.`\
 https://www.nytimes.com/2026/07/23/business/oil-price-100-dollars.html
-
-**Ford Will Use Apple Maps in New Self-Driving System**\
-`In a first, Apple software will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
-https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html
 
