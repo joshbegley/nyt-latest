@@ -1,3 +1,11 @@
+**Ford Will Use Apple Software in New Self-Driving System**\
+`In a first, Apple Maps will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
+https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html
+
+**Edward O’Keefe Named C.E.O. of WNET**\
+`Mr. O’Keefe, who was previously an executive at CNN, is the chief executive of the Theodore Roosevelt Presidential Library.`\
+https://www.nytimes.com/2026/07/23/business/edward-okeefe-wnet-thirteen-pbs.html
+
 **For South Korea, U.S.-Saudi Nuclear Deal Exposes a Double Standard**\
 `President Trump has put Saudi Arabia on the path to enriching uranium on its own soil, a demand South Korea has been making for years.`\
 https://www.nytimes.com/2026/07/23/world/asia/us-saudi-nuclear-deal-south-korea.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/hadestown-the-musical-review.html
 **‘A Sad and Beautiful World’ Review: A Love to Overcome Fear**\
 `In Lebanon, a lush romance in uncertain times asks what keeps us human.`\
 https://www.nytimes.com/2026/07/23/movies/a-sad-and-beautiful-world-review.html
-
-**‘Rosebush Pruning’ Review: A Petty Provocation**\
-`Karim Aïnouz’s feeble satire thrusts the incest taboo upon a comely cast but fails to stir any interest.`\
-https://www.nytimes.com/2026/07/23/movies/rosebush-pruning-review.html
-
-**‘Sheep in the Box’ Review: Haunted by His Absence**\
-`The latest from the Japanese director Hirokazu Kore-eda follows a couple who bring home an artificial replacement of their son.`\
-https://www.nytimes.com/2026/07/23/movies/sheep-in-the-box-review.html
 
