@@ -1,3 +1,15 @@
+**Trump’s New Tariffs: Just as Bad as the Old Tariffs**\
+`The administration will keep trying to run around rulings against import fees.`\
+https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
+
+**Charred Shrimp With Shimi Sauce to Share**\
+`(No description)`\
+https://www.nytimes.com/2026/07/23/dining/charred-shrimp-with-shimi-sauce-to-share.html
+
+**Iran War Live Updates: Attacks in Red Sea Send Oil Prices Over $100 a Barrel**\
+`The price of Brent crude soared after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. The House cast a second vote to rein in President Trump’s war powers, with four Republicans joining Democrats to rebuke the president.`\
+https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
+
 **Daniel Siad, reclutador de modelos con enlaces a Epstein es hallado muerto en Francia**\
 `Daniel Siad le presentó repetidamente mujeres jóvenes a Jeffrey Epstein, según mensajes entre ambos. Siad había negado haber cometido algún delito.`\
 https://www.nytimes.com/es/2026/07/23/espanol/mundo/epstein-daniel-siad-modelos-muerte.html
