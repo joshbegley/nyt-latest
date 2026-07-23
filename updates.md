@@ -1,3 +1,7 @@
+**Map: 5.0-Magnitude Earthquake Shakes Texas Panhandle**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html
+
 **Map: 5.0-Magnitude Earthquake Shakes Texas**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html
