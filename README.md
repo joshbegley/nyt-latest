@@ -1,3 +1,7 @@
+**Bear Dies After Getting Stranded Atop Electric Pole in New Mexico**\
+`The animal’s plight alarmed onlookers and highlighted the drought conditions that are forcing wild bears closer to where people live in search of food.`\
+https://www.nytimes.com/2026/07/23/us/new-mexico-bear-electrical-pole-death.html
+
 **Tugboat Captain Pleads Guilty in Miami Crash That Killed 3 Children**\
 `Prosecutors said the captain’s view was blocked as the barge he was pushing struck a sailboat carrying young campers and a counselor on Biscayne Bay.`\
 https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets
 **‘The Odyssey’ Hired Their Viking Ship. They Say It Came Back Damaged.**\
 `A Swedish Viking center said its vessel was used in the filming of Christopher Nolan’s epic but needed repairs when it was returned. Now, the center is seeking compensation.`\
 https://www.nytimes.com/2026/07/23/movies/the-odyssey-viking-ship-sweden.html
-
-**Four Young Mathematicians Receive Prestigious Fields Medals**\
-`The awards are bestowed only once every four years to mathematicians under the age of 40.`\
-https://www.nytimes.com/2026/07/23/science/fields-medals-pardon-deng-wang-tsimerman.html
 
