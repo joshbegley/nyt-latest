@@ -1,3 +1,15 @@
+**Repairing Storm Damage Is Expensive. It’s Only Going to Get Worse.**\
+`A report from a group called Rebuild by Design estimates that New York will have to spend more than half a trillion dollars to repair the effects of climate change in the next 24 years.`\
+https://www.nytimes.com/2026/07/23/nyregion/new-york-storm-damage-repair-cost-climate-change.html
+
+**N.Y.C. Schools Miss Out on $431 Million in Medicaid Payouts, Audit Finds**\
+`The comptroller’s office said that the city’s Department of Education had lacked documentation or did not seek reimbursement for special education services.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-schools-medicaid-reimbursements.html
+
+**NYT Spelling Bee Answers for July 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/23/crosswords/spelling-bee-forum.html
+
 **El futuro de una ciudad fronteriza depende de las próximas medidas comerciales de Trump**\
 `Laredo, Texas, se ha convertido en el principal puerto de entrada de EE. UU. Las nuevas negociaciones podrían echar por tierra ese éxito.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/laredo-frontera-comercio-aranceles.html
@@ -22,13 +34,13 @@ https://www.nytimes.com/2026/07/23/opinion/trump-haiti-tps-immigration.html
 `Quotation of the Day for Thursday, July 23, 2026.`\
 https://www.nytimes.com/2026/07/23/pageoneplus/quote-of-the-day-from-skeptical-to-smitten-an-american-evolution.html
 
-**Diesel Crisis Puts Poor Farmers Around the World at Risk**\
-`The closure of the Strait of Hormuz has limited the shipment of diesel, depriving farmers of fuel for irrigation pumps and threatening the food supply.`\
-https://www.nytimes.com/2026/07/23/business/bangladesh-farmers-diesel-water-iran.html
-
 **U.S. Military Presence in Jordan Makes It Iranian Target**\
 `Relying heavily on U.S. aid and protection, Jordan is unlikely to restrict the American military presence there, despite escalating Iranian airstrikes.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/jordan-iran-us-forces.html
+
+**Diesel Crisis Puts Poor Farmers Around the World at Risk**\
+`The closure of the Strait of Hormuz has limited the shipment of diesel, depriving farmers of fuel for irrigation pumps and threatening the food supply.`\
+https://www.nytimes.com/2026/07/23/business/bangladesh-farmers-diesel-water-iran.html
 
 **Japan’s Leader Invokes Her Hero, Shinzo Abe, to Drive Nationalist Agenda**\
 `Prime Minister Sanae Takaichi is leveraging her ties to Mr. Abe, the slain Japanese leader, as she pushes to reshape defense and the economy.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/22/us/politics/house-defense-bill-iran-war.html
 **What to Know as Tropical Storm Bertha Makes Landfall on Louisiana Coast**\
 `The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
 https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html
-
-**Bobbi Queen, Fashion Arbiter Who Nurtured Stars, Dies at 84**\
-`As an influential editor at Women’s Wear Daily, she championed generations of designers, including Donna Karan and Vera Wang.`\
-https://www.nytimes.com/2026/07/22/style/bobbi-queen-dead.html
-
-**Speaking for Fallen Soldiers, Trump Says They Supported the Iran War**\
-`President Trump attended a dignified transfer for the soldiers as Americans were growing increasingly critical of the war.`\
-https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html
-
-**Trump Attends the Return of Four Soldiers Killed in Iran War**\
-`President Trump on Wednesday oversaw the return of four U.S. Army soldiers recently killed overseas in the war with Iran.`\
-https://www.nytimes.com/video/us/politics/100000011046811/trump-iran-war-fallen-soldiers.html
 
