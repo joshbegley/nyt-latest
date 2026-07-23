@@ -1,3 +1,7 @@
+**Tate’s New Director Knows Its Glory Days. Can She Bring Them Back?**\
+`Jessica Morgan was at Tate before Brexit, the pandemic and steep cuts to the arts. Her work at Dia Art Foundation since then suggests that she is an optimistic appointment for the British museum group.`\
+https://www.nytimes.com/2026/07/23/arts/jessica-morgan-tate-dia.html
+
 **House Republicans Pass Defense Spending Plans**\
 `House Republicans narrowly passed two plans that would satisfy the Trump administration’s funding demands for the war in Iran and its efforts to rebrand the Defense Department. But their prospects are far dimmer in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011048175/house-defense-bill-trump-iran-war.html

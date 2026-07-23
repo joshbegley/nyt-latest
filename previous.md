@@ -1,3 +1,7 @@
+**Tate’s New Director Knows Its Glory Days. Can She Bring Them Back?**\
+`Jessica Morgan was at Tate before Brexit, the pandemic and steep cuts to the arts. Her work at Dia Art Foundation since then suggests that she is an optimistic appointment for the British museum group.`\
+https://www.nytimes.com/2026/07/23/arts/jessica-morgan-tate-dia.html
+
 **House Republicans Pass Defense Spending Plans**\
 `House Republicans narrowly passed two plans that would satisfy the Trump administration’s funding demands for the war in Iran and its efforts to rebrand the Defense Department. But their prospects are far dimmer in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011048175/house-defense-bill-trump-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/travel/tsa-privatization-push.html
 **House Adopts $95 Billion G.O.P. Budget for Iran War**\
 `Republican leaders muscled through resistance in their own ranks to approve the budget blueprint for the war and other measures, but its prospects were far dimmer in the Senate.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pentagon.html
-
-**The Next Big Tests for the Left: Michigan, Wisconsin and Minnesota**\
-`Progressives are now fighting in swingier terrain in purple or light-blue states.`\
-https://www.nytimes.com/2026/07/22/us/politics/progressives-michigan-wisconsin-minnesota.html
 
