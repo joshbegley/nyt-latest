@@ -1,3 +1,11 @@
+**Trump Prepares Yet Another Strategy to Resurrect Global Tariffs**\
+`The administration’s 10 percent global tariffs are set to expire at midnight, but officials have been preparing replacements.`\
+https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
+
+**Supreme Court Turbocharges Presidential Power**\
+`A pair of decisions reshaped the structure of the federal government.`\
+https://www.nytimes.com/2026/07/23/us/politics/the-docket-presidential-power-trump.html
+
 **El acuerdo entre EE. UU. y Arabia Saudita suscita temores de una carrera armamentista nuclear mundial**\
 `En Europa, Asia y Medio Oriente, los países buscan capacidades nucleares para protegerse de vecinos agresivos y de un Washington que se retira, lo cual podría crear una era más desenfrenada.`\
 https://www.nytimes.com/es/2026/07/23/espanol/mundo/eeuu-arabia-saudita-acuerdo-nuclear.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/opinion/trump-vance-iran-cyclospora.html
 **You’ve Just Won… the Chance to Buy a House**\
 `In a novel public-private partnership, a Chicago suburb raffled off the opportunity for local residents to buy houses below market rate.`\
 https://www.nytimes.com/2026/07/23/realestate/chicago-housing-raffle.html
-
-**Nuclear Energy Revival Puts Westinghouse in Prime Position**\
-`The company, which filed for bankruptcy protection in 2017, stands to benefit from growing support for nuclear power and President Trump’s deal with Saudi Arabia.`\
-https://www.nytimes.com/2026/07/23/business/energy-environment/westinghouse-nuclear-energy-trump-saudi-arabia.html
-
-**She Was ‘Super Happy’ Living in Queens. But One Thing Was Missing.**\
-`After growing up with both a front porch and a back deck, this Queens resident was tired of renting and ready for her own slice of the outdoors.`\
-https://www.nytimes.com/interactive/2026/07/23/realestate/astoria-queens-home-sales-prices.html
 

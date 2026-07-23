@@ -1,3 +1,11 @@
+**Trump Prepares Yet Another Strategy to Resurrect Global Tariffs**\
+`The administration’s 10 percent global tariffs are set to expire at midnight, but officials have been preparing replacements.`\
+https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
+
+**Supreme Court Turbocharges Presidential Power**\
+`A pair of decisions reshaped the structure of the federal government.`\
+https://www.nytimes.com/2026/07/23/us/politics/the-docket-presidential-power-trump.html
+
 **Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It Wants to Go Nuclear.**\
 `Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But there are other reasons for the world’s largest oil exporter to diversify its energy mix.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
