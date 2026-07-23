@@ -1,3 +1,7 @@
+**As Part of Nuclear Deal, Trump Demands Saudi Arabia Join the Abraham Accords**\
+`The president’s new condition could create a roadblock to the Saudi nuclear deal his administration announced this week.`\
+https://www.nytimes.com/2026/07/23/us/politics/saudi-nuclear-deal-israel.html
+
 **Corrections: July 23, 2026**\
 `Corrections that appeared in print on Thursday, July 23, 2026.`\
 https://www.nytimes.com/2026/07/23/pageoneplus/corrections-july-23-2026.html
