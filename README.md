@@ -1,3 +1,7 @@
+**‘The Odyssey’ Hired Their Viking Ship. They Say It Came Back Damaged.**\
+`A Swedish Viking center said its vessel was used in the filming of Christopher Nolan’s epic but needed repairs when it was returned. Now, the center is seeking compensation.`\
+https://www.nytimes.com/2026/07/23/movies/the-odyssey-viking-ship-sweden.html
+
 **Four Young Mathematicians Receive Prestigious Fields Medals**\
 `The awards are bestowed only once every four years to mathematicians under the age of 40.`\
 https://www.nytimes.com/2026/07/23/science/fields-medals-pardon-deng-wang-tsimerman.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/summer-horror-movies-theater-nyc.html
 **She Knows Parks, and Now She’ll Run a Famous Garden**\
 `Sue Donoghue, a former City Parks commissioner, is the new head of the Brooklyn Botanic Garden. She used to take her children there to watch bunny rabbits hopping.`\
 https://www.nytimes.com/2026/07/23/nyregion/botanic-garden-sue-donoghue.html
-
-**How Trump Is Getting Richer as President**\
-`Since he came back to office, President Trump has made huge amounts of money from cryptocurrency and foreign investments, posing the question of whether he is using his power as president to enrich himself. Andrea Fuller, a Times data journalist, explains.`\
-https://www.nytimes.com/video/us/100000011038989/how-trump-is-getting-richer-as-president.html
 
