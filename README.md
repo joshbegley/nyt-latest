@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.
 `China is seeking global influence and good will with its open, low-cost artificial intelligence software.`\
 https://www.nytimes.com/2026/07/23/business/china-ai-soft-power.html
 
-**Movie Theaters Embrace the Bewilderingly Lucrative Business of Buckets**\
-`Once, a tub of popcorn was just a tub of popcorn. Now, “collectible concession vessels” could make one chain more than $100 million.`\
+**‘Odyssey’ Popcorn Buckets Help Fuel a $100 Million Market**\
+`Once, a tub of popcorn was just a tub of popcorn. Now, ‘collectible concession vessels’ could make one chain more than $100 million.`\
 https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets.html
 
 **‘The Odyssey’ Hired Their Viking Ship. They Say It Came Back Damaged.**\
@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/07/23/business/edward-okeefe-wnet-thirteen-pbs.html
 `President Trump has put Saudi Arabia on the path to enriching uranium on its own soil, a demand South Korea has been making for years.`\
 https://www.nytimes.com/2026/07/23/world/asia/us-saudi-nuclear-deal-south-korea.html
 
-**Man Fatally Shot by Police in Wisconsin’s Capital, Stirring Protests**\
+**Man Fatally Shot by Police in Madison, WI, Stirring Protests**\
 `The officer who fired was injured with a knife while attempting an arrest, the Madison police chief said. Footage of the shooting circulated widely online.`\
 https://www.nytimes.com/2026/07/23/us/madison-wisconsin-police-shooting-protests.html
 
