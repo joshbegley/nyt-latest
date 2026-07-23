@@ -1,3 +1,11 @@
+**It’s So Hot That Japan Needs a New Word for It**\
+`Japan this week recorded its first kokushobi, a term that means “cruel heat day,” as temperatures reached 104 degrees. It is not the only country that has scrambled for a new summer vocabulary.`\
+https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
+
+**A Russian Spy, Suddenly Cast Into the Spotlight, Flees Japan**\
+`The military intelligence officer left the country after The Times reported that he was using the Aeroflot airline office in Tokyo to conduct espionage.`\
+https://www.nytimes.com/2026/07/23/world/asia/russian-spy-flees-japan.html
+
 **Is Orange Coffee the Drink of Summer?**\
 `Plus: a Florentine palazzo hotel, cloud-shaped jewelry and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/07/23/t-magazine/orange-coffee-cafes.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/23/books/review/valeria-luiselli-beginning-middl
 **Why I Sought Out a Taliban Commander I Had Fought**\
 `First as a Marine and then as a journalist, I spent years tied to Afghanistan. I returned one last time to speak to a former enemy in search of answers, and perhaps closure.`\
 https://www.nytimes.com/2026/07/23/world/asia/taliban-afghanistan-marine.html
-
-**Let These 11 Celebrities Read You Their Memoirs**\
-`There’s nothing like hearing a famous person’s life story in their own, instantly recognizable voice.`\
-https://www.nytimes.com/2026/07/23/books/review/celebrity-audiobook-memoirs.html
-
-**Splatoon Raiders Review: Paint, Paint, Everywhere, and Not a Friend to Ink**\
-`Instead of competitive multiplayer, Splatoon Raiders has you take on fishlike enemies with an array of weapons and gadgets.`\
-https://www.nytimes.com/2026/07/23/arts/splatoon-raiders-review.html
 
