@@ -1,3 +1,11 @@
+**Did the World Cup Live Up to Tourism Expectations? Here Are the Winners and Losers.**\
+`Host cities, hotels, tourism boards and more had lofty expectations for the World Cup, but some struck gold, while some fizzled. Here’s the breakdown.`\
+https://www.nytimes.com/2026/07/23/travel/world-cup-tourism-us-canada-mexico.html
+
+**Kagan Says Supreme Court Has Stood Up to Trump in Key Cases**\
+`At an annual meeting of judges and lawyers, the liberal justice defended her conservative colleagues from criticism that they have rubber-stamped President Trump’s agenda.`\
+https://www.nytimes.com/2026/07/23/us/politics/elena-kagan-supreme-court-trump.html
+
 **Conor Oberst on Hitting Rock Bottom**\
 `The musician Conor Oberst spoke with Joe Coscarelli and Jon Caramanica, hosts of “Popcast,” about navigating stardom, overcoming health struggles, writing political music and playing with his band, Bright Eyes.`\
 https://www.nytimes.com/video/podcasts/100000011046258/conor-oberst-on-hitting-rock-bottom.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/video/podcasts/100000011046262/bright-eyes-conor-oberst-
 `Also, oil hits $100 a barrel. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/23/briefing/trump-impose-tariffs-popcorn-buckets.html
 
-**Number of U.S. Troop Deaths Suddenly Appears Lower on Pentagon Website**\
+**Number of U.S. Troop Deaths in Iran War Appears Lower on Pentagon Website**\
 `Three military officials and a Pentagon spokesman gave conflicting explanations for why the number of Americans killed in the Iran war had changed.`\
 https://www.nytimes.com/2026/07/23/us/politics/iran-troop-deaths.html
 
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/07/23/us/lakers-wilt-chamberlain-jacket-auction.htm
 `What message is America’s performance in the Iran war sending the rest of the world? Elbridge Colby, under secretary of defense for policy, argues on “Interesting Times” that it’s one of American strength.`\
 https://www.nytimes.com/video/opinion/100000011037619/canada-neighbor-or-51st-state.html
 
-**Trump-Thune Rift Intensifies Over Stalled Election Bill**\
+**Trump and Thune Clash Over SAVE America Act**\
 `A White House spokeswoman said President Trump’s patience was running thin. The top Senate Republican said she should try finding the votes.`\
 https://www.nytimes.com/2026/07/23/us/politics/trump-thune-senate-election-bill.html
 
@@ -83,7 +91,7 @@ https://www.nytimes.com/video/us/politics/100000011049244/saudi-arabia-nuclear-d
 https://www.nytimes.com/2026/07/23/world/middleeast/red-sea-strikes-oil-houthis.html
 
 **Border Crossings Targeted in Latest U.S.-Iran Exchanges**\
-`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
+`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-us-iran-strikes.html
 
 **Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
@@ -182,19 +190,11 @@ https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peo
 `Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
 
-**US to Impose New Global Tariffs of Around 10% After Previous Duties Lapse**\
+**Trump Administration to Impose New Tariffs of Around 10% on Over 80 Nations**\
 `The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
 https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
 
 **Supreme Court Turbocharges Presidential Power**\
 `A pair of decisions reshaped the structure of the federal government.`\
 https://www.nytimes.com/2026/07/23/us/politics/the-docket-presidential-power-trump.html
-
-**El acuerdo entre EE. UU. y Arabia Saudita suscita temores de una carrera armamentista nuclear mundial**\
-`En Europa, Asia y Medio Oriente, los países buscan capacidades nucleares para protegerse de vecinos agresivos y de un Washington que se retira, lo cual podría crear una era más desenfrenada.`\
-https://www.nytimes.com/es/2026/07/23/espanol/mundo/eeuu-arabia-saudita-acuerdo-nuclear.html
-
-**Today, In Short**\
-`Ryan Gosling. MrBeast. And celibacy.`\
-https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
 

@@ -1,3 +1,7 @@
+**Intel Benefits From a New Shift in A.I. Spending**\
+`The Silicon Valley chipmaker’s revenue rose 25 percent in the latest quarter, its fastest growth in 15 years, as A.I. firms increasingly bought chips known as central processing units.`\
+https://www.nytimes.com/2026/07/23/technology/intel-quarterly-results.html
+
 **Did the World Cup Live Up to Tourism Expectations? Here Are the Winners and Losers.**\
 `Host cities, hotels, tourism boards and more had lofty expectations for the World Cup, but some struck gold, while some fizzled. Here’s the breakdown.`\
 https://www.nytimes.com/2026/07/23/travel/world-cup-tourism-us-canada-mexico.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/07/23/climate/trump-ai-data-centers.html
 `Saudi Arabia has long said that a condition of normalizing relations with Israel would be a pathway toward Palestinian statehood, a prospect that Israel’s current government has rejected.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/trump-saudi-arabia-palestinian-state.html
 
-**U.S. to Withdraw Subpoenas Issued to New York Times Journalists**\
-`A federal judge raised questions about the government’s handling of the subpoenas, which The Times said were an attempt to intimidate the free press.`\
+**U.S. Withdraws Subpoenas Issued to New York Times Journalists**\
+`A federal judge raised questions about the government’s handling of the subpoenas, which The Times called an attempt to intimidate the free press.`\
 https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html
 
 **ICE Targets ‘Detention Desert’ With New Facility in North Carolina**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck
 **Trump Administration to Impose New Tariffs of Around 10% on Over 80 Nations**\
 `The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
 https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
-
-**Supreme Court Turbocharges Presidential Power**\
-`A pair of decisions reshaped the structure of the federal government.`\
-https://www.nytimes.com/2026/07/23/us/politics/the-docket-presidential-power-trump.html
 

@@ -1,3 +1,27 @@
+**Did the World Cup Live Up to Tourism Expectations? Here Are the Winners and Losers.**\
+`Host cities, hotels, tourism boards and more had lofty expectations for the World Cup, but some struck gold, while some fizzled. Here’s the breakdown.`\
+https://www.nytimes.com/2026/07/23/travel/world-cup-tourism-us-canada-mexico.html
+
+**Kagan Says Supreme Court Has Stood Up to Trump in Key Cases**\
+`At an annual meeting of judges and lawyers, the liberal justice defended her conservative colleagues from criticism that they have rubber-stamped President Trump’s agenda.`\
+https://www.nytimes.com/2026/07/23/us/politics/elena-kagan-supreme-court-trump.html
+
+**Number of U.S. Troop Deaths in Iran War Appears Lower on Pentagon Website**\
+`Three military officials and a Pentagon spokesman gave conflicting explanations for why the number of Americans killed in the Iran war had changed.`\
+https://www.nytimes.com/2026/07/23/us/politics/iran-troop-deaths.html
+
+**Trump and Thune Clash Over SAVE America Act**\
+`A White House spokeswoman said President Trump’s patience was running thin. The top Senate Republican said she should try finding the votes.`\
+https://www.nytimes.com/2026/07/23/us/politics/trump-thune-senate-election-bill.html
+
+**Border Crossings Targeted in Latest U.S.-Iran Exchanges**\
+`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
+https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-us-iran-strikes.html
+
+**Trump Administration to Impose New Tariffs of Around 10% on Over 80 Nations**\
+`The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
+https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
+
 **Conor Oberst on Hitting Rock Bottom**\
 `The musician Conor Oberst spoke with Joe Coscarelli and Jon Caramanica, hosts of “Popcast,” about navigating stardom, overcoming health struggles, writing political music and playing with his band, Bright Eyes.`\
 https://www.nytimes.com/video/podcasts/100000011046258/conor-oberst-on-hitting-rock-bottom.html
