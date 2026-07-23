@@ -1,3 +1,7 @@
+**Veteranos de Vietnam rechazan el nuevo nombre de una autopista en honor a Charlie Kirk**\
+`El tramo de la ruta estatal 386 de Tennessee al norte de Nashville llevaba el nombre de Bulevar de los Veteranos de Vietnam desde hace casi cuatro décadas.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/charlie-kirk-vereranos-vietnam.html
+
 **Intel Benefits From a New Shift in A.I. Spending**\
 `The Silicon Valley chipmaker’s revenue rose 25 percent in the latest quarter, its fastest growth in 15 years, as A.I. firms increasingly bought chips known as central processing units.`\
 https://www.nytimes.com/2026/07/23/technology/intel-quarterly-results.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peo
 **Chaos Breaks Out at Border Crossings With Iraq**\
 `Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
-
-**Trump Administration to Impose New Tariffs of Around 10% on Over 80 Nations**\
-`The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
-https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
 
