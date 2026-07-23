@@ -1,3 +1,7 @@
+**Prominent Indian Activist Breaks Hunger Strike After 26 Days**\
+`The activist, Sonam Wangchuk, said that he had broken his fast “after long negotiations” with officials and “in view of possible violence in the country.”`\
+https://www.nytimes.com/2026/07/23/world/asia/sonam-wangchuk-india-hunger-strike-protests-modi.html
+
 **Iran Rejects U.S. Cease-Fire Deal Presented by Iraqi Leader**\
 `The details of the proposal were not immediately clear, but Iranian officials said that it was the only offer on the table.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iran-iraq-cease-fire-proposal.html
@@ -82,7 +86,7 @@ https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty
 `Mr. Rushdie, an author, testified about the 2022 stabbing in upstate New York, where he was speaking at a literary festival. He was left blind in one eye, with scars all over his body.`\
 https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
 
-**Two Men Stabbed on Upper West Side in Possible Hate Crimes**\
+**2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
 `A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/us/tate-brothers-trump-tucker-carlson.html
 **¿Debes usar estrógeno vaginal para los síntomas de la menopausia?**\
 `Esto es lo que debes tomar en cuenta antes de probarlo.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/estrogeno-vaginal-menopausia.html
-
-**Who is Ahead in Idaho's 1st Congressional District?**\
-`Track the latest polls in Idaho's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/idaho-us-house-1-polls-2026.html
 

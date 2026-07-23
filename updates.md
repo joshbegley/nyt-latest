@@ -1,3 +1,11 @@
+**Iran Rejects U.S. Cease-Fire Deal Presented by Iraqi Leader**\
+`The details of the proposal were not immediately clear, but Iranian officials said that it was the only offer on the table.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/iran-iraq-cease-fire-proposal.html
+
+**Judge Extends Pause for Paramount-Warner Bros. Deal**\
+`The court blocked the companies from closing the acquisition through mid-August, as a judge considers two lawsuits challenging it.`\
+https://www.nytimes.com/2026/07/23/technology/judge-paramount-warner-bros-deal.html
+
 **Health Care Agency Discontinues Dozens of Active Research Awards**\
 `The Agency for Healthcare Research and Quality slowed the awarding of new grants last year. Now it is stopping existing ones.`\
 https://www.nytimes.com/2026/07/23/science/health-research-funding-ahrq.html
