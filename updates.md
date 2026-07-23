@@ -1,3 +1,7 @@
+**The Unlikeliest Performance-Enhancing Drug**\
+`Smooth jazz makes a comeback as a cure for the internet age.`\
+https://www.nytimes.com/2026/07/23/podcasts/smooth-jazz-performance-enhancing-drug-sport.html
+
 **Trump afirma que los soldados caídos apoyaban la guerra con Irán**\
 `El presidente Donald Trump no dijo cómo conocía las opiniones de los soldados caídos, pero decidió hablar por ellos en un momento político peligroso, en el que los estadounidenses se han mostrado cada vez más críticos respecto a la guerra en Irán.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-soldados-muertos-guerra-iran.html
