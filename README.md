@@ -1,3 +1,7 @@
+**Protests in Wisconsin After Man Fatally Shot by Police**\
+`Hundreds of people protested in Wisconsin after footage of a fatal police shooting circulated online. Local officials said a police officer shot a man who had injured the officer with a knife.`\
+https://www.nytimes.com/video/world/americas/100000011048325/police-shooting-wisconsin-protests.html
+
 **Trump’s New Tariffs: Just as Bad as the Old Tariffs**\
 `The administration will keep trying to run around rulings against import fees.`\
 https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/business/cyclospora-lettuce-salad.html
 **How Much Money Has Trump Made as President?**\
 `See how President Trump and his family’s business empire has transformed from his first term.`\
 https://www.nytimes.com/interactive/2026/07/23/us/politics/president-trump-profits.html
-
-**Nolan’s Been Making ‘The Odyssey’ All Along | Cannonball with Wesley Morris**\
-`The subtext becomes text in his new sword-and-sandal blockbuster`\
-https://www.nytimes.com/2026/07/23/podcasts/nolans-been-making-the-odyssey-all-along.html
 
