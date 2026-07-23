@@ -1,3 +1,11 @@
+**Three Excellent Restaurants from Fine-Dining Dropouts**\
+`At these restaurants the chefs have hung up their tweezers to focus on the kind of casual food you can enjoy any day of the week.`\
+https://www.nytimes.com/2026/07/23/dining/fine-casual.html
+
+**As A.I. Backlash Grows, Trump Says Firms Should Pay More for Electricity**\
+`The effort to prevent data centers from driving up electric bills could be hard to enforce, but it’s a sign of growing concern for the White House.`\
+https://www.nytimes.com/2026/07/23/climate/trump-ai-data-centers.html
+
 **Trump Throws a Potential Wrench in the Saudi Nuclear Deal He Just Inked**\
 `Saudi Arabia has long said that a condition of normalizing relations with Israel would be a pathway toward Palestinian statehood, a prospect that Israel’s current government has rejected.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/trump-saudi-arabia-palestinian-state.html

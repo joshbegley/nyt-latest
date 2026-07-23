@@ -1,3 +1,15 @@
+**Illinois Changes Tack on Data Centers**\
+`At the Aspen Ideas climate conference, Gov. JB Pritzker spoke about disincentivizing data centers instead of providing financial incentives.`\
+https://www.nytimes.com/2026/07/23/climate/data-centers-pritzker.html
+
+**Ante el brote de ciclosporiasis, EE. UU. deja de consumir ensaladas**\
+`La clientela de cadenas de restaurantes como Chipotle y Chopt ha caído desde que comenzaron los avisos sobre infecciones por “Cyclospora” relacionadas con la lechuga en EE. UU.`\
+https://www.nytimes.com/es/2026/07/23/espanol/negocios/cyclospora-brote-lechuga-restaurantes.html
+
+**What’s in a name? Depends where you are.**\
+`Place names change with time, depending on how the locals understand them.`\
+https://www.nytimes.com/2026/07/23/opinion/place-names-pronunciation-language.html
+
 **Three Excellent Restaurants from Fine-Dining Dropouts**\
 `At these restaurants the chefs have hung up their tweezers to focus on the kind of casual food you can enjoy any day of the week.`\
 https://www.nytimes.com/2026/07/23/dining/fine-casual.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/23/business/oil-price-100-dollars.html
 **Ford Will Use Apple Maps in New Self-Driving System**\
 `In a first, Apple software will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
 https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html
-
-**Edward O’Keefe Named C.E.O. of WNET**\
-`Mr. O’Keefe, who was previously an executive at CNN, is the chief executive of the Theodore Roosevelt Presidential Library.`\
-https://www.nytimes.com/2026/07/23/business/edward-okeefe-wnet-thirteen-pbs.html
-
-**For South Korea, U.S.-Saudi Nuclear Deal Exposes a Double Standard**\
-`President Trump has put Saudi Arabia on the path to enriching uranium on its own soil, a demand South Korea has been making for years.`\
-https://www.nytimes.com/2026/07/23/world/asia/us-saudi-nuclear-deal-south-korea.html
-
-**Man Fatally Shot by Police in Madison, WI, Stirring Protests**\
-`The officer who fired was injured with a knife while attempting an arrest, the Madison police chief said. Footage of the shooting circulated widely online.`\
-https://www.nytimes.com/2026/07/23/us/madison-wisconsin-police-shooting-protests.html
 
