@@ -1,3 +1,7 @@
+**Cooking With Heat? In This Heat? Not on My Watch**\
+`Chill out with these no-cook recipes, like silken tofu salad and cold peanut noodles.`\
+https://www.nytimes.com/2026/07/23/dining/cooking-with-heat-in-this-heat-not-on-my-watch.html
+
 **Chaos Breaks Out at Border Crossings With Iraq**\
 `Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html

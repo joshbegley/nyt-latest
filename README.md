@@ -1,3 +1,7 @@
+**Who is Ahead in Idaho's 1st Congressional District?**\
+`Track the latest polls in Idaho's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/idaho-us-house-1-polls-2026.html
+
 **Cooking With Heat? In This Heat? Not on My Watch**\
 `Chill out with these no-cook recipes, like silken tofu salad and cold peanut noodles.`\
 https://www.nytimes.com/2026/07/23/dining/cooking-with-heat-in-this-heat-not-on-my-watch.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.ht
 **It’s So Hot That Japan Needs a New Word for It**\
 `Japan this week recorded its first kokushobi, a term that means “cruel heat day,” as temperatures reached 104 degrees. It is not the only country that has scrambled for a new summer vocabulary.`\
 https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
-
-**A Russian Spy, Suddenly Cast Into the Spotlight, Flees Japan**\
-`The military intelligence officer left the country after The Times reported that he was using the Aeroflot airline office in Tokyo to conduct espionage.`\
-https://www.nytimes.com/2026/07/23/world/asia/russian-spy-flees-japan.html
 

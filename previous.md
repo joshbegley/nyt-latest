@@ -1,3 +1,7 @@
+**Cooking With Heat? In This Heat? Not on My Watch**\
+`Chill out with these no-cook recipes, like silken tofu salad and cold peanut noodles.`\
+https://www.nytimes.com/2026/07/23/dining/cooking-with-heat-in-this-heat-not-on-my-watch.html
+
 **Secret Service Agent in JD Vance’s Detail Under Investigation**\
 `The Secret Service said that a member of Vice President JD Vance’s team was accused of “compromising operational and information security.”`\
 https://www.nytimes.com/2026/07/23/us/politics/vance-secret-service.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
 **A Russian Spy, Suddenly Cast Into the Spotlight, Flees Japan**\
 `The military intelligence officer left the country after The Times reported that he was using the Aeroflot airline office in Tokyo to conduct espionage.`\
 https://www.nytimes.com/2026/07/23/world/asia/russian-spy-flees-japan.html
-
-**Is Orange Coffee the Drink of Summer?**\
-`Plus: a Florentine palazzo hotel, cloud-shaped jewelry and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/07/23/t-magazine/orange-coffee-cafes.html
 
