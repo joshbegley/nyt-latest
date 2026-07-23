@@ -1,3 +1,7 @@
+**Fair Housing Groups Sue HUD Over Funding Changes**\
+`A shift in grant requirements would curtail fair housing investigations, according to a new lawsuit.`\
+https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
+
 **Israel Welcomes Trump’s Demand for Diplomatic Ties With Saudi Arabia**\
 `Israeli officials greeted the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel. Prime Minister Benjamin Netanyahu has not yet commented on the agreement.`\
 https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/opinion/us-defense-geopolitics-elbridge-colby
 **A Peptide Showdown: F.D.A. Scientists May Clash With R.F.K.’s Agenda**\
 `Agency scientists are advising against allowing widespread use of several peptide injections. Robert F. Kennedy Jr., the health secretary, has said people should be free to experiment.`\
 https://www.nytimes.com/2026/07/23/health/fda-scientists-rfk-peptides.html
-
-**Amid Cyclospora Outbreak Tied to Lettuce, America Skips Salads**\
-`Foot traffic to chains such as Chopt and Chipotle fell in recent weeks after a recall from Taylor Farms and changing messages from the F.D.A.`\
-https://www.nytimes.com/2026/07/23/business/cyclospora-lettuce-salad.html
 
