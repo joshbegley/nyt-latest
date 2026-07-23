@@ -1,3 +1,15 @@
+**Map: 5.0-Magnitude Earthquake Shakes Texas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html
+
+**Global Oil Price Hits $100 a Barrel for First Time Since May**\
+`The recent rebound reflects traders’ growing concern about the expanding war, which now extends from the Persian Gulf to the Red Sea.`\
+https://www.nytimes.com/2026/07/23/business/oil-price-100-dollars.html
+
+**Iran War Live Updates: Oil Prices Hit $100 a Barrel After Attacks in Red Sea**\
+`The price of Brent crude soared after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
+https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
+
 **Ford Will Use Apple Software in New Self-Driving System**\
 `In a first, Apple Maps will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
 https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html

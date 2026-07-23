@@ -1,3 +1,11 @@
+**Map: 5.0-Magnitude Earthquake Shakes Texas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html
+
+**Global Oil Price Hits $100 a Barrel for First Time Since May**\
+`The recent rebound reflects traders’ growing concern about the expanding war, which now extends from the Persian Gulf to the Red Sea.`\
+https://www.nytimes.com/2026/07/23/business/oil-price-100-dollars.html
+
 **Ford Will Use Apple Software in New Self-Driving System**\
 `In a first, Apple Maps will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
 https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html
@@ -58,8 +66,8 @@ https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
 `The world’s largest exporter of crude oil stands to benefit from diversifying its energy sources — and freeing up more oil to sell.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
 
-**Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
-`The price of Brent crude rose to more than $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
+**Iran War Live Updates: Oil Prices Hit $100 a Barrel After Attacks in Red Sea**\
+`The price of Brent crude soared after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
 https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
 
 **A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/opinion/gen-z-ambition-millennials-career.htm
 **How to Use ChatGPT and Gemini Prompts to Find Out What They Know About You**\
 `It can be unsettling what Gemini and ChatGPT have figured out about you and how easily your privacy can be punctured. Here’s how to find out.`\
 https://www.nytimes.com/2026/07/23/technology/personaltech/chatgpt-gemini-prompts-privacy.html
-
-**‘Hadestown: The Musical’ Review: A Theatrical Triumph, Onscreen**\
-`The director Brett Sullivan gives viewers the best seat in the house, with delicate camerawork that moves with the rhythms of Anaïs Mitchell’s soulful score.`\
-https://www.nytimes.com/2026/07/23/movies/hadestown-the-musical-review.html
-
-**‘A Sad and Beautiful World’ Review: A Love to Overcome Fear**\
-`In Lebanon, a lush romance in uncertain times asks what keeps us human.`\
-https://www.nytimes.com/2026/07/23/movies/a-sad-and-beautiful-world-review.html
 
