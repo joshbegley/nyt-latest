@@ -1,3 +1,7 @@
+**House Republicans Pass Defense Spending Plans**\
+`House Republicans narrowly passed two plans that would satisfy the Trump administration’s funding demands for the war in Iran and its efforts to rebrand the Defense Department. But their prospects are far dimmer in the Senate.`\
+https://www.nytimes.com/video/us/politics/100000011048175/house-defense-bill-trump-iran-war.html
+
 **The Unlikeliest Performance-Enhancing Drug**\
 `Smooth jazz makes a comeback as a cure for the internet age.`\
 https://www.nytimes.com/2026/07/23/podcasts/smooth-jazz-performance-enhancing-drug-sport.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/us/politics/house-republicans-iran-budget-pen
 **The Next Big Tests for the Left: Michigan, Wisconsin and Minnesota**\
 `Progressives are now fighting in swingier terrain in purple or light-blue states.`\
 https://www.nytimes.com/2026/07/22/us/politics/progressives-michigan-wisconsin-minnesota.html
-
-**House Republicans Pass Stock Trading Bill Tied to SAVE Act and Voter ID Measure**\
-`The measure has drawn bipartisan backing amid a public outcry against the practice, but Democrats opposed it after Republicans added a voter ID requirement.`\
-https://www.nytimes.com/2026/07/22/us/politics/house-bill-stock-trades-congress.html
 

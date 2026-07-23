@@ -1,3 +1,7 @@
+**House Republicans Pass Defense Spending Plans**\
+`House Republicans narrowly passed two plans that would satisfy the Trump administration’s funding demands for the war in Iran and its efforts to rebrand the Defense Department. But their prospects are far dimmer in the Senate.`\
+https://www.nytimes.com/video/us/politics/100000011048175/house-defense-bill-trump-iran-war.html
+
 **Global Oil Price Nears $100 a Barrel as Conflict With Iran Deepens**\
 `The Houthis claimed to have attacked two ships in the Red Sea, and Iran said a third caught fire near the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/23/business/iran-crude-oil-gas-stock-prices.html
