@@ -1,3 +1,7 @@
+**The Unlikeliest Performance-Enhancing Drug**\
+`Smooth jazz makes a comeback as a cure for the internet age.`\
+https://www.nytimes.com/2026/07/23/podcasts/smooth-jazz-performance-enhancing-drug-sport.html
+
 **Trump afirma que los soldados caídos apoyaban la guerra con Irán**\
 `El presidente Donald Trump no dijo cómo conocía las opiniones de los soldados caídos, pero decidió hablar por ellos en un momento político peligroso, en el que los estadounidenses se han mostrado cada vez más críticos respecto a la guerra en Irán.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-soldados-muertos-guerra-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/22/us/politics/progressives-michigan-wisconsin-m
 **House Republicans Pass Stock Trading Bill Tied to SAVE Act and Voter ID Measure**\
 `The measure has drawn bipartisan backing amid a public outcry against the practice, but Democrats opposed it after Republicans added a voter ID requirement.`\
 https://www.nytimes.com/2026/07/22/us/politics/house-bill-stock-trades-congress.html
-
-**Hitler’s Birthplace in Austria Becomes a Police Station**\
-`The Austrian government has turned the building where Adolf Hitler was born into a police station in an attempt to deter the site from becoming an attraction for Nazi sympathizers. The building opened on Wednesday.`\
-https://www.nytimes.com/video/world/europe/100000011046889/hitler-birthplace-austria-police-station.html
 
