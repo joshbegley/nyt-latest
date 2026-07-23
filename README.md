@@ -1,3 +1,7 @@
+**Trump prepara una nueva estrategia para reactivar los aranceles globales**\
+`Los aranceles generales del 10 por ciento impuestos por el gobierno de EE. UU. están por expirar a la medianoche, pero otro lote arancelario podría tomar su lugar.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-globales.html
+
 **Rupert Murdoch Biopic Is Among Premieres at Venice Film Festival**\
 `The directors Danny Boyle, Martin McDonagh, Werner Herzog and Casey Affleck will present new movies at the festival.`\
 https://www.nytimes.com/2026/07/23/movies/venice-film-festival-lineup.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/podcasts/the-daily/saudi-nuclear-program.html
 **U.S. Employers Forced to Fire Thousands of Immigrants, and a Showdown over Peptides**\
 `Plus, America says no thanks to salad.`\
 https://www.nytimes.com/2026/07/23/podcasts/the-headlines/immigrants-peptides-salad.html
-
-**NYT Connections Answers for July 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
-https://www.nytimes.com/2026/07/23/crosswords/connections-companion-1139.html
 
