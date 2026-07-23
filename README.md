@@ -1,3 +1,31 @@
+**Google Hit With $1 Billion Fine By EU Over Search Engine Practices**\
+`At a tense moment for trans-Atlantic trade, the European Union accused Google of anti-competitive business practices.`\
+https://www.nytimes.com/2026/07/23/business/google-eu-fine-search-competition.html
+
+**Why Is the U.S. Building the Saudi Nuclear Program While Destroying Iran’s?**\
+`Our reporter explains what both countries are getting out of the deal.`\
+https://www.nytimes.com/2026/07/23/podcasts/the-daily/saudi-nuclear-program.html
+
+**U.S. Employers Forced to Fire Thousands of Immigrants, and a Showdown over Peptides**\
+`Plus, America says no thanks to salad.`\
+https://www.nytimes.com/2026/07/23/podcasts/the-headlines/immigrants-peptides-salad.html
+
+**NYT Connections Answers for July 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/23/crosswords/connections-companion-1139.html
+
+**NYT Strands Hints for July 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/23/crosswords/strands-sidekick-873.html
+
+**Today’s Wordle Hints for July 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
+
+**Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It’s Going Nuclear.**\
+`The world’s largest exporter of crude oil stands to benefit from diversifying its energy sources — and freeing up more oil to sell.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
+
 **Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
 `The price of Brent crude rose above $98 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. Overnight, the U.S. and Iran showed no letup in their fighting.`\
 https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
@@ -169,28 +197,4 @@ https://www.nytimes.com/2026/07/23/opinion/china-ai-open-weight-us.html
 **Olivia Joan Galli’s Legacy Is Hair. On TikTok, She’s Found a New Way to Go Natural.**\
 `Her grandparents were power players in Black hair care. Online, Olivia Galli has found her own way to go natural.`\
 https://www.nytimes.com/2026/07/23/style/olivia-joan-galli-george-johnson-tiktok.html
-
-**Women of a Certain Swagger, and Their Art Visions**\
-`The Jewish Museum highlights unsung textile, ceramic and fashion designers at the renowned Wiener Werkstätte — the Vienna Workshops — of the early 20th century.`\
-https://www.nytimes.com/2026/07/23/arts/design/jewish-museum-women-wiener-werkstatte-design.html
-
-**Carlos the Jackal’s Violent Chaos Endures**\
-`The type of terrorism that was his signature brand is having a remarkable resurgence, and Americans are nowhere near prepared to deal with it.`\
-https://www.nytimes.com/2026/07/23/opinion/carlos-the-jackal-terrorism-violence.html
-
-**‘We Will All Die From Ebola Here’: Virus Stalks Crowded Camps in Congo**\
-`There are a million people displaced by violence in the epicenter. They live in dangerous conditions and are fighting the virus with very little clean water.`\
-https://www.nytimes.com/2026/07/23/world/africa/ebola-camps-congo-water-aid.html
-
-**Keith David Doesn’t Know What You Saw Him in**\
-`The prolific actor and narrator is adding another credit to his résumé with “President Curtis,” a spinoff of the animated hit “Rick and Morty.”`\
-https://www.nytimes.com/2026/07/23/arts/television/keith-david-president-curtis.html
-
-**‘More Affordable’ Doesn’t Always Mean Homes Cost Less**\
-`By one real estate industry metric, places like San Francisco and Manhattan have become more affordable over the last 20 years.`\
-https://www.nytimes.com/2026/07/23/realestate/more-affordable-doesnt-always-mean-homes-cost-less.html
-
-**Word of the Day: bollard**\
-`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/23/learning/word-of-the-day-bollard.html
 
