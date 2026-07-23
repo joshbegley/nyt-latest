@@ -1,3 +1,11 @@
+**Trump’s New Tariffs: Just as Bad as the Old Tariffs**\
+`The administration will keep trying to run around rulings against import fees.`\
+https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
+
+**Charred Shrimp With Shimi Sauce to Share**\
+`(No description)`\
+https://www.nytimes.com/2026/07/23/dining/charred-shrimp-with-shimi-sauce-to-share.html
+
 **Daniel Siad, reclutador de modelos con enlaces a Epstein es hallado muerto en Francia**\
 `Daniel Siad le presentó repetidamente mujeres jóvenes a Jeffrey Epstein, según mensajes entre ambos. Siad había negado haber cometido algún delito.`\
 https://www.nytimes.com/es/2026/07/23/espanol/mundo/epstein-daniel-siad-modelos-muerte.html
@@ -126,8 +134,8 @@ https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
 `The world’s largest exporter of crude oil stands to benefit from diversifying its energy sources — and freeing up more oil to sell.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
 
-**Iran War Live Updates: Oil Prices Hit $100 a Barrel After Attacks in Red Sea**\
-`The price of Brent crude soared after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
+**Iran War Live Updates: Attacks in Red Sea Send Oil Prices Over $100 a Barrel**\
+`The price of Brent crude soared after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. The House cast a second vote to rein in President Trump’s war powers, with four Republicans joining Democrats to rebuke the president.`\
 https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
 
 **A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/07/23/us/politics/president-trump-profi
 **Nolan’s Been Making ‘The Odyssey’ All Along | Cannonball with Wesley Morris**\
 `The subtext becomes text in his new sword-and-sandal blockbuster`\
 https://www.nytimes.com/2026/07/23/podcasts/nolans-been-making-the-odyssey-all-along.html
-
-**A ‘Big Bang Theory’ Supporting Actor Takes the Lead**\
-`Kevin Sussman started as just a guest star on the hit sitcom. Now he has his own zany spinoff, “Stuart Fails to Save the Universe.”`\
-https://www.nytimes.com/2026/07/23/arts/television/stuart-fails-to-save-the-universe-kevin-sussman.html
-
-**Could A.I. Do Your Job? We Put Agents to the Test.**\
-`In our experiment, we deployed A.I. “agents” to act as office workers, and found that they were capable of performing some of the tasks we assigned, but not all of them.`\
-https://www.nytimes.com/interactive/2026/07/23/technology/ai-agents-office-jobs.html
 
