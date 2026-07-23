@@ -1,3 +1,11 @@
+**Strikes Against Saudi Tankers in the Red Sea Send Oil Past $100 a Barrel**\
+`President Trump threatened attacks on Houthi militants after the Iranian ally said it had hit two Saudi Arabian-flagged vessels.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/red-sea-strikes-oil-houthis.html
+
+**Border Crossings Targeted in Latest U.S.-Iran Exchanges**\
+`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
+https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-us-iran-strikes.html
+
 **Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
 `As savvy as he could be volatile, he advised Nancy Pelosi and Dianne Feinstein, ran for mayor of San Francisco and bought The San Francisco Examiner.`\
 https://www.nytimes.com/2026/07/23/us/politics/clint-reilly-dead.html
@@ -63,7 +71,7 @@ https://www.nytimes.com/2026/07/23/books/review/new-recommended-books.html
 https://www.nytimes.com/2026/07/23/world/asia/india-modi-protests-economy-cockroach-party.html
 
 **Trump Administration Drops Subpoena Demanding List of Jews From Penn**\
-`For more than a year, the Trump administration pressed the university for records about antisemitism complaints and a list of campus groups involved with Judaism.`\
+`The move was a rare pullback for the Trump administration, which has used investigations as leverage. Few schools resisted as Penn did after it was pressed for antisemitism complaints and a list of campus groups involved with Judaism.`\
 https://www.nytimes.com/2026/07/23/us/eeoc-subpoena-penn-jewish-list.html
 
 **The Tate Brothers Are Losing Right-Wing Allies After Their Arrest**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/pageoneplus/corrections-july-23-2026.html
 **As Part of Nuclear Deal, Trump Demands Saudi Arabia Join the Abraham Accords**\
 `The president’s new condition could create a roadblock to the agreement his administration announced this week.`\
 https://www.nytimes.com/2026/07/23/us/politics/saudi-nuclear-deal-israel.html
-
-**Map: 5.0-Magnitude Earthquake Shakes the Texas Panhandle**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html
-
-**Global Oil Price Hits $100 a Barrel for First Time Since May**\
-`The recent rebound reflects traders’ growing concern about the expanding war, which now extends from the Persian Gulf to the Red Sea.`\
-https://www.nytimes.com/2026/07/23/business/oil-price-100-dollars.html
 

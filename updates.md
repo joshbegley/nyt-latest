@@ -1,3 +1,15 @@
+**Strikes Against Saudi Tankers in the Red Sea Send Oil Past $100 a Barrel**\
+`President Trump threatened attacks on Houthi militants after the Iranian ally said it had hit two Saudi Arabian-flagged vessels.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/red-sea-strikes-oil-houthis.html
+
+**Border Crossings Targeted in Latest U.S.-Iran Exchanges**\
+`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
+https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-us-iran-strikes.html
+
+**Trump Administration Drops Subpoena Demanding List of Jews From Penn**\
+`The move was a rare pullback for the Trump administration, which has used investigations as leverage. Few schools resisted as Penn did after it was pressed for antisemitism complaints and a list of campus groups involved with Judaism.`\
+https://www.nytimes.com/2026/07/23/us/eeoc-subpoena-penn-jewish-list.html
+
 **House Rebukes Trump on Iran in War Powers Vote as Senate Blocks Debate**\
 `For the second time, a few House Republicans joined Democrats to back a measure calling on the president to seek authorization for the war.`\
 https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.html
