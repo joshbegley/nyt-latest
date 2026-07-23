@@ -1,3 +1,15 @@
+**Modi Caught Off Guard as India’s Economic Failings Inflame Young People**\
+`Prime Minister Narendra Modi was busy trying to put out other fires when a student movement suddenly exploded. There are no easy solutions to the problems behind it.`\
+https://www.nytimes.com/2026/07/23/world/asia/india-modi-protests-economy-cockroach-party.html
+
+**Trump Administration Drops Subpoena Demanding List of Jews From Penn**\
+`For more than a year, the Trump administration pressed the university for records about antisemitism complaints and a list of campus groups involved with Judaism.`\
+https://www.nytimes.com/2026/07/23/us/eeoc-subpoena-penn-jewish-list.html
+
+**The Tate Brothers Are Losing Right-Wing Allies After Their Arrest**\
+`After Andrew and Tristan Tate, prominent leaders of the so-called manosphere, were arrested in Miami, many of their onetime allies on the American right pulled back support.`\
+https://www.nytimes.com/2026/07/23/us/tate-brothers-trump-tucker-carlson.html
+
 **¿Debes usar estrógeno vaginal para los síntomas de la menopausia?**\
 `Esto es lo que debes tomar en cuenta antes de probarlo.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/estrogeno-vaginal-menopausia.html
@@ -43,7 +55,7 @@ https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
 https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
 
 **Israel Welcomes Trump’s Demand for Diplomatic Ties With Saudi Arabia**\
-`Israeli officials greeted the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel. Prime Minister Benjamin Netanyahu has not yet commented on the agreement.`\
+`Israeli officials greeted the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel.`\
 https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-deal.html
 
 **Protests in Wisconsin After Man Fatally Shot by Police**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
 **Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It Wants to Go Nuclear.**\
 `Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But there are other reasons for the world’s largest oil exporter to diversify its energy mix.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
-
-**Iran War Live Updates: Attacks in Red Sea Send Oil Prices Over $100 a Barrel**\
-`The price of Brent crude soared after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. The House cast a second vote to rein in President Trump’s war powers, with four Republicans joining Democrats to rebuke the president.`\
-https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
-
-**A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon**\
-`Kyiv is escalating its air war by striking commercial warehouses, trying to bring the conflict closer to home for ordinary Russians.`\
-https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attacks.html
-
-**U.S.-Saudi Deal Prompts Fears of a Global Nuclear Arms Race**\
-`In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
-https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
 
