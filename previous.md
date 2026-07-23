@@ -1,3 +1,11 @@
+**El acuerdo entre EE. UU. y Arabia Saudita suscita temores de una carrera armamentista nuclear mundial**\
+`En Europa, Asia y Medio Oriente, los países buscan capacidades nucleares para protegerse de vecinos agresivos y de un Washington que se retira, lo cual podría crear una era más desenfrenada.`\
+https://www.nytimes.com/es/2026/07/23/espanol/mundo/eeuu-arabia-saudita-acuerdo-nuclear.html
+
+**Today, In Short**\
+`Ryan Gosling. MrBeast. And celibacy.`\
+https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
+
 **Fair Housing Groups Sue HUD Over Funding Changes**\
 `A shift in grant requirements would curtail fair housing investigations, according to a new lawsuit.`\
 https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
@@ -142,8 +150,8 @@ https://www.nytimes.com/2026/07/23/crosswords/strands-sidekick-873.html
 `Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
 https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
 
-**Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It’s Going Nuclear.**\
-`The world’s largest exporter of crude oil stands to benefit from diversifying its energy sources — and freeing up more oil to sell.`\
+**Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It Wants to Go Nuclear.**\
+`Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But the world’s largest exporter of crude oil has other motives for diversifying its energy mix.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
 
 **Iran War Live Updates: Attacks in Red Sea Send Oil Prices Over $100 a Barrel**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/business/energy-environment/westinghouse-nucl
 **She Was ‘Super Happy’ Living in Queens. But One Thing Was Missing.**\
 `After growing up with both a front porch and a back deck, this Queens resident was tired of renting and ready for her own slice of the outdoors.`\
 https://www.nytimes.com/interactive/2026/07/23/realestate/astoria-queens-home-sales-prices.html
-
-**Iran, China, Canada? A Defense of Trump’s Grand Strategy**\
-`A Pentagon official argues that “people can no longer take the United States for granted.”`\
-https://www.nytimes.com/2026/07/23/opinion/us-defense-geopolitics-elbridge-colby.html
-
-**A Peptide Showdown: F.D.A. Scientists May Clash With R.F.K.’s Agenda**\
-`Agency scientists are advising against allowing widespread use of several peptide injections. Robert F. Kennedy Jr., the health secretary, has said people should be free to experiment.`\
-https://www.nytimes.com/2026/07/23/health/fda-scientists-rfk-peptides.html
 

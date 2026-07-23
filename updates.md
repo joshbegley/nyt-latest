@@ -1,3 +1,15 @@
+**El acuerdo entre EE. UU. y Arabia Saudita suscita temores de una carrera armamentista nuclear mundial**\
+`En Europa, Asia y Medio Oriente, los países buscan capacidades nucleares para protegerse de vecinos agresivos y de un Washington que se retira, lo cual podría crear una era más desenfrenada.`\
+https://www.nytimes.com/es/2026/07/23/espanol/mundo/eeuu-arabia-saudita-acuerdo-nuclear.html
+
+**Today, In Short**\
+`Ryan Gosling. MrBeast. And celibacy.`\
+https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
+
+**Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It Wants to Go Nuclear.**\
+`Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But the world’s largest exporter of crude oil has other motives for diversifying its energy mix.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
+
 **Fair Housing Groups Sue HUD Over Funding Changes**\
 `A shift in grant requirements would curtail fair housing investigations, according to a new lawsuit.`\
 https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
