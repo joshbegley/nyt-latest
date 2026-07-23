@@ -1,3 +1,7 @@
+**Two People Stabbed Near Central Park in New York City, Police Say**\
+`The police arrested a man after the daylight attacks on the Upper West Side. It was not immediately clear what led to the stabbings in the affluent Manhattan neighborhood.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
+
 **Veteranos de Vietnam rechazan el nuevo nombre de una autopista en honor a Charlie Kirk**\
 `El tramo de la ruta estatal 386 de Tennessee al norte de Nashville llevaba el nombre de Bulevar de los Veteranos de Vietnam desde hace casi cuatro décadas.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/charlie-kirk-vereranos-vietnam.html
