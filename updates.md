@@ -1,3 +1,7 @@
+**Photographic Evidence**\
+`We look at how The Times uses photographs and video to better understand what’s happening in the war with Iran.`\
+https://www.nytimes.com/2026/07/23/briefing/photographic-evidence-iran-war.html
+
 **Google Hit With $1 Billion Fine By EU Over Search Engine Practices**\
 `At a tense moment for trans-Atlantic trade, the European Union accused Google of anti-competitive business practices.`\
 https://www.nytimes.com/2026/07/23/business/google-eu-fine-search-competition.html

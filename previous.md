@@ -1,3 +1,7 @@
+**Photographic Evidence**\
+`We look at how The Times uses photographs and video to better understand what’s happening in the war with Iran.`\
+https://www.nytimes.com/2026/07/23/briefing/photographic-evidence-iran-war.html
+
 **Google Hit With $1 Billion Fine By EU Over Search Engine Practices**\
 `At a tense moment for trans-Atlantic trade, the European Union accused Google of anti-competitive business practices.`\
 https://www.nytimes.com/2026/07/23/business/google-eu-fine-search-competition.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/arts/music/willow-smith-interview.html
 **China’s A.I. Has a Winning Formula. America, Don’t Panic.**\
 `Open-weight models have been the underlying strength of Chinese artificial intelligence strategy. America should take cues.`\
 https://www.nytimes.com/2026/07/23/opinion/china-ai-open-weight-us.html
-
-**Olivia Joan Galli’s Legacy Is Hair. On TikTok, She’s Found a New Way to Go Natural.**\
-`Her grandparents were power players in Black hair care. Online, Olivia Galli has found her own way to go natural.`\
-https://www.nytimes.com/2026/07/23/style/olivia-joan-galli-george-johnson-tiktok.html
 
