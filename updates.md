@@ -1,3 +1,11 @@
+**Intel Benefits From a New Shift in A.I. Spending**\
+`The Silicon Valley chipmaker’s revenue rose 25 percent in the latest quarter, its fastest growth in 15 years, as A.I. firms increasingly bought chips known as central processing units.`\
+https://www.nytimes.com/2026/07/23/technology/intel-quarterly-results.html
+
+**U.S. Withdraws Subpoenas Issued to New York Times Journalists**\
+`A federal judge raised questions about the government’s handling of the subpoenas, which The Times called an attempt to intimidate the free press.`\
+https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html
+
 **Did the World Cup Live Up to Tourism Expectations? Here Are the Winners and Losers.**\
 `Host cities, hotels, tourism boards and more had lofty expectations for the World Cup, but some struck gold, while some fizzled. Here’s the breakdown.`\
 https://www.nytimes.com/2026/07/23/travel/world-cup-tourism-us-canada-mexico.html
