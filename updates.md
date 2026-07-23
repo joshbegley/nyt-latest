@@ -1,3 +1,7 @@
+**Ford Will Use Apple Maps in New Self-Driving System**\
+`In a first, Apple software will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
+https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html
+
 **As Part of Nuclear Deal, Trump Demands Saudi Arabia Join the Abraham Accords**\
 `The president’s new condition could create a roadblock to the Saudi nuclear deal his administration announced this week.`\
 https://www.nytimes.com/2026/07/23/us/politics/saudi-nuclear-deal-israel.html
