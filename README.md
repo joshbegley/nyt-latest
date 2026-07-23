@@ -1,3 +1,7 @@
+**Republican Lawmaker Urges Charges Against Jack Smith**\
+`The criminal referral could provide a catalyst for a prosecution of Mr. Smith, who as special counsel became a top target of the president’s retribution campaign.`\
+https://www.nytimes.com/2026/07/22/us/politics/jack-smith-jim-jordan-charges.html
+
 **Fire in San Diego County Prompts Evacuation Orders**\
 `More than 2,000 people have been told to flee the Creelman fire, which has burned more than 300 acres without any containment near Ramona, Calif.`\
 https://www.nytimes.com/2026/07/22/us/fire-in-san-diego-county-prompts-evacuation-orders.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011035171/the-sex-recession-started-
 **The Rise of Loneliness Influencers**\
 `“You don’t have to get married or be in a relationship to make a life for yourself,” Christine Emba says on “The Opinions,” arguing that the rise of loneliness influencers reflects a broader shift: Women no longer need relationships for economic or social survival.`\
 https://www.nytimes.com/video/opinion/100000011046629/the-rise-of-loneliness-influencers.html
-
-**Intimidation Charges Dismissed Against Louisiana Attorney General**\
-`Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’s Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
-https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html
 

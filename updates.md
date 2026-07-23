@@ -1,3 +1,11 @@
+**Fire in San Diego County Prompts Evacuation Orders**\
+`More than 2,000 people have been told to flee the Creelman fire, which has burned more than 300 acres without any containment near Ramona, Calif.`\
+https://www.nytimes.com/2026/07/22/us/fire-in-san-diego-county-prompts-evacuation-orders.html
+
+**Three Airports Plan to Ditch T.S.A. Agents Amid Push for Private Security**\
+`The airports have opted in to the agency’s new security model, an agency spokesperson confirmed on Wednesday. A union official said the move could jeopardize public safety.`\
+https://www.nytimes.com/2026/07/22/travel/tsa-privatization-push.html
+
 **Man Found Guilty in 2023 Stabbings Near UC Davis, and Is Ruled Insane**\
 `A jury this week found Carlos Reales Dominguez guilty of involuntary manslaughter in two deaths, but a judge ruled that he was insane at the time of the crimes. He faces time in a mental hospital.`\
 https://www.nytimes.com/2026/07/22/us/uc-davis-california-stabbing-verdict.html

@@ -1,3 +1,7 @@
+**Fire in San Diego County Prompts Evacuation Orders**\
+`More than 2,000 people have been told to flee the Creelman fire, which has burned more than 300 acres without any containment near Ramona, Calif.`\
+https://www.nytimes.com/2026/07/22/us/fire-in-san-diego-county-prompts-evacuation-orders.html
+
 **Man Found Guilty in 2023 Stabbings Near UC Davis, and Is Ruled Insane**\
 `A jury this week found Carlos Reales Dominguez guilty of involuntary manslaughter in two deaths, but a judge ruled that he was insane at the time of the crimes. He faces time in a mental hospital.`\
 https://www.nytimes.com/2026/07/22/us/uc-davis-california-stabbing-verdict.html
@@ -94,7 +98,7 @@ https://www.nytimes.com/2026/07/22/books/ellie-gottheimer-larra-mullin-childrens
 `The filmmaker and actor Kyla Harris talks about how an occupational therapist helped her find a way to use a sex toy with a partner. “As a disabled person, the thing that I rely on most is creativity,” she told Anna Martin, host of the “Modern Love” podcast.`\
 https://www.nytimes.com/video/podcasts/100000011047383/kyla-harris-disability-sex.html
 
-**Three Airports Plan to Ditch T.S.A. Amid Push for Private Security**\
+**Three Airports Plan to Ditch T.S.A. Agents Amid Push for Private Security**\
 `The airports have opted in to the agency’s new security model, an agency spokesperson confirmed on Wednesday. A union official said the move could jeopardize public safety.`\
 https://www.nytimes.com/2026/07/22/travel/tsa-privatization-push.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011046629/the-rise-of-loneliness-inf
 **Intimidation Charges Dismissed Against Louisiana Attorney General**\
 `Liz Murrill, a Republican, was indicted after sending warning letters to New Orleans’s Democratic leaders. The dispute was one of the latest flare-ups in a long conflict between the city and state.`\
 https://www.nytimes.com/2026/07/22/us/louisiana-indicment-liz-murrill-new-orleans.html
-
-**Sony Revives Cinerama Dome in Los Angeles as Box Office Sales Rebound**\
-`The iconic Cinerama Dome and adjacent 14-screen theater complex will reopen in 2028 after a renovation. The venue closed in 2020 because of the pandemic.`\
-https://www.nytimes.com/2026/07/22/business/media/cinerama-dome-sony-pictures-hollywood.html
 
