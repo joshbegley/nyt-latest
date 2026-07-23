@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/07/22/us/uc-davis-california-stabbing-verdict.html
 https://www.nytimes.com/2026/07/22/style/zendaya-odyssey-earrings-jewelry.html
 
 **Houthis Claim Strikes on 2 Saudi Oil Tankers in Red Sea**\
-`The Saudi authorities had yet to confirm the hits, which would be the first attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
+`The Saudi authorities confirmed a strike on one of the ships. These are the first claimed attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/houthis-saudi-oil-tankers-red-sea.html
 
 **Sony to Reopen Hollywood’s Famed Cinerama Dome**\
