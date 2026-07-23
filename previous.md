@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
 https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
 
 **Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
-`The price of Brent crude rose to almost $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
+`The price of Brent crude rose to more than $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
 https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
 
 **A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon**\

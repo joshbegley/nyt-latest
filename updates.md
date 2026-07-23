@@ -1,3 +1,7 @@
+**Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
+`The price of Brent crude rose to more than $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
+https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
+
 **Man Fatally Shot by Police in Wisconsin’s Capital, Stirring Protests**\
 `The officer who fired was injured with a knife while attempting an arrest, the Madison police chief said. Footage of the shooting circulated widely online.`\
 https://www.nytimes.com/2026/07/23/us/madison-wisconsin-police-shooting-protests.html
