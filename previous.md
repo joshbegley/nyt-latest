@@ -1,3 +1,7 @@
+**El gobierno de Trump retirará las citaciones emitidas a periodistas del Times**\
+`Un juez federal cuestionó el manejo de las citaciones por parte del gobierno, las cuales el Times calificó como un intento de intimidar a la prensa libre.`\
+https://www.nytimes.com/es/2026/07/23/espanol/negocios/trump-citatorios-periodistas-new-york-times.html
+
 **Bear Dies After Getting Stranded Atop Electric Pole in New Mexico**\
 `The animal’s plight alarmed onlookers and highlighted the drought conditions that are forcing wild bears closer to where people live in search of food.`\
 https://www.nytimes.com/2026/07/23/us/new-mexico-bear-electrical-pole-death.html
@@ -142,7 +146,7 @@ https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peo
 `Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
 
-**Trump to Impose New Global Tariffs of Around 10% After Previous Duties Lapse**\
+**US to Impose New Global Tariffs of Around 10% After Previous Duties Lapse**\
 `The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
 https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/business/china-ai-soft-power.html
 **‘Odyssey’ Popcorn Buckets Help Fuel a $100 Million Market**\
 `Once, a tub of popcorn was just a tub of popcorn. Now, ‘collectible concession vessels’ could make one chain more than $100 million.`\
 https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets.html
-
-**‘The Odyssey’ Hired Their Viking Ship. They Say It Came Back Damaged.**\
-`A Swedish Viking center said its vessel was used in the filming of Christopher Nolan’s epic but needed repairs when it was returned. Now, the center is seeking compensation.`\
-https://www.nytimes.com/2026/07/23/movies/the-odyssey-viking-ship-sweden.html
 

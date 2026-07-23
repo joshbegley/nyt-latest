@@ -1,3 +1,11 @@
+**El gobierno de Trump retirará las citaciones emitidas a periodistas del Times**\
+`Un juez federal cuestionó el manejo de las citaciones por parte del gobierno, las cuales el Times calificó como un intento de intimidar a la prensa libre.`\
+https://www.nytimes.com/es/2026/07/23/espanol/negocios/trump-citatorios-periodistas-new-york-times.html
+
+**US to Impose New Global Tariffs of Around 10% After Previous Duties Lapse**\
+`The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
+https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
+
 **Bear Dies After Getting Stranded Atop Electric Pole in New Mexico**\
 `The animal’s plight alarmed onlookers and highlighted the drought conditions that are forcing wild bears closer to where people live in search of food.`\
 https://www.nytimes.com/2026/07/23/us/new-mexico-bear-electrical-pole-death.html
