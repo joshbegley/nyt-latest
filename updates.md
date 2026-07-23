@@ -1,3 +1,11 @@
+**What to Know About Iran and the Houthis**\
+`The Yemeni militant group appeared to open a new front in the conflict between its backer, Iran, and the United States, by attacking ships and announcing a blockade on a strategic waterway.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/what-to-know-iran-houthis.html
+
+**The Defining Image of India’s Gen Z Protests**\
+`A new protest movement is spreading across India, and the video of a woman blocking a police van has captured the resolve of the young people leading it.`\
+https://www.nytimes.com/2026/07/23/world/asia/rhiya-ahir-mumbai-india-student-protests-genz.html
+
 **End of the Line for Penn Station? A Trump Official Calls for a New Name.**\
 `Sean P. Duffy, the transportation secretary, said renaming the New York transportation hub was an administration priority. But he hasn’t offered any options.`\
 https://www.nytimes.com/2026/07/23/nyregion/penn-station-name-trump.html
