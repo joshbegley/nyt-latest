@@ -1,3 +1,7 @@
+**Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
+`The price of Brent crude rose to almost $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. Overnight, the U.S. and Iran showed no letup in their fighting.`\
+https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
+
 **Photographic Evidence**\
 `We look at how The Times uses photographs and video to better understand what’s happening in the war with Iran.`\
 https://www.nytimes.com/2026/07/23/briefing/photographic-evidence-iran-war.html
