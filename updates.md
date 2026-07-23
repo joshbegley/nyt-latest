@@ -1,3 +1,7 @@
+**Key Republican Senator Says He Will Support Erica Schwartz for C.D.C. Director**\
+`Senator Bill Cassidy, who is believed to hold the deciding vote in the Senate health committee for Dr. Erica Schwartz’s confirmation, had declined for days to say whether he would back her.`\
+https://www.nytimes.com/2026/07/23/health/erica-schwartz-cdc-vote.html
+
 **Trump prepara una nueva estrategia para reactivar los aranceles globales**\
 `Los aranceles generales del 10 por ciento impuestos por el gobierno de EE. UU. están por expirar a la medianoche, pero otro lote arancelario podría tomar su lugar.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-globales.html

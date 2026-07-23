@@ -1,3 +1,7 @@
+**Governor Resists U.S. Demand for Names of Noncitizens on Voting Rolls**\
+`The Justice Dept. gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
+https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-department.html
+
 **Key Republican Senator Says He Will Support Erica Schwartz for C.D.C. Director**\
 `Senator Bill Cassidy, who is believed to hold the deciding vote in the Senate health committee for Dr. Erica Schwartz’s confirmation, had declined for days to say whether he would back her.`\
 https://www.nytimes.com/2026/07/23/health/erica-schwartz-cdc-vote.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/briefing/photographic-evidence-iran-war.html
 **Google Hit With $1 Billion Fine By EU Over Search Engine Practices**\
 `At a tense moment for trans-Atlantic trade, the European Union accused Google of anti-competitive business practices.`\
 https://www.nytimes.com/2026/07/23/business/google-eu-fine-search-competition.html
-
-**Why Is the U.S. Building the Saudi Nuclear Program While Destroying Iran’s?**\
-`Our reporter explains what both countries are getting out of the deal.`\
-https://www.nytimes.com/2026/07/23/podcasts/the-daily/saudi-nuclear-program.html
 
