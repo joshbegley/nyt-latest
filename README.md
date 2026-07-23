@@ -1,3 +1,19 @@
+**Conor Oberst on Hitting Rock Bottom**\
+`The musician Conor Oberst spoke with Joe Coscarelli and Jon Caramanica, hosts of “Popcast,” about navigating stardom, overcoming health struggles, writing political music and playing with his band, Bright Eyes.`\
+https://www.nytimes.com/video/podcasts/100000011046258/conor-oberst-on-hitting-rock-bottom.html
+
+**Democratic Voters Keep Defying the Party Establishment**\
+`The House Democratic campaign arm has stepped up its interventions in high-profile contested primaries. But this week, it suffered its third primary defeat in two months.`\
+https://www.nytimes.com/2026/07/23/us/politics/democrats-dccc-house.html
+
+**How Conor Oberst of Bright Eyes Came Back From The Brink**\
+`Watch the full conversation with Conor Oberst on Popcast.`\
+https://www.nytimes.com/video/podcasts/100000011046262/bright-eyes-conor-oberst-popcast-interview.html
+
+**Trump to Impose Tariffs on More Than 80 Countries**\
+`Also, oil hits $100 a barrel. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/23/briefing/trump-impose-tariffs-popcorn-buckets.html
+
 **Number of U.S. Troop Deaths Suddenly Appears Lower on Pentagon Website**\
 `Three military officials and a Pentagon spokesman gave conflicting explanations for why the number of Americans killed in the Iran war had changed.`\
 https://www.nytimes.com/2026/07/23/us/politics/iran-troop-deaths.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/es/2026/07/23/espanol/mundo/eeuu-arabia-saudita-acuerdo-
 **Today, In Short**\
 `Ryan Gosling. MrBeast. And celibacy.`\
 https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
-
-**Fair Housing Groups Sue HUD Over Funding Changes**\
-`A shift in grant requirements would curtail fair housing investigations, according to a new lawsuit.`\
-https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
-
-**Israel Welcomes Trump’s Demand for Diplomatic Ties With Saudi Arabia**\
-`Israeli officials embraced the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel.`\
-https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-deal.html
-
-**Protests in Wisconsin After Man Fatally Shot by Police**\
-`Hundreds of people protested in Wisconsin after footage of a fatal police shooting circulated online. Local officials said a police officer shot a man who had injured the officer with a knife.`\
-https://www.nytimes.com/video/world/americas/100000011048325/police-shooting-wisconsin-protests.html
-
-**Charred Shrimp With Shimi Sauce to Share**\
-`(No description)`\
-https://www.nytimes.com/2026/07/23/dining/charred-shrimp-with-shimi-sauce-to-share.html
 
