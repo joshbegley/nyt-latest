@@ -1,3 +1,15 @@
+**Houthis Claim Strikes on 2 Saudi Oil Tankers in Red Sea**\
+`The Saudi authorities had yet to confirm the hits, which would be the first attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/houthis-saudi-oil-tankers-red-sea.html
+
+**Sony to Reopen Hollywood’s Famed Cinerama Dome**\
+`Sony Pictures Entertainment said on Wednesday that it would reopen the Cinerama Dome, a Hollywood landmark, in 2028 after a renovation.`\
+https://www.nytimes.com/video/business/100000011047242/cinerama-dome-hollywood-reopening-sony.html
+
+**Massachusetts House Passes Bill That Would Loosen Late-Term Abortion Rules**\
+`The bill would leave it to physicians to decide if an abortion is necessary after 24 weeks of pregnancy. Current law allows such abortions only under certain circumstances.`\
+https://www.nytimes.com/2026/07/22/us/massachusetts-late-term-abortion-rules.html
+
 **With Saudi Deal, Trump Loosens Nuclear Standards for One Close Ally**\
 `Nuclear experts say it throws fuel on the smoldering fire of atomic proliferation, creating a destabilizing situation that could raise the risk of nuclear war.`\
 https://www.nytimes.com/2026/07/22/us/politics/trump-saudi-nuclear-standards.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/22/climate/dunes-sagebrush-lizard-trump.html
 **U.S. Troops, Seriously Wounded in Recent Strikes, Were Flown to Germany for Help**\
 `The seriously wounded service members are among the roughly 100 American troops that the Defense Department recently said were injured by Iranian attacks since early July.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/us-troops-iran-germany.html
-
-**Widow of Malcolm-Jamal Warner Sues His Mother for $1.2 Million**\
-`Tenisha Delilah Warner said in a lawsuit filed in Georgia that she was entitled to the money according to a premarital agreement.`\
-https://www.nytimes.com/2026/07/22/us/malcolm-jamal-warner-wife-family-dispute-lawsuit.html
-
-**Lo que hay que saber sobre los aranceles de Trump a Canadá y qué viene después**\
-`El presidente dijo que los aranceles del 50 por ciento comenzarían a más tardar el 19 de agosto, una escalada significativa de la guerra comercial entre Canadá y EE. UU. que inició hace más de un año.`\
-https://www.nytimes.com/es/2026/07/22/espanol/estados-unidos/trump-canada-aranceles-acuerdo-comercial.html
-
-**Lawsuit Against Meta Over Social Media Addiction Is Dropped**\
-`For Meta, the move was a reprieve after it and YouTube were found guilty in another case in March of negligence and personal injury for their platforms’ addictive features.`\
-https://www.nytimes.com/2026/07/22/technology/meta-social-media-lawsuit.html
 
