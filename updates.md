@@ -1,3 +1,7 @@
+**Who is Ahead in Idaho's 1st Congressional District?**\
+`Track the latest polls in Idaho's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/idaho-us-house-1-polls-2026.html
+
 **Cooking With Heat? In This Heat? Not on My Watch**\
 `Chill out with these no-cook recipes, like silken tofu salad and cold peanut noodles.`\
 https://www.nytimes.com/2026/07/23/dining/cooking-with-heat-in-this-heat-not-on-my-watch.html
