@@ -1,3 +1,11 @@
+**Iran Rejects U.S. Cease-Fire Deal Presented by Iraqi Leader**\
+`The details of the proposal were not immediately clear, but Iranian officials said that it was the only offer on the table.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/iran-iraq-cease-fire-proposal.html
+
+**Judge Extends Pause for Paramount-Warner Bros. Deal**\
+`The court blocked the companies from closing the acquisition through mid-August, as a judge considers two lawsuits challenging it.`\
+https://www.nytimes.com/2026/07/23/technology/judge-paramount-warner-bros-deal.html
+
 **Health Care Agency Discontinues Dozens of Active Research Awards**\
 `The Agency for Healthcare Research and Quality slowed the awarding of new grants last year. Now it is stopping existing ones.`\
 https://www.nytimes.com/2026/07/23/science/health-research-funding-ahrq.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/estrogeno-vaginal-
 **Who is Ahead in Idaho's 1st Congressional District?**\
 `Track the latest polls in Idaho's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/idaho-us-house-1-polls-2026.html
-
-**Cooking With Heat? In This Heat? Not on My Watch**\
-`Chill out with these no-cook recipes, like silken tofu salad and cold peanut noodles.`\
-https://www.nytimes.com/2026/07/23/dining/cooking-with-heat-in-this-heat-not-on-my-watch.html
-
-**Secret Service Agent in JD Vance’s Detail Under Investigation**\
-`The Secret Service said that a member of Vice President JD Vance’s team was accused of “compromising operational and information security.”`\
-https://www.nytimes.com/2026/07/23/us/politics/vance-secret-service.html
 
