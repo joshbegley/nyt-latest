@@ -1,3 +1,7 @@
+**Orcas Filmed Pulverizing Their Prey**\
+`Marine biologists in Mexico captured video of a brutal way orcas hunt sunfish: With an unusual maneuver, the killer whales pulverize the giants.`\
+https://www.nytimes.com/video/world/americas/100000011048541/orca-whale-sunfish-ramming.html
+
 **Ford Will Use Apple Maps in New Self-Driving System**\
 `In a first, Apple software will influence the way a new line of electric vehicles made by Ford Motor operates, and other automakers may follow.`\
 https://www.nytimes.com/2026/07/23/business/ford-apple-software-self-driving.html

@@ -1,3 +1,7 @@
+**Orcas Filmed Pulverizing Their Prey**\
+`Marine biologists in Mexico captured video of a brutal way orcas hunt sunfish: With an unusual maneuver, the killer whales pulverize the giants.`\
+https://www.nytimes.com/video/world/americas/100000011048541/orca-whale-sunfish-ramming.html
+
 **Corrections: July 23, 2026**\
 `Corrections that appeared in print on Thursday, July 23, 2026.`\
 https://www.nytimes.com/2026/07/23/pageoneplus/corrections-july-23-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/realestate/housing-market-nyc.html
 **In Artwork Across the Ages, Odysseus’ Myth Keeps Entrancing Audiences**\
 `Loved Christopher Nolan’s “The Odyssey”? Find more images inspired by the man of many twists and turns at these U.S. museums.`\
 https://www.nytimes.com/2026/07/23/arts/design/odyssey-nolan-art-met-museum-getty.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are an eight-bedroom in Northport, N.Y., and a four-bedroom in Kingwood, N.J.`\
-https://www.nytimes.com/2026/07/23/realestate/real-estate-market-near-nyc.html
 
