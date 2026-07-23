@@ -1,6 +1,6 @@
 **Did the World Cup Live Up to Tourism Expectations? Here Are the Winners and Losers.**\
 `Host cities, hotels, tourism boards and more had lofty expectations for the World Cup, but some struck gold, while some fizzled. Here’s the breakdown.`\
-https://www.nytimes.com/2026/07/23/travel/did-the-world-cup-live-up-to-104-super-bowls-the-winners-and-losers.html
+https://www.nytimes.com/2026/07/23/travel/world-cup-tourism-us-canada-mexico.html
 
 **Kagan Says Supreme Court Has Stood Up to Trump in Key Cases**\
 `At an annual meeting of judges and lawyers, the liberal justice defended her conservative colleagues from criticism that they have rubber-stamped President Trump’s agenda.`\
@@ -22,7 +22,7 @@ https://www.nytimes.com/video/podcasts/100000011046262/bright-eyes-conor-oberst-
 `Also, oil hits $100 a barrel. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/23/briefing/trump-impose-tariffs-popcorn-buckets.html
 
-**Number of U.S. Troop Deaths Suddenly Appears Lower on Pentagon Website**\
+**Number of U.S. Troop Deaths in Iran War Appears Lower on Pentagon Website**\
 `Three military officials and a Pentagon spokesman gave conflicting explanations for why the number of Americans killed in the Iran war had changed.`\
 https://www.nytimes.com/2026/07/23/us/politics/iran-troop-deaths.html
 
@@ -91,7 +91,7 @@ https://www.nytimes.com/video/us/politics/100000011049244/saudi-arabia-nuclear-d
 https://www.nytimes.com/2026/07/23/world/middleeast/red-sea-strikes-oil-houthis.html
 
 **Border Crossings Targeted in Latest U.S.-Iran Exchanges**\
-`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
+`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-us-iran-strikes.html
 
 **Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
