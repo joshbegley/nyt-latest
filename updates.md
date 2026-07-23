@@ -1,3 +1,7 @@
+**Late Night Rags on Trump and His Cabinet Joining TikTok**\
+`“Right now TikTok is, like, ‘Oh, no, are we the new Facebook?’” Jimmy Fallon said on “The Tonight Show.”`\
+https://www.nytimes.com/2026/07/23/arts/television/late-night-trump-administration-tiktok.html
+
 **Global Oil Prices Rise as Conflict With Iran Deepens**\
 `The Houthis claimed to have attacked two ships in the Red Sea, and Iran said a third caught fire near the Strait of Hormuz.`\
 https://www.nytimes.com/2026/07/23/business/iran-crude-oil-gas-stock-prices.html
