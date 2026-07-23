@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
 https://www.nytimes.com/es/2026/07/23/espanol/mundo/epstein-daniel-siad-modelos-muerte.html
 
 **House Again Rebukes Trump on Iran War Powers Vote**\
-`For the second time, a few Republicans joined Democrats to back a measure calling on the president to seek authorization for the conflict.`\
+`For the second time, a few House Republicans joined Democrats to back a measure calling on the president to seek authorization for the war.`\
 https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.html
 
 **China Rewrites the ‘Soft Power’ Playbook for the A.I. Age**\
