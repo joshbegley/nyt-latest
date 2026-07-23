@@ -1,3 +1,11 @@
+**China Rewrites the ‘Soft Power’ Playbook for the A.I. Age**\
+`China is seeking global influence and good will with its open, low-cost artificial intelligence software.`\
+https://www.nytimes.com/2026/07/23/business/china-ai-soft-power.html
+
+**Movie Theaters Embrace the Bewilderingly Lucrative Business of Buckets**\
+`Once, a tub of popcorn was just a tub of popcorn. Now, “collectible concession vessels” could make one chain more than $100 million.`\
+https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets.html
+
 **‘The Odyssey’ Hired Their Viking Ship. They Say It Came Back Damaged.**\
 `A Swedish Viking center said its vessel was used in the filming of Christopher Nolan’s epic but needed repairs when it was returned. Now, the center is seeking compensation.`\
 https://www.nytimes.com/2026/07/23/movies/the-odyssey-viking-ship-sweden.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/magazine/google-it-search-it-up.html
 **She Championed Pollock and Rothko. Now Her Art Is on the Museum Walls.**\
 `Betty Parsons, who showed the “great big shots” in her gallery starting in the 1940s, is the focus of a survey at Bard College, designed by the artist Amy Sillman.`\
 https://www.nytimes.com/2026/07/23/arts/design/betty-parsons-review-bard-sillman-pollock-rothko.html
-
-**Your Scary Summer of Movies, Graveyards and Horror Clubs**\
-`Summertime is a ripe time for terror. Our horror expert picks a night at the drive-in for a slasher double feature, an amble through a cemetery and more.`\
-https://www.nytimes.com/2026/07/23/movies/summer-horror-movies-theater-nyc.html
-
-**She Knows Parks, and Now She’ll Run a Famous Garden**\
-`Sue Donoghue, a former City Parks commissioner, is the new head of the Brooklyn Botanic Garden. She used to take her children there to watch bunny rabbits hopping.`\
-https://www.nytimes.com/2026/07/23/nyregion/botanic-garden-sue-donoghue.html
 

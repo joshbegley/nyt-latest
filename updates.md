@@ -1,3 +1,11 @@
+**China Rewrites the ‘Soft Power’ Playbook for the A.I. Age**\
+`China is seeking global influence and good will with its open, low-cost artificial intelligence software.`\
+https://www.nytimes.com/2026/07/23/business/china-ai-soft-power.html
+
+**Movie Theaters Embrace the Bewilderingly Lucrative Business of Buckets**\
+`Once, a tub of popcorn was just a tub of popcorn. Now, “collectible concession vessels” could make one chain more than $100 million.`\
+https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets.html
+
 **‘The Odyssey’ Hired Their Viking Ship. They Say It Came Back Damaged.**\
 `A Swedish Viking center said its vessel was used in the filming of Christopher Nolan’s epic but needed repairs when it was returned. Now, the center is seeking compensation.`\
 https://www.nytimes.com/2026/07/23/movies/the-odyssey-viking-ship-sweden.html
