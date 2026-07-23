@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/07/23/dining/fine-casual.html
 `The effort to prevent data centers from driving up electric bills could be hard to enforce, but it’s a sign of growing concern for the White House.`\
 https://www.nytimes.com/2026/07/23/climate/trump-ai-data-centers.html
 
-**Trump Throws a Potential Wrench in the Saudi Nuclear Deal He Just Inked**\
+**Trump’s New Demand for Nuclear Deal Puts Saudis in a Bind**\
 `Saudi Arabia has long said that a condition of normalizing relations with Israel would be a pathway toward Palestinian statehood, a prospect that Israel’s current government has rejected.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/trump-saudi-arabia-palestinian-state.html
 
