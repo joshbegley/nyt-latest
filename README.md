@@ -1,3 +1,7 @@
+**Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
+`The price of Brent crude rose above $98 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. Overnight, the U.S. and Iran showed no letup in their fighting.`\
+https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
+
 **A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon**\
 `Kyiv is escalating its air war by striking commercial warehouses, trying to bring the conflict closer to home for ordinary Russians.`\
 https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attacks.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/23/realestate/more-affordable-doesnt-always-mean
 **Word of the Day: bollard**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/23/learning/word-of-the-day-bollard.html
-
-**The Best and Worst Habits for Your Liver**\
-`Liver disease is on the rise worldwide. Your diet, workout routine and other health conditions can affect your risk.`\
-https://www.nytimes.com/2026/07/23/well/liver-health-tips.html
 
