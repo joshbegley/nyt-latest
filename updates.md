@@ -1,3 +1,7 @@
+**Veteranos de Vietnam rechazan el nuevo nombre de una autopista en honor a Charlie Kirk**\
+`El tramo de la ruta estatal 386 de Tennessee al norte de Nashville llevaba el nombre de Bulevar de los Veteranos de Vietnam desde hace casi cuatro décadas.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/charlie-kirk-vereranos-vietnam.html
+
 **Intel Benefits From a New Shift in A.I. Spending**\
 `The Silicon Valley chipmaker’s revenue rose 25 percent in the latest quarter, its fastest growth in 15 years, as A.I. firms increasingly bought chips known as central processing units.`\
 https://www.nytimes.com/2026/07/23/technology/intel-quarterly-results.html
