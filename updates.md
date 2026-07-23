@@ -1,3 +1,7 @@
+**Jason Alexander Apologizes for 2012 Sketch With Teenage Courtney Stodden**\
+`Alexander rubs a phone against the actress’s breasts in the Funny or Die comedy sketch, which was published when she was 17.`\
+https://www.nytimes.com/2026/07/22/arts/television/jason-alexander-apology-courtney-stodden.html
+
 **Houthis Claim Strikes on 2 Saudi Oil Tankers in Red Sea**\
 `The Saudi authorities had yet to confirm the hits, which would be the first attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/houthis-saudi-oil-tankers-red-sea.html

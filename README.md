@@ -1,3 +1,7 @@
+**Debate Over Ancient Iranian Jewelry Worn by Zendaya to ‘Odyssey’ Event**\
+`The actress wore earrings to an event for “The Odyssey” that a London gallery has said were made from an ancient artifact.`\
+https://www.nytimes.com/2026/07/22/style/zendaya-odyssey-earrings-jewelry.html
+
 **Houthis Claim Strikes on 2 Saudi Oil Tankers in Red Sea**\
 `The Saudi authorities had yet to confirm the hits, which would be the first attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/houthis-saudi-oil-tankers-red-sea.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/22/business/media/cinerama-dome-sony-pictures-ho
 **Dunes Sagebrush Lizard Stripped of Endangered Status by Judge**\
 `The dunes sagebrush lizard, found only in the oil-rich Permian Basin, was classified as endangered two years ago.`\
 https://www.nytimes.com/2026/07/22/climate/dunes-sagebrush-lizard-trump.html
-
-**U.S. Troops, Seriously Wounded in Recent Strikes, Were Flown to Germany for Help**\
-`The seriously wounded service members are among the roughly 100 American troops that the Defense Department recently said were injured by Iranian attacks since early July.`\
-https://www.nytimes.com/2026/07/22/world/middleeast/us-troops-iran-germany.html
 
