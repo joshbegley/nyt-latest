@@ -1,3 +1,19 @@
+**Two People Stabbed Near Central Park in New York City, Police Say**\
+`The police said they had detained a person of interest. It was not immediately clear what led to the attack in the affluent Manhattan neighborhood.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
+
+**Senators Ask Hegseth to Fully Account for U.S. Troops Killed or Wounded in Iran**\
+`The 12 Democratic senators on the Armed Services Committee said Defense Secretary Pete Hegseth’s department had not provided “timely and comprehensive” reporting on casualties during the war.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/iran-war-us-troops-hegseth-casualties.html
+
+**Trump, His Money, and the World**\
+`Donald Trump’s growing wealth while in office could have an impact on anti-corruption efforts around the world.`\
+https://www.nytimes.com/2026/07/23/world/trump-foreign-deals-wealth-saudi.html
+
+**Trump Administration Drops Subpoena Demanding List of Jews From Penn**\
+`The move was a rare pullback for the administration, which has used inquiries as leverage. Few schools resisted as Penn did after it was pressed for antisemitism complaints and a list of campus groups involved with Judaism.`\
+https://www.nytimes.com/2026/07/23/us/eeoc-subpoena-penn-jewish-list.html
+
 **What to Know About Iran and the Houthis**\
 `The Yemeni militant group appeared to open a new front in the conflict between its backer, Iran, and the United States, by attacking ships and announcing a blockade on a strategic waterway.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/what-to-know-iran-houthis.html

@@ -1,3 +1,11 @@
+**Tugboat Captain Pleads Guilty in Miami Crash That Killed 3 Children**\
+`Prosecutors said the captain’s view was blocked as the barge he was pushing struck a sailboat carrying young campers and a counselor on Biscayne Bay.`\
+https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty.html
+
+**Salman Rushdie Recalls ‘Lake of Blood’ in Testimony Against His Attacker**\
+`Mr. Rushdie, an author, testified about the 2022 stabbing in upstate New York, where he was speaking at a literary festival. He was left blind in one eye, with scars all over his body.`\
+https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
+
 **Two People Stabbed Near Central Park in New York City, Police Say**\
 `The police said they had detained a person of interest. It was not immediately clear what led to the attack in the affluent Manhattan neighborhood.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
@@ -130,8 +138,8 @@ https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peo
 `Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
 
-**Trump Prepares Yet Another Strategy to Resurrect Global Tariffs**\
-`The administration’s 10 percent global tariffs are set to expire at midnight, but officials have been preparing replacements.`\
+**Trump to Impose New Global Tariffs of Around 10% After Previous Duties Lapse**\
+`The administration announced new duties tied to countries’ imports of goods made with forced labor, replacing a global 10 percent tariff set to expire at midnight.`\
 https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
 
 **Supreme Court Turbocharges Presidential Power**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/the-odyssey-viking-ship-sweden.html
 **Four Young Mathematicians Receive Prestigious Fields Medals**\
 `The awards are bestowed only once every four years to mathematicians under the age of 40.`\
 https://www.nytimes.com/2026/07/23/science/fields-medals-pardon-deng-wang-tsimerman.html
-
-**Even as War Rages, Investors Bet Oil Will Be Cheaper in a Few Months**\
-`Futures contracts reflect an expectation that low inventories and midterm elections are likely to push the Trump administration to try to ease tensions with Iran.`\
-https://www.nytimes.com/2026/07/23/business/iran-war-oil-prices.html
-
-**F.D.A. Announces New Cyclosporiasis Outbreak With 72 Cases**\
-`Health officials did not identify the location of the outbreak, or what they believed was causing it.`\
-https://www.nytimes.com/2026/07/23/well/eat/new-cyclosporiasis-outbreak-fda.html
 
