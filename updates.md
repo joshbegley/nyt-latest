@@ -1,3 +1,7 @@
+**End of the Line for Penn Station? A Trump Official Calls for a New Name.**\
+`Sean P. Duffy, the transportation secretary, said renaming the New York transportation hub was an administration priority. But he hasn’t offered any options.`\
+https://www.nytimes.com/2026/07/23/nyregion/penn-station-name-trump.html
+
 **Trump Adds New Condition to Nuclear Deal With Saudi Arabia**\
 `In a post on social media on Thursday, President Trump said the nuclear agreement between nations was now “totally subject” to Saudi Arabia joining the Abraham Accords. This condition was not mentioned in the administration’s announcement after the deal was signed on Wednesday.`\
 https://www.nytimes.com/video/us/politics/100000011049244/saudi-arabia-nuclear-deal-abraham-accord.html
