@@ -1,3 +1,7 @@
+**Secret Service Agent in JD Vance’s Detail Under Investigation**\
+`The Secret Service said that a member of Vice President JD Vance’s team was accused of “compromising operational and information security.”`\
+https://www.nytimes.com/2026/07/23/us/politics/vance-secret-service.html
+
 **Estos son los mejores y peores hábitos para tu hígado**\
 `Las enfermedades hepáticas están en aumento en todo el mundo. Tu dieta, tu rutina de ejercicios y otras afecciones médicas pueden afectar tu riesgo.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peores-habitos.html
@@ -34,13 +38,13 @@ https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-de
 `Hundreds of people protested in Wisconsin after footage of a fatal police shooting circulated online. Local officials said a police officer shot a man who had injured the officer with a knife.`\
 https://www.nytimes.com/video/world/americas/100000011048325/police-shooting-wisconsin-protests.html
 
-**Trump’s New Tariffs: Just as Bad as the Old Tariffs**\
-`The administration will keep trying to run around rulings against import fees.`\
-https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
-
 **Charred Shrimp With Shimi Sauce to Share**\
 `(No description)`\
 https://www.nytimes.com/2026/07/23/dining/charred-shrimp-with-shimi-sauce-to-share.html
+
+**Trump’s Tariff Runaround Defies the Courts and Common Sense**\
+`The administration will keep trying to run around rulings against import fees.`\
+https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
 
 **Daniel Siad, reclutador de modelos con enlaces a Epstein es hallado muerto en Francia**\
 `Daniel Siad le presentó repetidamente mujeres jóvenes a Jeffrey Epstein, según mensajes entre ambos. Siad había negado haber cometido algún delito.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/world/asia/russian-spy-flees-japan.html
 **Is Orange Coffee the Drink of Summer?**\
 `Plus: a Florentine palazzo hotel, cloud-shaped jewelry and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/07/23/t-magazine/orange-coffee-cafes.html
-
-**How Trump and His Allies Can Corrupt the Midterms**\
-`Stop the steal before it starts.`\
-https://www.nytimes.com/2026/07/23/opinion/trump-midterms-fraud-corruption.html
 
