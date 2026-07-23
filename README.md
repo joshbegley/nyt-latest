@@ -1,3 +1,7 @@
+**Los Angeles Homeless Population Grows Again, After 2 Years of Decline**\
+`Los Angeles had an increase in homeless residents between early 2025 and early 2026. The rise could hurt Mayor Karen Bass as she runs for re-election.`\
+https://www.nytimes.com/2026/07/23/us/los-angeles-homeless-increase.html
+
 **Veteranos de Vietnam rechazan el nuevo nombre de una autopista en honor a Charlie Kirk**\
 `El tramo de la ruta estatal 386 de Tennessee al norte de Nashville llevaba el nombre de Bulevar de los Veteranos de Vietnam desde hace casi cuatro décadas.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/charlie-kirk-vereranos-vietnam.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty
 `Mr. Rushdie, an author, testified about the 2022 stabbing in upstate New York, where he was speaking at a literary festival. He was left blind in one eye, with scars all over his body.`\
 https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
 
-**Two People Stabbed Near Central Park in New York City, Police Say**\
-`A man was arrested after the daylight attacks on the Upper West Side in an affluent neighborhood. The police were investigating whether the stabbings were hate crimes.`\
+**Two Men Stabbed on Upper West Side in Possible Hate Crimes**\
+`A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
 
 **Senators Ask Hegseth to Fully Account for U.S. Troops Killed or Wounded in Iran**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/us/politics/vance-secret-service.html
 **Estos son los mejores y peores hábitos para tu hígado**\
 `Las enfermedades hepáticas están en aumento en todo el mundo. Tu dieta, tu rutina de ejercicios y otras afecciones médicas pueden afectar tu riesgo.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peores-habitos.html
-
-**Chaos Breaks Out at Border Crossings With Iraq**\
-`Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
-https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
 
