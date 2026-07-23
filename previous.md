@@ -1,3 +1,11 @@
+**Daniel Siad, reclutador de modelos con enlaces a Epstein es hallado muerto en Francia**\
+`Daniel Siad le presentó repetidamente mujeres jóvenes a Jeffrey Epstein, según mensajes entre ambos. Siad había negado haber cometido algún delito.`\
+https://www.nytimes.com/es/2026/07/23/espanol/mundo/epstein-daniel-siad-modelos-muerte.html
+
+**House Again Rebukes Trump on Iran War Powers Vote**\
+`For the second time, a few Republicans joined Democrats to back a measure calling on the president to seek authorization for the conflict.`\
+https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.html
+
 **China Rewrites the ‘Soft Power’ Playbook for the A.I. Age**\
 `China is seeking global influence and good will with its open, low-cost artificial intelligence software.`\
 https://www.nytimes.com/2026/07/23/business/china-ai-soft-power.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/arts/television/stuart-fails-to-save-the-univ
 **Could A.I. Do Your Job? We Put Agents to the Test.**\
 `In our experiment, we deployed A.I. “agents” to act as office workers, and found that they were capable of performing some of the tasks we assigned, but not all of them.`\
 https://www.nytimes.com/interactive/2026/07/23/technology/ai-agents-office-jobs.html
-
-**Saying ‘Google It’ Makes You Sound Old. ‘Search It Up’ Instead.**\
-`As online research evolves, so has the language we use to describe it.`\
-https://www.nytimes.com/2026/07/23/magazine/google-it-search-it-up.html
-
-**She Championed Pollock and Rothko. Now Her Art Is on the Museum Walls.**\
-`Betty Parsons, who showed the “great big shots” in her gallery starting in the 1940s, is the focus of a survey at Bard College, designed by the artist Amy Sillman.`\
-https://www.nytimes.com/2026/07/23/arts/design/betty-parsons-review-bard-sillman-pollock-rothko.html
 

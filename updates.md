@@ -1,3 +1,11 @@
+**Daniel Siad, reclutador de modelos con enlaces a Epstein es hallado muerto en Francia**\
+`Daniel Siad le presentó repetidamente mujeres jóvenes a Jeffrey Epstein, según mensajes entre ambos. Siad había negado haber cometido algún delito.`\
+https://www.nytimes.com/es/2026/07/23/espanol/mundo/epstein-daniel-siad-modelos-muerte.html
+
+**House Again Rebukes Trump on Iran War Powers Vote**\
+`For the second time, a few Republicans joined Democrats to back a measure calling on the president to seek authorization for the conflict.`\
+https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.html
+
 **China Rewrites the ‘Soft Power’ Playbook for the A.I. Age**\
 `China is seeking global influence and good will with its open, low-cost artificial intelligence software.`\
 https://www.nytimes.com/2026/07/23/business/china-ai-soft-power.html
