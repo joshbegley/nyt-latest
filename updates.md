@@ -1,3 +1,11 @@
+**‘Odyssey’ Popcorn Buckets Help Fuel a $100 Million Market**\
+`Once, a tub of popcorn was just a tub of popcorn. Now, ‘collectible concession vessels’ could make one chain more than $100 million.`\
+https://www.nytimes.com/2026/07/23/business/media/movie-theaters-popcorn-buckets.html
+
+**Man Fatally Shot by Police in Madison, WI, Stirring Protests**\
+`The officer who fired was injured with a knife while attempting an arrest, the Madison police chief said. Footage of the shooting circulated widely online.`\
+https://www.nytimes.com/2026/07/23/us/madison-wisconsin-police-shooting-protests.html
+
 **Trump Prepares Yet Another Strategy to Resurrect Global Tariffs**\
 `The administration’s 10 percent global tariffs are set to expire at midnight, but officials have been preparing replacements.`\
 https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
