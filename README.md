@@ -1,3 +1,7 @@
+**Zelensky’s Dizzying U-Turn Is the Latest Zigzag in a Presidency Full of Them**\
+`President Volodymyr Zelensky of Ukraine has pivoted from unpopular moves before, but a recent decision about military leadership and strategy could weaken his position.`\
+https://www.nytimes.com/2026/07/23/world/europe/zelensky-ukraine-military-reversal.html
+
 **Google Sets the Pace on Hefty A.I. Spending**\
 `The technology giant again raised its projections for investing in artificial intelligence. Many on Wall Street still worry about the eventual payoff.`\
 https://www.nytimes.com/2026/07/23/business/dealbook/google-ai-capex.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/her-private-hell-review.html
 **‘Motor City’ Review: Some Rage and Quiet**\
 `Set in Detroit in the 1970s, this revenge movie tells its story with almost no dialogue.`\
 https://www.nytimes.com/2026/07/23/movies/motor-city-review.html
-
-**‘The Dink’ Review: A Volley and a Flub**\
-`Jake Johnson and Mary Steenburgen star in a tennis versus pickleball comedy that never quite makes it over the net.`\
-https://www.nytimes.com/2026/07/23/movies/the-dink-review.html
 
