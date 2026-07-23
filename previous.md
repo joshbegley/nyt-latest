@@ -1,3 +1,7 @@
+**Rupert Murdoch Biopic Is Among Premieres at Venice Film Festival**\
+`The directors Danny Boyle, Martin McDonagh, Werner Herzog and Casey Affleck will present new movies at the festival.`\
+https://www.nytimes.com/2026/07/23/movies/venice-film-festival-lineup.html
+
 **Mamdani’s Video Message About Netanyahu**\
 `Reader’s react to the New York mayor’s video criticizing the Israeli prime minister. Also: A.I. jobs for philosophers; a battle in the health care industry; fast walkers; pregnant bellies.`\
 https://www.nytimes.com/2026/07/23/opinion/mamdani-netanyahu-video.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/podcasts/the-headlines/immigrants-peptides-sa
 **NYT Connections Answers for July 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
 https://www.nytimes.com/2026/07/23/crosswords/connections-companion-1139.html
-
-**NYT Strands Hints for July 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
-https://www.nytimes.com/2026/07/23/crosswords/strands-sidekick-873.html
 
