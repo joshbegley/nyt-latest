@@ -1,3 +1,7 @@
+**Israel Welcomes Trump’s Demand for Diplomatic Ties With Saudi Arabia**\
+`Israeli officials greeted the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel. Prime Minister Benjamin Netanyahu has not yet commented on the agreement.`\
+https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-deal.html
+
 **Protests in Wisconsin After Man Fatally Shot by Police**\
 `Hundreds of people protested in Wisconsin after footage of a fatal police shooting circulated online. Local officials said a police officer shot a man who had injured the officer with a knife.`\
 https://www.nytimes.com/video/world/americas/100000011048325/police-shooting-wisconsin-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/health/fda-scientists-rfk-peptides.html
 **Amid Cyclospora Outbreak Tied to Lettuce, America Skips Salads**\
 `Foot traffic to chains such as Chopt and Chipotle fell in recent weeks after a recall from Taylor Farms and changing messages from the F.D.A.`\
 https://www.nytimes.com/2026/07/23/business/cyclospora-lettuce-salad.html
-
-**How Much Money Has Trump Made as President?**\
-`See how President Trump and his family’s business empire has transformed from his first term.`\
-https://www.nytimes.com/interactive/2026/07/23/us/politics/president-trump-profits.html
 
