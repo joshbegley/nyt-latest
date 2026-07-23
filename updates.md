@@ -1,3 +1,19 @@
+**Trump afirma que los soldados caídos apoyaban la guerra con Irán**\
+`El presidente Donald Trump no dijo cómo conocía las opiniones de los soldados caídos, pero decidió hablar por ellos en un momento político peligroso, en el que los estadounidenses se han mostrado cada vez más críticos respecto a la guerra en Irán.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-soldados-muertos-guerra-iran.html
+
+**La apuesta de Putin podría dar resultados**\
+`A pesar de todo el peligro de la guerra, Putin ha apostado por aguantar más que Occidente.`\
+https://www.nytimes.com/es/2026/07/23/espanol/opinion/putin-rusia-guerra-resultados.html
+
+**La primera ministra de Japón dice que solo duerme de ‘0 a 3 horas’**\
+`Una reciente publicación en las redes sociales de Sanae Takaichi ha provocado un debate en el país sobre el equilibrio entre la vida laboral y personal.`\
+https://www.nytimes.com/es/2026/07/23/espanol/mundo/primera-ministra-japon-trabajo.html
+
+**Viajar con autismo: consejos y tácticas**\
+`Los expertos afirman que planificar con anticipación y adaptar las experiencias a las necesidades del viajero puede ser de gran ayuda.`\
+https://www.nytimes.com/es/2026/07/23/espanol/viajes-autismo-consejos.html
+
 **Repairing Storm Damage Is Expensive. It’s Only Going to Get Worse.**\
 `A report from a group called Rebuild by Design estimates that New York will have to spend more than half a trillion dollars to repair the effects of climate change in the next 24 years.`\
 https://www.nytimes.com/2026/07/23/nyregion/new-york-storm-damage-repair-cost-climate-change.html

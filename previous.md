@@ -1,3 +1,19 @@
+**Trump afirma que los soldados caídos apoyaban la guerra con Irán**\
+`El presidente Donald Trump no dijo cómo conocía las opiniones de los soldados caídos, pero decidió hablar por ellos en un momento político peligroso, en el que los estadounidenses se han mostrado cada vez más críticos respecto a la guerra en Irán.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-soldados-muertos-guerra-iran.html
+
+**La apuesta de Putin podría dar resultados**\
+`A pesar de todo el peligro de la guerra, Putin ha apostado por aguantar más que Occidente.`\
+https://www.nytimes.com/es/2026/07/23/espanol/opinion/putin-rusia-guerra-resultados.html
+
+**La primera ministra de Japón dice que solo duerme de ‘0 a 3 horas’**\
+`Una reciente publicación en las redes sociales de Sanae Takaichi ha provocado un debate en el país sobre el equilibrio entre la vida laboral y personal.`\
+https://www.nytimes.com/es/2026/07/23/espanol/mundo/primera-ministra-japon-trabajo.html
+
+**Viajar con autismo: consejos y tácticas**\
+`Los expertos afirman que planificar con anticipación y adaptar las experiencias a las necesidades del viajero puede ser de gran ayuda.`\
+https://www.nytimes.com/es/2026/07/23/espanol/viajes-autismo-consejos.html
+
 **Repairing Storm Damage Is Expensive. It’s Only Going to Get Worse.**\
 `A report from a group called Rebuild by Design estimates that New York will have to spend more than half a trillion dollars to repair the effects of climate change in the next 24 years.`\
 https://www.nytimes.com/2026/07/23/nyregion/new-york-storm-damage-repair-cost-climate-change.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/22/us/politics/house-bill-stock-trades-congress.
 **Hitler’s Birthplace in Austria Becomes a Police Station**\
 `The Austrian government has turned the building where Adolf Hitler was born into a police station in an attempt to deter the site from becoming an attraction for Nazi sympathizers. The building opened on Wednesday.`\
 https://www.nytimes.com/video/world/europe/100000011046889/hitler-birthplace-austria-police-station.html
-
-**Saudi Arabia’s Nuclear Plans**\
-`The U.S. will help the Saudis develop a civilian nuclear program, with uncertain consequences for the Middle East.`\
-https://www.nytimes.com/2026/07/22/world/saudi-nuclear-deal-trump-houthis.html
-
-**Trump Administration Says Surprise Billing Law Is Being ‘Gamed’ by Doctors**\
-`For the first time, officials have acknowledged problems with the No Surprises Act, which has led to huge payments.`\
-https://www.nytimes.com/2026/07/22/upshot/doctors-huge-payments-trump.html
-
-**House Passes Defense Bill Amid Iran War Divide**\
-`Republicans pushed through the $1.15 trillion bill over opposition from Democrats, who said backing it was akin to embracing the war.`\
-https://www.nytimes.com/2026/07/22/us/politics/house-defense-bill-iran-war.html
-
-**What to Know as Tropical Storm Bertha Makes Landfall on Louisiana Coast**\
-`The storm made landfall on the Louisiana coast on Wednesday. Here’s where it’s going next.`\
-https://www.nytimes.com/2026/07/22/weather/tropical-storm-bertha-forecast-texas-louisiana.html
 
