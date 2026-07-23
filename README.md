@@ -1,3 +1,7 @@
+**A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon**\
+`Kyiv is escalating its air war by striking commercial warehouses, trying to bring the conflict closer to home for ordinary Russians.`\
+https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attacks.html
+
 **U.S.-Saudi Deal Prompts Fears of a World With Looser Nuclear Rules**\
 `In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
 https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/23/learning/word-of-the-day-bollard.html
 **The Best and Worst Habits for Your Liver**\
 `Liver disease is on the rise worldwide. Your diet, workout routine and other health conditions can affect your risk.`\
 https://www.nytimes.com/2026/07/23/well/liver-health-tips.html
-
-**Valeria Luiselli on Her Favorite Books and Her New Novel**\
-`Pliny’s “Natural History” is meant for “skimming and skipping,” she says. Her own new (one-volume) road-trip novel is “Beginning Middle End.”`\
-https://www.nytimes.com/2026/07/23/books/review/valeria-luiselli-beginning-middle-end.html
 
