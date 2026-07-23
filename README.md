@@ -2,7 +2,7 @@
 `Kyiv is escalating its air war by striking commercial warehouses, trying to bring the conflict closer to home for ordinary Russians.`\
 https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attacks.html
 
-**U.S.-Saudi Deal Prompts Fears of a World With Looser Nuclear Rules**\
+**U.S.-Saudi Deal Prompts Fears of a Nuclear Arms Race**\
 `In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
 https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
 
