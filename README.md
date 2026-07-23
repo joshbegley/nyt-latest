@@ -1,3 +1,7 @@
+**Chaos Breaks Out at Border Crossings in Iraq**\
+`Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
+
 **Trump Prepares Yet Another Strategy to Resurrect Global Tariffs**\
 `The administration’s 10 percent global tariffs are set to expire at midnight, but officials have been preparing replacements.`\
 https://www.nytimes.com/2026/07/23/business/economy/trump-tariffs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/opinion/trump-midterms-fraud-corruption.html
 **How Can Anyone Trust This Crew With Anything?**\
 `JD Vance isn’t going to save us. Neither is Pete Hegseth.`\
 https://www.nytimes.com/2026/07/23/opinion/trump-vance-iran-cyclospora.html
-
-**You’ve Just Won… the Chance to Buy a House**\
-`In a novel public-private partnership, a Chicago suburb raffled off the opportunity for local residents to buy houses below market rate.`\
-https://www.nytimes.com/2026/07/23/realestate/chicago-housing-raffle.html
 
