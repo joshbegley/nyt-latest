@@ -1,3 +1,11 @@
+**It’s So Hot That Japan Needs a New Word for It**\
+`Japan this week recorded its first kokushobi, a term that means “cruel heat day,” as temperatures reached 104 degrees. It is not the only country that has scrambled for a new summer vocabulary.`\
+https://www.nytimes.com/2026/07/23/weather/japan-excessive-heat-kokushobi.html
+
+**A Russian Spy, Suddenly Cast Into the Spotlight, Flees Japan**\
+`The military intelligence officer left the country after The Times reported that he was using the Aeroflot airline office in Tokyo to conduct espionage.`\
+https://www.nytimes.com/2026/07/23/world/asia/russian-spy-flees-japan.html
+
 **Is Orange Coffee the Drink of Summer?**\
 `Plus: a Florentine palazzo hotel, cloud-shaped jewelry and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/07/23/t-magazine/orange-coffee-cafes.html
