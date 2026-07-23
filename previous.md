@@ -1,3 +1,7 @@
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/07/23/books/review/new-recommended-books.html
+
 **Modi Caught Off Guard as India’s Economic Failings Inflame Young People**\
 `Prime Minister Narendra Modi was busy trying to put out other fires when a student movement suddenly exploded. There are no easy solutions to the problems behind it.`\
 https://www.nytimes.com/2026/07/23/world/asia/india-modi-protests-economy-cockroach-party.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
 https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
 
 **Israel Welcomes Trump’s Demand for Diplomatic Ties With Saudi Arabia**\
-`Israeli officials greeted the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel.`\
+`Israeli officials embraced the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel.`\
 https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-deal.html
 
 **Protests in Wisconsin After Man Fatally Shot by Police**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/crosswords/strands-sidekick-873.html
 **Today’s Wordle Hints for July 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
 https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
-
-**Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It Wants to Go Nuclear.**\
-`Opponents warn that a U.S.-Saudi deal could be a step toward the kingdom building an atomic bomb. But there are other reasons for the world’s largest oil exporter to diversify its energy mix.`\
-https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html
 

@@ -1,3 +1,11 @@
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/07/23/books/review/new-recommended-books.html
+
+**Israel Welcomes Trump’s Demand for Diplomatic Ties With Saudi Arabia**\
+`Israeli officials embraced the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel.`\
+https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-deal.html
+
 **Modi Caught Off Guard as India’s Economic Failings Inflame Young People**\
 `Prime Minister Narendra Modi was busy trying to put out other fires when a student movement suddenly exploded. There are no easy solutions to the problems behind it.`\
 https://www.nytimes.com/2026/07/23/world/asia/india-modi-protests-economy-cockroach-party.html
