@@ -1,6 +1,6 @@
-**Global Oil Prices Rise as Conflict with Iran Deepens**\
+**Global Oil Prices Rise as Conflict With Iran Deepens**\
 `The Houthis claimed to have attacked two ships in the Red Sea, and Iran said a third caught fire near the Strait of Hormuz.`\
-https://www.nytimes.com/2026/07/23/business/crude-oil-gas-stock-prices.html
+https://www.nytimes.com/2026/07/23/business/iran-crude-oil-gas-stock-prices.html
 
 **Haiti Needs Stability, Not Mass Deportations**\
 `Deporting Haitian migrants will further destabilize a country in crisis.`\
