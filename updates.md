@@ -1,3 +1,7 @@
+**Man Found Guilty in 2 California Stabbings, and Is Ruled Insane**\
+`A jury this week found Carlos Reales Dominguez guilty of involuntary manslaughter in two deaths, but a judge ruled that he was insane at the time of the crimes. He faces time in a mental hospital.`\
+https://www.nytimes.com/2026/07/22/us/uc-davis-california-stabbing-verdict.html
+
 **Debate Over Ancient Iranian Jewelry Worn by Zendaya to ‘Odyssey’ Event**\
 `The actress wore earrings to an event for “The Odyssey” that a London gallery has said were made from an ancient artifact.`\
 https://www.nytimes.com/2026/07/22/style/zendaya-odyssey-earrings-jewelry.html
