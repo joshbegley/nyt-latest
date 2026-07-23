@@ -1,3 +1,11 @@
+**ICE Targets ‘Detention Desert’ With New Facility in North Carolina**\
+`Even as ICE has retreated from its plan to buy warehouses, the new complex near the Virginia border signals that the agency remains determined to increase its detention capacity.`\
+https://www.nytimes.com/2026/07/23/us/winton-nc-ice-detention-center.html
+
+**Governor Resists U.S. Demand for Names of Noncitizens on Voting Rolls**\
+`The Justice Department gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
+https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-department.html
+
 **Governor Resists U.S. Demand for Names of Noncitizens on Voting Rolls**\
 `The Justice Dept. gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
 https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-department.html

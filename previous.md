@@ -1,5 +1,9 @@
+**ICE Targets ‘Detention Desert’ With New Facility in North Carolina**\
+`Even as ICE has retreated from its plan to buy warehouses, the new complex near the Virginia border signals that the agency remains determined to increase its detention capacity.`\
+https://www.nytimes.com/2026/07/23/us/winton-nc-ice-detention-center.html
+
 **Governor Resists U.S. Demand for Names of Noncitizens on Voting Rolls**\
-`The Justice Dept. gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
+`The Justice Department gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
 https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-department.html
 
 **Key Republican Senator Says He Will Support Erica Schwartz for C.D.C. Director**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/arts/trainspotting-the-musical-review.html
 **Photographic Evidence**\
 `We look at how The Times uses photographs and video to better understand what’s happening in the war with Iran.`\
 https://www.nytimes.com/2026/07/23/briefing/photographic-evidence-iran-war.html
-
-**Google Hit With $1 Billion Fine By EU Over Search Engine Practices**\
-`At a tense moment for trans-Atlantic trade, the European Union accused Google of anti-competitive business practices.`\
-https://www.nytimes.com/2026/07/23/business/google-eu-fine-search-competition.html
 
