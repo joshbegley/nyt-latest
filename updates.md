@@ -1,3 +1,7 @@
+**Health Care Agency Discontinues Dozens of Active Research Awards**\
+`The Agency for Healthcare Research and Quality slowed the awarding of new grants last year. Now it is stopping existing ones.`\
+https://www.nytimes.com/2026/07/23/science/health-research-funding-ahrq.html
+
 **Trump’s New Demand for Nuclear Deal Puts Saudis in a Bind**\
 `Saudi Arabia has long said that a condition of normalizing relations with Israel would be a pathway toward Palestinian statehood, a prospect that Israel’s current government has rejected.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/trump-saudi-arabia-palestinian-state.html

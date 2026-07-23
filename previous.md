@@ -1,3 +1,7 @@
+**Health Care Agency Discontinues Dozens of Active Research Awards**\
+`The Agency for Healthcare Research and Quality slowed the awarding of new grants last year. Now it is stopping existing ones.`\
+https://www.nytimes.com/2026/07/23/science/health-research-funding-ahrq.html
+
 **Los Angeles Homeless Population Grows Again, After 2 Years of Decline**\
 `Los Angeles had an increase in homeless residents between early 2025 and early 2026. The rise could hurt Mayor Karen Bass as she runs for re-election.`\
 https://www.nytimes.com/2026/07/23/us/los-angeles-homeless-increase.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/dining/cooking-with-heat-in-this-heat-not-on-
 **Secret Service Agent in JD Vance’s Detail Under Investigation**\
 `The Secret Service said that a member of Vice President JD Vance’s team was accused of “compromising operational and information security.”`\
 https://www.nytimes.com/2026/07/23/us/politics/vance-secret-service.html
-
-**Estos son los mejores y peores hábitos para tu hígado**\
-`Las enfermedades hepáticas están en aumento en todo el mundo. Tu dieta, tu rutina de ejercicios y otras afecciones médicas pueden afectar tu riesgo.`\
-https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peores-habitos.html
 
