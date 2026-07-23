@@ -1,3 +1,19 @@
+**Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
+`As savvy as he could be volatile, he advised Nancy Pelosi and Dianne Feinstein, ran for mayor of San Francisco and bought The San Francisco Examiner.`\
+https://www.nytimes.com/2026/07/23/us/politics/clint-reilly-dead.html
+
+**Illinois Changes Tack on Data Centers**\
+`At the Aspen Ideas climate conference, Gov. JB Pritzker spoke about disincentivizing data centers instead of providing financial incentives.`\
+https://www.nytimes.com/2026/07/23/climate/data-centers-pritzker.html
+
+**Ante el brote de ciclosporiasis, EE. UU. deja de consumir ensaladas**\
+`La clientela de cadenas de restaurantes como Chipotle y Chopt ha caído desde que comenzaron los avisos sobre infecciones por “Cyclospora” relacionadas con la lechuga en EE. UU.`\
+https://www.nytimes.com/es/2026/07/23/espanol/negocios/cyclospora-brote-lechuga-restaurantes.html
+
+**What’s in a Name? Depends Where You Are.**\
+`Place names change with time, depending on how the locals understand them.`\
+https://www.nytimes.com/2026/07/23/opinion/place-names-pronunciation-language.html
+
 **Three Excellent Restaurants from Fine-Dining Dropouts**\
 `At these restaurants the chefs have hung up their tweezers to focus on the kind of casual food you can enjoy any day of the week.`\
 https://www.nytimes.com/2026/07/23/dining/fine-casual.html
