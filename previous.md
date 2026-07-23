@@ -1,3 +1,11 @@
+**Trump Throws a Potential Wrench in the Saudi Nuclear Deal He Just Inked**\
+`Saudi Arabia has long said that a condition of normalizing relations with Israel would be a pathway toward Palestinian statehood, a prospect that Israel’s current government has rejected.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/trump-saudi-arabia-palestinian-state.html
+
+**U.S. to Withdraw Subpoenas Issued to New York Times Journalists**\
+`A federal judge raised questions about the government’s handling of the subpoenas, which The Times said were an attempt to intimidate the free press.`\
+https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html
+
 **ICE Targets ‘Detention Desert’ With New Facility in North Carolina**\
 `Even as ICE has retreated from its plan to buy warehouses, the new complex near the Virginia border signals that the agency remains determined to increase its detention capacity.`\
 https://www.nytimes.com/2026/07/23/us/winton-nc-ice-detention-center.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/world/europe/zelensky-ukraine-military-revers
 **Google Sets the Pace on Hefty A.I. Spending**\
 `The technology giant again raised its projections for investing in artificial intelligence. Many on Wall Street still worry about the eventual payoff.`\
 https://www.nytimes.com/2026/07/23/business/dealbook/google-ai-capex.html
-
-**‘Trainspotting: The Musical’: When the Lust for Life Is Gone**\
-`If the 1996 cult classic film was a high for a generation of moviegoers, a new London stage production feels like the comedown.`\
-https://www.nytimes.com/2026/07/23/arts/trainspotting-the-musical-review.html
-
-**Photographic Evidence**\
-`We look at how The Times uses photographs and video to better understand what’s happening in the war with Iran.`\
-https://www.nytimes.com/2026/07/23/briefing/photographic-evidence-iran-war.html
 
