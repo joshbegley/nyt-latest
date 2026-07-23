@@ -1,3 +1,15 @@
+**Man Fatally Shot by Police in Wisconsin’s Capital, Stirring Protests**\
+`The officer who fired was injured with a knife while attempting an arrest, the Madison police chief said. Footage of the shooting circulated widely online.`\
+https://www.nytimes.com/2026/07/23/us/madison-wisconsin-police-shooting-protests.html
+
+**Zelensky’s Dizzying U-Turn Is the Latest Zigzag in a Presidency Full of Them**\
+`President Volodymyr Zelensky of Ukraine has pivoted from unpopular moves before, but a recent decision about military leadership and strategy could weaken his position.`\
+https://www.nytimes.com/2026/07/23/world/europe/zelensky-ukraine-military-reversal.html
+
+**Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
+`The price of Brent crude rose to almost $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
+https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
+
 **Google Sets the Pace on Hefty A.I. Spending**\
 `The technology giant again raised its projections for investing in artificial intelligence. Many on Wall Street still worry about the eventual payoff.`\
 https://www.nytimes.com/2026/07/23/business/dealbook/google-ai-capex.html
