@@ -1,3 +1,7 @@
+**Governor Resists U.S. Demand for Names of Noncitizens on Voting Rolls**\
+`The Justice Dept. gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
+https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-department.html
+
 **Key Republican Senator Says He Will Support Erica Schwartz for C.D.C. Director**\
 `Senator Bill Cassidy, who is believed to hold the deciding vote in the Senate health committee for Dr. Erica Schwartz’s confirmation, had declined for days to say whether he would back her.`\
 https://www.nytimes.com/2026/07/23/health/erica-schwartz-cdc-vote.html
