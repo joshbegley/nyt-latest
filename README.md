@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty
 https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
 
 **Two People Stabbed Near Central Park in New York City, Police Say**\
-`The police arrested a man after the daylight attacks on the Upper West Side. It was not immediately clear what led to the stabbings, but the Police Department was investigating whether they were hate crimes.`\
+`A man was arrested after the daylight attacks on the Upper West Side in an affluent neighborhood. The police were investigating whether the stabbings were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
 
 **Senators Ask Hegseth to Fully Account for U.S. Troops Killed or Wounded in Iran**\
@@ -114,8 +114,8 @@ https://www.nytimes.com/2026/07/23/climate/data-centers-pritzker.html
 `La clientela de cadenas de restaurantes como Chipotle y Chopt ha caído desde que comenzaron los avisos sobre infecciones por “Cyclospora” relacionadas con la lechuga en EE. UU.`\
 https://www.nytimes.com/es/2026/07/23/espanol/negocios/cyclospora-brote-lechuga-restaurantes.html
 
-**What’s in a Name? Depends Where You Are.**\
-`Place names change with time, depending on how the locals understand them.`\
+**Place Names Change With Time, and That’s OK**\
+`What’s in a name? Depends where you are.`\
 https://www.nytimes.com/2026/07/23/opinion/place-names-pronunciation-language.html
 
 **Three Excellent Restaurants from Fine-Dining Dropouts**\

@@ -1,4 +1,8 @@
 **Two People Stabbed Near Central Park in New York City, Police Say**\
+`The police arrested a man after the daylight attacks on the Upper West Side. It was not immediately clear what led to the stabbings, but the Police Department was investigating whether they were hate crimes.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
+
+**Two People Stabbed Near Central Park in New York City, Police Say**\
 `The police arrested a man after the daylight attacks on the Upper West Side. It was not immediately clear what led to the stabbings in the affluent Manhattan neighborhood.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
 
