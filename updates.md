@@ -1,3 +1,15 @@
+**Secret Service Agent in JD Vance’s Detail Under Investigation**\
+`The Secret Service said that a member of Vice President JD Vance’s team was accused of “compromising operational and information security.”`\
+https://www.nytimes.com/2026/07/23/us/politics/vance-secret-service.html
+
+**Estos son los mejores y peores hábitos para tu hígado**\
+`Las enfermedades hepáticas están en aumento en todo el mundo. Tu dieta, tu rutina de ejercicios y otras afecciones médicas pueden afectar tu riesgo.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/higado-mejores-peores-habitos.html
+
+**Trump’s Tariff Runaround Defies the Courts and Common Sense**\
+`The administration will keep trying to run around rulings against import fees.`\
+https://www.nytimes.com/2026/07/23/opinion/trump-tariffs-import-economy.html
+
 **Chaos Breaks Out at Border Crossings in Iraq**\
 `Videos verified by The New York Times show border crossings in southern Iraq becoming the latest target in the hostilities in the Middle East.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/iraq-border-crossings-struck.html
