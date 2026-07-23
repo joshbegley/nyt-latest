@@ -1,3 +1,15 @@
+**Los Angeles Homeless Population Grows Again, After 2 Years of Decline**\
+`Los Angeles had an increase in homeless residents between early 2025 and early 2026. The rise could hurt Mayor Karen Bass as she runs for re-election.`\
+https://www.nytimes.com/2026/07/23/us/los-angeles-homeless-increase.html
+
+**Two Men Stabbed on Upper West Side in Possible Hate Crimes**\
+`A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
+
+**Place Names Change With Time, and That’s OK**\
+`What’s in a name? Depends where you are.`\
+https://www.nytimes.com/2026/07/23/opinion/place-names-pronunciation-language.html
+
 **Two People Stabbed Near Central Park in New York City, Police Say**\
 `The police arrested a man after the daylight attacks on the Upper West Side. It was not immediately clear what led to the stabbings, but the Police Department was investigating whether they were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
