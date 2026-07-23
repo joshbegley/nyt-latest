@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Ryan Gosling. MrBeast. And celibacy.`\
+https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
+
 **Fair Housing Groups Sue HUD Over Funding Changes**\
 `A shift in grant requirements would curtail fair housing investigations, according to a new lawsuit.`\
 https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/23/realestate/astoria-queens-home-sa
 **Iran, China, Canada? A Defense of Trump’s Grand Strategy**\
 `A Pentagon official argues that “people can no longer take the United States for granted.”`\
 https://www.nytimes.com/2026/07/23/opinion/us-defense-geopolitics-elbridge-colby.html
-
-**A Peptide Showdown: F.D.A. Scientists May Clash With R.F.K.’s Agenda**\
-`Agency scientists are advising against allowing widespread use of several peptide injections. Robert F. Kennedy Jr., the health secretary, has said people should be free to experiment.`\
-https://www.nytimes.com/2026/07/23/health/fda-scientists-rfk-peptides.html
 
