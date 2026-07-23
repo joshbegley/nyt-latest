@@ -1,3 +1,15 @@
+**Repairing Storm Damage Is Expensive. It’s Only Going to Get Worse.**\
+`A report from a group called Rebuild by Design estimates that New York will have to spend more than half a trillion dollars to repair the effects of climate change in the next 24 years.`\
+https://www.nytimes.com/2026/07/23/nyregion/new-york-storm-damage-repair-cost-climate-change.html
+
+**N.Y.C. Schools Miss Out on $431 Million in Medicaid Payouts, Audit Finds**\
+`The comptroller’s office said that the city’s Department of Education had lacked documentation or did not seek reimbursement for special education services.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-schools-medicaid-reimbursements.html
+
+**NYT Spelling Bee Answers for July 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/23/crosswords/spelling-bee-forum.html
+
 **El futuro de una ciudad fronteriza depende de las próximas medidas comerciales de Trump**\
 `Laredo, Texas, se ha convertido en el principal puerto de entrada de EE. UU. Las nuevas negociaciones podrían echar por tierra ese éxito.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/laredo-frontera-comercio-aranceles.html
