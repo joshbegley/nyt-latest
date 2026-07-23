@@ -1,3 +1,11 @@
+**Trump says Saudi Arabia must join the pact that normalizes relations with Israel.**\
+`The president’s new condition could create a roadblock to the Saudi nuclear deal his administration announced this week.`\
+https://www.nytimes.com/2026/07/23/us/politics/saudi-nuclear-deal-israel.html
+
+**Map: 5.0-Magnitude Earthquake Shakes the Texas Panhandle**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html
+
 **Map: 5.0-Magnitude Earthquake Shakes Texas Panhandle**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/23/us/quake-tracker-texas.html

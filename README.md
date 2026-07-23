@@ -1,3 +1,7 @@
+**Corrections: July 23, 2026**\
+`Corrections that appeared in print on Thursday, July 23, 2026.`\
+https://www.nytimes.com/2026/07/23/pageoneplus/corrections-july-23-2026.html
+
 **Trump says Saudi Arabia must join the pact that normalizes relations with Israel.**\
 `The president’s new condition could create a roadblock to the Saudi nuclear deal his administration announced this week.`\
 https://www.nytimes.com/2026/07/23/us/politics/saudi-nuclear-deal-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/arts/design/odyssey-nolan-art-met-museum-gett
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are an eight-bedroom in Northport, N.Y., and a four-bedroom in Kingwood, N.J.`\
 https://www.nytimes.com/2026/07/23/realestate/real-estate-market-near-nyc.html
-
-**Gen Z Fell Out of Love With Work. I Don’t Blame Them.**\
-`For Gen Z college graduates, the way millennials lived out their ambitions no longer makes sense.`\
-https://www.nytimes.com/2026/07/23/opinion/gen-z-ambition-millennials-career.html
 
