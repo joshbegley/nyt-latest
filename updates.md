@@ -1,3 +1,15 @@
+**Houthis Claim Strikes on 2 Saudi Oil Tankers in Red Sea**\
+`The Saudi authorities had yet to confirm the hits, which would be the first attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/houthis-saudi-oil-tankers-red-sea.html
+
+**Sony to Reopen Hollywood’s Famed Cinerama Dome**\
+`Sony Pictures Entertainment said on Wednesday that it would reopen the Cinerama Dome, a Hollywood landmark, in 2028 after a renovation.`\
+https://www.nytimes.com/video/business/100000011047242/cinerama-dome-hollywood-reopening-sony.html
+
+**Massachusetts House Passes Bill That Would Loosen Late-Term Abortion Rules**\
+`The bill would leave it to physicians to decide if an abortion is necessary after 24 weeks of pregnancy. Current law allows such abortions only under certain circumstances.`\
+https://www.nytimes.com/2026/07/22/us/massachusetts-late-term-abortion-rules.html
+
 **With Saudi Deal, Trump Loosens Nuclear Standards for One Close Ally**\
 `Nuclear experts say it throws fuel on the smoldering fire of atomic proliferation, creating a destabilizing situation that could raise the risk of nuclear war.`\
 https://www.nytimes.com/2026/07/22/us/politics/trump-saudi-nuclear-standards.html
