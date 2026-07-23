@@ -1,3 +1,7 @@
+**House Rebukes Trump on Iran in War Powers Vote as Senate Blocks Debate**\
+`For the second time, a few House Republicans joined Democrats to back a measure calling on the president to seek authorization for the war.`\
+https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.html
+
 **Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
 `As savvy as he could be volatile, he advised Nancy Pelosi and Dianne Feinstein, ran for mayor of San Francisco and bought The San Francisco Examiner.`\
 https://www.nytimes.com/2026/07/23/us/politics/clint-reilly-dead.html
