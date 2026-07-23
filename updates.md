@@ -1,3 +1,15 @@
+**Google Sets the Pace on Hefty A.I. Spending**\
+`The technology giant again raised its projections for investing in artificial intelligence. Many on Wall Street still worry about the eventual payoff.`\
+https://www.nytimes.com/2026/07/23/business/dealbook/google-ai-capex.html
+
+**U.S.-Saudi Deal Prompts Fears of a Global Nuclear Arms Race**\
+`In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
+https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
+
+**Amid Cyclospora Outbreak Tied to Lettuce, America Skips Salads**\
+`Foot traffic to chains such as Chopt and Chipotle fell in recent weeks after a recall from Taylor Farms and changing messages from the F.D.A.`\
+https://www.nytimes.com/2026/07/23/business/cyclospora-lettuce-salad.html
+
 **‘Trainspotting: The Musical’: When the Lust for Life Is Gone**\
 `If the 1996 cult classic film was a high for a generation of moviegoers, a new London stage production feels like the comedown.`\
 https://www.nytimes.com/2026/07/23/arts/trainspotting-the-musical-review.html

@@ -1,3 +1,7 @@
+**Google Sets the Pace on Hefty A.I. Spending**\
+`The technology giant again raised its projections for investing in artificial intelligence. Many on Wall Street still worry about the eventual payoff.`\
+https://www.nytimes.com/2026/07/23/business/dealbook/google-ai-capex.html
+
 **‘Trainspotting: The Musical’: When the Lust for Life Is Gone**\
 `If the 1996 cult classic film was a high for a generation of moviegoers, a new London stage production feels like the comedown.`\
 https://www.nytimes.com/2026/07/23/arts/trainspotting-the-musical-review.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump
 `Kyiv is escalating its air war by striking commercial warehouses, trying to bring the conflict closer to home for ordinary Russians.`\
 https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attacks.html
 
-**U.S.-Saudi Deal Prompts Fears of a Nuclear Arms Race**\
+**U.S.-Saudi Deal Prompts Fears of a Global Nuclear Arms Race**\
 `In Europe, Asia and the Middle East, countries seek nuclear capabilities to hedge against aggressive neighbors and a receding Washington, potentially creating a more freewheeling era.`\
 https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html
 
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/07/23/opinion/us-defense-geopolitics-elbridge-colby
 `Agency scientists are advising against allowing widespread use of several peptide injections. Robert F. Kennedy Jr., the health secretary, has said people should be free to experiment.`\
 https://www.nytimes.com/2026/07/23/health/fda-scientists-rfk-peptides.html
 
-**As Cyclosporiasis Spreads, America Says No Thanks to Salads**\
+**Amid Cyclospora Outbreak Tied to Lettuce, America Skips Salads**\
 `Foot traffic to chains such as Chopt and Chipotle fell in recent weeks after a recall from Taylor Farms and changing messages from the F.D.A.`\
 https://www.nytimes.com/2026/07/23/business/cyclospora-lettuce-salad.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/motor-city-review.html
 **‘The Dink’ Review: A Volley and a Flub**\
 `Jake Johnson and Mary Steenburgen star in a tennis versus pickleball comedy that never quite makes it over the net.`\
 https://www.nytimes.com/2026/07/23/movies/the-dink-review.html
-
-**The Devotion of Willow Smith**\
-`The daughter of a Hollywood power couple, she has gone above and beyond to prove herself. Virtuosity and spiritual aspirations fill her latest, “The Thread.”`\
-https://www.nytimes.com/2026/07/23/arts/music/willow-smith-interview.html
 
