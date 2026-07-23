@@ -1,3 +1,7 @@
+**Amish Shah Wins Democratic Primary in Swing Arizona House District**\
+`Dr. Amish Shah, who beat the choice of the party’s House campaign arm, will face Jay Feely, a Republican, in a battleground district that covers parts of Phoenix.`\
+https://www.nytimes.com/2026/07/22/us/politics/amish-shah-arizona-house-democrats.html
+
 **Republican Lawmaker Urges Charges Against Jack Smith**\
 `The criminal referral could provide a catalyst for a prosecution of Mr. Smith, who as special counsel became a top target of the president’s retribution campaign.`\
 https://www.nytimes.com/2026/07/22/us/politics/jack-smith-jim-jordan-charges.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/22/opinion/climate-wildfires-smoke-adaptation.ht
 **The Sex Recession Started With Millennials**\
 `The story of America’s sex recession doesn’t begin with Gen Z. Carter Sherman argues that millennials were already having less sex than previous generations — changing how we should think about what’s happening today.`\
 https://www.nytimes.com/video/opinion/100000011035171/the-sex-recession-started-with-millennials.html
-
-**The Rise of Loneliness Influencers**\
-`“You don’t have to get married or be in a relationship to make a life for yourself,” Christine Emba says on “The Opinions,” arguing that the rise of loneliness influencers reflects a broader shift: Women no longer need relationships for economic or social survival.`\
-https://www.nytimes.com/video/opinion/100000011046629/the-rise-of-loneliness-influencers.html
 
