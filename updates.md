@@ -1,3 +1,11 @@
+**Mamdani’s Video Message About Netanyahu**\
+`Reader’s react to the New York mayor’s video criticizing the Israeli prime minister. Also: A.I. jobs for philosophers; a battle in the health care industry; fast walkers; pregnant bellies.`\
+https://www.nytimes.com/2026/07/23/opinion/mamdani-netanyahu-video.html
+
+**House Again Rebukes Trump on Iran War Powers Vote**\
+`For the second time, a few House Republicans joined Democrats to back a measure calling on the president to seek authorization for the war.`\
+https://www.nytimes.com/2026/07/23/us/politics/house-iran-war-powers-vote-trump.html
+
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/23/books/review/new-recommended-books.html
