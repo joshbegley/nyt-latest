@@ -1,3 +1,7 @@
+**Trump prepara una nueva estrategia para reactivar los aranceles globales**\
+`Los aranceles generales del 10 por ciento impuestos por el gobierno de EE. UU. están por expirar a la medianoche, pero otro lote arancelario podría tomar su lugar.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-globales.html
+
 **Rupert Murdoch Biopic Is Among Premieres at Venice Film Festival**\
 `The directors Danny Boyle, Martin McDonagh, Werner Herzog and Casey Affleck will present new movies at the festival.`\
 https://www.nytimes.com/2026/07/23/movies/venice-film-festival-lineup.html
