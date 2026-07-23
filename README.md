@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/07/23/briefing/today-in-short.html
 https://www.nytimes.com/2026/07/23/realestate/fair-housing-lawsuit-funding-hud.html
 
 **Israel Welcomes Trump’s Demand for Diplomatic Ties With Saudi Arabia**\
-`Israeli officials greeted the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel.`\
+`Israeli officials embraced the possibility of normalized ties, but analysts said the U.S.-Saudi nuclear deal nonetheless remained bad for Israel.`\
 https://www.nytimes.com/2026/07/23/us/politics/israel-saudi-arabia-us-nuclear-deal.html
 
 **Protests in Wisconsin After Man Fatally Shot by Police**\
