@@ -1,3 +1,39 @@
+**‘The Odyssey’ Hired Their Viking Ship. They Say It Came Back Damaged.**\
+`A Swedish Viking center said its vessel was used in the filming of Christopher Nolan’s epic but needed repairs when it was returned. Now, the center is seeking compensation.`\
+https://www.nytimes.com/2026/07/23/movies/the-odyssey-viking-ship-sweden.html
+
+**Four Young Mathematicians Receive Prestigious Fields Medals**\
+`The awards are bestowed only once every four years to mathematicians under the age of 40.`\
+https://www.nytimes.com/2026/07/23/science/fields-medals-pardon-deng-wang-tsimerman.html
+
+**Even as War Rages, Investors Bet Oil Will Be Cheaper in a Few Months**\
+`Futures contracts reflect an expectation that low inventories and midterm elections are likely to push the Trump administration to try to ease tensions with Iran.`\
+https://www.nytimes.com/2026/07/23/business/iran-war-oil-prices.html
+
+**F.D.A. Announces New Cyclosporiasis Outbreak With 72 Cases**\
+`Health officials did not identify the location of the outbreak, or what they believed was causing it.`\
+https://www.nytimes.com/2026/07/23/well/eat/new-cyclosporiasis-outbreak-fda.html
+
+**John Pardon Untangles the Theoretical Loops**\
+`The mathematics professor has won a prestigious Fields Medal for his work at the intersection of geometry, topology and physics.`\
+https://www.nytimes.com/2026/07/23/science/john-pardon-fields-medal.html
+
+**Jacob Tsimerman Lives in Number Theory**\
+`Dr. Tsimerman won one of four Fields Medals, an award for top mathematicians under 40, for his work on the André-Oort conjecture, but is now changing his focus to artificial intelligence.`\
+https://www.nytimes.com/2026/07/23/science/jacob-tsimerman-fields-medal.html
+
+**Yu Deng Predicts the Actions of the Whole From Its Tiniest Parts**\
+`Dr. Deng, a mathematics professor at the University of Chicago, received a Fields Medal for his work on an equation describing fluid mechanics.`\
+https://www.nytimes.com/2026/07/23/science/yu-deng-fields-medal.html
+
+**Hong Wang Twirls in Fractal Dimensions of Three**\
+`The young mathematician won a prestigious Fields Medal for her work on the so-called Kakeya conjecture.`\
+https://www.nytimes.com/2026/07/23/science/hong-wang-fields-medal.html
+
+**As Part of Nuclear Deal, Trump Demands Saudi Arabia Join the Abraham Accords**\
+`The president’s new condition could create a roadblock to the agreement his administration announced this week.`\
+https://www.nytimes.com/2026/07/23/us/politics/saudi-nuclear-deal-israel.html
+
 **Orcas Filmed Pulverizing Their Prey**\
 `Marine biologists in Mexico captured video of a brutal way orcas hunt sunfish: With an unusual maneuver, the killer whales pulverize the giants.`\
 https://www.nytimes.com/video/world/americas/100000011048541/orca-whale-sunfish-ramming.html
