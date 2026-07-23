@@ -1,3 +1,23 @@
+**Quote of the Day: From Skeptical to Smitten: An American Evolution**\
+`Quotation of the Day for Thursday, July 23, 2026.`\
+https://www.nytimes.com/2026/07/23/pageoneplus/quote-of-the-day-from-skeptical-to-smitten-an-american-evolution.html
+
+**Diesel Crisis Puts Poor Farmers Around the World at Risk**\
+`The closure of the Strait of Hormuz has limited the shipment of diesel, depriving farmers of fuel for irrigation pumps and threatening the food supply.`\
+https://www.nytimes.com/2026/07/23/business/bangladesh-farmers-diesel-water-iran.html
+
+**U.S. Military Presence in Jordan Makes It Iranian Target**\
+`Relying heavily on U.S. aid and protection, Jordan is unlikely to restrict the American military presence there, despite escalating Iranian airstrikes.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/jordan-iran-us-forces.html
+
+**Japan’s Leader Invokes Her Hero, Shinzo Abe, to Drive Nationalist Agenda**\
+`Prime Minister Sanae Takaichi is leveraging her ties to Mr. Abe, the slain Japanese leader, as she pushes to reshape defense and the economy.`\
+https://www.nytimes.com/2026/07/23/world/asia/japan-sanae-takaichi-shinzo-abe.html
+
+**How to Eat a 2,000-Pound Fish? These Orcas Choose to Pulverize It.**\
+`Marine biologists in Mexico captured video of a strange maneuver that killer whales used to shred their meal.`\
+https://www.nytimes.com/2026/07/23/science/orcas-sunfish-ramming.html
+
 **Houthis Claim Strikes on 2 Saudi Oil Tankers in Red Sea**\
 `The Saudi authorities confirmed a strike on one of the ships. These are the first claimed attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
 https://www.nytimes.com/2026/07/22/world/middleeast/houthis-saudi-oil-tankers-red-sea.html

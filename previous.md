@@ -1,3 +1,23 @@
+**Quote of the Day: From Skeptical to Smitten: An American Evolution**\
+`Quotation of the Day for Thursday, July 23, 2026.`\
+https://www.nytimes.com/2026/07/23/pageoneplus/quote-of-the-day-from-skeptical-to-smitten-an-american-evolution.html
+
+**Diesel Crisis Puts Poor Farmers Around the World at Risk**\
+`The closure of the Strait of Hormuz has limited the shipment of diesel, depriving farmers of fuel for irrigation pumps and threatening the food supply.`\
+https://www.nytimes.com/2026/07/23/business/bangladesh-farmers-diesel-water-iran.html
+
+**U.S. Military Presence in Jordan Makes It Iranian Target**\
+`Relying heavily on U.S. aid and protection, Jordan is unlikely to restrict the American military presence there, despite escalating Iranian airstrikes.`\
+https://www.nytimes.com/2026/07/23/world/middleeast/jordan-iran-us-forces.html
+
+**Japan’s Leader Invokes Her Hero, Shinzo Abe, to Drive Nationalist Agenda**\
+`Prime Minister Sanae Takaichi is leveraging her ties to Mr. Abe, the slain Japanese leader, as she pushes to reshape defense and the economy.`\
+https://www.nytimes.com/2026/07/23/world/asia/japan-sanae-takaichi-shinzo-abe.html
+
+**How to Eat a 2,000-Pound Fish? These Orcas Choose to Pulverize It.**\
+`Marine biologists in Mexico captured video of a strange maneuver that killer whales used to shred their meal.`\
+https://www.nytimes.com/2026/07/23/science/orcas-sunfish-ramming.html
+
 **Former Head of All-Girls School Indicted, Accused of Ignoring Abuse Reports**\
 `Jean Norris, who ran Miss Hall’s School in Massachusetts, was charged with reckless endangerment of a child. A former teacher under her tenure faces three rape charges.`\
 https://www.nytimes.com/2026/07/22/us/head-of-miss-halls-school-indicted.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011047123/france-louvre-reopeni
 **Tesla Profit Falls Even as Car Sales Rebound**\
 `The company is selling more cars, but the company’s profit was down because of price cuts and higher expenses.`\
 https://www.nytimes.com/2026/07/22/business/tesla-earnings-elon-musk.html
-
-**A Soldier’s Death Overseas Stuns a Neighborhood in Queens**\
-`Sgt. Angel Rampersad, 28, is believed to have been killed in an Iranian attack on Jordan last week. In Ozone Park, where her family lived, neighbors mourned and remembered her.`\
-https://www.nytimes.com/2026/07/22/nyregion/iran-war-angel-rampersad.html
-
-**What Were the Lotus-Eaters Eating in Homer’s ‘Odyssey’?**\
-`In Homer’s epic, Odysseus’s men eat something so powerful that they forget about home. Which plants could have produced such a soporific, narcotic and amnesiac effect?`\
-https://www.nytimes.com/2026/07/22/science/odyssey-lotus-eaters-opium.html
-
-**The Good List: 6 Things to Bring Joy and Delight to Your Day**\
-`Forgetting yourself, listening to forests and The Most ‘Wuthering Heights’ Day Ever.`\
-https://www.nytimes.com/2026/07/22/briefing/22-the-good-list-gellhorn-kate-bush.html
-
-**Dubai Firm Cuts Deal for New Port to Bypass Strait of Hormuz**\
-`A Dubai-based logistics giant unveiled a deal on Wednesday to develop shipping terminals on the United Arab Emirates’ east coast.`\
-https://www.nytimes.com/2026/07/22/world/dubai-cuts-deal-for-new-port-to-bypass-strait-of-hormuz.html
-
-**Nothing Can Prevent the New Wildfires. We Have to Adapt.**\
-`Suppression is not enough.`\
-https://www.nytimes.com/2026/07/22/opinion/climate-wildfires-smoke-adaptation.html
 
