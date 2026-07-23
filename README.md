@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/07/22/arts/music/sparky-d-dead.html
 `Also, Trump threatens to retaliate against civilian targets in Iran.`\
 https://www.nytimes.com/2026/07/22/briefing/the-us-signs-a-nuclear-pact-with-saudi-arabia.html
 
-**Jason Alexander Apologizes for to Courtney Stodden for 2012 Comedy Sketch**\
+**Jason Alexander Apologizes for 2012 Sketch With Teenage Courtney Stodden**\
 `Alexander rubs a phone against the actress’s breasts in the Funny or Die comedy sketch, which was published when she was 17.`\
 https://www.nytimes.com/2026/07/22/arts/television/jason-alexander-apology-courtney-stodden.html
 
