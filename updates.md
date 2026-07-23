@@ -1,3 +1,7 @@
+**‘Trainspotting: The Musical’: When the Lust for Life Is Gone**\
+`If the 1996 cult classic film was a high for a generation of moviegoers, a new London stage production feels like the comedown.`\
+https://www.nytimes.com/2026/07/23/arts/trainspotting-the-musical-review.html
+
 **Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
 `The price of Brent crude rose to almost $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. Overnight, the U.S. and Iran showed no letup in their fighting.`\
 https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump

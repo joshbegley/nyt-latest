@@ -1,3 +1,7 @@
+**‘Trainspotting: The Musical’: When the Lust for Life Is Gone**\
+`If the 1996 cult classic film was a high for a generation of moviegoers, a new London stage production feels like the comedown.`\
+https://www.nytimes.com/2026/07/23/arts/trainspotting-the-musical-review.html
+
 **Photographic Evidence**\
 `We look at how The Times uses photographs and video to better understand what’s happening in the war with Iran.`\
 https://www.nytimes.com/2026/07/23/briefing/photographic-evidence-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/the-dink-review.html
 **The Devotion of Willow Smith**\
 `The daughter of a Hollywood power couple, she has gone above and beyond to prove herself. Virtuosity and spiritual aspirations fill her latest, “The Thread.”`\
 https://www.nytimes.com/2026/07/23/arts/music/willow-smith-interview.html
-
-**China’s A.I. Has a Winning Formula. America, Don’t Panic.**\
-`Open-weight models have been the underlying strength of Chinese artificial intelligence strategy. America should take cues.`\
-https://www.nytimes.com/2026/07/23/opinion/china-ai-open-weight-us.html
 
