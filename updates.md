@@ -1,3 +1,11 @@
+**For South Korea, U.S.-Saudi Nuclear Deal Exposes a Double Standard**\
+`President Trump has put Saudi Arabia on the path to enriching uranium on its own soil, a demand South Korea has been making for years.`\
+https://www.nytimes.com/2026/07/23/world/asia/us-saudi-nuclear-deal-south-korea.html
+
+**Gen Z Fell Out of Love With Work. I Don’t Blame Them.**\
+`For Gen Z college graduates, the way millennials lived out their ambitions no longer makes sense.`\
+https://www.nytimes.com/2026/07/23/opinion/gen-z-ambition-millennials-career.html
+
 **Iran War Live Updates: Oil Prices Surge After Attacks in Red Sea**\
 `The price of Brent crude rose to more than $99 a barrel after Iran’s Houthi allies in Yemen claimed strikes on two Saudi tankers. President Trump warned that the U.S. would hold Iran directly responsible for further attacks by the group.`\
 https://www.nytimes.com/live/2026/07/23/world/iran-war-strikes-oil-trump

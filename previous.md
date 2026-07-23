@@ -1,3 +1,7 @@
+**For South Korea, U.S.-Saudi Nuclear Deal Exposes a Double Standard**\
+`President Trump has put Saudi Arabia on the path to enriching uranium on its own soil, a demand South Korea has been making for years.`\
+https://www.nytimes.com/2026/07/23/world/asia/us-saudi-nuclear-deal-south-korea.html
+
 **Man Fatally Shot by Police in Wisconsin’s Capital, Stirring Protests**\
 `The officer who fired was injured with a knife while attempting an arrest, the Madison police chief said. Footage of the shooting circulated widely online.`\
 https://www.nytimes.com/2026/07/23/us/madison-wisconsin-police-shooting-protests.html
@@ -170,7 +174,7 @@ https://www.nytimes.com/2026/07/23/arts/design/odyssey-nolan-art-met-museum-gett
 `This week’s properties are an eight-bedroom in Northport, N.Y., and a four-bedroom in Kingwood, N.J.`\
 https://www.nytimes.com/2026/07/23/realestate/real-estate-market-near-nyc.html
 
-**Gen Z Has Lost Its Ambition. Maybe It’s Found Something Better.**\
+**Gen Z Fell Out of Love With Work. I Don’t Blame Them.**\
 `For Gen Z college graduates, the way millennials lived out their ambitions no longer makes sense.`\
 https://www.nytimes.com/2026/07/23/opinion/gen-z-ambition-millennials-career.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/rosebush-pruning-review.html
 **‘Sheep in the Box’ Review: Haunted by His Absence**\
 `The latest from the Japanese director Hirokazu Kore-eda follows a couple who bring home an artificial replacement of their son.`\
 https://www.nytimes.com/2026/07/23/movies/sheep-in-the-box-review.html
-
-**‘Her Private Hell’ Review: Lock Up Your Daughters**\
-`Nicolas Winding Refn returns with a ponderous, neon-soaked fairy tale about disturbed fathers and their endangered offspring.`\
-https://www.nytimes.com/2026/07/23/movies/her-private-hell-review.html
 
