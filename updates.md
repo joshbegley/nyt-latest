@@ -1,3 +1,7 @@
+**Houthis Claim Strikes on 2 Saudi Oil Tankers in Red Sea**\
+`The Saudi authorities confirmed a strike on one of the ships. These are the first claimed attacks since the Iranian-backed Yemeni group announced a blockade on Saudi Arabia.`\
+https://www.nytimes.com/2026/07/22/world/middleeast/houthis-saudi-oil-tankers-red-sea.html
+
 **Former Head of All-Girls School Indicted, Accused of Ignoring Abuse Reports**\
 `Jean Norris, who ran Miss Hall’s School in Massachusetts, was charged with reckless endangerment of a child. A former teacher under her tenure faces three rape charges.`\
 https://www.nytimes.com/2026/07/22/us/head-of-miss-halls-school-indicted.html
