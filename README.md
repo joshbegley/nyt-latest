@@ -1,3 +1,7 @@
+**Mamdani’s Video Message About Netanyahu**\
+`Reader’s react to the New York mayor’s video criticizing the Israeli prime minister. Also: A.I. jobs for philosophers; a battle in the health care industry; fast walkers; pregnant bellies.`\
+https://www.nytimes.com/2026/07/23/opinion/mamdani-netanyahu-video.html
+
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/23/books/review/new-recommended-books.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/crosswords/connections-companion-1139.html
 **NYT Strands Hints for July 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
 https://www.nytimes.com/2026/07/23/crosswords/strands-sidekick-873.html
-
-**Today’s Wordle Hints for July 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 24, 2026.`\
-https://www.nytimes.com/2026/07/23/crosswords/wordle-review-1861.html
 
