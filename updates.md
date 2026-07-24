@@ -1,3 +1,11 @@
+**‘72 Hours’ Review: Kevin Hart Is Joining Your Bachelor Party**\
+`Hart plays an ad executive who tries to learn about the younger generation by tagging along to a bachelor party weekend. It proves a less than healthy move.`\
+https://www.nytimes.com/2026/07/23/movies/72-hours-review-kevin-hart-is-joining-your-bachelor-party.html
+
+**EE. UU. impondrá aranceles a más de 80 naciones**\
+`El gobierno de Trump anunció nuevos aranceles vinculados a las importaciones de bienes fabricados con trabajo forzado, el cual reemplazará un arancel global del 10 por ciento que expirará a la medianoche.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-globales.html
+
 **2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
 `A man was arrested after the daylight attacks in a neighborhood bordering Central Park in Manhattan. The police were investigating whether the stabbings were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
