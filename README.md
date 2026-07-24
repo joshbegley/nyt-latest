@@ -1,3 +1,7 @@
+**‘Suspicious’ House Fire in Michigan Kills 6 Children and 2 Adults**\
+`Arson investigators from the Michigan State Police were called to the scene of the fire in Grand Haven Township, near the eastern shore of Lake Michigan, on Friday.`\
+https://www.nytimes.com/2026/07/24/us/house-fire-michigan-grand-haven.html
+
 **Canadá inaugura un importante puente internacional sin invitar a EE. UU.**\
 `La apertura de la nueva conexión fronteriza entre Detroit y Windsor quedó marcada por las tensiones comerciales y políticas provocadas por el presidente Trump.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/canada-puente-estados-unidos-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/opinion/us-saudi-nuclear-deal.html
 **Who Is Ahead in Virginia's 2nd Congressional District?**\
 `Track the latest polls in Virginia's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
-
-**Five International Movies to Stream Now**\
-`This month’s titles include a Mexican comedy, a German magical-realist film, a queer Cuban drama and more.`\
-https://www.nytimes.com/2026/07/24/movies/international-movies-streaming.html
 
