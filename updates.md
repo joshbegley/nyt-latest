@@ -1,3 +1,7 @@
+**Cornell, Northwestern and Other Universities Plan for Classes at Middle East Campuses**\
+`Even after the collapse of the cease-fire between the United States and Iran, American universities expect to teach in Qatar and the United Arab Emirates, and a new outpost is on track to open in Saudi Arabia.`\
+https://www.nytimes.com/2026/07/24/us/middle-east-campuses-american-universities.html
+
 **Iran’s New Leader Is More Open to Pursuing a Nuclear Weapon, U.S. Intelligence Says**\
 `The previous supreme leader, who was killed early in the war, had renounced nuclear weapons. U.S. spy agencies believe his son is more interested in building a bomb.`\
 https://www.nytimes.com/2026/07/24/us/politics/iran-nuclear-weapon.html
