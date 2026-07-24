@@ -1,3 +1,7 @@
+**What Will It Take to Make a U.S.-Saudi Arabia Nuclear Deal Happen?**\
+`David E. Sanger, a national security correspondent for The New York Times, explains what the nuclear agreement between the U.S. and Saudi Arabia is designed to do, and what challenges it may face to go in to effect.`\
+https://www.nytimes.com/video/us/100000011046264/what-will-it-take-to-make-a-us-saudi-arabia-nuclear-deal-happen.html
+
 **NYT Crossword Answers for July 24, 2026**\
 `Geoffrey Schorkopf opens our solving weekend.`\
 https://www.nytimes.com/2026/07/23/crosswords/daily-puzzle-2026-07-24.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-
 **Key Republican Senator Says He Will Support Erica Schwartz for C.D.C. Director**\
 `Senator Bill Cassidy, who is believed to hold the deciding vote in the Senate health committee for Dr. Erica Schwartz’s confirmation, had declined for days to say whether he would back her.`\
 https://www.nytimes.com/2026/07/23/health/erica-schwartz-cdc-vote.html
-
-**EE. UU. impondrá aranceles a más de 80 naciones**\
-`El gobierno de Trump anunció nuevos aranceles vinculados a las importaciones de bienes fabricados con trabajo forzado, el cual reemplazará un arancel global del 10 por ciento que expirará a la medianoche.`\
-https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-globales.html
 

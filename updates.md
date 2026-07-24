@@ -1,3 +1,7 @@
+**What Will It Take to Make a U.S.-Saudi Arabia Nuclear Deal Happen?**\
+`David E. Sanger, a national security correspondent for The New York Times, explains what the nuclear agreement between the U.S. and Saudi Arabia is designed to do, and what challenges it may face to go in to effect.`\
+https://www.nytimes.com/video/us/100000011046264/what-will-it-take-to-make-a-us-saudi-arabia-nuclear-deal-happen.html
+
 **NYT Crossword Answers for July 24, 2026**\
 `Geoffrey Schorkopf opens our solving weekend.`\
 https://www.nytimes.com/2026/07/23/crosswords/daily-puzzle-2026-07-24.html
