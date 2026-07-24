@@ -1,3 +1,11 @@
+**The Loafer That Thinks It’s a Scrunchie**\
+`The “shoe trend of the era.” Plus: a new designer at Kate Spade, a “Guac” hoodie and the Polo Bar’s possible move.`\
+https://www.nytimes.com/2026/07/24/style/loafer-ruched.html
+
+**Concerns About the U.S.-Saudi Nuclear Deal**\
+`Readers fear the deal could lead to the development of nuclear weapons and lessen prospects for peace. Also: The Strait of Hormuz; the four-day workweek.`\
+https://www.nytimes.com/2026/07/24/opinion/us-saudi-nuclear-deal.html
+
 **Who Is Ahead in Virginia's 2nd Congressional District?**\
 `Track the latest polls in Virginia's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/24/podcasts/the-headlines/trump-new-tariffs-popc
 **NYT Connections Answers for July 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
 https://www.nytimes.com/2026/07/24/crosswords/connections-companion-1140.html
-
-**NYT Strands Hints for July 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
-https://www.nytimes.com/2026/07/24/crosswords/strands-sidekick-874.html
-
-**Today’s Wordle Hints for July 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
-https://www.nytimes.com/2026/07/24/crosswords/wordle-review-1862.html
 
