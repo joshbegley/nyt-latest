@@ -1,3 +1,7 @@
+**Life of Alan Turing Emerges in Richer Detail From Short Story**\
+`A Cambridge professor has transcribed a handwritten story that the famous mathematician wrote in the year before his death, presenting a different side of him.`\
+https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridge.html
+
 **Chris Brown Pleads Guilty to Affray Charge in London Nightclub Assault Case**\
 `The R&B star pleaded guilty to a charge of affray after being accused of attacking a producer in 2023. He is set to be sentenced in October.`\
 https://www.nytimes.com/2026/07/24/arts/music/chris-brown-guilty-affray-london.html
