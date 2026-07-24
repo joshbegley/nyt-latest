@@ -1,3 +1,7 @@
+**Los ganadores y perdedores económicos del Mundial**\
+`Tras la promesa de que el Mundial tendría un impacto económico global de 80 millardos de dólares comparable a 104 Super Bowls, la pregunta que queda es: ¿se materializó esa bonanza turística y económica?`\
+https://www.nytimes.com/es/2026/07/24/espanol/deportes/mundial-turismo-eeuu-mexico-canada.html
+
 **Raging Wildfires Across Europe Prompt Thousands to Evacuate**\
 `Tens of thousands of people across Spain, France, and Italy have been forced to evacuate their homes as wildfires tear through Europe.`\
 https://www.nytimes.com/video/world/europe/100000011050860/france-spain-italy-europe-wildfires.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/podcasts/best-books-so-far.html
 **Is the Amaury Family, Owners of the Tour de France, Hurting Cycling?**\
 `The Amaurys of Paris own the race, but won’t share any of the $170 million in media revenue. Sponsors and riders say their resistance is dooming the sport.`\
 https://www.nytimes.com/2026/07/24/business/tour-de-france-amaury-aso.html
-
-**‘We’re Trapped in Hell’: Iranians Say Life Is Put On Hold by Months of War**\
-`Devastated by cycles of violence and economic crisis, many are giving up on work and their futures as the United States batters Iran again.`\
-https://www.nytimes.com/2026/07/24/world/middleeast/iran-war-cycle.html
 
