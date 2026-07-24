@@ -1,3 +1,7 @@
+**India’s Student Protesters Win Some Concessions from Government**\
+`Representatives of Prime Minister Narendra Modi agreed to compensate families affected by a major exam leak, as protesters keep pressing for India’s education minister to resign.`\
+https://www.nytimes.com/2026/07/24/world/asia/india-genz-student-movement-cockroach-janta-party.html
+
 **Baked Croissant French Toast With Blueberries**\
 `Simple to prepare but worthy of a celebration, this French toast starts with a base of buttery croissants and is studded with juicy blueberries.`\
 https://www.nytimes.com/video/dining/100000011051121/baked-croissant-french-toast-with-blueberries.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/07/24/business/trump-tariffs-small-businesses-lawsu
 https://www.nytimes.com/2026/07/24/us/politics/trump-tariffs-russia-sanctions.html
 
 **Former ‘60 Minutes’ Reporter Cecilia Vega Details Claims of Meddling**\
-`Cecilia Vega described what she said was pressure from executives to insert bias into several segments that aired earlier this year.`\
+`Cecilia Vega described what she said was pressure from executives to insert bias into several segments that aired this year.`\
 https://www.nytimes.com/2026/07/24/business/media/cecilia-vega-60-minutes.html
 
 **Para los iraníes, la guerra vuelve a paralizar sus vidas**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
 **6 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
 `The authorities said four Palestinians and two Israelis were killed in the incident. The details remain unclear, with officials giving differing accounts.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
-
-**A Big Day for Math**\
-`Yesterday was a big day for mathematics. We look at the winners of the Fields Medals.`\
-https://www.nytimes.com/2026/07/24/briefing/a-big-day-for-math.html
 

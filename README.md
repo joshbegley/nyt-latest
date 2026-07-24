@@ -1,3 +1,11 @@
+**Democrats Vote to Put South Carolina First in 2028 Primary**\
+`The state, along with several others still being chosen, appears set to play an important role in determining the party’s next presidential nominee.`\
+https://www.nytimes.com/2026/07/24/us/politics/democrats-south-carolina-nevada-2028-presidential-race.html
+
+**Trump Administration Admits Canceling Grants to States That Did Not Vote for Him**\
+`Federal officials said in court documents that they halted billions of dollars in funding for energy projects to states “based solely” on whether they backed President Trump in the 2024 election.`\
+https://www.nytimes.com/2026/07/24/business/trump-state-grants-canceled.html
+
 **India’s Student Protesters Win Some Concessions from Government**\
 `Representatives of Prime Minister Narendra Modi agreed to compensate families affected by a major exam leak, as protesters keep pressing for India’s education minister to resign.`\
 https://www.nytimes.com/2026/07/24/world/asia/india-genz-student-movement-cockroach-janta-party.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/24/business/dealbook/trump-trade-war-economy.htm
 **Bangladesh’s President Resigns Amid Uncertainty Over Ex-Leader’s Plans**\
 `President Mohammed Shahabuddin stepped down as speculation swirled over the possible return of his onetime ally Sheikh Hasina, who was ousted as prime minister and fled to India.`\
 https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html
-
-**Russia and Ukraine Trade Deadly Blows With Missiles and Drones**\
-`Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated an air campaign.`\
-https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
-
-**6 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
-`The authorities said four Palestinians and two Israelis were killed in the incident. The details remain unclear, with officials giving differing accounts.`\
-https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
 
