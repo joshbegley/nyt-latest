@@ -1,6 +1,6 @@
 **‘72 Hours’ Review: Kevin Hart Is Joining Your Bachelor Party**\
 `Hart plays an ad executive who tries to learn about the younger generation by tagging along to a bachelor party weekend. It proves a less than healthy move.`\
-https://www.nytimes.com/2026/07/23/movies/72-hours-review-kevin-hart-is-joining-your-bachelor-party.html
+https://www.nytimes.com/2026/07/23/movies/72-hours-review-kevin-hart-netflix.html
 
 **Jackie, Bald Eagle and Webcam Star, Is Recovering After an Attack in California**\
 `Jackie found an online audience through a webcam pointed at her nest in California. She was rescued last week after a fight with other eagles, officials said.`\
@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty
 https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
 
 **2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
-`A man was arrested after the daylight attacks in a neighborhood bordering Central Park in Manhattan. The police were investigating whether the stabbings were hate crimes.`\
+`A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
 
 **Senators Ask Hegseth to Fully Account for U.S. Troops Killed or Wounded in Iran**\

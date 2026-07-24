@@ -1,5 +1,13 @@
 **‘72 Hours’ Review: Kevin Hart Is Joining Your Bachelor Party**\
 `Hart plays an ad executive who tries to learn about the younger generation by tagging along to a bachelor party weekend. It proves a less than healthy move.`\
+https://www.nytimes.com/2026/07/23/movies/72-hours-review-kevin-hart-netflix.html
+
+**2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
+`A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
+
+**‘72 Hours’ Review: Kevin Hart Is Joining Your Bachelor Party**\
+`Hart plays an ad executive who tries to learn about the younger generation by tagging along to a bachelor party weekend. It proves a less than healthy move.`\
 https://www.nytimes.com/2026/07/23/movies/72-hours-review-kevin-hart-is-joining-your-bachelor-party.html
 
 **EE. UU. impondrá aranceles a más de 80 naciones**\
