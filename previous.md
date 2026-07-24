@@ -1,3 +1,7 @@
+**With Hopes High for New H.I.V. Prevention Pill, Merck Takes Steps to Ensure Access**\
+`Companies in Africa and India will make generic versions of the pill that could cost as little as $5 per person per year. But access to the drug and other new products in much of Latin America remains uncertain.`\
+https://www.nytimes.com/2026/07/24/us/politics/merck-hiv-pill.html
+
 **‘The Headlines’ News Quiz: Jul. 24, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-headlines/the-headlines-news-quiz-jul-24-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/design/matthew-taylor-artist-filmmaker-t
 **How a Romare Bearden Masterpiece Inspired August Wilson**\
 `An August Wilson classic wouldn’t exist without a Romare Bearden masterpiece. Here’s how the two are intertwined.`\
 https://www.nytimes.com/2026/07/24/theater/romare-bearden-august-wilson-joe-turners-come-gone.html
-
-**Timeline: How a College Test Scandal Grew Into a Youth Movement in India**\
-`What began with an exam leak scandal in May has grown into a much wider campaign over government accountability. Here’s how the youth-led movement unfolded.`\
-https://www.nytimes.com/interactive/2026/07/24/world/asia/india-protest-cockroach-party-timeline.html
 
