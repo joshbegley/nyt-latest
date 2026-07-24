@@ -1,3 +1,7 @@
+**A Big Day for Math**\
+`Yesterday was a big day for mathematics. We look at the winners of the Fields Medals.`\
+https://www.nytimes.com/2026/07/24/briefing/a-big-day-for-math.html
+
 **5 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
 `The authorities said four Palestinians and an Israeli were killed in the incident. The details of events remain unclear, with officials offering differing accounts.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html

@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
 
 **A Big Day for Math**\
-`Yesterday was a big day for mathematics. We look at the winners of the Fields Medal.`\
+`Yesterday was a big day for mathematics. We look at the winners of the Fields Medals.`\
 https://www.nytimes.com/2026/07/24/briefing/a-big-day-for-math.html
 
 **Meta Launches New Facebook Marketplace App Called Seller**\
