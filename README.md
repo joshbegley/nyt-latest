@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juicy-and-flavorful-promise.html
 
-**Argentines Facing Surge of Hate After World Cup Loss Have Something to Say**\
+**Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
 `Many Argentines condemned their players’ racist chants and aggressive behavior, but rejected what felt like a sweeping stigmatization of their entire nation.`\
 https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
 
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/07/24/business/iran-war-tariffs-economy.html
 **How a Grieving Trump Decided to Back Lindsey Graham’s Sister for Senate**\
 `The president initially backed a little-known congressman. Then he talked to Gov. Henry McMaster and Ms. Graham herself.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-lindsey-graham-sister-darline-senate.html
-
-**As Canada Opens Gordie Howe International Bridge, Americans Are Told to Stay Home**\
-`After a delay ordered by President Trump and new tariffs against Canada, the bridge between Windsor, Ontario, and Detroit opens in “underwhelming” fashion on Friday.`\
-https://www.nytimes.com/2026/07/24/world/canada/canada-gordie-howe-bridge-trump.html
 

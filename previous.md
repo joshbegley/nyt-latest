@@ -1,3 +1,23 @@
+**Today, In Short**\
+`Travel influencers. Willow. And new tariffs.`\
+https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
+
+**Help! I Might Be a Tradwife!**\
+`I’m not the target audience for online content about frontier chores and child-rearing. But if I’m honest, domestic rituals help to keep me sane.`\
+https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
+
+**These Grilled Chicken Breasts Are Juicy and Flavorful — Promise**\
+`And more of the week’s most popular recipes.`\
+https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juicy-and-flavorful-promise.html
+
+**Argentines Facing Surge of Hate After World Cup Loss Have Something to Say**\
+`Many Argentines condemned their players’ racist chants and aggressive behavior, but rejected what felt like a sweeping stigmatization of their entire nation.`\
+https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
+
+**Measles Cases Hit New Record in U.S., as Vaccination Rates Wane**\
+`The Trump administration has sent mixed messages on vaccinations against measles as cases have continued to climb.`\
+https://www.nytimes.com/2026/07/24/well/measles-record-united-states-numbers.html
+
 **Los ganadores y perdedores económicos del Mundial**\
 `Tras la promesa de que el Mundial tendría un impacto económico global de 80 millardos de dólares comparable a 104 Super Bowls, la pregunta que queda es: ¿se materializó esa bonanza turística y económica?`\
 https://www.nytimes.com/es/2026/07/24/espanol/deportes/mundial-turismo-eeuu-mexico-canada.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/24/us/politics/trump-lindsey-graham-sister-darli
 **As Canada Opens Gordie Howe International Bridge, Americans Are Told to Stay Home**\
 `After a delay ordered by President Trump and new tariffs against Canada, the bridge between Windsor, Ontario, and Detroit opens in “underwhelming” fashion on Friday.`\
 https://www.nytimes.com/2026/07/24/world/canada/canada-gordie-howe-bridge-trump.html
-
-**I’m Native American. Land Acknowledgments Are Infuriating.**\
-`Conservatives who critique land acknowledgments aren’t acting in good faith, but they do have a point.`\
-https://www.nytimes.com/2026/07/24/opinion/native-american-land-acknowledgment.html
-
-**Nolan Wells’ Death Rattles Black Parents About All-White Spaces**\
-`The death of Nolan Wells after he boated with friends to an island party on July 4 has sparked anguish among Black parents about the safety of their children in predominantly white spaces.`\
-https://www.nytimes.com/2026/07/24/us/nolan-wells-black-parents-concerns.html
-
-**Democrats Prepare for Possible Election Clashes With Federal Government**\
-`Top officials overseeing state elections and law enforcement are stepping up plans to prepare for what they worry could be interference in the midterms.`\
-https://www.nytimes.com/2026/07/24/us/politics/democrats-trump-election-interference.html
-
-**Let’s Talk About the Best Books of the Year (So Far)**\
-`It’s time for our annual midyear check-in on the books that we can’t stop thinking about.`\
-https://www.nytimes.com/2026/07/24/podcasts/best-books-so-far.html
-
-**Is the Amaury Family, Owners of the Tour de France, Hurting Cycling?**\
-`The Amaurys of Paris own the race, but won’t share any of the $170 million in media revenue. Sponsors and riders say their resistance is dooming the sport.`\
-https://www.nytimes.com/2026/07/24/business/tour-de-france-amaury-aso.html
 
