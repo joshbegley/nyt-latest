@@ -1,3 +1,7 @@
+**Five International Movies to Stream Now**\
+`This month’s titles include a Mexican comedy, a German magical-realist film, a queer Cuban drama and more.`\
+https://www.nytimes.com/2026/07/24/movies/international-movies-streaming.html
+
 **C.D.C. Expands Cyclospora Outbreak Linked to Iceberg Lettuce to Nine States**\
 `Illinois, Kansas, Oklahoma and Pennsylvania now join Michigan, Ohio, Indiana, Kentucky and West Virginia in cyclospora outbreak linked to iceberg lettuce.`\
 https://www.nytimes.com/2026/07/24/well/eat/cyclospora-outbreak-states-cdc.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/07/24/dining/coca-cola-marlboro.html
 https://www.nytimes.com/2026/07/24/t-magazine/wet-hair-hairstyles-tyla.html
 
 **Wildfires in France and Spain Drive Tens of Thousands From Their Homes**\
-`French officials ordered the evacuation of the Cap Ferret peninsula, a popular holiday destination. Fires in the Madrid area were closing in on populated areas.`\
+`French officials ordered the evacuation of the Cap Ferret peninsula, a popular holiday destination. Fires west of Madrid were closing in on populated areas.`\
 https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
 
 **Francia mira a España para ayudarse a combatir el calor**\
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
 
 **Today, In Short**\
-`Travel influencers. Willow. And new tariffs.`\
+`Travel influencers. Willow Smith. And new tariffs.`\
 https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
 
 **Help! I Might Be a Tradwife!**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/crosswords/wordle-review-1862.html
 **South Korea A.I. Billionaire Ordered to Pay More Than Half a Billion Dollars in ‘Divorce of the Century’**\
 `A South Korean court awarded $644 million to Roh Soh-yeong, who had sought much more from her ex-husband, Chey Tae-won, the head of the conglomerate behind SK Hynix.`\
 https://www.nytimes.com/2026/07/24/world/asia/korea-chey-tae-won-sk-hynix-divorce.html
-
-**India’s Young Protesters Take Aim at Modi With Creative Signs**\
-`India’s young protesters are taking aim at Prime Minister Narendra Modi with creative signs and slogans across the country.`\
-https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-cjp-protest-signs.html
 
