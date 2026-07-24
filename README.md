@@ -1,3 +1,7 @@
+**Let’s Try This Again: A Do-Over Dinner for White House Correspondents**\
+`President Trump remains the evening’s keynote speaker, as relations between his administration and the press continue to deteriorate.`\
+https://www.nytimes.com/2026/07/24/business/media/white-house-correspondents-dinner.html
+
 **U.S. Measles Cases Hit a Record**\
 `Also, an Iranian threat prompted Trump’s Air Force One swap. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/07/24/briefing/us-measles-cases-hit-a-record.html
@@ -119,7 +123,7 @@ https://www.nytimes.com/2026/07/24/us/politics/trump-escalation-iran.html
 https://www.nytimes.com/es/2026/07/24/espanol/america-latina/argentina-mundial-criticas-racismo.html
 
 **Democrats Vote to Put South Carolina First in 2028 Primary**\
-`The state, along with several others still being chosen, appears set to play an important role in determining the party’s next presidential nominee.`\
+`Along with Nevada, New Hampshire, New Mexico, Michigan and Virginia, the state will help decide the party’s next presidential nominee.`\
 https://www.nytimes.com/2026/07/24/us/politics/democrats-south-carolina-nevada-2028-presidential-race.html
 
 **Trump Administration Admits Canceling Grants to States That Did Not Vote for Him**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/television/netflix-expiring-august.html
 **Coca-Cola’s New Branding Reminds People of Marlboro**\
 `After the soda company introduced a new brand design, some fans spotted similarities to the typeface used by the cigarette brand. Enter the font nerds.`\
 https://www.nytimes.com/2026/07/24/dining/coca-cola-marlboro.html
-
-**How to Get the Wet Hair Style, According to Tyla, Amber Valletta and Candice Birns**\
-`The musician Tyla, the model Amber Valletta and the hairstylist Candice Birns share their techniques.`\
-https://www.nytimes.com/2026/07/24/t-magazine/wet-hair-hairstyles-tyla.html
 

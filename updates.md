@@ -1,3 +1,7 @@
+**U.S. Measles Cases Hit a Record**\
+`Also, an Iranian threat prompted Trump’s Air Force One swap. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/07/24/briefing/us-measles-cases-hit-a-record.html
+
 **Trump’s Threatened New Front in Iran War Could Strain U.S. Forces**\
 `President Trump has said he would expand the war if the Iran-backed Houthi militants launched additional attacks.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-new-front-iran-war.html
