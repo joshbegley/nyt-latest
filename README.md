@@ -1,3 +1,7 @@
+**Charli XCX ‘Music, Fashion, Film’ Album Review**\
+`How does one follow a pop album that became a cultural juggernaut? On “Music, Fashion, Film,” Charli XCX embraces, and even glorifies, the slapdash.`\
+https://www.nytimes.com/2026/07/24/arts/music/charli-xcx-music-fashion-film.html
+
 **Trump Administration Signs Contract for Long-Term National Guard Housing in D.C.**\
 `The move was the latest sign that President Trump intends to keep armed Guard members deployed in the capital through the end of his term.`\
 https://www.nytimes.com/2026/07/24/us/politics/national-guard-troop-housing-dc-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor
 **Today, In Short**\
 `Travel influencers. Willow Smith. And new tariffs.`\
 https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
-
-**Help! I Might Be a Tradwife!**\
-`I’m not the target audience for online content about frontier chores and child rearing. But if I’m honest, domestic rituals help to keep me sane.`\
-https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
 
