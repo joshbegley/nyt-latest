@@ -1,3 +1,11 @@
+**China Has Come Through Trump’s Trade War in a Good Position**\
+`Despite threats from President Trump, the overall average weighted tariff on Chinese goods remained about the same, and is now lower than countries like Brazil and Canada.`\
+https://www.nytimes.com/2026/07/24/business/china-tariffs-trump.html
+
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/24/movies/new-movies-this-week-critics.html
+
 **Crucial Interest Rate Jumps to Highest Level of Trump’s Second Term**\
 `The yield on the 10-year Treasury bond has risen steadily this year, as the Iran war rages, government spending worries intensify and artificial intelligence spending boosts growth.`\
 https://www.nytimes.com/2026/07/24/business/trump-interest-rates-bonds.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/video/style/100000011042662/andy-burnham-dresses-casuall
 https://www.nytimes.com/2026/07/24/us/colt-gray-apalachee-high-school-shooting-guilty-plea.html
 
 **Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
-`Europeans say they fear a rising dependence on American energy even with a looming Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
+`Europeans say they fear a rising dependence on American energy even with a Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
 https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
 
 **China Wields Its Rare Earth Leverage Over Europe With New Export Controls**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/24/opinion/elon-musk-odyssey-ai.html
 **Debra Winger and Arliss Howard Feel Old Enough to Play ‘The Gin Game’**\
 `At 71, Debra Winger and Arliss Howard have aged into a married-couples acting tradition that Jessica Tandy and Hume Cronyn began.`\
 https://www.nytimes.com/2026/07/24/theater/debra-winger-arliss-howard-gin-game.html
-
-**Platner’s Top Campaign Strategist on What Went Wrong**\
-`Morris Katz helped Zohran Mamdani win, and then tried to do the same for Graham Platner. What has he learned?`\
-https://www.nytimes.com/video/opinion/100000011038501/platners-top-campaign-strategist-on-what-went-wrong.html
-
-**A For-Profit Path to Keeping Housing Affordable**\
-`Housing groups attract investors with the promise of only modest returns so they can, in turn, keep rents as low as possible.`\
-https://www.nytimes.com/2026/07/24/realestate/for-profit-affordable-housing-ascent.html
 
