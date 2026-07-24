@@ -1,3 +1,15 @@
+**Graham Platner’s Strategist on What Went Wrong**\
+`Morris Katz was one of Graham Platner’s top campaign strategists. In the aftermath of the candidate’s implosion, he speaks to the Opinion columnist Ezra Klein about what he thinks went wrong.`\
+https://www.nytimes.com/video/opinion/100000011038507/graham-platners-strategist-on-what-went-wrong.html
+
+**Trump Orders Warnings Placed at ‘Inaccurate’ Smithsonian History Museum**\
+`President Trump said the signage at the National Museum of American History would correct what a disputed White House report described as “extreme political activism.”`\
+https://www.nytimes.com/2026/07/24/arts/design/smithsonian-signs-trump-executive-order.html
+
+**Help! I Might Be a Tradwife!**\
+`I’m not the target audience for online content about frontier chores and child rearing. But if I’m honest, domestic rituals help to keep me sane.`\
+https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
+
 **Trump Switched to Old Air Force One at NATO Summit After Credible Iranian Threat**\
 `The threat led the Secret Service to urge President Trump to fly out of Turkey on the old plane, raising questions about the security of the Qatari-donated jet.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html
