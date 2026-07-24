@@ -1,3 +1,7 @@
+**Medical Examiner in D4vd Murder Case Describes Body in Graphic Testimony**\
+`The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
+https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
+
 **Rare Pompeii Ceiling Is Restored From Fragments, Depicting Scene From Myth**\
 `By collecting about 1,000 fragments and painstakingly assembling the pieces, archaeologists restored a scene depicting the popular love story of Dionysus and Ariadne.`\
 https://www.nytimes.com/2026/07/24/world/europe/rare-pompeii-ceiling-is-restored.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridg
 **Chris Brown Pleads Guilty to Affray Charge in London Nightclub Assault Case**\
 `The R&B star pleaded guilty to a charge of affray after being accused of attacking a producer in 2023. He is set to be sentenced in October.`\
 https://www.nytimes.com/2026/07/24/arts/music/chris-brown-guilty-affray-london.html
-
-**Maps: Tracking Tropical Storm Noul**\
-`See the likely path and wind arrival times for Noul`\
-https://www.nytimes.com/interactive/2026/07/24/weather/noul-path-tracker.html
 
