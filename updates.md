@@ -1,3 +1,15 @@
+**Japanese Militant in Tel Aviv Airport Attack Dies in Lebanon at 78**\
+`Kozo Okamoto survived a 1972 suicide mission he undertook with two other members of the Japanese Red Army, a left-wing militant group aligned with the Popular Front for the Liberation of Palestine.`\
+https://www.nytimes.com/2026/07/24/world/middleeast/japanese-militant-tel-aviv-airport.html
+
+**What We Know About the Police Shooting in Madison**\
+`A Black man was shot and killed by the police on Wednesday, not far from the Wisconsin Capitol. An investigation is underway.`\
+https://www.nytimes.com/2026/07/24/us/madison-wisconsin-police-shooting.html
+
+**Incendios en España y Francia desplazan a cientos de miles de personas de sus casas**\
+`Las autoridades francesas ordenaron la evacuación de la península de Cap Ferret, un popular destino vacacional. Los incendios al oeste de Madrid se acercaban a zonas pobladas.`\
+https://www.nytimes.com/es/2026/07/24/espanol/mundo/espana-incendios.html
+
 **¿Esta nueva enzima puede retroceder el reloj en el cuerpo humano?**\
 `En un estudio reciente, unos científicos idearon una manera de revertir la acumulación de compuestos que conducen a algunas enfermedades relacionadas con la edad.`\
 https://www.nytimes.com/es/2026/07/24/espanol/ciencia-y-tecnologia/enzima-envejecimiento-longevidad-edad.html
