@@ -1,9 +1,29 @@
+**China Has Come Through Trump’s Trade War in a Good Position**\
+`Despite threats from President Trump, the overall average weighted tariff on Chinese goods remained about the same, and is now lower than countries like Brazil and Canada.`\
+https://www.nytimes.com/2026/07/24/business/china-tariffs-trump.html
+
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/24/movies/new-movies-this-week-critics.html
+
+**Crucial Interest Rate Jumps to Highest Level of Trump’s Second Term**\
+`The yield on the 10-year Treasury bond has risen steadily this year, as the Iran war rages, government spending worries intensify and artificial intelligence spending boosts growth.`\
+https://www.nytimes.com/2026/07/24/business/trump-interest-rates-bonds.html
+
+**Mamdani Commits $43 Million to Jump-Start Effort to Stop N.Y.C. Flooding**\
+`The money will go to an agency responsible for addressing the effects of climate change in the city, including the operation of flood gates.`\
+https://www.nytimes.com/2026/07/24/nyregion/nyc-climate-change-mamdani.html
+
+**Andy Burnham Dresses Casually. It’s Smart.**\
+`The United Kingdom has a new prime minister, Andy Burnham. Our chief fashion critic, Vanessa Friedman, revisits the fashion choices he’s made during his ascent and how his current wardrobe is signifying a new era.`\
+https://www.nytimes.com/video/style/100000011042662/andy-burnham-dresses-casually-its-smart.html
+
 **Teen Charged in Georgia School Shooting Changes Plea to Guilty**\
 `Colt Gray, 16, had been scheduled to go on trial in October. His change of plea took place at a hearing that pivoted immediately to sentencing.`\
 https://www.nytimes.com/2026/07/24/us/colt-gray-apalachee-high-school-shooting-guilty-plea.html
 
 **Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
-`Europeans say they fear a rising dependence on American energy even with a looming Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
+`Europeans say they fear a rising dependence on American energy even with a Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
 https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
 
 **China Wields Its Rare Earth Leverage Over Europe With New Export Controls**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/24/opinion/elon-musk-odyssey-ai.html
 **Debra Winger and Arliss Howard Feel Old Enough to Play ‘The Gin Game’**\
 `At 71, Debra Winger and Arliss Howard have aged into a married-couples acting tradition that Jessica Tandy and Hume Cronyn began.`\
 https://www.nytimes.com/2026/07/24/theater/debra-winger-arliss-howard-gin-game.html
-
-**Platner’s Top Campaign Strategist on What Went Wrong**\
-`Morris Katz helped Zohran Mamdani win, and then tried to do the same for Graham Platner. What has he learned?`\
-https://www.nytimes.com/video/opinion/100000011038501/platners-top-campaign-strategist-on-what-went-wrong.html
-
-**A For-Profit Path to Keeping Housing Affordable**\
-`Housing groups attract investors with the promise of only modest returns so they can, in turn, keep rents as low as possible.`\
-https://www.nytimes.com/2026/07/24/realestate/for-profit-affordable-housing-ascent.html
-
-**Venezuela’s Earthquakes Show Wealth Divide, Even in Death**\
-`Latin America’s deep-seated inequalities prevailed over the grimly equalizing force of the Venezuela earthquakes, and set even the dead apart.`\
-https://www.nytimes.com/2026/07/24/world/americas/venezuela-earthquake-dead-costs-la-guaira.html
-
-**Pick Your Favorite $1 Million Home in Costa Rica**\
-`In the running are villas in Hatillo, Punta Leona and Portasol.`\
-https://www.nytimes.com/2026/07/24/realestate/pick-your-favorite-1-million-home-in-costa-rica.html
-
-**Upstairs, Downstairs at Trent Park, a House Full of Spies**\
-`A new museum reveals how Britain’s intelligence secretly wiretapped Nazi commanders in a stately London mansion — and how a team of German Jewish refugees helped turn the tide of World War II.`\
-https://www.nytimes.com/2026/07/24/arts/design/trent-park-spy-museum.html
 

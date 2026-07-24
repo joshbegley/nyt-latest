@@ -1,3 +1,27 @@
+**China Has Come Through Trump’s Trade War in a Good Position**\
+`Despite threats from President Trump, the overall average weighted tariff on Chinese goods remained about the same, and is now lower than countries like Brazil and Canada.`\
+https://www.nytimes.com/2026/07/24/business/china-tariffs-trump.html
+
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/07/24/movies/new-movies-this-week-critics.html
+
+**Crucial Interest Rate Jumps to Highest Level of Trump’s Second Term**\
+`The yield on the 10-year Treasury bond has risen steadily this year, as the Iran war rages, government spending worries intensify and artificial intelligence spending boosts growth.`\
+https://www.nytimes.com/2026/07/24/business/trump-interest-rates-bonds.html
+
+**Mamdani Commits $43 Million to Jump-Start Effort to Stop N.Y.C. Flooding**\
+`The money will go to an agency responsible for addressing the effects of climate change in the city, including the operation of flood gates.`\
+https://www.nytimes.com/2026/07/24/nyregion/nyc-climate-change-mamdani.html
+
+**Andy Burnham Dresses Casually. It’s Smart.**\
+`The United Kingdom has a new prime minister, Andy Burnham. Our chief fashion critic, Vanessa Friedman, revisits the fashion choices he’s made during his ascent and how his current wardrobe is signifying a new era.`\
+https://www.nytimes.com/video/style/100000011042662/andy-burnham-dresses-casually-its-smart.html
+
+**Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
+`Europeans say they fear a rising dependence on American energy even with a Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
+https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
+
 **Teen Charged in Georgia School Shooting Changes Plea to Guilty**\
 `Colt Gray, 16, had been scheduled to go on trial in October. His change of plea took place at a hearing that pivoted immediately to sentencing.`\
 https://www.nytimes.com/2026/07/24/us/colt-gray-apalachee-high-school-shooting-guilty-plea.html
