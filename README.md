@@ -1,3 +1,7 @@
+**ICE Contractor Faces Charges in Shooting Outside Colorado Detention Center**\
+`The man, Brandon Booth, was also fired by the operator of the center, GEO Group, after a woman who was protesting outside was shot in the foot.`\
+https://www.nytimes.com/2026/07/23/us/colorado-ice-protest-shooting-geo-group.html
+
 **‘72 Hours’ Review: Kevin Hart Is Joining Your Bachelor Party**\
 `Hart plays an ad executive who tries to learn about the younger generation by tagging along to a bachelor party weekend. It proves a less than healthy move.`\
 https://www.nytimes.com/2026/07/23/movies/72-hours-review-kevin-hart-netflix.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-glo
 **Rupert Murdoch Biopic Is Among Premieres at Venice Film Festival**\
 `The directors Danny Boyle, Martin McDonagh, Werner Herzog and Casey Affleck will present new movies at the festival.`\
 https://www.nytimes.com/2026/07/23/movies/venice-film-festival-lineup.html
-
-**Mamdani’s Video Message About Netanyahu**\
-`Reader’s react to the New York mayor’s video criticizing the Israeli prime minister. Also: A.I. jobs for philosophers; a battle in the health care industry; fast walkers; pregnant bellies.`\
-https://www.nytimes.com/2026/07/23/opinion/mamdani-netanyahu-video.html
 
