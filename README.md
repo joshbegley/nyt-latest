@@ -1,3 +1,19 @@
+**5 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
+`The authorities said four Palestinians and an Israeli were killed in the incident. The details of events remain unclear, with officials offering differing accounts.`\
+https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
+
+**A Big Day for Math**\
+`Yesterday was a big day for mathematics. We look at the winners of the Fields Medal.`\
+https://www.nytimes.com/2026/07/24/briefing/a-big-day-for-math.html
+
+**Meta Launches New Facebook Marketplace App Called Seller**\
+`Seller is part of the Silicon Valley company’s strategy to innovate on its original social network.`\
+https://www.nytimes.com/2026/07/24/technology/meta-facebook-marketplace-seller.html
+
+**OpenAI Models Go Rogue + Kimi K3 Freakout + A.I. Superforecasting**\
+`“The story that we’re talking about in this segment was science fiction until Tuesday, OK?”`\
+https://www.nytimes.com/2026/07/24/podcasts/hardfork-hugging-face-openai.html
+
 **With Hopes High for New H.I.V. Prevention Pill, Merck Takes Steps to Ensure Access**\
 `Companies in Africa and India will make generic versions of the pill that could cost as little as $5 per person per year. But access to the drug and other new products in much of Latin America remains uncertain.`\
 https://www.nytimes.com/2026/07/24/us/politics/merck-hiv-pill.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/music/ai-music-faq.html
 **She Was a Bright Student. An Israeli Strike Ended Her Dreams.**\
 `Since the cease-fire in October, Israeli forces have killed one child or teenager in Gaza every day on average, according to UNICEF. Raghad Ashour, an ambitious 17-year-old student, became one of them when she was hit by an airstrike as she walked home from school.`\
 https://www.nytimes.com/video/world/middleeast/100000011002217/gaza-palestine-israel-student-raghad-ashour.html
-
-**On Instagram, Travelers Are Taking Risky Cross-Continental Journeys. What Could Go Wrong?**\
-`Travel accounts that feature risky, cross-continental journeys are proliferating on social media. Security experts have serious concerns.`\
-https://www.nytimes.com/2026/07/24/travel/risky-trips-instagram-tiktok-social-media.html
-
-**In Kyrgyzstan, Girls Compete at Kok-Boru, a Game Like Polo**\
-`Here’s what happened when some teenage girls dared to compete in the dangerous sport of “kok-boru.”`\
-https://www.nytimes.com/2026/07/24/world/europe/first-girls-polo-team-breaks-with-tradition-but-keeps-the-goat-carcass.html
-
-**The Artist Matthew Taylor Is Helping Trump Reshape Washington**\
-`Matthew Taylor, a conceptual artist and political strategist, made influential ads and documentaries produced by Steve Bannon. Now he’s assisting the White House.`\
-https://www.nytimes.com/2026/07/24/arts/design/matthew-taylor-artist-filmmaker-trump-washington.html
-
-**How a Romare Bearden Masterpiece Inspired August Wilson**\
-`An August Wilson classic wouldn’t exist without a Romare Bearden masterpiece. Here’s how the two are intertwined.`\
-https://www.nytimes.com/2026/07/24/theater/romare-bearden-august-wilson-joe-turners-come-gone.html
 
