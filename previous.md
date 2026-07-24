@@ -1,3 +1,15 @@
+**Who Is Ahead in Virginia's 2nd Congressional District?**\
+`Track the latest polls in Virginia's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
+
+**Five International Movies to Stream Now**\
+`This month’s titles include a Mexican comedy, a German magical-realist film, a queer Cuban drama and more.`\
+https://www.nytimes.com/2026/07/24/movies/international-movies-streaming.html
+
+**C.D.C. Expands Cyclospora Outbreak Linked to Iceberg Lettuce to Nine States**\
+`Illinois, Kansas, Oklahoma and Pennsylvania now join Michigan, Ohio, Indiana, Kentucky and West Virginia in cyclospora outbreak linked to iceberg lettuce.`\
+https://www.nytimes.com/2026/07/24/well/eat/cyclospora-outbreak-states-cdc.html
+
 **Car Condos Give Your Vehicle Luxury Housing**\
 `No longer satisfied by regular parking garages, some drivers are upgrading their luxury vehicles’ homes.`\
 https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
@@ -19,7 +31,7 @@ https://www.nytimes.com/2026/07/24/dining/coca-cola-marlboro.html
 https://www.nytimes.com/2026/07/24/t-magazine/wet-hair-hairstyles-tyla.html
 
 **Wildfires in France and Spain Drive Tens of Thousands From Their Homes**\
-`French officials ordered the evacuation of the Cap Ferret peninsula, a popular holiday destination. Fires in the Madrid area were closing in on populated areas.`\
+`French officials ordered the evacuation of the Cap Ferret peninsula, a popular holiday destination. Fires west of Madrid were closing in on populated areas.`\
 https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
 
 **Francia mira a España para ayudarse a combatir el calor**\
@@ -27,7 +39,7 @@ https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
 
 **Today, In Short**\
-`Travel influencers. Willow. And new tariffs.`\
+`Travel influencers. Willow Smith. And new tariffs.`\
 https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
 
 **Help! I Might Be a Tradwife!**\
@@ -39,7 +51,7 @@ https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
 https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juicy-and-flavorful-promise.html
 
 **Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
-`Many Argentines condemned their players’ racist chants and aggressive behavior, but rejected what felt like a sweeping stigmatization of their entire nation.`\
+`Many Argentines condemned their players’ racist chants and aggressive behavior during the World Cup, but rejected what felt like a sweeping stigmatization of their entire nation.`\
 https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
 
 **Measles Cases Hit New Record in U.S., as Vaccination Rates Wane**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/24/crosswords/strands-sidekick-874.html
 **Today’s Wordle Hints for July 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
 https://www.nytimes.com/2026/07/24/crosswords/wordle-review-1862.html
-
-**South Korea A.I. Billionaire Ordered to Pay More Than Half a Billion Dollars in ‘Divorce of the Century’**\
-`A South Korean court awarded $644 million to Roh Soh-yeong, who had sought much more from her ex-husband, Chey Tae-won, the head of the conglomerate behind SK Hynix.`\
-https://www.nytimes.com/2026/07/24/world/asia/korea-chey-tae-won-sk-hynix-divorce.html
-
-**India’s Young Protesters Take Aim at Modi With Creative Signs**\
-`India’s young protesters are taking aim at Prime Minister Narendra Modi with creative signs and slogans across the country.`\
-https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-cjp-protest-signs.html
-
-**Phones in Hand, India’s Young Protesters Blast Through Modi’s Media Control**\
-`Prime Minister Narendra Modi’s tightly constructed image is being punctured as a Gen Z-led protest movement uses videos and memes to seize the digital narrative.`\
-https://www.nytimes.com/2026/07/24/world/asia/india-cockroach-party-cjp-protest-memes.html
 

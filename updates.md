@@ -1,3 +1,27 @@
+**Who Is Ahead in Virginia's 2nd Congressional District?**\
+`Track the latest polls in Virginia's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
+
+**Five International Movies to Stream Now**\
+`This month’s titles include a Mexican comedy, a German magical-realist film, a queer Cuban drama and more.`\
+https://www.nytimes.com/2026/07/24/movies/international-movies-streaming.html
+
+**C.D.C. Expands Cyclospora Outbreak Linked to Iceberg Lettuce to Nine States**\
+`Illinois, Kansas, Oklahoma and Pennsylvania now join Michigan, Ohio, Indiana, Kentucky and West Virginia in cyclospora outbreak linked to iceberg lettuce.`\
+https://www.nytimes.com/2026/07/24/well/eat/cyclospora-outbreak-states-cdc.html
+
+**Wildfires in France and Spain Drive Tens of Thousands From Their Homes**\
+`French officials ordered the evacuation of the Cap Ferret peninsula, a popular holiday destination. Fires west of Madrid were closing in on populated areas.`\
+https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
+
+**Today, In Short**\
+`Travel influencers. Willow Smith. And new tariffs.`\
+https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
+
+**Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
+`Many Argentines condemned their players’ racist chants and aggressive behavior during the World Cup, but rejected what felt like a sweeping stigmatization of their entire nation.`\
+https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
+
 **Car Condos Give Your Vehicle Luxury Housing**\
 `No longer satisfied by regular parking garages, some drivers are upgrading their luxury vehicles’ homes.`\
 https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
