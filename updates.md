@@ -1,7 +1,3 @@
-**What to Know About Peptides the FDA Is Considering for Use**\
-`The agency is considering whether compounding pharmacies should be allowed to produce BPC-157, TB-500 and other previously banned peptides.`\
-https://www.nytimes.com/2026/07/23/well/peptides-fda-research.html
-
 **Prominent Indian Activist Breaks Hunger Strike After 26 Days**\
 `The activist, Sonam Wangchuk, said that he had broken his fast “after long negotiations” with officials and “in view of possible violence in the country.”`\
 https://www.nytimes.com/2026/07/23/world/asia/sonam-wangchuk-india-hunger-strike-protests-modi.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/07/23/us/eeoc-subpoena-penn-jewish-list.html
 **The Tate Brothers Are Losing Right-Wing Allies After Their Arrest**\
 `After Andrew and Tristan Tate, prominent leaders of the so-called manosphere, were arrested in Miami, many of their onetime allies on the American right pulled back support.`\
 https://www.nytimes.com/2026/07/23/us/tate-brothers-trump-tucker-carlson.html
+
+**¿Debes usar estrógeno vaginal para los síntomas de la menopausia?**\
+`Esto es lo que debes tomar en cuenta antes de probarlo.`\
+https://www.nytimes.com/es/2026/07/23/espanol/estilos-de-vida/estrogeno-vaginal-menopausia.html
 
