@@ -1,3 +1,7 @@
+**F.D.A. Panel’s Vote on Peptides Raises Concerns About a Prescribing Boom**\
+`The committee endorsed broader use of the peptides in lightly regulated compounding pharmacies that have grown into a multibillion-dollar business.`\
+https://www.nytimes.com/2026/07/24/us/politics/fda-panel-vote-peptides.html
+
 **Charli XCX ‘Music, Fashion, Film’ Album Review**\
 `How does one follow a pop album that became a cultural juggernaut? On “Music, Fashion, Film,” Charli XCX embraces, and even glorifies, the slapdash.`\
 https://www.nytimes.com/2026/07/24/arts/music/charli-xcx-music-fashion-film.html
@@ -95,7 +99,7 @@ https://www.nytimes.com/2026/07/24/us/middle-east-campuses-american-universities
 https://www.nytimes.com/2026/07/24/us/politics/iran-nuclear-weapon.html
 
 **Trump Meets With Top Advisers as He Weighs a Major Escalation in Iran**\
-`President Trump has insisted the U.S.-Israeli war in Iran would be a relatively short “excursion,” although it has now lasted nearly five months, with no end in sight.`\
+`President Trump has insisted the U.S.-Israeli war in Iran would be a relatively short “excursion,” although it has lasted nearly five months, with no end in sight.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-escalation-iran.html
 
 **Los argentinos tienen algo que decir ante las críticas tras el Mundial**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
 **Francia mira a España para ayudarse a combatir el calor**\
 `Una delegación del gobierno francés viajará a su vecino del sur para aprender cómo este sobrelleva los largos periodos de clima caluroso.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
-
-**Today, In Short**\
-`Travel influencers. Willow Smith. And new tariffs.`\
-https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
 

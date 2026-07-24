@@ -1,3 +1,11 @@
+**Charli XCX ‘Music, Fashion, Film’ Album Review**\
+`How does one follow a pop album that became a cultural juggernaut? On “Music, Fashion, Film,” Charli XCX embraces, and even glorifies, the slapdash.`\
+https://www.nytimes.com/2026/07/24/arts/music/charli-xcx-music-fashion-film.html
+
+**Trump Administration Signs Contract for Long-Term National Guard Housing in D.C.**\
+`The move was the latest sign that President Trump intends to keep armed Guard members deployed in the capital through the end of his term.`\
+https://www.nytimes.com/2026/07/24/us/politics/national-guard-troop-housing-dc-trump.html
+
 **Democrats Must Embrace a ‘Populist Future’**\
 `Democrats who talk about affordability without pointing toward the larger systemic issues at play won’t get far, argues Morris Katz. Katz, the political strategist behind candidates like Zohran Mamdani, John Fetterman and Graham Platner, makes the case for the party to embrace a more populist platform on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011038512/democrats-must-embrace-a-populist-future.html
