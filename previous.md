@@ -1,3 +1,7 @@
+**Former ‘60 Minutes’ Reporter Cecilia Vega Details Claims of Meddling**\
+`Cecilia Vega described what she said was pressure from executives to insert bias into several segments that aired earlier this year.`\
+https://www.nytimes.com/2026/07/24/business/media/cecilia-vega-60-minutes.html
+
 **Para los iraníes, la guerra vuelve a paralizar sus vidas**\
 `Devastados por los ciclos de violencia y la crisis económica, muchos han renunciado a la esperanza de encontrar trabajo y tener un futuro mientras EE. UU. vuelve a atacar a Irán.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/iran-guerra-ciclos-violencia.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/podcasts/the-headlines/the-headlines-news-qui
 **Could ‘Trump Accounts’ Actually Close the Wealth Gap?**\
 `The investment accounts created in last year’s tax bill allow babies to receive a $1,000 deposit from the federal government.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-daily/trump-accounts.html
-
-**The Cost of Trump’s New Tariffs, and the $100 Million Popcorn Bucket Market**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/07/24/podcasts/the-headlines/trump-new-tariffs-popcorn-bucket.html
 

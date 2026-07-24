@@ -1,3 +1,7 @@
+**Former ‘60 Minutes’ Reporter Cecilia Vega Details Claims of Meddling**\
+`Cecilia Vega described what she said was pressure from executives to insert bias into several segments that aired earlier this year.`\
+https://www.nytimes.com/2026/07/24/business/media/cecilia-vega-60-minutes.html
+
 **Para los iraníes, la guerra vuelve a paralizar sus vidas**\
 `Devastados por los ciclos de violencia y la crisis económica, muchos han renunciado a la esperanza de encontrar trabajo y tener un futuro mientras EE. UU. vuelve a atacar a Irán.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/iran-guerra-ciclos-violencia.html
