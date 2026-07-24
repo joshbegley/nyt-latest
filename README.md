@@ -1,3 +1,7 @@
+**Freddy Cannon, Rocker Who Sang ‘Palisades Park,’ Dies at 89**\
+`Known as Boom Boom, he recorded a string of hits in the 1950s and ’60s, including “Tallahassee Lassie,” which began as a poem by his mother.`\
+https://www.nytimes.com/2026/07/24/arts/music/freddy-cannon-dead.html
+
 **Medical Examiner in D4vd Murder Case Describes Body in Graphic Testimony**\
 `The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
 https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/dining/kentucky-fried-chicken-colonel-sander-
 **Life of Alan Turing Emerges in Richer Detail From Short Story**\
 `A Cambridge professor has transcribed a handwritten story that the famous mathematician wrote in the year before his death, presenting a different side of him.`\
 https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridge.html
-
-**Chris Brown Pleads Guilty to Affray Charge in London Nightclub Assault Case**\
-`The R&B star pleaded guilty to a charge of affray after being accused of attacking a producer in 2023. He is set to be sentenced in October.`\
-https://www.nytimes.com/2026/07/24/arts/music/chris-brown-guilty-affray-london.html
 

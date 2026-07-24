@@ -1,3 +1,15 @@
+**Medical Examiner in D4vd Murder Case Describes Body in Graphic Testimony**\
+`The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
+https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
+
+**Rare Pompeii Ceiling Is Restored From Fragments, Depicting Scene From Myth**\
+`By collecting about 1,000 fragments and painstakingly assembling the pieces, archaeologists restored a scene depicting the popular love story of Dionysus and Ariadne.`\
+https://www.nytimes.com/2026/07/24/world/europe/rare-pompeii-ceiling-is-restored.html
+
+**India’s Student Protesters Win Some Concessions From Government**\
+`Representatives of Prime Minister Narendra Modi agreed to compensate families affected by a major exam leak, as protesters keep pressing for India’s education minister to resign.`\
+https://www.nytimes.com/2026/07/24/world/asia/india-genz-student-movement-cockroach-janta-party.html
+
 **Paramount Agrees to Delay Warner Bros. Merger for Months**\
 `The company agreed to a proposed freeze until June 2027, unless a judge issues a ruling before then on a lawsuit blocking the deal.`\
 https://www.nytimes.com/2026/07/24/business/media/paramount-warner-bros-merger-delayed.html

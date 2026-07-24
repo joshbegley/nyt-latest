@@ -1,3 +1,11 @@
+**Medical Examiner in D4vd Murder Case Describes Body in Graphic Testimony**\
+`The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
+https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
+
+**Rare Pompeii Ceiling Is Restored From Fragments, Depicting Scene From Myth**\
+`By collecting about 1,000 fragments and painstakingly assembling the pieces, archaeologists restored a scene depicting the popular love story of Dionysus and Ariadne.`\
+https://www.nytimes.com/2026/07/24/world/europe/rare-pompeii-ceiling-is-restored.html
+
 **Paramount Agrees to Delay Warner Bros. Merger for Months**\
 `The company agreed to a proposed freeze until June 2027, unless a judge issues a ruling before then on a lawsuit blocking the deal.`\
 https://www.nytimes.com/2026/07/24/business/media/paramount-warner-bros-merger-delayed.html
@@ -66,7 +74,7 @@ https://www.nytimes.com/2026/07/24/us/politics/democrats-south-carolina-nevada-2
 `Federal officials said in court documents that they halted billions of dollars in funding for energy projects to states “based solely” on whether they backed President Trump in the 2024 election.`\
 https://www.nytimes.com/2026/07/24/business/trump-state-grants-canceled.html
 
-**India’s Student Protesters Win Some Concessions from Government**\
+**India’s Student Protesters Win Some Concessions From Government**\
 `Representatives of Prime Minister Narendra Modi agreed to compensate families affected by a major exam leak, as protesters keep pressing for India’s education minister to resign.`\
 https://www.nytimes.com/2026/07/24/world/asia/india-genz-student-movement-cockroach-janta-party.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridg
 **Chris Brown Pleads Guilty to Affray Charge in London Nightclub Assault Case**\
 `The R&B star pleaded guilty to a charge of affray after being accused of attacking a producer in 2023. He is set to be sentenced in October.`\
 https://www.nytimes.com/2026/07/24/arts/music/chris-brown-guilty-affray-london.html
-
-**Maps: Tracking Tropical Storm Noul**\
-`See the likely path and wind arrival times for Noul`\
-https://www.nytimes.com/interactive/2026/07/24/weather/noul-path-tracker.html
-
-**Compass Is Called Before Congress for Antitrust Concerns**\
-`A House Judiciary subcommittee summoned Compass, the biggest real estate brokerage in the world, and the listing service Midwest Real Estate Data to answer questions about their partnership.`\
-https://www.nytimes.com/2026/07/24/realestate/compass-mred-congressional-hearing-antitrust.html
 
