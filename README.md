@@ -1,3 +1,7 @@
+**Graham Platner’s Strategist on What Went Wrong**\
+`Morris Katz was one of Graham Platner’s top campaign strategists. In the aftermath of the candidate’s implosion, he speaks to the Opinion columnist Ezra Klein about what he thinks went wrong.`\
+https://www.nytimes.com/video/opinion/100000011038507/graham-platners-strategist-on-what-went-wrong.html
+
 **Trump Orders Warnings Placed at ‘Inaccurate’ Smithsonian History Museum**\
 `President Trump said the signage at the National Museum of American History would correct what a disputed White House report described as “extreme political activism.”`\
 https://www.nytimes.com/2026/07/24/arts/design/smithsonian-signs-trump-executive-order.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juic
 **Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
 `Many Argentines condemned their players’ racist chants and aggressive behavior during the World Cup, but rejected what felt like a sweeping stigmatization of their entire nation.`\
 https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
-
-**Measles Cases Hit New Record in U.S., as Vaccination Rates Wane**\
-`More measles cases have been reported in the United States in the last two years than in all the years from 2000 through 2024 combined.`\
-https://www.nytimes.com/2026/07/24/well/measles-record-united-states-numbers.html
 
