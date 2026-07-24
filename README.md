@@ -1,3 +1,7 @@
+**Karim Khan Is Ousted as I.C.C. Chief Prosecutor Over Sexual Misconduct**\
+`The International Criminal Court, which prosecutes some of the world’s most serious crimes, has been in limbo for years over the allegations against Karim A. A. Khan, its top prosecutor.`\
+https://www.nytimes.com/2026/07/24/world/europe/karim-khan-icc.html
+
 **Freddy Cannon, Rocker Who Sang ‘Palisades Park,’ Dies at 89**\
 `Known as Boom Boom, he recorded a string of hits in the 1950s and ’60s, including “Tallahassee Lassie,” which began as a poem by his mother.`\
 https://www.nytimes.com/2026/07/24/arts/music/freddy-cannon-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011050860/france-spain-italy-eu
 **The Legacy of Kentucky Fried Chicken’s Colonel Sanders Is Up For Sale**\
 `In the town where Kentucky Fried Chicken grew up, they’ll auction off the home, restaurant and maybe even the secret spice mix of a cantankerous innovator.`\
 https://www.nytimes.com/2026/07/24/dining/kentucky-fried-chicken-colonel-sander-auction.html
-
-**Life of Alan Turing Emerges in Richer Detail From Short Story**\
-`A Cambridge professor has transcribed a handwritten story that the famous mathematician wrote in the year before his death, presenting a different side of him.`\
-https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridge.html
 
