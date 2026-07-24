@@ -1,3 +1,11 @@
+**Canadá inaugura un importante puente internacional sin invitar a EE. UU.**\
+`La apertura de la nueva conexión fronteriza entre Detroit y Windsor quedó marcada por las tensiones comerciales y políticas provocadas por el presidente Trump.`\
+https://www.nytimes.com/es/2026/07/24/espanol/mundo/canada-puente-estados-unidos-trump.html
+
+**Victoria Monét, Sam Smith: Songs to Know This Week**\
+`Victoria Monét goes girl-group, Sam Smith gets a choral assist, and Chad Hugo re-emerges.`\
+https://www.nytimes.com/2026/07/24/arts/music/victoria-monet-sam-smith-songs.html
+
 **Critical Wildfire Weather in Oregon, Idaho and Washington**\
 `Forecasters warned fires would spread more easily across a region where dozens are already burning.`\
 https://www.nytimes.com/2026/07/24/weather/oregon-wildfire-update-washington.html
