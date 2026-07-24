@@ -1,3 +1,7 @@
+**Critical Wildfire Weather in Oregon, Idaho and Washington**\
+`Forecasters warned fires would spread more easily across a region where dozens are already burning.`\
+https://www.nytimes.com/2026/07/24/weather/oregon-wildfire-update-washington.html
+
 **Trump to Speak as White House Correspondents Dinner Returns With More Security**\
 `President Trump remains the evening’s keynote speaker, as relations between his administration and the press continue to deteriorate.`\
 https://www.nytimes.com/2026/07/24/business/media/white-house-correspondents-dinner.html
