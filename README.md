@@ -1,3 +1,7 @@
+**Who Is Ahead in Virginia's 2nd Congressional District?**\
+`Track the latest polls in Virginia's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
+
 **Five International Movies to Stream Now**\
 `This month’s titles include a Mexican comedy, a German magical-realist film, a queer Cuban drama and more.`\
 https://www.nytimes.com/2026/07/24/movies/international-movies-streaming.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
 https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juicy-and-flavorful-promise.html
 
 **Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
-`Many Argentines condemned their players’ racist chants and aggressive behavior, but rejected what felt like a sweeping stigmatization of their entire nation.`\
+`Many Argentines condemned their players’ racist chants and aggressive behavior during the World Cup, but rejected what felt like a sweeping stigmatization of their entire nation.`\
 https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
 
 **Measles Cases Hit New Record in U.S., as Vaccination Rates Wane**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/crosswords/strands-sidekick-874.html
 **Today’s Wordle Hints for July 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
 https://www.nytimes.com/2026/07/24/crosswords/wordle-review-1862.html
-
-**South Korea A.I. Billionaire Ordered to Pay More Than Half a Billion Dollars in ‘Divorce of the Century’**\
-`A South Korean court awarded $644 million to Roh Soh-yeong, who had sought much more from her ex-husband, Chey Tae-won, the head of the conglomerate behind SK Hynix.`\
-https://www.nytimes.com/2026/07/24/world/asia/korea-chey-tae-won-sk-hynix-divorce.html
 
