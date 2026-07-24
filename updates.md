@@ -1,3 +1,7 @@
+**How ‘The Odyssey’ Outsmarts Itself**\
+`Pablo and Wesley Morris deconstruct Christopher Nolan’s auteur architecture.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-odyssey-wesley-morris-cannonball.html
+
 **Man in a Spider-Man Costume Rides to the Rescue in Arkansas**\
 `Was that Peter Parker helping a man in a wheelchair cross an intersection? No, it was Chris Hellenthal, a college student returning from a summer job.`\
 https://www.nytimes.com/2026/07/24/us/spiderman-wheelchair-jonesboro-arkansas.html
