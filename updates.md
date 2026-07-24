@@ -1,3 +1,19 @@
+**Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 31 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 12.`\
+https://www.nytimes.com/2026/07/24/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
+
+**Debt Collection Suits Have Risen Sharply. There’s Help for Consumers Being Sued.**\
+`Consumers are being taken to court in droves for delinquent credit card and other bills. New legal protections and even A.I. could be a lifeline.`\
+https://www.nytimes.com/2026/07/24/business/credit-card-debt-collection-lawsuits.html
+
+**Why It’s Best to Keep Politics Out of Your Investment Strategy**\
+`Despite the blurring of lines between big business and the Trump administration, investing in broad index funds instead of stocks with political ties looks like a better bet.`\
+https://www.nytimes.com/2026/07/24/business/investing-stocks-trump-politics.html
+
+**Russia and Ukraine Trade Deadly Blows With Missiles and Drones**\
+`Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated an air campaign.`\
+https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
+
 **Why Trump’s Renewed Trade War Could Be Costly**\
 `Households and businesses were already contending with an affordability crunch. A new round of tariffs could inflict more pain.`\
 https://www.nytimes.com/2026/07/24/business/dealbook/trump-trade-war-economy.html
