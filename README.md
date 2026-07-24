@@ -1,3 +1,15 @@
+**Japanese Militant in Tel Aviv Airport Attack Dies in Lebanon at 78**\
+`Kozo Okamoto survived a 1972 suicide mission he undertook with two other members of the Japanese Red Army, a left-wing militant group aligned with the Popular Front for the Liberation of Palestine.`\
+https://www.nytimes.com/2026/07/24/world/middleeast/japanese-militant-tel-aviv-airport.html
+
+**What We Know About the Police Shooting in Madison**\
+`A Black man was shot and killed by the police on Wednesday, not far from the Wisconsin Capitol. An investigation is underway.`\
+https://www.nytimes.com/2026/07/24/us/madison-wisconsin-police-shooting.html
+
+**Incendios en España y Francia desplazan a cientos de miles de personas de sus casas**\
+`Las autoridades francesas ordenaron la evacuación de la península de Cap Ferret, un popular destino vacacional. Los incendios al oeste de Madrid se acercaban a zonas pobladas.`\
+https://www.nytimes.com/es/2026/07/24/espanol/mundo/espana-incendios.html
+
 **¿Esta nueva enzima puede retroceder el reloj en el cuerpo humano?**\
 `En un estudio reciente, unos científicos idearon una manera de revertir la acumulación de compuestos que conducen a algunas enfermedades relacionadas con la edad.`\
 https://www.nytimes.com/es/2026/07/24/espanol/ciencia-y-tecnologia/enzima-envejecimiento-longevidad-edad.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/24/us/colt-gray-apalachee-high-school-shooting-g
 **Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
 `Europeans say they fear a rising dependence on American energy even with a Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
 https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
-
-**China Wields Its Rare Earth Leverage Over Europe With New Export Controls**\
-`Beijing banned shipments of important supplies to 14 companies on the cutting edge of chemicals processing, electric motors and defense.`\
-https://www.nytimes.com/2026/07/24/business/china-europe-rare-earths.html
-
-**Corrections: July 24, 2026**\
-`Corrections that appeared in print on Friday, July 24, 2026.`\
-https://www.nytimes.com/2026/07/24/pageoneplus/corrections-july-24-2026.html
-
-**If You Dislike Summer, Here’s How to Get Through It**\
-`If you need help staying positive in the midst of heat waves and out-of-office disruptions, start with these tips.`\
-https://www.nytimes.com/2026/07/24/well/hate-summer-tips.html
 
