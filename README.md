@@ -1,3 +1,15 @@
+**Paramount Agrees to Delay Warner Bros. Merger for Months**\
+`The company agreed to a proposed freeze until June 2027, unless a judge issues a ruling before then on a lawsuit blocking the deal.`\
+https://www.nytimes.com/2026/07/24/business/media/paramount-warner-bros-merger-delayed.html
+
+**Teachers’ Union Boss Vows ‘All-Out-War’ if Mamdani Doesn’t Back Bonuses**\
+`Teaching assistants, who are among the lowest-paid workers in New York City’s public schools, would get one-time payments of $10,000.`\
+https://www.nytimes.com/2026/07/24/nyregion/nyc-mamdani-teachers-union-bonuses.html
+
+**A Turkish Governor Was Ousted. Were Bicycling Tights to Blame?**\
+`Mehmet Fatih Cicekli posted some social media content of himself in workout gear. Then he lost his job.`\
+https://www.nytimes.com/2026/07/24/world/asia/turkey-governor-fired-cycling-shorts.html
+
 **El brote de ciclosporiasis se extiende a 9 estados de EE. UU.**\
 `Illinois, Kansas, Oklahoma y Pensilvania se unen ahora a Míchigan, Ohio, Indiana, Kentucky y Virginia Occidental en el brote de “Cyclospora” vinculado a la lechuga iceberg.`\
 https://www.nytimes.com/es/2026/07/24/espanol/brote-ciclosporiasis-casos-diarrea-lechuga.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/interactive/2026/07/24/weather/noul-path-tracker.html
 **Compass Is Called Before Congress for Antitrust Concerns**\
 `A House Judiciary subcommittee summoned Compass, the biggest real estate brokerage in the world, and the listing service Midwest Real Estate Data to answer questions about their partnership.`\
 https://www.nytimes.com/2026/07/24/realestate/compass-mred-congressional-hearing-antitrust.html
-
-**China Has Come Through Trump’s Trade War in a Good Position**\
-`Despite threats from President Trump, the overall average weighted tariff on Chinese goods remained about the same, and is now lower than countries like Brazil and Canada.`\
-https://www.nytimes.com/2026/07/24/business/china-tariffs-trump.html
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/07/24/movies/new-movies-this-week-critics.html
-
-**Crucial Interest Rate Jumps to Highest Level of Trump’s Second Term**\
-`The yield on the 10-year Treasury bond has risen steadily this year, as the Iran war rages, government spending worries intensify and artificial intelligence spending boosts growth.`\
-https://www.nytimes.com/2026/07/24/business/trump-interest-rates-bonds.html
 

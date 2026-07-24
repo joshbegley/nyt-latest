@@ -1,3 +1,7 @@
+**El brote de ciclosporiasis se extiende a 9 estados de EE. UU.**\
+`Illinois, Kansas, Oklahoma y Pensilvania se unen ahora a Míchigan, Ohio, Indiana, Kentucky y Virginia Occidental en el brote de “Cyclospora” vinculado a la lechuga iceberg.`\
+https://www.nytimes.com/es/2026/07/24/espanol/brote-ciclosporiasis-casos-diarrea-lechuga.html
+
 **Opposing Defense Bill, Democrats Shift Their Tactics**\
 `Crossing what was once seen as a political red line, Democrats voted against the usually bipartisan measure, registering dissent about the war in Iran.`\
 https://www.nytimes.com/2026/07/24/us/politics/democrats-defense-bill.html

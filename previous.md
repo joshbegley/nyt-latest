@@ -1,3 +1,7 @@
+**El brote de ciclosporiasis se extiende a 9 estados de EE. UU.**\
+`Illinois, Kansas, Oklahoma y Pensilvania se unen ahora a Míchigan, Ohio, Indiana, Kentucky y Virginia Occidental en el brote de “Cyclospora” vinculado a la lechuga iceberg.`\
+https://www.nytimes.com/es/2026/07/24/espanol/brote-ciclosporiasis-casos-diarrea-lechuga.html
+
 **Opposing Defense Bill, Democrats Shift Their Tactics**\
 `Crossing what was once seen as a political red line, Democrats voted against the usually bipartisan measure, registering dissent about the war in Iran.`\
 https://www.nytimes.com/2026/07/24/us/politics/democrats-defense-bill.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/movies/new-movies-this-week-critics.html
 **Crucial Interest Rate Jumps to Highest Level of Trump’s Second Term**\
 `The yield on the 10-year Treasury bond has risen steadily this year, as the Iran war rages, government spending worries intensify and artificial intelligence spending boosts growth.`\
 https://www.nytimes.com/2026/07/24/business/trump-interest-rates-bonds.html
-
-**Mamdani Commits $43 Million to Jump-Start Effort to Stop N.Y.C. Flooding**\
-`The money will go to an agency responsible for addressing the effects of climate change in the city, including the operation of flood gates.`\
-https://www.nytimes.com/2026/07/24/nyregion/nyc-climate-change-mamdani.html
 
