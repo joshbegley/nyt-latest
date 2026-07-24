@@ -1,3 +1,7 @@
+**Russia and Ukraine Trade Blows With Missiles and Drones**\
+`Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated a deadly air campaign.`\
+https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
+
 **5 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
 `The authorities said four Palestinians and an Israeli were killed in the incident. The details of events remain unclear, with officials offering differing accounts.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/opinion/jeffrey-epstein-crimes-collaborators-
 **An A.I. Music F.A.Q.: Can I Remix Madonna? Is This All Legal?**\
 `Advances in A.I. are making it possible to create all kinds of music from scratch, but they also raise questions about what is legal and who will actually listen.`\
 https://www.nytimes.com/2026/07/24/arts/music/ai-music-faq.html
-
-**She Was a Bright Student. An Israeli Strike Ended Her Dreams.**\
-`Since the cease-fire in October, Israeli forces have killed one child or teenager in Gaza every day on average, according to UNICEF. Raghad Ashour, an ambitious 17-year-old student, became one of them when she was hit by an airstrike as she walked home from school.`\
-https://www.nytimes.com/video/world/middleeast/100000011002217/gaza-palestine-israel-student-raghad-ashour.html
 
