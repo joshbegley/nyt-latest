@@ -1,3 +1,15 @@
+**Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 31 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 12.`\
+https://www.nytimes.com/2026/07/24/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
+
+**Debt Collection Suits Have Risen Sharply. There’s Help for Consumers Being Sued.**\
+`Consumers are being taken to court in droves for delinquent credit card and other bills. New legal protections and even A.I. could be a lifeline.`\
+https://www.nytimes.com/2026/07/24/business/credit-card-debt-collection-lawsuits.html
+
+**Why It’s Best to Keep Politics Out of Your Investment Strategy**\
+`Despite the blurring of lines between big business and the Trump administration, investing in broad index funds instead of stocks with political ties looks like a better bet.`\
+https://www.nytimes.com/2026/07/24/business/investing-stocks-trump-politics.html
+
 **Why Trump’s Renewed Trade War Could Be Costly**\
 `Households and businesses were already contending with an affordability crunch. A new round of tariffs could inflict more pain.`\
 https://www.nytimes.com/2026/07/24/business/dealbook/trump-trade-war-economy.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/24/science/enzymes-aging-cmlase.html
 **The Artist Behind Trump’s Legacy Projects**\
 `Matthew Taylor, a conceptual artist and filmmaker, has quietly become a key player behind many of President Trump’s plans to transform Washington and its cultural legacy, as our reporter Zachary Small explains. Mr. Taylor consulted on the White House’s scathing report on the Smithsonian, though the White House said he “didn’t write a word.”`\
 https://www.nytimes.com/video/arts/100000011028177/the-artist-behind-trumps-legacy-projects.html
-
-**Word of the Day: construe**\
-`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/24/learning/word-of-the-day-construe.html
-
-**Children’s Picture Books About Boredom**\
-`The picture books “Bored” and “Endless Afternoons” are odes to the joy of having nothing to do.`\
-https://www.nytimes.com/2026/07/24/books/review/boredom-childrens-picture-books-felicita-sala-gael-faye.html
-
-**After the Cesar Chavez Scandal, Can Johnny Itliong Restore His Father’s Activist Legacy?**\
-`Johnny Itliong says Cesar Chavez stole credit from his father, the farmworker activist Larry Itliong. For years, he has been trying to correct the record.`\
-https://www.nytimes.com/2026/07/24/us/larry-itliong-farmworker-rights-activist-chavez.html
 
