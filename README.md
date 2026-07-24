@@ -1,3 +1,7 @@
+**Victoria Monét, Sam Smith: Songs to Know This Week**\
+`Victoria Monét goes girl-group, Sam Smith gets a choral assist, and Chad Hugo re-emerges.`\
+https://www.nytimes.com/2026/07/24/arts/music/victoria-monet-sam-smith-songs.html
+
 **Critical Wildfire Weather in Oregon, Idaho and Washington**\
 `Forecasters warned fires would spread more easily across a region where dozens are already burning.`\
 https://www.nytimes.com/2026/07/24/weather/oregon-wildfire-update-washington.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/movies/international-movies-streaming.html
 **C.D.C. Expands Cyclospora Outbreak Linked to Iceberg Lettuce to Nine States**\
 `Illinois, Kansas, Oklahoma and Pennsylvania now join Michigan, Ohio, Indiana, Kentucky and West Virginia in cyclospora outbreak linked to iceberg lettuce.`\
 https://www.nytimes.com/2026/07/24/well/eat/cyclospora-outbreak-states-cdc.html
-
-**Car Condos Give Your Vehicle Luxury Housing**\
-`No longer satisfied by regular parking garages, some drivers are upgrading their luxury vehicles’ homes.`\
-https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
 
