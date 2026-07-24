@@ -1,3 +1,11 @@
+**F.D.A. Panel’s Vote on Peptides Raises Concerns About a Prescribing Boom**\
+`The committee endorsed broader use of the peptides in lightly regulated compounding pharmacies that have grown into a multibillion-dollar business.`\
+https://www.nytimes.com/2026/07/24/us/politics/fda-panel-vote-peptides.html
+
+**Trump Meets With Top Advisers as He Weighs a Major Escalation in Iran**\
+`President Trump has insisted the U.S.-Israeli war in Iran would be a relatively short “excursion,” although it has lasted nearly five months, with no end in sight.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-escalation-iran.html
+
 **Charli XCX ‘Music, Fashion, Film’ Album Review**\
 `How does one follow a pop album that became a cultural juggernaut? On “Music, Fashion, Film,” Charli XCX embraces, and even glorifies, the slapdash.`\
 https://www.nytimes.com/2026/07/24/arts/music/charli-xcx-music-fashion-film.html
