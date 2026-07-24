@@ -1,3 +1,7 @@
+**Coca-Cola’s New Branding Reminds People of Marlboro**\
+`After the soda company introduced a new brand design, some fans spotted similarities to the typeface used by the cigarette brand. Enter the font nerds.`\
+https://www.nytimes.com/2026/07/24/dining/coca-cola-marlboro.html
+
 **How to Get the Wet Hair Style, According to Tyla, Amber Valletta and Candice Birns**\
 `The musician Tyla, the model Amber Valletta and the hairstylist Candice Birns share their techniques.`\
 https://www.nytimes.com/2026/07/24/t-magazine/wet-hair-hairstyles-tyla.html
