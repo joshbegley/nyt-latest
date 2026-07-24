@@ -1,3 +1,7 @@
+**Jimmy Fallon Pokes Fun at Trump’s ‘Pinky Herman’**\
+`“You got to give Trump credit: He misspeaks in ways nobody ever thought possible,” Fallon said of the president’s calling the famous man-child character “Pinky,” instead of “Pee-wee,” Herman.`\
+https://www.nytimes.com/2026/07/24/arts/television/jimmy-fallon-trump-pinky-herman.html
+
 **Brent Crude Oil Prices Top $100 as Conflict With Iran Drags On**\
 `Stocks in Asia were down following a sell-off in the U.S. markets over soaring oil prices, rising borrowing costs and worries about the technology industry.`\
 https://www.nytimes.com/2026/07/24/technology/oil-prices-global-stocks-shipping.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/world/middleeast/red-sea-strikes-oil-houthis.
 **Border Crossings Targeted in Latest U.S.-Iran Exchanges**\
 `Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-us-iran-strikes.html
-
-**Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
-`As savvy as he could be volatile, he advised Nancy Pelosi and Dianne Feinstein, ran for mayor of San Francisco and bought The San Francisco Examiner.`\
-https://www.nytimes.com/2026/07/23/us/politics/clint-reilly-dead.html
 
