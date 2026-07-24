@@ -1,3 +1,27 @@
+**Could ‘Trump Accounts’ Actually Close the Wealth Gap?**\
+`The investment accounts created in last year’s tax bill allow babies to receive a $1,000 deposit from the federal government.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-daily/trump-accounts.html
+
+**The Cost of Trump’s New Tariffs, and the $100 Million Popcorn Bucket Market**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-headlines/trump-new-tariffs-popcorn-bucket.html
+
+**NYT Connections Answers for July 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/24/crosswords/connections-companion-1140.html
+
+**NYT Strands Hints for July 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/24/crosswords/strands-sidekick-874.html
+
+**Today’s Wordle Hints for July 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/24/crosswords/wordle-review-1862.html
+
+**South Korea A.I. Billionaire Ordered to Pay More Than Half a Billion Dollars in ‘Divorce of the Century’**\
+`A South Korean court awarded $644 million to Roh Soh-yeong, who had sought much more from her ex-husband, Chey Tae-won, the head of the conglomerate behind SK Hynix.`\
+https://www.nytimes.com/2026/07/24/world/asia/korea-chey-tae-won-sk-hynix-divorce.html
+
 **India’s Young Protesters Take Aim at Modi With Creative Signs**\
 `India’s young protesters are taking aim at Prime Minister Narendra Modi with creative signs and slogans across the country.`\
 https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-cjp-protest-signs.html
@@ -26,13 +50,13 @@ https://www.nytimes.com/live/2026/07/24/world/iran-war-us-strikes-trump-oil
 `A ruling on a theater etiquette dispute.`\
 https://www.nytimes.com/interactive/2026/07/24/magazine/movie-yelling-cheers-hodgman-quiz.html
 
-**Iran War and Trump’s Tariffs Threaten a Resilient US Economy**\
+**Iran War and Trump’s Tariffs Threaten a Resilient U.S. Economy**\
 `As renewed fighting with Iran sends oil and gas prices soaring, President Trump has imposed new global tariffs that could push up prices further.`\
 https://www.nytimes.com/2026/07/24/business/iran-war-tariffs-economy.html
 
 **How a Grieving Trump Decided to Back Lindsey Graham’s Sister for Senate**\
 `The president initially backed a little-known congressman. Then he talked to Gov. Henry McMaster and Ms. Graham herself.`\
-https://www.nytimes.com/2026/07/24/us/politics/how-a-grieving-trump-decided-to-back-lindsey-grahams-sister-for-senate.html
+https://www.nytimes.com/2026/07/24/us/politics/trump-lindsey-graham-sister-darline-senate.html
 
 **As Canada Opens Gordie Howe International Bridge, Americans Are Told to Stay Home**\
 `After a delay ordered by President Trump and new tariffs against Canada, the bridge between Windsor, Ontario, and Detroit opens in “underwhelming” fashion on Friday.`\
@@ -173,28 +197,4 @@ https://www.nytimes.com/interactive/2026/07/24/world/asia/india-protest-cockroac
 **Faced With Heat and Wildfires, France Turns to Spain to Learn How to Cope**\
 `A French government delegation will travel to its southern neighbor to learn how it copes with long spells of hot weather.`\
 https://www.nytimes.com/2026/07/24/world/europe/france-spain-climate-heat-wildfires.html
-
-**Spider-Man Helps Man in Wheelchair Cross Busy Street**\
-`A man dressed as Spider-Man helped a person in a wheelchair cross a busy street in Arkansas on Tuesday.`\
-https://www.nytimes.com/video/us/100000011050664/spiderman-wheelchair-jonesboro-arkansas.html
-
-**A la generación Z no le obsesiona el éxito laboral, y no los culpo**\
-`Para los graduados universitarios de la generación Z, la manera en que los milénials vivieron sus ambiciones ya no tiene sentido.`\
-https://www.nytimes.com/es/2026/07/24/espanol/opinion/generacion-z-exito-trabajo.html
-
-**‘La odisea’ alquiló un barco vikingo. Dicen que lo dañaron**\
-`Un centro vikingo sueco dijo que su embarcación se usó en la filmación de la película de Christopher Nolan, pero que necesitaba reparaciones cuando fue devuelta. Ahora, busca compensación.`\
-https://www.nytimes.com/es/2026/07/24/espanol/cultura/odisea-barco-vikingo.html
-
-**China reescribe el manual del ‘poder blando’ para la era de la IA**\
-`China busca influencia mundial y buena voluntad con su software de inteligencia artificial abierto y de bajo costo.`\
-https://www.nytimes.com/es/2026/07/24/espanol/negocios/china-ia-mundo.html
-
-**El extraño fenómeno de la ‘lucidez terminal’**\
-`Al acercarse a la muerte, algunos pacientes con demencia recuperan facultades mentales que se creían perdidas hace mucho tiempo. Los investigadores quieren saber por qué.`\
-https://www.nytimes.com/es/2026/07/24/espanol/lucidez-terminal-pacientes-demencia.html
-
-**The Story Behind the New York Police Academy’s New Name**\
-`The officer honored on the facade of the training center in Queens moved New York City in the 1980s with his message of forgiveness.`\
-https://www.nytimes.com/2026/07/24/nyregion/nypd-mcdonald.html
 

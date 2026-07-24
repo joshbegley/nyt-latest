@@ -1,3 +1,11 @@
+**India’s Young Protesters Take Aim at Modi With Creative Signs**\
+`India’s young protesters are taking aim at Prime Minister Narendra Modi with creative signs and slogans across the country.`\
+https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-cjp-protest-signs.html
+
+**Phones in Hand, India’s Young Protesters Blast Through Modi’s Media Control**\
+`Prime Minister Narendra Modi’s tightly constructed image is being punctured as a Gen Z-led protest movement uses videos and memes to seize the digital narrative.`\
+https://www.nytimes.com/2026/07/24/world/asia/india-cockroach-party-cjp-protest-memes.html
+
 **How ‘The Odyssey’ Outsmarts Itself, With Wesley Morris**\
 `Pablo and Wesley Morris deconstruct Christopher Nolan’s auteur architecture.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-odyssey-wesley-morris-cannonball.html

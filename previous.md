@@ -1,3 +1,11 @@
+**India’s Young Protesters Take Aim at Modi With Creative Signs**\
+`India’s young protesters are taking aim at Prime Minister Narendra Modi with creative signs and slogans across the country.`\
+https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-cjp-protest-signs.html
+
+**Phones in Hand, India’s Young Protesters Blast Through Modi’s Media Control**\
+`Prime Minister Narendra Modi’s tightly constructed image is being punctured as a Gen Z-led protest movement uses videos and memes to seize the digital narrative.`\
+https://www.nytimes.com/2026/07/24/world/asia/india-cockroach-party-cjp-protest-memes.html
+
 **How ‘The Odyssey’ Outsmarts Itself, With Wesley Morris**\
 `Pablo and Wesley Morris deconstruct Christopher Nolan’s auteur architecture.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-odyssey-wesley-morris-cannonball.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/24/espanol/lucidez-terminal-pacientes-demenci
 **The Story Behind the New York Police Academy’s New Name**\
 `The officer honored on the facade of the training center in Queens moved New York City in the 1980s with his message of forgiveness.`\
 https://www.nytimes.com/2026/07/24/nyregion/nypd-mcdonald.html
-
-**NYT Spelling Bee Answers for July 24, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/24/crosswords/spelling-bee-forum.html
-
-**Jimmy Fallon Pokes Fun at Trump’s ‘Pinky Herman’**\
-`“You got to give Trump credit: He misspeaks in ways nobody ever thought possible,” Fallon said of the president’s calling the famous man-child character “Pinky,” instead of “Pee-wee,” Herman.`\
-https://www.nytimes.com/2026/07/24/arts/television/jimmy-fallon-trump-pinky-herman.html
 
