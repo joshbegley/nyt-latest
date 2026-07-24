@@ -1,3 +1,7 @@
+**1.6 Million Egg Cartons Are Recalled Over Salmonella Risk**\
+`The voluntary recall included eggs produced in Texas and sold under several brand names in six states, the Food and Drug Administration said.`\
+https://www.nytimes.com/2026/07/24/business/egg-recall-salmonella-texas.html
+
 **In Rush to Track Down Air Force One Leaks, DOJ Reversed Its Own Process**\
 `A judge’s remarks on subpoenas to reporters cast attention on two administration officials under consideration for powerful cabinet posts, Todd Blanche and Jay Clayton.`\
 https://www.nytimes.com/2026/07/24/us/politics/doj-new-york-times-subpoenas-leaks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/us/politics/trump-tariffs-russia-sanctions.ht
 **Former ‘60 Minutes’ Reporter Cecilia Vega Details Claims of Meddling**\
 `Cecilia Vega described what she said was pressure from executives to insert bias into several segments that aired this year.`\
 https://www.nytimes.com/2026/07/24/business/media/cecilia-vega-60-minutes.html
-
-**Para los iraníes, la guerra vuelve a paralizar sus vidas**\
-`Devastados por los ciclos de violencia y la crisis económica, muchos han renunciado a la esperanza de encontrar trabajo y tener un futuro mientras EE. UU. vuelve a atacar a Irán.`\
-https://www.nytimes.com/es/2026/07/24/espanol/mundo/iran-guerra-ciclos-violencia.html
 

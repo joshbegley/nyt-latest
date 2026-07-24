@@ -1,3 +1,7 @@
+**In Rush to Track Down Air Force One Leaks, DOJ Reversed Its Own Process**\
+`A judge’s remarks on subpoenas to reporters cast attention on two administration officials under consideration for powerful cabinet posts, Todd Blanche and Jay Clayton.`\
+https://www.nytimes.com/2026/07/24/us/politics/doj-new-york-times-subpoenas-leaks.html
+
 **Bags in Van of Houston ICE Shooting Victim Did Not Contain Drugs, Officials Say**\
 `The Harris County district attorney’s office said that white powder the federal government had said could be methamphetamine tested negative for narcotics.`\
 https://www.nytimes.com/2026/07/24/us/houston-ice-shooting-araujo-van.html
