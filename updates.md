@@ -1,3 +1,7 @@
+**Timeline: How a College Test Scandal Grew Into a Youth Movement in India**\
+`What began with an exam leak scandal in May has grown into a much wider campaign over government accountability. Here’s how the youth-led movement unfolded.`\
+https://www.nytimes.com/interactive/2026/07/24/world/asia/india-protest-cockroach-party-timeline.html
+
 **Faced With Heat and Wildfires, France Turns to Spain to Learn How to Cope**\
 `A French government delegation will travel to its southern neighbor to learn how it copes with long spells of hot weather.`\
 https://www.nytimes.com/2026/07/24/world/europe/france-spain-climate-heat-wildfires.html

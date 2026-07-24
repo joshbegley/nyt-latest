@@ -1,3 +1,51 @@
+**Can This New Enzyme Turn Back the Clock in Bodily Tissues?**\
+`In a recent study, scientists devised a way of reversing the buildup of compounds that lead to some age-related diseases.`\
+https://www.nytimes.com/2026/07/24/science/enzymes-aging-cmlase.html
+
+**The Artist Behind Trump’s Legacy Projects**\
+`Matthew Taylor, a conceptual artist and filmmaker, has quietly become a key player behind many of President Trump’s plans to transform Washington and its cultural legacy, as our reporter Zachary Small explains. Mr. Taylor consulted on the White House’s scathing report on the Smithsonian, though the White House said he “didn’t write a word.”`\
+https://www.nytimes.com/video/arts/100000011028177/the-artist-behind-trumps-legacy-projects.html
+
+**Word of the Day: construe**\
+`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/24/learning/word-of-the-day-construe.html
+
+**Children’s Picture Books About Boredom**\
+`The picture books “Bored” and “Endless Afternoons” are odes to the joy of having nothing to do.`\
+https://www.nytimes.com/2026/07/24/books/review/boredom-childrens-picture-books-felicita-sala-gael-faye.html
+
+**After the Cesar Chavez Scandal, Can Johnny Itliong Restore His Father’s Activist Legacy?**\
+`Johnny Itliong says Cesar Chavez stole credit from his father, the farmworker activist Larry Itliong. For years, he has been trying to correct the record.`\
+https://www.nytimes.com/2026/07/24/us/larry-itliong-farmworker-rights-activist-chavez.html
+
+**Our Vast Collective Jeffrey Epstein Failure**\
+`We need to hold accountable the web of accomplices who enabled his crimes.`\
+https://www.nytimes.com/2026/07/24/opinion/jeffrey-epstein-crimes-collaborators-files.html
+
+**An A.I. Music F.A.Q.: Can I Remix Madonna? Is This All Legal?**\
+`Advances in A.I. are making it possible to create all kinds of music from scratch, but they also raise questions about what is legal and who will actually listen.`\
+https://www.nytimes.com/2026/07/24/arts/music/ai-music-faq.html
+
+**She Was a Bright Student. An Israeli Strike Ended Her Dreams.**\
+`Since the cease-fire in October, Israeli forces have killed one child or teenager in Gaza every day on average, according to UNICEF. Raghad Ashour, an ambitious 17-year-old student, became one of them when she was hit by an airstrike as she walked home from school.`\
+https://www.nytimes.com/video/world/middleeast/100000011002217/gaza-palestine-israel-student-raghad-ashour.html
+
+**On Instagram, Travelers Are Taking Risky Cross-Continental Journeys. What Could Go Wrong?**\
+`Travel accounts that feature risky, cross-continental journeys are proliferating on social media. Security experts have serious concerns.`\
+https://www.nytimes.com/2026/07/24/travel/risky-trips-instagram-tiktok-social-media.html
+
+**In Kyrgyzstan, Girls Compete at Kok-Boru, a Game Like Polo**\
+`Here’s what happened when some teenage girls dared to compete in the dangerous sport of “kok-boru.”`\
+https://www.nytimes.com/2026/07/24/world/europe/first-girls-polo-team-breaks-with-tradition-but-keeps-the-goat-carcass.html
+
+**The Artist Matthew Taylor Is Helping Trump Reshape Washington**\
+`Matthew Taylor, a conceptual artist and political strategist, made influential ads and documentaries produced by Steve Bannon. Now he’s assisting the White House.`\
+https://www.nytimes.com/2026/07/24/arts/design/matthew-taylor-artist-filmmaker-trump-washington.html
+
+**How a Romare Bearden Masterpiece Inspired August Wilson**\
+`An August Wilson classic wouldn’t exist without a Romare Bearden masterpiece. Here’s how the two are intertwined.`\
+https://www.nytimes.com/2026/07/24/theater/romare-bearden-august-wilson-joe-turners-come-gone.html
+
 **Timeline: How a College Test Scandal Grew Into a Youth Movement in India**\
 `What began with an exam leak scandal in May has grown into a much wider campaign over government accountability. Here’s how the youth-led movement unfolded.`\
 https://www.nytimes.com/interactive/2026/07/24/world/asia/india-protest-cockroach-party-timeline.html
@@ -149,52 +197,4 @@ https://www.nytimes.com/2026/07/23/us/politics/elena-kagan-supreme-court-trump.h
 **Conor Oberst on Hitting Rock Bottom**\
 `The musician Conor Oberst spoke with Joe Coscarelli and Jon Caramanica, hosts of “Popcast,” about navigating stardom, overcoming health struggles, writing political music and playing with his band, Bright Eyes.`\
 https://www.nytimes.com/video/podcasts/100000011046258/conor-oberst-on-hitting-rock-bottom.html
-
-**Democratic Voters Keep Defying the Party Establishment**\
-`The House Democratic campaign arm has stepped up its interventions in high-profile contested primaries. But this week, it suffered its third primary defeat in two months.`\
-https://www.nytimes.com/2026/07/23/us/politics/democrats-dccc-house.html
-
-**How Conor Oberst of Bright Eyes Came Back From The Brink**\
-`Watch the full conversation with Conor Oberst on Popcast.`\
-https://www.nytimes.com/video/podcasts/100000011046262/bright-eyes-conor-oberst-popcast-interview.html
-
-**Trump to Impose Tariffs on More Than 80 Countries**\
-`Also, oil hits $100 a barrel. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/07/23/briefing/trump-impose-tariffs-popcorn-buckets.html
-
-**Number of U.S. Troop Deaths in Iran War Appears Lower on Pentagon Website**\
-`Three military officials and a Pentagon spokesman gave conflicting explanations for why the number of Americans killed in the Iran war had changed.`\
-https://www.nytimes.com/2026/07/23/us/politics/iran-troop-deaths.html
-
-**Canada: Neighbor or 51st State?**\
-`Is the United States actually going to annex Canada? On “Interesting Times,” the Opinion columnist Ross Douthat pushes the senior Trump administration official Elbridge Colby on just how real the threat of annexation is.`\
-https://www.nytimes.com/video/opinion/100000011037618/canada-neighbor-or-51st-state.html
-
-**A Lakers Jacket, Bought for $3 at Goodwill, Fetches Nearly $90,000 at Auction**\
-`Quinn Brown, a 19-year-old thrifter from Portland, Ore., bought a warm-up jacket worn by Wilt Chamberlain for $3.07. Six months later, Sotheby’s auctioned it off for $89,600.`\
-https://www.nytimes.com/2026/07/23/us/lakers-wilt-chamberlain-jacket-auction.html
-
-**‘Trying and Failing’ in Iran**\
-`What message is America’s performance in the Iran war sending the rest of the world? Elbridge Colby, under secretary of defense for policy, argues on “Interesting Times” that it’s one of American strength.`\
-https://www.nytimes.com/video/opinion/100000011037619/canada-neighbor-or-51st-state.html
-
-**Trump and Thune Clash Over SAVE America Act**\
-`A White House spokeswoman said President Trump’s patience was running thin. The top Senate Republican said she should try finding the votes.`\
-https://www.nytimes.com/2026/07/23/us/politics/trump-thune-senate-election-bill.html
-
-**El gobierno de Trump retirará las citaciones emitidas a periodistas del Times**\
-`Un juez federal cuestionó el manejo de las citaciones por parte del gobierno, las cuales el Times calificó como un intento de intimidar a la prensa libre.`\
-https://www.nytimes.com/es/2026/07/23/espanol/negocios/trump-citatorios-periodistas-new-york-times.html
-
-**Bear Dies After Getting Stranded Atop Electric Pole in New Mexico**\
-`The animal’s plight alarmed onlookers and highlighted the drought conditions that are forcing wild bears closer to where people live in search of food.`\
-https://www.nytimes.com/2026/07/23/us/new-mexico-bear-electrical-pole-death.html
-
-**Tugboat Captain Pleads Guilty in Miami Crash That Killed 3 Children**\
-`Prosecutors said the captain’s view was blocked as the barge he was pushing struck a sailboat carrying young campers and a counselor on Biscayne Bay.`\
-https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty.html
-
-**Salman Rushdie Recalls ‘Lake of Blood’ in Testimony Against His Attacker**\
-`Mr. Rushdie, an author, testified about the 2022 stabbing in upstate New York, where he was speaking at a literary festival. He was left blind in one eye, with scars all over his body.`\
-https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
 

@@ -1,3 +1,7 @@
+**Timeline: How a College Test Scandal Grew Into a Youth Movement in India**\
+`What began with an exam leak scandal in May has grown into a much wider campaign over government accountability. Here’s how the youth-led movement unfolded.`\
+https://www.nytimes.com/interactive/2026/07/24/world/asia/india-protest-cockroach-party-timeline.html
+
 **Faced With Heat and Wildfires, France Turns to Spain to Learn How to Cope**\
 `A French government delegation will travel to its southern neighbor to learn how it copes with long spells of hot weather.`\
 https://www.nytimes.com/2026/07/24/world/europe/france-spain-climate-heat-wildfires.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty
 **Salman Rushdie Recalls ‘Lake of Blood’ in Testimony Against His Attacker**\
 `Mr. Rushdie, an author, testified about the 2022 stabbing in upstate New York, where he was speaking at a literary festival. He was left blind in one eye, with scars all over his body.`\
 https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
-
-**2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
-`A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
-https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
 
