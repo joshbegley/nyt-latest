@@ -1,3 +1,7 @@
+**Faced With Heat and Wildfires, France Turns to Spain to Learn How to Cope**\
+`A French government delegation will travel to its southern neighbor to learn how it copes with long spells of hot weather.`\
+https://www.nytimes.com/2026/07/24/world/europe/france-spain-climate-heat-wildfires.html
+
 **Spider-Man Helps Man in Wheelchair Cross Busy Street**\
 `A man dressed as Spider-Man helped a person in a wheelchair cross a busy street in Arkansas on Tuesday.`\
 https://www.nytimes.com/video/us/100000011050664/spiderman-wheelchair-jonesboro-arkansas.html

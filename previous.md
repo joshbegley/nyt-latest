@@ -1,3 +1,7 @@
+**Faced With Heat and Wildfires, France Turns to Spain to Learn How to Cope**\
+`A French government delegation will travel to its southern neighbor to learn how it copes with long spells of hot weather.`\
+https://www.nytimes.com/2026/07/24/world/europe/france-spain-climate-heat-wildfires.html
+
 **Spider-Man Helps Man in Wheelchair Cross Busy Street**\
 `A man dressed as Spider-Man helped a person in a wheelchair cross a busy street in Arkansas on Tuesday.`\
 https://www.nytimes.com/video/us/100000011050664/spiderman-wheelchair-jonesboro-arkansas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court
 **2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
 `A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
-
-**Senators Ask Hegseth to Fully Account for U.S. Troops Killed or Wounded in Iran**\
-`The 12 Democratic senators on the Armed Services Committee said Defense Secretary Pete Hegseth’s department had not provided “timely and comprehensive” reporting on casualties during the war.`\
-https://www.nytimes.com/2026/07/23/world/middleeast/iran-war-us-troops-hegseth-casualties.html
 
