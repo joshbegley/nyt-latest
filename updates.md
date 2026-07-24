@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Jul. 24, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-headlines/the-headlines-news-quiz-jul-24-2026.html
+
 **Could ‘Trump Accounts’ Actually Close the Wealth Gap?**\
 `The investment accounts created in last year’s tax bill allow babies to receive a $1,000 deposit from the federal government.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-daily/trump-accounts.html
