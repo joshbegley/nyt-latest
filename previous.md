@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html
 `Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated an air campaign.`\
 https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
 
-**5 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
-`The authorities said four Palestinians and an Israeli were killed in the incident. The details of events remain unclear, with officials offering differing accounts.`\
+**6 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
+`The authorities said four Palestinians and two Israelis were killed in the incident. The details of events remain unclear, with officials giving differing accounts.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
 
 **A Big Day for Math**\

@@ -1,3 +1,7 @@
+**6 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
+`The authorities said four Palestinians and two Israelis were killed in the incident. The details of events remain unclear, with officials giving differing accounts.`\
+https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
+
 **Who Is Ahead in Virginia's 2nd Congressional District?**\
 `Track the latest polls in Virginia's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
