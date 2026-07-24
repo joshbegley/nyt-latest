@@ -1,3 +1,7 @@
+**¿Esta nueva enzima puede retroceder el reloj en el cuerpo humano?**\
+`En un estudio reciente, unos científicos idearon una manera de revertir la acumulación de compuestos que conducen a algunas enfermedades relacionadas con la edad.`\
+https://www.nytimes.com/es/2026/07/24/espanol/ciencia-y-tecnologia/enzima-envejecimiento-longevidad-edad.html
+
 **Cornell, Northwestern and Other Universities Plan for Classes at Middle East Campuses**\
 `Even after the collapse of the cease-fire between the United States and Iran, American universities expect to teach in Qatar and the United Arab Emirates, and a new outpost is on track to open in Saudi Arabia.`\
 https://www.nytimes.com/2026/07/24/us/middle-east-campuses-american-universities.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/pageoneplus/corrections-july-24-2026.html
 **If You Dislike Summer, Here’s How to Get Through It**\
 `If you need help staying positive in the midst of heat waves and out-of-office disruptions, start with these tips.`\
 https://www.nytimes.com/2026/07/24/well/hate-summer-tips.html
-
-**Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 31 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 12.`\
-https://www.nytimes.com/2026/07/24/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
 
