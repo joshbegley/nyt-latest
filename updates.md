@@ -1,3 +1,35 @@
+**Could ‘Trump Accounts’ Actually Close the Wealth Gap?**\
+`The investment accounts created in last year’s tax bill allow babies to receive a $1,000 deposit from the federal government.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-daily/trump-accounts.html
+
+**The Cost of Trump’s New Tariffs, and the $100 Million Popcorn Bucket Market**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-headlines/trump-new-tariffs-popcorn-bucket.html
+
+**NYT Connections Answers for July 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/24/crosswords/connections-companion-1140.html
+
+**NYT Strands Hints for July 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/24/crosswords/strands-sidekick-874.html
+
+**Today’s Wordle Hints for July 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/24/crosswords/wordle-review-1862.html
+
+**South Korea A.I. Billionaire Ordered to Pay More Than Half a Billion Dollars in ‘Divorce of the Century’**\
+`A South Korean court awarded $644 million to Roh Soh-yeong, who had sought much more from her ex-husband, Chey Tae-won, the head of the conglomerate behind SK Hynix.`\
+https://www.nytimes.com/2026/07/24/world/asia/korea-chey-tae-won-sk-hynix-divorce.html
+
+**Iran War and Trump’s Tariffs Threaten a Resilient U.S. Economy**\
+`As renewed fighting with Iran sends oil and gas prices soaring, President Trump has imposed new global tariffs that could push up prices further.`\
+https://www.nytimes.com/2026/07/24/business/iran-war-tariffs-economy.html
+
+**How a Grieving Trump Decided to Back Lindsey Graham’s Sister for Senate**\
+`The president initially backed a little-known congressman. Then he talked to Gov. Henry McMaster and Ms. Graham herself.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-lindsey-graham-sister-darline-senate.html
+
 **India’s Young Protesters Take Aim at Modi With Creative Signs**\
 `India’s young protesters are taking aim at Prime Minister Narendra Modi with creative signs and slogans across the country.`\
 https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-cjp-protest-signs.html
