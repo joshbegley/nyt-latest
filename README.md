@@ -1,3 +1,7 @@
+**A Spiritual Scammer Anthem**\
+`Yung Miami’s “Spend Dat” has been one of this summer’s biggest songs and has also fueled controversy around its discussion of money, power and dating. Our critic Jon Caramanica explores how the song flirts with neo-soul production to create an ethereal rap hit.`\
+https://www.nytimes.com/video/podcasts/100000011052640/a-spiritual-scammer-anthem.html
+
 **‘Suspicious’ House Fire in Michigan Kills 6 Children and 2 Adults**\
 `Arson investigators from the Michigan State Police were called to the scene of the fire in Grand Haven Township, near the eastern shore of Lake Michigan, on Friday.`\
 https://www.nytimes.com/2026/07/24/us/house-fire-michigan-grand-haven.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/style/loafer-ruched.html
 **Concerns About the U.S.-Saudi Nuclear Deal**\
 `Readers fear the deal could lead to the development of nuclear weapons and lessen prospects for peace. Also: The Strait of Hormuz; the four-day workweek.`\
 https://www.nytimes.com/2026/07/24/opinion/us-saudi-nuclear-deal.html
-
-**Who Is Ahead in Virginia's 2nd Congressional District?**\
-`Track the latest polls in Virginia's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
 
