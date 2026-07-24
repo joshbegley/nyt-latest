@@ -1,3 +1,27 @@
+**Man in a Spider-Man Costume Rides to the Rescue in Arkansas**\
+`Was that Peter Parker helping a man in a wheelchair cross an intersection? No, it was Chris Hellenthal, a college student returning from a summer job.`\
+https://www.nytimes.com/2026/07/24/us/spiderman-wheelchair-jonesboro-arkansas.html
+
+**La devastación causada por los sismos muestra la desigualdad en Venezuela**\
+`Ante la escasez de maquinaria pesada, los venezolanos más ricos pudieron alquilar equipos privados para ayudar en su búsqueda, mientras los que no tienen recursos deben esperar por los equipos del gobierno.`\
+https://www.nytimes.com/es/2026/07/24/espanol/america-latina/terremotos-venezuela-dinero.html
+
+**Iran War Live Updates: Strikes Persist After Iran Is Said to Reject U.S. Proposal**\
+`American forces conducted another round of attacks on Iran, which launched drone strikes at U.S. targets in the Gulf. Iran was said to have rejected a cease-fire proposal from President Trump.`\
+https://www.nytimes.com/live/2026/07/24/world/iran-war-us-strikes-trump-oil
+
+**Is It OK to Shout at the Movies?**\
+`A ruling on a theater etiquette dispute.`\
+https://www.nytimes.com/interactive/2026/07/24/magazine/movie-yelling-cheers-hodgman-quiz.html
+
+**Iran War and Trump’s Tariffs Threaten a Resilient US Economy**\
+`As renewed fighting with Iran sends oil and gas prices soaring, President Trump has imposed new global tariffs that could push up prices further.`\
+https://www.nytimes.com/2026/07/24/business/iran-war-tariffs-economy.html
+
+**How a Grieving Trump Decided to Back Lindsey Graham’s Sister for Senate**\
+`The president initially backed a little-known congressman. Then he talked to Gov. Henry McMaster and Ms. Graham herself.`\
+https://www.nytimes.com/2026/07/24/us/politics/how-a-grieving-trump-decided-to-back-lindsey-grahams-sister-for-senate.html
+
 **As Canada Opens Gordie Howe International Bridge, Americans Are Told to Stay Home**\
 `After a delay ordered by President Trump and new tariffs against Canada, the bridge between Windsor, Ontario, and Detroit opens in “underwhelming” fashion on Friday.`\
 https://www.nytimes.com/2026/07/24/world/canada/canada-gordie-howe-bridge-trump.html

@@ -1,3 +1,27 @@
+**Man in a Spider-Man Costume Rides to the Rescue in Arkansas**\
+`Was that Peter Parker helping a man in a wheelchair cross an intersection? No, it was Chris Hellenthal, a college student returning from a summer job.`\
+https://www.nytimes.com/2026/07/24/us/spiderman-wheelchair-jonesboro-arkansas.html
+
+**La devastación causada por los sismos muestra la desigualdad en Venezuela**\
+`Ante la escasez de maquinaria pesada, los venezolanos más ricos pudieron alquilar equipos privados para ayudar en su búsqueda, mientras los que no tienen recursos deben esperar por los equipos del gobierno.`\
+https://www.nytimes.com/es/2026/07/24/espanol/america-latina/terremotos-venezuela-dinero.html
+
+**Iran War Live Updates: Strikes Persist After Iran Is Said to Reject U.S. Proposal**\
+`American forces conducted another round of attacks on Iran, which launched drone strikes at U.S. targets in the Gulf. Iran was said to have rejected a cease-fire proposal from President Trump.`\
+https://www.nytimes.com/live/2026/07/24/world/iran-war-us-strikes-trump-oil
+
+**Is It OK to Shout at the Movies?**\
+`A ruling on a theater etiquette dispute.`\
+https://www.nytimes.com/interactive/2026/07/24/magazine/movie-yelling-cheers-hodgman-quiz.html
+
+**Iran War and Trump’s Tariffs Threaten a Resilient US Economy**\
+`As renewed fighting with Iran sends oil and gas prices soaring, President Trump has imposed new global tariffs that could push up prices further.`\
+https://www.nytimes.com/2026/07/24/business/iran-war-tariffs-economy.html
+
+**How a Grieving Trump Decided to Back Lindsey Graham’s Sister for Senate**\
+`The president initially backed a little-known congressman. Then he talked to Gov. Henry McMaster and Ms. Graham herself.`\
+https://www.nytimes.com/2026/07/24/us/politics/how-a-grieving-trump-decided-to-back-lindsey-grahams-sister-for-senate.html
+
 **As Canada Opens Gordie Howe International Bridge, Americans Are Told to Stay Home**\
 `After a delay ordered by President Trump and new tariffs against Canada, the bridge between Windsor, Ontario, and Detroit opens in “underwhelming” fashion on Friday.`\
 https://www.nytimes.com/2026/07/24/world/canada/canada-gordie-howe-bridge-trump.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/television/jimmy-fallon-trump-pinky-herm
 **Brent Crude Oil Prices Top $100 as Conflict With Iran Drags On**\
 `Stocks in Asia were down following a sell-off in the U.S. markets over soaring oil prices, rising borrowing costs and worries about the technology industry.`\
 https://www.nytimes.com/2026/07/24/business/oil-prices-global-stocks-shipping.html
-
-**Trump’s Global Tariffs: What’s the Latest on the Trade War**\
-`The president has unveiled a complicated system to forge ahead with his trade war, after the Supreme Court stuck down his original levies.`\
-https://www.nytimes.com/article/trump-tariffs-trade.html
-
-**Quote of the Day: A Daring Escape From a ‘Prison Without Bars’**\
-`Quotation of the Day for Friday, July 24, 2026.`\
-https://www.nytimes.com/2026/07/24/pageoneplus/quote-of-the-day-a-daring-escape-from-a-prison-without-bars.html
-
-**I Hadn’t Planned on a Love Triangle**\
-`Bring on the ticks, bears and ice storms, but don’t make me choose between two men.`\
-https://www.nytimes.com/2026/07/24/style/modern-love-i-hadnt-planned-on-a-love-triangle.html
-
-**Before They Opened a Cafe, Their Partnership Was Already Baked in.**\
-`Micaéla Verrelien found in Christopher Sidwell the partner she longed for. Together they built Sweet Fire Café & Studio and a life in Brooklyn.`\
-https://www.nytimes.com/2026/07/24/style/micaela-verrelien-christopher-sidwell-wedding.html
-
-**It Took Him Three Years (and Their Wedding) to Respond to Her Email**\
-`Katitia Marietta was so captivated by Michael Wade Smith’s speech that she peppered him with questions afterward. Months later, he invited her to a party at his home.`\
-https://www.nytimes.com/2026/07/24/style/katitia-marietta-michael-smith-wedding.html
-
-**She Was Warned About Rock ’n’ Roll Marriages. She Didn’t Listen.**\
-`One could say Raquel Figlo and Brian Bell, two lifelong rock fans, sealed their relationship with a Kiss — the iconic rock band, that is.`\
-https://www.nytimes.com/2026/07/24/style/raquel-figlo-brian-bell-wedding.html
 
