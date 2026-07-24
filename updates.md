@@ -1,3 +1,35 @@
+**Trump’s Global Tariffs: What’s the Latest on the Trade War**\
+`The president has unveiled a complicated system to forge ahead with his trade war, after the Supreme Court stuck down his original levies.`\
+https://www.nytimes.com/article/trump-tariffs-trade.html
+
+**Quote of the Day: A Daring Escape From a ‘Prison Without Bars’**\
+`Quotation of the Day for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/24/pageoneplus/quote-of-the-day-a-daring-escape-from-a-prison-without-bars.html
+
+**I Hadn’t Planned on a Love Triangle**\
+`Bring on the ticks, bears and ice storms, but don’t make me choose between two men.`\
+https://www.nytimes.com/2026/07/24/style/modern-love-i-hadnt-planned-on-a-love-triangle.html
+
+**Before They Opened a Cafe, Their Partnership Was Already Baked in.**\
+`Micaéla Verrelien found in Christopher Sidwell the partner she longed for. Together they built Sweet Fire Café & Studio and a life in Brooklyn.`\
+https://www.nytimes.com/2026/07/24/style/micaela-verrelien-christopher-sidwell-wedding.html
+
+**It Took Him Three Years (and Their Wedding) to Respond to Her Email**\
+`Katitia Marietta was so captivated by Michael Wade Smith’s speech that she peppered him with questions afterward. Months later, he invited her to a party at his home.`\
+https://www.nytimes.com/2026/07/24/style/katitia-marietta-michael-smith-wedding.html
+
+**She Was Warned About Rock ’n’ Roll Marriages. She Didn’t Listen.**\
+`One could say Raquel Figlo and Brian Bell, two lifelong rock fans, sealed their relationship with a Kiss — the iconic rock band, that is.`\
+https://www.nytimes.com/2026/07/24/style/raquel-figlo-brian-bell-wedding.html
+
+**Their ‘Neurospiciness’ Integrated Well**\
+`“I know there will never be a dull moment,” said Daniel Rubin of Marjorie Kase. “My brain will always be entertained by her.”`\
+https://www.nytimes.com/2026/07/24/style/marjorie-kase-daniel-rubin-wedding.html
+
+**It Was Love at First Saxophone Note**\
+`Aubrey Dela Cruz and Rylan Nordbeck met at a backyard concert. Sparks flew when she heard him play a solo to a Taylor Swift song.`\
+https://www.nytimes.com/2026/07/24/style/aubrey-dela-cruz-rylan-nordbeck-wedding.html
+
 **Flourless Carrot Almond Crunch Cake**\
 `This supermoist, dairy-free, gluten-free almond cake has a lot going for it. The cake is flavored with a bit of lemon zest and finely grated carrots that seem to melt into the cake, adding moisture and a pleasantly chewy texture.`\
 https://www.nytimes.com/video/dining/100000011050425/flourless-carrot-almond-crunch-cake.html
