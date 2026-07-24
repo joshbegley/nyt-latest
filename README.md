@@ -1,3 +1,7 @@
+**Can We Destigmatize Menopause Care?**\
+`The menopause revolution is here. So why is this inevitable part of aging for women still underdiagnosed and undertreated? Rather than suffer in silence, the Times columnist Tressie McMillan Cottom argues, ”it’s time to force the issue on our medical providers.”`\
+https://www.nytimes.com/video/opinion/100000011027896/can-we-destigmatize-menopause-care.html
+
 **Let’s Try This Again: A Do-Over Dinner for White House Correspondents**\
 `President Trump remains the evening’s keynote speaker, as relations between his administration and the press continue to deteriorate.`\
 https://www.nytimes.com/2026/07/24/business/media/white-house-correspondents-dinner.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/24/upshot/flashback.html
 **Stream These 5 Movies Before They Leave Netflix in August**\
 `Notable titles leaving for U.S. subscribers include a stunning literary adaptation and the movie that made Eddie Murphy a cinema star.`\
 https://www.nytimes.com/2026/07/24/arts/television/netflix-expiring-august.html
-
-**Coca-Cola’s New Branding Reminds People of Marlboro**\
-`After the soda company introduced a new brand design, some fans spotted similarities to the typeface used by the cigarette brand. Enter the font nerds.`\
-https://www.nytimes.com/2026/07/24/dining/coca-cola-marlboro.html
 

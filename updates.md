@@ -1,3 +1,11 @@
+**Let’s Try This Again: A Do-Over Dinner for White House Correspondents**\
+`President Trump remains the evening’s keynote speaker, as relations between his administration and the press continue to deteriorate.`\
+https://www.nytimes.com/2026/07/24/business/media/white-house-correspondents-dinner.html
+
+**Democrats Vote to Put South Carolina First in 2028 Primary**\
+`Along with Nevada, New Hampshire, New Mexico, Michigan and Virginia, the state will help decide the party’s next presidential nominee.`\
+https://www.nytimes.com/2026/07/24/us/politics/democrats-south-carolina-nevada-2028-presidential-race.html
+
 **U.S. Measles Cases Hit a Record**\
 `Also, an Iranian threat prompted Trump’s Air Force One swap. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/07/24/briefing/us-measles-cases-hit-a-record.html
