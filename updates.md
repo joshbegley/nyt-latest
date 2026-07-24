@@ -1,3 +1,11 @@
+**Trump’s Threatened New Front in Iran War Could Strain U.S. Forces**\
+`President Trump has said he would expand the war if the Iran-backed Houthi militants launched additional attacks.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-new-front-iran-war.html
+
+**How a Summer of War With Iran Could Shape the Fall Elections**\
+`President Trump and Republicans can’t seem to escape the political fallout of the conflict.`\
+https://www.nytimes.com/2026/07/24/us/politics/republicans-trump-iran-war-midterms.html
+
 **F.D.A. Panel’s Vote on Peptides Raises Concerns About a Prescribing Boom**\
 `The committee endorsed broader use of the peptides in lightly regulated compounding pharmacies that have grown into a multibillion-dollar business.`\
 https://www.nytimes.com/2026/07/24/us/politics/fda-panel-vote-peptides.html
