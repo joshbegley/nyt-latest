@@ -1,3 +1,19 @@
+**5 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
+`The authorities said four Palestinians and an Israeli were killed in the incident. The details of events remain unclear, with officials offering differing accounts.`\
+https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
+
+**A Big Day for Math**\
+`Yesterday was a big day for mathematics. We look at the winners of the Fields Medal.`\
+https://www.nytimes.com/2026/07/24/briefing/a-big-day-for-math.html
+
+**Meta Launches New Facebook Marketplace App Called Seller**\
+`Seller is part of the Silicon Valley company’s strategy to innovate on its original social network.`\
+https://www.nytimes.com/2026/07/24/technology/meta-facebook-marketplace-seller.html
+
+**OpenAI Models Go Rogue + Kimi K3 Freakout + A.I. Superforecasting**\
+`“The story that we’re talking about in this segment was science fiction until Tuesday, OK?”`\
+https://www.nytimes.com/2026/07/24/podcasts/hardfork-hugging-face-openai.html
+
 **With Hopes High for New H.I.V. Prevention Pill, Merck Takes Steps to Ensure Access**\
 `Companies in Africa and India will make generic versions of the pill that could cost as little as $5 per person per year. But access to the drug and other new products in much of Latin America remains uncertain.`\
 https://www.nytimes.com/2026/07/24/us/politics/merck-hiv-pill.html
