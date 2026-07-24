@@ -1,3 +1,35 @@
+**Trump’s Global Tariffs: What’s the Latest on the Trade War**\
+`The president has unveiled a complicated system to forge ahead with his trade war, after the Supreme Court stuck down his original levies.`\
+https://www.nytimes.com/article/trump-tariffs-trade.html
+
+**Quote of the Day: A Daring Escape From a ‘Prison Without Bars’**\
+`Quotation of the Day for Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/24/pageoneplus/quote-of-the-day-a-daring-escape-from-a-prison-without-bars.html
+
+**I Hadn’t Planned on a Love Triangle**\
+`Bring on the ticks, bears and ice storms, but don’t make me choose between two men.`\
+https://www.nytimes.com/2026/07/24/style/modern-love-i-hadnt-planned-on-a-love-triangle.html
+
+**Before They Opened a Cafe, Their Partnership Was Already Baked in.**\
+`Micaéla Verrelien found in Christopher Sidwell the partner she longed for. Together they built Sweet Fire Café & Studio and a life in Brooklyn.`\
+https://www.nytimes.com/2026/07/24/style/micaela-verrelien-christopher-sidwell-wedding.html
+
+**It Took Him Three Years (and Their Wedding) to Respond to Her Email**\
+`Katitia Marietta was so captivated by Michael Wade Smith’s speech that she peppered him with questions afterward. Months later, he invited her to a party at his home.`\
+https://www.nytimes.com/2026/07/24/style/katitia-marietta-michael-smith-wedding.html
+
+**She Was Warned About Rock ’n’ Roll Marriages. She Didn’t Listen.**\
+`One could say Raquel Figlo and Brian Bell, two lifelong rock fans, sealed their relationship with a Kiss — the iconic rock band, that is.`\
+https://www.nytimes.com/2026/07/24/style/raquel-figlo-brian-bell-wedding.html
+
+**Their ‘Neurospiciness’ Integrated Well**\
+`“I know there will never be a dull moment,” said Daniel Rubin of Marjorie Kase. “My brain will always be entertained by her.”`\
+https://www.nytimes.com/2026/07/24/style/marjorie-kase-daniel-rubin-wedding.html
+
+**It Was Love at First Saxophone Note**\
+`Aubrey Dela Cruz and Rylan Nordbeck met at a backyard concert. Sparks flew when she heard him play a solo to a Taylor Swift song.`\
+https://www.nytimes.com/2026/07/24/style/aubrey-dela-cruz-rylan-nordbeck-wedding.html
+
 **Flourless Carrot Almond Crunch Cake**\
 `This supermoist, dairy-free, gluten-free almond cake has a lot going for it. The cake is flavored with a bit of lemon zest and finely grated carrots that seem to melt into the cake, adding moisture and a pleasantly chewy texture.`\
 https://www.nytimes.com/video/dining/100000011050425/flourless-carrot-almond-crunch-cake.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/07/23/us/politics/clint-reilly-dead.html
 **Illinois Changes Tack on Data Centers**\
 `At the Aspen Ideas climate conference, Gov. JB Pritzker spoke about disincentivizing data centers instead of providing financial incentives.`\
 https://www.nytimes.com/2026/07/23/climate/data-centers-pritzker.html
-
-**Ante el brote de ciclosporiasis, EE. UU. deja de consumir ensaladas**\
-`La clientela de cadenas de restaurantes como Chipotle y Chopt ha caído desde que comenzaron los avisos sobre infecciones por “Cyclospora” relacionadas con la lechuga en EE. UU.`\
-https://www.nytimes.com/es/2026/07/23/espanol/negocios/cyclospora-brote-lechuga-restaurantes.html
-
-**Place Names Change With Time, and That’s OK**\
-`What’s in a name? Depends where you are.`\
-https://www.nytimes.com/2026/07/23/opinion/place-names-pronunciation-language.html
-
-**Three Excellent Restaurants from Fine-Dining Dropouts**\
-`At these restaurants the chefs have hung up their tweezers to focus on the kind of casual food you can enjoy any day of the week.`\
-https://www.nytimes.com/2026/07/23/dining/fine-casual.html
-
-**As A.I. Backlash Grows, Trump Says Firms Should Pay More for Electricity**\
-`The effort to prevent data centers from driving up electric bills could be hard to enforce, but it’s a sign of growing concern for the White House.`\
-https://www.nytimes.com/2026/07/23/climate/trump-ai-data-centers.html
-
-**Trump’s New Demand for Nuclear Deal Puts Saudis in a Bind**\
-`Saudi Arabia has long said that a condition of normalizing relations with Israel would be a pathway toward Palestinian statehood, a prospect that Israel’s current government has rejected.`\
-https://www.nytimes.com/2026/07/23/world/middleeast/trump-saudi-arabia-palestinian-state.html
-
-**U.S. Withdraws Subpoenas Issued to New York Times Journalists**\
-`A federal judge raised questions about the government’s handling of the subpoenas, which The Times called an attempt to intimidate the free press.`\
-https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html
-
-**ICE Targets ‘Detention Desert’ With New Facility in North Carolina**\
-`Even as ICE has retreated from its plan to buy warehouses, the new complex near the Virginia border signals that the agency remains determined to increase its detention capacity.`\
-https://www.nytimes.com/2026/07/23/us/winton-nc-ice-detention-center.html
-
-**Governor Resists U.S. Demand for Names of Noncitizens on Voting Rolls**\
-`The Justice Department gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
-https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-department.html
 
