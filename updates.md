@@ -1,3 +1,7 @@
+**How ‘The Odyssey’ Outsmarts Itself, With Wesley Morris**\
+`Pablo and Wesley Morris deconstruct Christopher Nolan’s auteur architecture.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-odyssey-wesley-morris-cannonball.html
+
 **How ‘The Odyssey’ Outsmarts Itself**\
 `Pablo and Wesley Morris deconstruct Christopher Nolan’s auteur architecture.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-odyssey-wesley-morris-cannonball.html
