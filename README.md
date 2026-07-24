@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/07/24/business/dealbook/trump-trade-war-economy.htm
 `President Mohammed Shahabuddin stepped down as speculation swirled over the possible return of his onetime ally Sheikh Hasina, who was ousted as prime minister and fled to India.`\
 https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html
 
-**Russia and Ukraine Trade Blows With Missiles and Drones**\
-`Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated a deadly air campaign.`\
+**Russia and Ukraine Trade Deadly Blows With Missiles and Drones**\
+`Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated an air campaign.`\
 https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
 
 **5 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
