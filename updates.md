@@ -1,3 +1,15 @@
+**Paramount Agrees to Delay Warner Bros. Merger for Months**\
+`The company agreed to a proposed freeze until June 2027, unless a judge issues a ruling before then on a lawsuit blocking the deal.`\
+https://www.nytimes.com/2026/07/24/business/media/paramount-warner-bros-merger-delayed.html
+
+**Teachers’ Union Boss Vows ‘All-Out-War’ if Mamdani Doesn’t Back Bonuses**\
+`Teaching assistants, who are among the lowest-paid workers in New York City’s public schools, would get one-time payments of $10,000.`\
+https://www.nytimes.com/2026/07/24/nyregion/nyc-mamdani-teachers-union-bonuses.html
+
+**A Turkish Governor Was Ousted. Were Bicycling Tights to Blame?**\
+`Mehmet Fatih Cicekli posted some social media content of himself in workout gear. Then he lost his job.`\
+https://www.nytimes.com/2026/07/24/world/asia/turkey-governor-fired-cycling-shorts.html
+
 **El brote de ciclosporiasis se extiende a 9 estados de EE. UU.**\
 `Illinois, Kansas, Oklahoma y Pensilvania se unen ahora a Míchigan, Ohio, Indiana, Kentucky y Virginia Occidental en el brote de “Cyclospora” vinculado a la lechuga iceberg.`\
 https://www.nytimes.com/es/2026/07/24/espanol/brote-ciclosporiasis-casos-diarrea-lechuga.html
