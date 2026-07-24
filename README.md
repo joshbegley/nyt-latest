@@ -1,3 +1,7 @@
+**Flourless Carrot Almond Crunch Cake**\
+`This supermoist, dairy-free, gluten-free almond cake has a lot going for it. The cake is flavored with a bit of lemon zest and finely grated carrots that seem to melt into the cake, adding moisture and a pleasantly chewy texture.`\
+https://www.nytimes.com/video/dining/100000011050425/flourless-carrot-almond-crunch-cake.html
+
 **What Will It Take to Make a U.S.-Saudi Arabia Nuclear Deal Happen?**\
 `David E. Sanger, a national security correspondent for The New York Times, explains what the nuclear agreement between the U.S. and Saudi Arabia is designed to do, and what challenges it may face to go in to effect.`\
 https://www.nytimes.com/video/us/100000011046264/what-will-it-take-to-make-a-us-saudi-arabia-nuclear-deal-happen.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/us/winton-nc-ice-detention-center.html
 **Governor Resists U.S. Demand for Names of Noncitizens on Voting Rolls**\
 `The Justice Department gave New Jersey five days to hand over the names of over 6,000 noncitizens on the state’s voter rolls. Gov. Mikie Sherrill said they were registered “through no fault of their own.”`\
 https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-department.html
-
-**Key Republican Senator Says He Will Support Erica Schwartz for C.D.C. Director**\
-`Senator Bill Cassidy, who is believed to hold the deciding vote in the Senate health committee for Dr. Erica Schwartz’s confirmation, had declined for days to say whether he would back her.`\
-https://www.nytimes.com/2026/07/23/health/erica-schwartz-cdc-vote.html
 
