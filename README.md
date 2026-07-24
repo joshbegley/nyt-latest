@@ -1,3 +1,7 @@
+**A la generación Z no le obsesiona el éxito laboral, y no los culpo**\
+`Para los graduados universitarios de la generación Z, la manera en que los milénials vivieron sus ambiciones ya no tiene sentido.`\
+https://www.nytimes.com/es/2026/07/24/espanol/opinion/generacion-z-exito-trabajo.html
+
 **‘La odisea’ alquiló un barco vikingo. Dicen que lo dañaron**\
 `Un centro vikingo sueco dijo que su embarcación se usó en la filmación de la película de Christopher Nolan, pero que necesitaba reparaciones cuando fue devuelta. Ahora, busca compensación.`\
 https://www.nytimes.com/es/2026/07/24/espanol/cultura/odisea-barco-vikingo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/world/middleeast/iran-war-us-troops-hegseth-c
 **Trump, His Money, and the World**\
 `Donald Trump’s growing wealth while in office could have an impact on anti-corruption efforts around the world.`\
 https://www.nytimes.com/2026/07/23/world/trump-foreign-deals-wealth-saudi.html
-
-**What to Know About Iran and the Houthis**\
-`The Yemeni militant group appeared to open a new front in the conflict between its backer, Iran, and the United States, by attacking ships and announcing a blockade on a strategic waterway.`\
-https://www.nytimes.com/2026/07/23/world/middleeast/what-to-know-iran-houthis.html
 
