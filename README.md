@@ -1,3 +1,7 @@
+**The G.O.P.’s New Red Scare**\
+`What does the Republican Party do if it’s not on track to win an election? Blame communism, of course! But according to the Times columnist Jamelle Bouie, “There isn’t a communist wave waiting to take over America.“ Instead, he says, this “red scare” is just a distraction from the Republicans’ failure to do anything they promised to do.`\
+https://www.nytimes.com/video/opinion/100000011046807/the-gops-new-red-scare.html
+
 **Can We Destigmatize Menopause Care?**\
 `The menopause revolution is here. So why is this inevitable part of aging for women still underdiagnosed and undertreated? Rather than suffer in silence, the Times columnist Tressie McMillan Cottom argues, ”it’s time to force the issue on our medical providers.”`\
 https://www.nytimes.com/video/opinion/100000011027896/can-we-destigmatize-menopause-care.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
 **Flashback: Your Weekly History Quiz, July 25, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/24/upshot/flashback.html
-
-**Stream These 5 Movies Before They Leave Netflix in August**\
-`Notable titles leaving for U.S. subscribers include a stunning literary adaptation and the movie that made Eddie Murphy a cinema star.`\
-https://www.nytimes.com/2026/07/24/arts/television/netflix-expiring-august.html
 
