@@ -1,3 +1,7 @@
+**‘Suspicious’ House Fire in Michigan Kills 6 Children and 2 Adults**\
+`Arson investigators from the Michigan State Police were called to the scene of the fire in Grand Haven Township, near the eastern shore of Lake Michigan, on Friday.`\
+https://www.nytimes.com/2026/07/24/us/house-fire-michigan-grand-haven.html
+
 **Canadá inaugura un importante puente internacional sin invitar a EE. UU.**\
 `La apertura de la nueva conexión fronteriza entre Detroit y Windsor quedó marcada por las tensiones comerciales y políticas provocadas por el presidente Trump.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/canada-puente-estados-unidos-trump.html
