@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juic
 https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
 
 **Measles Cases Hit New Record in U.S., as Vaccination Rates Wane**\
-`The Trump administration has sent mixed messages on vaccinations against measles as cases have continued to climb.`\
+`More measles cases have been reported in the United States in the last two years than in all the years from 2000 through 2024 combined.`\
 https://www.nytimes.com/2026/07/24/well/measles-record-united-states-numbers.html
 
 **Los ganadores y perdedores económicos del Mundial**\
