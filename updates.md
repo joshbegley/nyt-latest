@@ -1,3 +1,11 @@
+**Francia mira a España para ayudarse a combatir el calor**\
+`Una delegación del gobierno francés viajará a su vecino del sur para aprender cómo este sobrelleva los largos periodos de clima caluroso.`\
+https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
+
+**Measles Cases Hit New Record in U.S., as Vaccination Rates Wane**\
+`More measles cases have been reported in the United States in the last two years than in all the years from 2000 through 2024 combined.`\
+https://www.nytimes.com/2026/07/24/well/measles-record-united-states-numbers.html
+
 **Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
 `Many Argentines condemned their players’ racist chants and aggressive behavior, but rejected what felt like a sweeping stigmatization of their entire nation.`\
 https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
