@@ -1,3 +1,7 @@
+**Russia and Ukraine Trade Blows With Missiles and Drones**\
+`Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated a deadly air campaign.`\
+https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
+
 **A Big Day for Math**\
 `Yesterday was a big day for mathematics. We look at the winners of the Fields Medals.`\
 https://www.nytimes.com/2026/07/24/briefing/a-big-day-for-math.html
