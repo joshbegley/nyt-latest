@@ -1,3 +1,15 @@
+**Car Condos Give Your Vehicle Luxury Housing**\
+`No longer satisfied by regular parking garages, some drivers are upgrading their luxury vehicles’ homes.`\
+https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
+
+**Flashback: Your Weekly History Quiz, July 25, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/24/upshot/flashback.html
+
+**Stream These 5 Movies Before They Leave Netflix in August**\
+`Notable titles leaving for U.S. subscribers include a stunning literary adaptation and the movie that made Eddie Murphy a cinema star.`\
+https://www.nytimes.com/2026/07/24/arts/television/netflix-expiring-august.html
+
 **Coca-Cola’s New Branding Reminds People of Marlboro**\
 `After the soda company introduced a new brand design, some fans spotted similarities to the typeface used by the cigarette brand. Enter the font nerds.`\
 https://www.nytimes.com/2026/07/24/dining/coca-cola-marlboro.html

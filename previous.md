@@ -1,3 +1,15 @@
+**Car Condos Give Your Vehicle Luxury Housing**\
+`No longer satisfied by regular parking garages, some drivers are upgrading their luxury vehicles’ homes.`\
+https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
+
+**Flashback: Your Weekly History Quiz, July 25, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/07/24/upshot/flashback.html
+
+**Stream These 5 Movies Before They Leave Netflix in August**\
+`Notable titles leaving for U.S. subscribers include a stunning literary adaptation and the movie that made Eddie Murphy a cinema star.`\
+https://www.nytimes.com/2026/07/24/arts/television/netflix-expiring-august.html
+
 **Coca-Cola’s New Branding Reminds People of Marlboro**\
 `After the soda company introduced a new brand design, some fans spotted similarities to the typeface used by the cigarette brand. Enter the font nerds.`\
 https://www.nytimes.com/2026/07/24/dining/coca-cola-marlboro.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-c
 **Phones in Hand, India’s Young Protesters Blast Through Modi’s Media Control**\
 `Prime Minister Narendra Modi’s tightly constructed image is being punctured as a Gen Z-led protest movement uses videos and memes to seize the digital narrative.`\
 https://www.nytimes.com/2026/07/24/world/asia/india-cockroach-party-cjp-protest-memes.html
-
-**How ‘The Odyssey’ Outsmarts Itself, With Wesley Morris**\
-`Pablo and Wesley Morris deconstruct Christopher Nolan’s auteur architecture.`\
-https://www.nytimes.com/2026/07/24/podcasts/the-odyssey-wesley-morris-cannonball.html
-
-**Man in a Spider-Man Costume Rides to the Rescue in Arkansas**\
-`Was that Peter Parker helping a man in a wheelchair cross an intersection? No, it was Chris Hellenthal, a college student returning from a summer job.`\
-https://www.nytimes.com/2026/07/24/us/spiderman-wheelchair-jonesboro-arkansas.html
-
-**La devastación causada por los sismos muestra la desigualdad en Venezuela**\
-`Ante la escasez de maquinaria pesada, los venezolanos más ricos pudieron alquilar equipos privados para ayudar en su búsqueda, mientras los que no tienen recursos deben esperar por los equipos del gobierno.`\
-https://www.nytimes.com/es/2026/07/24/espanol/america-latina/terremotos-venezuela-dinero.html
 

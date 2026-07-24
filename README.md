@@ -1,3 +1,7 @@
+**C.D.C. Expands Cyclospora Outbreak Linked to Iceberg Lettuce to Nine States**\
+`Illinois, Kansas, Oklahoma and Pennsylvania now join Michigan, Ohio, Indiana, Kentucky and West Virginia in cyclospora outbreak linked to iceberg lettuce.`\
+https://www.nytimes.com/2026/07/24/well/eat/cyclospora-outbreak-states-cdc.html
+
 **Car Condos Give Your Vehicle Luxury Housing**\
 `No longer satisfied by regular parking garages, some drivers are upgrading their luxury vehicles’ homes.`\
 https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/world/asia/korea-chey-tae-won-sk-hynix-divorc
 **India’s Young Protesters Take Aim at Modi With Creative Signs**\
 `India’s young protesters are taking aim at Prime Minister Narendra Modi with creative signs and slogans across the country.`\
 https://www.nytimes.com/video/world/asia/100000011050854/india-cockroach-party-cjp-protest-signs.html
-
-**Phones in Hand, India’s Young Protesters Blast Through Modi’s Media Control**\
-`Prime Minister Narendra Modi’s tightly constructed image is being punctured as a Gen Z-led protest movement uses videos and memes to seize the digital narrative.`\
-https://www.nytimes.com/2026/07/24/world/asia/india-cockroach-party-cjp-protest-memes.html
 
