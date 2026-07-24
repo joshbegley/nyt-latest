@@ -1,3 +1,7 @@
+**Brent Crude Oil Prices Top $100 as Conflict With Iran Drags On**\
+`Stocks in Asia were down following a sell-off in the U.S. markets over soaring oil prices, rising borrowing costs and worries about the technology industry.`\
+https://www.nytimes.com/2026/07/24/technology/oil-prices-global-stocks-shipping.html
+
 **Trump’s Global Tariffs: What’s the Latest on the Trade War**\
 `The president has unveiled a complicated system to forge ahead with his trade war, after the Supreme Court stuck down his original levies.`\
 https://www.nytimes.com/article/trump-tariffs-trade.html
