@@ -1,3 +1,7 @@
+**If You Dislike Summer, Here’s How to Get Through It**\
+`If you need help staying positive in the midst of heat waves and out-of-office disruptions, start with these tips.`\
+https://www.nytimes.com/2026/07/24/well/hate-summer-tips.html
+
 **Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 31 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 12.`\
 https://www.nytimes.com/2026/07/24/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/opinion/ai-workplace-manager-teamwork.html
 **Can This New Enzyme Turn Back the Clock in Bodily Tissues?**\
 `In a recent study, scientists devised a way of reversing the buildup of compounds that lead to some age-related diseases.`\
 https://www.nytimes.com/2026/07/24/science/enzymes-aging-cmlase.html
-
-**The Artist Behind Trump’s Legacy Projects**\
-`Matthew Taylor, a conceptual artist and filmmaker, has quietly become a key player behind many of President Trump’s plans to transform Washington and its cultural legacy, as our reporter Zachary Small explains. Mr. Taylor consulted on the White House’s scathing report on the Smithsonian, though the White House said he “didn’t write a word.”`\
-https://www.nytimes.com/video/arts/100000011028177/the-artist-behind-trumps-legacy-projects.html
 
