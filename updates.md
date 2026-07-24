@@ -1,3 +1,7 @@
+**Trump to Speak as White House Correspondents Dinner Returns With More Security**\
+`President Trump remains the evening’s keynote speaker, as relations between his administration and the press continue to deteriorate.`\
+https://www.nytimes.com/2026/07/24/business/media/white-house-correspondents-dinner.html
+
 **The G.O.P.’s New Red Scare**\
 `What does the Republican Party do if it’s not on track to win an election? Blame communism, of course! But according to the Times columnist Jamelle Bouie, “There isn’t a communist wave waiting to take over America.“ Instead, he says, this “red scare” is just a distraction from the Republicans’ failure to do anything they promised to do.`\
 https://www.nytimes.com/video/opinion/100000011046807/the-gops-new-red-scare.html
