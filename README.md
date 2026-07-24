@@ -1,3 +1,7 @@
+**Canadá inaugura un importante puente internacional sin invitar a EE. UU.**\
+`La apertura de la nueva conexión fronteriza entre Detroit y Windsor quedó marcada por las tensiones comerciales y políticas provocadas por el presidente Trump.`\
+https://www.nytimes.com/es/2026/07/24/espanol/mundo/canada-puente-estados-unidos-trump.html
+
 **Victoria Monét, Sam Smith: Songs to Know This Week**\
 `Victoria Monét goes girl-group, Sam Smith gets a choral assist, and Chad Hugo re-emerges.`\
 https://www.nytimes.com/2026/07/24/arts/music/victoria-monet-sam-smith-songs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/polls/virginia-us-house-2-polls-2026.html
 **Five International Movies to Stream Now**\
 `This month’s titles include a Mexican comedy, a German magical-realist film, a queer Cuban drama and more.`\
 https://www.nytimes.com/2026/07/24/movies/international-movies-streaming.html
-
-**C.D.C. Expands Cyclospora Outbreak Linked to Iceberg Lettuce to Nine States**\
-`Illinois, Kansas, Oklahoma and Pennsylvania now join Michigan, Ohio, Indiana, Kentucky and West Virginia in cyclospora outbreak linked to iceberg lettuce.`\
-https://www.nytimes.com/2026/07/24/well/eat/cyclospora-outbreak-states-cdc.html
 
