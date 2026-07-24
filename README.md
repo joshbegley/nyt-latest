@@ -1,3 +1,7 @@
+**Para los iraníes, la guerra vuelve a paralizar sus vidas**\
+`Devastados por los ciclos de violencia y la crisis económica, muchos han renunciado a la esperanza de encontrar trabajo y tener un futuro mientras EE. UU. vuelve a atacar a Irán.`\
+https://www.nytimes.com/es/2026/07/24/espanol/mundo/iran-guerra-ciclos-violencia.html
+
 **The Loafer That Thinks It’s a Scrunchie**\
 `The “shoe trend of the era.” Plus: a new designer at Kate Spade, a “Guac” hoodie and the Polo Bar’s possible move.`\
 https://www.nytimes.com/2026/07/24/style/loafer-ruched.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/podcasts/the-daily/trump-accounts.html
 **The Cost of Trump’s New Tariffs, and the $100 Million Popcorn Bucket Market**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-headlines/trump-new-tariffs-popcorn-bucket.html
-
-**NYT Connections Answers for July 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, July 25, 2026.`\
-https://www.nytimes.com/2026/07/24/crosswords/connections-companion-1140.html
 

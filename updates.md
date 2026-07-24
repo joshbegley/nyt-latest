@@ -1,3 +1,11 @@
+**The Loafer That Thinks It’s a Scrunchie**\
+`The “shoe trend of the era.” Plus: a new designer at Kate Spade, a “Guac” hoodie and the Polo Bar’s possible move.`\
+https://www.nytimes.com/2026/07/24/style/loafer-ruched.html
+
+**Concerns About the U.S.-Saudi Nuclear Deal**\
+`Readers fear the deal could lead to the development of nuclear weapons and lessen prospects for peace. Also: The Strait of Hormuz; the four-day workweek.`\
+https://www.nytimes.com/2026/07/24/opinion/us-saudi-nuclear-deal.html
+
 **6 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
 `The authorities said four Palestinians and two Israelis were killed in the incident. The details of events remain unclear, with officials giving differing accounts.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
