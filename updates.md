@@ -1,3 +1,15 @@
+**Gretchen Whitmer Endorses Haley Stevens in Michigan Senate Race**\
+`Ms. Whitmer, a popular second-term governor, is wading into one of the most contentious Democratic primaries of this year’s midterms.`\
+https://www.nytimes.com/2026/07/24/us/politics/whitmer-endorse-stevens-michigan-senate.html
+
+**Karim Khan Is Ousted as I.C.C. Chief Prosecutor Over Sexual Misconduct**\
+`The International Criminal Court, which prosecutes some of the world’s most serious crimes, has been in limbo for years over the allegations against Karim A. A. Khan, its top prosecutor.`\
+https://www.nytimes.com/2026/07/24/world/europe/karim-khan-icc.html
+
+**Trump Tariff Fight Stalls Russia Sanctions Bill Championed by Lindsey Graham**\
+`A bipartisan bill championed by the late Senator Lindsey Graham has become mired in a dispute over expanding President Trump’s tariff power.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-tariffs-russia-sanctions.html
+
 **Freddy Cannon, Rocker Who Sang ‘Palisades Park,’ Dies at 89**\
 `Known as Boom Boom, he recorded a string of hits in the 1950s and ’60s, including “Tallahassee Lassie,” which began as a poem by his mother.`\
 https://www.nytimes.com/2026/07/24/arts/music/freddy-cannon-dead.html

@@ -1,3 +1,7 @@
+**Iranian Threat to Air Force One Prompted Plane Swap During NATO Summit**\
+`The threat led the Secret Service to urge President Trump to fly out of Turkey on the old plane, raising questions about the security of the Qatari-donated jet.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html
+
 **Gretchen Whitmer Endorses Haley Stevens in Michigan Senate Race**\
 `Ms. Whitmer, a popular second-term governor, is wading into one of the most contentious Democratic primaries of this year’s midterms.`\
 https://www.nytimes.com/2026/07/24/us/politics/whitmer-endorse-stevens-michigan-senate.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/well/measles-record-united-states-numbers.htm
 **Los ganadores y perdedores económicos del Mundial**\
 `Tras la promesa de que el Mundial tendría un impacto económico global de 80 millardos de dólares comparable a 104 Super Bowls, la pregunta que queda es: ¿se materializó esa bonanza turística y económica?`\
 https://www.nytimes.com/es/2026/07/24/espanol/deportes/mundial-turismo-eeuu-mexico-canada.html
-
-**Raging Wildfires Across Europe Prompt Thousands to Evacuate**\
-`Tens of thousands of people across Spain, France, and Italy have been forced to evacuate their homes as wildfires tear through Europe.`\
-https://www.nytimes.com/video/world/europe/100000011050860/france-spain-italy-europe-wildfires.html
 

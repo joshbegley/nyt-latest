@@ -1,3 +1,11 @@
+**Gretchen Whitmer Endorses Haley Stevens in Michigan Senate Race**\
+`Ms. Whitmer, a popular second-term governor, is wading into one of the most contentious Democratic primaries of this year’s midterms.`\
+https://www.nytimes.com/2026/07/24/us/politics/whitmer-endorse-stevens-michigan-senate.html
+
+**Karim Khan Is Ousted as I.C.C. Chief Prosecutor Over Sexual Misconduct**\
+`The International Criminal Court, which prosecutes some of the world’s most serious crimes, has been in limbo for years over the allegations against Karim A. A. Khan, its top prosecutor.`\
+https://www.nytimes.com/2026/07/24/world/europe/karim-khan-icc.html
+
 **Freddy Cannon, Rocker Who Sang ‘Palisades Park,’ Dies at 89**\
 `Known as Boom Boom, he recorded a string of hits in the 1950s and ’60s, including “Tallahassee Lassie,” which began as a poem by his mother.`\
 https://www.nytimes.com/2026/07/24/arts/music/freddy-cannon-dead.html
@@ -98,7 +106,7 @@ https://www.nytimes.com/video/dining/100000011051119/horchata.html
 `The businesses are represented by the Liberty Justice Center, a legal group that has successfully challenged President Trump’s past duties.`\
 https://www.nytimes.com/2026/07/24/business/trump-tariffs-small-businesses-lawsuit.html
 
-**Dispute Over Trump Tariffs Snarls Russia Sanctions Deal**\
+**Trump Tariff Fight Stalls Russia Sanctions Bill Championed by Lindsey Graham**\
 `A bipartisan bill championed by the late Senator Lindsey Graham has become mired in a dispute over expanding President Trump’s tariff power.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-tariffs-russia-sanctions.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/07/24/espanol/deportes/mundial-turismo-eeuu-mexi
 **Raging Wildfires Across Europe Prompt Thousands to Evacuate**\
 `Tens of thousands of people across Spain, France, and Italy have been forced to evacuate their homes as wildfires tear through Europe.`\
 https://www.nytimes.com/video/world/europe/100000011050860/france-spain-italy-europe-wildfires.html
-
-**The Legacy of Kentucky Fried Chicken’s Colonel Sanders Is Up For Sale**\
-`In the town where Kentucky Fried Chicken grew up, they’ll auction off the home, restaurant and maybe even the secret spice mix of a cantankerous innovator.`\
-https://www.nytimes.com/2026/07/24/dining/kentucky-fried-chicken-colonel-sander-auction.html
-
-**Life of Alan Turing Emerges in Richer Detail From Short Story**\
-`A Cambridge professor has transcribed a handwritten story that the famous mathematician wrote in the year before his death, presenting a different side of him.`\
-https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridge.html
 
