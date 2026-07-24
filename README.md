@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Jul. 24, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/24/podcasts/the-headlines/the-headlines-news-quiz-jul-24-2026.html
+
 **Could ‘Trump Accounts’ Actually Close the Wealth Gap?**\
 `The investment accounts created in last year’s tax bill allow babies to receive a $1,000 deposit from the federal government.`\
 https://www.nytimes.com/2026/07/24/podcasts/the-daily/trump-accounts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/theater/romare-bearden-august-wilson-joe-turn
 **Timeline: How a College Test Scandal Grew Into a Youth Movement in India**\
 `What began with an exam leak scandal in May has grown into a much wider campaign over government accountability. Here’s how the youth-led movement unfolded.`\
 https://www.nytimes.com/interactive/2026/07/24/world/asia/india-protest-cockroach-party-timeline.html
-
-**Faced With Heat and Wildfires, France Turns to Spain to Learn How to Cope**\
-`A French government delegation will travel to its southern neighbor to learn how it copes with long spells of hot weather.`\
-https://www.nytimes.com/2026/07/24/world/europe/france-spain-climate-heat-wildfires.html
 
