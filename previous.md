@@ -1,3 +1,15 @@
+**‘La odisea’ alquiló un barco vikingo. Dicen que lo dañaron**\
+`Un centro vikingo sueco dijo que su embarcación se usó en la filmación de la película de Christopher Nolan, pero que necesitaba reparaciones cuando fue devuelta. Ahora, busca compensación.`\
+https://www.nytimes.com/es/2026/07/24/espanol/cultura/odisea-barco-vikingo.html
+
+**China reescribe el manual del ‘poder blando’ para la era de la IA**\
+`China busca influencia mundial y buena voluntad con su software de inteligencia artificial abierto y de bajo costo.`\
+https://www.nytimes.com/es/2026/07/24/espanol/negocios/china-ia-mundo.html
+
+**El extraño fenómeno de la ‘lucidez terminal’**\
+`Al acercarse a la muerte, algunos pacientes con demencia recuperan facultades mentales que se creían perdidas hace mucho tiempo. Los investigadores quieren saber por qué.`\
+https://www.nytimes.com/es/2026/07/24/espanol/lucidez-terminal-pacientes-demencia.html
+
 **The Story Behind the New York Police Academy’s New Name**\
 `The officer honored on the facade of the training center in Queens moved New York City in the 1980s with his message of forgiveness.`\
 https://www.nytimes.com/2026/07/24/nyregion/nypd-mcdonald.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/23/world/trump-foreign-deals-wealth-saudi.html
 **What to Know About Iran and the Houthis**\
 `The Yemeni militant group appeared to open a new front in the conflict between its backer, Iran, and the United States, by attacking ships and announcing a blockade on a strategic waterway.`\
 https://www.nytimes.com/2026/07/23/world/middleeast/what-to-know-iran-houthis.html
-
-**The Defining Image of India’s Gen Z Protests**\
-`A new protest movement is spreading across India, and the video of a woman blocking a police van has captured the resolve of the young people leading it.`\
-https://www.nytimes.com/2026/07/23/world/asia/rhiya-ahir-mumbai-india-student-protests-genz.html
-
-**End of the Line for Penn Station? A Trump Official Calls for a New Name.**\
-`Sean P. Duffy, the transportation secretary, said renaming the New York transportation hub was an administration priority. But he hasn’t offered any options.`\
-https://www.nytimes.com/2026/07/23/nyregion/penn-station-name-trump.html
-
-**Trump Adds New Condition to Nuclear Deal With Saudi Arabia**\
-`In a post on social media on Thursday, President Trump said the nuclear agreement between nations was now “totally subject” to Saudi Arabia joining the Abraham Accords. This condition was not mentioned in the administration’s announcement after the deal was signed on Wednesday.`\
-https://www.nytimes.com/video/us/politics/100000011049244/saudi-arabia-nuclear-deal-abraham-accord.html
 

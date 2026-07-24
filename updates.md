@@ -1,3 +1,15 @@
+**‘La odisea’ alquiló un barco vikingo. Dicen que lo dañaron**\
+`Un centro vikingo sueco dijo que su embarcación se usó en la filmación de la película de Christopher Nolan, pero que necesitaba reparaciones cuando fue devuelta. Ahora, busca compensación.`\
+https://www.nytimes.com/es/2026/07/24/espanol/cultura/odisea-barco-vikingo.html
+
+**China reescribe el manual del ‘poder blando’ para la era de la IA**\
+`China busca influencia mundial y buena voluntad con su software de inteligencia artificial abierto y de bajo costo.`\
+https://www.nytimes.com/es/2026/07/24/espanol/negocios/china-ia-mundo.html
+
+**El extraño fenómeno de la ‘lucidez terminal’**\
+`Al acercarse a la muerte, algunos pacientes con demencia recuperan facultades mentales que se creían perdidas hace mucho tiempo. Los investigadores quieren saber por qué.`\
+https://www.nytimes.com/es/2026/07/24/espanol/lucidez-terminal-pacientes-demencia.html
+
 **Brent Crude Oil Prices Top $100 as Conflict With Iran Drags On**\
 `Stocks in Asia were down following a sell-off in the U.S. markets over soaring oil prices, rising borrowing costs and worries about the technology industry.`\
 https://www.nytimes.com/2026/07/24/business/oil-prices-global-stocks-shipping.html
