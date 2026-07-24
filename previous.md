@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 24, 2026**\
+`Geoffrey Schorkopf opens our solving weekend.`\
+https://www.nytimes.com/2026/07/23/crosswords/daily-puzzle-2026-07-24.html
+
 **ICE Contractor Faces Charges in Shooting Outside Colorado Detention Center**\
 `The man, Brandon Booth, was also fired by the operator of the center, GEO Group, after a woman who was protesting outside was shot in the foot.`\
 https://www.nytimes.com/2026/07/23/us/colorado-ice-protest-shooting-geo-group.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/07/23/technology/judge-paramount-warner-bros-deal.h
 https://www.nytimes.com/2026/07/23/science/health-research-funding-ahrq.html
 
 **Los Angeles Homeless Population Grows Again, After 2 Years of Decline**\
-`Los Angeles had an increase in homeless residents between early 2025 and early 2026. The rise could hurt Mayor Karen Bass as she runs for re-election.`\
+`Los Angeles had an increase in homeless residents between early 2025 and early 2026. The rise could hurt Mayor Karen Bass, as she runs for re-election.`\
 https://www.nytimes.com/2026/07/23/us/los-angeles-homeless-increase.html
 
 **Veteranos de Vietnam rechazan el nuevo nombre de una autopista en honor a Charlie Kirk**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/health/erica-schwartz-cdc-vote.html
 **EE. UU. impondrá aranceles a más de 80 naciones**\
 `El gobierno de Trump anunció nuevos aranceles vinculados a las importaciones de bienes fabricados con trabajo forzado, el cual reemplazará un arancel global del 10 por ciento que expirará a la medianoche.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-globales.html
-
-**Rupert Murdoch Biopic Is Among Premieres at Venice Film Festival**\
-`The directors Danny Boyle, Martin McDonagh, Werner Herzog and Casey Affleck will present new movies at the festival.`\
-https://www.nytimes.com/2026/07/23/movies/venice-film-festival-lineup.html
 

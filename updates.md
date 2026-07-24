@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 24, 2026**\
+`Geoffrey Schorkopf opens our solving weekend.`\
+https://www.nytimes.com/2026/07/23/crosswords/daily-puzzle-2026-07-24.html
+
+**Los Angeles Homeless Population Grows Again, After 2 Years of Decline**\
+`Los Angeles had an increase in homeless residents between early 2025 and early 2026. The rise could hurt Mayor Karen Bass, as she runs for re-election.`\
+https://www.nytimes.com/2026/07/23/us/los-angeles-homeless-increase.html
+
 **ICE Contractor Faces Charges in Shooting Outside Colorado Detention Center**\
 `The man, Brandon Booth, was also fired by the operator of the center, GEO Group, after a woman who was protesting outside was shot in the foot.`\
 https://www.nytimes.com/2026/07/23/us/colorado-ice-protest-shooting-geo-group.html
