@@ -1,3 +1,11 @@
+**Raging Wildfires Across Europe Prompt Thousands to Evacuate**\
+`Tens of thousands of people across Spain, France, and Italy have been forced to evacuate their homes as wildfires tear through Europe.`\
+https://www.nytimes.com/video/world/europe/100000011050860/france-spain-italy-europe-wildfires.html
+
+**The Legacy of Kentucky Fried Chicken’s Colonel Sanders Is Up For Sale**\
+`In the town where Kentucky Fried Chicken grew up, they’ll auction off the home, restaurant and maybe even the secret spice mix of a cantankerous innovator.`\
+https://www.nytimes.com/2026/07/24/dining/kentucky-fried-chicken-colonel-sander-auction.html
+
 **Life of Alan Turing Emerges in Richer Detail From Short Story**\
 `A Cambridge professor has transcribed a handwritten story that the famous mathematician wrote in the year before his death, presenting a different side of him.`\
 https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridge.html

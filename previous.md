@@ -1,3 +1,11 @@
+**Raging Wildfires Across Europe Prompt Thousands to Evacuate**\
+`Tens of thousands of people across Spain, France, and Italy have been forced to evacuate their homes as wildfires tear through Europe.`\
+https://www.nytimes.com/video/world/europe/100000011050860/france-spain-italy-europe-wildfires.html
+
+**The Legacy of Kentucky Fried Chicken’s Colonel Sanders Is Up For Sale**\
+`In the town where Kentucky Fried Chicken grew up, they’ll auction off the home, restaurant and maybe even the secret spice mix of a cantankerous innovator.`\
+https://www.nytimes.com/2026/07/24/dining/kentucky-fried-chicken-colonel-sander-auction.html
+
 **Life of Alan Turing Emerges in Richer Detail From Short Story**\
 `A Cambridge professor has transcribed a handwritten story that the famous mathematician wrote in the year before his death, presenting a different side of him.`\
 https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridge.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/24/business/tour-de-france-amaury-aso.html
 **‘We’re Trapped in Hell’: Iranians Say Life Is Put On Hold by Months of War**\
 `Devastated by cycles of violence and economic crisis, many are giving up on work and their futures as the United States batters Iran again.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/iran-war-cycle.html
-
-**Platner’s Top Campaign Strategist on What Went Wrong**\
-`Morris Katz helped Zohran Mamdani win, and then tried to do the same for Graham Platner. What has he learned?`\
-https://www.nytimes.com/2026/07/24/opinion/ezra-klein-podcast-morris-katz.html
-
-**How Conor Oberst Survived Teenage Rock Stardom**\
-`The singer-songwriter opens up about life as a niche icon for more than 30 years, the personal struggles that nearly killed him and trying to write political music under President Trump.`\
-https://www.nytimes.com/2026/07/24/arts/music/conor-oberst-bright-eyes-interview-popcast.html
 
