@@ -1,3 +1,11 @@
+**The Story Behind the New York Police Academy’s New Name**\
+`The officer honored on the facade of the training center in Queens moved New York City in the 1980s with his message of forgiveness.`\
+https://www.nytimes.com/2026/07/24/nyregion/nypd-mcdonald.html
+
+**NYT Spelling Bee Answers for July 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/24/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Pokes Fun at Trump’s ‘Pinky Herman’**\
 `“You got to give Trump credit: He misspeaks in ways nobody ever thought possible,” Fallon said of the president’s calling the famous man-child character “Pinky,” instead of “Pee-wee,” Herman.`\
 https://www.nytimes.com/2026/07/24/arts/television/jimmy-fallon-trump-pinky-herman.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/23/nyregion/penn-station-name-trump.html
 **Trump Adds New Condition to Nuclear Deal With Saudi Arabia**\
 `In a post on social media on Thursday, President Trump said the nuclear agreement between nations was now “totally subject” to Saudi Arabia joining the Abraham Accords. This condition was not mentioned in the administration’s announcement after the deal was signed on Wednesday.`\
 https://www.nytimes.com/video/us/politics/100000011049244/saudi-arabia-nuclear-deal-abraham-accord.html
-
-**Strikes Against Saudi Tankers in the Red Sea Send Oil Past $100 a Barrel**\
-`President Trump threatened attacks on Houthi militants after the Iranian ally said it had hit two Saudi Arabian-flagged vessels.`\
-https://www.nytimes.com/2026/07/23/world/middleeast/red-sea-strikes-oil-houthis.html
-
-**Border Crossings Targeted in Latest U.S.-Iran Exchanges**\
-`Witness footage verified by The New York Times shows the aftermath of the latest attacks on border crossings in the Middle East as the U.S. and Iran exchanged strikes on Thursday.`\
-https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-us-iran-strikes.html
 

@@ -1,3 +1,11 @@
+**The Story Behind the New York Police Academy’s New Name**\
+`The officer honored on the facade of the training center in Queens moved New York City in the 1980s with his message of forgiveness.`\
+https://www.nytimes.com/2026/07/24/nyregion/nypd-mcdonald.html
+
+**NYT Spelling Bee Answers for July 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/24/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Pokes Fun at Trump’s ‘Pinky Herman’**\
 `“You got to give Trump credit: He misspeaks in ways nobody ever thought possible,” Fallon said of the president’s calling the famous man-child character “Pinky,” instead of “Pee-wee,” Herman.`\
 https://www.nytimes.com/2026/07/24/arts/television/jimmy-fallon-trump-pinky-herman.html
