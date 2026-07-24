@@ -1,3 +1,7 @@
+**Iranian Threat to Air Force One Prompted Plane Swap During NATO Summit**\
+`The threat led the Secret Service to urge President Trump to fly out of Turkey on the old plane, raising questions about the security of the Qatari-donated jet.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html
+
 **Gretchen Whitmer Endorses Haley Stevens in Michigan Senate Race**\
 `Ms. Whitmer, a popular second-term governor, is wading into one of the most contentious Democratic primaries of this year’s midterms.`\
 https://www.nytimes.com/2026/07/24/us/politics/whitmer-endorse-stevens-michigan-senate.html
