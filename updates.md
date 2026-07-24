@@ -1,3 +1,7 @@
+**Spider-Man Helps Man in Wheelchair Cross Busy Street**\
+`A man dressed as Spider-Man helped a person in a wheelchair cross a busy street in Arkansas on Tuesday.`\
+https://www.nytimes.com/video/us/100000011050664/spiderman-wheelchair-jonesboro-arkansas.html
+
 **A la generación Z no le obsesiona el éxito laboral, y no los culpo**\
 `Para los graduados universitarios de la generación Z, la manera en que los milénials vivieron sus ambiciones ya no tiene sentido.`\
 https://www.nytimes.com/es/2026/07/24/espanol/opinion/generacion-z-exito-trabajo.html
