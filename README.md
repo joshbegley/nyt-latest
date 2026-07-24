@@ -1,3 +1,7 @@
+**‘72 Hours’ Review: Kevin Hart Is Joining Your Bachelor Party**\
+`Hart plays an ad executive who tries to learn about the younger generation by tagging along to a bachelor party weekend. It proves a less than healthy move.`\
+https://www.nytimes.com/2026/07/23/movies/72-hours-review-kevin-hart-is-joining-your-bachelor-party.html
+
 **Jackie, Bald Eagle and Webcam Star, Is Recovering After an Attack in California**\
 `Jackie found an online audience through a webcam pointed at her nest in California. She was rescued last week after a fight with other eagles, officials said.`\
 https://www.nytimes.com/2026/07/23/us/jackie-bald-eagle-critical-condition.html
@@ -182,8 +186,8 @@ https://www.nytimes.com/2026/07/23/nyregion/new-jersey-noncitizen-voter-justice-
 `Senator Bill Cassidy, who is believed to hold the deciding vote in the Senate health committee for Dr. Erica Schwartz’s confirmation, had declined for days to say whether he would back her.`\
 https://www.nytimes.com/2026/07/23/health/erica-schwartz-cdc-vote.html
 
-**Trump prepara una nueva estrategia para reactivar los aranceles globales**\
-`Los aranceles generales del 10 por ciento impuestos por el gobierno de EE. UU. están por expirar a la medianoche, pero otro lote arancelario podría tomar su lugar.`\
+**EE. UU. impondrá aranceles a más de 80 naciones**\
+`El gobierno de Trump anunció nuevos aranceles vinculados a las importaciones de bienes fabricados con trabajo forzado, el cual reemplazará un arancel global del 10 por ciento que expirará a la medianoche.`\
 https://www.nytimes.com/es/2026/07/23/espanol/estados-unidos/trump-aranceles-globales.html
 
 **Rupert Murdoch Biopic Is Among Premieres at Venice Film Festival**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/23/movies/venice-film-festival-lineup.html
 **Mamdani’s Video Message About Netanyahu**\
 `Reader’s react to the New York mayor’s video criticizing the Israeli prime minister. Also: A.I. jobs for philosophers; a battle in the health care industry; fast walkers; pregnant bellies.`\
 https://www.nytimes.com/2026/07/23/opinion/mamdani-netanyahu-video.html
-
-**6 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/07/23/books/review/new-recommended-books.html
 

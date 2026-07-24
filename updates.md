@@ -1,3 +1,7 @@
+**2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
+`A man was arrested after the daylight attacks in a neighborhood bordering Central Park in Manhattan. The police were investigating whether the stabbings were hate crimes.`\
+https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
+
 **Jackie, Bald Eagle and Webcam Star, Is Recovering After an Attack in California**\
 `Jackie found an online audience through a webcam pointed at her nest in California. She was rescued last week after a fight with other eagles, officials said.`\
 https://www.nytimes.com/2026/07/23/us/jackie-bald-eagle-critical-condition.html

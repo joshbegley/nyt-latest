@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/07/23/us/florida-tugboat-captain-manslaugter-guilty
 https://www.nytimes.com/2026/07/23/nyregion/salman-rushdie-stabbing-attack-court-testimony.html
 
 **2 Men Stabbed on Upper West Side in Possible Hate Crimes, Police Say**\
-`A man was arrested after the daylight attacks in a Manhattan neighborhood bordering Central Park. The police were investigating whether the stabbings were hate crimes.`\
+`A man was arrested after the daylight attacks in a neighborhood bordering Central Park in Manhattan. The police were investigating whether the stabbings were hate crimes.`\
 https://www.nytimes.com/2026/07/23/nyregion/nyc-central-park-west-stabbing.html
 
 **Senators Ask Hegseth to Fully Account for U.S. Troops Killed or Wounded in Iran**\
