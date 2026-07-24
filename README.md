@@ -1,3 +1,7 @@
+**Trump’s Threatened New Front in Iran War Could Strain U.S. Forces**\
+`President Trump has said he would expand the war if the Iran-backed Houthi militants launched additional attacks.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-new-front-iran-war.html
+
 **How a Summer of War With Iran Could Shape the Fall Elections**\
 `President Trump and Republicans can’t seem to escape the political fallout of the conflict.`\
 https://www.nytimes.com/2026/07/24/us/politics/republicans-trump-iran-war-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/t-magazine/wet-hair-hairstyles-tyla.html
 **Wildfires in France and Spain Drive Tens of Thousands From Their Homes**\
 `French officials ordered the evacuation of the Cap Ferret Peninsula, a popular holiday destination. Fires west of Madrid were closing in on populated areas.`\
 https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
-
-**Francia mira a España para ayudarse a combatir el calor**\
-`Una delegación del gobierno francés viajará a su vecino del sur para aprender cómo este sobrelleva los largos periodos de clima caluroso.`\
-https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
 
