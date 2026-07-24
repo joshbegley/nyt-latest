@@ -1,3 +1,7 @@
+**Los ganadores y perdedores económicos del Mundial**\
+`Tras la promesa de que el Mundial tendría un impacto económico global de 80 millardos de dólares comparable a 104 Super Bowls, la pregunta que queda es: ¿se materializó esa bonanza turística y económica?`\
+https://www.nytimes.com/es/2026/07/24/espanol/deportes/mundial-turismo-eeuu-mexico-canada.html
+
 **Raging Wildfires Across Europe Prompt Thousands to Evacuate**\
 `Tens of thousands of people across Spain, France, and Italy have been forced to evacuate their homes as wildfires tear through Europe.`\
 https://www.nytimes.com/video/world/europe/100000011050860/france-spain-italy-europe-wildfires.html
