@@ -1,3 +1,15 @@
+**Jackie, Bald Eagle and Webcam Star, Is Recovering After an Attack in California**\
+`Jackie found an online audience through a webcam pointed at her nest in California. She was rescued last week after a fight with other eagles, officials said.`\
+https://www.nytimes.com/2026/07/23/us/jackie-bald-eagle-critical-condition.html
+
+**California Bald Eagle and Webcam Star Jackie Is in Critical Condition**\
+`Jackie, a California bald eagle and webcam star, was in critical care on Thursday.`\
+https://www.nytimes.com/video/us/100000011049659/california-bald-eagle-jackie.html
+
+**A Fallen Soldier’s Angst, Love and Longing to Return Home From the Iran War**\
+`Sgt. Michael Emmanuel Swinton was killed in recent days, one of 18 U.S. soldiers who have lost their lives since the beginning of the war in Iran.`\
+https://www.nytimes.com/2026/07/23/us/michael-emmanuel-swinton-iran-soldier.html
+
 **What to Know About Peptides the FDA Is Considering for Use**\
 `The agency is considering whether compounding pharmacies should be allowed to produce BPC-157, TB-500 and other previously banned peptides.`\
 https://www.nytimes.com/2026/07/23/well/peptides-fda-research.html

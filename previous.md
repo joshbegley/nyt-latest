@@ -1,3 +1,15 @@
+**Jackie, Bald Eagle and Webcam Star, Is Recovering After an Attack in California**\
+`Jackie found an online audience through a webcam pointed at her nest in California. She was rescued last week after a fight with other eagles, officials said.`\
+https://www.nytimes.com/2026/07/23/us/jackie-bald-eagle-critical-condition.html
+
+**California Bald Eagle and Webcam Star Jackie Is in Critical Condition**\
+`Jackie, a California bald eagle and webcam star, was in critical care on Thursday.`\
+https://www.nytimes.com/video/us/100000011049659/california-bald-eagle-jackie.html
+
+**A Fallen Soldier’s Angst, Love and Longing to Return Home From the Iran War**\
+`Sgt. Michael Emmanuel Swinton was killed in recent days, one of 18 U.S. soldiers who have lost their lives since the beginning of the war in Iran.`\
+https://www.nytimes.com/2026/07/23/us/michael-emmanuel-swinton-iran-soldier.html
+
 **What to Know About Peptides the FDA Is Considering for Use**\
 `The agency is considering whether compounding pharmacies should be allowed to produce BPC-157, TB-500 and other previously banned peptides.`\
 https://www.nytimes.com/2026/07/23/well/peptides-fda-research.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/23/opinion/mamdani-netanyahu-video.html
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/23/books/review/new-recommended-books.html
-
-**Modi Caught Off Guard as India’s Economic Failings Inflame Young People**\
-`Prime Minister Narendra Modi was busy trying to put out other fires when a student movement suddenly exploded. There are no easy solutions to the problems behind it.`\
-https://www.nytimes.com/2026/07/23/world/asia/india-modi-protests-economy-cockroach-party.html
-
-**Trump Administration Drops Subpoena Demanding List of Jews From Penn**\
-`The move was a rare pullback for the administration, which has used inquiries as leverage. Few schools resisted as Penn did after it was pressed for antisemitism complaints and a list of campus groups involved with Judaism.`\
-https://www.nytimes.com/2026/07/23/us/eeoc-subpoena-penn-jewish-list.html
-
-**The Tate Brothers Are Losing Right-Wing Allies After Their Arrest**\
-`After Andrew and Tristan Tate, prominent leaders of the so-called manosphere, were arrested in Miami, many of their onetime allies on the American right pulled back support.`\
-https://www.nytimes.com/2026/07/23/us/tate-brothers-trump-tucker-carlson.html
 
