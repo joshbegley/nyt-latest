@@ -1,3 +1,7 @@
+**Trump Switched to Old Air Force One at NATO Summit After Credible Iranian Threat**\
+`The threat led the Secret Service to urge President Trump to fly out of Turkey on the old plane, raising questions about the security of the Qatari-donated jet.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html
+
 **Iranian Threat to Air Force One Prompted Plane Swap During NATO Summit**\
 `The threat led the Secret Service to urge President Trump to fly out of Turkey on the old plane, raising questions about the security of the Qatari-donated jet.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html

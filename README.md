@@ -1,3 +1,7 @@
+**Trump Orders Warnings Placed at ‘Inaccurate’ Smithsonian History Museum**\
+`President Trump said the signage at the National Museum of American History would correct what a disputed White House report described as “extreme political activism.”`\
+https://www.nytimes.com/2026/07/24/arts/design/smithsonian-signs-trump-executive-order.html
+
 **Trump Switched to Old Air Force One at NATO Summit After Credible Iranian Threat**\
 `The threat led the Secret Service to urge President Trump to fly out of Turkey on the old plane, raising questions about the security of the Qatari-donated jet.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html
@@ -175,7 +179,7 @@ https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor
 https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
 
 **Help! I Might Be a Tradwife!**\
-`I’m not the target audience for online content about frontier chores and child-rearing. But if I’m honest, domestic rituals help to keep me sane.`\
+`I’m not the target audience for online content about frontier chores and child rearing. But if I’m honest, domestic rituals help to keep me sane.`\
 https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
 
 **These Grilled Chicken Breasts Are Juicy and Flavorful — Promise**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-pla
 **Measles Cases Hit New Record in U.S., as Vaccination Rates Wane**\
 `More measles cases have been reported in the United States in the last two years than in all the years from 2000 through 2024 combined.`\
 https://www.nytimes.com/2026/07/24/well/measles-record-united-states-numbers.html
-
-**Los ganadores y perdedores económicos del Mundial**\
-`Tras la promesa de que el Mundial tendría un impacto económico global de 80 millardos de dólares comparable a 104 Super Bowls, la pregunta que queda es: ¿se materializó esa bonanza turística y económica?`\
-https://www.nytimes.com/es/2026/07/24/espanol/deportes/mundial-turismo-eeuu-mexico-canada.html
 
