@@ -1,3 +1,7 @@
+**Bags in Van of Houston ICE Shooting Victim Did Not Contain Drugs, Officials Say**\
+`The Harris County district attorney’s office said that white powder the federal government had said could be methamphetamine tested negative for narcotics.`\
+https://www.nytimes.com/2026/07/24/us/houston-ice-shooting-araujo-van.html
+
 **A Spiritual Scammer Anthem**\
 `Yung Miami’s “Spend Dat” has been one of this summer’s biggest songs and has also fueled controversy around its discussion of money, power and dating. Our critic Jon Caramanica explores how the song flirts with neo-soul production to create an ethereal rap hit.`\
 https://www.nytimes.com/video/podcasts/100000011052640/a-spiritual-scammer-anthem.html
