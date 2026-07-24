@@ -1,3 +1,11 @@
+**How to Get the Wet Hair Style, According to Tyla, Amber Valletta and Candice Birns**\
+`The musician Tyla, the model Amber Valletta and the hairstylist Candice Birns share their techniques.`\
+https://www.nytimes.com/2026/07/24/t-magazine/wet-hair-hairstyles-tyla.html
+
+**Wildfires in France and Spain Drive Tens of Thousands From Their Homes**\
+`French officials ordered the evacuation of the Cap Ferret peninsula, a popular holiday destination. Fires in the Madrid area were closing in on populated areas.`\
+https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
+
 **Francia mira a España para ayudarse a combatir el calor**\
 `Una delegación del gobierno francés viajará a su vecino del sur para aprender cómo este sobrelleva los largos periodos de clima caluroso.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/07/24/espanol/america-latina/terremotos-venezuel
 **Iran War Live Updates: Strikes Persist After Iran Is Said to Reject U.S. Proposal**\
 `American forces conducted another round of attacks on Iran, which launched drone strikes at U.S. targets in the Gulf. Iran was said to have rejected a cease-fire proposal from President Trump.`\
 https://www.nytimes.com/live/2026/07/24/world/iran-war-us-strikes-trump-oil
-
-**Is It OK to Shout at the Movies?**\
-`A ruling on a theater etiquette dispute.`\
-https://www.nytimes.com/interactive/2026/07/24/magazine/movie-yelling-cheers-hodgman-quiz.html
-
-**Iran War and Trump’s Tariffs Threaten a Resilient U.S. Economy**\
-`As renewed fighting with Iran sends oil and gas prices soaring, President Trump has imposed new global tariffs that could push up prices further.`\
-https://www.nytimes.com/2026/07/24/business/iran-war-tariffs-economy.html
 

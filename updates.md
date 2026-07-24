@@ -1,3 +1,11 @@
+**How to Get the Wet Hair Style, According to Tyla, Amber Valletta and Candice Birns**\
+`The musician Tyla, the model Amber Valletta and the hairstylist Candice Birns share their techniques.`\
+https://www.nytimes.com/2026/07/24/t-magazine/wet-hair-hairstyles-tyla.html
+
+**Wildfires in France and Spain Drive Tens of Thousands From Their Homes**\
+`French officials ordered the evacuation of the Cap Ferret peninsula, a popular holiday destination. Fires in the Madrid area were closing in on populated areas.`\
+https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
+
 **Francia mira a España para ayudarse a combatir el calor**\
 `Una delegación del gobierno francés viajará a su vecino del sur para aprender cómo este sobrelleva los largos periodos de clima caluroso.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
