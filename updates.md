@@ -1,3 +1,15 @@
+**Iran’s New Leader Is More Open to Pursuing a Nuclear Weapon, U.S. Intelligence Says**\
+`The previous supreme leader, who was killed early in the war, had renounced nuclear weapons. U.S. spy agencies believe his son is more interested in building a bomb.`\
+https://www.nytimes.com/2026/07/24/us/politics/iran-nuclear-weapon.html
+
+**Trump Meets With Top Advisers as He Weighs a Major Escalation in Iran**\
+`President Trump has insisted the U.S.-Israeli war in Iran would be a relatively short “excursion,” although it has now lasted nearly five months, with no end in sight.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-escalation-iran.html
+
+**Wildfires in France and Spain Drive Tens of Thousands From Their Homes**\
+`French officials ordered the evacuation of the Cap Ferret Peninsula, a popular holiday destination. Fires west of Madrid were closing in on populated areas.`\
+https://www.nytimes.com/2026/07/24/world/europe/france-spain-wildfires.html
+
 **Los argentinos tienen algo que decir ante las críticas tras el Mundial**\
 `Muchos argentinos condenaron los cánticos racistas y el comportamiento agresivo de sus jugadores, pero rechazaron lo que se sintió como una estigmatización generalizada de toda su nación.`\
 https://www.nytimes.com/es/2026/07/24/espanol/america-latina/argentina-mundial-criticas-racismo.html

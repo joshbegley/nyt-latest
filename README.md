@@ -1,3 +1,7 @@
+**Cornell, Northwestern and Other Universities Plan for Classes at Middle East Campuses**\
+`Even after the collapse of the cease-fire between the United States and Iran, American universities expect to teach in Qatar and the United Arab Emirates, and a new outpost is on track to open in Saudi Arabia.`\
+https://www.nytimes.com/2026/07/24/us/middle-east-campuses-american-universities.html
+
 **Iran’s New Leader Is More Open to Pursuing a Nuclear Weapon, U.S. Intelligence Says**\
 `The previous supreme leader, who was killed early in the war, had renounced nuclear weapons. U.S. spy agencies believe his son is more interested in building a bomb.`\
 https://www.nytimes.com/2026/07/24/us/politics/iran-nuclear-weapon.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/well/hate-summer-tips.html
 **Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 31 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 12.`\
 https://www.nytimes.com/2026/07/24/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
-
-**Debt Collection Suits Have Risen Sharply. There’s Help for Consumers Being Sued.**\
-`Consumers are being taken to court in droves for delinquent credit card and other bills. New legal protections and even A.I. could be a lifeline.`\
-https://www.nytimes.com/2026/07/24/business/credit-card-debt-collection-lawsuits.html
 
