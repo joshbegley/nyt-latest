@@ -1,3 +1,15 @@
+**Baked Croissant French Toast With Blueberries**\
+`Simple to prepare but worthy of a celebration, this French toast starts with a base of buttery croissants and is studded with juicy blueberries.`\
+https://www.nytimes.com/video/dining/100000011051121/baked-croissant-french-toast-with-blueberries.html
+
+**Sook Mei Faan (Cantonese Creamed Corn With Tofu and Rice)**\
+`Creamed corn over rice is a quintessential Cantonese dish often served at cha chaan tengs, casual diners that are ubiquitous in Hong Kong.`\
+https://www.nytimes.com/video/dining/100000011051114/sook-mei-faan-cantonese-creamed-corn-with-tofu-and-rice.html
+
+**Horchata**\
+`Horchata is a Latin American beverage that’s made by soaking nuts and grains in water then seasoning the mixture with sugar and spices. The drink originated in Spain over 1,000 years ago, but many countries have their own regional variations.`\
+https://www.nytimes.com/video/dining/100000011051119/horchata.html
+
 **Small Businesses Sue Trump Administration Over Latest Tariffs**\
 `The businesses are represented by the Liberty Justice Center, a legal group that has successfully challenged President Trump’s past duties.`\
 https://www.nytimes.com/2026/07/24/business/trump-tariffs-small-businesses-lawsuit.html
