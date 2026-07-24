@@ -1,3 +1,7 @@
+**Critical Wildfire Weather in Oregon, Idaho and Washington**\
+`Forecasters warned fires would spread more easily across a region where dozens are already burning.`\
+https://www.nytimes.com/2026/07/24/weather/oregon-wildfire-update-washington.html
+
 **The G.O.P.’s New Red Scare**\
 `What does the Republican Party do if it’s not on track to win an election? Blame communism, of course! But according to the Times columnist Jamelle Bouie, “There isn’t a communist wave waiting to take over America.“ Instead, he says, this “red scare” is just a distraction from the Republicans’ failure to do anything they promised to do.`\
 https://www.nytimes.com/video/opinion/100000011046807/the-gops-new-red-scare.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/well/eat/cyclospora-outbreak-states-cdc.html
 **Car Condos Give Your Vehicle Luxury Housing**\
 `No longer satisfied by regular parking garages, some drivers are upgrading their luxury vehicles’ homes.`\
 https://www.nytimes.com/2026/07/24/style/car-luxury-private-garages.html
-
-**Flashback: Your Weekly History Quiz, July 25, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/07/24/upshot/flashback.html
 
