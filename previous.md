@@ -1,3 +1,11 @@
+**Chris Brown Pleads Guilty to Affray Charge in London Nightclub Assault Case**\
+`The R&B star pleaded guilty to a charge of affray after being accused of attacking a producer in 2023. He is set to be sentenced in October.`\
+https://www.nytimes.com/2026/07/24/arts/music/chris-brown-guilty-affray-london.html
+
+**Maps: Tracking Tropical Storm Noul**\
+`See the likely path and wind arrival times for Noul`\
+https://www.nytimes.com/interactive/2026/07/24/weather/noul-path-tracker.html
+
 **Compass Is Called Before Congress for Antitrust Concerns**\
 `A House Judiciary subcommittee summoned Compass, the biggest real estate brokerage in the world, and the listing service Midwest Real Estate Data to answer questions about their partnership.`\
 https://www.nytimes.com/2026/07/24/realestate/compass-mred-congressional-hearing-antitrust.html
@@ -158,7 +166,7 @@ https://www.nytimes.com/2026/07/24/world/canada/canada-gordie-howe-bridge-trump.
 `Conservatives who critique land acknowledgments aren’t acting in good faith, but they do have a point.`\
 https://www.nytimes.com/2026/07/24/opinion/native-american-land-acknowledgment.html
 
-**Black Parents Are Rattled by Mississippi Teen’s Death Among White Friends**\
+**Nolan Wells’ Death Rattles Black Parents About All-White Spaces**\
 `The death of Nolan Wells after he boated with friends to an island party on July 4 has sparked anguish among Black parents about the safety of their children in predominantly white spaces.`\
 https://www.nytimes.com/2026/07/24/us/nolan-wells-black-parents-concerns.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/music/conor-oberst-bright-eyes-interview
 **Food Stamp Restrictions Affect More Than 22,000 New Yorkers**\
 `Expanded work requirements and more stringent exemptions, mandated by the Trump administration, are hitting SNAP users hard.`\
 https://www.nytimes.com/2026/07/24/nyregion/food-stamp-restrictions-affect-more-than-22000-new-yorkers.html
-
-**The New York Times News Quiz, July 24, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/07/24/briefing/news-quiz-world-cup-trump-iran.html
-
-**Christopher Nolan’s ‘Odyssey’ Shows That Epics Are Better Without A.I.**\
-`A.I. has rendered eye candy cheap. Viewers long for the visceral.`\
-https://www.nytimes.com/2026/07/24/opinion/elon-musk-odyssey-ai.html
 

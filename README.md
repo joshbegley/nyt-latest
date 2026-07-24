@@ -1,3 +1,7 @@
+**Life of Alan Turing Emerges in Richer Detail From Short Story**\
+`A Cambridge professor has transcribed a handwritten story that the famous mathematician wrote in the year before his death, presenting a different side of him.`\
+https://www.nytimes.com/2026/07/24/world/europe/alan-turing-short-story-cambridge.html
+
 **Chris Brown Pleads Guilty to Affray Charge in London Nightclub Assault Case**\
 `The R&B star pleaded guilty to a charge of affray after being accused of attacking a producer in 2023. He is set to be sentenced in October.`\
 https://www.nytimes.com/2026/07/24/arts/music/chris-brown-guilty-affray-london.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/opinion/ezra-klein-podcast-morris-katz.html
 **How Conor Oberst Survived Teenage Rock Stardom**\
 `The singer-songwriter opens up about life as a niche icon for more than 30 years, the personal struggles that nearly killed him and trying to write political music under President Trump.`\
 https://www.nytimes.com/2026/07/24/arts/music/conor-oberst-bright-eyes-interview-popcast.html
-
-**Food Stamp Restrictions Affect More Than 22,000 New Yorkers**\
-`Expanded work requirements and more stringent exemptions, mandated by the Trump administration, are hitting SNAP users hard.`\
-https://www.nytimes.com/2026/07/24/nyregion/food-stamp-restrictions-affect-more-than-22000-new-yorkers.html
 

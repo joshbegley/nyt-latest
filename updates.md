@@ -1,3 +1,15 @@
+**Chris Brown Pleads Guilty to Affray Charge in London Nightclub Assault Case**\
+`The R&B star pleaded guilty to a charge of affray after being accused of attacking a producer in 2023. He is set to be sentenced in October.`\
+https://www.nytimes.com/2026/07/24/arts/music/chris-brown-guilty-affray-london.html
+
+**Maps: Tracking Tropical Storm Noul**\
+`See the likely path and wind arrival times for Noul`\
+https://www.nytimes.com/interactive/2026/07/24/weather/noul-path-tracker.html
+
+**Nolan Wells’ Death Rattles Black Parents About All-White Spaces**\
+`The death of Nolan Wells after he boated with friends to an island party on July 4 has sparked anguish among Black parents about the safety of their children in predominantly white spaces.`\
+https://www.nytimes.com/2026/07/24/us/nolan-wells-black-parents-concerns.html
+
 **Compass Is Called Before Congress for Antitrust Concerns**\
 `A House Judiciary subcommittee summoned Compass, the biggest real estate brokerage in the world, and the listing service Midwest Real Estate Data to answer questions about their partnership.`\
 https://www.nytimes.com/2026/07/24/realestate/compass-mred-congressional-hearing-antitrust.html
