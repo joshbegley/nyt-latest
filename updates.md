@@ -1,3 +1,11 @@
+**The G.O.P.’s New Red Scare**\
+`What does the Republican Party do if it’s not on track to win an election? Blame communism, of course! But according to the Times columnist Jamelle Bouie, “There isn’t a communist wave waiting to take over America.“ Instead, he says, this “red scare” is just a distraction from the Republicans’ failure to do anything they promised to do.`\
+https://www.nytimes.com/video/opinion/100000011046807/the-gops-new-red-scare.html
+
+**Can We Destigmatize Menopause Care?**\
+`The menopause revolution is here. So why is this inevitable part of aging for women still underdiagnosed and undertreated? Rather than suffer in silence, the Times columnist Tressie McMillan Cottom argues, ”it’s time to force the issue on our medical providers.”`\
+https://www.nytimes.com/video/opinion/100000011027896/can-we-destigmatize-menopause-care.html
+
 **Let’s Try This Again: A Do-Over Dinner for White House Correspondents**\
 `President Trump remains the evening’s keynote speaker, as relations between his administration and the press continue to deteriorate.`\
 https://www.nytimes.com/2026/07/24/business/media/white-house-correspondents-dinner.html

@@ -6,7 +6,7 @@ https://www.nytimes.com/video/opinion/100000011046807/the-gops-new-red-scare.htm
 `The menopause revolution is here. So why is this inevitable part of aging for women still underdiagnosed and undertreated? Rather than suffer in silence, the Times columnist Tressie McMillan Cottom argues, ”it’s time to force the issue on our medical providers.”`\
 https://www.nytimes.com/video/opinion/100000011027896/can-we-destigmatize-menopause-care.html
 
-**Let’s Try This Again: A Do-Over Dinner for White House Correspondents**\
+**Trump to Speak as White House Correspondents Dinner Returns With More Security**\
 `President Trump remains the evening’s keynote speaker, as relations between his administration and the press continue to deteriorate.`\
 https://www.nytimes.com/2026/07/24/business/media/white-house-correspondents-dinner.html
 
