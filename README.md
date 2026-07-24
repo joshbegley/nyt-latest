@@ -1,3 +1,7 @@
+**Brent Crude Oil Prices Top $100 as Conflict With Iran Drags On**\
+`Stocks in Asia were down following a sell-off in the U.S. markets over soaring oil prices, rising borrowing costs and worries about the technology industry.`\
+https://www.nytimes.com/2026/07/24/technology/oil-prices-global-stocks-shipping.html
+
 **Trump’s Global Tariffs: What’s the Latest on the Trade War**\
 `The president has unveiled a complicated system to forge ahead with his trade war, after the Supreme Court stuck down his original levies.`\
 https://www.nytimes.com/article/trump-tariffs-trade.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011048583/border-crossings-
 **Clint Reilly, Political Consultant Known for Feuding, Dies at 79**\
 `As savvy as he could be volatile, he advised Nancy Pelosi and Dianne Feinstein, ran for mayor of San Francisco and bought The San Francisco Examiner.`\
 https://www.nytimes.com/2026/07/23/us/politics/clint-reilly-dead.html
-
-**Illinois Changes Tack on Data Centers**\
-`At the Aspen Ideas climate conference, Gov. JB Pritzker spoke about disincentivizing data centers instead of providing financial incentives.`\
-https://www.nytimes.com/2026/07/23/climate/data-centers-pritzker.html
 
