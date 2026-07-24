@@ -1,3 +1,7 @@
+**Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
+`Europeans say they fear a rising dependence on American energy even with a looming Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
+https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
+
 **China Wields Its Rare Earth Leverage Over Europe With New Export Controls**\
 `Beijing banned shipments of important supplies to 14 companies on the cutting edge of chemicals processing, electric motors and defense.`\
 https://www.nytimes.com/2026/07/24/business/china-europe-rare-earths.html
