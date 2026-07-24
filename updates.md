@@ -1,3 +1,7 @@
+**Why Trump’s Renewed Trade War Could Be Costly**\
+`Households and businesses were already contending with an affordability crunch. A new round of tariffs could inflict more pain.`\
+https://www.nytimes.com/2026/07/24/business/dealbook/trump-trade-war-economy.html
+
 **Bangladesh’s President Resigns Amid Uncertainty Over Ex-Leader’s Plans**\
 `President Mohammed Shahabuddin stepped down as speculation swirled over the possible return of his onetime ally Sheikh Hasina, who was ousted as prime minister and fled to India.`\
 https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html
