@@ -1,3 +1,7 @@
+**Bangladesh’s President Resigns Amid Uncertainty Over Ex-Leader’s Plans**\
+`President Mohammed Shahabuddin stepped down as speculation swirled over the possible return of his onetime ally Sheikh Hasina, who was ousted as prime minister and fled to India.`\
+https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html
+
 **Russia and Ukraine Trade Blows With Missiles and Drones**\
 `Ukrainian strikes set fire to warehouses and other sites in Russia, and Russian bombing rocked Ukraine’s capital, as the two countries escalated a deadly air campaign.`\
 https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/us/larry-itliong-farmworker-rights-activist-c
 **Our Vast Collective Jeffrey Epstein Failure**\
 `We need to hold accountable the web of accomplices who enabled his crimes.`\
 https://www.nytimes.com/2026/07/24/opinion/jeffrey-epstein-crimes-collaborators-files.html
-
-**An A.I. Music F.A.Q.: Can I Remix Madonna? Is This All Legal?**\
-`Advances in A.I. are making it possible to create all kinds of music from scratch, but they also raise questions about what is legal and who will actually listen.`\
-https://www.nytimes.com/2026/07/24/arts/music/ai-music-faq.html
 

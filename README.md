@@ -1,3 +1,7 @@
+**Why Trump’s Renewed Trade War Could Be Costly**\
+`Households and businesses were already contending with an affordability crunch. A new round of tariffs could inflict more pain.`\
+https://www.nytimes.com/2026/07/24/business/dealbook/trump-trade-war-economy.html
+
 **Bangladesh’s President Resigns Amid Uncertainty Over Ex-Leader’s Plans**\
 `President Mohammed Shahabuddin stepped down as speculation swirled over the possible return of his onetime ally Sheikh Hasina, who was ousted as prime minister and fled to India.`\
 https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/books/review/boredom-childrens-picture-books-
 **After the Cesar Chavez Scandal, Can Johnny Itliong Restore His Father’s Activist Legacy?**\
 `Johnny Itliong says Cesar Chavez stole credit from his father, the farmworker activist Larry Itliong. For years, he has been trying to correct the record.`\
 https://www.nytimes.com/2026/07/24/us/larry-itliong-farmworker-rights-activist-chavez.html
-
-**Our Vast Collective Jeffrey Epstein Failure**\
-`We need to hold accountable the web of accomplices who enabled his crimes.`\
-https://www.nytimes.com/2026/07/24/opinion/jeffrey-epstein-crimes-collaborators-files.html
 
