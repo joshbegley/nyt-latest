@@ -1,3 +1,7 @@
+**Democrats Must Embrace a ‘Populist Future’**\
+`Democrats who talk about affordability without pointing toward the larger systemic issues at play won’t get far, argues Morris Katz. Katz, the political strategist behind candidates like Zohran Mamdani, John Fetterman and Graham Platner, makes the case for the party to embrace a more populist platform on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011038512/democrats-must-embrace-a-populist-future.html
+
 **Graham Platner’s Strategist on What Went Wrong**\
 `Morris Katz was one of Graham Platner’s top campaign strategists. In the aftermath of the candidate’s implosion, he speaks to the Opinion columnist Ezra Klein about what he thinks went wrong.`\
 https://www.nytimes.com/video/opinion/100000011038507/graham-platners-strategist-on-what-went-wrong.html

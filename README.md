@@ -1,3 +1,7 @@
+**Trump Administration Signs Contract for Long-Term National Guard Housing in D.C.**\
+`The move was the latest sign that President Trump intends to keep armed Guard members deployed in the capital through the end of his term.`\
+https://www.nytimes.com/2026/07/24/us/politics/national-guard-troop-housing-dc-trump.html
+
 **Democrats Must Embrace a ‘Populist Future’**\
 `Democrats who talk about affordability without pointing toward the larger systemic issues at play won’t get far, argues Morris Katz. Katz, the political strategist behind candidates like Zohran Mamdani, John Fetterman and Graham Platner, makes the case for the party to embrace a more populist platform on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011038512/democrats-must-embrace-a-populist-future.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
 **Help! I Might Be a Tradwife!**\
 `I’m not the target audience for online content about frontier chores and child rearing. But if I’m honest, domestic rituals help to keep me sane.`\
 https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
-
-**These Grilled Chicken Breasts Are Juicy and Flavorful — Promise**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juicy-and-flavorful-promise.html
 

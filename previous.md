@@ -1,3 +1,7 @@
+**Democrats Must Embrace a ‘Populist Future’**\
+`Democrats who talk about affordability without pointing toward the larger systemic issues at play won’t get far, argues Morris Katz. Katz, the political strategist behind candidates like Zohran Mamdani, John Fetterman and Graham Platner, makes the case for the party to embrace a more populist platform on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011038512/democrats-must-embrace-a-populist-future.html
+
 **Graham Platner’s Strategist on What Went Wrong**\
 `Morris Katz was one of Graham Platner’s top campaign strategists. In the aftermath of the candidate’s implosion, he speaks to the Opinion columnist Ezra Klein about what he thinks went wrong.`\
 https://www.nytimes.com/video/opinion/100000011038507/graham-platners-strategist-on-what-went-wrong.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/opinion/tradwife-confession-little-house.html
 **These Grilled Chicken Breasts Are Juicy and Flavorful — Promise**\
 `And more of the week’s most popular recipes.`\
 https://www.nytimes.com/2026/07/24/dining/these-grilled-chicken-breasts-are-juicy-and-flavorful-promise.html
-
-**Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
-`Many Argentines condemned their players’ racist chants and aggressive behavior during the World Cup, but rejected what felt like a sweeping stigmatization of their entire nation.`\
-https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
 
