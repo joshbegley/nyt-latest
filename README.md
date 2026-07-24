@@ -1,3 +1,11 @@
+**Small Businesses Sue Trump Administration Over Latest Tariffs**\
+`The businesses are represented by the Liberty Justice Center, a legal group that has successfully challenged President Trump’s past duties.`\
+https://www.nytimes.com/2026/07/24/business/trump-tariffs-small-businesses-lawsuit.html
+
+**Dispute Over Trump Tariffs Snarls Russia Sanctions Deal**\
+`A bipartisan bill championed by the late Senator Lindsey Graham has become mired in a dispute over expanding President Trump’s tariff power.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-tariffs-russia-sanctions.html
+
 **Former ‘60 Minutes’ Reporter Cecilia Vega Details Claims of Meddling**\
 `Cecilia Vega described what she said was pressure from executives to insert bias into several segments that aired earlier this year.`\
 https://www.nytimes.com/2026/07/24/business/media/cecilia-vega-60-minutes.html
@@ -167,7 +175,7 @@ https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html
 https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html
 
 **6 Killed in West Bank Shooting, Officials Say, Among the Deadliest in Months**\
-`The authorities said four Palestinians and two Israelis were killed in the incident. The details of events remain unclear, with officials giving differing accounts.`\
+`The authorities said four Palestinians and two Israelis were killed in the incident. The details remain unclear, with officials giving differing accounts.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/west-bank-shooting-tell-israelis-palestinians.html
 
 **A Big Day for Math**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/24/podcasts/hardfork-hugging-face-openai.html
 **With Hopes High for New H.I.V. Prevention Pill, Merck Takes Steps to Ensure Access**\
 `Companies in Africa and India will make generic versions of the pill that could cost as little as $5 per person per year. But access to the drug and other new products in much of Latin America remains uncertain.`\
 https://www.nytimes.com/2026/07/24/us/politics/merck-hiv-pill.html
-
-**‘The Headlines’ News Quiz: Jul. 24, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/07/24/podcasts/the-headlines/the-headlines-news-quiz-jul-24-2026.html
-
-**Could ‘Trump Accounts’ Actually Close the Wealth Gap?**\
-`The investment accounts created in last year’s tax bill allow babies to receive a $1,000 deposit from the federal government.`\
-https://www.nytimes.com/2026/07/24/podcasts/the-daily/trump-accounts.html
 
