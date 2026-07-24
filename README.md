@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Noul**\
+`See the likely path and wind arrival times for Noul`\
+https://www.nytimes.com/interactive/2026/07/24/weather/noul-path-tracker.html
+
 **Compass Is Called Before Congress for Antitrust Concerns**\
 `A House Judiciary subcommittee summoned Compass, the biggest real estate brokerage in the world, and the listing service Midwest Real Estate Data to answer questions about their partnership.`\
 https://www.nytimes.com/2026/07/24/realestate/compass-mred-congressional-hearing-antitrust.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/nyregion/food-stamp-restrictions-affect-more-
 **The New York Times News Quiz, July 24, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/07/24/briefing/news-quiz-world-cup-trump-iran.html
-
-**Christopher Nolan’s ‘Odyssey’ Shows That Epics Are Better Without A.I.**\
-`A.I. has rendered eye candy cheap. Viewers long for the visceral.`\
-https://www.nytimes.com/2026/07/24/opinion/elon-musk-odyssey-ai.html
 

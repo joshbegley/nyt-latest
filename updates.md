@@ -1,3 +1,7 @@
+**Compass Is Called Before Congress for Antitrust Concerns**\
+`A House Judiciary subcommittee summoned Compass, the biggest real estate brokerage in the world, and the listing service Midwest Real Estate Data to answer questions about their partnership.`\
+https://www.nytimes.com/2026/07/24/realestate/compass-mred-congressional-hearing-antitrust.html
+
 **China Has Come Through Trump’s Trade War in a Good Position**\
 `Despite threats from President Trump, the overall average weighted tariff on Chinese goods remained about the same, and is now lower than countries like Brazil and Canada.`\
 https://www.nytimes.com/2026/07/24/business/china-tariffs-trump.html
