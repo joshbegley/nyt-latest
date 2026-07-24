@@ -1,3 +1,11 @@
+**Ukraine Strikes Warehouses of Russia’s Largest Online Retailer**\
+`Ukraine has struck warehouses belonging to Wildberries, Russia’s largest online retailer, in recent days. The attacks were meant to damage Russia’s economy as both sides traded strikes this week.`\
+https://www.nytimes.com/video/world/europe/100000011051467/russia-ukraine-wildberries-attacks.html
+
+**What to Know About Hurricane Fausto and Hawaii**\
+`The storm could deliver heavy rain to the islands, but forecasters warned that the exact path was still coming into focus.`\
+https://www.nytimes.com/2026/07/24/weather/hurricane-fausto-tropical-storm-hawaii-updates.html
+
 **Japanese Militant in Tel Aviv Airport Attack Dies in Lebanon at 78**\
 `Kozo Okamoto survived a 1972 suicide mission he undertook with two other members of the Japanese Red Army, a left-wing militant group aligned with the Popular Front for the Liberation of Palestine.`\
 https://www.nytimes.com/2026/07/24/world/middleeast/japanese-militant-tel-aviv-airport.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/24/nyregion/nyc-climate-change-mamdani.html
 **Andy Burnham Dresses Casually. It’s Smart.**\
 `The United Kingdom has a new prime minister, Andy Burnham. Our chief fashion critic, Vanessa Friedman, revisits the fashion choices he’s made during his ascent and how his current wardrobe is signifying a new era.`\
 https://www.nytimes.com/video/style/100000011042662/andy-burnham-dresses-casually-its-smart.html
-
-**Teen Charged in Georgia School Shooting Changes Plea to Guilty**\
-`Colt Gray, 16, had been scheduled to go on trial in October. His change of plea took place at a hearing that pivoted immediately to sentencing.`\
-https://www.nytimes.com/2026/07/24/us/colt-gray-apalachee-high-school-shooting-guilty-plea.html
-
-**Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
-`Europeans say they fear a rising dependence on American energy even with a Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
-https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
 
