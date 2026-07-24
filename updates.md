@@ -1,3 +1,7 @@
+**Argentines Facing Surge of Criticism After World Cup Loss Have Something to Say**\
+`Many Argentines condemned their players’ racist chants and aggressive behavior, but rejected what felt like a sweeping stigmatization of their entire nation.`\
+https://www.nytimes.com/2026/07/24/world/americas/argentina-world-cup-racism-players.html
+
 **Today, In Short**\
 `Travel influencers. Willow. And new tariffs.`\
 https://www.nytimes.com/2026/07/24/briefing/today-in-short.html

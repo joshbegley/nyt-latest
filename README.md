@@ -1,3 +1,7 @@
+**Francia mira a España para ayudarse a combatir el calor**\
+`Una delegación del gobierno francés viajará a su vecino del sur para aprender cómo este sobrelleva los largos periodos de clima caluroso.`\
+https://www.nytimes.com/es/2026/07/24/espanol/mundo/francia-espana-olas-de-calor.html
+
 **Today, In Short**\
 `Travel influencers. Willow. And new tariffs.`\
 https://www.nytimes.com/2026/07/24/briefing/today-in-short.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/07/24/magazine/movie-yelling-cheers-hod
 **Iran War and Trump’s Tariffs Threaten a Resilient U.S. Economy**\
 `As renewed fighting with Iran sends oil and gas prices soaring, President Trump has imposed new global tariffs that could push up prices further.`\
 https://www.nytimes.com/2026/07/24/business/iran-war-tariffs-economy.html
-
-**How a Grieving Trump Decided to Back Lindsey Graham’s Sister for Senate**\
-`The president initially backed a little-known congressman. Then he talked to Gov. Henry McMaster and Ms. Graham herself.`\
-https://www.nytimes.com/2026/07/24/us/politics/trump-lindsey-graham-sister-darline-senate.html
 
