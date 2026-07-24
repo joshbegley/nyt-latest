@@ -1,3 +1,11 @@
+**China Wields Its Rare Earth Leverage Over Europe With New Export Controls**\
+`Beijing banned shipments of important supplies to 14 companies on the cutting edge of chemicals processing, electric motors and defense.`\
+https://www.nytimes.com/2026/07/24/business/china-europe-rare-earths.html
+
+**Corrections: July 24, 2026**\
+`Corrections that appeared in print on Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/24/pageoneplus/corrections-july-24-2026.html
+
 **If You Dislike Summer, Here’s How to Get Through It**\
 `If you need help staying positive in the midst of heat waves and out-of-office disruptions, start with these tips.`\
 https://www.nytimes.com/2026/07/24/well/hate-summer-tips.html

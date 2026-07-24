@@ -1,3 +1,11 @@
+**China Wields Its Rare Earth Leverage Over Europe With New Export Controls**\
+`Beijing banned shipments of important supplies to 14 companies on the cutting edge of chemicals processing, electric motors and defense.`\
+https://www.nytimes.com/2026/07/24/business/china-europe-rare-earths.html
+
+**Corrections: July 24, 2026**\
+`Corrections that appeared in print on Friday, July 24, 2026.`\
+https://www.nytimes.com/2026/07/24/pageoneplus/corrections-july-24-2026.html
+
 **If You Dislike Summer, Here’s How to Get Through It**\
 `If you need help staying positive in the midst of heat waves and out-of-office disruptions, start with these tips.`\
 https://www.nytimes.com/2026/07/24/well/hate-summer-tips.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/24/movies/the-odyssey-oppenheimer-christopher-no
 **Voters Think All Politicians Are a Little Corrupt, but Trump Might Be Pushing It**\
 `There’s a difference between ordinary influence peddling and the first family’s outright self-enrichment.`\
 https://www.nytimes.com/2026/07/24/magazine/corruption-voters-trump-midterms.html
-
-**Maybe the Biggest Problem With A.I. in the Workplace Is People**\
-`Learning to use A.I. effectively at work is all about using the same tried-and-true skills we use to be a better manager and collaborator.`\
-https://www.nytimes.com/2026/07/24/opinion/ai-workplace-manager-teamwork.html
-
-**Can This New Enzyme Turn Back the Clock in Bodily Tissues?**\
-`In a recent study, scientists devised a way of reversing the buildup of compounds that lead to some age-related diseases.`\
-https://www.nytimes.com/2026/07/24/science/enzymes-aging-cmlase.html
 
