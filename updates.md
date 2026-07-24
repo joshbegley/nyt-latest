@@ -1,3 +1,7 @@
+**Brent Crude Oil Prices Top $100 as Conflict With Iran Drags On**\
+`Stocks in Asia were down following a sell-off in the U.S. markets over soaring oil prices, rising borrowing costs and worries about the technology industry.`\
+https://www.nytimes.com/2026/07/24/business/oil-prices-global-stocks-shipping.html
+
 **The Story Behind the New York Police Academy’s New Name**\
 `The officer honored on the facade of the training center in Queens moved New York City in the 1980s with his message of forgiveness.`\
 https://www.nytimes.com/2026/07/24/nyregion/nypd-mcdonald.html
