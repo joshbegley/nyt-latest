@@ -1,3 +1,7 @@
+**Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
+`Europeans say they fear a rising dependence on American energy even with a looming Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
+https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
+
 **China Wields Its Rare Earth Leverage Over Europe With New Export Controls**\
 `Beijing banned shipments of important supplies to 14 companies on the cutting edge of chemicals processing, electric motors and defense.`\
 https://www.nytimes.com/2026/07/24/business/china-europe-rare-earths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/design/trent-park-spy-museum.html
 **In ‘The Odyssey’ and ‘Oppenheimer,’ Nolan Knows Civilization Is at Stake**\
 `In very different films, the director’s penchant for playing with time is in service to a larger concern about human bonds across eras.`\
 https://www.nytimes.com/2026/07/24/movies/the-odyssey-oppenheimer-christopher-nolan.html
-
-**Voters Think All Politicians Are a Little Corrupt, but Trump Might Be Pushing It**\
-`There’s a difference between ordinary influence peddling and the first family’s outright self-enrichment.`\
-https://www.nytimes.com/2026/07/24/magazine/corruption-voters-trump-midterms.html
 
