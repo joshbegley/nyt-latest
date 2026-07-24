@@ -1,3 +1,7 @@
+**Flourless Carrot Almond Crunch Cake**\
+`This supermoist, dairy-free, gluten-free almond cake has a lot going for it. The cake is flavored with a bit of lemon zest and finely grated carrots that seem to melt into the cake, adding moisture and a pleasantly chewy texture.`\
+https://www.nytimes.com/video/dining/100000011050425/flourless-carrot-almond-crunch-cake.html
+
 **What Will It Take to Make a U.S.-Saudi Arabia Nuclear Deal Happen?**\
 `David E. Sanger, a national security correspondent for The New York Times, explains what the nuclear agreement between the U.S. and Saudi Arabia is designed to do, and what challenges it may face to go in to effect.`\
 https://www.nytimes.com/video/us/100000011046264/what-will-it-take-to-make-a-us-saudi-arabia-nuclear-deal-happen.html
