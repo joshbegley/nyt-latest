@@ -1,3 +1,7 @@
+**Los argentinos tienen algo que decir ante las críticas tras el Mundial**\
+`Muchos argentinos condenaron los cánticos racistas y el comportamiento agresivo de sus jugadores, pero rechazaron lo que se sintió como una estigmatización generalizada de toda su nación.`\
+https://www.nytimes.com/es/2026/07/24/espanol/america-latina/argentina-mundial-criticas-racismo.html
+
 **Democrats Vote to Put South Carolina First in 2028 Primary**\
 `The state, along with several others still being chosen, appears set to play an important role in determining the party’s next presidential nominee.`\
 https://www.nytimes.com/2026/07/24/us/politics/democrats-south-carolina-nevada-2028-presidential-race.html
