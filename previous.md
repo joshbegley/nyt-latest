@@ -1,3 +1,7 @@
+**Teen Charged in Georgia School Shooting Changes Plea to Guilty**\
+`Colt Gray, 16, had been scheduled to go on trial in October. His change of plea took place at a hearing that pivoted immediately to sentencing.`\
+https://www.nytimes.com/2026/07/24/us/colt-gray-apalachee-high-school-shooting-guilty-plea.html
+
 **Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
 `Europeans say they fear a rising dependence on American energy even with a looming Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
 https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/realestate/pick-your-favorite-1-million-home-
 **Upstairs, Downstairs at Trent Park, a House Full of Spies**\
 `A new museum reveals how Britain’s intelligence secretly wiretapped Nazi commanders in a stately London mansion — and how a team of German Jewish refugees helped turn the tide of World War II.`\
 https://www.nytimes.com/2026/07/24/arts/design/trent-park-spy-museum.html
-
-**In ‘The Odyssey’ and ‘Oppenheimer,’ Nolan Knows Civilization Is at Stake**\
-`In very different films, the director’s penchant for playing with time is in service to a larger concern about human bonds across eras.`\
-https://www.nytimes.com/2026/07/24/movies/the-odyssey-oppenheimer-christopher-nolan.html
 

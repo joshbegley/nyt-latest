@@ -1,3 +1,7 @@
+**Teen Charged in Georgia School Shooting Changes Plea to Guilty**\
+`Colt Gray, 16, had been scheduled to go on trial in October. His change of plea took place at a hearing that pivoted immediately to sentencing.`\
+https://www.nytimes.com/2026/07/24/us/colt-gray-apalachee-high-school-shooting-guilty-plea.html
+
 **Clock Ticks Down to Europe’s Ban on Russian Gas Tankers**\
 `Europeans say they fear a rising dependence on American energy even with a looming Jan. 1 deadline to end liquefied natural gas imports from Russia.`\
 https://www.nytimes.com/2026/07/24/business/russian-lng-european-union.html
