@@ -1,3 +1,7 @@
+**Opposing Defense Bill, Democrats Shift Their Tactics**\
+`Crossing what was once seen as a political red line, Democrats voted against the usually bipartisan measure, registering dissent about the war in Iran.`\
+https://www.nytimes.com/2026/07/24/us/politics/democrats-defense-bill.html
+
 **Ukraine Strikes Warehouses of Russia’s Largest Online Retailer**\
 `Ukraine has struck warehouses belonging to Wildberries, Russia’s largest online retailer, in recent days. The attacks were meant to damage Russia’s economy as both sides traded strikes this week.`\
 https://www.nytimes.com/video/world/europe/100000011051467/russia-ukraine-wildberries-attacks.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/24/business/trump-interest-rates-bonds.html
 **Mamdani Commits $43 Million to Jump-Start Effort to Stop N.Y.C. Flooding**\
 `The money will go to an agency responsible for addressing the effects of climate change in the city, including the operation of flood gates.`\
 https://www.nytimes.com/2026/07/24/nyregion/nyc-climate-change-mamdani.html
-
-**Andy Burnham Dresses Casually. It’s Smart.**\
-`The United Kingdom has a new prime minister, Andy Burnham. Our chief fashion critic, Vanessa Friedman, revisits the fashion choices he’s made during his ascent and how his current wardrobe is signifying a new era.`\
-https://www.nytimes.com/video/style/100000011042662/andy-burnham-dresses-casually-its-smart.html
 
