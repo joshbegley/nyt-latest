@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/07/25/books/charles-gaines-dead.html
 https://www.nytimes.com/2026/07/25/us/ida-schmertz-dead.html
 
 **Conditions for European Wildfires Created by Summer of Extremes**\
-`The wildfires are scorching parts of France and Spain that had already faced usually hot and dry summers.`\
+`The wildfires are scorching parts of France and Spain that had already faced unusually hot and dry summers.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-europe-spain-france.html
 
 **Explore New York City’s Layered Histories for the 250th Anniversary of the U.S.**\
