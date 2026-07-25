@@ -1,3 +1,11 @@
+**Canadian Intern at NATO Military HQ Is Arrested on Suspicion of Spying**\
+`The authorities in Belgium did not name the country that the intern, a woman “of Chinese origin,” is suspected of spying for.`\
+https://www.nytimes.com/2026/07/25/world/europe/nato-canada-china-arrest-spying.html
+
+**Trump Speaks at Rescheduled Correspondents’ Dinner**\
+`President Trump spoke on Friday at the White House Correspondents’ Association dinner, which was rescheduled after a gunman attacked the event in April.`\
+https://www.nytimes.com/video/us/politics/100000011052831/trump-white-house-correspondents-dinner.html
+
 **El calor extremo aleja a los turistas de Europa**\
 `Una opción vacacional popular podría estar en riesgo debido al aumento de las temperaturas. Incluso quienes se aferran a sus planes de verano coinciden en que más aire acondicionado sería una gran ayuda.`\
 https://www.nytimes.com/es/2026/07/25/espanol/mundo/calor-extremo-turistas-europa.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/24/business/media/paramount-warner-bros-merger-d
 **Teachers’ Union Boss Vows ‘All-Out-War’ if Mamdani Doesn’t Back Bonuses**\
 `Teaching assistants, who are among the lowest-paid workers in New York City’s public schools, would get one-time payments of $10,000.`\
 https://www.nytimes.com/2026/07/24/nyregion/nyc-mamdani-teachers-union-bonuses.html
-
-**A Turkish Governor Was Ousted. Were Bicycling Tights to Blame?**\
-`Mehmet Fatih Cicekli posted some social media content of himself in workout gear. Then he lost his job.`\
-https://www.nytimes.com/2026/07/24/world/asia/turkey-governor-fired-cycling-shorts.html
-
-**El brote de ciclosporiasis se extiende a 9 estados de EE. UU.**\
-`Illinois, Kansas, Oklahoma y Pensilvania se unen ahora a Míchigan, Ohio, Indiana, Kentucky y Virginia Occidental en el brote de “Cyclospora” vinculado a la lechuga iceberg.`\
-https://www.nytimes.com/es/2026/07/24/espanol/brote-ciclosporiasis-casos-diarrea-lechuga.html
 

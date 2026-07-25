@@ -1,3 +1,11 @@
+**Canadian Intern at NATO Military HQ Is Arrested on Suspicion of Spying**\
+`The authorities in Belgium did not name the country that the intern, a woman “of Chinese origin,” is suspected of spying for.`\
+https://www.nytimes.com/2026/07/25/world/europe/nato-canada-china-arrest-spying.html
+
+**Trump Speaks at Rescheduled Correspondents’ Dinner**\
+`President Trump spoke on Friday at the White House Correspondents’ Association dinner, which was rescheduled after a gunman attacked the event in April.`\
+https://www.nytimes.com/video/us/politics/100000011052831/trump-white-house-correspondents-dinner.html
+
 **El calor extremo aleja a los turistas de Europa**\
 `Una opción vacacional popular podría estar en riesgo debido al aumento de las temperaturas. Incluso quienes se aferran a sus planes de verano coinciden en que más aire acondicionado sería una gran ayuda.`\
 https://www.nytimes.com/es/2026/07/25/espanol/mundo/calor-extremo-turistas-europa.html
