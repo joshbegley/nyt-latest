@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/07/25/nyregion/new-jersey-campers-mushroom-chocolat
 `Among the worries is that expanded hostilities could dangerously drain the diminished stockpile of air defense munitions in the Middle East.`\
 https://www.nytimes.com/2026/07/25/us/politics/trump-iran-military.html
 
-**Berlin Pride Event Cut Short After Car Hits Crowds**\
-`The police said a hunt for suspects was underway after the episode at one of Europe’s biggest gay-themed festivals.`\
+**Car Plows Into People Near a Pride Event in Berlin, Killing at Least One**\
+`The police said a hunt for suspects was underway after the episode, which also injured at least 14 people, some seriously.`\
 https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
 
 **Down the Tubes**\
