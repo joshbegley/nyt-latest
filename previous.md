@@ -28,7 +28,7 @@ https://www.nytimes.com/2026/07/25/world/europe/europe-fires-france-spain-what-t
 
 **India’s Education Minister Steps Down, Handing Win to Protesters**\
 `With Dharmendra Pradhan offering his resignation, the student protest movement achieved a major victory against the government of Prime Minister Narendra Modi.`\
-https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns.html
+https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns-cockroach-protests.html
 
 **Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
 `New York’s star center on playing for his mom, Patrick Ewing. generations of emotional fans — and himself.`\
