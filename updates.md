@@ -1,3 +1,7 @@
+**Car Plows Into People Near a Pride Event in Berlin, Killing at Least One**\
+`The police said a hunt for suspects was underway after the episode, which also injured at least 14 people, some seriously.`\
+https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
+
 **Hundreds of Thousands Flee Fires in France and Spain as Help Pours In**\
 `Nearly 300,000 have been told to evacuate or take shelter as major fires edged closer to Madrid and Bordeaux.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-france-spain-bordeaux-madrid.html
