@@ -1,3 +1,7 @@
+**Sally the Robot Was Coming to a New York School. Then the Plug Was Pulled.**\
+`Students helped design the A.I.-powered creation as a young female with dark hair and an upbeat personality. Then came the outrage.`\
+https://www.nytimes.com/2026/07/25/nyregion/robot-school-new-york-salamanca.html
+
 **Troy Jackson Picked to Replace Platner as Democratic Nominee in Maine Senate Race**\
 `Mr. Jackson, a progressive former State Senate president, clinched the nomination at a hastily arranged state party convention.`\
 https://www.nytimes.com/2026/07/25/us/politics/troy-jackson-maine-senate-democrats-platner.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/realestate/how-to-choose-a-real-estate-agent.
 **For ‘Love Island USA’ Fans, Season 8 Discussions Led to Vastly Different Takeaways**\
 `Season 8 brought more men into the chat, and revealed that while we were all watching the same reality TV show, our takeaways couldn’t have been more different.`\
 https://www.nytimes.com/2026/07/25/style/love-island-usa-masculinity.html
-
-**‘Dread Beat an Blood’ Set Black Londoners’ Struggle to a Groove**\
-`A newly restored 1979 documentary examines how Linton Kwesi Johnson’s dub-infused poetry documented the challenges faced by Britain’s Black Caribbean population.`\
-https://www.nytimes.com/2026/07/25/arts/music/dread-beat-an-blood-linton-kwesi-johnson.html
 
