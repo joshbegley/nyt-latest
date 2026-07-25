@@ -1,3 +1,7 @@
+**I Will Never Not Roast a Chicken**\
+`And Ali Slagle’s five-ingredient roast chicken with caramelized zucchini and leeks is summer simplicity personified (well, chickenified).`\
+https://www.nytimes.com/2026/07/25/dining/i-will-never-not-roast-a-chicken.html
+
 **Wildfire in France Rages Near Bordeaux, a Famed Wine City**\
 `A blaze sweeping the countryside of southwestern France drew close enough to worry officials in the city of some 270,000 people.`\
 https://www.nytimes.com/2026/07/25/world/europe/saumos-wildfire-france-spain-bordeaux.html

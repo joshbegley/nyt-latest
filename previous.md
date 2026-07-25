@@ -1,3 +1,7 @@
+**I Will Never Not Roast a Chicken**\
+`And Ali Slagle’s five-ingredient roast chicken with caramelized zucchini and leeks is summer simplicity personified (well, chickenified).`\
+https://www.nytimes.com/2026/07/25/dining/i-will-never-not-roast-a-chicken.html
+
 **Wildfire in France Rages Near Bordeaux, a Famed Wine City**\
 `A blaze sweeping the countryside of southwestern France drew close enough to worry officials in the city of some 270,000 people.`\
 https://www.nytimes.com/2026/07/25/world/europe/saumos-wildfire-france-spain-bordeaux.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/arts/music/dread-beat-an-blood-linton-kwesi-j
 **In Pompeii, Tom Hiddleston, ‘Amateur Classicist,’ Sees Lessons for Today**\
 `A new docuseries sent the star of “Loki,” who holds a classics degree, back to the site of an ancient tragedy, in search of relatable human stories.`\
 https://www.nytimes.com/2026/07/25/arts/television/pompeii-tom-hiddleston-national-geographic-documentary.html
-
-**How a Housing Bill Trump Spurned Became Law**\
-`Despite partisan differences, intraparty feuds and the president’s lack of interest, Congress delivered the first major housing bill in a generation.`\
-https://www.nytimes.com/2026/07/25/us/politics/elizabeth-warren-housing-bill-trump.html
 
