@@ -1,3 +1,11 @@
+**Fired Up, Again**\
+`Katie Hoody brings us another smoking hot Saturday puzzle.`\
+https://www.nytimes.com/2026/07/24/crosswords/daily-puzzle-2026-07-25.html
+
+**Trump Switched to Old Air Force One at NATO Summit After Credible Iranian Threat**\
+`The threat led the Secret Service to urge President Trump to fly out of Turkey on a different plane, raising questions about the security of the Qatari-donated jet.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011052764/25vid-Trump-WHCD-intro-embed.html
