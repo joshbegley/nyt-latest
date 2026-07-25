@@ -1,3 +1,15 @@
+**How an Uptight ‘Severance’ Character Lets Loose in Real Life**\
+`Tramell Tillman promises he is much more fun when dancing, shopping and eating tacos across New York City than he is on the hit Apple TV show.`\
+https://www.nytimes.com/interactive/2026/07/25/nyregion/25routine-tramell-tillman.html
+
+**Uber and Lyft Dominate the Ride-Share Industry. Can Rivals Cut In?**\
+`Companies offering for-hire vehicles via apps are hoping to make inroads in New York City with driver-friendly overtures. Others have tried and failed.`\
+https://www.nytimes.com/2026/07/25/nyregion/uber-lyft-competitor-throo.html
+
+**NYT Spelling Bee Answers for July 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/25/crosswords/spelling-bee-forum.html
+
 **El cambio de avión de Trump al dejar la cumbre de la OTAN se debió a una amenaza iraní**\
 `La amenaza hizo que el Servicio Secreto instara al presidente Trump a salir de Turquía en el Air Force One antiguo, lo que planteó dudas sobre la seguridad de la aeronave donada por Catar.`\
 https://www.nytimes.com/es/2026/07/25/espanol/estados-unidos/trump-air-force-one-iran-amenaza.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011051467/russia-ukraine-wildbe
 **What to Know About Hurricane Fausto and Hawaii**\
 `The storm could deliver heavy rain to the islands, but forecasters warned that the exact path was still coming into focus.`\
 https://www.nytimes.com/2026/07/24/weather/hurricane-fausto-tropical-storm-hawaii-updates.html
-
-**Japanese Militant in Tel Aviv Airport Attack Dies in Lebanon at 78**\
-`Kozo Okamoto survived a 1972 suicide mission he undertook with two other members of the Japanese Red Army, a left-wing militant group aligned with the Popular Front for the Liberation of Palestine.`\
-https://www.nytimes.com/2026/07/24/world/middleeast/japanese-militant-tel-aviv-airport.html
-
-**What We Know About the Police Shooting in Madison**\
-`A Black man was shot and killed by the police on Wednesday, not far from the Wisconsin Capitol. An investigation is underway.`\
-https://www.nytimes.com/2026/07/24/us/madison-wisconsin-police-shooting.html
-
-**Incendios en España y Francia desplazan a cientos de miles de personas de sus casas**\
-`Las autoridades francesas ordenaron la evacuación de la península de Cap Ferret, un popular destino vacacional. Los incendios al oeste de Madrid se acercaban a zonas pobladas.`\
-https://www.nytimes.com/es/2026/07/24/espanol/mundo/espana-incendios.html
 
