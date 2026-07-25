@@ -1,3 +1,7 @@
+**El cambio de avión de Trump al dejar la cumbre de la OTAN se debió a una amenaza iraní**\
+`La amenaza hizo que el Servicio Secreto instara al presidente Trump a salir de Turquía en el Air Force One antiguo, lo que planteó dudas sobre la seguridad de la aeronave donada por Catar.`\
+https://www.nytimes.com/es/2026/07/25/espanol/estados-unidos/trump-air-force-one-iran-amenaza.html
+
 **Hawaii Lt. Gov. Is Indicted in Corruption Investigation**\
 `Lt. Gov. Sylvia Luke, who had taken a leave of absence during the inquiry, was among five people charged on Friday.`\
 https://www.nytimes.com/2026/07/25/us/hawaii-indictment-corruption-investigation.html

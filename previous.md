@@ -1,3 +1,7 @@
+**El cambio de avión de Trump al dejar la cumbre de la OTAN se debió a una amenaza iraní**\
+`La amenaza hizo que el Servicio Secreto instara al presidente Trump a salir de Turquía en el Air Force One antiguo, lo que planteó dudas sobre la seguridad de la aeronave donada por Catar.`\
+https://www.nytimes.com/es/2026/07/25/espanol/estados-unidos/trump-air-force-one-iran-amenaza.html
+
 **Hawaii Lt. Gov. Is Indicted in Corruption Investigation**\
 `Lt. Gov. Sylvia Luke, who had taken a leave of absence during the inquiry, was among five people charged on Friday.`\
 https://www.nytimes.com/2026/07/25/us/hawaii-indictment-corruption-investigation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/us/madison-wisconsin-police-shooting.html
 **Incendios en España y Francia desplazan a cientos de miles de personas de sus casas**\
 `Las autoridades francesas ordenaron la evacuación de la península de Cap Ferret, un popular destino vacacional. Los incendios al oeste de Madrid se acercaban a zonas pobladas.`\
 https://www.nytimes.com/es/2026/07/24/espanol/mundo/espana-incendios.html
-
-**¿Esta nueva enzima puede retroceder el reloj en el cuerpo humano?**\
-`En un estudio reciente, unos científicos idearon una manera de revertir la acumulación de compuestos que conducen a algunas enfermedades relacionadas con la edad.`\
-https://www.nytimes.com/es/2026/07/24/espanol/ciencia-y-tecnologia/enzima-envejecimiento-longevidad-edad.html
 
