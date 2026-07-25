@@ -1,3 +1,7 @@
+**Wildfire Smoke Chokes Skies in Spain and France**\
+`Hundreds of thousands of people, including residents as well as vacationers, were forced to evacuate or told to remain indoors.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
+
 **India’s Education Minister Steps Down, Handing Win to Protesters**\
 `With Dharmendra Pradhan offering his resignation, the student protest movement achieved a major victory against the government of Prime Minister Narendra Modi.`\
 https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns.html
