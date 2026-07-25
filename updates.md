@@ -1,3 +1,7 @@
+**At Correspondents’ Dinner, a Rambling Trump Hurls Insults**\
+`President Trump gave the keynote speech as relations between his administration and the press continue to deteriorate.`\
+https://www.nytimes.com/2026/07/25/us/politics/is-this-supposed-to-be-fun-trump-hurls-insults-at-correspondents-dinner.html
+
 **Taiwan Tests How It Would Resist a Chinese Siege at Sea**\
 `Taiwan is stepping up plans to secure fuel and other vital imports as Chinese government ships practice moves that could one day be used in a blockade.`\
 https://www.nytimes.com/2026/07/25/world/asia/taiwan-china-ships-blockade.html

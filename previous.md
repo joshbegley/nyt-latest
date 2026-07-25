@@ -1,3 +1,7 @@
+**At Correspondents’ Dinner, a Rambling Trump Hurls Insults**\
+`President Trump gave the keynote speech as relations between his administration and the press continue to deteriorate.`\
+https://www.nytimes.com/2026/07/25/us/politics/is-this-supposed-to-be-fun-trump-hurls-insults-at-correspondents-dinner.html
+
 **Taiwan Tests How It Would Resist a Chinese Siege at Sea**\
 `Taiwan is stepping up plans to secure fuel and other vital imports as Chinese government ships practice moves that could one day be used in a blockade.`\
 https://www.nytimes.com/2026/07/25/world/asia/taiwan-china-ships-blockade.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/24/espanol/ciencia-y-tecnologia/enzima-enveje
 **Cornell, Northwestern and Other Universities Plan for Classes at Middle East Campuses**\
 `Even after the collapse of the cease-fire between the United States and Iran, American universities expect to teach in Qatar and the United Arab Emirates, and a new outpost is on track to open in Saudi Arabia.`\
 https://www.nytimes.com/2026/07/24/us/middle-east-campuses-american-universities.html
-
-**Iran’s New Leader Is More Open to Pursuing a Nuclear Weapon, U.S. Intelligence Says**\
-`The previous supreme leader, who was killed early in the war, had renounced nuclear weapons. U.S. spy agencies believe his son is more interested in building a bomb.`\
-https://www.nytimes.com/2026/07/24/us/politics/iran-nuclear-weapon.html
 
