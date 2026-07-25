@@ -1,3 +1,7 @@
+**Maine Democrats Pick Troy Jackson to Replace Graham Platner in Senate Race**\
+`Maine Democrats have chosen Troy Jackson, a progressive former State Senate president, to replace Graham Platner as their Senate candidate. Jackson was selected at a hastily organized state party convention, which came together after Platner, who faced a rape accusation he denies, dropped out of the race.`\
+https://www.nytimes.com/video/us/politics/100000011053054/maine-troy-jackson-senate-democrats-platner.html
+
 **Brazil Blocks Visit by U.S. Delegation Seeking to Question Election System**\
 `Brazilian authorities refused to grant visas to two senior U.S. officials out of concern they planned to sow doubt about the security of the country’s voting systems.`\
 https://www.nytimes.com/2026/07/25/world/americas/brazil-united-states-election-voting.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/25/business/energy-environment/houthi-blockade-r
 **Inside the Rushed Effort to Get Trump His New Air Force One**\
 `A New York Times investigation found that President Trump’s push to speed delivery of the aircraft led to ballooning costs and trade-offs in safety features.`\
 https://www.nytimes.com/2026/07/25/us/politics/trump-air-force-one-security.html
-
-**The Haunting Music in the ‘Odyssey’ Siren Scene Has Ancient Roots**\
-`Ludwig Göransson’s soundtrack for Christopher Nolan’s film resurrects an ancient instrument, the aulos, to evoke the tormenting allure of the sirens.`\
-https://www.nytimes.com/2026/07/25/arts/music/odyssey-music-sirens-song.html
 

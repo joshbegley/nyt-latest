@@ -1,3 +1,7 @@
+**Maine Democrats Pick Troy Jackson to Replace Graham Platner in Senate Race**\
+`Maine Democrats have chosen Troy Jackson, a progressive former State Senate president, to replace Graham Platner as their Senate candidate. Jackson was selected at a hastily organized state party convention, which came together after Platner, who faced a rape accusation he denies, dropped out of the race.`\
+https://www.nytimes.com/video/us/politics/100000011053054/maine-troy-jackson-senate-democrats-platner.html
+
 **Brazil Blocks Visit by U.S. Delegation Seeking to Question Election System**\
 `Brazilian authorities refused to grant visas to two senior U.S. officials out of concern they planned to sow doubt about the security of the country’s voting systems.`\
 https://www.nytimes.com/2026/07/25/world/americas/brazil-united-states-election-voting.html
