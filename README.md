@@ -1,3 +1,7 @@
+**Live Updates: Fires Rage in Spain and France, Forcing Thousands to Flee**\
+`Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux. Some 200,000 people have evacuated or are sheltering at home.`\
+https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations
+
 **The Peptide Wild West**\
 `Welcome to the new Wild West of peptides.`\
 https://www.nytimes.com/2026/07/25/opinion/peptides-fda-health-supplements.html
@@ -33,10 +37,6 @@ https://www.nytimes.com/2026/07/25/opinion/vance-rubio-trump-iran.html
 **The New Tactic Trump Thinks Will Rally Voters**\
 `Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
 https://www.nytimes.com/video/opinion/100000011049015/the-new-tactic-trump-thinks-will-rally-voters.html
-
-**Fires Rage in Spain and France, Forcing Thousands to Flee**\
-`Firefighters were scrambling to contain blazes that were moving toward major cities. Some 200,000 people have evacuated or sheltered at home.`\
-https://www.nytimes.com/2026/07/25/world/europe/france-spain-wildfires-evacuations.html
 
 **Do I Have to Help My Friend Get a Job I Know She’d Be Bad At?**\
 `If she were hired, I might have to “cover” for her to prevent the quality of the work from slipping.`\
