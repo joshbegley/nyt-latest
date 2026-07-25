@@ -1,3 +1,7 @@
+**Hawaii Lt. Gov. Is Indicted in Corruption Investigation**\
+`Lt. Gov. Sylvia Luke, who had taken a leave of absence during the inquiry, was among five people charged on Friday.`\
+https://www.nytimes.com/2026/07/25/us/hawaii-indictment-corruption-investigation.html
+
 **At Correspondents’ Dinner, a Rambling Trump Hurls Insults**\
 `President Trump gave the keynote speech as relations between his administration and the press continue to deteriorate.`\
 https://www.nytimes.com/2026/07/25/us/politics/is-this-supposed-to-be-fun-trump-hurls-insults-at-correspondents-dinner.html
