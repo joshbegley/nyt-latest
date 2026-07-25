@@ -1,3 +1,15 @@
+**Taiwan Tests How It Would Resist a Chinese Siege at Sea**\
+`Taiwan is stepping up plans to secure fuel and other vital imports as Chinese government ships practice moves that could one day be used in a blockade.`\
+https://www.nytimes.com/2026/07/25/world/asia/taiwan-china-ships-blockade.html
+
+**Quote of the Day: Teen Pleads Guilty in Georgia School Attack**\
+`Quotation of the Day for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/25/pageoneplus/quote-of-the-day-teen-pleads-guilty-in-georgia-school-attack.html
+
+**A Global Economy Jolted by an Oil Shock Now Gets a Tariff Reminder**\
+`Tariffs are back, but this time there is a war in the Persian Gulf and oil has hit $100 a barrel.`\
+https://www.nytimes.com/2026/07/25/business/economy/trump-tariffs-iran-war-inflation.html
+
 **After Stabbings, a Rise in Jewish Fears and Questions for Mamdani**\
 `Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings of two men on the Upper West Side and defending his statements.`\
 https://www.nytimes.com/2026/07/24/nyregion/antisemitism-nyc-stabbing-jewish.html

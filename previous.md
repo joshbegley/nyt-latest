@@ -1,3 +1,15 @@
+**Taiwan Tests How It Would Resist a Chinese Siege at Sea**\
+`Taiwan is stepping up plans to secure fuel and other vital imports as Chinese government ships practice moves that could one day be used in a blockade.`\
+https://www.nytimes.com/2026/07/25/world/asia/taiwan-china-ships-blockade.html
+
+**Quote of the Day: Teen Pleads Guilty in Georgia School Attack**\
+`Quotation of the Day for Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/25/pageoneplus/quote-of-the-day-teen-pleads-guilty-in-georgia-school-attack.html
+
+**A Global Economy Jolted by an Oil Shock Now Gets a Tariff Reminder**\
+`Tariffs are back, but this time there is a war in the Persian Gulf and oil has hit $100 a barrel.`\
+https://www.nytimes.com/2026/07/25/business/economy/trump-tariffs-iran-war-inflation.html
+
 **Fired Up, Again**\
 `Katie Hoody brings us another smoking hot Saturday puzzle.`\
 https://www.nytimes.com/2026/07/24/crosswords/daily-puzzle-2026-07-25.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/24/us/middle-east-campuses-american-universities
 **Iran’s New Leader Is More Open to Pursuing a Nuclear Weapon, U.S. Intelligence Says**\
 `The previous supreme leader, who was killed early in the war, had renounced nuclear weapons. U.S. spy agencies believe his son is more interested in building a bomb.`\
 https://www.nytimes.com/2026/07/24/us/politics/iran-nuclear-weapon.html
-
-**Trump Meets With Top Advisers as He Weighs a Major Escalation in Iran**\
-`President Trump has insisted the U.S.-Israeli war in Iran would be a relatively short “excursion,” although it has lasted nearly five months, with no end in sight.`\
-https://www.nytimes.com/2026/07/24/us/politics/trump-escalation-iran.html
-
-**Los argentinos tienen algo que decir ante las críticas tras el Mundial**\
-`Muchos argentinos condenaron los cánticos racistas y el comportamiento agresivo de sus jugadores, pero rechazaron lo que se sintió como una estigmatización generalizada de toda su nación.`\
-https://www.nytimes.com/es/2026/07/24/espanol/america-latina/argentina-mundial-criticas-racismo.html
-
-**Democrats Vote to Put South Carolina First in 2028 Primary**\
-`Along with Nevada, New Hampshire, New Mexico, Michigan and Virginia, the state will help decide the party’s next presidential nominee.`\
-https://www.nytimes.com/2026/07/24/us/politics/democrats-south-carolina-nevada-2028-presidential-race.html
 
