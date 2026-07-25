@@ -1,3 +1,7 @@
+**Está bien odiar el verano**\
+`Si necesitas ayuda para mantener una actitud positiva en medio de las olas de calor y las interrupciones fuera de la oficina, empieza con estos consejos.`\
+https://www.nytimes.com/es/2026/07/25/espanol/estilos-de-vida/verano-ola-de-calor-consejos.html
+
 **What’s Left of the U.S.-Iran Cease-Fire Agreement**\
 `Not much.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html

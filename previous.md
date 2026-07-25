@@ -1,3 +1,7 @@
+**Está bien odiar el verano**\
+`Si necesitas ayuda para mantener una actitud positiva en medio de las olas de calor y las interrupciones fuera de la oficina, empieza con estos consejos.`\
+https://www.nytimes.com/es/2026/07/25/espanol/estilos-de-vida/verano-ola-de-calor-consejos.html
+
 **What’s Left of the U.S.-Iran Cease-Fire Agreement**\
 `Not much.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/books/review/new-historical-fiction.html
 **QR Codes Make Their Way Down Wedding Aisles**\
 `The technology, often associated with pandemic-era menus, is being used by more couples for ease, cost, expedience and sustainability.`\
 https://www.nytimes.com/2026/07/25/style/wedding-qr-codes.html
-
-**Book Review: ‘The Renoir Girls,’ by Catherine Ostler**\
-`In “The Renoir Girls,” the English historian Catherine Ostler tells the beguiling, troubling and ultimately heartbreaking story of the Cahen d’Anvers family.`\
-https://www.nytimes.com/2026/07/25/books/review/catherine-ostler-the-renoir-girls.html
 
