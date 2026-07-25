@@ -1,3 +1,7 @@
+**Guy Tudor, Whose Art Brought Obscure Birds to Life, Dies at 91**\
+`A self-taught ornithologist, he won a MacArthur fellowship for his precise, resplendent illustrations that appeared in definitive field guides to tropical songbirds.`\
+https://www.nytimes.com/2026/07/25/science/guy-tudor-dead.html
+
 **Sally the Robot Was Coming to a New York School. Then the Plug Was Pulled.**\
 `Students helped design the A.I.-powered creation as a young female with dark hair and an upbeat personality. Then came the outrage.`\
 https://www.nytimes.com/2026/07/25/nyregion/robot-school-new-york-salamanca.html
@@ -118,8 +122,8 @@ https://www.nytimes.com/2026/07/25/world/canada/trump-tariffs-trade-wildfires-sm
 `Huge blazes have forced tens of thousands of residents and vacationers in France and Spain to evacuate.`\
 https://www.nytimes.com/2026/07/25/world/europe/europe-fires-france-spain-what-to-know.html
 
-**India’s Education Minister Steps Down, Handing Win to Protesters**\
-`With Dharmendra Pradhan offering his resignation, the student protest movement achieved a major victory against the government of Prime Minister Narendra Modi.`\
+**India’s Education Minister Steps Down in Victory for Cockroach Party Protesters**\
+`The Cockroach Janta Party called an end to weeks of protests after the education minister resigned, a win for that movement even as deep-seated anger among young people remains.`\
 https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns-cockroach-protests.html
 
 **Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/25/well/geriatric-emergency-departments.html
 **Kenneth Branagh Returns to the Stage Where It All Began**\
 `Over 40 years after his breakthrough at the Royal Shakespeare Company, the actor tackles Chekhov and the Bard in two productions that subtly resonate with his own story.`\
 https://www.nytimes.com/2026/07/25/theater/kenneth-branagh-royal-shakespeare-company.html
-
-**How to Choose a Real Estate Agent to Sell Your Home**\
-`Find an agent who has been working in your neighborhood, and don’t be afraid to ask questions.`\
-https://www.nytimes.com/2026/07/25/realestate/how-to-choose-a-real-estate-agent.html
 
