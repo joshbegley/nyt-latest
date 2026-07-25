@@ -1,3 +1,7 @@
+**Overlooked No More: Barbara Rubin, Teenage Filmmaker at the Heart of New York’s Underground**\
+`She made the landmark underground film “Christmas on Earth,” and helped bring together artists like Andy Warhol, Allen Ginsberg and Bob Dylan.`\
+https://www.nytimes.com/2026/07/24/obituaries/barbara-rubin-overlooked.html
+
 **Trump on LeBron James: ‘Maybe He’s a Racist’**\
 `President Trump has lashed out over the years at NBA star LeBron James, who has been critical of the president in the past.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-lebron-james-racist.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011051119/horchata.html
 **Small Businesses Sue Trump Administration Over Latest Tariffs**\
 `The businesses are represented by the Liberty Justice Center, a legal group that has successfully challenged President Trump’s past duties.`\
 https://www.nytimes.com/2026/07/24/business/trump-tariffs-small-businesses-lawsuit.html
-
-**Trump Tariff Fight Stalls Russia Sanctions Bill Championed by Lindsey Graham**\
-`A bipartisan bill championed by the late Senator Lindsey Graham has become mired in a dispute over expanding President Trump’s tariff power.`\
-https://www.nytimes.com/2026/07/24/us/politics/trump-tariffs-russia-sanctions.html
 

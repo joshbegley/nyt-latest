@@ -1,3 +1,7 @@
+**Overlooked No More: Barbara Rubin, Teenage Filmmaker at the Heart of New York’s Underground**\
+`She made the landmark underground film “Christmas on Earth,” and helped bring together artists like Andy Warhol, Allen Ginsberg and Bob Dylan.`\
+https://www.nytimes.com/2026/07/24/obituaries/barbara-rubin-overlooked.html
+
 **Trump on LeBron James: ‘Maybe He’s a Racist’**\
 `President Trump has lashed out over the years at NBA star LeBron James, who has been critical of the president in the past.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-lebron-james-racist.html
