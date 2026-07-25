@@ -1,3 +1,7 @@
+**‘OnlyMarms’: Marmots Are on OnlyFans to Raise Money for Research**\
+`A team of scientists uploaded videos of the squirrel-like rodents in the wild on the adult-content site OnlyFans to raise money amid government budget cuts.`\
+https://www.nytimes.com/2026/07/25/science/ucla-marmot-onlyfans-research-onlymarms.html
+
 **Our Very Best Celebration-Worthy Cakes**\
 `Get your party on with confetti cake, coconut cake, chocolate cake and more.`\
 https://www.nytimes.com/2026/07/25/dining/our-very-best-celebration-worthy-cakes.html

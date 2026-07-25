@@ -1,3 +1,7 @@
+**‘OnlyMarms’: Marmots Are on OnlyFans to Raise Money for Research**\
+`A team of scientists uploaded videos of the squirrel-like rodents in the wild on the adult-content site OnlyFans to raise money amid government budget cuts.`\
+https://www.nytimes.com/2026/07/25/science/ucla-marmot-onlyfans-research-onlymarms.html
+
 **Our Very Best Celebration-Worthy Cakes**\
 `Get your party on with confetti cake, coconut cake, chocolate cake and more.`\
 https://www.nytimes.com/2026/07/25/dining/our-very-best-celebration-worthy-cakes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/us/politics/elizabeth-warren-housing-bill-tru
 **6 Podcasts About Scandals and Cover-Ups**\
 `These shows explore stories of corruption and institutional wrongdoing, forging an emotional connection between the listener and the people affected.`\
 https://www.nytimes.com/2026/07/25/arts/podcasts-coverups-larry-nasser.html
-
-**Will Poulter on the TV Series That Reaffirmed His Faith in Humanity**\
-`“The show really has highlighted just so much kindness and brought so much understanding to the subject of autism,” the actor said.`\
-https://www.nytimes.com/2026/07/25/movies/will-poulter-union-county.html
 
