@@ -1,3 +1,7 @@
+**What’s Left of the U.S.-Iran Cease-Fire Agreement**\
+`Not much.`\
+https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html
+
 **Bus Collision in Syria Kills 35, Health Ministry Says**\
 `The accident occurred when a civilian bus collided with another carrying members of the Syrian security forces on a highway in the center of the country.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/bus-collision-syria.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/style/wedding-qr-codes.html
 **Book Review: ‘The Renoir Girls,’ by Catherine Ostler**\
 `In “The Renoir Girls,” the English historian Catherine Ostler tells the beguiling, troubling and ultimately heartbreaking story of the Cahen d’Anvers family.`\
 https://www.nytimes.com/2026/07/25/books/review/catherine-ostler-the-renoir-girls.html
-
-**After Democratic Shake-Up, Susan Collins Holds Enormous Cash Edge in Maine**\
-`Republicans are pouring huge sums behind the Maine senator through a web of billionaire-funded super PACs. Troy Jackson, the likely Democratic nominee, has a lot of catching up to do.`\
-https://www.nytimes.com/2026/07/25/us/politics/collins-jackson-maine-senate-fundraising.html
 
