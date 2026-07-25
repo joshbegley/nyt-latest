@@ -1,3 +1,7 @@
+**China ha salido bien parada de la guerra comercial de Trump**\
+`Los gravámenes que el presidente Trump impuso a los bienes chinos el viernes fueron de tan solo el 12,5 por ciento, pese a sus amenazas de hace un año de imponer aranceles de hasta 145 por ciento.`\
+https://www.nytimes.com/es/2026/07/25/espanol/negocios/china-trump-aranceles.html
+
 **Canadian Intern at NATO Military HQ Is Arrested on Suspicion of Spying**\
 `The authorities in Belgium did not name the country that the intern, a woman “of Chinese origin,” is suspected of spying for.`\
 https://www.nytimes.com/2026/07/25/world/europe/nato-canada-china-arrest-spying.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/world/europe/rare-pompeii-ceiling-is-restored
 **Paramount Agrees to Delay Warner Bros. Merger for Months**\
 `The company agreed to a proposed freeze until June 2027, unless a judge issues a ruling before then on a lawsuit blocking the deal.`\
 https://www.nytimes.com/2026/07/24/business/media/paramount-warner-bros-merger-delayed.html
-
-**Teachers’ Union Boss Vows ‘All-Out-War’ if Mamdani Doesn’t Back Bonuses**\
-`Teaching assistants, who are among the lowest-paid workers in New York City’s public schools, would get one-time payments of $10,000.`\
-https://www.nytimes.com/2026/07/24/nyregion/nyc-mamdani-teachers-union-bonuses.html
 

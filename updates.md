@@ -1,3 +1,7 @@
+**China ha salido bien parada de la guerra comercial de Trump**\
+`Los gravámenes que el presidente Trump impuso a los bienes chinos el viernes fueron de tan solo el 12,5 por ciento, pese a sus amenazas de hace un año de imponer aranceles de hasta 145 por ciento.`\
+https://www.nytimes.com/es/2026/07/25/espanol/negocios/china-trump-aranceles.html
+
 **Canadian Intern at NATO Military HQ Is Arrested on Suspicion of Spying**\
 `The authorities in Belgium did not name the country that the intern, a woman “of Chinese origin,” is suspected of spying for.`\
 https://www.nytimes.com/2026/07/25/world/europe/nato-canada-china-arrest-spying.html
