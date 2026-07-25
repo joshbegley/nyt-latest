@@ -1,3 +1,7 @@
+**Sally the Robot Was Coming to a New York School. Then the Plug Was Pulled.**\
+`Students helped design the A.I.-powered creation as a young female with dark hair and an upbeat personality. Then came the outrage.`\
+https://www.nytimes.com/2026/07/25/nyregion/robot-school-new-york-salamanca.html
+
 **Troy Jackson Picked to Replace Platner as Democratic Nominee in Maine Senate Race**\
 `Mr. Jackson, a progressive former State Senate president, clinched the nomination at a hastily arranged state party convention.`\
 https://www.nytimes.com/2026/07/25/us/politics/troy-jackson-maine-senate-democrats-platner.html
