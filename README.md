@@ -1,3 +1,7 @@
+**300,000 People Flee or Shelter in Place as Fires Rage in Spain and France**\
+`One person died and dozens were injured as fast-moving wildfires in France and Spain devastated tens of thousands of acres and forced mass evacuations.`\
+https://www.nytimes.com/video/world/europe/100000011053056/europe-wildfires-france-spain.html
+
 **Military Families Express Outrage After Pentagon Lowers Number of U.S. Troop Deaths in Iran War**\
 `The change in the number to 14 from 18 this week has prompted scrutiny over the Defense Department’s accounting and reporting practices.`\
 https://www.nytimes.com/2026/07/25/us/pentagon-iran-war-troops-death-toll.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011048923/karl-anthony-towns-on-the
 **Karl-Anthony Towns on His Mom: ‘I Think About Her All the Time’**\
 `On “The Interview,” Karl-Anthony Towns, the center for the New York Knicks, talked about his mother, who encouraged him to be comfortable in his own skin.`\
 https://www.nytimes.com/video/podcasts/100000011048907/karl-anthony-towns-on-his-mom-i-think-about-her-all-the-time.html
-
-**Karl-Anthony Towns on Bringing Joy, Hope and Unity to New York City**\
-`When the New York Knicks won the N.B.A. Finals last month, it ended a 53-year drought. On “The Interview,” Karl-Anthony Towns, the team’s center, talked about the jubilant reaction of fans.`\
-https://www.nytimes.com/video/podcasts/100000011048889/karl-anthony-towns-on-bringing-joy-hope-and-unity-to-new-york-city.html
 
