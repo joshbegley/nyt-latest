@@ -1,3 +1,11 @@
+**Explore New York City’s Layered Histories for the 250th Anniversary of the U.S.**\
+`The New York Times on Saturday hosted an in-person search for places that hold centuries of the city’s history. Here’s what you need to explore those spots on your own.`\
+https://www.nytimes.com/2026/07/25/nyregion/nyc-history-america-250-clues.html
+
+**Glimpses of New York City’s History Are Still Visible. Here’s Where to Look.**\
+`Traces of New York’s layered histories can be found scattered throughout its contemporary urban landscape.`\
+https://www.nytimes.com/interactive/2026/07/25/nyregion/nyc-usa-250-history-tour-manhattan.html
+
 **Guy Tudor, Whose Art Brought Obscure Birds to Life, Dies at 91**\
 `A self-taught ornithologist, he won a MacArthur fellowship for his precise, resplendent illustrations that appeared in definitive field guides to tropical songbirds.`\
 https://www.nytimes.com/2026/07/25/science/guy-tudor-dead.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/25/world/middleeast/what-a-journey-through-warti
 **New Yorkers Say Farewell to the REI SoHo**\
 `Customers gathered to mourn as the outdoor equipment retailer shuttered its location in the famed Puck building in SoHo, where it had been for 15 years.`\
 https://www.nytimes.com/2026/07/25/style/rei-soho-closing.html
-
-**What Geriatric Emergency Departments Do Differently**\
-`These specialized units can help keep older patients out of the hospital, lower their health care costs and more.`\
-https://www.nytimes.com/2026/07/25/well/geriatric-emergency-departments.html
-
-**Kenneth Branagh Returns to the Stage Where It All Began**\
-`Over 40 years after his breakthrough at the Royal Shakespeare Company, the actor tackles Chekhov and the Bard in two productions that subtly resonate with his own story.`\
-https://www.nytimes.com/2026/07/25/theater/kenneth-branagh-royal-shakespeare-company.html
 
