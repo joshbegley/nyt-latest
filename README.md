@@ -1,3 +1,11 @@
+**Our Very Best Celebration-Worthy Cakes**\
+`Get your party on with confetti cake, coconut cake, chocolate cake and more.`\
+https://www.nytimes.com/2026/07/25/dining/our-very-best-celebration-worthy-cakes.html
+
+**From Celebration to Escalation: How Trump’s Iran Cease-Fire Collapsed**\
+`The U.S. deal with Iran signed in June initially appeared to be a success. It didn’t take long to fall apart.`\
+https://www.nytimes.com/2026/07/25/us/politics/trump-iran-cease-fire-collapse.html
+
 **Está bien odiar el verano**\
 `Si necesitas ayuda para mantener una actitud positiva en medio de las olas de calor y las interrupciones fuera de la oficina, empieza con estos consejos.`\
 https://www.nytimes.com/es/2026/07/25/espanol/estilos-de-vida/verano-ola-de-calor-consejos.html
@@ -82,7 +90,7 @@ https://www.nytimes.com/2026/07/25/crosswords/connections-companion-1141.html
 `Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
 https://www.nytimes.com/2026/07/25/crosswords/strands-sidekick-875.html
 
-**As Trump Escalates Trade War, Ontario Premier Doug Ford Wants to Retaliate**\
+**As Trump Escalates Trade War With Canada, Ontario Premier Doug Ford Wants to Retaliate**\
 `While Mark Carney weighs his next steps, some provincial leaders point to oil, electricity and potash as powerful leverage against U.S. economic pressure.`\
 https://www.nytimes.com/2026/07/25/world/canada/trump-tariffs-trade-wildfires-smoke.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/25/arts/podcasts-coverups-larry-nasser.html
 **Will Poulter on the TV Series That Reaffirmed His Faith in Humanity**\
 `“The show really has highlighted just so much kindness and brought so much understanding to the subject of autism,” the actor said.`\
 https://www.nytimes.com/2026/07/25/movies/will-poulter-union-county.html
-
-**Vibrant New Historical Fiction**\
-`Our columnist on the month’s best new books.`\
-https://www.nytimes.com/2026/07/25/books/review/new-historical-fiction.html
-
-**QR Codes Make Their Way Down Wedding Aisles**\
-`The technology, often associated with pandemic-era menus, is being used by more couples for ease, cost, expedience and sustainability.`\
-https://www.nytimes.com/2026/07/25/style/wedding-qr-codes.html
 

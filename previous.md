@@ -3,7 +3,7 @@
 https://www.nytimes.com/es/2026/07/25/espanol/estilos-de-vida/verano-ola-de-calor-consejos.html
 
 **What’s Left of the U.S.-Iran Cease-Fire Agreement**\
-`Not much.`\
+`Nearly all of the agreement’s 14 points have been violated.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html
 
 **Bus Collision in Syria Kills 35, Health Ministry Says**\
