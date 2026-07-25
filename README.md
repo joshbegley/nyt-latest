@@ -1,5 +1,5 @@
 **Berlin Pride Event Cut Short After Car Hits Crowds**\
-`The police said a hunt for suspects was underway after the episode at one of Europe’s biggest LGBTQ+ festivals.`\
+`The police said a hunt for suspects was underway after the episode at one of Europe’s biggest gay-themed festivals.`\
 https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
 
 **Down the Tubes**\
