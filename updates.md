@@ -1,3 +1,7 @@
+**Charles Gaines, Whose ‘Pumping Iron’ Sparked Schwarzenegger’s Career, Dies at 84**\
+`An author and sportsman, he helped create the game of paintball and wrote the book and movie that made Arnold Schwarzenegger a household name.`\
+https://www.nytimes.com/2026/07/25/books/charles-gaines-dead.html
+
 **Ida Schmertz, Who Studied Women in Politics, Dies at 91**\
 `An immigrant who aspired to government service, she helped found the pathbreaking Center for American Women and Politics at Rutgers.`\
 https://www.nytimes.com/2026/07/25/us/ida-schmertz-dead.html
