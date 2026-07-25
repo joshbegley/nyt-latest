@@ -1,3 +1,7 @@
+**Troy Jackson Picked to Replace Platner as Democratic Nominee in Maine Senate Race**\
+`Mr. Jackson, a progressive former State Senate president, clinched the nomination at a hastily arranged state party convention.`\
+https://www.nytimes.com/2026/07/25/us/politics/troy-jackson-maine-senate-democrats-platner.html
+
 **I Will Never Not Roast a Chicken**\
 `And Ali Slagle’s five-ingredient roast chicken with caramelized zucchini and leeks is summer simplicity personified (well, chickenified).`\
 https://www.nytimes.com/2026/07/25/dining/i-will-never-not-roast-a-chicken.html
