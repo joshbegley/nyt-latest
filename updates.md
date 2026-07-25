@@ -1,3 +1,11 @@
+**Wildfire Smoke Chokes Skies in Spain and France**\
+`Hundreds of thousands of people, including residents as well as vacationers, were forced to evacuate.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
+
+**What Does Summer Taste Like?**\
+`The answer is something specific, personal, instantly familiar.`\
+https://www.nytimes.com/2026/07/25/briefing/what-does-summer-taste-like.html
+
 **La forma correcta de dejar a alguien**\
 `Básicamente, por favor, no hagas lo que me hicieron a mí.`\
 https://www.nytimes.com/es/2026/07/25/espanol/estilos-de-vida/modern-love-ruptura-amorosa.html

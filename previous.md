@@ -1,3 +1,11 @@
+**Wildfire Smoke Chokes Skies in Spain and France**\
+`Hundreds of thousands of people, including residents as well as vacationers, were forced to evacuate.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
+
+**What Does Summer Taste Like?**\
+`The answer is something specific, personal, instantly familiar.`\
+https://www.nytimes.com/2026/07/25/briefing/what-does-summer-taste-like.html
+
 **La forma correcta de dejar a alguien**\
 `Básicamente, por favor, no hagas lo que me hicieron a mí.`\
 https://www.nytimes.com/es/2026/07/25/espanol/estilos-de-vida/modern-love-ruptura-amorosa.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/24/crosswords/daily-puzzle-2026-07-25.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011052764/25vid-Trump-WHCD-intro-embed.html
-
-**Trump Switched Planes at NATO Summit After Credible Iranian Threat**\
-`The Secret Service urged President Trump to fly out of Turkey on the old Air Force One this month after what officials judged to be a credible Iranian threat, according to multiple people briefed on the matter.`\
-https://www.nytimes.com/video/us/100000011052394/trump-iran-air-force-one-threat.html
-
-**Chuck Russell, Director of ‘The Mask’ and Third ‘Nightmare on Elm Street’ Movie, Dies at 74**\
-`His work, including “The Blob,” a remake of the cult 1958 horror movie, was known for its use of brash visual effects.`\
-https://www.nytimes.com/2026/07/24/arts/chuck-russell-dead.html
 
