@@ -1,3 +1,7 @@
+**Conditions for European Wildfires Created by Summer of Extremes**\
+`The wildfires are scorching parts of France and Spain that had already faced usually hot and dry summers.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-europe-spain-france.html
+
 **Explore New York City’s Layered Histories for the 250th Anniversary of the U.S.**\
 `The New York Times on Saturday hosted an in-person search for places that hold centuries of the city’s history. Here’s what you need to explore those spots on your own.`\
 https://www.nytimes.com/2026/07/25/nyregion/nyc-history-america-250-clues.html
@@ -139,7 +143,7 @@ https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns-c
 https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
 
 **El próximo presidente de Colombia pasó de defender a narcos a declararles la guerra**\
-`Mientras vivía en Miami, Abelardo de la Espriella representó a acusados de narcotráfico y lavado de dinero. Él mismo fue investigado por las autoridades de EE. UU., aunque nunca se le imputaron cargos.`\
+`Mientras vivía en Miami, Abelardo de la Espriella, abogado, representó a acusados de narcotráfico y lavado de dinero. Él mismo fue investigado por las autoridades de EE. UU., aunque nunca se le imputaron cargos.`\
 https://www.nytimes.com/es/2026/07/25/espanol/colombia-abelardo-espriella-presidente-narco-saab.html
 
 **Wildfire Smoke Chokes Skies in Spain and France**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011047754/president-trumps-new-air-force-
 **Iran Journey Reveals Society’s Wartime Defiance and Hope**\
 `From the capital, Tehran, to the holy city of Mashhad, the Iran I saw was a nation of many layers: defiant but also weary, despairing but hopeful.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/what-a-journey-through-wartime-iran-revealed.html
-
-**New Yorkers Say Farewell to the REI SoHo**\
-`Customers gathered to mourn as the outdoor equipment retailer shuttered its location in the famed Puck building in SoHo, where it had been for 15 years.`\
-https://www.nytimes.com/2026/07/25/style/rei-soho-closing.html
 
