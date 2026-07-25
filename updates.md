@@ -1,3 +1,15 @@
+**Our Very Best Celebration-Worthy Cakes**\
+`Get your party on with confetti cake, coconut cake, chocolate cake and more.`\
+https://www.nytimes.com/2026/07/25/dining/our-very-best-celebration-worthy-cakes.html
+
+**From Celebration to Escalation: How Trump’s Iran Cease-Fire Collapsed**\
+`The U.S. deal with Iran signed in June initially appeared to be a success. It didn’t take long to fall apart.`\
+https://www.nytimes.com/2026/07/25/us/politics/trump-iran-cease-fire-collapse.html
+
+**As Trump Escalates Trade War With Canada, Ontario Premier Doug Ford Wants to Retaliate**\
+`While Mark Carney weighs his next steps, some provincial leaders point to oil, electricity and potash as powerful leverage against U.S. economic pressure.`\
+https://www.nytimes.com/2026/07/25/world/canada/trump-tariffs-trade-wildfires-smoke.html
+
 **What’s Left of the U.S.-Iran Cease-Fire Agreement**\
 `Nearly all of the agreement’s 14 points have been violated.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html
