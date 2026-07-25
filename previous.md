@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/07/24/arts/chuck-russell-dead.html
 `It was the 13th test overall of Starship. The success is a boon to NASA’s moon plans and SpaceX’s hopes to deploy a million data centers in orbit.`\
 https://www.nytimes.com/2026/07/24/science/spacex-starship-13th-test-flight.html
 
-**Stabbing Stirs Fear Among New York’s Jewish Community and Inflames Debate**\
-`Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings and defending his statements.`\
+**After Stabbings, a Rise in Jewish Fears and Questions for Mamdani**\
+`Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings of two men on the Upper West Side and defending his statements.`\
 https://www.nytimes.com/2026/07/24/nyregion/antisemitism-nyc-stabbing-jewish.html
 
 **Overlooked No More: Barbara Rubin, Teenage Filmmaker at the Heart of New York’s Underground**\

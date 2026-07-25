@@ -1,3 +1,7 @@
+**After Stabbings, a Rise in Jewish Fears and Questions for Mamdani**\
+`Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings of two men on the Upper West Side and defending his statements.`\
+https://www.nytimes.com/2026/07/24/nyregion/antisemitism-nyc-stabbing-jewish.html
+
 **Fired Up, Again**\
 `Katie Hoody brings us another smoking hot Saturday puzzle.`\
 https://www.nytimes.com/2026/07/24/crosswords/daily-puzzle-2026-07-25.html
