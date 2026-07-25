@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/07/25/theater/kenneth-branagh-royal-shakespeare-com
 `Find an agent who has been working in your neighborhood, and don’t be afraid to ask questions.`\
 https://www.nytimes.com/2026/07/25/realestate/how-to-choose-a-real-estate-agent.html
 
-**For ‘Love Island USA’ Fans, Season 8 Discussions Led to Vastly Different Takeaways**\
-`Season 8 brought more men into the chat, and revealed that while we were all watching the same reality TV show, our takeaways couldn’t have been more different.`\
-https://www.nytimes.com/2026/07/25/style/love-island-usa-masculinity.html
-
