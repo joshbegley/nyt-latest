@@ -1,3 +1,7 @@
+**India’s Education Minister Steps Down, Handing Win to Protesters**\
+`With Dharmendra Pradhan offering his resignation, the student protest movement achieved a major victory against the government of Prime Minister Narendra Modi.`\
+https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns.html
+
 **Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
 `New York’s star center on playing for his mom, Patrick Ewing. generations of emotional fans — and himself.`\
 https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/world/asia/taiwan-china-ships-blockade.html
 **Quote of the Day: Teen Pleads Guilty in Georgia School Attack**\
 `Quotation of the Day for Saturday, July 25, 2026.`\
 https://www.nytimes.com/2026/07/25/pageoneplus/quote-of-the-day-teen-pleads-guilty-in-georgia-school-attack.html
-
-**A Global Economy Jolted by an Oil Shock Now Gets a Tariff Reminder**\
-`Tariffs are back, but this time there is a war in the Persian Gulf and oil has hit $100 a barrel.`\
-https://www.nytimes.com/2026/07/25/business/economy/trump-tariffs-iran-war-inflation.html
 
