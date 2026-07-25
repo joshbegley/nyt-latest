@@ -1,3 +1,7 @@
+**Ida Schmertz, Who Studied Women in Politics, Dies at 91**\
+`An immigrant who aspired to government service, she helped found the pathbreaking Center for American Women and Politics at Rutgers.`\
+https://www.nytimes.com/2026/07/25/us/ida-schmertz-dead.html
+
 **Conditions for European Wildfires Created by Summer of Extremes**\
 `The wildfires are scorching parts of France and Spain that had already faced usually hot and dry summers.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-europe-spain-france.html

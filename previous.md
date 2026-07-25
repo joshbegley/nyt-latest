@@ -1,3 +1,7 @@
+**Ida Schmertz, Who Studied Women in Politics, Dies at 91**\
+`An immigrant who aspired to government service, she helped found the pathbreaking Center for American Women and Politics at Rutgers.`\
+https://www.nytimes.com/2026/07/25/us/ida-schmertz-dead.html
+
 **Conditions for European Wildfires Created by Summer of Extremes**\
 `The wildfires are scorching parts of France and Spain that had already faced usually hot and dry summers.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-europe-spain-france.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011048860/i-was-going-to-dunk-it-ka
 **President Trump’s New Air Force One Poses Potential Security Risks**\
 `Our investigative reporter Eric Lipton explains how earlier this month President Trump abruptly switched aircraft when leaving Turkey because of a credible threat that Iranian proxies were targeting a new Air Force One that had omitted key security modifications needed for a Qatari Boeing 747.`\
 https://www.nytimes.com/video/us/100000011047754/president-trumps-new-air-force-one-poses-potential-security-risks.html
-
-**Iran Journey Reveals Society’s Wartime Defiance and Hope**\
-`From the capital, Tehran, to the holy city of Mashhad, the Iran I saw was a nation of many layers: defiant but also weary, despairing but hopeful.`\
-https://www.nytimes.com/2026/07/25/world/middleeast/what-a-journey-through-wartime-iran-revealed.html
 
