@@ -1,3 +1,7 @@
+**Fires Rage in Spain and France, Forcing Thousands to Flee**\
+`Firefighters were scrambling to contain blazes that were moving toward major cities. Some 200,000 people have evacuated or sheltered at home.`\
+https://www.nytimes.com/2026/07/25/world/europe/france-spain-wildfires-evacuations.html
+
 **Who Are the People Protesting in India?**\
 `Some of the young demonstrators who forced out the country’s education minister describe their deep-seated anger, frustration and desires that drove them into the streets.`\
 https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html

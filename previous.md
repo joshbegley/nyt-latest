@@ -1,3 +1,7 @@
+**Fires Rage in Spain and France, Forcing Thousands to Flee**\
+`Firefighters were scrambling to contain blazes that were moving toward major cities. Some 200,000 people have evacuated or sheltered at home.`\
+https://www.nytimes.com/2026/07/25/world/europe/france-spain-wildfires-evacuations.html
+
 **Do I Have to Help My Friend Get a Job I Know She’d Be Bad At?**\
 `If she were hired, I might have to “cover” for her to prevent the quality of the work from slipping.`\
 https://www.nytimes.com/2026/07/25/magazine/friend-job-recommendation-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html
 **How an Uptight ‘Severance’ Character Lets Loose in Real Life**\
 `Tramell Tillman promises he is much more fun when dancing, shopping and eating tacos across New York City than he is on the hit Apple TV show.`\
 https://www.nytimes.com/interactive/2026/07/25/nyregion/25routine-tramell-tillman.html
-
-**Uber and Lyft Dominate the Ride-Share Industry. Can Rivals Cut In?**\
-`Companies offering for-hire vehicles via apps are hoping to make inroads in New York City with driver-friendly overtures. Others have tried and failed.`\
-https://www.nytimes.com/2026/07/25/nyregion/uber-lyft-competitor-throo.html
 
