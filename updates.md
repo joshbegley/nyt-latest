@@ -1,3 +1,15 @@
+**El calor extremo aleja a los turistas de Europa**\
+`Una opción vacacional popular podría estar en riesgo debido al aumento de las temperaturas. Incluso quienes se aferran a sus planes de verano coinciden en que más aire acondicionado sería una gran ayuda.`\
+https://www.nytimes.com/es/2026/07/25/espanol/mundo/calor-extremo-turistas-europa.html
+
+**Con razón Elon Musk odia ‘La odisea’**\
+`La IA ha abaratado el atractivo visual. Los espectadores anhelan lo visceral.`\
+https://www.nytimes.com/es/2026/07/25/espanol/opinion/elon-musk-odisea-ia.html
+
+**Who Are the People Out Protesting in India?**\
+`Some of the young demonstrators describe the anger, frustration and desires that drove them into the streets to join a movement that is testing the government of Prime Minister Narendra Modi.`\
+https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html
+
 **How an Uptight ‘Severance’ Character Lets Loose in Real Life**\
 `Tramell Tillman promises he is much more fun when dancing, shopping and eating tacos across New York City than he is on the hit Apple TV show.`\
 https://www.nytimes.com/interactive/2026/07/25/nyregion/25routine-tramell-tillman.html

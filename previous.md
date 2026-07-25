@@ -1,3 +1,15 @@
+**El calor extremo aleja a los turistas de Europa**\
+`Una opción vacacional popular podría estar en riesgo debido al aumento de las temperaturas. Incluso quienes se aferran a sus planes de verano coinciden en que más aire acondicionado sería una gran ayuda.`\
+https://www.nytimes.com/es/2026/07/25/espanol/mundo/calor-extremo-turistas-europa.html
+
+**Con razón Elon Musk odia ‘La odisea’**\
+`La IA ha abaratado el atractivo visual. Los espectadores anhelan lo visceral.`\
+https://www.nytimes.com/es/2026/07/25/espanol/opinion/elon-musk-odisea-ia.html
+
+**Who Are the People Out Protesting in India?**\
+`Some of the young demonstrators describe the anger, frustration and desires that drove them into the streets to join a movement that is testing the government of Prime Minister Narendra Modi.`\
+https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html
+
 **How an Uptight ‘Severance’ Character Lets Loose in Real Life**\
 `Tramell Tillman promises he is much more fun when dancing, shopping and eating tacos across New York City than he is on the hit Apple TV show.`\
 https://www.nytimes.com/interactive/2026/07/25/nyregion/25routine-tramell-tillman.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/24/world/asia/turkey-governor-fired-cycling-shor
 **El brote de ciclosporiasis se extiende a 9 estados de EE. UU.**\
 `Illinois, Kansas, Oklahoma y Pensilvania se unen ahora a Míchigan, Ohio, Indiana, Kentucky y Virginia Occidental en el brote de “Cyclospora” vinculado a la lechuga iceberg.`\
 https://www.nytimes.com/es/2026/07/24/espanol/brote-ciclosporiasis-casos-diarrea-lechuga.html
-
-**Opposing Defense Bill, Democrats Shift Their Tactics**\
-`Crossing what was once seen as a political red line, Democrats voted against the usually bipartisan measure, registering dissent about the war in Iran.`\
-https://www.nytimes.com/2026/07/24/us/politics/democrats-defense-bill.html
-
-**Ukraine Strikes Warehouses of Russia’s Largest Online Retailer**\
-`Ukraine has struck warehouses belonging to Wildberries, Russia’s largest online retailer, in recent days. The attacks were meant to damage Russia’s economy as both sides traded strikes this week.`\
-https://www.nytimes.com/video/world/europe/100000011051467/russia-ukraine-wildberries-attacks.html
-
-**What to Know About Hurricane Fausto and Hawaii**\
-`The storm could deliver heavy rain to the islands, but forecasters warned that the exact path was still coming into focus.`\
-https://www.nytimes.com/2026/07/24/weather/hurricane-fausto-tropical-storm-hawaii-updates.html
 
