@@ -1,3 +1,7 @@
+**Bus Collision in Syria Kills 35, Health Ministry Says**\
+`The accident occurred when a civilian bus collided with another carrying members of the Syrian security forces on a highway in the center of the country.`\
+https://www.nytimes.com/2026/07/25/world/middleeast/bus-collision-syria.html
+
 **War, Mourning and the Struggle to Survive on a Tehran Street**\
 `It’s been a punishing year for Tehran’s street vendors. Protests, war, and funeral observances for the slain supreme leader have forced repeated closures. Yet, even in the presence of government-provided translators, some spoke candidly to a New York Times crew granted rare but limited access to Iran, explaining that earning a living isn’t their only reason to return to the streets.`\
 https://www.nytimes.com/video/world/middleeast/100000011027986/iran-war-tehran-street-vendors.html

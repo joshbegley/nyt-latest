@@ -1,3 +1,7 @@
+**Bus Collision in Syria Kills 35, Health Ministry Says**\
+`The accident occurred when a civilian bus collided with another carrying members of the Syrian security forces on a highway in the center of the country.`\
+https://www.nytimes.com/2026/07/25/world/middleeast/bus-collision-syria.html
+
 **War, Mourning and the Struggle to Survive on a Tehran Street**\
 `It’s been a punishing year for Tehran’s street vendors. Protests, war, and funeral observances for the slain supreme leader have forced repeated closures. Yet, even in the presence of government-provided translators, some spoke candidly to a New York Times crew granted rare but limited access to Iran, explaining that earning a living isn’t their only reason to return to the streets.`\
 https://www.nytimes.com/video/world/middleeast/100000011027986/iran-war-tehran-street-vendors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/books/review/catherine-ostler-the-renoir-girl
 **After Democratic Shake-Up, Susan Collins Holds Enormous Cash Edge in Maine**\
 `Republicans are pouring huge sums behind the Maine senator through a web of billionaire-funded super PACs. Troy Jackson, the likely Democratic nominee, has a lot of catching up to do.`\
 https://www.nytimes.com/2026/07/25/us/politics/collins-jackson-maine-senate-fundraising.html
-
-**Utah, Known for Big Families, Leads the U.S. in Dropping Birthrates**\
-`Forget tradwives. When it comes to plummeting fertility rates, Utah is leading the country.`\
-https://www.nytimes.com/2026/07/25/us/politics/utah-birth-rate-fertility-decline.html
 
