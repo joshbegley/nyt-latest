@@ -1,3 +1,7 @@
+**Trump Holds Off on Major War Escalation Against Iran as Advisers Raise Concerns**\
+`Among the worries is that expanded hostilities could dangerously drain the diminished stockpile of air defense munitions in the Middle East.`\
+https://www.nytimes.com/2026/07/25/us/politics/trump-iran-military.html
+
 **Berlin Pride Event Cut Short After Car Hits Crowds**\
 `The police said a hunt for suspects was underway after the episode at one of Europe’s biggest gay-themed festivals.`\
 https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
