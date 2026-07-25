@@ -1,3 +1,11 @@
+**Brazil Blocks Visit by U.S. Delegation Seeking to Question Election System**\
+`Brazilian authorities refused to grant visas to two senior U.S. officials out of concern they planned to sow doubt about the security of the country’s voting systems.`\
+https://www.nytimes.com/2026/07/25/world/americas/brazil-united-states-election-voting.html
+
+**More Than 500 Howard University Students Are Bumped From Enrollment**\
+`The university said the students failed to meet payment requirements by a July 10 deadline and were removed from the school’s enrollment weeks before they were to move in.`\
+https://www.nytimes.com/2026/07/25/us/howard-university-unenrolled-students.html
+
 **300,000 People Flee or Shelter in Place as Fires Rage in Spain and France**\
 `One person died and dozens were injured as fast-moving wildfires in France and Spain devastated tens of thousands of acres and forced mass evacuations.`\
 https://www.nytimes.com/video/world/europe/100000011053056/europe-wildfires-france-spain.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/25/us/politics/trump-air-force-one-security.html
 **The Haunting Music in the ‘Odyssey’ Siren Scene Has Ancient Roots**\
 `Ludwig Göransson’s soundtrack for Christopher Nolan’s film resurrects an ancient instrument, the aulos, to evoke the tormenting allure of the sirens.`\
 https://www.nytimes.com/2026/07/25/arts/music/odyssey-music-sirens-song.html
-
-**Karl-Anthony Towns on the Jaylen Brown Trade and Losing Mitchell Robinson**\
-`Several players have changed teams in the N.B.A. recently. On “The Interview,” Karl-Anthony Towns said he’s only worrying about the New York Knicks — and that the Mitchell Robinson trade was tough.`\
-https://www.nytimes.com/video/podcasts/100000011048923/karl-anthony-towns-on-the-jaylen-brown-trade-and-losing-mitchell-robinson.html
-
-**Karl-Anthony Towns on His Mom: ‘I Think About Her All the Time’**\
-`On “The Interview,” Karl-Anthony Towns, the center for the New York Knicks, talked about his mother, who encouraged him to be comfortable in his own skin.`\
-https://www.nytimes.com/video/podcasts/100000011048907/karl-anthony-towns-on-his-mom-i-think-about-her-all-the-time.html
 
