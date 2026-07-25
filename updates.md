@@ -1,3 +1,15 @@
+**How an Uptight ‘Severance’ Character Lets Loose in Real Life**\
+`Tramell Tillman promises he is much more fun when dancing, shopping and eating tacos across New York City than he is on the hit Apple TV show.`\
+https://www.nytimes.com/interactive/2026/07/25/nyregion/25routine-tramell-tillman.html
+
+**Uber and Lyft Dominate the Ride-Share Industry. Can Rivals Cut In?**\
+`Companies offering for-hire vehicles via apps are hoping to make inroads in New York City with driver-friendly overtures. Others have tried and failed.`\
+https://www.nytimes.com/2026/07/25/nyregion/uber-lyft-competitor-throo.html
+
+**NYT Spelling Bee Answers for July 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/25/crosswords/spelling-bee-forum.html
+
 **El cambio de avión de Trump al dejar la cumbre de la OTAN se debió a una amenaza iraní**\
 `La amenaza hizo que el Servicio Secreto instara al presidente Trump a salir de Turquía en el Air Force One antiguo, lo que planteó dudas sobre la seguridad de la aeronave donada por Catar.`\
 https://www.nytimes.com/es/2026/07/25/espanol/estados-unidos/trump-air-force-one-iran-amenaza.html
