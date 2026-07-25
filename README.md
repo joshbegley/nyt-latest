@@ -1,3 +1,7 @@
+**Who Are the People Out Protesting in India?**\
+`Some of the young demonstrators describe the anger, frustration and desires that drove them into the streets to join a movement that is testing the government of Prime Minister Narendra Modi.`\
+https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html
+
 **How an Uptight ‘Severance’ Character Lets Loose in Real Life**\
 `Tramell Tillman promises he is much more fun when dancing, shopping and eating tacos across New York City than he is on the hit Apple TV show.`\
 https://www.nytimes.com/interactive/2026/07/25/nyregion/25routine-tramell-tillman.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/us/politics/democrats-defense-bill.html
 **Ukraine Strikes Warehouses of Russia’s Largest Online Retailer**\
 `Ukraine has struck warehouses belonging to Wildberries, Russia’s largest online retailer, in recent days. The attacks were meant to damage Russia’s economy as both sides traded strikes this week.`\
 https://www.nytimes.com/video/world/europe/100000011051467/russia-ukraine-wildberries-attacks.html
-
-**What to Know About Hurricane Fausto and Hawaii**\
-`The storm could deliver heavy rain to the islands, but forecasters warned that the exact path was still coming into focus.`\
-https://www.nytimes.com/2026/07/24/weather/hurricane-fausto-tropical-storm-hawaii-updates.html
 
