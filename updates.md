@@ -1,3 +1,7 @@
+**The New Tactic Trump Thinks Will Rally Voters**\
+`Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
+https://www.nytimes.com/video/opinion/100000011049015/the-new-tactic-trump-thinks-will-rally-voters.html
+
 **India’s Education Minister Steps Down, Handing Win to Protesters**\
 `With Dharmendra Pradhan offering his resignation, the student protest movement achieved a major victory against the government of Prime Minister Narendra Modi.`\
 https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns-cockroach-protests.html
