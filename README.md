@@ -1,3 +1,7 @@
+**Military Families Express Outrage After Pentagon Lowers Number of U.S. Troop Deaths in Iran War**\
+`The change in the number to 14 from 18 this week has prompted scrutiny over the Defense Department’s accounting and reporting practices.`\
+https://www.nytimes.com/2026/07/25/us/pentagon-iran-war-troops-death-toll.html
+
 **Charles Gaines, Whose ‘Pumping Iron’ Sparked Schwarzenegger’s Career, Dies at 84**\
 `An author and sportsman, he helped create the game of paintball and wrote the book and movie that made Arnold Schwarzenegger a household name.`\
 https://www.nytimes.com/2026/07/25/books/charles-gaines-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011048907/karl-anthony-towns-on-his
 **Karl-Anthony Towns on Bringing Joy, Hope and Unity to New York City**\
 `When the New York Knicks won the N.B.A. Finals last month, it ended a 53-year drought. On “The Interview,” Karl-Anthony Towns, the team’s center, talked about the jubilant reaction of fans.`\
 https://www.nytimes.com/video/podcasts/100000011048889/karl-anthony-towns-on-bringing-joy-hope-and-unity-to-new-york-city.html
-
-**‘I Was Going to Dunk It’: Karl-Anthony Towns on OG Anunoby’s Tip-In**\
-`On “The Interview,” Karl-Anthony Towns, the center for the New York Knicks, talked about OG Anunoby’s remarkable winning play in Game Four of the N.B.A. Finals.`\
-https://www.nytimes.com/video/podcasts/100000011048860/i-was-going-to-dunk-it-karl-anthony-towns-on-og-anunobys-tip-in.html
 
