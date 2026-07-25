@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/07/24/world/europe/karim-khan-icc.html
 `Known as Boom Boom, he recorded a string of hits in the 1950s and ’60s, including “Tallahassee Lassie,” which began as a poem by his mother.`\
 https://www.nytimes.com/2026/07/24/arts/music/freddy-cannon-dead.html
 
-**D4vd Had Sexual Relationship With Teenager, Detective Testifies in Murder Case**\
+**Medical Examiner in D4vd Murder Case Describes Body in Graphic Testimony**\
 `The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
 https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
 
