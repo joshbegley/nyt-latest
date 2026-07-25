@@ -1,3 +1,11 @@
+**Hundreds of Thousands Flee Fires in France and Spain as Help Pours In**\
+`Nearly 300,000 have been told to evacuate or take shelter as major fires edged closer to Madrid and Bordeaux.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-france-spain-bordeaux-madrid.html
+
+**13 Children Accidentally Consume Edibles at New Jersey Y.M.C.A. Summer Camp**\
+`The Y.M.C.A. said a camper had handed them out without its knowledge. A parent described the affected children as looking like “little baby zombies.”`\
+https://www.nytimes.com/2026/07/25/nyregion/new-jersey-campers-mushroom-chocolate.html
+
 **Wildfire Smoke Chokes Skies in Spain and France**\
 `Hundreds of thousands of people, residents as well as vacationers, were forced to evacuate or told to remain indoors.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
