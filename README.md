@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
 https://www.nytimes.com/es/2026/07/25/espanol/colombia-abelardo-espriella-presidente-narco-saab.html
 
 **Wildfire Smoke Chokes Skies in Spain and France**\
-`Hundreds of thousands of people, including residents as well as vacationers, were forced to evacuate.`\
+`Hundreds of thousands of people, including residents as well as vacationers, were forced to evacuate or told to remain indoors.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
 
 **What Does Summer Taste Like?**\
