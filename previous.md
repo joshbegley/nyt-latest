@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/07/25/business/grady-white-boats-charity.html
 `As start-ups like Anthropic and OpenAI prepare to go public, nonprofits are hoping for a secondary giving windfall from the new tech ultrawealthy.`\
 https://www.nytimes.com/2026/07/25/business/dealbook/spacex-anthropic-philanthropy.html
 
-**Live Updates: Hundreds of Thousands Flee as Fires Rage in Spain and France**\
+**Hundreds of Thousands Flee as Fires Rage in Spain and France**\
 `Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux.`\
 https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations
 
