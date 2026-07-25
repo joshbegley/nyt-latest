@@ -1,3 +1,7 @@
+**Troy Jackson Picked to Replace Platner as Democratic Nominee in Maine Senate Race**\
+`Mr. Jackson, a progressive former State Senate president, clinched the nomination at a hastily arranged state party convention.`\
+https://www.nytimes.com/2026/07/25/us/politics/troy-jackson-maine-senate-democrats-platner.html
+
 **I Will Never Not Roast a Chicken**\
 `And Ali Slagle’s five-ingredient roast chicken with caramelized zucchini and leeks is summer simplicity personified (well, chickenified).`\
 https://www.nytimes.com/2026/07/25/dining/i-will-never-not-roast-a-chicken.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/style/love-island-usa-masculinity.html
 **‘Dread Beat an Blood’ Set Black Londoners’ Struggle to a Groove**\
 `A newly restored 1979 documentary examines how Linton Kwesi Johnson’s dub-infused poetry documented the challenges faced by Britain’s Black Caribbean population.`\
 https://www.nytimes.com/2026/07/25/arts/music/dread-beat-an-blood-linton-kwesi-johnson.html
-
-**In Pompeii, Tom Hiddleston, ‘Amateur Classicist,’ Sees Lessons for Today**\
-`A new docuseries sent the star of “Loki,” who holds a classics degree, back to the site of an ancient tragedy, in search of relatable human stories.`\
-https://www.nytimes.com/2026/07/25/arts/television/pompeii-tom-hiddleston-national-geographic-documentary.html
 
