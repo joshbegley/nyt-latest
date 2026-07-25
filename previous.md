@@ -1,3 +1,35 @@
+**The Peptide Wild West**\
+`Welcome to the new Wild West of peptides.`\
+https://www.nytimes.com/2026/07/25/opinion/peptides-fda-health-supplements.html
+
+**The New Tactic Trump Thinks Will Rally Voters**\
+`Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
+https://www.nytimes.com/2026/07/25/opinion/trump-iran-socialism-communism-dsa.html
+
+**Trump’s War Was ‘Perfect’ Until It Wasn’t**\
+`Worst of all, the result may be that both Iran and Saudi Arabia end up with nuclear weapons.`\
+https://www.nytimes.com/2026/07/25/opinion/trump-iran-saudi-arabia-war-nuclear-deal.html
+
+**Nolan’s Zero-Eros ‘Odyssey’**\
+`Homer’s Odysseus was hardly a man of remorse and shame.`\
+https://www.nytimes.com/2026/07/25/opinion/odyssey-nolan-greek-mythology.html
+
+**Whatever Happened to the B+ Student?**\
+`Readers respond to an essay by Frank Bruni about the pressure to give students A’s in college classes.`\
+https://www.nytimes.com/2026/07/25/opinion/college-students-grades.html
+
+**When Girls Get to Be Boy Scouts**\
+`What I know from six years of leading Troop 163 is that these girls invigorate scouting rather than weaken it.`\
+https://www.nytimes.com/2026/07/25/opinion/boy-scouts-girls-gender.html
+
+**The Flawed Environmental Case Against Data Centers**\
+`Our animosity toward data centers is really more about our anxieties about A.I.`\
+https://www.nytimes.com/2026/07/25/opinion/data-centers-environment-ai.html
+
+**Why Vance Still Trumps Rubio**\
+`There’s no evidence that the president regards his vice president more skeptically because of his initial opposition to the war.`\
+https://www.nytimes.com/2026/07/25/opinion/vance-rubio-trump-iran.html
+
 **The New Tactic Trump Thinks Will Rally Voters**\
 `Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
 https://www.nytimes.com/video/opinion/100000011049015/the-new-tactic-trump-thinks-will-rally-voters.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/07/25/world/australia/new-zealand-maori-ta-moko-tat
 **Minecraft Is Helping Kids RedesignTheir Cities**\
 `In 55 countries, the popular video game has been used to engage children in the process of urban design.`\
 https://www.nytimes.com/2026/07/25/headway/minecraft-is-helping-kids-redesigntheir-cities.html
-
-**Iran War Live Updates: U.S. Strikes Abate, Even as Trump Considers Escalation**\
-`U.S. forces did not announce new overnight attacks on southern Iran for the first time in about two weeks, but tensions remained high, with Saudi-led forces striking Houthi targets over the Red Sea.`\
-https://www.nytimes.com/live/2026/07/25/world/iran-war-us-strikes-trump-oil
-
-**Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
-`David Marchese speaks with Karl-Anthony Towns about his path to the N.B.A., the team’s interpersonal dynamics and what it means to win a championship for the long-suffering Knicks faithful.`\
-https://www.nytimes.com/video/podcasts/100000011052133/karl-anthony-towns-interview-knicks-championship.html
-
-**China ha salido bien parada de la guerra comercial de Trump**\
-`Los gravámenes que el presidente Trump impuso a los bienes chinos el viernes fueron de tan solo el 12,5 por ciento, pese a sus amenazas de hace un año de imponer aranceles de hasta 145 por ciento.`\
-https://www.nytimes.com/es/2026/07/25/espanol/negocios/china-trump-aranceles.html
-
-**Canadian Intern at NATO Military HQ Is Arrested on Suspicion of Spying**\
-`The authorities in Belgium did not name the country that the intern, a woman “of Chinese origin,” is suspected of spying for.`\
-https://www.nytimes.com/2026/07/25/world/europe/nato-canada-china-arrest-spying.html
-
-**Trump Speaks at Rescheduled Correspondents’ Dinner**\
-`President Trump spoke on Friday at the White House Correspondents’ Association dinner, which was rescheduled after a gunman attacked the event in April.`\
-https://www.nytimes.com/video/us/politics/100000011052831/trump-white-house-correspondents-dinner.html
-
-**El calor extremo aleja a los turistas de Europa**\
-`Una opción vacacional popular podría estar en riesgo debido al aumento de las temperaturas. Incluso quienes se aferran a sus planes de verano coinciden en que más aire acondicionado sería una gran ayuda.`\
-https://www.nytimes.com/es/2026/07/25/espanol/mundo/calor-extremo-turistas-europa.html
-
-**Con razón Elon Musk odia ‘La odisea’**\
-`La IA ha abaratado el atractivo visual. Los espectadores anhelan lo visceral.`\
-https://www.nytimes.com/es/2026/07/25/espanol/opinion/elon-musk-odisea-ia.html
-
-**Who Are the People Protesting in India?**\
-`Some of the young demonstrators who forced out the country’s education minister describe their deep-seated anger, frustration and desires that drove them into the streets.`\
-https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html
 

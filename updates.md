@@ -1,3 +1,35 @@
+**The Peptide Wild West**\
+`Welcome to the new Wild West of peptides.`\
+https://www.nytimes.com/2026/07/25/opinion/peptides-fda-health-supplements.html
+
+**The New Tactic Trump Thinks Will Rally Voters**\
+`Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
+https://www.nytimes.com/2026/07/25/opinion/trump-iran-socialism-communism-dsa.html
+
+**Trump’s War Was ‘Perfect’ Until It Wasn’t**\
+`Worst of all, the result may be that both Iran and Saudi Arabia end up with nuclear weapons.`\
+https://www.nytimes.com/2026/07/25/opinion/trump-iran-saudi-arabia-war-nuclear-deal.html
+
+**Nolan’s Zero-Eros ‘Odyssey’**\
+`Homer’s Odysseus was hardly a man of remorse and shame.`\
+https://www.nytimes.com/2026/07/25/opinion/odyssey-nolan-greek-mythology.html
+
+**Whatever Happened to the B+ Student?**\
+`Readers respond to an essay by Frank Bruni about the pressure to give students A’s in college classes.`\
+https://www.nytimes.com/2026/07/25/opinion/college-students-grades.html
+
+**When Girls Get to Be Boy Scouts**\
+`What I know from six years of leading Troop 163 is that these girls invigorate scouting rather than weaken it.`\
+https://www.nytimes.com/2026/07/25/opinion/boy-scouts-girls-gender.html
+
+**The Flawed Environmental Case Against Data Centers**\
+`Our animosity toward data centers is really more about our anxieties about A.I.`\
+https://www.nytimes.com/2026/07/25/opinion/data-centers-environment-ai.html
+
+**Why Vance Still Trumps Rubio**\
+`There’s no evidence that the president regards his vice president more skeptically because of his initial opposition to the war.`\
+https://www.nytimes.com/2026/07/25/opinion/vance-rubio-trump-iran.html
+
 **The New Tactic Trump Thinks Will Rally Voters**\
 `Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
 https://www.nytimes.com/video/opinion/100000011049015/the-new-tactic-trump-thinks-will-rally-voters.html
