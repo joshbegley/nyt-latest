@@ -1,3 +1,7 @@
+**Wildfire in France Rages Near Bordeaux, a Famed Wine City**\
+`A blaze sweeping the countryside of southwestern France drew close enough to worry officials in the city of some 270,000 people.`\
+https://www.nytimes.com/2026/07/25/world/europe/saumos-wildfire-france-spain-bordeaux.html
+
 **‘OnlyMarms’: Marmots Are on OnlyFans to Raise Money for Research**\
 `A team of scientists uploaded videos of the squirrel-like rodents in the wild on the adult-content site OnlyFans to raise money amid government budget cuts.`\
 https://www.nytimes.com/2026/07/25/science/ucla-marmot-onlyfans-research-onlymarms.html
@@ -107,7 +111,7 @@ https://www.nytimes.com/2026/07/25/world/europe/europe-fires-france-spain-what-t
 https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns-cockroach-protests.html
 
 **Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
-`New York’s star center on playing for his mom, Patrick Ewing. generations of emotional fans — and himself.`\
+`New York’s star center on playing for his mom, Patrick Ewing, generations of emotional fans — and himself.`\
 https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
 
 **El próximo presidente de Colombia pasó de defender a narcos a declararles la guerra**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/arts/television/pompeii-tom-hiddleston-nation
 **How a Housing Bill Trump Spurned Became Law**\
 `Despite partisan differences, intraparty feuds and the president’s lack of interest, Congress delivered the first major housing bill in a generation.`\
 https://www.nytimes.com/2026/07/25/us/politics/elizabeth-warren-housing-bill-trump.html
-
-**6 Podcasts About Scandals and Cover-Ups**\
-`These shows explore stories of corruption and institutional wrongdoing, forging an emotional connection between the listener and the people affected.`\
-https://www.nytimes.com/2026/07/25/arts/podcasts-coverups-larry-nasser.html
 

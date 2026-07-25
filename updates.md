@@ -1,3 +1,11 @@
+**Wildfire in France Rages Near Bordeaux, a Famed Wine City**\
+`A blaze sweeping the countryside of southwestern France drew close enough to worry officials in the city of some 270,000 people.`\
+https://www.nytimes.com/2026/07/25/world/europe/saumos-wildfire-france-spain-bordeaux.html
+
+**Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
+`New York’s star center on playing for his mom, Patrick Ewing, generations of emotional fans — and himself.`\
+https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
+
 **‘OnlyMarms’: Marmots Are on OnlyFans to Raise Money for Research**\
 `A team of scientists uploaded videos of the squirrel-like rodents in the wild on the adult-content site OnlyFans to raise money amid government budget cuts.`\
 https://www.nytimes.com/2026/07/25/science/ucla-marmot-onlyfans-research-onlymarms.html
