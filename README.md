@@ -1,3 +1,7 @@
+**Fired Up, Again**\
+`Katie Hoody brings us another smoking hot Saturday puzzle.`\
+https://www.nytimes.com/2026/07/24/crosswords/daily-puzzle-2026-07-25.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011052764/25vid-Trump-WHCD-intro-embed.html
@@ -107,7 +111,7 @@ https://www.nytimes.com/video/opinion/100000011038507/graham-platners-strategist
 https://www.nytimes.com/2026/07/24/arts/design/smithsonian-signs-trump-executive-order.html
 
 **Trump Switched to Old Air Force One at NATO Summit After Credible Iranian Threat**\
-`The threat led the Secret Service to urge President Trump to fly out of Turkey on the old plane, raising questions about the security of the Qatari-donated jet.`\
+`The threat led the Secret Service to urge President Trump to fly out of Turkey on a different plane, raising questions about the security of the Qatari-donated jet.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-plane-iran-threat.html
 
 **Gretchen Whitmer Endorses Haley Stevens in Michigan Senate Race**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/24/espanol/america-latina/argentina-mundial-c
 **Democrats Vote to Put South Carolina First in 2028 Primary**\
 `Along with Nevada, New Hampshire, New Mexico, Michigan and Virginia, the state will help decide the party’s next presidential nominee.`\
 https://www.nytimes.com/2026/07/24/us/politics/democrats-south-carolina-nevada-2028-presidential-race.html
-
-**Trump Administration Admits Canceling Grants to States That Did Not Vote for Him**\
-`Federal officials said in court documents that they halted billions of dollars in funding for energy projects to states “based solely” on whether they backed President Trump in the 2024 election.`\
-https://www.nytimes.com/2026/07/24/business/trump-state-grants-canceled.html
 

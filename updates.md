@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011052764/25vid-Trump-WHCD-intro-embed.html
+
 **Trump Switched Planes at NATO Summit After Credible Iranian Threat**\
 `The Secret Service urged President Trump to fly out of Turkey on the old Air Force One this month after what officials judged to be a credible Iranian threat, according to multiple people briefed on the matter.`\
 https://www.nytimes.com/video/us/100000011052394/trump-iran-air-force-one-threat.html
