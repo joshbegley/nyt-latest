@@ -1,3 +1,7 @@
+**On Second Test of Its Newest Starship Design, SpaceX Sticks the Landing**\
+`It was the 13th test overall of Starship. The success is a boon to NASA’s moon plans and SpaceX’s hopes to deploy a million data centers in orbit.`\
+https://www.nytimes.com/2026/07/24/science/spacex-starship-13th-test-flight.html
+
 **‘Suspicious’ House Fire in Michigan Kills 6 Children and 2 Adults**\
 `At least some of the victims, who were all members of the same family, were found with gunshot wounds, an official said. The children ranged in age from 5 to 15.`\
 https://www.nytimes.com/2026/07/24/us/house-fire-michigan-grand-haven.html

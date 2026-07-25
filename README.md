@@ -1,3 +1,7 @@
+**Chuck Russell, Director of ‘The Mask’ and Third ‘Nightmare on Elm Street’ Movie, Dies at 74**\
+`His work, including “The Blob,” a remake of the cult 1958 horror movie, was known for its use of brash visual effects.`\
+https://www.nytimes.com/2026/07/24/arts/chuck-russell-dead.html
+
 **On Second Test of Its Newest Starship Design, SpaceX Sticks the Landing**\
 `It was the 13th test overall of Starship. The success is a boon to NASA’s moon plans and SpaceX’s hopes to deploy a million data centers in orbit.`\
 https://www.nytimes.com/2026/07/24/science/spacex-starship-13th-test-flight.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/world/asia/india-genz-student-movement-cockro
 **Baked Croissant French Toast With Blueberries**\
 `Simple to prepare but worthy of a celebration, this French toast starts with a base of buttery croissants and is studded with juicy blueberries.`\
 https://www.nytimes.com/video/dining/100000011051121/baked-croissant-french-toast-with-blueberries.html
-
-**Sook Mei Faan (Cantonese Creamed Corn With Tofu and Rice)**\
-`Creamed corn over rice is a quintessential Cantonese dish often served at cha chaan tengs, casual diners that are ubiquitous in Hong Kong.`\
-https://www.nytimes.com/video/dining/100000011051114/sook-mei-faan-cantonese-creamed-corn-with-tofu-and-rice.html
 
