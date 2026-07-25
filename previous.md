@@ -1,3 +1,11 @@
+**Berlin Pride Event Cut Short After Car Hits Crowds**\
+`The police said a hunt for suspects was underway after the episode at one of Europe’s biggest gay-themed festivals.`\
+https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
+
+**Down the Tubes**\
+`Kim Alswager’s New York Times debut is a puzzler’s pipe dream.`\
+https://www.nytimes.com/2026/07/25/crosswords/daily-puzzle-2026-07-26.html
+
 **Maine Democrats Pick Troy Jackson to Replace Graham Platner in Senate Race**\
 `Maine Democrats have chosen Troy Jackson, a progressive former State Senate president, to replace Graham Platner as their Senate candidate. Jackson was selected at a hastily organized state party convention, which came together after Platner, who faced a rape accusation he denies, dropped out of the race.`\
 https://www.nytimes.com/video/us/politics/100000011053054/maine-troy-jackson-senate-democrats-platner.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/25/briefing/what-does-summer-taste-like.html
 **La forma correcta de dejar a alguien**\
 `Básicamente, por favor, no hagas lo que me hicieron a mí.`\
 https://www.nytimes.com/es/2026/07/25/espanol/estilos-de-vida/modern-love-ruptura-amorosa.html
-
-**Tankers Sail Through Red Sea Despite Houthi Blockade**\
-`Dozens of ships continued to traverse the Red Sea this week, but with scattered disruption, uncertainty about the passage grows by the hour.`\
-https://www.nytimes.com/2026/07/25/business/energy-environment/houthi-blockade-red-sea-maps.html
-
-**Inside the Rushed Effort to Get Trump His New Air Force One**\
-`A New York Times investigation found that President Trump’s push to speed delivery of the aircraft led to ballooning costs and trade-offs in safety features.`\
-https://www.nytimes.com/2026/07/25/us/politics/trump-air-force-one-security.html
 

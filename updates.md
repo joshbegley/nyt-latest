@@ -1,3 +1,11 @@
+**Berlin Pride Event Cut Short After Car Hits Crowds**\
+`The police said a hunt for suspects was underway after the episode at one of Europe’s biggest gay-themed festivals.`\
+https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
+
+**Down the Tubes**\
+`Kim Alswager’s New York Times debut is a puzzler’s pipe dream.`\
+https://www.nytimes.com/2026/07/25/crosswords/daily-puzzle-2026-07-26.html
+
 **Hundreds of Thousands Flee as Fires Rage in Spain and France**\
 `Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux.`\
 https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations
