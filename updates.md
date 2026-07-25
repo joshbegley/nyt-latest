@@ -1,3 +1,7 @@
+**Live Updates: Fires Rage in Spain and France, Forcing Thousands to Flee**\
+`Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux. Some 200,000 people have evacuated or are sheltering at home.`\
+https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations
+
 **The Peptide Wild West**\
 `Welcome to the new Wild West of peptides.`\
 https://www.nytimes.com/2026/07/25/opinion/peptides-fda-health-supplements.html
