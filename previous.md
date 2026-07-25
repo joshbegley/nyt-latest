@@ -1,3 +1,7 @@
+**Trump on LeBron James: ‘Maybe He’s a Racist’**\
+`President Trump has lashed out over the years at NBA star LeBron James, who has been critical of the president in the past.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-lebron-james-racist.html
+
 **1.6 Million Egg Cartons Are Recalled Over Salmonella Risk**\
 `The voluntary recall included eggs produced in Texas and sold under several brand names in six states, the Food and Drug Administration said.`\
 https://www.nytimes.com/2026/07/24/business/egg-recall-salmonella-texas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/business/trump-tariffs-small-businesses-lawsu
 **Trump Tariff Fight Stalls Russia Sanctions Bill Championed by Lindsey Graham**\
 `A bipartisan bill championed by the late Senator Lindsey Graham has become mired in a dispute over expanding President Trump’s tariff power.`\
 https://www.nytimes.com/2026/07/24/us/politics/trump-tariffs-russia-sanctions.html
-
-**Former ‘60 Minutes’ Reporter Cecilia Vega Details Claims of Meddling**\
-`Cecilia Vega described what she said was pressure from executives to insert bias into several segments that aired this year.`\
-https://www.nytimes.com/2026/07/24/business/media/cecilia-vega-60-minutes.html
 

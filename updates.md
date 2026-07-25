@@ -1,3 +1,7 @@
+**Trump on LeBron James: ‘Maybe He’s a Racist’**\
+`President Trump has lashed out over the years at NBA star LeBron James, who has been critical of the president in the past.`\
+https://www.nytimes.com/2026/07/24/us/politics/trump-lebron-james-racist.html
+
 **D4vd Had Sexual Relationship With Teenager, Detective Testifies in Murder Case**\
 `The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
 https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
