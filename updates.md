@@ -1,3 +1,7 @@
+**El próximo presidente de Colombia pasó de defender a narcos a declararles la guerra**\
+`Mientras vivía en Miami, Abelardo de la Espriella representó a acusados de narcotráfico y lavado de dinero. Él mismo fue investigado por las autoridades de EE. UU., aunque nunca se le imputaron cargos.`\
+https://www.nytimes.com/es/2026/07/25/espanol/colombia-abelardo-espriella-presidente-narco-saab.html
+
 **Wildfire Smoke Chokes Skies in Spain and France**\
 `Hundreds of thousands of people, including residents as well as vacationers, were forced to evacuate.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
