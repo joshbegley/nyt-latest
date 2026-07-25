@@ -1,3 +1,11 @@
+**Hundreds of Thousands Flee Fires in France and Spain as Help Pours In**\
+`Nearly 300,000 have been told to evacuate or take shelter as major fires edged closer to Madrid and Bordeaux.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-france-spain-bordeaux-madrid.html
+
+**13 Children Accidentally Consume Edibles at New Jersey Y.M.C.A. Summer Camp**\
+`The Y.M.C.A. said a camper had handed them out without its knowledge. A parent described the affected children as looking like “little baby zombies.”`\
+https://www.nytimes.com/2026/07/25/nyregion/new-jersey-campers-mushroom-chocolate.html
+
 **Trump Holds Off on Major War Escalation Against Iran as Advisers Raise Concerns**\
 `Among the worries is that expanded hostilities could dangerously drain the diminished stockpile of air defense munitions in the Middle East.`\
 https://www.nytimes.com/2026/07/25/us/politics/trump-iran-military.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
 **El próximo presidente de Colombia pasó de defender a narcos a declararles la guerra**\
 `Mientras vivía en Miami, Abelardo de la Espriella, abogado, representó a acusados de narcotráfico y lavado de dinero. Él mismo fue investigado por las autoridades de EE. UU., aunque nunca se le imputaron cargos.`\
 https://www.nytimes.com/es/2026/07/25/espanol/colombia-abelardo-espriella-presidente-narco-saab.html
-
-**Wildfire Smoke Chokes Skies in Spain and France**\
-`Hundreds of thousands of people, residents as well as vacationers, were forced to evacuate or told to remain indoors.`\
-https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
-
-**What Does Summer Taste Like?**\
-`The answer is something specific, personal, instantly familiar.`\
-https://www.nytimes.com/2026/07/25/briefing/what-does-summer-taste-like.html
 
