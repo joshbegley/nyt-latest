@@ -1,3 +1,7 @@
+**What’s Left of the U.S.-Iran Cease-Fire Agreement**\
+`Not much.`\
+https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html
+
 **Bus Collision in Syria Kills 35, Health Ministry Says**\
 `The accident occurred when a civilian bus collided with another carrying members of the Syrian security forces on a highway in the center of the country.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/bus-collision-syria.html
