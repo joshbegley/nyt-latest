@@ -1,3 +1,7 @@
+**Charles Gaines, Whose ‘Pumping Iron’ Sparked Schwarzenegger’s Career, Dies at 84**\
+`An author and sportsman, he helped create the game of paintball and wrote the book and movie that made Arnold Schwarzenegger a household name.`\
+https://www.nytimes.com/2026/07/25/books/charles-gaines-dead.html
+
 **Ida Schmertz, Who Studied Women in Politics, Dies at 91**\
 `An immigrant who aspired to government service, she helped found the pathbreaking Center for American Women and Politics at Rutgers.`\
 https://www.nytimes.com/2026/07/25/us/ida-schmertz-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011048889/karl-anthony-towns-on-bri
 **‘I Was Going to Dunk It’: Karl-Anthony Towns on OG Anunoby’s Tip-In**\
 `On “The Interview,” Karl-Anthony Towns, the center for the New York Knicks, talked about OG Anunoby’s remarkable winning play in Game Four of the N.B.A. Finals.`\
 https://www.nytimes.com/video/podcasts/100000011048860/i-was-going-to-dunk-it-karl-anthony-towns-on-og-anunobys-tip-in.html
-
-**President Trump’s New Air Force One Poses Potential Security Risks**\
-`Our investigative reporter Eric Lipton explains how earlier this month President Trump abruptly switched aircraft when leaving Turkey because of a credible threat that Iranian proxies were targeting a new Air Force One that had omitted key security modifications needed for a Qatari Boeing 747.`\
-https://www.nytimes.com/video/us/100000011047754/president-trumps-new-air-force-one-poses-potential-security-risks.html
 
