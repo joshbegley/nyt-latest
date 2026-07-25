@@ -1,3 +1,7 @@
+**Wildfire Smoke Chokes Skies in Spain and France**\
+`Hundreds of thousands of people, residents as well as vacationers, were forced to evacuate or told to remain indoors.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html
+
 **Trump Holds Off on Major War Escalation Against Iran as Advisers Raise Concerns**\
 `Among the worries is that expanded hostilities could dangerously drain the diminished stockpile of air defense munitions in the Middle East.`\
 https://www.nytimes.com/2026/07/25/us/politics/trump-iran-military.html
