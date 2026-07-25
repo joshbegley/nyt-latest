@@ -1,3 +1,11 @@
+**Military Families Express Outrage After Pentagon Lowers Number of U.S. Troop Deaths in Iran War**\
+`The change in the number to 14 from 18 this week has prompted scrutiny over the Defense Department’s accounting and reporting practices.`\
+https://www.nytimes.com/2026/07/25/us/pentagon-iran-war-troops-death-toll.html
+
+**Conditions for European Wildfires Created by Summer of Extremes**\
+`The wildfires are scorching parts of France and Spain that had already faced unusually hot and dry summers.`\
+https://www.nytimes.com/2026/07/25/world/europe/wildfires-europe-spain-france.html
+
 **Charles Gaines, Whose ‘Pumping Iron’ Sparked Schwarzenegger’s Career, Dies at 84**\
 `An author and sportsman, he helped create the game of paintball and wrote the book and movie that made Arnold Schwarzenegger a household name.`\
 https://www.nytimes.com/2026/07/25/books/charles-gaines-dead.html
