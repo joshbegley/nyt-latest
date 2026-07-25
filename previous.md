@@ -186,8 +186,8 @@ https://www.nytimes.com/es/2026/07/25/espanol/mundo/calor-extremo-turistas-europ
 `La IA ha abaratado el atractivo visual. Los espectadores anhelan lo visceral.`\
 https://www.nytimes.com/es/2026/07/25/espanol/opinion/elon-musk-odisea-ia.html
 
-**Who Are the People Out Protesting in India?**\
-`Some of the young demonstrators describe the anger, frustration and desires that drove them into the streets to join a movement that is testing the government of Prime Minister Narendra Modi.`\
+**Who Are the People Protesting in India?**\
+`Some of the young demonstrators who forced out the country’s education minister describe their deep-seated anger, frustration and desires that drove them into the streets.`\
 https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html
 
 **How an Uptight ‘Severance’ Character Lets Loose in Real Life**\

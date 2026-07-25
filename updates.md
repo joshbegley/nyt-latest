@@ -1,3 +1,7 @@
+**Who Are the People Protesting in India?**\
+`Some of the young demonstrators who forced out the country’s education minister describe their deep-seated anger, frustration and desires that drove them into the streets.`\
+https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html
+
 **Do I Have to Help My Friend Get a Job I Know She’d Be Bad At?**\
 `If she were hired, I might have to “cover” for her to prevent the quality of the work from slipping.`\
 https://www.nytimes.com/2026/07/25/magazine/friend-job-recommendation-ethics.html
