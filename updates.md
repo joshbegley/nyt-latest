@@ -1,3 +1,7 @@
+**D4vd Had Sexual Relationship With Teenager, Detective Testifies in Murder Case**\
+`The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
+https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
+
 **1.6 Million Egg Cartons Are Recalled Over Salmonella Risk**\
 `The voluntary recall included eggs produced in Texas and sold under several brand names in six states, the Food and Drug Administration said.`\
 https://www.nytimes.com/2026/07/24/business/egg-recall-salmonella-texas.html
