@@ -1,3 +1,27 @@
+**Do I Have to Help My Friend Get a Job I Know She’d Be Bad At?**\
+`If she were hired, I might have to “cover” for her to prevent the quality of the work from slipping.`\
+https://www.nytimes.com/2026/07/25/magazine/friend-job-recommendation-ethics.html
+
+**Today’s Wordle Hints for July 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/25/crosswords/wordle-review-1863.html
+
+**NYT Connections Answers for July 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/25/crosswords/connections-companion-1141.html
+
+**NYT Strands Hints for July 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/25/crosswords/strands-sidekick-875.html
+
+**As Trump Escalates Trade War, Ontario Premier Doug Ford Wants to Retaliate**\
+`While Mark Carney weighs his next steps, some provincial leaders point to oil, electricity and potash as powerful leverage against U.S. economic pressure.`\
+https://www.nytimes.com/2026/07/25/world/canada/trump-tariffs-trade-wildfires-smoke.html
+
+**What to Know About the Wildfires Raging in Western Europe**\
+`Huge blazes have forced tens of thousands of residents and vacationers in France and Spain to evacuate.`\
+https://www.nytimes.com/2026/07/25/world/europe/europe-fires-france-spain-what-to-know.html
+
 **Wildfire Smoke Chokes Skies in Spain and France**\
 `Hundreds of thousands of people, including residents as well as vacationers, were forced to evacuate or told to remain indoors.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html

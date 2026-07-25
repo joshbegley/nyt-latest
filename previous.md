@@ -1,3 +1,27 @@
+**Do I Have to Help My Friend Get a Job I Know She’d Be Bad At?**\
+`If she were hired, I might have to “cover” for her to prevent the quality of the work from slipping.`\
+https://www.nytimes.com/2026/07/25/magazine/friend-job-recommendation-ethics.html
+
+**Today’s Wordle Hints for July 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/25/crosswords/wordle-review-1863.html
+
+**NYT Connections Answers for July 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/25/crosswords/connections-companion-1141.html
+
+**NYT Strands Hints for July 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/25/crosswords/strands-sidekick-875.html
+
+**As Trump Escalates Trade War, Ontario Premier Doug Ford Wants to Retaliate**\
+`While Mark Carney weighs his next steps, some provincial leaders point to oil, electricity and potash as powerful leverage against U.S. economic pressure.`\
+https://www.nytimes.com/2026/07/25/world/canada/trump-tariffs-trade-wildfires-smoke.html
+
+**What to Know About the Wildfires Raging in Western Europe**\
+`Huge blazes have forced tens of thousands of residents and vacationers in France and Spain to evacuate.`\
+https://www.nytimes.com/2026/07/25/world/europe/europe-fires-france-spain-what-to-know.html
+
 **India’s Education Minister Steps Down, Handing Win to Protesters**\
 `With Dharmendra Pradhan offering his resignation, the student protest movement achieved a major victory against the government of Prime Minister Narendra Modi.`\
 https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/interactive/2026/07/25/nyregion/25routine-tramell-tillma
 **Uber and Lyft Dominate the Ride-Share Industry. Can Rivals Cut In?**\
 `Companies offering for-hire vehicles via apps are hoping to make inroads in New York City with driver-friendly overtures. Others have tried and failed.`\
 https://www.nytimes.com/2026/07/25/nyregion/uber-lyft-competitor-throo.html
-
-**NYT Spelling Bee Answers for July 25, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/25/crosswords/spelling-bee-forum.html
-
-**El cambio de avión de Trump al dejar la cumbre de la OTAN se debió a una amenaza iraní**\
-`La amenaza hizo que el Servicio Secreto instara al presidente Trump a salir de Turquía en el Air Force One antiguo, lo que planteó dudas sobre la seguridad de la aeronave donada por Catar.`\
-https://www.nytimes.com/es/2026/07/25/espanol/estados-unidos/trump-air-force-one-iran-amenaza.html
-
-**Hawaii Lt. Gov. Is Indicted in Corruption Investigation**\
-`Lt. Gov. Sylvia Luke, who had taken a leave of absence during the inquiry, was among five people charged on Friday.`\
-https://www.nytimes.com/2026/07/25/us/hawaii-indictment-corruption-investigation.html
-
-**At Correspondents’ Dinner, a Rambling Trump Hurls Insults**\
-`President Trump gave the keynote speech as relations between his administration and the press continue to deteriorate.`\
-https://www.nytimes.com/2026/07/25/us/politics/is-this-supposed-to-be-fun-trump-hurls-insults-at-correspondents-dinner.html
-
-**Taiwan Tests How It Would Resist a Chinese Siege at Sea**\
-`Taiwan is stepping up plans to secure fuel and other vital imports as Chinese government ships practice moves that could one day be used in a blockade.`\
-https://www.nytimes.com/2026/07/25/world/asia/taiwan-china-ships-blockade.html
-
-**Quote of the Day: Teen Pleads Guilty in Georgia School Attack**\
-`Quotation of the Day for Saturday, July 25, 2026.`\
-https://www.nytimes.com/2026/07/25/pageoneplus/quote-of-the-day-teen-pleads-guilty-in-georgia-school-attack.html
 
