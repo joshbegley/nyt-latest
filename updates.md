@@ -1,3 +1,7 @@
+**Live Updates: Hundreds of Thousands Flee as Fires Rage in Spain and France**\
+`Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux.`\
+https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations
+
 **Live Updates: Fires Rage in Spain and France, Forcing Thousands to Flee**\
 `Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux. Some 200,000 people have evacuated or are sheltering at home.`\
 https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations
