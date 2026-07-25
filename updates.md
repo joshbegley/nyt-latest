@@ -1,3 +1,15 @@
+**Sell the Company for $400 Million? He’s Giving It Away Instead.**\
+`After his sole heir died, Eddie Smith, the owner of Grady-White Boats, looked for a way to pass on his legacy. He was inspired by Patagonia to pledge future profits to charity.`\
+https://www.nytimes.com/2026/07/25/business/grady-white-boats-charity.html
+
+**Blockbuster I.P.O.s Are Creating New Millionaires. Philanthropies Want a Cut.**\
+`As start-ups like Anthropic and OpenAI prepare to go public, nonprofits are hoping for a secondary giving windfall from the new tech ultrawealthy.`\
+https://www.nytimes.com/2026/07/25/business/dealbook/spacex-anthropic-philanthropy.html
+
+**The Dead End to Trump’s ‘Perfect’ War**\
+`Worst of all, the result may be that both Iran and Saudi Arabia end up with nuclear weapons.`\
+https://www.nytimes.com/2026/07/25/opinion/trump-iran-saudi-arabia-war-nuclear-deal.html
+
 **Live Updates: Hundreds of Thousands Flee as Fires Rage in Spain and France**\
 `Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux.`\
 https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations

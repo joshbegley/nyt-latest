@@ -1,3 +1,11 @@
+**Sell the Company for $400 Million? He’s Giving It Away Instead.**\
+`After his sole heir died, Eddie Smith, the owner of Grady-White Boats, looked for a way to pass on his legacy. He was inspired by Patagonia to pledge future profits to charity.`\
+https://www.nytimes.com/2026/07/25/business/grady-white-boats-charity.html
+
+**Blockbuster I.P.O.s Are Creating New Millionaires. Philanthropies Want a Cut.**\
+`As start-ups like Anthropic and OpenAI prepare to go public, nonprofits are hoping for a secondary giving windfall from the new tech ultrawealthy.`\
+https://www.nytimes.com/2026/07/25/business/dealbook/spacex-anthropic-philanthropy.html
+
 **Live Updates: Hundreds of Thousands Flee as Fires Rage in Spain and France**\
 `Firefighters were racing to contain blazes that were moving closer to Madrid and Bordeaux.`\
 https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/07/25/opinion/peptides-fda-health-supplements.html
 `Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
 https://www.nytimes.com/2026/07/25/opinion/trump-iran-socialism-communism-dsa.html
 
-**Trump’s War Was ‘Perfect’ Until It Wasn’t**\
+**The Dead End to Trump’s ‘Perfect’ War**\
 `Worst of all, the result may be that both Iran and Saudi Arabia end up with nuclear weapons.`\
 https://www.nytimes.com/2026/07/25/opinion/trump-iran-saudi-arabia-war-nuclear-deal.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/25/world/americas/colombia-president-de-la-espri
 **Can Rock Climbing, Weight Lifting and Shared Meals Keep People Sober?**\
 `A growing number of clubs see community as the antidote to relapse.`\
 https://www.nytimes.com/2026/07/25/well/sober-clubs.html
-
-**How Tā Moko, the Māori Tattoo Art, Made A Comeback in New Zealand**\
-`Young Māori in New Zealand are embracing tā moko, the ritual tattoos that were banned under British colonial rule and became an act of protest in the 1970s.`\
-https://www.nytimes.com/2026/07/25/world/australia/new-zealand-maori-ta-moko-tattoos.html
-
-**Minecraft Is Helping Kids RedesignTheir Cities**\
-`In 55 countries, the popular video game has been used to engage children in the process of urban design.`\
-https://www.nytimes.com/2026/07/25/headway/minecraft-is-helping-kids-redesigntheir-cities.html
 
