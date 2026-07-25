@@ -1,3 +1,7 @@
+**Stabbing Stirs Fear Among New York’s Jewish Community and Inflames Debate**\
+`Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings and defending his statements.`\
+https://www.nytimes.com/2026/07/24/nyregion/antisemitism-nyc-stabbing-jewish.html
+
 **Overlooked No More: Barbara Rubin, Teenage Filmmaker at the Heart of New York’s Underground**\
 `She made the landmark underground film “Christmas on Earth,” and helped bring together artists like Andy Warhol, Allen Ginsberg and Bob Dylan.`\
 https://www.nytimes.com/2026/07/24/obituaries/barbara-rubin-overlooked.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011051114/sook-mei-faan-cantonese-cre
 **Horchata**\
 `Horchata is a Latin American beverage that’s made by soaking nuts and grains in water then seasoning the mixture with sugar and spices. The drink originated in Spain over 1,000 years ago, but many countries have their own regional variations.`\
 https://www.nytimes.com/video/dining/100000011051119/horchata.html
-
-**Small Businesses Sue Trump Administration Over Latest Tariffs**\
-`The businesses are represented by the Liberty Justice Center, a legal group that has successfully challenged President Trump’s past duties.`\
-https://www.nytimes.com/2026/07/24/business/trump-tariffs-small-businesses-lawsuit.html
 

@@ -1,3 +1,7 @@
+**Stabbing Stirs Fear Among New York’s Jewish Community and Inflames Debate**\
+`Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings and defending his statements.`\
+https://www.nytimes.com/2026/07/24/nyregion/antisemitism-nyc-stabbing-jewish.html
+
 **Overlooked No More: Barbara Rubin, Teenage Filmmaker at the Heart of New York’s Underground**\
 `She made the landmark underground film “Christmas on Earth,” and helped bring together artists like Andy Warhol, Allen Ginsberg and Bob Dylan.`\
 https://www.nytimes.com/2026/07/24/obituaries/barbara-rubin-overlooked.html
