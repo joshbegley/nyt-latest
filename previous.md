@@ -1,3 +1,7 @@
+**Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
+`David Marchese speaks with Karl-Anthony Towns about his path to the N.B.A., the team’s interpersonal dynamics and what it means to win a championship for the long-suffering Knicks faithful.`\
+https://www.nytimes.com/video/podcasts/100000011052133/karl-anthony-towns-interview-knicks-championship.html
+
 **China ha salido bien parada de la guerra comercial de Trump**\
 `Los gravámenes que el presidente Trump impuso a los bienes chinos el viernes fueron de tan solo el 12,5 por ciento, pese a sus amenazas de hace un año de imponer aranceles de hasta 145 por ciento.`\
 https://www.nytimes.com/es/2026/07/25/espanol/negocios/china-trump-aranceles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medic
 **Rare Pompeii Ceiling Is Restored From Fragments, Depicting Scene From Myth**\
 `By collecting about 1,000 fragments and painstakingly assembling the pieces, archaeologists restored a scene depicting the popular love story of Dionysus and Ariadne.`\
 https://www.nytimes.com/2026/07/24/world/europe/rare-pompeii-ceiling-is-restored.html
-
-**Paramount Agrees to Delay Warner Bros. Merger for Months**\
-`The company agreed to a proposed freeze until June 2027, unless a judge issues a ruling before then on a lawsuit blocking the deal.`\
-https://www.nytimes.com/2026/07/24/business/media/paramount-warner-bros-merger-delayed.html
 

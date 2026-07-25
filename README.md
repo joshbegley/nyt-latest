@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. Strikes Abate, Even as Trump Considers Escalation**\
+`U.S. forces did not announce new overnight attacks on southern Iran for the first time in about two weeks, but tensions remained high, with Saudi-led forces striking Houthi targets over the Red Sea.`\
+https://www.nytimes.com/live/2026/07/25/world/iran-war-us-strikes-trump-oil
+
 **Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
 `David Marchese speaks with Karl-Anthony Towns about his path to the N.B.A., the team’s interpersonal dynamics and what it means to win a championship for the long-suffering Knicks faithful.`\
 https://www.nytimes.com/video/podcasts/100000011052133/karl-anthony-towns-interview-knicks-championship.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/24/arts/music/freddy-cannon-dead.html
 **D4vd Had Sexual Relationship With Teenager, Detective Testifies in Murder Case**\
 `The testimony came on the fourth day of the singer’s preliminary hearing. He is accused of fatally stabbing Celeste Rivas Hernandez, 14, and dismembering her body.`\
 https://www.nytimes.com/2026/07/24/arts/music/d4vd-celeste-rivas-hernandez-medical-examiner.html
-
-**Rare Pompeii Ceiling Is Restored From Fragments, Depicting Scene From Myth**\
-`By collecting about 1,000 fragments and painstakingly assembling the pieces, archaeologists restored a scene depicting the popular love story of Dionysus and Ariadne.`\
-https://www.nytimes.com/2026/07/24/world/europe/rare-pompeii-ceiling-is-restored.html
 

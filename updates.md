@@ -1,3 +1,7 @@
+**Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
+`David Marchese speaks with Karl-Anthony Towns about his path to the N.B.A., the team’s interpersonal dynamics and what it means to win a championship for the long-suffering Knicks faithful.`\
+https://www.nytimes.com/video/podcasts/100000011052133/karl-anthony-towns-interview-knicks-championship.html
+
 **China ha salido bien parada de la guerra comercial de Trump**\
 `Los gravámenes que el presidente Trump impuso a los bienes chinos el viernes fueron de tan solo el 12,5 por ciento, pese a sus amenazas de hace un año de imponer aranceles de hasta 145 por ciento.`\
 https://www.nytimes.com/es/2026/07/25/espanol/negocios/china-trump-aranceles.html
