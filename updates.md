@@ -1,3 +1,7 @@
+**‘Suspicious’ House Fire in Michigan Kills 6 Children and 2 Adults**\
+`At least some of the victims, who were all members of the same family, were found with gunshot wounds, an official said. The children ranged in age from 5 to 15.`\
+https://www.nytimes.com/2026/07/24/us/house-fire-michigan-grand-haven.html
+
 **Stabbing Stirs Fear Among New York’s Jewish Community and Inflames Debate**\
 `Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings and defending his statements.`\
 https://www.nytimes.com/2026/07/24/nyregion/antisemitism-nyc-stabbing-jewish.html

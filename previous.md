@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/07/24/us/houston-ice-shooting-araujo-van.html
 https://www.nytimes.com/video/podcasts/100000011052640/a-spiritual-scammer-anthem.html
 
 **‘Suspicious’ House Fire in Michigan Kills 6 Children and 2 Adults**\
-`Arson investigators from the Michigan State Police were called to the scene of the fire in Grand Haven Township, near the eastern shore of Lake Michigan, on Friday.`\
+`At least some of the victims, who were all members of the same family, were found with gunshot wounds, an official said. The children ranged in age from 5 to 15.`\
 https://www.nytimes.com/2026/07/24/us/house-fire-michigan-grand-haven.html
 
 **Canadá inaugura un importante puente internacional sin invitar a EE. UU.**\

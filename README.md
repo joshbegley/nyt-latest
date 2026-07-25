@@ -1,3 +1,7 @@
+**On Second Test of Its Newest Starship Design, SpaceX Sticks the Landing**\
+`It was the 13th test overall of Starship. The success is a boon to NASA’s moon plans and SpaceX’s hopes to deploy a million data centers in orbit.`\
+https://www.nytimes.com/2026/07/24/science/spacex-starship-13th-test-flight.html
+
 **Stabbing Stirs Fear Among New York’s Jewish Community and Inflames Debate**\
 `Some politicians said Mayor Zohran Mamdani’s criticism of Israel had created a dangerous environment. He pushed back, condemning the stabbings and defending his statements.`\
 https://www.nytimes.com/2026/07/24/nyregion/antisemitism-nyc-stabbing-jewish.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011051121/baked-croissant-french-toas
 **Sook Mei Faan (Cantonese Creamed Corn With Tofu and Rice)**\
 `Creamed corn over rice is a quintessential Cantonese dish often served at cha chaan tengs, casual diners that are ubiquitous in Hong Kong.`\
 https://www.nytimes.com/video/dining/100000011051114/sook-mei-faan-cantonese-creamed-corn-with-tofu-and-rice.html
-
-**Horchata**\
-`Horchata is a Latin American beverage that’s made by soaking nuts and grains in water then seasoning the mixture with sugar and spices. The drink originated in Spain over 1,000 years ago, but many countries have their own regional variations.`\
-https://www.nytimes.com/video/dining/100000011051119/horchata.html
 
