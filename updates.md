@@ -1,3 +1,11 @@
+**Trump Switched Planes at NATO Summit After Credible Iranian Threat**\
+`The Secret Service urged President Trump to fly out of Turkey on the old Air Force One this month after what officials judged to be a credible Iranian threat, according to multiple people briefed on the matter.`\
+https://www.nytimes.com/video/us/100000011052394/trump-iran-air-force-one-threat.html
+
+**Chuck Russell, Director of ‘The Mask’ and Third ‘Nightmare on Elm Street’ Movie, Dies at 74**\
+`His work, including “The Blob,” a remake of the cult 1958 horror movie, was known for its use of brash visual effects.`\
+https://www.nytimes.com/2026/07/24/arts/chuck-russell-dead.html
+
 **On Second Test of Its Newest Starship Design, SpaceX Sticks the Landing**\
 `It was the 13th test overall of Starship. The success is a boon to NASA’s moon plans and SpaceX’s hopes to deploy a million data centers in orbit.`\
 https://www.nytimes.com/2026/07/24/science/spacex-starship-13th-test-flight.html
