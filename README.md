@@ -1,3 +1,7 @@
+**Silicon Valley Splits Over Closing the Borders to Chinese A.I.**\
+`Anthropic and OpenAI are clashing with the rest of the tech industry over whether “open-source” models from China should be freely available or restricted.`\
+https://www.nytimes.com/2026/07/25/technology/open-source-silicon-valley-china.html
+
 **Sell the Company for $400 Million? He’s Giving It Away Instead.**\
 `After his sole heir died, Eddie Smith, the owner of Grady-White Boats, looked for a way to pass on his legacy. He was inspired by Patagonia to pledge future profits to charity.`\
 https://www.nytimes.com/2026/07/25/business/grady-white-boats-charity.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/us/politics/utah-birth-rate-fertility-decline
 **Colombia’s Trump-Endorsed President-Elect Was Once Investigated by U.S. Authorities**\
 `While living in Miami, Colombia’s president-elect represented accused drug traffickers and money launderers. He himself was investigated by U.S. authorities, though never charged.`\
 https://www.nytimes.com/2026/07/25/world/americas/colombia-president-de-la-espriella-trump-us-investigation.html
-
-**Can Rock Climbing, Weight Lifting and Shared Meals Keep People Sober?**\
-`A growing number of clubs see community as the antidote to relapse.`\
-https://www.nytimes.com/2026/07/25/well/sober-clubs.html
 
