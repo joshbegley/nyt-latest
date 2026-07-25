@@ -1,3 +1,7 @@
+**Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
+`New York’s star center on playing for his mom, Patrick Ewing. generations of emotional fans — and himself.`\
+https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
+
 **El próximo presidente de Colombia pasó de defender a narcos a declararles la guerra**\
 `Mientras vivía en Miami, Abelardo de la Espriella representó a acusados de narcotráfico y lavado de dinero. Él mismo fue investigado por las autoridades de EE. UU., aunque nunca se le imputaron cargos.`\
 https://www.nytimes.com/es/2026/07/25/espanol/colombia-abelardo-espriella-presidente-narco-saab.html
