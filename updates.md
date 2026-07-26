@@ -1,3 +1,15 @@
+**En ‘La odisea’ y ‘Oppenheimer’, Nolan sabe que la civilización está en juego**\
+`En películas muy diferentes, la tendencia del director por jugar con el tiempo está al servicio de una preocupación mayor por los vínculos humanos a través de las épocas.`\
+https://www.nytimes.com/es/2026/07/26/espanol/cultura/odisea-oppenheimer-nolan.html
+
+**El reconfortante resurgimiento de los ‘pasatiempos de abuela’**\
+`En una era en la que se vive a través de pantallas, las nuevas generaciones buscan calma y comunidad en el aprendizaje de habilidades centenarias.`\
+https://www.nytimes.com/es/2026/07/26/espanol/pasatiempos-abuela-escuelas-manualidades.html
+
+**4 ‘prompts’ que pueden revelarte lo que los chatbots realmente saben de ti**\
+`Puede resultar inquietante lo que Gemini y ChatGPT han descubierto sobre ti y lo fácil que es vulnerar tu privacidad. A continuación te explicamos cómo averiguarlo.`\
+https://www.nytimes.com/es/2026/07/26/espanol/negocios/chatbot-preguntas-informacion-personal.html
+
 **Por qué busqué al comandante talibán contra el que combatí**\
 `Primero como infante de marina y luego como periodista, pasé años ligado a Afganistán. Regresé una última vez para hablar con un antiguo enemigo en busca de respuestas, y tal vez de un cierre.`\
 https://www.nytimes.com/es/2026/07/26/espanol/mundo/talibanes-afganistan.html
