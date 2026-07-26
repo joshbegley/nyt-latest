@@ -1,3 +1,7 @@
+**Man Convicted of Shoving Flaming Car Into Gully, Igniting Giant Wildfire**\
+`The 2024 fire in Northern California was one of the state’s largest wildfires ever. The man faces a prison sentence of 25 years to life.`\
+https://www.nytimes.com/2026/07/26/us/man-convicted-arson-park-fire-california.html
+
 **Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
 `German authorities said the main suspect in the crime, which they called a likely act of terrorism, had been killed in a police raid on Sunday evening.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html

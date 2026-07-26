@@ -1,3 +1,7 @@
+**Man Convicted of Shoving Flaming Car Into Gully, Igniting Giant Wildfire**\
+`The 2024 fire in Northern California was one of the state’s largest wildfires ever. The man faces a prison sentence of 25 years to life.`\
+https://www.nytimes.com/2026/07/26/us/man-convicted-arson-park-fire-california.html
+
 **Seattle Police Search for 2 Men Who Parachuted From the Space Needle**\
 `The men face criminal trespassing charges after they climbed over the glass wall of the observation deck of the city landmark and jumped from the ledge Friday evening.`\
 https://www.nytimes.com/2026/07/26/us/seattle-space-needle-base-jumpers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/26/espanol/cultura/odisea-oppenheimer-nolan.h
 **El reconfortante resurgimiento de los ‘pasatiempos de abuela’**\
 `En una era en la que se vive a través de pantallas, las nuevas generaciones buscan calma y comunidad en el aprendizaje de habilidades centenarias.`\
 https://www.nytimes.com/es/2026/07/26/espanol/pasatiempos-abuela-escuelas-manualidades.html
-
-**4 ‘prompts’ que pueden revelarte lo que los chatbots realmente saben de ti**\
-`Puede resultar inquietante lo que Gemini y ChatGPT han descubierto sobre ti y lo fácil que es vulnerar tu privacidad. A continuación te explicamos cómo averiguarlo.`\
-https://www.nytimes.com/es/2026/07/26/espanol/negocios/chatbot-preguntas-informacion-personal.html
 
