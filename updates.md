@@ -1,3 +1,7 @@
+**Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
+`German authorities said the main suspect in the crime, which they called a likely act of terrorism, had been killed in a police raid on Sunday evening.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
+
 **Seattle Police Search for 2 Men Who Parachuted From the Space Needle**\
 `The men face criminal trespassing charges after they climbed over the glass wall of the observation deck of the city landmark and jumped from the ledge Friday evening.`\
 https://www.nytimes.com/2026/07/26/us/seattle-space-needle-base-jumpers.html
