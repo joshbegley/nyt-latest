@@ -1,3 +1,7 @@
+**Imitation Game**\
+`A look at how chatbot answer subjective questions.`\
+https://www.nytimes.com/2026/07/26/briefing/chatbots-answer-questions.html
+
 **Why ‘Your Friends & Neighbors’ Should Win the Best Drama Emmy**\
 `Do only creeps or chumps still believe in the American dream?`\
 https://www.nytimes.com/2026/07/26/opinion/your-friends-and-neighbors-apple-tv.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/well/water-hydration-quiz.html
 **Quote of the Day: Squish and Squeeze: Affordable Therapy**\
 `Quotation of the Day for Sunday, July 26, 2026.`\
 https://www.nytimes.com/2026/07/26/pageoneplus/quote-of-the-day-squish-and-squeeze-affordable-therapy.html
-
-**Appeals Court Upholds Blocks on Trump Order Restricting Mail Voting**\
-`The ruling on Saturday was the latest rebuke to President Trump’s attacks on mail-in voting. The government says it may take the case to the Supreme Court.`\
-https://www.nytimes.com/2026/07/25/us/politics/appeals-court-trump-mail-voting.html
 
