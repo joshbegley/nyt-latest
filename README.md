@@ -1,3 +1,11 @@
+**Why Paramount Paused Its Blockbuster $111 Billion Deal for Warner Bros.**\
+`A flurry of negotiations last week cleared the way for an antitrust court battle with states that could determine the fate of the two iconic media giants.`\
+https://www.nytimes.com/2026/07/26/business/paramount-warner-bros-deal-pause.html
+
+**A South African Identity Crisis**\
+`Anti-immigrant activism reveals the contradictions of a country that projects itself as a bastion of human rights.`\
+https://www.nytimes.com/2026/07/26/world/south-africa-identity-crisis-wildfires.html
+
 **The Indian Diaspora in New York Joins the ‘Cockroach Party’ Protests**\
 `Hundreds of Indians abroad gathered in Manhattan to support the Gen Z-led movement that rocked the Indian government and led to the resignation of its education minister.`\
 https://www.nytimes.com/2026/07/26/nyregion/indians-nyc-cockroach-party-protests.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/26/business/jeffrey-epstein-girlfriend-estate.ht
 **How the Prius Traces Its Lineage to a 1900 Car From Ferdinand Porsche**\
 `The Lohner-Porsche Semper Vivus had a generator that recharged a battery, and it even had regenerative braking. Sound familiar?`\
 https://www.nytimes.com/2026/07/26/business/porsche-history-hybrid.html
-
-**El lucrativo negocio de hacer ver ‘cool’ a las palomitas**\
-`Hubo un tiempo en que un envase de palomitas (o pochoclos, canchita, crispetas, cotufas) era solo un envase. Ahora, son coleccionables y podrían hacerle ganar a una cadena más de 100 millones de dólares.`\
-https://www.nytimes.com/es/2026/07/26/espanol/negocios/odisea-cine-palomeras-palomitas-pochoclo-crispetas.html
-
-**En ‘La odisea’ y ‘Oppenheimer’, Nolan sabe que la civilización está en juego**\
-`En películas muy diferentes, la tendencia del director por jugar con el tiempo está al servicio de una preocupación mayor por los vínculos humanos a través de las épocas.`\
-https://www.nytimes.com/es/2026/07/26/espanol/cultura/odisea-oppenheimer-nolan.html
 
