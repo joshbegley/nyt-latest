@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/07/26/us/man-convicted-arson-park-fire-california.h
 `The men face criminal trespassing charges after they climbed over the glass wall of the observation deck of the city landmark and jumped from the ledge Friday evening.`\
 https://www.nytimes.com/2026/07/26/us/seattle-space-needle-base-jumpers.html
 
-**A 12-Year-Old Biked to Buy a Ball. He Was Killed by a Stray Bullet.**\
+**A 12-Year-Old Went to Buy a Ball. He Was Killed by a Stray Bullet.**\
 `Jacob Freytes, the son of a retired detective sergeant, died near his Bronx home after he was struck by the bullet from a gun fired during a brawl, law enforcement officials said.`\
 https://www.nytimes.com/2026/07/26/nyregion/boy-killed-bronx-shooting-arrest.html
 
