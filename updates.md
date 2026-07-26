@@ -1,3 +1,7 @@
+**Car Plows Into People Near a Pride Event in Berlin, Killing at Least One**\
+`The police said a hunt for suspects was underway after the episode, which also injured at least 16 people, some seriously.`\
+https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
+
 **Appeals Court Upholds Blocks on Trump Order Restricting Mail Voting**\
 `The ruling on Saturday was the latest rebuke to President Trump’s attacks on mail-in voting. The government says it may take the case to the Supreme Court.`\
 https://www.nytimes.com/2026/07/25/us/politics/appeals-court-trump-mail-voting.html
