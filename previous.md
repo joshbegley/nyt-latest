@@ -1,3 +1,7 @@
+**These Nuns Wake Up at Midnight to Pray for New Moms**\
+`As empathy becomes politicized, these women at a monastery in California are practicing it in the extreme.`\
+https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
+
 **Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
 `The police said they were searching for a 21-year-old man with links to local Islamist groups, and investigating the crime as a possible act of terrorism.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/26/espanol/mundo/incendios-forestales-espana-
 **Ukraine’s L.G.B.T.Q. Soldiers Are Still Fighting and Still Waiting**\
 `The legal gap for gay Ukrainians has always been unbearable. Then the war with Russia seemed to make the disparity untenable. But the gap remains.`\
 https://www.nytimes.com/2026/07/26/opinion/ukraine-lgbt-rights-war.html
-
-**En la gala de corresponsales, Trump lanza insultos personales**\
-`Los momentos de cordialidad fueron fugaces y de alguna manera más extraños que aquellos en los que el presidente Trump lanzaba sus habituales insultos.`\
-https://www.nytimes.com/es/2026/07/26/espanol/estados-unidos/trump-cena-corresponsale-chistes.html
 

@@ -1,5 +1,5 @@
 **These Nuns Wake Up at Midnight to Pray for New Moms**\
-`As empathy becomes politicized, these women at a monastery in California are practicing it in the extreme.`\
+`As empathy becomes politicized, these women are practicing it in the extreme.`\
 https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
 
 **Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
