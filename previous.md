@@ -1,3 +1,7 @@
+**The Accidental Hero Who Faced Down India’s Government**\
+`Abhijeet Dipke founded the Cockroach Janta Party as a joke after a judge insulted young people. The idea snowballed into a generational movement that has challenged the country’s leaders.`\
+https://www.nytimes.com/2026/07/26/world/asia/india-protests-cockroach-janta-party-abhijeet-dipke.html
+
 **Imitation Game**\
 `A look at how chatbot answer subjective questions.`\
 https://www.nytimes.com/2026/07/26/briefing/chatbots-answer-questions.html
@@ -170,7 +174,7 @@ https://www.nytimes.com/2026/07/26/nyregion/metropolitan-diary.html
 `En Francia y España, las llamas han arrasado con decenas de miles de hectáreas de tierra, herido a decenas de bomberos, destruido decenas de casas y campamentos, y obligado a muchos vacacionistas a huir de lugares vacacionales populares.`\
 https://www.nytimes.com/es/2026/07/26/espanol/mundo/incendios-forestales-espana-francia.html
 
-**Ukraine Is Fighting for Freedom. Freedom Is for Everyone.**\
+**Ukraine’s L.G.B.T.Q. Soldiers Are Still Fighting and Still Waiting**\
 `The legal gap for gay Ukrainians has always been unbearable. Then the war with Russia seemed to make the disparity untenable. But the gap remains.`\
 https://www.nytimes.com/2026/07/26/opinion/ukraine-lgbt-rights-war.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/pageoneplus/no-corrections-july-26-2026.html
 **Are You Hydrated? Take Our Quiz and Find Out**\
 `Is coffee dehydrating? And 11 other questions about your daily fluid needs.`\
 https://www.nytimes.com/2026/07/26/well/water-hydration-quiz.html
-
-**Quote of the Day: Squish and Squeeze: Affordable Therapy**\
-`Quotation of the Day for Sunday, July 26, 2026.`\
-https://www.nytimes.com/2026/07/26/pageoneplus/quote-of-the-day-squish-and-squeeze-affordable-therapy.html
 
