@@ -1,3 +1,11 @@
+**Incendios forestales en Francia y España: lo que hay que saber**\
+`En Francia y España, las llamas han arrasado con decenas de miles de hectáreas de tierra, herido a decenas de bomberos, destruido decenas de casas y campamentos, y obligado a muchos vacacionistas a huir de lugares vacacionales populares.`\
+https://www.nytimes.com/es/2026/07/26/espanol/mundo/incendios-forestales-espana-francia.html
+
+**Ukraine Is Fighting for Freedom. Freedom Is for Everyone.**\
+`The legal gap for gay Ukrainians has always been unbearable. Then the war with Russia seemed to make the disparity untenable. But the gap remains.`\
+https://www.nytimes.com/2026/07/26/opinion/ukraine-lgbt-rights-war.html
+
 **En la gala de corresponsales, Trump lanza insultos personales**\
 `Los momentos de cordialidad fueron fugaces y de alguna manera más extraños que aquellos en los que el presidente Trump lanzaba sus habituales insultos.`\
 https://www.nytimes.com/es/2026/07/26/espanol/estados-unidos/trump-cena-corresponsale-chistes.html
