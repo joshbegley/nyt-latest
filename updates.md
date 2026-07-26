@@ -1,3 +1,7 @@
+**Oil Prices Fall After U.S. and Iran Pause Fighting for a Second Day**\
+`No strikes have been reported from either side since Friday, leaving oil investors optimistic about a resolution to the conflict.`\
+https://www.nytimes.com/2026/07/26/business/oil-prices-fall-iran-war.html
+
 **Extreme Heat and Strong Winds Fuel New Wildfires in Europe**\
 `Extreme heat and strong winds fueled new wildfires in France and Spain on Sunday. A heat wave is expected to hit Europe this week, which could make conditions worse.`\
 https://www.nytimes.com/video/world/europe/100000011054039/wildfires-extreme-heat-france-spain.html
