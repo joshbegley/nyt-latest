@@ -1,3 +1,7 @@
+**The Indian Diaspora in New York Joins the ‘Cockroach Party’ Protests**\
+`Hundreds of Indians abroad gathered in Manhattan to support the Gen Z-led movement that rocked the Indian government and led to the resignation of its education minister.`\
+https://www.nytimes.com/2026/07/26/nyregion/indians-nyc-cockroach-party-protests.html
+
 **Man Convicted of Shoving Flaming Car Into Gully, Igniting Giant Wildfire**\
 `The 2024 fire in Northern California was one of the state’s largest wildfires ever. The man faces a prison sentence of 25 years to life.`\
 https://www.nytimes.com/2026/07/26/us/man-convicted-arson-park-fire-california.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/26/espanol/negocios/odisea-cine-palomeras-pal
 **En ‘La odisea’ y ‘Oppenheimer’, Nolan sabe que la civilización está en juego**\
 `En películas muy diferentes, la tendencia del director por jugar con el tiempo está al servicio de una preocupación mayor por los vínculos humanos a través de las épocas.`\
 https://www.nytimes.com/es/2026/07/26/espanol/cultura/odisea-oppenheimer-nolan.html
-
-**El reconfortante resurgimiento de los ‘pasatiempos de abuela’**\
-`En una era en la que se vive a través de pantallas, las nuevas generaciones buscan calma y comunidad en el aprendizaje de habilidades centenarias.`\
-https://www.nytimes.com/es/2026/07/26/espanol/pasatiempos-abuela-escuelas-manualidades.html
 

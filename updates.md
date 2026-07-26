@@ -1,3 +1,7 @@
+**The Indian Diaspora in New York Joins the ‘Cockroach Party’ Protests**\
+`Hundreds of Indians abroad gathered in Manhattan to support the Gen Z-led movement that rocked the Indian government and led to the resignation of its education minister.`\
+https://www.nytimes.com/2026/07/26/nyregion/indians-nyc-cockroach-party-protests.html
+
 **Man Convicted of Shoving Flaming Car Into Gully, Igniting Giant Wildfire**\
 `The 2024 fire in Northern California was one of the state’s largest wildfires ever. The man faces a prison sentence of 25 years to life.`\
 https://www.nytimes.com/2026/07/26/us/man-convicted-arson-park-fire-california.html
