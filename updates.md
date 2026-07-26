@@ -1,3 +1,7 @@
+**What’s Left of the Cease-Fire Agreement Between the U.S. and Iran?**\
+`Nearly all of the agreement’s 14 points have been violated.`\
+https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html
+
 **Car Plows Into People Near a Pride Event in Berlin, Killing at Least One**\
 `The police said a hunt for suspects was underway after the episode, which also injured at least 16 people, some seriously.`\
 https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
