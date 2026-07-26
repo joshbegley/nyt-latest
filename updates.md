@@ -1,3 +1,7 @@
+**Extreme Heat and Strong Winds Fuel New Wildfires in France and Spain**\
+`Firefighters are tackling fresh blazes while others have been contained, and hundreds of thousands of people have been forced to flee. A new heat wave forecast to hit Europe could make conditions worse.`\
+https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
+
 **The Indian Diaspora in New York Joins the ‘Cockroach Party’ Protests**\
 `Hundreds of Indians abroad gathered in Manhattan to support the Gen Z-led movement that rocked the Indian government and led to the resignation of its education minister.`\
 https://www.nytimes.com/2026/07/26/nyregion/indians-nyc-cockroach-party-protests.html

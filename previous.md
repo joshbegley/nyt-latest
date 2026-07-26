@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
 `President Trump put off plans to escalate the fighting in part because of dwindling stockpiles of interceptor missiles, American officials said.`\
 https://www.nytimes.com/2026/07/26/world/middleeast/us-iran-war-pause.html
 
-**Live Updates: Extreme Heat and Strong Winds Fuel New Wildfires in France and Spain**\
+**Extreme Heat and Strong Winds Fuel New Wildfires in France and Spain**\
 `Firefighters are tackling fresh blazes while others have been contained, and hundreds of thousands of people have been forced to flee. A new heat wave forecast to hit Europe could make conditions worse.`\
 https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
 
