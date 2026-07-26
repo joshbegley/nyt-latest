@@ -1,3 +1,7 @@
+**Flames Advance on Bordeaux, Where Evacuees Balance Dread and Hope**\
+`With surrounding towns in southwestern France evacuated and fire still spreading rapidly, several thousand are sheltering in the city, unsure what will become of their homes.`\
+https://www.nytimes.com/2026/07/26/world/europe/france-fires-bordeaux.html
+
 **Why Paramount Paused Its Blockbuster $111 Billion Deal for Warner Bros.**\
 `A flurry of negotiations last week cleared the way for an antitrust court battle with states that could determine the fate of the two iconic media giants.`\
 https://www.nytimes.com/2026/07/26/business/paramount-warner-bros-deal-pause.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/world/middleeast/eu-debate-about-import-ban-r
 **Meet Jeffrey Epstein’s Girlfriend, Who Stands to Inherit Much of His Estate**\
 `Karyna Shuliak, 37, is a complicated and unusual figure in the disgraced financier’s world who has been trying to blend into obscurity since his death.`\
 https://www.nytimes.com/2026/07/26/business/jeffrey-epstein-girlfriend-estate.html
-
-**How the Prius Traces Its Lineage to a 1900 Car From Ferdinand Porsche**\
-`The Lohner-Porsche Semper Vivus had a generator that recharged a battery, and it even had regenerative braking. Sound familiar?`\
-https://www.nytimes.com/2026/07/26/business/porsche-history-hybrid.html
 
