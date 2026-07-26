@@ -1,4 +1,12 @@
 **These Nuns Wake Up at Midnight to Pray for New Moms**\
+`As empathy becomes politicized, these women are practicing it in the extreme.`\
+https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
+
+**Officials Call Attack Near Berlin Pride Celebration a ‘Terror Attack’**\
+`The hunt for a 21-year-old man began early Sunday, in what officials called a likely act of Islamist terrorism.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
+
+**These Nuns Wake Up at Midnight to Pray for New Moms**\
 `As empathy becomes politicized, these women at a monastery in California are practicing it in the extreme.`\
 https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
 

@@ -1,5 +1,5 @@
 **These Nuns Wake Up at Midnight to Pray for New Moms**\
-`As empathy becomes politicized, these women at a monastery in California are practicing it in the extreme.`\
+`As empathy becomes politicized, these women are practicing it in the extreme.`\
 https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
 
 **Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/07/26/opinion/odyssey-christopher-nolan-greek-gods.
 `Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
 https://www.nytimes.com/2026/07/26/crosswords/strands-sidekick-876.html
 
-**Berlin Police Search for Suspect in Fatal Attack on Pride Parade**\
-`The hunt for a 21-year-old man with links to local Islamic groups began early Sunday. The police said they were investigating the attack as a possible act of terrorism.`\
+**Officials Call Attack Near Berlin Pride Celebration a ‘Terror Attack’**\
+`The hunt for a 21-year-old man began early Sunday, in what officials called a likely act of Islamist terrorism.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
 
 **U.S.-Iran War Pauses for 2nd Straight Day With Both Sides Holding Off on Strikes**\
