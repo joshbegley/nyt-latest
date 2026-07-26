@@ -1,3 +1,7 @@
+**Forced to Flee and Wait, Evacuees Wonder if Their Homes Still Stand**\
+`In central Spain, thousands of people sleep in shelters or in their cars, some of them evacuated multiple times ahead of the advancing flames, awaiting word on what they left behind.`\
+https://www.nytimes.com/2026/07/26/world/europe/spain-fires-evacuees-voices.html
+
 **Maps: Tracking Hurricane Genevieve**\
 `See the likely path and wind arrival times for Genevieve`\
 https://www.nytimes.com/interactive/2026/07/26/weather/genevieve-map-path-tracker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/crosswords/spelling-bee-forum.html
 **The Secret Life of the New York Times Bees**\
 `Some 60,000 Italian honeybees live, and work, on a rooftop at The Times’s Midtown Manhattan headquarters.`\
 https://www.nytimes.com/2026/07/26/insider/bees-new-york-times-building.html
-
-**Democratic Socialists Are Winning Big. Now They Want Action.**\
-`The Democratic Socialists of America, after a string of election victories in New York, is eager to tax the rich and enact anti-Israel policies.`\
-https://www.nytimes.com/2026/07/26/nyregion/dsa-tax-rich-hochul-mamdani.html
 
