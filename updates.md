@@ -1,3 +1,7 @@
+**Paul Andrews, Founder of the Woodstock of U.F.O.s, Dies at 77**\
+`An annual convention in the California desert offered a safe space for believers to discuss extraterrestrial encounters, crop circles and other paranormal phenomena.`\
+https://www.nytimes.com/2026/07/26/us/paul-andrews-dead.html
+
 **Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
 `The Berlin police said they were searching for a 21-year-old man with links to local Islamist groups, and investigating the crime as a possible act of terrorism.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
