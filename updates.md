@@ -1,3 +1,7 @@
+**Appeals Court Upholds Blocks on Trump Order Restricting Mail Voting**\
+`The ruling on Saturday was the latest rebuke to President Trump’s attacks on mail-in voting. The government says it may take the case to the Supreme Court.`\
+https://www.nytimes.com/2026/07/25/us/politics/appeals-court-trump-mail-voting.html
+
 **Hundreds of Thousands Flee Fires in France and Spain as Help Pours In**\
 `Nearly 300,000 have been told to evacuate or take shelter as major fires edged closer to Madrid and Bordeaux.`\
 https://www.nytimes.com/2026/07/25/world/europe/wildfires-france-spain-bordeaux-madrid.html
