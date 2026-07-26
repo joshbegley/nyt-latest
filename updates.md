@@ -1,3 +1,7 @@
+**Flames Advance on Bordeaux, Where Evacuees Balance Dread and Hope**\
+`With surrounding towns in southwestern France evacuated and fire still spreading rapidly, several thousand are sheltering in the city, unsure what will become of their homes.`\
+https://www.nytimes.com/2026/07/26/world/europe/france-fires-bordeaux.html
+
 **Why Paramount Paused Its Blockbuster $111 Billion Deal for Warner Bros.**\
 `A flurry of negotiations last week cleared the way for an antitrust court battle with states that could determine the fate of the two iconic media giants.`\
 https://www.nytimes.com/2026/07/26/business/paramount-warner-bros-deal-pause.html
