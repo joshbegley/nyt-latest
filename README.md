@@ -1,3 +1,7 @@
+**Oil Prices Fall After U.S. and Iran Pause Fighting for a Second Day**\
+`No strikes have been reported from either side since Friday, leaving oil investors optimistic about a resolution to the conflict.`\
+https://www.nytimes.com/2026/07/26/business/oil-prices-fall-iran-war.html
+
 **Extreme Heat and Strong Winds Fuel New Wildfires in Europe**\
 `Extreme heat and strong winds fueled new wildfires in France and Spain on Sunday. A heat wave is expected to hit Europe this week, which could make conditions worse.`\
 https://www.nytimes.com/video/world/europe/100000011054039/wildfires-extreme-heat-france-spain.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/books/review/albert-sabin-biography-karen-tor
 **Why TikTok’s Algorithm Keeps You Trapped in a Breakup Loop**\
 `As social media companies face scrutiny over addictive design features, mental health experts cite a stream of breakup content as an example of the failure to protect users.`\
 https://www.nytimes.com/2026/07/26/technology/personaltech/tiktok-instagram-breakup-content.html
-
-**A Son of Wealth Finds His Calling in a High-End Grocery Store**\
-`How the scion Sammy Nussdorf found his calling among the carefully arranged shelves of Meadow Lane, his chic market in Lower Manhattan.`\
-https://www.nytimes.com/2026/07/26/style/a-different-kind-of-grocery-store-magnate.html
 
