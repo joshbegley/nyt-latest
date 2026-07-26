@@ -1,3 +1,7 @@
+**Car Plows Into Crowd at Berlin Pride Event in Suspected Terror Attack**\
+`The police said a suspect was involved in local Islamic groups and that there was a “strong suspicion” it was an act of terrorism. At least one person was killed and 16 injured.`\
+https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
+
 **Incendios forestales en Francia y España: lo que hay que saber**\
 `En Francia y España, las llamas han arrasado con decenas de miles de hectáreas de tierra, herido a decenas de bomberos, destruido decenas de casas y campamentos, y obligado a muchos vacacionistas a huir de lugares vacacionales populares.`\
 https://www.nytimes.com/es/2026/07/26/espanol/mundo/incendios-forestales-espana-francia.html
