@@ -1,3 +1,15 @@
+**Some Like It Hot, and Then Cold**\
+`Five of my favorite quick, easy dinners that turn into no-reheating-needed lunches.`\
+https://www.nytimes.com/2026/07/26/dining/some-like-it-hot-and-then-cold.html
+
+**‘The Odyssey’ Gives Us the Hero We Deserve**\
+`Christopher Nolan’s Odysseus is a halfway hero: he wrestles with the problems he creates. That makes him a perfect figure for our modern moment.`\
+https://www.nytimes.com/2026/07/26/opinion/odysseus-christopher-nolan.html
+
+**Democrats and the Fear of Socialism**\
+`Readers respond to “Socialism? Capitalism? Who Cares!,” an Opinion guest essay by E.J. Dionne Jr.`\
+https://www.nytimes.com/2026/07/26/opinion/democrats-socialism.html
+
 **U.S.-Iran War Pauses for 2nd Straight Day With Both Sides Holding Off on Strikes**\
 `President Trump put off plans to escalate the fighting in part because of dwindling stockpiles of interceptor missiles, American officials said.`\
 https://www.nytimes.com/2026/07/26/world/middleeast/us-iran-war-pause.html

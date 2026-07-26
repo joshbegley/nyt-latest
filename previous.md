@@ -1,3 +1,15 @@
+**Some Like It Hot, and Then Cold**\
+`Five of my favorite quick, easy dinners that turn into no-reheating-needed lunches.`\
+https://www.nytimes.com/2026/07/26/dining/some-like-it-hot-and-then-cold.html
+
+**‘The Odyssey’ Gives Us the Hero We Deserve**\
+`Christopher Nolan’s Odysseus is a halfway hero: he wrestles with the problems he creates. That makes him a perfect figure for our modern moment.`\
+https://www.nytimes.com/2026/07/26/opinion/odysseus-christopher-nolan.html
+
+**Democrats and the Fear of Socialism**\
+`Readers respond to “Socialism? Capitalism? Who Cares!,” an Opinion guest essay by E.J. Dionne Jr.`\
+https://www.nytimes.com/2026/07/26/opinion/democrats-socialism.html
+
 **The Accidental Hero Who Faced Down India’s Government**\
 `Abhijeet Dipke founded the Cockroach Janta Party as a joke after a judge insulted young people. The idea snowballed into a generational movement that has challenged the country’s leaders.`\
 https://www.nytimes.com/2026/07/26/world/asia/india-protests-cockroach-janta-party-abhijeet-dipke.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/07/26/espanol/estados-unidos/trump-cena-correspo
 **Terrorism Suspected After Car Plows Into People at Berlin Pride Event**\
 `A car plowed through a park during Berlin’s annual Pride event on Saturday, killing at least one person, in what the police said was a suspected act of terrorism.`\
 https://www.nytimes.com/video/world/europe/100000011053479/terrorism-suspected-after-car-plows-into-people-at-berlin-pride-event.html
-
-**20 Years After Its Own Outbreak, an Ugandan Town Beats Back Ebola**\
-`The Bundibugyo Ebola virus takes its name from this small town, where it was first discovered in 2007. Now, the species has returned to eastern Congo, halting life on a busy border.`\
-https://www.nytimes.com/2026/07/26/world/africa/ebola-uganda-congo-border.html
-
-**No Corrections: July 26, 2026**\
-`No corrections appeared in print on Sunday, July 26, 2026.`\
-https://www.nytimes.com/2026/07/26/pageoneplus/no-corrections-july-26-2026.html
-
-**Are You Hydrated? Take Our Quiz and Find Out**\
-`Is coffee dehydrating? And 11 other questions about your daily fluid needs.`\
-https://www.nytimes.com/2026/07/26/well/water-hydration-quiz.html
 
