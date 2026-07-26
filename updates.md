@@ -1,3 +1,15 @@
+**Why ‘Your Friends & Neighbors’ Should Win the Best Drama Emmy**\
+`Do only creeps or chumps still believe in the American dream?`\
+https://www.nytimes.com/2026/07/26/opinion/your-friends-and-neighbors-apple-tv.html
+
+**Today’s Wordle Hints for July 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/26/crosswords/wordle-review-1864.html
+
+**Obsessing About Our Mental Health Is Part of Our Mental Health Problem**\
+`We need to support psychological well-being without fixating on it.`\
+https://www.nytimes.com/2026/07/26/opinion/mental-health-exercise-charity.html
+
 **Why Do Some Memories Survive Dementia?**\
 `A Times reporter tells the story of her father’s disease and the new science that helped her understand what he went through.`\
 https://www.nytimes.com/2026/07/26/podcasts/the-daily/why-do-some-memories-survive-dementia.html
