@@ -1,3 +1,23 @@
+**Por qué busqué al comandante talibán contra el que combatí**\
+`Primero como infante de marina y luego como periodista, pasé años ligado a Afganistán. Regresé una última vez para hablar con un antiguo enemigo en busca de respuestas, y tal vez de un cierre.`\
+https://www.nytimes.com/es/2026/07/26/espanol/mundo/talibanes-afganistan.html
+
+**NYT Spelling Bee Answers for July 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/26/crosswords/spelling-bee-forum.html
+
+**The Secret Life of the New York Times Bees**\
+`Some 60,000 Italian honeybees live, and work, on a rooftop at The Times’s Midtown Manhattan headquarters.`\
+https://www.nytimes.com/2026/07/26/insider/bees-new-york-times-building.html
+
+**Democratic Socialists Are Winning Big. Now They Want Action.**\
+`The Democratic Socialists of America, after a string of election victories in New York, is eager to tax the rich and enact anti-Israel policies.`\
+https://www.nytimes.com/2026/07/26/nyregion/dsa-tax-rich-hochul-mamdani.html
+
+**‘In This City, Breakfast Orders Are Not Taken Lightly’**\
+`The drag queen Monét X Change, the writer Sarah MacLean and other notable friends of Metropolitan Diary share their stories to help the column celebrate its 50th anniversary.`\
+https://www.nytimes.com/2026/07/26/nyregion/metropolitan-diary.html
+
 **Incendios forestales en Francia y España: lo que hay que saber**\
 `En Francia y España, las llamas han arrasado con decenas de miles de hectáreas de tierra, herido a decenas de bomberos, destruido decenas de casas y campamentos, y obligado a muchos vacacionistas a huir de lugares vacacionales populares.`\
 https://www.nytimes.com/es/2026/07/26/espanol/mundo/incendios-forestales-espana-francia.html
@@ -177,20 +197,4 @@ https://www.nytimes.com/2026/07/25/opinion/odyssey-nolan-greek-mythology.html
 **Whatever Happened to the B+ Student?**\
 `Readers respond to an essay by Frank Bruni about the pressure to give students A’s in college classes.`\
 https://www.nytimes.com/2026/07/25/opinion/college-students-grades.html
-
-**When Girls Get to Be Boy Scouts**\
-`What I know from six years of leading Troop 163 is that these girls invigorate scouting rather than weaken it.`\
-https://www.nytimes.com/2026/07/25/opinion/boy-scouts-girls-gender.html
-
-**The Flawed Environmental Case Against Data Centers**\
-`Our animosity toward data centers is really more about our anxieties about A.I.`\
-https://www.nytimes.com/2026/07/25/opinion/data-centers-environment-ai.html
-
-**Why Vance Still Trumps Rubio**\
-`There’s no evidence that the president regards his vice president more skeptically because of his initial opposition to the war.`\
-https://www.nytimes.com/2026/07/25/opinion/vance-rubio-trump-iran.html
-
-**The New Tactic Trump Thinks Will Rally Voters**\
-`Three Opinion writers discuss whether the president’s Red Scare strategy will work.`\
-https://www.nytimes.com/video/opinion/100000011049015/the-new-tactic-trump-thinks-will-rally-voters.html
 

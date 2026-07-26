@@ -1,3 +1,23 @@
+**Por qué busqué al comandante talibán contra el que combatí**\
+`Primero como infante de marina y luego como periodista, pasé años ligado a Afganistán. Regresé una última vez para hablar con un antiguo enemigo en busca de respuestas, y tal vez de un cierre.`\
+https://www.nytimes.com/es/2026/07/26/espanol/mundo/talibanes-afganistan.html
+
+**NYT Spelling Bee Answers for July 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/26/crosswords/spelling-bee-forum.html
+
+**The Secret Life of the New York Times Bees**\
+`Some 60,000 Italian honeybees live, and work, on a rooftop at The Times’s Midtown Manhattan headquarters.`\
+https://www.nytimes.com/2026/07/26/insider/bees-new-york-times-building.html
+
+**Democratic Socialists Are Winning Big. Now They Want Action.**\
+`The Democratic Socialists of America, after a string of election victories in New York, is eager to tax the rich and enact anti-Israel policies.`\
+https://www.nytimes.com/2026/07/26/nyregion/dsa-tax-rich-hochul-mamdani.html
+
+**‘In This City, Breakfast Orders Are Not Taken Lightly’**\
+`The drag queen Monét X Change, the writer Sarah MacLean and other notable friends of Metropolitan Diary share their stories to help the column celebrate its 50th anniversary.`\
+https://www.nytimes.com/2026/07/26/nyregion/metropolitan-diary.html
+
 **Car Plows Into Crowd at Berlin Pride Event in Suspected Terror Attack**\
 `The police said a suspect was involved in local Islamic groups and that there was a “strong suspicion” it was an act of terrorism. At least one person was killed and 16 injured.`\
 https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
