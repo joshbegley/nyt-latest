@@ -1,3 +1,7 @@
+**Terrorism Suspected After Car Plows Into People at Berlin Pride Event**\
+`A car plowed through a park during Berlin’s annual Pride event on Saturday, killing at least one person, in what the police said was a suspected act of terrorism.`\
+https://www.nytimes.com/video/world/europe/100000011053479/terrorism-suspected-after-car-plows-into-people-at-berlin-pride-event.html
+
 **20 Years After Its Own Outbreak, an Ugandan Town Beats Back Ebola**\
 `The Bundibugyo Ebola virus takes its name from this small town, where it was first discovered in 2007. Now, the species has returned to eastern Congo, halting life on a busy border.`\
 https://www.nytimes.com/2026/07/26/world/africa/ebola-uganda-congo-border.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/25/crosswords/wordle-review-1863.html
 **NYT Connections Answers for July 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
 https://www.nytimes.com/2026/07/25/crosswords/connections-companion-1141.html
-
-**NYT Strands Hints for July 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
-https://www.nytimes.com/2026/07/25/crosswords/strands-sidekick-875.html
 
