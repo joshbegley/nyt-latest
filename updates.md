@@ -1,3 +1,7 @@
+**U.S.-Iran War Pauses for 2nd Straight Day**\
+`President Trump put off plans to escalate the fighting in part because of dwindling stockpiles of interceptor missiles, American officials said.`\
+https://www.nytimes.com/2026/07/26/world/middleeast/us-iran-war-pause.html
+
 **Live Updates: Firefighters Battle Raging Wildfires in France and Spain**\
 `Hundreds of thousands of people have been forced to flee or take shelter from fast-moving blazes, with another heat wave forecast to hit Europe this week.`\
 https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
