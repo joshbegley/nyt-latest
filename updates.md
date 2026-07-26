@@ -1,3 +1,7 @@
+**Europe Is Heating Up Again This Week. Here’s What to Know.**\
+`A new heat wave is forecast to hit the continent, piling the pressure on countries that are already fighting deadly wildfires that have forced hundreds of thousands to evacuate.`\
+https://www.nytimes.com/2026/07/26/weather/europe-heat-what-to-know.html
+
 **Trump Is Pushing Nuclear Energy, Including Saudi Deal. His Family and Supporters Could Benefit.**\
 `In some cases, no direct line can be drawn from the president’s domestic nuclear agenda to his family or close allies. But they have overlapping business ties that could position them for gains.`\
 https://www.nytimes.com/2026/07/26/us/politics/trump-nuclear-energy-agenda-saudi-deal.html
