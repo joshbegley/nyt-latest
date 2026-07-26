@@ -38,12 +38,12 @@ https://www.nytimes.com/2026/07/26/crosswords/strands-sidekick-876.html
 `The hunt for a 21-year-old man with links to local Islamic groups began early Sunday. The police said they were investigating the attack as a possible act of terrorism.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
 
-**U.S.-Iran War Pauses for 2nd Straight Day**\
+**U.S.-Iran War Pauses for 2nd Straight Day With Both Sides Holding Off on Strikes**\
 `President Trump put off plans to escalate the fighting in part because of dwindling stockpiles of interceptor missiles, American officials said.`\
 https://www.nytimes.com/2026/07/26/world/middleeast/us-iran-war-pause.html
 
-**Live Updates: Extreme Heat and Strong Winds Fuel Wildfires in France and Spain**\
-`Firefighters are tackling new blazes while others have been contained, and hundreds of thousands of people have been forced to flee. A new heat wave forecast to hit Europe could make conditions worse.`\
+**Live Updates: Extreme Heat and Strong Winds Fuel New Wildfires in France and Spain**\
+`Firefighters are tackling fresh blazes while others have been contained, and hundreds of thousands of people have been forced to flee. A new heat wave forecast to hit Europe could make conditions worse.`\
 https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
 
 **Europe Is Heating Up Again This Week. Here’s What to Know.**\
