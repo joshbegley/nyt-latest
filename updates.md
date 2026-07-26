@@ -1,3 +1,19 @@
+**20 Years After Its Own Outbreak, an Ugandan Town Beats Back Ebola**\
+`The Bundibugyo Ebola virus takes its name from this small town, where it was first discovered in 2007. Now, the species has returned to eastern Congo, halting life on a busy border.`\
+https://www.nytimes.com/2026/07/26/world/africa/ebola-uganda-congo-border.html
+
+**No Corrections: July 26, 2026**\
+`No corrections appeared in print on Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/26/pageoneplus/no-corrections-july-26-2026.html
+
+**Are You Hydrated? Take Our Quiz and Find Out**\
+`Is coffee dehydrating? And 11 other questions about your daily fluid needs.`\
+https://www.nytimes.com/2026/07/26/well/water-hydration-quiz.html
+
+**Quote of the Day: Squish and Squeeze: Affordable Therapy**\
+`Quotation of the Day for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/26/pageoneplus/quote-of-the-day-squish-and-squeeze-affordable-therapy.html
+
 **Car Plows Into Crowd at Berlin Pride Event in Suspected Terror Attack**\
 `The police said the suspect was involved in local Islamic groups and that there was a “strong suspicion” it was an act of terrorism. At least one person was killed and 16 injured.`\
 https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
