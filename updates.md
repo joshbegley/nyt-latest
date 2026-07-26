@@ -1,3 +1,7 @@
+**Car Plows Into Crowd at Berlin Pride Event in Suspected Terror Attack**\
+`The police said a suspect was involved in local Islamic groups and that there was a “strong suspicion” it was an act of terrorism. At least one person was killed and 16 injured.`\
+https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
+
 **What’s Left of the Cease-Fire Agreement Between the U.S. and Iran?**\
 `Nearly all of the agreement’s 14 points have been violated.`\
 https://www.nytimes.com/2026/07/25/world/middleeast/us-iran-cease-fire-deal-violations.html

@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/07/25/nyregion/new-jersey-campers-mushroom-chocolat
 `Among the worries is that expanded hostilities could dangerously drain the diminished stockpile of air defense munitions in the Middle East.`\
 https://www.nytimes.com/2026/07/25/us/politics/trump-iran-military.html
 
-**Car Plows Into People Near a Pride Event in Berlin, Killing at Least One**\
-`The police said a hunt for suspects was underway after the episode, which also injured at least 16 people, some seriously.`\
+**Car Plows Into Crowd at Berlin Pride Event in Suspected Terror Attack**\
+`The police said a suspect was involved in local Islamic groups and that there was a “strong suspicion” it was an act of terrorism. At least one person was killed and 16 injured.`\
 https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
 
 **Down the Tubes**\
