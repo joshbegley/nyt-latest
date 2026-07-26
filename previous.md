@@ -1,4 +1,4 @@
-**Forced to Flee and Wait, Evacuees Wonder if Their Homes Still Stand**\
+**Forced to Evacuate Amid Spain Wildfires, Residents Wonder if Their Homes Still Stand**\
 `In central Spain, thousands of people sleep in shelters or in their cars, some of them evacuated multiple times ahead of the advancing flames, awaiting word on what they left behind.`\
 https://www.nytimes.com/2026/07/26/world/europe/spain-fires-evacuees-voices.html
 
