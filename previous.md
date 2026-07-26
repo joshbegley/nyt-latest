@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
 
 **Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
-`The police said they were searching for a 21-year-old man with links to local Islamist groups, and investigating the crime as a possible act of terrorism.`\
+`The Berlin police said they were searching for a 21-year-old man with links to local Islamist groups, and investigating the crime as a possible act of terrorism.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
 
 **Some Like It Hot, and Then Cold**\
@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/07/26/style/sophie-lou-jacobsen-glassware.html
 `A president who thought there were no limits to his power has discovered several, leaving him more frustrated and erratic.`\
 https://www.nytimes.com/2026/07/26/us/politics/trump-trapped-in-iran-war.html
 
-**Senate candidate Josh Turek handcycles the Iowa campaign trail**\
+**Senate Candidate Josh Turek Handcycles the Iowa Campaign Trail**\
 `State Representative Josh Turek, the Democrat running to flip Iowa’s open Senate seat, cycled with his hands at an Iowa biking event that took place between two cities nearly 60 miles apart.`\
 https://www.nytimes.com/2026/07/26/us/politics/turek-iowa-senate-democrat.html
 

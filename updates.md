@@ -1,3 +1,11 @@
+**Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
+`The Berlin police said they were searching for a 21-year-old man with links to local Islamist groups, and investigating the crime as a possible act of terrorism.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
+
+**Senate Candidate Josh Turek Handcycles the Iowa Campaign Trail**\
+`State Representative Josh Turek, the Democrat running to flip Iowa’s open Senate seat, cycled with his hands at an Iowa biking event that took place between two cities nearly 60 miles apart.`\
+https://www.nytimes.com/2026/07/26/us/politics/turek-iowa-senate-democrat.html
+
 **These Nuns Wake Up at Midnight to Pray for New Moms**\
 `As empathy becomes politicized, these women are practicing it in the extreme.`\
 https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
