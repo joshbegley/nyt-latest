@@ -74,8 +74,8 @@ https://www.nytimes.com/2026/07/26/opinion/odyssey-christopher-nolan-greek-gods.
 `Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
 https://www.nytimes.com/2026/07/26/crosswords/strands-sidekick-876.html
 
-**Officials Call Attack Near Berlin Pride Celebration a ‘Terror Attack’**\
-`The hunt for a 21-year-old man began early Sunday, in what officials called a likely act of Islamist terrorism.`\
+**Berlin Pride Event Attacker Killed in Police Shootout, Officials Say**\
+`The confrontation with the suspect in what has been described as a likely act of Islamist terrorism occurred as a large-scale manhunt was underway, the authorities said.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
 
 **U.S.-Iran War Pauses for 2nd Straight Day With Both Sides Holding Off on Strikes**\

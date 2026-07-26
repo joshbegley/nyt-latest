@@ -1,3 +1,7 @@
+**Berlin Pride Event Attacker Killed in Police Shootout, Officials Say**\
+`The confrontation with the suspect in what has been described as a likely act of Islamist terrorism occurred as a large-scale manhunt was underway, the authorities said.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
+
 **Brasil niega las visas a funcionarios de EE. UU. que buscaban cuestionar el sistema electoral**\
 `En la solicitud de visa, los funcionarios de EE. UU. dijeron que planeaban reunirse con autoridades electorales para hablar sobre los sistemas de votación de Brasil.`\
 https://www.nytimes.com/es/2026/07/26/espanol/mundo/brasil-eeuu-elecciones.html
