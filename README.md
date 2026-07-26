@@ -1,3 +1,19 @@
+**20 Years After Its Own Outbreak, an Ugandan Town Beats Back Ebola**\
+`The Bundibugyo Ebola virus takes its name from this small town, where it was first discovered in 2007. Now, the species has returned to eastern Congo, halting life on a busy border.`\
+https://www.nytimes.com/2026/07/26/world/africa/ebola-uganda-congo-border.html
+
+**No Corrections: July 26, 2026**\
+`No corrections appeared in print on Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/26/pageoneplus/no-corrections-july-26-2026.html
+
+**Are You Hydrated? Take Our Quiz and Find Out**\
+`Is coffee dehydrating? And 11 other questions about your daily fluid needs.`\
+https://www.nytimes.com/2026/07/26/well/water-hydration-quiz.html
+
+**Quote of the Day: Squish and Squeeze: Affordable Therapy**\
+`Quotation of the Day for Sunday, July 26, 2026.`\
+https://www.nytimes.com/2026/07/26/pageoneplus/quote-of-the-day-squish-and-squeeze-affordable-therapy.html
+
 **Appeals Court Upholds Blocks on Trump Order Restricting Mail Voting**\
 `The ruling on Saturday was the latest rebuke to President Trump’s attacks on mail-in voting. The government says it may take the case to the Supreme Court.`\
 https://www.nytimes.com/2026/07/25/us/politics/appeals-court-trump-mail-voting.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/07/25/crosswords/connections-companion-1141.html
 **NYT Strands Hints for July 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, July 26, 2026.`\
 https://www.nytimes.com/2026/07/25/crosswords/strands-sidekick-875.html
-
-**As Trump Escalates Trade War With Canada, Ontario Premier Doug Ford Wants to Retaliate**\
-`While Mark Carney weighs his next steps, some provincial leaders point to oil, electricity and potash as powerful leverage against U.S. economic pressure.`\
-https://www.nytimes.com/2026/07/25/world/canada/trump-tariffs-trade-wildfires-smoke.html
-
-**What to Know About the Wildfires Raging in Western Europe**\
-`Huge blazes have forced tens of thousands of residents and vacationers in France and Spain to evacuate.`\
-https://www.nytimes.com/2026/07/25/world/europe/europe-fires-france-spain-what-to-know.html
-
-**India’s Education Minister Steps Down in Victory for Cockroach Party Protesters**\
-`The Cockroach Janta Party called an end to weeks of protests after the education minister resigned, a win for that movement even as deep-seated anger among young people remains.`\
-https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns-cockroach-protests.html
-
-**Karl-Anthony Towns Knows the Knicks’ Win Was Bigger Than Basketball**\
-`New York’s star center on playing for his mom, Patrick Ewing, generations of emotional fans — and himself.`\
-https://www.nytimes.com/2026/07/25/magazine/karl-anthony-towns-interview.html
 
