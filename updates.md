@@ -1,3 +1,7 @@
+**Live Updates: Firefighters Battle Raging Wildfires in France and Spain**\
+`Hundreds of thousands of people have been forced to flee or take shelter from fast-moving blazes, with another heat wave forecast to hit Europe this week.`\
+https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
+
 **Europe Is Heating Up Again This Week. Here’s What to Know.**\
 `A new heat wave is forecast to hit the continent, piling the pressure on countries that are already fighting deadly wildfires that have forced hundreds of thousands to evacuate.`\
 https://www.nytimes.com/2026/07/26/weather/europe-heat-what-to-know.html

@@ -1,3 +1,7 @@
+**Live Updates: Firefighters Battle Raging Wildfires in France and Spain**\
+`Hundreds of thousands of people have been forced to flee or take shelter from fast-moving blazes, with another heat wave forecast to hit Europe this week.`\
+https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
+
 **Europe Is Heating Up Again This Week. Here’s What to Know.**\
 `A new heat wave is forecast to hit the continent, piling the pressure on countries that are already fighting deadly wildfires that have forced hundreds of thousands to evacuate.`\
 https://www.nytimes.com/2026/07/26/weather/europe-heat-what-to-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/25/us/howard-university-unenrolled-students.html
 **300,000 People Flee or Shelter in Place as Fires Rage in Spain and France**\
 `One person died and dozens were injured as fast-moving wildfires in France and Spain devastated tens of thousands of acres and forced mass evacuations.`\
 https://www.nytimes.com/video/world/europe/100000011053056/europe-wildfires-france-spain.html
-
-**Military Families Express Outrage After Pentagon Lowers Number of U.S. Troop Deaths in Iran War**\
-`The change in the number to 14 from 18 this week has prompted scrutiny over the Defense Department’s accounting and reporting practices.`\
-https://www.nytimes.com/2026/07/25/us/pentagon-iran-war-troops-death-toll.html
 
