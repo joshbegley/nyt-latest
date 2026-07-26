@@ -1,3 +1,7 @@
+**Maps: Tracking Hurricane Genevieve**\
+`See the likely path and wind arrival times for Genevieve`\
+https://www.nytimes.com/interactive/2026/07/26/weather/genevieve-map-path-tracker.html
+
 **My Piece-of-Cake Cake**\
 `The most adaptable one-bowl cornmeal pound cake lives up to its name, with five stars and hundreds of happy reader notes.`\
 https://www.nytimes.com/2026/07/26/dining/my-piece-of-cake-cake.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/insider/bees-new-york-times-building.html
 **Democratic Socialists Are Winning Big. Now They Want Action.**\
 `The Democratic Socialists of America, after a string of election victories in New York, is eager to tax the rich and enact anti-Israel policies.`\
 https://www.nytimes.com/2026/07/26/nyregion/dsa-tax-rich-hochul-mamdani.html
-
-**‘In This City, Breakfast Orders Are Not Taken Lightly’**\
-`The drag queen Monét X Change, the writer Sarah MacLean and other notable friends of Metropolitan Diary share their stories to help the column celebrate its 50th anniversary.`\
-https://www.nytimes.com/2026/07/26/nyregion/metropolitan-diary.html
 

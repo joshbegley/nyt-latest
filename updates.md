@@ -1,3 +1,7 @@
+**Maps: Tracking Hurricane Genevieve**\
+`See the likely path and wind arrival times for Genevieve`\
+https://www.nytimes.com/interactive/2026/07/26/weather/genevieve-map-path-tracker.html
+
 **My Piece-of-Cake Cake**\
 `The most adaptable one-bowl cornmeal pound cake lives up to its name, with five stars and hundreds of happy reader notes.`\
 https://www.nytimes.com/2026/07/26/dining/my-piece-of-cake-cake.html
