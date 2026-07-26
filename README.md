@@ -1,3 +1,11 @@
+**Seattle Police Search for 2 Men Who Parachuted From the Space Needle**\
+`The men face criminal trespassing charges after they climbed over the glass wall of the observation deck of the city landmark and jumped from the ledge Friday evening.`\
+https://www.nytimes.com/2026/07/26/us/seattle-space-needle-base-jumpers.html
+
+**Man Charged in Death of 12-Year-Old Boy Who Was Struck by Stray Bullet**\
+`The boy, the son of a retired detective sergeant, died near his Bronx home after he was struck by the bullet from a gun fired during a brawl nearby, according to law enforcement officials.`\
+https://www.nytimes.com/2026/07/26/nyregion/boy-killed-bronx-shooting-arrest.html
+
 **Brasil niega las visas a funcionarios de EE. UU. que buscaban cuestionar el sistema electoral**\
 `En la solicitud de visa, los funcionarios de EE. UU. dijeron que planeaban reunirse con autoridades electorales para hablar sobre los sistemas de votación de Brasil.`\
 https://www.nytimes.com/es/2026/07/26/espanol/mundo/brasil-eeuu-elecciones.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/26/espanol/pasatiempos-abuela-escuelas-manual
 **4 ‘prompts’ que pueden revelarte lo que los chatbots realmente saben de ti**\
 `Puede resultar inquietante lo que Gemini y ChatGPT han descubierto sobre ti y lo fácil que es vulnerar tu privacidad. A continuación te explicamos cómo averiguarlo.`\
 https://www.nytimes.com/es/2026/07/26/espanol/negocios/chatbot-preguntas-informacion-personal.html
-
-**Por qué busqué al comandante talibán contra el que combatí**\
-`Primero como infante de marina y luego como periodista, pasé años ligado a Afganistán. Regresé una última vez para hablar con un antiguo enemigo en busca de respuestas, y tal vez de un cierre.`\
-https://www.nytimes.com/es/2026/07/26/espanol/mundo/talibanes-afganistan.html
-
-**NYT Spelling Bee Answers for July 26, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/26/crosswords/spelling-bee-forum.html
 
