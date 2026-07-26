@@ -1,3 +1,7 @@
+**Netanyahu Accuses Mamdani of ‘Hate Speech’ After Mayor’s Video Address**\
+`The Israeli prime minister criticized Mr. Mamdani for releasing a video last week in which the mayor called for the federal government to arrest Mr. Netanyahu for war crimes.`\
+https://www.nytimes.com/2026/07/26/nyregion/netanyahu-mamdani-fox-news.html
+
 **NYT Crossword Answers for July 27, 2026**\
 `Aidan Deshong casts about for answers.`\
 https://www.nytimes.com/2026/07/26/crosswords/daily-puzzle-2026-07-27.html
