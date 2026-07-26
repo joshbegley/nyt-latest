@@ -1,3 +1,7 @@
+**Live Updates: Extreme Heat and Strong Winds Fuel Wildfires in France and Spain**\
+`Firefighters are tackling new blazes while others have been contained, and hundreds of thousands of people have been forced to flee. A new heat wave forecast to hit Europe could make conditions worse.`\
+https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
+
 **Why ‘Your Friends & Neighbors’ Should Win the Best Drama Emmy**\
 `Do only creeps or chumps still believe in the American dream?`\
 https://www.nytimes.com/2026/07/26/opinion/your-friends-and-neighbors-apple-tv.html
