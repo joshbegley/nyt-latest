@@ -1,3 +1,11 @@
+**Secret Service Agent and 2 Others Charged in Near-Fatal Fraternity Hazing**\
+`A college fraternity member was paddled so severely during hazing rituals that he suffered kidney damage and nearly died.`\
+https://www.nytimes.com/2026/07/26/us/florida-secret-service-agent-fraternity-hazing.html
+
+**A 12-Year-Old Went to Buy a Ball. He Was Killed by a Stray Bullet.**\
+`Jacob Freytes, the son of a retired detective sergeant, died near his Bronx home after he was struck by the bullet from a gun fired during a brawl, law enforcement officials said.`\
+https://www.nytimes.com/2026/07/26/nyregion/boy-killed-bronx-shooting-arrest.html
+
 **Oil Prices Fall After U.S. and Iran Pause Fighting for a Second Day**\
 `No strikes have been reported from either side since Friday, leaving oil investors optimistic about a resolution to the conflict.`\
 https://www.nytimes.com/2026/07/26/business/oil-prices-fall-iran-war.html
