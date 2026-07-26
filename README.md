@@ -66,13 +66,13 @@ https://www.nytimes.com/2026/07/26/us/politics/turek-iowa-senate-democrat.html
 `Troy Jackson is replacing Graham Platner, but Republicans are seeking to tie them together as a remade race kicks off with high stakes.`\
 https://www.nytimes.com/2026/07/26/us/politics/jackson-collins-platner-senate-maine.html
 
-**Inside the Phone-Throwing Drama at the Troubled, Broke Democratic Party**\
-`The Democrats should be well positioned to make gains in this year’s midterms. But inside party headquarters, every week brings paranoia, worries about money and, on occasion, emotional eruptions.`\
-https://www.nytimes.com/2026/07/26/us/politics/ken-martin-dnc-democrats.html
-
 **Employers Fear Labor Shortage as Many Immigrants Lose Protected Status**\
 `A recent Supreme Court ruling cleared the way for the Trump administration to end a humanitarian program that has allowed about one million immigrants to work legally in the U.S.`\
 https://www.nytimes.com/2026/07/26/us/trump-tps-labor-shortage.html
+
+**Inside the Phone-Throwing Drama at the Troubled, Broke Democratic Party**\
+`The Democrats should be well positioned to make gains in this year’s midterms. But inside party headquarters, every week brings paranoia, worries about money and, on occasion, emotional eruptions.`\
+https://www.nytimes.com/2026/07/26/us/politics/ken-martin-dnc-democrats.html
 
 **A Captain Calls This Yacht His Home. The Owner Is Selling It.**\
 `Gavin Bladen oversaw the construction of the luxury catamaran Hemisphere and has lived on it for 15 years. When it changes hands, he may be cast adrift.`\
