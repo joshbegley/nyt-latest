@@ -1,3 +1,7 @@
+**Secret Service Agent and 2 Others Charged in Near-Fatal Fraternity Hazing**\
+`A college fraternity member was paddled so severely during hazing rituals that he suffered kidney damage and nearly died.`\
+https://www.nytimes.com/2026/07/26/us/florida-secret-service-agent-fraternity-hazing.html
+
 **Oil Prices Fall After U.S. and Iran Pause Fighting for a Second Day**\
 `No strikes have been reported from either side since Friday, leaving oil investors optimistic about a resolution to the conflict.`\
 https://www.nytimes.com/2026/07/26/business/oil-prices-fall-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/us/politics/caudle-navy-hegseth-parlatore-pro
 **Book Review: ‘Albert Sabin,’ by Karen Torghele**\
 `The first serious biography of Albert Sabin recounts the pivotal role he played in the development of a polio vaccine.`\
 https://www.nytimes.com/2026/07/26/books/review/albert-sabin-biography-karen-torghele.html
-
-**Why TikTok’s Algorithm Keeps You Trapped in a Breakup Loop**\
-`As social media companies face scrutiny over addictive design features, mental health experts cite a stream of breakup content as an example of the failure to protect users.`\
-https://www.nytimes.com/2026/07/26/technology/personaltech/tiktok-instagram-breakup-content.html
 
