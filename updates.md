@@ -1,3 +1,7 @@
+**A 12-Year-Old Biked to Buy a Ball. He Was Killed by a Stray Bullet.**\
+`Jacob Freytes, the son of a retired detective sergeant, died near his Bronx home after he was struck by the bullet from a gun fired during a brawl, law enforcement officials said.`\
+https://www.nytimes.com/2026/07/26/nyregion/boy-killed-bronx-shooting-arrest.html
+
 **Netanyahu Accuses Mamdani of ‘Hate Speech’ After Mayor’s Video Address**\
 `The Israeli prime minister criticized Mr. Mamdani for releasing a video last week in which the mayor called for the federal government to arrest Mr. Netanyahu for war crimes.`\
 https://www.nytimes.com/2026/07/26/nyregion/netanyahu-mamdani-fox-news.html

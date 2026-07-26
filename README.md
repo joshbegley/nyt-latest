@@ -1,3 +1,7 @@
+**Extreme Heat and Strong Winds Fuel New Wildfires in Europe**\
+`Extreme heat and strong winds fueled new wildfires in France and Spain on Sunday. A heat wave is expected to hit Europe this week, which could make conditions worse.`\
+https://www.nytimes.com/video/world/europe/100000011054039/wildfires-extreme-heat-france-spain.html
+
 **Netanyahu Accuses Mamdani of ‘Hate Speech’ After Mayor’s Video Address**\
 `The Israeli prime minister criticized Mr. Mamdani for releasing a video last week in which the mayor called for the federal government to arrest Mr. Netanyahu for war crimes.`\
 https://www.nytimes.com/2026/07/26/nyregion/netanyahu-mamdani-fox-news.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/technology/personaltech/tiktok-instagram-brea
 **A Son of Wealth Finds His Calling in a High-End Grocery Store**\
 `How the scion Sammy Nussdorf found his calling among the carefully arranged shelves of Meadow Lane, his chic market in Lower Manhattan.`\
 https://www.nytimes.com/2026/07/26/style/a-different-kind-of-grocery-store-magnate.html
-
-**A 2-Year-Old’s Drowning and a Fight Over the Line Between Life and Death**\
-`A Texas family sued to stop a hospital from testing whether their child was brain-dead. Opposition to the test has been gaining support from anti-abortion activists.`\
-https://www.nytimes.com/2026/07/26/us/near-drowning-texas-brain-dead.html
 
