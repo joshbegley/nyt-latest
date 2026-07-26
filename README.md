@@ -1,3 +1,15 @@
+**Why ‘Your Friends & Neighbors’ Should Win the Best Drama Emmy**\
+`Do only creeps or chumps still believe in the American dream?`\
+https://www.nytimes.com/2026/07/26/opinion/your-friends-and-neighbors-apple-tv.html
+
+**Today’s Wordle Hints for July 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/26/crosswords/wordle-review-1864.html
+
+**Obsessing About Our Mental Health Is Part of Our Mental Health Problem**\
+`We need to support psychological well-being without fixating on it.`\
+https://www.nytimes.com/2026/07/26/opinion/mental-health-exercise-charity.html
+
 **Why Do Some Memories Survive Dementia?**\
 `A Times reporter tells the story of her father’s disease and the new science that helped her understand what he went through.`\
 https://www.nytimes.com/2026/07/26/podcasts/the-daily/why-do-some-memories-survive-dementia.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/26/pageoneplus/quote-of-the-day-squish-and-squee
 **Appeals Court Upholds Blocks on Trump Order Restricting Mail Voting**\
 `The ruling on Saturday was the latest rebuke to President Trump’s attacks on mail-in voting. The government says it may take the case to the Supreme Court.`\
 https://www.nytimes.com/2026/07/25/us/politics/appeals-court-trump-mail-voting.html
-
-**Hundreds of Thousands Flee Fires in France and Spain as Help Pours In**\
-`Nearly 300,000 have been told to evacuate or take shelter as major fires edged closer to Madrid and Bordeaux.`\
-https://www.nytimes.com/2026/07/25/world/europe/wildfires-france-spain-bordeaux-madrid.html
-
-**13 Children Accidentally Consume Edibles at New Jersey Y.M.C.A. Summer Camp**\
-`The Y.M.C.A. said a camper had handed them out without its knowledge. A parent described the affected children as looking like “little baby zombies.”`\
-https://www.nytimes.com/2026/07/25/nyregion/new-jersey-campers-mushroom-chocolate.html
-
-**Trump Holds Off on Major War Escalation Against Iran as Advisers Raise Concerns**\
-`Among the worries is that expanded hostilities could dangerously drain the diminished stockpile of air defense munitions in the Middle East.`\
-https://www.nytimes.com/2026/07/25/us/politics/trump-iran-military.html
 

@@ -1,3 +1,23 @@
+**Why Do Some Memories Survive Dementia?**\
+`A Times reporter tells the story of her father’s disease and the new science that helped her understand what he went through.`\
+https://www.nytimes.com/2026/07/26/podcasts/the-daily/why-do-some-memories-survive-dementia.html
+
+**NYT Connections Answers for July 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/26/crosswords/connections-companion-1142.html
+
+**Why Odysseus Turned on the Trojan Horse**\
+`This “Odyssey” takes us somewhere we didn’t know we were going.`\
+https://www.nytimes.com/2026/07/26/opinion/odyssey-christopher-nolan-greek-gods.html
+
+**NYT Strands Hints for July 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/26/crosswords/strands-sidekick-876.html
+
+**Berlin Police Search for Suspect in Fatal Attack on Pride Parade**\
+`The hunt for a 21-year-old man with links to local Islamic groups began early Sunday. The police said they were investigating the attack as a possible act of terrorism.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
+
 **U.S.-Iran War Pauses for 2nd Straight Day**\
 `President Trump put off plans to escalate the fighting in part because of dwindling stockpiles of interceptor missiles, American officials said.`\
 https://www.nytimes.com/2026/07/26/world/middleeast/us-iran-war-pause.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/25/nyregion/new-jersey-campers-mushroom-chocolat
 **Trump Holds Off on Major War Escalation Against Iran as Advisers Raise Concerns**\
 `Among the worries is that expanded hostilities could dangerously drain the diminished stockpile of air defense munitions in the Middle East.`\
 https://www.nytimes.com/2026/07/25/us/politics/trump-iran-military.html
-
-**Car Plows Into Crowd at Berlin Pride Event in Suspected Terror Attack**\
-`The police said a suspect was involved in local Islamic groups and that there was a “strong suspicion” it was an act of terrorism. At least one person was killed and 16 injured.`\
-https://www.nytimes.com/2026/07/25/world/europe/berlin-car-attack.html
-
-**Down the Tubes**\
-`Kim Alswager’s New York Times debut is a puzzler’s pipe dream.`\
-https://www.nytimes.com/2026/07/25/crosswords/daily-puzzle-2026-07-26.html
-
-**Maine Democrats Pick Troy Jackson to Replace Graham Platner in Senate Race**\
-`Maine Democrats have chosen Troy Jackson, a progressive former State Senate president, to replace Graham Platner as their Senate candidate. Jackson was selected at a hastily organized state party convention, which came together after Platner, who faced a rape accusation he denies, dropped out of the race.`\
-https://www.nytimes.com/video/us/politics/100000011053054/maine-troy-jackson-senate-democrats-platner.html
-
-**Brazil Blocks Visit by U.S. Delegation Seeking to Question Election System**\
-`Brazilian authorities refused to grant visas to two senior U.S. officials out of concern they planned to sow doubt about the security of the country’s voting systems.`\
-https://www.nytimes.com/2026/07/25/world/americas/brazil-united-states-election-voting.html
-
-**More Than 500 Howard University Students Are Bumped From Enrollment**\
-`The university said the students failed to meet payment requirements by a July 10 deadline and were removed from the school’s enrollment weeks before they were to move in.`\
-https://www.nytimes.com/2026/07/25/us/howard-university-unenrolled-students.html
 

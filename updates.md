@@ -1,3 +1,23 @@
+**Why Do Some Memories Survive Dementia?**\
+`A Times reporter tells the story of her father’s disease and the new science that helped her understand what he went through.`\
+https://www.nytimes.com/2026/07/26/podcasts/the-daily/why-do-some-memories-survive-dementia.html
+
+**NYT Connections Answers for July 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/26/crosswords/connections-companion-1142.html
+
+**Why Odysseus Turned on the Trojan Horse**\
+`This “Odyssey” takes us somewhere we didn’t know we were going.`\
+https://www.nytimes.com/2026/07/26/opinion/odyssey-christopher-nolan-greek-gods.html
+
+**NYT Strands Hints for July 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/26/crosswords/strands-sidekick-876.html
+
+**Berlin Police Search for Suspect in Fatal Attack on Pride Parade**\
+`The hunt for a 21-year-old man with links to local Islamic groups began early Sunday. The police said they were investigating the attack as a possible act of terrorism.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
+
 **U.S.-Iran War Pauses for 2nd Straight Day**\
 `President Trump put off plans to escalate the fighting in part because of dwindling stockpiles of interceptor missiles, American officials said.`\
 https://www.nytimes.com/2026/07/26/world/middleeast/us-iran-war-pause.html
