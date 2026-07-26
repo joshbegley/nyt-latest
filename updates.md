@@ -1,3 +1,7 @@
+**Extreme Heat and Strong Winds Fuel New Wildfires in Europe**\
+`Extreme heat and strong winds fueled new wildfires in France and Spain on Sunday. A heat wave is expected to hit Europe this week, which could make conditions worse.`\
+https://www.nytimes.com/video/world/europe/100000011054039/wildfires-extreme-heat-france-spain.html
+
 **A 12-Year-Old Biked to Buy a Ball. He Was Killed by a Stray Bullet.**\
 `Jacob Freytes, the son of a retired detective sergeant, died near his Bronx home after he was struck by the bullet from a gun fired during a brawl, law enforcement officials said.`\
 https://www.nytimes.com/2026/07/26/nyregion/boy-killed-bronx-shooting-arrest.html
