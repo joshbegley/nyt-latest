@@ -1,3 +1,11 @@
+**Seattle Police Search for 2 Men Who Parachuted From the Space Needle**\
+`The men face criminal trespassing charges after they climbed over the glass wall of the observation deck of the city landmark and jumped from the ledge Friday evening.`\
+https://www.nytimes.com/2026/07/26/us/seattle-space-needle-base-jumpers.html
+
+**Man Charged in Death of 12-Year-Old Boy Who Was Struck by Stray Bullet**\
+`The boy, the son of a retired detective sergeant, died near his Bronx home after he was struck by the bullet from a gun fired during a brawl nearby, according to law enforcement officials.`\
+https://www.nytimes.com/2026/07/26/nyregion/boy-killed-bronx-shooting-arrest.html
+
 **Berlin Pride Event Attacker Killed in Police Shootout, Officials Say**\
 `The confrontation with the suspect in what has been described as a likely act of Islamist terrorism occurred as a large-scale manhunt was underway, the authorities said.`\
 https://www.nytimes.com/2026/07/26/world/europe/berlin-gay-pride-attack.html
