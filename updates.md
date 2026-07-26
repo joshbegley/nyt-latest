@@ -1,3 +1,7 @@
+**My Piece-of-Cake Cake**\
+`The most adaptable one-bowl cornmeal pound cake lives up to its name, with five stars and hundreds of happy reader notes.`\
+https://www.nytimes.com/2026/07/26/dining/my-piece-of-cake-cake.html
+
 **Paul Andrews, Founder of the Woodstock of U.F.O.s, Dies at 77**\
 `An annual convention in the California desert offered a safe space for believers to discuss extraterrestrial encounters, crop circles and other paranormal phenomena.`\
 https://www.nytimes.com/2026/07/26/us/paul-andrews-dead.html
