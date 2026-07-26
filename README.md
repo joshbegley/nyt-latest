@@ -1,3 +1,7 @@
+**My Piece-of-Cake Cake**\
+`The most adaptable one-bowl cornmeal pound cake lives up to its name, with five stars and hundreds of happy reader notes.`\
+https://www.nytimes.com/2026/07/26/dining/my-piece-of-cake-cake.html
+
 **Paul Andrews, Founder of the Woodstock of U.F.O.s, Dies at 77**\
 `An annual convention in the California desert offered a safe space for believers to discuss extraterrestrial encounters, crop circles and other paranormal phenomena.`\
 https://www.nytimes.com/2026/07/26/us/paul-andrews-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/nyregion/dsa-tax-rich-hochul-mamdani.html
 **‘In This City, Breakfast Orders Are Not Taken Lightly’**\
 `The drag queen Monét X Change, the writer Sarah MacLean and other notable friends of Metropolitan Diary share their stories to help the column celebrate its 50th anniversary.`\
 https://www.nytimes.com/2026/07/26/nyregion/metropolitan-diary.html
-
-**Incendios forestales en Francia y España: lo que hay que saber**\
-`En Francia y España, las llamas han arrasado con decenas de miles de hectáreas de tierra, herido a decenas de bomberos, destruido decenas de casas y campamentos, y obligado a muchos vacacionistas a huir de lugares vacacionales populares.`\
-https://www.nytimes.com/es/2026/07/26/espanol/mundo/incendios-forestales-espana-francia.html
 
