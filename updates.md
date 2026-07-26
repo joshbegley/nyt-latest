@@ -1,3 +1,7 @@
+**Brasil niega las visas a funcionarios de EE. UU. que buscaban cuestionar el sistema electoral**\
+`En la solicitud de visa, los funcionarios de EE. UU. dijeron que planeaban reunirse con autoridades electorales para hablar sobre los sistemas de votación de Brasil.`\
+https://www.nytimes.com/es/2026/07/26/espanol/mundo/brasil-eeuu-elecciones.html
+
 **Forced to Evacuate Amid Spain Wildfires, Residents Wonder if Their Homes Still Stand**\
 `In central Spain, thousands of people sleep in shelters or in their cars, some of them evacuated multiple times ahead of the advancing flames, awaiting word on what they left behind.`\
 https://www.nytimes.com/2026/07/26/world/europe/spain-fires-evacuees-voices.html

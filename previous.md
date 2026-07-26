@@ -1,3 +1,7 @@
+**Brasil niega las visas a funcionarios de EE. UU. que buscaban cuestionar el sistema electoral**\
+`En la solicitud de visa, los funcionarios de EE. UU. dijeron que planeaban reunirse con autoridades electorales para hablar sobre los sistemas de votación de Brasil.`\
+https://www.nytimes.com/es/2026/07/26/espanol/mundo/brasil-eeuu-elecciones.html
+
 **Forced to Evacuate Amid Spain Wildfires, Residents Wonder if Their Homes Still Stand**\
 `In central Spain, thousands of people sleep in shelters or in their cars, some of them evacuated multiple times ahead of the advancing flames, awaiting word on what they left behind.`\
 https://www.nytimes.com/2026/07/26/world/europe/spain-fires-evacuees-voices.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/26/espanol/mundo/talibanes-afganistan.html
 **NYT Spelling Bee Answers for July 26, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/26/crosswords/spelling-bee-forum.html
-
-**The Secret Life of the New York Times Bees**\
-`Some 60,000 Italian honeybees live, and work, on a rooftop at The Times’s Midtown Manhattan headquarters.`\
-https://www.nytimes.com/2026/07/26/insider/bees-new-york-times-building.html
 
