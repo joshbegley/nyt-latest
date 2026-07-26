@@ -1,3 +1,7 @@
+**Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
+`The police said they were searching for a 21-year-old man with links to local Islamic groups, and investigating the crime as a possible act of terrorism.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
+
 **Some Like It Hot, and Then Cold**\
 `Five of my favorite quick, easy dinners that turn into no-reheating-needed lunches.`\
 https://www.nytimes.com/2026/07/26/dining/some-like-it-hot-and-then-cold.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/opinion/ukraine-lgbt-rights-war.html
 **En la gala de corresponsales, Trump lanza insultos personales**\
 `Los momentos de cordialidad fueron fugaces y de alguna manera más extraños que aquellos en los que el presidente Trump lanzaba sus habituales insultos.`\
 https://www.nytimes.com/es/2026/07/26/espanol/estados-unidos/trump-cena-corresponsale-chistes.html
-
-**Terrorism Suspected After Car Plows Into People at Berlin Pride Event**\
-`A car plowed through a park during Berlin’s annual Pride event on Saturday, killing at least one person, in what the police said was a suspected act of terrorism.`\
-https://www.nytimes.com/video/world/europe/100000011053479/terrorism-suspected-after-car-plows-into-people-at-berlin-pride-event.html
 

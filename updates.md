@@ -1,3 +1,7 @@
+**Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
+`The police said they were searching for a 21-year-old man with links to local Islamic groups, and investigating the crime as a possible act of terrorism.`\
+https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
+
 **Some Like It Hot, and Then Cold**\
 `Five of my favorite quick, easy dinners that turn into no-reheating-needed lunches.`\
 https://www.nytimes.com/2026/07/26/dining/some-like-it-hot-and-then-cold.html
