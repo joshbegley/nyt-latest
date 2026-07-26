@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 27, 2026**\
+`Aidan Deshong casts about for answers.`\
+https://www.nytimes.com/2026/07/26/crosswords/daily-puzzle-2026-07-27.html
+
+**Officers Killed Man Who Attacked Berlin Pride Event, Authorities Say**\
+`The German authorities said that police officers had shot and killed the man suspected of killing one person and injuring 29 others at a gay Pride event in Berlin on Saturday.`\
+https://www.nytimes.com/video/world/europe/100000011053965/berlin-pride-parade-attack-suspect-dead.html
+
 **Flames Advance on Bordeaux, Where Evacuees Balance Dread and Hope**\
 `With surrounding towns in southwestern France evacuated and fire still spreading rapidly, several thousand are sheltering in the city, unsure what will become of their homes.`\
 https://www.nytimes.com/2026/07/26/world/europe/france-fires-bordeaux.html

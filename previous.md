@@ -1,3 +1,11 @@
+**NYT Crossword Answers for July 27, 2026**\
+`Aidan Deshong casts about for answers.`\
+https://www.nytimes.com/2026/07/26/crosswords/daily-puzzle-2026-07-27.html
+
+**Officers Killed Man Who Attacked Berlin Pride Event, Authorities Say**\
+`The German authorities said that police officers had shot and killed the man suspected of killing one person and injuring 29 others at a gay Pride event in Berlin on Saturday.`\
+https://www.nytimes.com/video/world/europe/100000011053965/berlin-pride-parade-attack-suspect-dead.html
+
 **Flames Advance on Bordeaux, Where Evacuees Balance Dread and Hope**\
 `With surrounding towns in southwestern France evacuated and fire still spreading rapidly, several thousand are sheltering in the city, unsure what will become of their homes.`\
 https://www.nytimes.com/2026/07/26/world/europe/france-fires-bordeaux.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/26/us/near-drowning-texas-brain-dead.html
 **Book Review: ‘Furious Violet,’ by Sarai Walker**\
 `Sarai Walker’s “Furious Violet” is a psychological thriller about the kind of woman the genre — and the world — typically overlooks.`\
 https://www.nytimes.com/2026/07/26/books/review/furious-violet-sarai-walker.html
-
-**E.U. Divided Over Barring Imports From Israeli Settlements**\
-`The discussion about restricting goods from Israeli settlements in occupied territories reflects a European split over whether and how to confront Israel.`\
-https://www.nytimes.com/2026/07/26/world/middleeast/eu-debate-about-import-ban-reveals-deep-divides-over-israel.html
-
-**Meet Jeffrey Epstein’s Girlfriend, Who Stands to Inherit Much of His Estate**\
-`Karyna Shuliak, 37, is a complicated and unusual figure in the disgraced financier’s world who has been trying to blend into obscurity since his death.`\
-https://www.nytimes.com/2026/07/26/business/jeffrey-epstein-girlfriend-estate.html
 
