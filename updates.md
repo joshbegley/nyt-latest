@@ -1,3 +1,87 @@
+**Trump Is Pushing Nuclear Energy, Including Saudi Deal. His Family and Supporters Could Benefit.**\
+`In some cases, no direct line can be drawn from the president’s domestic nuclear agenda to his family or close allies. But they have overlapping business ties that could position them for gains.`\
+https://www.nytimes.com/2026/07/26/us/politics/trump-nuclear-energy-agenda-saudi-deal.html
+
+**Why 529 Accounts Make More Sense for Investing Than Trump Accounts**\
+`Most young children should have a Trump account. But that doesn’t mean families should prioritize saving in them.`\
+https://www.nytimes.com/2026/07/26/your-money/trump-accounts-529s-investing.html
+
+**You’ll Want to Raise Her Glass**\
+`Sophie Lou Jacobsen’s colorful, rippling glassware designs look great on Instagram. Lately, she’s craving something else.`\
+https://www.nytimes.com/2026/07/26/style/sophie-lou-jacobsen-glassware.html
+
+**Trump Seems Trapped by Iran War, Even as He Wields the World’s Biggest Hammer**\
+`A president who thought there were no limits to his power has discovered several, leaving him more frustrated and erratic.`\
+https://www.nytimes.com/2026/07/26/us/politics/trump-trapped-in-iran-war.html
+
+**Senate candidate Josh Turek handcycles the Iowa campaign trail**\
+`State Representative Josh Turek, the Democrat running to flip Iowa’s open Senate seat, cycled with his hands at an Iowa biking event that took place between two cities nearly 60 miles apart.`\
+https://www.nytimes.com/2026/07/26/us/politics/turek-iowa-senate-democrat.html
+
+**Democrats Reset the Maine Senate Race. Now Comes the Tricky Part.**\
+`Troy Jackson is replacing Graham Platner, but Republicans are seeking to tie them together as a remade race kicks off with high stakes.`\
+https://www.nytimes.com/2026/07/26/us/politics/jackson-collins-platner-senate-maine.html
+
+**Inside the Phone-Throwing Drama at the Troubled, Broke Democratic Party**\
+`The Democrats should be well positioned to make gains in this year’s midterms. But inside party headquarters, every week brings paranoia, worries about money and, on occasion, emotional eruptions.`\
+https://www.nytimes.com/2026/07/26/us/politics/ken-martin-dnc-democrats.html
+
+**Employers Fear Labor Shortage as Many Immigrants Lose Protected Status**\
+`A recent Supreme Court ruling cleared the way for the Trump administration to end a humanitarian program that has allowed about one million immigrants to work legally in the U.S.`\
+https://www.nytimes.com/2026/07/26/us/trump-tps-labor-shortage.html
+
+**A Captain Calls This Yacht His Home. The Owner Is Selling It.**\
+`Gavin Bladen oversaw the construction of the luxury catamaran Hemisphere and has lived on it for 15 years. When it changes hands, he may be cast adrift.`\
+https://www.nytimes.com/2026/07/26/realestate/a-captain-calls-this-yacht-his-home-the-owner-is-selling-it.html
+
+**Kids (and Adults) Are Obsessed With Squishy Toys and Fidget Trading**\
+`Kids are making, trading and hunting for squishies, or squeezable, malleable blob toys that come in a variety of forms.`\
+https://www.nytimes.com/2026/07/26/style/squishy-fidget-toys-trading.html
+
+**Ready for Your Netflix Documentary? This TikTok Trend Prepares Users to Tell All.**\
+`That toxic former workplace, that unsavory group chat: TikTok and Instagram users are imagining moments in their life that might lead to sit-down dramatic interviews.`\
+https://www.nytimes.com/2026/07/26/style/netflix-documentary-tiktok-trend.html
+
+**Comedy and Tragedy Are a Potent Mix in Alison Espach’s Hit Novels**\
+`Two years and 500,000 hardcover sales later, Alison Espach’s novel comes out in paperback this week. It’s a book she didn’t want to write.`\
+https://www.nytimes.com/2026/07/26/books/review/the-wedding-people-alison-espach.html
+
+**An Admiral’s Rise Reveals the Politics Driving Hegseth’s Pentagon**\
+`Before he was picked to lead the Navy, Adm. Daryl Caudle found ways to signal his support for Defense Secretary Pete Hegseth’s anti-diversity goals.`\
+https://www.nytimes.com/2026/07/26/us/politics/caudle-navy-hegseth-parlatore-promotion.html
+
+**Book Review: ‘Albert Sabin,’ by Karen Torghele**\
+`The first serious biography of Albert Sabin recounts the pivotal role he played in the development of a polio vaccine.`\
+https://www.nytimes.com/2026/07/26/books/review/albert-sabin-biography-karen-torghele.html
+
+**Why TikTok’s Algorithm Keeps You Trapped in a Breakup Loop**\
+`As social media companies face scrutiny over addictive design features, mental health experts cite a stream of breakup content as an example of the failure to protect users.`\
+https://www.nytimes.com/2026/07/26/technology/personaltech/tiktok-instagram-breakup-content.html
+
+**A Son of Wealth Finds His Calling in a High-End Grocery Store**\
+`How the scion Sammy Nussdorf found his calling among the carefully arranged shelves of Meadow Lane, his chic market in Lower Manhattan.`\
+https://www.nytimes.com/2026/07/26/style/a-different-kind-of-grocery-store-magnate.html
+
+**A 2-Year-Old’s Drowning and a Fight Over the Line Between Life and Death**\
+`A Texas family sued to stop a hospital from testing whether their child was brain-dead. Opposition to the test has been gaining support from anti-abortion activists.`\
+https://www.nytimes.com/2026/07/26/us/near-drowning-texas-brain-dead.html
+
+**Book Review: ‘Furious Violet,’ by Sarai Walker**\
+`Sarai Walker’s “Furious Violet” is a psychological thriller about the kind of woman the genre — and the world — typically overlooks.`\
+https://www.nytimes.com/2026/07/26/books/review/furious-violet-sarai-walker.html
+
+**E.U. Divided Over Barring Imports From Israeli Settlements**\
+`The discussion about restricting goods from Israeli settlements in occupied territories reflects a European split over whether and how to confront Israel.`\
+https://www.nytimes.com/2026/07/26/world/middleeast/eu-debate-about-import-ban-reveals-deep-divides-over-israel.html
+
+**Meet Jeffrey Epstein’s Girlfriend, Who Stands to Inherit Much of His Estate**\
+`Karyna Shuliak, 37, is a complicated and unusual figure in the disgraced financier’s world who has been trying to blend into obscurity since his death.`\
+https://www.nytimes.com/2026/07/26/business/jeffrey-epstein-girlfriend-estate.html
+
+**How the Prius Traces Its Lineage to a 1900 Car From Ferdinand Porsche**\
+`The Lohner-Porsche Semper Vivus had a generator that recharged a battery, and it even had regenerative braking. Sound familiar?`\
+https://www.nytimes.com/2026/07/26/business/porsche-history-hybrid.html
+
 **El lucrativo negocio de hacer ver ‘cool’ a las palomitas**\
 `Hubo un tiempo en que un envase de palomitas (o pochoclos, canchita, crispetas, cotufas) era solo un envase. Ahora, son coleccionables y podrían hacerle ganar a una cadena más de 100 millones de dólares.`\
 https://www.nytimes.com/es/2026/07/26/espanol/negocios/odisea-cine-palomeras-palomitas-pochoclo-crispetas.html
