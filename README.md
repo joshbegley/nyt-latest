@@ -1,3 +1,7 @@
+**Paul Andrews, Founder of the Woodstock of U.F.O.s, Dies at 77**\
+`An annual convention in the California desert offered a safe space for believers to discuss extraterrestrial encounters, crop circles and other paranormal phenomena.`\
+https://www.nytimes.com/2026/07/26/us/paul-andrews-dead.html
+
 **These Nuns Wake Up at Midnight to Pray for New Moms**\
 `As empathy becomes politicized, these women are practicing it in the extreme.`\
 https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/nyregion/metropolitan-diary.html
 **Incendios forestales en Francia y España: lo que hay que saber**\
 `En Francia y España, las llamas han arrasado con decenas de miles de hectáreas de tierra, herido a decenas de bomberos, destruido decenas de casas y campamentos, y obligado a muchos vacacionistas a huir de lugares vacacionales populares.`\
 https://www.nytimes.com/es/2026/07/26/espanol/mundo/incendios-forestales-espana-francia.html
-
-**Ukraine’s L.G.B.T.Q. Soldiers Are Still Fighting and Still Waiting**\
-`The legal gap for gay Ukrainians has always been unbearable. Then the war with Russia seemed to make the disparity untenable. But the gap remains.`\
-https://www.nytimes.com/2026/07/26/opinion/ukraine-lgbt-rights-war.html
 
