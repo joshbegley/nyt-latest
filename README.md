@@ -1,3 +1,7 @@
+**Netanyahu Accuses Mamdani of ‘Hate Speech’ After Mayor’s Video Address**\
+`The Israeli prime minister criticized Mr. Mamdani for releasing a video last week in which the mayor called for the federal government to arrest Mr. Netanyahu for war crimes.`\
+https://www.nytimes.com/2026/07/26/nyregion/netanyahu-mamdani-fox-news.html
+
 **NYT Crossword Answers for July 27, 2026**\
 `Aidan Deshong casts about for answers.`\
 https://www.nytimes.com/2026/07/26/crosswords/daily-puzzle-2026-07-27.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/style/a-different-kind-of-grocery-store-magna
 **A 2-Year-Old’s Drowning and a Fight Over the Line Between Life and Death**\
 `A Texas family sued to stop a hospital from testing whether their child was brain-dead. Opposition to the test has been gaining support from anti-abortion activists.`\
 https://www.nytimes.com/2026/07/26/us/near-drowning-texas-brain-dead.html
-
-**Book Review: ‘Furious Violet,’ by Sarai Walker**\
-`Sarai Walker’s “Furious Violet” is a psychological thriller about the kind of woman the genre — and the world — typically overlooks.`\
-https://www.nytimes.com/2026/07/26/books/review/furious-violet-sarai-walker.html
 
