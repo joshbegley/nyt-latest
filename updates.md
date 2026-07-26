@@ -1,3 +1,11 @@
+**Why Paramount Paused Its Blockbuster $111 Billion Deal for Warner Bros.**\
+`A flurry of negotiations last week cleared the way for an antitrust court battle with states that could determine the fate of the two iconic media giants.`\
+https://www.nytimes.com/2026/07/26/business/paramount-warner-bros-deal-pause.html
+
+**A South African Identity Crisis**\
+`Anti-immigrant activism reveals the contradictions of a country that projects itself as a bastion of human rights.`\
+https://www.nytimes.com/2026/07/26/world/south-africa-identity-crisis-wildfires.html
+
 **Extreme Heat and Strong Winds Fuel New Wildfires in France and Spain**\
 `Firefighters are tackling fresh blazes while others have been contained, and hundreds of thousands of people have been forced to flee. A new heat wave forecast to hit Europe could make conditions worse.`\
 https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
