@@ -1,3 +1,7 @@
+**El lucrativo negocio de hacer ver ‘cool’ a las palomitas**\
+`Hubo un tiempo en que un envase de palomitas (o pochoclos, canchita, crispetas, cotufas) era solo un envase. Ahora, son coleccionables y podrían hacerle ganar a una cadena más de 100 millones de dólares.`\
+https://www.nytimes.com/es/2026/07/26/espanol/negocios/odisea-cine-palomeras-palomitas-pochoclo-crispetas.html
+
 **En ‘La odisea’ y ‘Oppenheimer’, Nolan sabe que la civilización está en juego**\
 `En películas muy diferentes, la tendencia del director por jugar con el tiempo está al servicio de una preocupación mayor por los vínculos humanos a través de las épocas.`\
 https://www.nytimes.com/es/2026/07/26/espanol/cultura/odisea-oppenheimer-nolan.html
