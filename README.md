@@ -43,7 +43,7 @@ https://www.nytimes.com/video/world/europe/100000011054630/europe-wildfires-extr
 https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-salad.html
 
 **If You’re Over 40, You’re Ready to Use A.I.**\
-`Prospective students of a Jewish mystical practice are urged to delay their studies.`\
+`A.I. should work like this mystical Jewish practice.`\
 https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
 
 **What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\

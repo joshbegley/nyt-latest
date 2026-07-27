@@ -1,3 +1,15 @@
+**Microsoft Unveils A.I. Cybersecurity Tools**\
+`As some executives fret over the safety of new A.I. systems, protecting against them could be a big business for tech companies.`\
+https://www.nytimes.com/2026/07/27/technology/microsoft-unveils-ai-cybersecurity-tools.html
+
+**India’s ‘Cockroach’ Protesters Disperse, But Questions Remain on Education and Dissent**\
+`The ‘Cockroach’ movement dispersed, saying their demands had been met, but there are larger issues about the country’s education system and the future of dissent.`\
+https://www.nytimes.com/2026/07/27/world/asia/india-protests-cjp-education-modi.html
+
+**Berlin Locals Left Shaken After Pride Terror Attack**\
+`Chancellor Friedrich Merz of Germany has questioned the country’s terrorism surveillance laws after it was revealed that the suspect behind Saturday’s attack on Berlin’s Pride parade had previously tried to join the Islamic State.`\
+https://www.nytimes.com/video/world/europe/100000011054594/berlin-pride-attack-merz-terror-laws.html
+
 **Saudis Blame Iran-Backed Militias Based in Iraq for Drone Attacks**\
 `The kingdom is being dragged deeper into the wider regional conflict as it faces attacks from Iraq and Yemen.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/saudi-arabia-drone-attacks-iraq-iran.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/27/travel/new-hotels-historical-buildings.html
 **How a Social Worker Lives on $40,000 a Year in Brooklyn**\
 `At age 63, Everette Green is considering how to afford a future he never thought he would get after being incarcerated.`\
 https://www.nytimes.com/interactive/2026/07/27/nyregion/nyc-budgeting-affordability-green.html
-
-**Congress Budgeted Billions for Big Transit Projects. Trump Isn’t Spending It.**\
-`“It’s hard to look at the last year and see anything other than a deliberate slowdown of these grants.”`\
-https://www.nytimes.com/2026/07/27/upshot/transit-projects-trump.html
-
-**Can a Progressive Win in a Purple State? Abdul El-Sayed Wants to Find Out.**\
-`Michigan’s Aug. 4 primary is a critical front in the fight between Democrats’ progressive and moderate flanks and a preview of the 2028 presidential primary.`\
-https://www.nytimes.com/2026/07/27/us/politics/el-sayed-michigan-senate.html
-
-**How a Novelist of the American Past Recovered His Faith in Its Future**\
-`Colson Whitehead’s Harlem trilogy turns away from the pessimism of his recent novels to offer a more hopeful vision for Black history.`\
-https://www.nytimes.com/2026/07/27/magazine/colson-whitehead-black-history.html
 

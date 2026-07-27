@@ -1,3 +1,15 @@
+**Microsoft Unveils A.I. Cybersecurity Tools**\
+`As some executives fret over the safety of new A.I. systems, protecting against them could be a big business for tech companies.`\
+https://www.nytimes.com/2026/07/27/technology/microsoft-unveils-ai-cybersecurity-tools.html
+
+**India’s ‘Cockroach’ Protesters Disperse, But Questions Remain on Education and Dissent**\
+`The ‘Cockroach’ movement dispersed, saying their demands had been met, but there are larger issues about the country’s education system and the future of dissent.`\
+https://www.nytimes.com/2026/07/27/world/asia/india-protests-cjp-education-modi.html
+
+**Berlin Locals Left Shaken After Pride Terror Attack**\
+`Chancellor Friedrich Merz of Germany has questioned the country’s terrorism surveillance laws after it was revealed that the suspect behind Saturday’s attack on Berlin’s Pride parade had previously tried to join the Islamic State.`\
+https://www.nytimes.com/video/world/europe/100000011054594/berlin-pride-attack-merz-terror-laws.html
+
 **Saudis Blame Iran-Backed Militias Based in Iraq for Drone Attacks**\
 `The kingdom is being dragged deeper into the wider regional conflict as it faces attacks from Iraq and Yemen.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/saudi-arabia-drone-attacks-iraq-iran.html
