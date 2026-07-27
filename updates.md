@@ -1,3 +1,19 @@
+**Un naufragio en Guyana cobra 100 vidas y exhibe los problemas políticos del auge petrolero**\
+`El hundimiento del ferri, en operación desde 1939, generó cuestionamientos sobre la gestión política de una de las economías de más rápido crecimiento del mundo.`\
+https://www.nytimes.com/es/2026/07/27/espanol/america-latina/guyana-ferri-naufragio-petroleo.html
+
+**Quiz: Find the Right Style of Sunglasses for Your Personality**\
+`Statement shades are the accessory of the moment. Take T’s quiz to find the ones that best suit your personality.`\
+https://www.nytimes.com/2026/07/27/t-magazine/best-sunglasses-personality-quiz.html
+
+**Bill McGlaughlin, Who Unlocked Classical Music for Many, Dies at 82**\
+`His public-radio programs “Saint Paul Sunday” and “Exploring Music” were, at their height, listened to by hundreds of thousands of people a week.`\
+https://www.nytimes.com/2026/07/27/arts/music/bill-mcglaughlin-dead.html
+
+**The Left’s Infighting Is a Big Problem**\
+`On “The Opinions,” the columnist David French argues that the bigger challenge for Democrats isn’t a new Red Scare, but activists on the left who are more interested in taking over the Democratic Party than in defeating Republicans.`\
+https://www.nytimes.com/video/opinion/100000011049017/the-lefts-infighting-is-a-big-problem.html
+
 **Locals Fight Wildfires in France as They Rage On**\
 `As the wildfires in France force hundreds of thousands of people to evacuate, some locals have taken the risk to fight the wildfires instead of evacuating.`\
 https://www.nytimes.com/video/world/europe/100000011054901/france-wildfires-locals-firefighting-evacuations.html
