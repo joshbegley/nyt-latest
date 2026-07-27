@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Documentaries. Fidget toys. And chatbots.`\
+https://www.nytimes.com/2026/07/27/briefing/today-in-short.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/07/27/t-magazine/tk.html
+
 **Tiroteo en Seattle: 3 personas mueren en un festival gastronómico**\
 `Tres personas fallecieron durante un tiroteo cerca del Space Needle de la ciudad el domingo, dijo la policía. Un sospechoso estaba bajo custodia y la policía buscaba a otro.`\
 https://www.nytimes.com/es/2026/07/27/espanol/estados-unidos/tiroteo-seattle-festival-muertos.html

@@ -1,3 +1,7 @@
+**Nvidia Adds More Support to ‘Open-Source’ A.I. With New Alliance**\
+`The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
+https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
+
 **Today, In Short**\
 `Documentaries. Fidget toys. And chatbots.`\
 https://www.nytimes.com/2026/07/27/briefing/today-in-short.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/opinion/ice-immigration-detention-privatizati
 **What the Democratic Socialists Want in New York**\
 `Fresh off Zohran Mamdani’s triumph and recent primary victories, the Democratic Socialists of America has an ambitious policy agenda. Gov. Kathy Hochul, a Democrat, is unlikely to cooperate.`\
 https://www.nytimes.com/2026/07/27/nyregion/what-the-democratic-socialists-want-in-new-york.html
-
-**Adam Driver Sells a Brooklyn Condo and Buys Three More**\
-`The actor found a buyer for his loft-style apartment, and reportedly bought three units nearby, and Helen Mirren relisted her Los Angeles estate.`\
-https://www.nytimes.com/2026/07/27/realestate/adam-driver-helen-mirren-celebrity-home-sales.html
 

@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Documentaries. Fidget toys. And chatbots.`\
+https://www.nytimes.com/2026/07/27/briefing/today-in-short.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/07/27/t-magazine/tk.html
+
 **Tiroteo en Seattle: 3 personas mueren en un festival gastronómico**\
 `Tres personas fallecieron durante un tiroteo cerca del Space Needle de la ciudad el domingo, dijo la policía. Un sospechoso estaba bajo custodia y la policía buscaba a otro.`\
 https://www.nytimes.com/es/2026/07/27/espanol/estados-unidos/tiroteo-seattle-festival-muertos.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/27/nyregion/what-the-democratic-socialists-want-
 **Adam Driver Sells a Brooklyn Condo and Buys Three More**\
 `The actor found a buyer for his loft-style apartment, and reportedly bought three units nearby, and Helen Mirren relisted her Los Angeles estate.`\
 https://www.nytimes.com/2026/07/27/realestate/adam-driver-helen-mirren-celebrity-home-sales.html
-
-**Mina the Hollower Pays Homage to the Game Boy**\
-`Mina the Hollower draws inspiration from “The Secret of NIMH,” Victorian literature and 1990s role-playing games.`\
-https://www.nytimes.com/2026/07/27/arts/mina-hollower-review.html
-
-**Cuba, Lacking Fuel, Relies on Ingenuity to Defy Trump’s Blockade**\
-`President Trump has tried to strangle Cuba by blocking its oil imports. But six months later, the island is finding ways to endure.`\
-https://www.nytimes.com/2026/07/27/world/americas/trump-oil-gas-cuba-havana.html
 
