@@ -1,3 +1,7 @@
+**Betye Saar, Artist Who Upended Black Stereotypes, Dies at 99**\
+`Working with dolls, family photographs, fabric scraps and other found objects, she became a leading figure in assemblage art.`\
+https://www.nytimes.com/2026/07/27/arts/design/betye-saar-dead.html
+
 **Trump Asks Supreme Court to Allow Order Restricting Mail Voting**\
 `The Trump administration asks justices to intervene after an appeals court blocked key parts of a mail-in voting executive order.`\
 https://www.nytimes.com/2026/07/27/us/politics/supreme-court-trump-mail-ballots.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/business/china-ai-alibaba-bytedance.html
 **Should We Make Daylight Saving Time Permanent?**\
 `More light at the day’s end comes at a price: much later winter sunrises across much of the U.S. Scientists have documented consequences for public health and the economy.`\
 https://www.nytimes.com/2026/07/27/science/daylight-saving-time-health-safety.html
-
-**Why Restarting a Nuclear Power Plant Can Be Much Harder Than Expected**\
-`The first U.S. attempt at reopening a shuttered reactor has been held back by run-down equipment and a lack of planning.`\
-https://www.nytimes.com/2026/07/27/business/energy-environment/nuclear-power-palisades-michigan.html
 
