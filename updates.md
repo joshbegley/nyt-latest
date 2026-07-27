@@ -1,3 +1,7 @@
+**Cinephiles Trek to NYC’s AMC Lincoln Square to See ‘Odyssey’ in IMAX 70-mm. at 2 a.m.**\
+`Demand is high for the blockbuster at the IMAX 70-mm. theater in New York City, the largest in the United States, prompting additional screenings at 2 and 6 a.m. That hasn’t deterred audiences from coming.`\
+https://www.nytimes.com/2026/07/27/style/odyssey-lincoln-square-amc.html
+
 **Guyana Ferry Tragedy Exposes Political Rifts in Oil-Rich Country**\
 `The capsizing of a ferry was Guyana’s deadliest event since Jonestown in 1978. Many are asking how this could happen in one of the world’s fastest-growing economies.`\
 https://www.nytimes.com/2026/07/27/world/americas/guyana-ferry-accident-oil-economy.html

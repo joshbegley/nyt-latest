@@ -90,7 +90,7 @@ https://www.nytimes.com/es/2026/07/27/espanol/america-latina/cuba-bloqueo-petrol
 `Arizona G.O.P. voters nominated Alexander Kolodin for secretary of state, despite, or perhaps because of, election denial efforts that earned him an admonition from the state bar association.`\
 https://www.nytimes.com/2026/07/27/us/alexander-kolodin-election-denial-arizona.html
 
-**An All-Night ‘Odyssey’ in IMAX 70-Millimeter Film at New York’s AMC Lincoln Square**\
+**Cinephiles Trek to NYC’s AMC Lincoln Square to See ‘Odyssey’ in IMAX 70-mm. at 2 a.m.**\
 `Demand is high for the blockbuster at the IMAX 70-mm. theater in New York City, the largest in the United States, prompting additional screenings at 2 and 6 a.m. That hasn’t deterred audiences from coming.`\
 https://www.nytimes.com/2026/07/27/style/odyssey-lincoln-square-amc.html
 
