@@ -1,4 +1,4 @@
-**Nvidia Adds More Support to ‘Open-Source’ A.I. With New Alliance**\
+**Nvidia Forms Alliance to Back Open-Source A.I. Amid Debate Over Safety**\
 `The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
 https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
 

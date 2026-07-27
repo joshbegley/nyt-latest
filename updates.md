@@ -1,3 +1,7 @@
+**Nvidia Adds More Support to ‘Open-Source’ A.I. With New Alliance**\
+`The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
+https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
+
 **Today, In Short**\
 `Documentaries. Fidget toys. And chatbots.`\
 https://www.nytimes.com/2026/07/27/briefing/today-in-short.html
