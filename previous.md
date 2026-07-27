@@ -1,4 +1,16 @@
-**Cracker Barrel Chief Executive Who Oversaw Logo Change Steps Down**\
+**Shots Fired Outside U.S. Consulate in Canada for Second Time This Year**\
+`The police said that it was too early to say if the episode was linked to a shooting that targeted the diplomatic post in March.`\
+https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html
+
+**Lindsay Clancy’s Husband Testifies on Her Mental State Before Children’s Deaths**\
+`The trial of a mother charged with murdering her three young children began on Monday with testimony from her former husband, Patrick Clancy.`\
+https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
+
+**Despite Cancellations, Company Says ‘Game of Thrones’ Play Is On Track**\
+`The Royal Shakespeare Company called off five preview performances of the epic four-hour production last week, including one just hours before its scheduled curtain.`\
+https://www.nytimes.com/2026/07/27/arts/game-of-thrones-mad-king-royal-shakespeare-cancellations.html
+
+**Julie Masino, Cracker Barrel CEO Who Oversaw Logo Change, Steps Down**\
 `Julie Masino faced backlash online when the company tried to shed its old-timey image. David Deno, a former chief of Bloomin’ Brands, will take over.`\
 https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
 **What A.I. Is Actually Doing to the Economy**\
 `Some data suggest that artificial intelligence is causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
 https://www.nytimes.com/2026/07/27/podcasts/the-daily/ai-economy.html
-
-**U.S. Pauses Iran Strikes Amid Growing Risks, and Measles Cases Hit a New Record**\
-`Plus, the soaring costs of President Trump’s new Air Force One.`\
-https://www.nytimes.com/2026/07/27/podcasts/the-headlines/us-iran-strikes-measles.html
-
-**Today’s Wordle Hints for July 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
-https://www.nytimes.com/2026/07/27/crosswords/wordle-review-1865.html
-
-**NYT Strands Hints for July 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
-https://www.nytimes.com/2026/07/27/crosswords/strands-sidekick-877.html
 

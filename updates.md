@@ -1,3 +1,19 @@
+**Shots Fired Outside U.S. Consulate in Canada for Second Time This Year**\
+`The police said that it was too early to say if the episode was linked to a shooting that targeted the diplomatic post in March.`\
+https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html
+
+**Lindsay Clancy’s Husband Testifies on Her Mental State Before Children’s Deaths**\
+`The trial of a mother charged with murdering her three young children began on Monday with testimony from her former husband, Patrick Clancy.`\
+https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
+
+**Despite Cancellations, Company Says ‘Game of Thrones’ Play Is On Track**\
+`The Royal Shakespeare Company called off five preview performances of the epic four-hour production last week, including one just hours before its scheduled curtain.`\
+https://www.nytimes.com/2026/07/27/arts/game-of-thrones-mad-king-royal-shakespeare-cancellations.html
+
+**Julie Masino, Cracker Barrel CEO Who Oversaw Logo Change, Steps Down**\
+`Julie Masino faced backlash online when the company tried to shed its old-timey image. David Deno, a former chief of Bloomin’ Brands, will take over.`\
+https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
+
 **Cracker Barrel Chief Executive Who Oversaw Logo Change Steps Down**\
 `Julie Masino faced backlash online when the company tried to shed its old-timey image. David Deno, a former chief of Bloomin’ Brands, will take over.`\
 https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
