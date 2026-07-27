@@ -190,8 +190,8 @@ https://www.nytimes.com/2026/07/27/opinion/chips-ai-china-trump.html
 `Try these moves to stay agile as you age.`\
 https://www.nytimes.com/2026/07/27/well/move/agility-ladder-workout-balance.html
 
-**Wildfires Live Updates: Spain and France Face Extreme Heat as Flames Rage**\
-`Spain was fighting a worsening blaze in the country’s east on Monday, compounding a crisis that has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
+**Wildfires Live Updates: Spain and France Fight to Contain Blazes as Extreme Heat Threatens New Fires**\
+`Firefighters in eastern Spain were working to hold back a worsening wildfire on Monday. The crisis has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
 https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
 
 **In Washington, Netanyahu Faces a Delicate Balancing Act**\

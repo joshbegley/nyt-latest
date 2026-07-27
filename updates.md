@@ -1,3 +1,7 @@
+**Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
+`The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
+https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
+
 **What A.I. Is Actually Doing to the Economy**\
 `Some data suggest that artificial intelligence is causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
 https://www.nytimes.com/2026/07/27/podcasts/the-daily/ai-economy.html
