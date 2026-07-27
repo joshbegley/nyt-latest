@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.ht
 https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html
 
 **Trial of Lindsay Clancy, Accused of Murdering Her Children, Begins With Ex-Husband’s Testimony**\
-`The trial of a mother charged with murdering her three young children began on Monday with testimony from her former husband, Patrick Clancy.`\
+`Her former husband, Patrick Clancy, described her deteriorating mental health. He had publicly urged empathy for “the real Lindsay.”`\
 https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
 
 **Despite Cancellations, Company Says ‘Game of Thrones’ Play Is On Track**\
