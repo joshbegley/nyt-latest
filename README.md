@@ -1,3 +1,7 @@
+**No Corrections: July 27, 2026**\
+`No corrections appeared in print on Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/27/pageoneplus/no-corrections-july-27-2026.html
+
 **Corrections: July 25, 2026**\
 `Corrections that appeared in print on Saturday, July 25, 2026.`\
 https://www.nytimes.com/2026/07/27/pageoneplus/corrections-july-25-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/business/5-things-to-know-about-metas-giant-d
 **What’s the Worst Thing Trump Can Do in the Midterms?**\
 `President Trump could accomplish on Jan. 3, 2027, what he failed to do on Jan. 6. 2021.`\
 https://www.nytimes.com/2026/07/27/opinion/trump-midterms-worst.html
-
-**‘Why Isn’t Dad at Home?’: The Books Helping Ukrainian Children Process the War**\
-`A surge of books in Ukraine since the war began has aimed to help children and their parents cope with trauma.`\
-https://www.nytimes.com/interactive/2026/07/27/world/europe/ukraine-childrens-books.html
 

@@ -1,3 +1,7 @@
+**Corrections: July 25, 2026**\
+`Corrections that appeared in print on Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/27/pageoneplus/corrections-july-25-2026.html
+
 **The A.I. Debate That’s Driving a Wedge Through Big Tech**\
 `Investors and policymakers must contend with the competing camps that view open and closed artificial intelligence models as key to the sector’s future.`\
 https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
