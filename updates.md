@@ -1,3 +1,7 @@
+**At Least 3 Killed in Shooting at Food Festival in Seattle**\
+`Four others were injured during the shooting near the city’s Space Needle, the authorities said. The police were searching for one suspect and had taken another into custody.`\
+https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
+
 **Three Dead After Shooting at Seattle Food Festival**\
 `At least three people were killed in a shooting at a food festival in Seattle on Sunday.`\
 https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html

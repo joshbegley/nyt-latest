@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
 https://www.nytimes.com/video/embedded/us/100000011054386/26vid-xp-seattle-15414.html
 
 **At Least 3 Killed in Shooting at Food Festival in Seattle**\
-`At least four others were injured during the shooting near the city’s Space Needle, the authorities said. The police were searching for one suspect and had taken another into custody.`\
+`Four others were injured during the shooting near the city’s Space Needle, the authorities said. The police were searching for one suspect and had taken another into custody.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
 
 **‘House of the Dragon’ Season 3, Episode 6 Recap: Mistakes Were Made**\
