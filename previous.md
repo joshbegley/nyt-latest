@@ -1,3 +1,11 @@
+**Seattle Food Festival Shooting: What to Know**\
+`Three people were killed during the incident near the city’s Space Needle on Sunday, the police said. One suspect was in custody and the police were searching for another.`\
+https://www.nytimes.com/2026/07/27/us/seattle-shooting-suspect-victims-what-happened.html
+
+**15 Sailors Still Missing After Vietnamese Cargo Ship Sank in South China Sea**\
+`Fifteen people remain missing after the cargo vessel went down in heavily disputed waters. China said it had rescued 47 people who had been aboard.`\
+https://www.nytimes.com/2026/07/27/world/asia/vietnam-south-china-sea-ship-sink.html
+
 **Protected No More**\
 `We look at the end of Temporary Protected Status.`\
 https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/27/technology/meta-data-center-louisiana.html
 **How To Protect Our Lead in the A.I Race**\
 `America has produced its own kind of Sputnik. We should not squander it.`\
 https://www.nytimes.com/2026/07/27/opinion/chips-ai-china-trump.html
-
-**A 20-Minute Agility Ladder Workout**\
-`Try these moves to stay agile as you age.`\
-https://www.nytimes.com/2026/07/27/well/move/agility-ladder-workout-balance.html
-
-**Wildfires Live Updates: Spain and France Fight to Contain Blazes as Extreme Heat Threatens New Fires**\
-`Firefighters in eastern Spain were working to hold back a worsening wildfire on Monday. The crisis has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
-https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
 

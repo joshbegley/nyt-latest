@@ -1,3 +1,11 @@
+**Seattle Food Festival Shooting: What to Know**\
+`Three people were killed during the incident near the city’s Space Needle on Sunday, the police said. One suspect was in custody and the police were searching for another.`\
+https://www.nytimes.com/2026/07/27/us/seattle-shooting-suspect-victims-what-happened.html
+
+**15 Sailors Still Missing After Vietnamese Cargo Ship Sank in South China Sea**\
+`Fifteen people remain missing after the cargo vessel went down in heavily disputed waters. China said it had rescued 47 people who had been aboard.`\
+https://www.nytimes.com/2026/07/27/world/asia/vietnam-south-china-sea-ship-sink.html
+
 **Protected No More**\
 `We look at the end of Temporary Protected Status.`\
 https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html

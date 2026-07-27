@@ -1,3 +1,7 @@
+**Heat From France’s Wildfires Creates a ‘Fire Cloud,’ or Pyrocumulonimbus**\
+`A pyrocumulonimbus — a thundercloud created by intense heat — is a phenomenon that can spark new blazes and is “unprecedented in France,” officials said.`\
+https://www.nytimes.com/2026/07/27/world/europe/pyrocumulonimbus-fire-cloud-france-wildfires.html
+
 **Seattle Food Festival Shooting: What to Know**\
 `Three people were killed during the incident near the city’s Space Needle on Sunday, the police said. One suspect was in custody and the police were searching for another.`\
 https://www.nytimes.com/2026/07/27/us/seattle-shooting-suspect-victims-what-happened.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/fashion/semiformal-dress-code-definition.html
 **How Meta Got Everything It Wanted in a Secret Louisiana Data Center Deal**\
 `A Times examination details how the Silicon Valley giant used private talks with local officials to start a project big enough to cover nearly six square miles.`\
 https://www.nytimes.com/2026/07/27/technology/meta-data-center-louisiana.html
-
-**How To Protect Our Lead in the A.I Race**\
-`America has produced its own kind of Sputnik. We should not squander it.`\
-https://www.nytimes.com/2026/07/27/opinion/chips-ai-china-trump.html
 
