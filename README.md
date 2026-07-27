@@ -1,3 +1,7 @@
+**Sin petróleo, Cuba se las arregla para sobrevivir**\
+`El presidente Donald Trump ha intentado asfixiar a Cuba bloqueando sus importaciones de petróleo. Pero seis meses después, la isla está encontrando maneras de resistir.`\
+https://www.nytimes.com/es/2026/07/27/espanol/america-latina/cuba-bloqueo-petroleo-eeuu.html
+
 **Election Denier Alexander Kolodin Seeks to Run Arizona’s Elections as Secretary of State**\
 `Arizona G.O.P. voters nominated Alexander Kolodin for secretary of state, despite, or perhaps because of, election denial efforts that earned him an admonition from the state bar association.`\
 https://www.nytimes.com/2026/07/27/us/alexander-kolodin-election-denial-arizona.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
 ****\
 `People appeared to take shelter in the gift shop of the Space Needle at Seattle Center after the incident.`\
 https://www.nytimes.com/video/embedded/us/100000011054386/26vid-xp-seattle-15414.html
-
-**At Least 3 Killed in Shooting at Food Festival in Seattle**\
-`Four others were injured during the shooting near the city’s Space Needle, the authorities said. The police were searching for one suspect and had taken another into custody.`\
-https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
 
