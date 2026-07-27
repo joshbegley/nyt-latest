@@ -1,3 +1,19 @@
+**‘Furious’ and 7 More Shows to Watch on TV This Week**\
+`A psychological thriller premieres, and a livestream from the Lollapalooza music festival begins.`\
+https://www.nytimes.com/2026/07/27/arts/television/furious-and-7-more-shows-to-watch-on-tv-this-week.html
+
+**A New Security Order Is Taking Shape in Asia**\
+`Asian countries are starting to shoulder more of the burden of their own defense, and the region could be stronger and more stable for it.`\
+https://www.nytimes.com/2026/07/27/opinion/asia-military-security-china-allies.html
+
+**At Least 2 Killed in Shooting at Food Festival in Seattle**\
+`At least five others were injured during the shooting near the city’s Space Needle, authorities said. The mayor said a suspect had been taken into custody.`\
+https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
+
+**Christopher Nolan Has Rebuked the Spirit of the Age**\
+`This “Odyssey” takes us somewhere we didn’t know we were going.`\
+https://www.nytimes.com/2026/07/26/opinion/odyssey-christopher-nolan-greek-gods.html
+
 **Iran War Forces Energy Buyers to ‘Unshackle’ From Global Markets**\
 `Developing Asian nations, scarred by Middle East supply shocks, are working to scale back their reliance on imported fuels, including liquefied natural gas.`\
 https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
