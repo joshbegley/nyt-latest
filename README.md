@@ -1,3 +1,7 @@
+**Una rutina de 20 minutos para mejorar el equilibrio y la coordinación**\
+`Prueba estos movimientos para mantenerte ágil a medida que envejeces.`\
+https://www.nytimes.com/es/2026/07/27/espanol/rutina-ejercicios-equilibrio-agilidad-evitar-caidas.html
+
 **Case to Be Dropped Against Labor Leader David Huerta in L.A. Immigration Raid**\
 `The arrest of David Huerta last summer helped spark a wave of protests against the Trump administration’s immigration crackdown.`\
 https://www.nytimes.com/2026/07/27/us/david-huerta-charges-dismiss-la-immigration-raids.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/us/seattle-shooting-suspect-victims-what-happ
 **15 Sailors Still Missing After Vietnamese Cargo Ship Sank in South China Sea**\
 `Fifteen people remain missing after the cargo vessel went down in heavily disputed waters. China said it had rescued 47 people who had been aboard.`\
 https://www.nytimes.com/2026/07/27/world/asia/vietnam-south-china-sea-ship-sink.html
-
-**Protected No More**\
-`We look at the end of Temporary Protected Status.`\
-https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
 
