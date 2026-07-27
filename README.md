@@ -1,3 +1,7 @@
+**Apple Regains Spot Over Nvidia as Most Valuable Public Company**\
+`The company slipped by the chip maker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
+https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
+
 **Iran War Enters 6th Month and a Period of Greater Uncertainty**\
 `Here is a rundown of the major events of the war, as both sides consider their next moves.`\
 https://www.nytimes.com/2026/07/27/us/politics/iran-war-timeline.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/world/europe/heat-wave-forecast-france-spain-
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanchez-clip-75630.html
-
-**Carly Simon Reveals She Has Parkinson’s Disease**\
-`The singer-songwriter, 83, has also had surgery to treat basal cell carcinoma on her face, making her “self-conscious about being seen in public,” she said.`\
-https://www.nytimes.com/2026/07/27/arts/music/carly-simon-parkinsons.html
 
