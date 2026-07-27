@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/07/27/world/india-cockroach-protests-spain-france-f
 `The decision capped a five-day preliminary hearing in which prosecutors detailed how and why they say the musician killed the 14-year-old Celeste Rivas Hernandez.`\
 https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
 
-**Seattle Police Search for 2nd Shooter in Sunday’s Deadly Attack**\
+**Seattle Police Search for 2nd Suspect in Deadly Food Festival Shooting**\
 `One 15-year-old suspect is in custody, but authorities said they were looking for a second shooter in the attack at a food festival that left three dead.`\
 https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
 

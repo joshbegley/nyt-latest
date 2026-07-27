@@ -1,3 +1,7 @@
+**Seattle Police Search for 2nd Suspect in Deadly Food Festival Shooting**\
+`One 15-year-old suspect is in custody, but authorities said they were looking for a second shooter in the attack at a food festival that left three dead.`\
+https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
+
 **Despite Cancellations, Company Says ‘Game of Thrones’ Play Is On Track**\
 `The Royal Shakespeare Company called off five preview performances of the epic four-hour production last week, including one just hours before its scheduled curtain.`\
 https://www.nytimes.com/2026/07/27/theater/game-of-thrones-mad-king-royal-shakespeare-cancellations.html
