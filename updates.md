@@ -1,3 +1,7 @@
+**In France, Some of Europe’s Aerospace Leaders Are in the Path of the Fire**\
+`The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
+https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html
+
 **Shots Fired Outside U.S. Consulate in Canada for Second Time This Year**\
 `The police said that it was too early to say if the episode was linked to a shooting that targeted the diplomatic post in March.`\
 https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html

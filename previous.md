@@ -1,3 +1,7 @@
+**In France, Some of Europe’s Aerospace Leaders Are in the Path of the Fire**\
+`The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
+https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html
+
 **Shots Fired Outside U.S. Consulate in Canada for Second Time This Year**\
 `The police said that it was too early to say if the episode was linked to a shooting that targeted the diplomatic post in March.`\
 https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/embedded/admin/100000011054603/00vid-visualstack-w
 **Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
 `The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
 https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
-
-**What A.I. Is Actually Doing to the Economy**\
-`Some data suggest that artificial intelligence is causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
-https://www.nytimes.com/2026/07/27/podcasts/the-daily/ai-economy.html
 
