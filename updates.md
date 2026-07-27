@@ -1,3 +1,7 @@
+**Wildfires Live Updates: Spain and France Fight to Contain Blazes as Extreme Heat Threatens New Fires**\
+`Firefighters in eastern Spain were working to hold back a worsening wildfire on Monday. The crisis has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
+https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
+
 **Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
 `The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
 https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
