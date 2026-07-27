@@ -1,4 +1,4 @@
-**After Watching Luxury Cars Drag Race, Trump Blames High Costs on Biden**\
+**Trump Blames Affordability Problems on Biden in Michigan Speech**\
 `The president also assured supporters that negotiations over ending the war in Iran, a conflict that has sent fuel and energy prices soaring, are continuing in a “friendly” fashion.`\
 https://www.nytimes.com/2026/07/27/us/politics/trump-michigan-speech-tariffs.html
 
