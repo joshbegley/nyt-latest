@@ -1,3 +1,11 @@
+**Una rutina de 20 minutos para mejorar el equilibrio y la coordinación**\
+`Prueba estos movimientos para mantenerte ágil a medida que envejeces.`\
+https://www.nytimes.com/es/2026/07/27/espanol/rutina-ejercicios-equilibrio-agilidad-evitar-caidas.html
+
+**Case to Be Dropped Against Labor Leader David Huerta in L.A. Immigration Raid**\
+`The arrest of David Huerta last summer helped spark a wave of protests against the Trump administration’s immigration crackdown.`\
+https://www.nytimes.com/2026/07/27/us/david-huerta-charges-dismiss-la-immigration-raids.html
+
 **Comey Seeks Dismissal of Charges Accusing Him of Threatening Trump**\
 `The filing focused on the question of whether a photograph of seashells arranged to read “86 47” constituted a true threat under federal law.`\
 https://www.nytimes.com/2026/07/27/us/politics/comey-seeks-dismissal-of-charges.html
