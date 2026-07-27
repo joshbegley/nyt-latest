@@ -1,3 +1,11 @@
+**Locals Fight Wildfires in France as They Rage On**\
+`As the wildfires in France force hundreds of thousands of people to evacuate, some locals have taken the risk to fight the wildfires instead of evacuating.`\
+https://www.nytimes.com/video/world/europe/100000011054901/france-wildfires-locals-firefighting-evacuations.html
+
+**Trial of Lindsay Clancy, Accused of Murdering Her Children, Begins With Ex-Husband’s Testimony**\
+`The trial of a mother charged with murdering her three young children began on Monday with testimony from her former husband, Patrick Clancy.`\
+https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
+
 **Hundreds of Thousands Evacuate as Fires Tear Through Europe**\
 `Also, Congress debates daylight saving time. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/07/27/briefing/france-spain-fires-daylight-saving-time.html
