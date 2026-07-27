@@ -1,3 +1,7 @@
+**At Least 2 Killed in Shooting at Food Festival in Seattle**\
+`At least five others were injured, the authorities said. Thousands were attending a festival at the Seattle Center, according to local media.`\
+https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
+
 **‘House of the Dragon’ Season 3, Episode 6 Recap: Mistakes Were Made**\
 `It’s one thing to inherit a throne. It’s quite another to rule from it.`\
 https://www.nytimes.com/2026/07/26/arts/television/house-of-the-dragon-recap-season-3-episode-6.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/realestate/a-captain-calls-this-yacht-his-hom
 **Kids (and Adults) Are Obsessed With Squishy Toys and Fidget Trading**\
 `Kids are making, trading and hunting for squishies, or squeezable, malleable blob toys that come in a variety of forms.`\
 https://www.nytimes.com/2026/07/26/style/squishy-fidget-toys-trading.html
-
-**Ready for Your Netflix Documentary? This TikTok Trend Prepares Users to Tell All.**\
-`That toxic former workplace, that unsavory group chat: TikTok and Instagram users are imagining moments in their life that might lead to sit-down dramatic interviews.`\
-https://www.nytimes.com/2026/07/26/style/netflix-documentary-tiktok-trend.html
 
