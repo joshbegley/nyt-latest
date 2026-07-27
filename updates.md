@@ -1,3 +1,11 @@
+**Tiroteo en Seattle: 3 personas mueren en un festival gastronómico**\
+`Tres personas fallecieron durante un tiroteo cerca del Space Needle de la ciudad el domingo, dijo la policía. Un sospechoso estaba bajo custodia y la policía buscaba a otro.`\
+https://www.nytimes.com/es/2026/07/27/espanol/estados-unidos/tiroteo-seattle-festival-muertos.html
+
+**Race to Contain Wildfires in Europe Before Next Heatwave**\
+`Firefighters in Spain and France scrambled to contain raging blazes on Monday, racing against a fresh heatwave set to push Western European temperatures past 104 degrees Fahrenheit this week.`\
+https://www.nytimes.com/video/world/europe/100000011054630/europe-wildfires-extreme-heat.html
+
 **Halloumi, Peach and Cucumber Spoon Salad**\
 `As in, you’ll want to spoon this five-star Ali Slagle salad straight into your mouth from the mixing bowl.`\
 https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-salad.html
