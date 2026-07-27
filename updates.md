@@ -1,3 +1,7 @@
+**Pentagon Changes How It Reports Casualties in Iran War**\
+`The changes separated the casualty numbers into two separate web pages, potentially making it more difficult to tally the war’s full toll.`\
+https://www.nytimes.com/2026/07/26/us/politics/pentagon-casualties-iran-war.html
+
 **Secret Service Agent and 2 Others Charged in Near-Fatal Fraternity Hazing**\
 `A college fraternity member was paddled so severely during hazing rituals that he suffered kidney damage and nearly died.`\
 https://www.nytimes.com/2026/07/26/us/florida-secret-service-agent-fraternity-hazing.html
