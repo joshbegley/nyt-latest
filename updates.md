@@ -1,3 +1,11 @@
+**Seattle Police Search for 2nd Suspect in Deadly Food Festival Shooting**\
+`A 15-year-old suspect was in custody, and documents said a second shooter was killed on the scene. Police were looking for at least one more suspect in the attack that left three dead.`\
+https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
+
+**Trial of Lindsay Clancy, Accused of Murdering Her Children, Begins With Ex-Husband’s Testimony**\
+`Her former husband, Patrick Clancy, described her deteriorating mental health. He had publicly urged empathy for “the real Lindsay.”`\
+https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
+
 **Trump Blames Affordability Problems on Biden in Michigan Speech**\
 `The president also assured supporters that negotiations over ending the war in Iran, a conflict that has sent fuel and energy prices soaring, are continuing in a “friendly” fashion.`\
 https://www.nytimes.com/2026/07/27/us/politics/trump-michigan-speech-tariffs.html

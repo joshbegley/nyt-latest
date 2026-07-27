@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/07/27/world/india-cockroach-protests-spain-france-f
 https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
 
 **Seattle Police Search for 2nd Suspect in Deadly Food Festival Shooting**\
-`One 15-year-old suspect is in custody, but authorities said they were looking for a second shooter in the attack at a food festival that left three dead.`\
+`A 15-year-old suspect was in custody, and documents said a second shooter was killed on the scene. Police were looking for at least one more suspect in the attack that left three dead.`\
 https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
 
 **Heat Wave Threatens Further Wildfire Spread in France and Spain**\
@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.ht
 https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html
 
 **Trial of Lindsay Clancy, Accused of Murdering Her Children, Begins With Ex-Husband’s Testimony**\
-`The trial of a mother charged with murdering her three young children began on Monday with testimony from her former husband, Patrick Clancy.`\
+`Her former husband, Patrick Clancy, described her deteriorating mental health. He had publicly urged empathy for “the real Lindsay.”`\
 https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
 
 **Despite Cancellations, Company Says ‘Game of Thrones’ Play Is On Track**\
