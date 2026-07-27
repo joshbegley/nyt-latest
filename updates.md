@@ -1,3 +1,7 @@
+**Heat From France’s Wildfires Creates a ‘Fire Cloud,’ or Pyrocumulonimbus**\
+`A pyrocumulonimbus — a thundercloud created by intense heat — is a phenomenon that can spark new blazes and is “unprecedented in France,” officials said.`\
+https://www.nytimes.com/2026/07/27/world/europe/pyrocumulonimbus-fire-cloud-france-wildfires.html
+
 **Seattle Food Festival Shooting: What to Know**\
 `Three people were killed during the incident near the city’s Space Needle on Sunday, the police said. One suspect was in custody and the police were searching for another.`\
 https://www.nytimes.com/2026/07/27/us/seattle-shooting-suspect-victims-what-happened.html
