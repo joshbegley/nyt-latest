@@ -1,3 +1,7 @@
+**McConnell Extends Senate Leave, Will Miss State Picnic**\
+`A new statement said the senator was not “medically cleared” to leave a rehabilitation facility and would miss a Kentucky political event.`\
+https://www.nytimes.com/2026/07/27/us/politics/mcconnell-extends-senate-leave-update.html
+
 **Israel and the Genocide Accusation**\
 `Readers take issue with a Holocaust scholar’s contention that Israel is guilty of genocide.`\
 https://www.nytimes.com/2026/07/27/opinion/letters/israel-genocide-accusation.html
