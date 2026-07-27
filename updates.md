@@ -1,3 +1,7 @@
+**Two Dead After Shooting at Seattle Food Festival**\
+`At least two people were killed in a shooting at a food festival in Seattle on Sunday.`\
+https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html
+
 **‘Furious’ and 7 More Shows to Watch on TV This Week**\
 `A psychological thriller premieres, and a livestream from the Lollapalooza music festival begins.`\
 https://www.nytimes.com/2026/07/27/arts/television/furious-and-7-more-shows-to-watch-on-tv-this-week.html

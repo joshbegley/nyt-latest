@@ -1,3 +1,7 @@
+**Two Dead After Shooting at Seattle Food Festival**\
+`At least two people were killed in a shooting at a food festival in Seattle on Sunday.`\
+https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html
+
 **‘Furious’ and 7 More Shows to Watch on TV This Week**\
 `A psychological thriller premieres, and a livestream from the Lollapalooza music festival begins.`\
 https://www.nytimes.com/2026/07/27/arts/television/furious-and-7-more-shows-to-watch-on-tv-this-week.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/us/politics/trump-trapped-in-iran-war.html
 **Senate Candidate Josh Turek Handcycles the Iowa Campaign Trail**\
 `State Representative Josh Turek, the Democrat running to flip Iowa’s open Senate seat, cycled with his hands at an Iowa biking event that took place between two cities nearly 60 miles apart.`\
 https://www.nytimes.com/2026/07/26/us/politics/turek-iowa-senate-democrat.html
-
-**Democrats Reset the Maine Senate Race. Now Comes the Tricky Part.**\
-`Troy Jackson is replacing Graham Platner, but Republicans are seeking to tie them together as a remade race kicks off with high stakes.`\
-https://www.nytimes.com/2026/07/26/us/politics/jackson-collins-platner-senate-maine.html
 
