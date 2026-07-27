@@ -1,3 +1,7 @@
+**Pentagon Changes How It Reports Casualties in Iran War**\
+`The changes separated the casualty numbers into two separate web pages, potentially making it more difficult to tally the war’s full toll.`\
+https://www.nytimes.com/2026/07/26/us/politics/pentagon-casualties-iran-war.html
+
 **Secret Service Agent and 2 Others Charged in Near-Fatal Fraternity Hazing**\
 `A college fraternity member was paddled so severely during hazing rituals that he suffered kidney damage and nearly died.`\
 https://www.nytimes.com/2026/07/26/us/florida-secret-service-agent-fraternity-hazing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/books/review/the-wedding-people-alison-espach
 **An Admiral’s Rise Reveals the Politics Driving Hegseth’s Pentagon**\
 `Before he was picked to lead the Navy, Adm. Daryl Caudle found ways to signal his support for Defense Secretary Pete Hegseth’s anti-diversity goals.`\
 https://www.nytimes.com/2026/07/26/us/politics/caudle-navy-hegseth-parlatore-promotion.html
-
-**Book Review: ‘Albert Sabin,’ by Karen Torghele**\
-`The first serious biography of Albert Sabin recounts the pivotal role he played in the development of a polio vaccine.`\
-https://www.nytimes.com/2026/07/26/books/review/albert-sabin-biography-karen-torghele.html
 
