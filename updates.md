@@ -1,3 +1,11 @@
+**Comey Seeks Dismissal of Charges Accusing Him of Threatening Trump**\
+`The filing focused on the question of whether a photograph of seashells arranged to read “86 47” constituted a true threat under federal law.`\
+https://www.nytimes.com/2026/07/27/us/politics/comey-seeks-dismissal-of-charges.html
+
+**Bryan Kohberger, Convicted in Idaho College Killings, Seeks to Take Back Guilty Plea**\
+`In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on “false promises” and wrong information.`\
+https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
+
 **In France, Some of Europe’s Aerospace Leaders Are in the Path of the Fire**\
 `The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html

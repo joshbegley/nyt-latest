@@ -1,3 +1,7 @@
+**Case to Be Dropped Against Labor Leader David Huerta in L.A. Immigration Raid**\
+`The arrest of David Huerta last summer helped spark a wave of protests against the Trump administration’s immigration crackdown.`\
+https://www.nytimes.com/2026/07/27/us/david-huerta-charges-dismiss-la-immigration-raids.html
+
 **Comey Seeks Dismissal of Charges Accusing Him of Threatening Trump**\
 `The filing focused on the question of whether a photograph of seashells arranged to read “86 47” constituted a true threat under federal law.`\
 https://www.nytimes.com/2026/07/27/us/politics/comey-seeks-dismissal-of-charges.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/world/asia/vietnam-south-china-sea-ship-sink.
 **Protected No More**\
 `We look at the end of Temporary Protected Status.`\
 https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
-
-****\
-`Footage released on Monday by the Spanish Military Emergencies Unit showed firefighters battling intense flames overnight in Sotillo de la Adrada, west of Madrid.`\
-https://www.nytimes.com/video/embedded/admin/100000011054603/00vid-visualstack-wildfires-5-31458.html
 
