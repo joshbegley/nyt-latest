@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court to Allow Order Restricting Mail Voting**\
+`The Trump administration asks justices to intervene after an appeals court blocked key parts of a mail-in voting executive order.`\
+https://www.nytimes.com/2026/07/27/us/politics/supreme-court-trump-mail-ballots.html
+
+**Tornado Damage Reported in Wisconsin as Storms Unleash Heavy Rain and Winds**\
+`Forecasters warned that more storms were expected through the day.`\
+https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
+
 **Seattle Police Search for 2nd Suspect in Deadly Food Festival Shooting**\
 `One 15-year-old suspect is in custody, but authorities said they were looking for a second shooter in the attack at a food festival that left three dead.`\
 https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html

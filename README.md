@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/07/27/business/moonshot-kimi-k3-china-ai.html
 `Narendra Modi caved to the demands of India’s young people — a nod to their real power.`\
 https://www.nytimes.com/2026/07/27/world/india-cockroach-protests-spain-france-fires.html
 
-**D4vd Murder Case May Go to Trial, Judge Rules**\
+**D4vd Murder Case Can Go to Trial, Judge Rules**\
 `The decision capped a five-day preliminary hearing in which prosecutors detailed how and why they say the musician killed the 14-year-old Celeste Rivas Hernandez.`\
 https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
 
