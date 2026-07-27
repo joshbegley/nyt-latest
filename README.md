@@ -1,4 +1,4 @@
-**Broiling Weather Threatens Further Spread of Fires in France and Spain**\
+**Heat Wave Threatens Further Wildfire Spread in France and Spain**\
 `The record wildfires, which have destroyed more than 200 homes and prompted large evacuations, could intensify with the arrival of a new heat wave.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
 
