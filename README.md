@@ -1,3 +1,7 @@
+**Una nueva ola de calor podría intensificar los incendios en España y Francia**\
+`Las altas temperaturas en partes de Francia, España y Portugal podrían combinarse con condiciones secas y fuertes vientos que empeorarían la amenaza de incendios forestales. Es la cuarta ola de calor que afecta a Europa desde mayo.`\
+https://www.nytimes.com/es/2026/07/27/espanol/mundo/cupula-calor-incendios-espana-europa.html
+
 **Review: Handel’s ‘Tolomeo’ Comes to Caramoor**\
 `Philharmonia Baroque Orchestra came to Caramoor with Handel’s “Tolomeo,” a far-fetched opera seria with a lively score.`\
 https://www.nytimes.com/2026/07/27/arts/music/handel-tolomeo-caramoor.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/interactive/2026/07/27/us/bryan-kohberger-statement.html
 `In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on ‘false promises’ and wrong information.`\
 https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
 
-**In France’s Evacuation Zones, Some Residents Stay to Help Save Homes**\
+**Amid France Wildfires, Some Residents Help Firefighters Contain Blazes**\
 `With firefighters stretched thin, volunteers put themselves at risk, using water tanks, hoses and tractors to hold back flames from villages and farms in southwestern France.`\
 https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/27/espanol/america-latina/cuba-bloqueo-petrol
 **Election Denier Alexander Kolodin Seeks to Run Arizona’s Elections as Secretary of State**\
 `Arizona G.O.P. voters nominated Alexander Kolodin for secretary of state, despite, or perhaps because of, election denial efforts that earned him an admonition from the state bar association.`\
 https://www.nytimes.com/2026/07/27/us/alexander-kolodin-election-denial-arizona.html
-
-**Cinephiles Trek to NYC’s AMC Lincoln Square to See ‘Odyssey’ in IMAX 70-mm. at 2 a.m.**\
-`Demand is high for the blockbuster at the IMAX 70-mm. theater in New York City, the largest in the United States, prompting additional screenings at 2 and 6 a.m. That hasn’t deterred audiences from coming.`\
-https://www.nytimes.com/2026/07/27/style/odyssey-lincoln-square-amc.html
 
