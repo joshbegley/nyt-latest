@@ -1,3 +1,11 @@
+**Cómo los hutíes arrinconaron a Arabia Saudita en una nueva batalla**\
+`Los hutíes, respaldados por Irán, han aprovechado un momento vulnerable para Arabia Saudita, que se muestra reacia a entrar en otra guerra, para intentar forzar concesiones políticas en Yemen.`\
+https://www.nytimes.com/es/2026/07/27/espanol/mundo/guerra-iran-huties-arabia-saudita-trump.html
+
+**As Communities Unite Against Europe’s Wildfires, Politicians Trade Blows**\
+`Spain’s center-left accused conservatives of underfunding the disaster response, while critics of France’s government decried delays.`\
+https://www.nytimes.com/2026/07/27/world/europe/europe-wildfires-politician-response.html
+
 **Una rutina de 20 minutos para mejorar el equilibrio y la coordinación**\
 `Prueba estos movimientos para mantenerte ágil a medida que envejeces.`\
 https://www.nytimes.com/es/2026/07/27/espanol/rutina-ejercicios-equilibrio-agilidad-evitar-caidas.html

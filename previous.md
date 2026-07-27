@@ -1,3 +1,11 @@
+**Cómo los hutíes arrinconaron a Arabia Saudita en una nueva batalla**\
+`Los hutíes, respaldados por Irán, han aprovechado un momento vulnerable para Arabia Saudita, que se muestra reacia a entrar en otra guerra, para intentar forzar concesiones políticas en Yemen.`\
+https://www.nytimes.com/es/2026/07/27/espanol/mundo/guerra-iran-huties-arabia-saudita-trump.html
+
+**As Communities Unite Against Europe’s Wildfires, Politicians Trade Blows**\
+`Spain’s center-left accused conservatives of underfunding the disaster response, while critics of France’s government decried delays.`\
+https://www.nytimes.com/2026/07/27/world/europe/europe-wildfires-politician-response.html
+
 **Una rutina de 20 minutos para mejorar el equilibrio y la coordinación**\
 `Prueba estos movimientos para mantenerte ágil a medida que envejeces.`\
 https://www.nytimes.com/es/2026/07/27/espanol/rutina-ejercicios-equilibrio-agilidad-evitar-caidas.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/27/arts/music/carly-simon-parkinsons.html
 **Heat From France’s Wildfires Creates a ‘Fire Cloud,’ or Pyrocumulonimbus**\
 `A pyrocumulonimbus — a thundercloud created by intense heat — is a phenomenon that can spark new blazes and is “unprecedented in France,” officials said.`\
 https://www.nytimes.com/2026/07/27/world/europe/pyrocumulonimbus-fire-cloud-france-wildfires.html
-
-**Seattle Food Festival Shooting: What to Know**\
-`Three people were killed during the incident near the Space Needle on Sunday, the police said. One suspect was in custody and the police were searching for another.`\
-https://www.nytimes.com/2026/07/27/us/seattle-shooting-suspect-victims-what-happened.html
-
-**15 Sailors Still Missing After Vietnamese Cargo Ship Sank in South China Sea**\
-`Fifteen people remain missing after the cargo vessel went down in heavily disputed waters. China said it had rescued 47 people who had been aboard.`\
-https://www.nytimes.com/2026/07/27/world/asia/vietnam-south-china-sea-ship-sink.html
 
