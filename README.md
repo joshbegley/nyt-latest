@@ -1,3 +1,11 @@
+**Tiroteo en Seattle: 3 personas mueren en un festival gastronómico**\
+`Tres personas fallecieron durante un tiroteo cerca del Space Needle de la ciudad el domingo, dijo la policía. Un sospechoso estaba bajo custodia y la policía buscaba a otro.`\
+https://www.nytimes.com/es/2026/07/27/espanol/estados-unidos/tiroteo-seattle-festival-muertos.html
+
+**Race to Contain Wildfires in Europe Before Next Heatwave**\
+`Firefighters in Spain and France scrambled to contain raging blazes on Monday, racing against a fresh heatwave set to push Western European temperatures past 104 degrees Fahrenheit this week.`\
+https://www.nytimes.com/video/world/europe/100000011054630/europe-wildfires-extreme-heat.html
+
 **Halloumi, Peach and Cucumber Spoon Salad**\
 `As in, you’ll want to spoon this five-star Ali Slagle salad straight into your mouth from the mixing bowl.`\
 https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-salad.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/27/arts/mina-hollower-review.html
 **Cuba, Lacking Fuel, Relies on Ingenuity to Defy Trump’s Blockade**\
 `President Trump has tried to strangle Cuba by blocking its oil imports. But six months later, the island is finding ways to endure.`\
 https://www.nytimes.com/2026/07/27/world/americas/trump-oil-gas-cuba-havana.html
-
-**The Real Reason I Was Looksmaxxing in Midlife: Grief**\
-`When you’re older than your mother was when she died, every gray hair and line cuts deep.`\
-https://www.nytimes.com/2026/07/27/well/looksmaxxing-grief-self-care.html
-
-**As New York City Ballet’s Shoe Colorist, Tim Foster Brings a Niche and Needed Craft**\
-`Tim Foster is a shoe colorist for New York City Ballet, an unexpected but, thanks to a new documentary, no longer unsung hero who practices a delicate, painstaking art.`\
-https://www.nytimes.com/2026/07/27/arts/dance/nyc-ballet-tim-foster-pointe-shoes.html
 

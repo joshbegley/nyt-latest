@@ -1,3 +1,11 @@
+**Halloumi, Peach and Cucumber Spoon Salad**\
+`As in, you’ll want to spoon this five-star Ali Slagle salad straight into your mouth from the mixing bowl.`\
+https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-salad.html
+
+**The Kabbalah Teaching That Changed How I See A.I.**\
+`Prospective students of the Jewish mystical practice are urged to delay their studies until they reach the age of 40.`\
+https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
+
 **What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\
 `The case in Massachusetts has revived a debate about postpartum psychosis. The trial starts Monday.`\
 https://www.nytimes.com/2026/07/27/us/lindsay-clancy-trial-murder-children.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/27/well/looksmaxxing-grief-self-care.html
 **As New York City Ballet’s Shoe Colorist, Tim Foster Brings a Niche and Needed Craft**\
 `Tim Foster is a shoe colorist for New York City Ballet, an unexpected but, thanks to a new documentary, no longer unsung hero who practices a delicate, painstaking art.`\
 https://www.nytimes.com/2026/07/27/arts/dance/nyc-ballet-tim-foster-pointe-shoes.html
-
-**Ukrainian Attacks in Crimea Deprive Towns of Power and Water**\
-`Ukraine’s campaign to bring the war home to ordinary Russians is meant to pressure the Kremlin to negotiate. Moscow has acted as if there were no crisis.`\
-https://www.nytimes.com/2026/07/27/world/europe/ukraine-drones-crimea-blackouts.html
-
-**Word of the Day: winsome**\
-`This word has appeared in 79 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/27/learning/word-of-the-day-winsome.html
 

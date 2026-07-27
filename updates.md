@@ -1,3 +1,11 @@
+**Halloumi, Peach and Cucumber Spoon Salad**\
+`As in, you’ll want to spoon this five-star Ali Slagle salad straight into your mouth from the mixing bowl.`\
+https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-salad.html
+
+**The Kabbalah Teaching That Changed How I See A.I.**\
+`Prospective students of the Jewish mystical practice are urged to delay their studies until they reach the age of 40.`\
+https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
+
 **What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\
 `The case in Massachusetts has revived a debate about postpartum psychosis. The trial starts Monday.`\
 https://www.nytimes.com/2026/07/27/us/lindsay-clancy-trial-murder-children.html
