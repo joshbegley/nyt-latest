@@ -1,3 +1,7 @@
+**McConnell Extends Senate Leave, Will Miss State Picnic**\
+`A new statement said the senator was not “medically cleared” to leave a rehabilitation facility and would miss a Kentucky political event.`\
+https://www.nytimes.com/2026/07/27/us/politics/mcconnell-extends-senate-leave-update.html
+
 **Israel and the Genocide Accusation**\
 `Readers take issue with a Holocaust scholar’s contention that Israel is guilty of genocide.`\
 https://www.nytimes.com/2026/07/27/opinion/letters/israel-genocide-accusation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/books/review/biological-war-annie-jacobsen.ht
 **Merz Criticizes Terrorism Laws After Deadly Berlin Pride Attack**\
 `Chancellor Friedrich Merz of Germany called for tighter monitoring after the authorities said the suspect in the assault had tried to join ISIS and was released from detention in May.`\
 https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
-
-**Sin petróleo, Cuba se las arregla para sobrevivir**\
-`El presidente Donald Trump ha intentado asfixiar a Cuba bloqueando sus importaciones de petróleo. Pero seis meses después, la isla está encontrando maneras de resistir.`\
-https://www.nytimes.com/es/2026/07/27/espanol/america-latina/cuba-bloqueo-petroleo-eeuu.html
 
