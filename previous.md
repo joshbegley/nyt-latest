@@ -1,3 +1,11 @@
+**The A.I. Debate That’s Driving a Wedge Through Big Tech**\
+`Investors and policymakers must contend with the competing camps that view open and closed artificial intelligence models as key to the sector’s future.`\
+https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
+
+**New Heat Wave Could Intensify Wildfires in France and Spain**\
+`Soaring temperatures in parts of France, Spain and Portugal could combine with dry conditions and strong winds to worsen the wildfire threat. It is the fourth heat wave to affect Europe since May.`\
+https://www.nytimes.com/2026/07/27/world/europe/heat-wave-forecast-france-spain-wildfires.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanchez-clip-75630.html
@@ -21,6 +29,10 @@ https://www.nytimes.com/2026/07/27/world/asia/vietnam-south-china-sea-ship-sink.
 **Protected No More**\
 `We look at the end of Temporary Protected Status.`\
 https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
+
+****\
+`Footage released on Monday by the Spanish Military Emergencies Unit showed firefighters battling intense flames overnight in Sotillo de la Adrada, west of Madrid.`\
+https://www.nytimes.com/video/embedded/admin/100000011054603/00vid-visualstack-wildfires-5-31458.html
 
 **Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
 `The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/07/27/world/europe/ukraine-childrens-bo
 **How Cubans Are Surviving a Fuel Crisis**\
 `Cubans are inventing ways to survive without fuel or electricity, using solar panels, makeshift generators and batteries to endure a devastating oil blockade imposed by the Trump administration.`\
 https://www.nytimes.com/video/world/americas/100000011024495/cuba-power-crisis-oil-solutions.html
-
-**Paramount is Betting Johnny Depp Can Make a Comeback With ‘Ebenezer: A Christmas Carol’**\
-`Paramount is betting that audiences will re-embrace the star a decade after allegations of domestic abuse and a defamation trial.`\
-https://www.nytimes.com/2026/07/27/movies/johnny-depp-ebenezer-a-christmas-carol-paramount.html
-
-**Want a Better Food System? Use the Anti-Tobacco Playbook.**\
-`A teenager’s lawsuit against the food industry shows us the path to a better food system.`\
-https://www.nytimes.com/2026/07/27/opinion/ultraprocessed-food-lawsuit.html
-
-**How to Keep a Travel Journal**\
-`A travel journal can be a great way to evoke specific details and memories from a trip. Here are some tips on how to lower the barrier to entry and to stay organized.`\
-https://www.nytimes.com/2026/07/27/travel/travel-journal-tips-recommendations.html
 

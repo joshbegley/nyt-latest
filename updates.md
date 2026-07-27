@@ -1,3 +1,15 @@
+**The A.I. Debate That’s Driving a Wedge Through Big Tech**\
+`Investors and policymakers must contend with the competing camps that view open and closed artificial intelligence models as key to the sector’s future.`\
+https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
+
+**New Heat Wave Could Intensify Wildfires in France and Spain**\
+`Soaring temperatures in parts of France, Spain and Portugal could combine with dry conditions and strong winds to worsen the wildfire threat. It is the fourth heat wave to affect Europe since May.`\
+https://www.nytimes.com/2026/07/27/world/europe/heat-wave-forecast-france-spain-wildfires.html
+
+****\
+`Footage released on Monday by the Spanish Military Emergencies Unit showed firefighters battling intense flames overnight in Sotillo de la Adrada, west of Madrid.`\
+https://www.nytimes.com/video/embedded/admin/100000011054603/00vid-visualstack-wildfires-5-31458.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanchez-clip-75630.html
