@@ -1,3 +1,11 @@
+**‘Tell Us Where to Look,’ Savannah Guthrie Pleads 6 Months Into Search**\
+`The “Today” show host spoke directly to her mother’s apparent abductor in a new video.`\
+https://www.nytimes.com/2026/07/27/us/savannah-guthrie-nancy-video.html
+
+**Savannah Guthrie Asks Kidnappers to ‘Do the Right Thing’**\
+`A few days shy of the sixth-month anniversary of her mother’s disappearance, Savannah Guthrie, the NBC “Today” show anchor, posted a new message to Instagram, urging whoever is responsible for the kidnapping to provide information on where she is.`\
+https://www.nytimes.com/video/us/100000011055628/savannah-guthrie-kidnappers-video.html
+
 **Betye Saar, Artist Who Upended Black Stereotypes, Dies at 99**\
 `Working with dolls, family photographs, fabric scraps and other found objects, she became a leading figure in assemblage art.`\
 https://www.nytimes.com/2026/07/27/arts/design/betye-saar-dead.html
