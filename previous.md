@@ -1,3 +1,15 @@
+**Even China’s A.I. Powerhouses Can’t Figure Out How to Profit Off A.I.**\
+`Chinese A.I. models are gaining ground. But the companies behind them do not have a clear strategy to make money from that success.`\
+https://www.nytimes.com/2026/07/27/business/china-ai-alibaba-bytedance.html
+
+**Should We Make Daylight Saving Time Permanent?**\
+`More light at the day’s end comes at a price: much later winter sunrises across much of the U.S. Scientists have documented consequences for public health and the economy.`\
+https://www.nytimes.com/2026/07/27/science/daylight-saving-time-health-safety.html
+
+**Why Restarting a Nuclear Power Plant Can Be Much Harder Than Expected**\
+`The first U.S. attempt at reopening a shuttered reactor has been held back by run-down equipment and a lack of planning.`\
+https://www.nytimes.com/2026/07/27/business/energy-environment/nuclear-power-palisades-michigan.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054825/27vid-bos-50014.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/es/2026/07/27/espanol/estilos-de-vida/adiccion-sobriedad
 **Costco or Whole Foods? Grocery Stores are Symbols of Identity**\
 `Our grocery stores mirror the mess of America.`\
 https://www.nytimes.com/2026/07/27/opinion/grocery-stores-politics.html
-
-**The Fed’s New Chairman Faces His Biggest Test Yet**\
-`Kevin M. Warsh, who has said the Federal Reserve has “no tolerance” for elevated inflation, must decide whether he wants to push for an interest-rate increase at this week’s policy meeting.`\
-https://www.nytimes.com/2026/07/27/business/the-feds-new-chairman-faces-his-biggest-test-yet.html
-
-**Trump Gutted the Kennedy Center. A Tour Guide Wants You to See It Anyway.**\
-`In a dogged demonstration of love for a Washington institution, Sandy Weiswasser is among a few dozen volunteers still showing dwindling visitors a hollowed-out building.`\
-https://www.nytimes.com/2026/07/27/us/politics/kennedy-center-trump.html
-
-**Christopher Nolan’s ‘Odyssey’ Has a Circe Problem**\
-`One of the fascinating women of early literature, Circe becomes a simple witch in Christopher Nolan’s blockbuster.`\
-https://www.nytimes.com/2026/07/27/movies/the-odyssey-circe.html
 

@@ -1,3 +1,15 @@
+**Even China’s A.I. Powerhouses Can’t Figure Out How to Profit Off A.I.**\
+`Chinese A.I. models are gaining ground. But the companies behind them do not have a clear strategy to make money from that success.`\
+https://www.nytimes.com/2026/07/27/business/china-ai-alibaba-bytedance.html
+
+**Should We Make Daylight Saving Time Permanent?**\
+`More light at the day’s end comes at a price: much later winter sunrises across much of the U.S. Scientists have documented consequences for public health and the economy.`\
+https://www.nytimes.com/2026/07/27/science/daylight-saving-time-health-safety.html
+
+**Why Restarting a Nuclear Power Plant Can Be Much Harder Than Expected**\
+`The first U.S. attempt at reopening a shuttered reactor has been held back by run-down equipment and a lack of planning.`\
+https://www.nytimes.com/2026/07/27/business/energy-environment/nuclear-power-palisades-michigan.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054825/27vid-bos-50014.html

@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/07/27/crosswords/strands-sidekick-877.html
 https://www.nytimes.com/2026/07/27/crosswords/connections-companion-1143.html
 
 **How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
-`The Iran-backed Houthis have seized on a vulnerable moment for Saudi Arabia, which is reluctant to enter another war, to try to force political concessions in Yemen.`\
+`The Iran-backed Houthi militia in Yemen has seized on a vulnerable moment for neighboring Saudi Arabia, which does not want another war. The group hopes to force political concessions in Yemen that could give it more authority and more access to resources.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html
 
 **Book Review: ‘Biological War,’ by Annie Jacobsen**\
