@@ -1,3 +1,11 @@
+**Nvidia Forms Alliance to Back Open-Source A.I. Amid Debate Over Safety**\
+`The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
+https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
+
+**Seattle Food Festival Shooting: What to Know**\
+`Three people were killed during the incident near the Space Needle on Sunday, the police said. One suspect was in custody and the police were searching for another.`\
+https://www.nytimes.com/2026/07/27/us/seattle-shooting-suspect-victims-what-happened.html
+
 **Nvidia Adds More Support to ‘Open-Source’ A.I. With New Alliance**\
 `The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
 https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
