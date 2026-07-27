@@ -1,3 +1,11 @@
+**How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
+`The Iran-backed Houthis have seized on a vulnerable moment for Saudi Arabia, which is reluctant to enter another war, to try to force political concessions in Yemen.`\
+https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html
+
+**Book Review: ‘Biological War,’ by Annie Jacobsen**\
+`In a sobering new book, Annie Jacobsen considers the potentially civilization-ending impacts of biological war.`\
+https://www.nytimes.com/2026/07/27/books/review/biological-war-annie-jacobsen.html
+
 **Berlin Pride Attack Suspect Tried to Join ISIS, Prosecutors Say**\
 `The man was sentenced to prison for preparing a serious act of violence against the state but released from detention in May.`\
 https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html
 **‘Furious’ and 7 More Shows to Watch on TV This Week**\
 `A psychological thriller premieres, and a livestream from the Lollapalooza music festival begins.`\
 https://www.nytimes.com/2026/07/27/arts/television/furious-and-7-more-shows-to-watch-on-tv-this-week.html
-
-**A New Security Order Is Taking Shape in Asia**\
-`Asian countries are starting to shoulder more of the burden of their own defense, and the region could be stronger and more stable for it.`\
-https://www.nytimes.com/2026/07/27/opinion/asia-military-security-china-allies.html
-
-**Iran War Forces Energy Buyers to ‘Unshackle’ From Global Markets**\
-`Developing Asian nations, scarred by Middle East supply shocks, are working to scale back their reliance on imported fuels, including liquefied natural gas.`\
-https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
 

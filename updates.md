@@ -1,3 +1,11 @@
+**How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
+`The Iran-backed Houthis have seized on a vulnerable moment for Saudi Arabia, which is reluctant to enter another war, to try to force political concessions in Yemen.`\
+https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html
+
+**Book Review: ‘Biological War,’ by Annie Jacobsen**\
+`In a sobering new book, Annie Jacobsen considers the potentially civilization-ending impacts of biological war.`\
+https://www.nytimes.com/2026/07/27/books/review/biological-war-annie-jacobsen.html
+
 **Berlin Pride Attack Suspect Tried to Join ISIS, Prosecutors Say**\
 `The man was sentenced to prison for preparing a serious act of violence against the state but released from detention in May.`\
 https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
