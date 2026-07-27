@@ -1,3 +1,15 @@
+**Hundreds of Thousands Evacuate as Fires Tear Through Europe**\
+`Also, Congress debates daylight saving time. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/27/briefing/france-spain-fires-daylight-saving-time.html
+
+**Hiker Trekked 10 Miles to Safety After Impaling Himself on Pole**\
+`David Cifaldi was hiking up Granite Peak, Montana’s tallest mountain last week when he slipped and fell on one of his trekking poles. A wound nurse, he went into survival mode.`\
+https://www.nytimes.com/2026/07/27/us/montana-hiker-impaled-pole.html
+
+**An M.T.A. Project Is Under Budget and Finished Early. No, Really.**\
+`The authority has long been panned for construction overruns and delays. It hopes a Metro-North Rail Road project could change that reputation.`\
+https://www.nytimes.com/2026/07/27/nyregion/mta-viaduct-metro-north.html
+
 **‘Tell Us Where to Look,’ Savannah Guthrie Pleads 6 Months Into Search**\
 `The “Today” show host spoke directly to her mother’s apparent abductor in a new video.`\
 https://www.nytimes.com/2026/07/27/us/savannah-guthrie-nancy-video.html

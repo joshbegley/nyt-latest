@@ -1,3 +1,15 @@
+**Hundreds of Thousands Evacuate as Fires Tear Through Europe**\
+`Also, Congress debates daylight saving time. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/27/briefing/france-spain-fires-daylight-saving-time.html
+
+**Hiker Trekked 10 Miles to Safety After Impaling Himself on Pole**\
+`David Cifaldi was hiking up Granite Peak, Montana’s tallest mountain last week when he slipped and fell on one of his trekking poles. A wound nurse, he went into survival mode.`\
+https://www.nytimes.com/2026/07/27/us/montana-hiker-impaled-pole.html
+
+**An M.T.A. Project Is Under Budget and Finished Early. No, Really.**\
+`The authority has long been panned for construction overruns and delays. It hopes a Metro-North Rail Road project could change that reputation.`\
+https://www.nytimes.com/2026/07/27/nyregion/mta-viaduct-metro-north.html
+
 **‘Tell Us Where to Look,’ Savannah Guthrie Pleads 6 Months Into Search**\
 `The “Today” show host spoke directly to her mother’s apparent abductor in a new video.`\
 https://www.nytimes.com/2026/07/27/us/savannah-guthrie-nancy-video.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
 **What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\
 `The case in Massachusetts has revived a debate about postpartum psychosis. The trial starts Monday.`\
 https://www.nytimes.com/2026/07/27/us/lindsay-clancy-trial-murder-children.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011054815/27vid-bidau-19846.html
-
-**Mapa: la trayectoria del huracán Genevieve en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Genevieve.`\
-https://www.nytimes.com/es/interactive/2026/07/27/espanol/huracan-genevieve-mapa.html
-
-**Maps: Tracking Tropical Storm Dolphin**\
-`See the likely path and wind arrival times for Dolphin`\
-https://www.nytimes.com/interactive/2026/07/27/weather/dolphin-map-path-tracker.html
 
