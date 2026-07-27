@@ -1,3 +1,7 @@
+**Protected No More**\
+`We look at the end of Temporary Protected Status.`\
+https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
+
 **Wildfires Live Updates: Spain and France Fight to Contain Blazes as Extreme Heat Threatens New Fires**\
 `Firefighters in eastern Spain were working to hold back a worsening wildfire on Monday. The crisis has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
 https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
