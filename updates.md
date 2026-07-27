@@ -1,3 +1,7 @@
+**Guyana Ferry Tragedy Exposes Political Rifts in Oil-Rich Country**\
+`The capsizing of a ferry was Guyana’s deadliest event since Jonestown in 1978. Many are asking how this could happen in one of the world’s fastest-growing economies.`\
+https://www.nytimes.com/2026/07/27/world/americas/guyana-ferry-accident-oil-economy.html
+
 **Merz Criticizes Terrorism Laws After Deadly Berlin Pride Attack**\
 `Chancellor Friedrich Merz of Germany called for tighter monitoring after the authorities said the suspect in the assault had tried to join ISIS and was released from detention in May.`\
 https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
