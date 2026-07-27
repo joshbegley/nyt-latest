@@ -120,7 +120,7 @@ https://www.nytimes.com/2026/07/27/opinion/trump-midterms-worst.html
 
 **‘Why Isn’t Dad at Home?’: The Books Helping Ukrainian Children Process the War**\
 `A surge of books in Ukraine since the war began has aimed to help children and their parents cope with trauma.`\
-https://www.nytimes.com/interactive/2026/07/27/world/europe/ukr-childrens-books.html
+https://www.nytimes.com/interactive/2026/07/27/world/europe/ukraine-childrens-books.html
 
 **How Cubans Are Surviving a Fuel Crisis**\
 `Cubans are inventing ways to survive without fuel or electricity, using solar panels, makeshift generators and batteries to endure a devastating oil blockade imposed by the Trump administration.`\
