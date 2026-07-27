@@ -1,3 +1,7 @@
+**‘Purple Rain,’ Packed With Prince Songs, Plans Broadway Opening**\
+`The musical, set to begin previews next March, is an adaptation of the 1984 film about a musician whose talent is threatened by tumult at home and at the club.`\
+https://www.nytimes.com/2026/07/27/theater/prince-purple-rain-broadway.html
+
 **Nvidia Forms Alliance to Back Open-Source A.I. Amid Debate Over Safety**\
 `The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
 https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/magazine/colson-whitehead-black-history.html
 **If You Think ICE Detention is Bad Now, Privatization Will Make It Worse**\
 `The Trump administration has a housing problem.`\
 https://www.nytimes.com/2026/07/27/opinion/ice-immigration-detention-privatization.html
-
-**What the Democratic Socialists Want in New York**\
-`Fresh off Zohran Mamdani’s triumph and recent primary victories, the Democratic Socialists of America has an ambitious policy agenda. Gov. Kathy Hochul, a Democrat, is unlikely to cooperate.`\
-https://www.nytimes.com/2026/07/27/nyregion/what-the-democratic-socialists-want-in-new-york.html
 

@@ -1,3 +1,7 @@
+**‘Purple Rain,’ Packed With Prince Songs, Plans Broadway Opening**\
+`The musical, set to begin previews next March, is an adaptation of the 1984 film about a musician whose talent is threatened by tumult at home and at the club.`\
+https://www.nytimes.com/2026/07/27/theater/prince-purple-rain-broadway.html
+
 **Nvidia Forms Alliance to Back Open-Source A.I. Amid Debate Over Safety**\
 `The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
 https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
