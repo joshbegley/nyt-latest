@@ -1,3 +1,7 @@
+**After Watching Luxury Cars Drag Race, Trump Blames High Costs on Biden**\
+`The president also assured supporters that negotiations over ending the war in Iran, a conflict that has sent fuel and energy prices soaring, are continuing in a “friendly” fashion.`\
+https://www.nytimes.com/2026/07/27/us/politics/trump-michigan-speech-tariffs.html
+
 **Un naufragio en Guyana cobra 100 vidas y exhibe los problemas políticos del auge petrolero**\
 `El hundimiento del ferri, en operación desde 1939, generó cuestionamientos sobre la gestión política de una de las economías de más rápido crecimiento del mundo.`\
 https://www.nytimes.com/es/2026/07/27/espanol/america-latina/guyana-ferri-naufragio-petroleo.html
