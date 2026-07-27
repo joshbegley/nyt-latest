@@ -1,3 +1,7 @@
+**Locals Fight Wildfires in France as They Rage On**\
+`As the wildfires in France force hundreds of thousands of people to evacuate, some locals have taken the risk to fight the wildfires instead of evacuating.`\
+https://www.nytimes.com/video/world/europe/100000011054901/france-wildfires-locals-firefighting-evacuations.html
+
 **Hundreds of Thousands Evacuate as Fires Tear Through Europe**\
 `Also, Congress debates daylight saving time. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/07/27/briefing/france-spain-fires-daylight-saving-time.html
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.ht
 `The police said that it was too early to say if the episode was linked to a shooting that targeted the diplomatic post in March.`\
 https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html
 
-**Lindsay Clancy’s Husband Testifies on Her Mental State Before Children’s Deaths**\
+**Trial of Lindsay Clancy, Accused of Murdering Her Children, Begins With Ex-Husband’s Testimony**\
 `The trial of a mother charged with murdering her three young children began on Monday with testimony from her former husband, Patrick Clancy.`\
 https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-sala
 **If You’re Over 40, You’re Ready to Use A.I.**\
 `A.I. should work like this mystical Jewish practice.`\
 https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
-
-**What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\
-`The case in Massachusetts has revived a debate about postpartum psychosis. The trial starts Monday.`\
-https://www.nytimes.com/2026/07/27/us/lindsay-clancy-trial-murder-children.html
 
