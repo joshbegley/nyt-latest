@@ -1,3 +1,11 @@
+**‘Furious’ and 7 More Shows to Watch on TV This Week**\
+`A psychological thriller premieres, and a livestream from the Lollapalooza music festival begins.`\
+https://www.nytimes.com/2026/07/27/arts/television/furious-and-7-more-shows-to-watch-on-tv-this-week.html
+
+**A New Security Order Is Taking Shape in Asia**\
+`Asian countries are starting to shoulder more of the burden of their own defense, and the region could be stronger and more stable for it.`\
+https://www.nytimes.com/2026/07/27/opinion/asia-military-security-china-allies.html
+
 **Iran War Forces Energy Buyers to ‘Unshackle’ From Global Markets**\
 `Developing Asian nations, scarred by Middle East supply shocks, are working to scale back their reliance on imported fuels, including liquefied natural gas.`\
 https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
 https://www.nytimes.com/video/embedded/us/100000011054386/26vid-xp-seattle-15414.html
 
 **At Least 2 Killed in Shooting at Food Festival in Seattle**\
-`At least five others were injured during the shooting near the city’s Space Needle, the authorities said. No information about a suspect or a potential motive was immediately available.`\
+`At least five others were injured during the shooting near the city’s Space Needle, authorities said. The mayor said a suspect had been taken into custody.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
 
 **‘House of the Dragon’ Season 3, Episode 6 Recap: Mistakes Were Made**\
@@ -142,7 +150,7 @@ https://www.nytimes.com/2026/07/26/podcasts/the-daily/why-do-some-memories-survi
 `Scroll down for hints and conversation about the puzzle for Monday, July 27, 2026.`\
 https://www.nytimes.com/2026/07/26/crosswords/connections-companion-1142.html
 
-**Why Odysseus Turned on the Trojan Horse**\
+**Christopher Nolan Has Rebuked the Spirit of the Age**\
 `This “Odyssey” takes us somewhere we didn’t know we were going.`\
 https://www.nytimes.com/2026/07/26/opinion/odyssey-christopher-nolan-greek-gods.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/26/us/politics/turek-iowa-senate-democrat.html
 **Democrats Reset the Maine Senate Race. Now Comes the Tricky Part.**\
 `Troy Jackson is replacing Graham Platner, but Republicans are seeking to tie them together as a remade race kicks off with high stakes.`\
 https://www.nytimes.com/2026/07/26/us/politics/jackson-collins-platner-senate-maine.html
-
-**Employers Fear Labor Shortage as Many Immigrants Lose Protected Status**\
-`A recent Supreme Court ruling cleared the way for the Trump administration to end a humanitarian program that has allowed about one million immigrants to work legally in the U.S.`\
-https://www.nytimes.com/2026/07/26/us/trump-tps-labor-shortage.html
-
-**Inside the Phone-Throwing Drama at the Troubled, Broke Democratic Party**\
-`The Democrats should be well positioned to make gains in this year’s midterms. But inside party headquarters, every week brings paranoia, worries about money and, on occasion, emotional eruptions.`\
-https://www.nytimes.com/2026/07/26/us/politics/ken-martin-dnc-democrats.html
 
