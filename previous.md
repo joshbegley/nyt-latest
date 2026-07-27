@@ -1,3 +1,15 @@
+**Mamdani’s Grocery Stores Will Offer 30 Percent Discount on Some Products**\
+`Mayor Zohran Mamdani’s five city-owned grocery stores will provide a 30 percent discount on produce, meat, bread and milk.`\
+https://www.nytimes.com/2026/07/27/nyregion/mamdani-grocery-stores-discount.html
+
+**Legionnaires’ Disease Has Made a Home in New York City. Here’s How.**\
+`New York that has endured significant outbreaks in recent years. Some experts say officials should focus more on risks in plumbing systems, even shower heads.`\
+https://www.nytimes.com/2026/07/27/nyregion/nyc-legionnaires-disease-epicenter.html
+
+**NYT Spelling Bee Answers for July 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/27/crosswords/spelling-bee-forum.html
+
 **China’s CXMT Stock Soars 470% in Start of Trading, Amid A.I. Race**\
 `The meteoric rise on its first day of trading catapulted CXMT, China’s leading memory chip maker, to being the most valuable company on the Shanghai stock exchange.`\
 https://www.nytimes.com/2026/07/27/business/cxmt-stock-price-ai.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/26/weather/europe-heat-what-to-know.html
 **Trump Is Pushing Nuclear Energy, Including Saudi Deal. His Family and Supporters Could Benefit.**\
 `In some cases, no direct line can be drawn from the president’s domestic nuclear agenda to his family or close allies. But they have overlapping business ties that could position them for gains.`\
 https://www.nytimes.com/2026/07/26/us/politics/trump-nuclear-energy-agenda-saudi-deal.html
-
-**Why 529 Accounts Make More Sense for Investing Than Trump Accounts**\
-`Most young children should have a Trump account. But that doesn’t mean families should prioritize saving in them.`\
-https://www.nytimes.com/2026/07/26/your-money/trump-accounts-529s-investing.html
-
-**You’ll Want to Raise Her Glass**\
-`Sophie Lou Jacobsen’s colorful, rippling glassware designs look great on Instagram. Lately, she’s craving something else.`\
-https://www.nytimes.com/2026/07/26/style/sophie-lou-jacobsen-glassware.html
-
-**Trump Seems Trapped by Iran War, Even as He Wields the World’s Biggest Hammer**\
-`A president who thought there were no limits to his power has discovered several, leaving him more frustrated and erratic.`\
-https://www.nytimes.com/2026/07/26/us/politics/trump-trapped-in-iran-war.html
 
