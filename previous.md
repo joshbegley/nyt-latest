@@ -1,3 +1,7 @@
+**Saudis Blame Iran-Backed Militias Based in Iraq for Drone Attacks**\
+`The kingdom is being dragged deeper into the wider regional conflict as it faces attacks from Iraq and Yemen.`\
+https://www.nytimes.com/2026/07/27/world/middleeast/saudi-arabia-drone-attacks-iraq-iran.html
+
 **‘Purple Rain,’ Packed With Prince Songs, Plans Broadway Opening**\
 `The musical, set to begin previews next March, is an adaptation of the 1984 film about a musician whose talent is threatened by tumult at home and at the club.`\
 https://www.nytimes.com/2026/07/27/theater/prince-purple-rain-broadway.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/video/world/europe/100000011054630/europe-wildfires-extr
 `As in, you’ll want to spoon this five-star Ali Slagle salad straight into your mouth from the mixing bowl.`\
 https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-salad.html
 
-**The Kabbalah Teaching That Changed How I See A.I.**\
-`Prospective students of the Jewish mystical practice are urged to delay their studies until they reach the age of 40.`\
+**If You’re Over 40, You’re Ready to Use A.I.**\
+`Prospective students of a Jewish mystical practice are urged to delay their studies.`\
 https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
 
 **What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/us/politics/el-sayed-michigan-senate.html
 **How a Novelist of the American Past Recovered His Faith in Its Future**\
 `Colson Whitehead’s Harlem trilogy turns away from the pessimism of his recent novels to offer a more hopeful vision for Black history.`\
 https://www.nytimes.com/2026/07/27/magazine/colson-whitehead-black-history.html
-
-**If You Think ICE Detention is Bad Now, Privatization Will Make It Worse**\
-`The Trump administration has a housing problem.`\
-https://www.nytimes.com/2026/07/27/opinion/ice-immigration-detention-privatization.html
 

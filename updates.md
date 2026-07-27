@@ -1,3 +1,11 @@
+**Saudis Blame Iran-Backed Militias Based in Iraq for Drone Attacks**\
+`The kingdom is being dragged deeper into the wider regional conflict as it faces attacks from Iraq and Yemen.`\
+https://www.nytimes.com/2026/07/27/world/middleeast/saudi-arabia-drone-attacks-iraq-iran.html
+
+**If You’re Over 40, You’re Ready to Use A.I.**\
+`Prospective students of a Jewish mystical practice are urged to delay their studies.`\
+https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
+
 **‘Purple Rain,’ Packed With Prince Songs, Plans Broadway Opening**\
 `The musical, set to begin previews next March, is an adaptation of the 1984 film about a musician whose talent is threatened by tumult at home and at the club.`\
 https://www.nytimes.com/2026/07/27/theater/prince-purple-rain-broadway.html
