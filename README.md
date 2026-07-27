@@ -1,3 +1,11 @@
+**The A.I. Debate That’s Driving a Wedge Through Big Tech**\
+`Investors and policymakers must contend with the competing camps that view open and closed artificial intelligence models as key to the sector’s future.`\
+https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
+
+**New Heat Wave Could Intensify Wildfires in France and Spain**\
+`Soaring temperatures in parts of France, Spain and Portugal could combine with dry conditions and strong winds to worsen the wildfire threat. It is the fourth heat wave to affect Europe since May.`\
+https://www.nytimes.com/2026/07/27/world/europe/heat-wave-forecast-france-spain-wildfires.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanchez-clip-75630.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/07/27/world/europe/ukraine-childrens-bo
 **How Cubans Are Surviving a Fuel Crisis**\
 `Cubans are inventing ways to survive without fuel or electricity, using solar panels, makeshift generators and batteries to endure a devastating oil blockade imposed by the Trump administration.`\
 https://www.nytimes.com/video/world/americas/100000011024495/cuba-power-crisis-oil-solutions.html
-
-**Paramount is Betting Johnny Depp Can Make a Comeback With ‘Ebenezer: A Christmas Carol’**\
-`Paramount is betting that audiences will re-embrace the star a decade after allegations of domestic abuse and a defamation trial.`\
-https://www.nytimes.com/2026/07/27/movies/johnny-depp-ebenezer-a-christmas-carol-paramount.html
-
-**Want a Better Food System? Use the Anti-Tobacco Playbook.**\
-`A teenager’s lawsuit against the food industry shows us the path to a better food system.`\
-https://www.nytimes.com/2026/07/27/opinion/ultraprocessed-food-lawsuit.html
 
