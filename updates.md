@@ -1,4 +1,8 @@
 **At Least 2 Killed in Shooting at Food Festival in Seattle**\
+`At least five others were injured during the shooting near the city’s Space Needle, the authorities said. No information about a suspect or a potential motive was immediately available.`\
+https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
+
+**At Least 2 Killed in Shooting at Food Festival in Seattle**\
 `At least five others were injured, the authorities said. Thousands were attending a festival at the Seattle Center, according to local media.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
 

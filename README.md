@@ -1,3 +1,7 @@
+****\
+`People appeared to take shelter in the gift shop of the Space Needle at Seattle Center after the incident.`\
+https://www.nytimes.com/video/embedded/us/100000011054386/26vid-xp-seattle-15414.html
+
 **At Least 2 Killed in Shooting at Food Festival in Seattle**\
 `At least five others were injured during the shooting near the city’s Space Needle, the authorities said. No information about a suspect or a potential motive was immediately available.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/us/politics/ken-martin-dnc-democrats.html
 **A Captain Calls This Yacht His Home. The Owner Is Selling It.**\
 `Gavin Bladen oversaw the construction of the luxury catamaran Hemisphere and has lived on it for 15 years. When it changes hands, he may be cast adrift.`\
 https://www.nytimes.com/2026/07/26/realestate/a-captain-calls-this-yacht-his-home-the-owner-is-selling-it.html
-
-**Kids (and Adults) Are Obsessed With Squishy Toys and Fidget Trading**\
-`Kids are making, trading and hunting for squishies, or squeezable, malleable blob toys that come in a variety of forms.`\
-https://www.nytimes.com/2026/07/26/style/squishy-fidget-toys-trading.html
 
