@@ -1,3 +1,7 @@
+**Seattle Police Search for 2nd Shooter in Sunday’s Deadly Attack**\
+`One 15-year-old suspect is in custody, but authorities said they were looking for a second shooter in the attack at a food festival that left three dead.`\
+https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
+
 **Heat Wave Threatens Further Wildfire Spread in France and Spain**\
 `The record wildfires, which have destroyed more than 200 homes and prompted large evacuations, could intensify with the arrival of a new heat wave.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/pageoneplus/corrections-july-25-2026.html
 **The A.I. Debate That’s Driving a Wedge Through Big Tech**\
 `Investors and policymakers must contend with the competing camps that view open and closed artificial intelligence models as key to the sector’s future.`\
 https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
-
-**New Heat Wave Could Intensify Wildfires in France and Spain**\
-`Soaring temperatures in parts of France, Spain and Portugal could combine with dry conditions and strong winds to worsen the wildfire threat. It is the fourth heat wave to affect Europe since May.`\
-https://www.nytimes.com/2026/07/27/world/europe/heat-wave-forecast-france-spain-wildfires.html
 
