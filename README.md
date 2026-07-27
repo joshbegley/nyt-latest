@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/07/27/crosswords/spelling-bee-forum.html
 `The meteoric rise on its first day of trading catapulted CXMT, China’s leading memory chip maker, to being the most valuable company on the Shanghai stock exchange.`\
 https://www.nytimes.com/2026/07/27/business/cxmt-stock-price-ai.html
 
-**Two Dead After Shooting at Seattle Food Festival**\
-`At least two people were killed in a shooting at a food festival in Seattle on Sunday.`\
+**Three Dead After Shooting at Seattle Food Festival**\
+`At least three people were killed in a shooting at a food festival in Seattle on Sunday.`\
 https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html
 
 **‘Furious’ and 7 More Shows to Watch on TV This Week**\
@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
 `People appeared to take shelter in the gift shop of the Space Needle at Seattle Center after the incident.`\
 https://www.nytimes.com/video/embedded/us/100000011054386/26vid-xp-seattle-15414.html
 
-**At Least 2 Killed in Shooting at Food Festival in Seattle**\
-`At least five others were injured during the shooting near the city’s Space Needle, authorities said. The mayor said a suspect had been taken into custody.`\
+**At Least 3 Killed in Shooting at Food Festival in Seattle**\
+`At least four others were injured during the shooting near the city’s Space Needle, the authorities said. The police were searching for one suspect and had taken another into custody.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
 
 **‘House of the Dragon’ Season 3, Episode 6 Recap: Mistakes Were Made**\
