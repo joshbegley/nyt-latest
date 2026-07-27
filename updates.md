@@ -1,3 +1,7 @@
+**If You’re Over 40, You’re Ready to Use A.I.**\
+`A.I. should work like this mystical Jewish practice.`\
+https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
+
 **Microsoft Unveils A.I. Cybersecurity Tools**\
 `As some executives fret over the safety of new A.I. systems, protecting against them could be a big business for tech companies.`\
 https://www.nytimes.com/2026/07/27/technology/microsoft-unveils-ai-cybersecurity-tools.html

@@ -1,9 +1,13 @@
+**Lemon-Garlic Linguine**\
+`This bright and creamy pasta is a weeknight go-to that can be embellished with seared scallops, shrimp or mushrooms to make it something special.`\
+https://www.nytimes.com/video/dining/100000011054928/lemon-garlic-linguine.html
+
 **Microsoft Unveils A.I. Cybersecurity Tools**\
 `As some executives fret over the safety of new A.I. systems, protecting against them could be a big business for tech companies.`\
 https://www.nytimes.com/2026/07/27/technology/microsoft-unveils-ai-cybersecurity-tools.html
 
 **India’s ‘Cockroach’ Protesters Disperse, But Questions Remain on Education and Dissent**\
-`The ‘Cockroach’ movement dispersed, saying their demands had been met, but there are larger issues about the country’s education system and the future of dissent.`\
+`The ‘Cockroach’ movement dispersed, saying its demands had been met, but there are larger issues about the country’s education system and the future of dissent.`\
 https://www.nytimes.com/2026/07/27/world/asia/india-protests-cjp-education-modi.html
 
 **Berlin Locals Left Shaken After Pride Terror Attack**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/theater/chorus-line-barrington-stage.html
 **5 New Hotels in Vintage Buildings**\
 `From a restored warehouse in Seattle to a former prison in Nara, Japan, these accommodations offer intriguing surroundings with modern comforts.`\
 https://www.nytimes.com/2026/07/27/travel/new-hotels-historical-buildings.html
-
-**How a Social Worker Lives on $40,000 a Year in Brooklyn**\
-`At age 63, Everette Green is considering how to afford a future he never thought he would get after being incarcerated.`\
-https://www.nytimes.com/interactive/2026/07/27/nyregion/nyc-budgeting-affordability-green.html
 
