@@ -1,3 +1,7 @@
+**Hundreds of Thousands Evacuate as Fires Tear Through Europe**\
+`Also, Congress debates daylight saving time. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/07/27/briefing/france-spain-fires-daylight-saving-time.html
+
 **Hiker Trekked 10 Miles to Safety After Impaling Himself on Pole**\
 `David Cifaldi was hiking up Granite Peak, Montana’s tallest mountain last week when he slipped and fell on one of his trekking poles. A wound nurse, he went into survival mode.`\
 https://www.nytimes.com/2026/07/27/us/montana-hiker-impaled-pole.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
 **What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\
 `The case in Massachusetts has revived a debate about postpartum psychosis. The trial starts Monday.`\
 https://www.nytimes.com/2026/07/27/us/lindsay-clancy-trial-murder-children.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011054815/27vid-bidau-19846.html
 
