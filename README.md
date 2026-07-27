@@ -1,3 +1,11 @@
+**Bill McGlaughlin, Who Unlocked Classical Music for Many, Dies at 82**\
+`His public-radio programs “Saint Paul Sunday” and “Exploring Music,” at their height, were listened to by hundreds of thousands of people a week.`\
+https://www.nytimes.com/2026/07/27/arts/music/bill-mcglaughlin-dead.html
+
+**The Left’s Infighting Is a Big Problem**\
+`On “The Opinions,” the columnist David French argues that the bigger challenge for Democrats isn’t a new Red Scare, but activists on the left who are more interested in taking over the Democratic Party than in defeating Republicans.`\
+https://www.nytimes.com/video/opinion/100000011049017/the-lefts-infighting-is-a-big-problem.html
+
 **Locals Fight Wildfires in France as They Rage On**\
 `As the wildfires in France force hundreds of thousands of people to evacuate, some locals have taken the risk to fight the wildfires instead of evacuating.`\
 https://www.nytimes.com/video/world/europe/100000011054901/france-wildfires-locals-firefighting-evacuations.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/07/27/espanol/estados-unidos/tiroteo-seattle-fes
 **Race to Contain Wildfires in Europe Before Next Heatwave**\
 `Firefighters in Spain and France scrambled to contain raging blazes on Monday, racing against a fresh heatwave set to push Western European temperatures past 104 degrees Fahrenheit this week.`\
 https://www.nytimes.com/video/world/europe/100000011054630/europe-wildfires-extreme-heat.html
-
-**Halloumi, Peach and Cucumber Spoon Salad**\
-`As in, you’ll want to spoon this five-star Ali Slagle salad straight into your mouth from the mixing bowl.`\
-https://www.nytimes.com/2026/07/27/dining/halloumi-peach-and-cucumber-spoon-salad.html
-
-**If You’re Over 40, You’re Ready to Use A.I.**\
-`A.I. should work like this mystical Jewish practice.`\
-https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
 
