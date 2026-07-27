@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Allow Order Restricting Mail Voting**\
+`The Trump administration asks justices to intervene after an appeals court blocked key parts of a mail-in voting executive order.`\
+https://www.nytimes.com/2026/07/27/us/politics/supreme-court-trump-mail-ballots.html
+
 **Maine Democrats Have a New Working-Class Hero in Troy Jackson. Can He Deliver?**\
 `Troy Jackson, a former logger, faces the tall task of taking down Susan Collins.`\
 https://www.nytimes.com/2026/07/27/us/politics/troy-jackson-maine-senate-democrats.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
 `The man had been driving this month on a popular route through the park when a rock dislodged from a cliff face and struck his vehicle. Such fatal episodes are rare, officials said.`\
 https://www.nytimes.com/2026/07/27/us/rock-fall-death-glacier-national-park.html
 
-**Powerful Storms Prompt Tornado Warnings in Wisconsin and Near Chicago**\
+**Tornado Damage Reported in Wisconsin as Storms Unleash Heavy Rain and Winds**\
 `Forecasters warned that more storms were expected through the day.`\
 https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/science/daylight-saving-time-health-safety.ht
 **Why Restarting a Nuclear Power Plant Can Be Much Harder Than Expected**\
 `The first U.S. attempt at reopening a shuttered reactor has been held back by run-down equipment and a lack of planning.`\
 https://www.nytimes.com/2026/07/27/business/energy-environment/nuclear-power-palisades-michigan.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011054825/27vid-bos-50014.html
 
