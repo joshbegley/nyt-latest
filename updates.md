@@ -1,3 +1,7 @@
+**Despite Cancellations, Company Says ‘Game of Thrones’ Play Is On Track**\
+`The Royal Shakespeare Company called off five preview performances of the epic four-hour production last week, including one just hours before its scheduled curtain.`\
+https://www.nytimes.com/2026/07/27/theater/game-of-thrones-mad-king-royal-shakespeare-cancellations.html
+
 **Maine Democrats Have a New Working-Class Hero in Troy Jackson. Can He Deliver?**\
 `Troy Jackson, a former logger, faces the tall task of taking down Susan Collins.`\
 https://www.nytimes.com/2026/07/27/us/politics/troy-jackson-maine-senate-democrats.html
