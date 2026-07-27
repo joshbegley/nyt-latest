@@ -1,3 +1,7 @@
+**How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
+`The Iran-backed Houthi militia in Yemen has seized on a vulnerable moment for neighboring Saudi Arabia, which does not want another war. The group hopes to force political concessions in Yemen that could give it more authority and more access to resources.`\
+https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html
+
 **Even China’s A.I. Powerhouses Can’t Figure Out How to Profit Off A.I.**\
 `Chinese A.I. models are gaining ground. But the companies behind them do not have a clear strategy to make money from that success.`\
 https://www.nytimes.com/2026/07/27/business/china-ai-alibaba-bytedance.html
