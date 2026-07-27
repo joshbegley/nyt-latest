@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011054815/27vid-bidau-19846.html
+
+**Mapa: la trayectoria del huracán Genevieve en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Genevieve.`\
+https://www.nytimes.com/es/interactive/2026/07/27/espanol/huracan-genevieve-mapa.html
+
+**Maps: Tracking Tropical Storm Dolphin**\
+`See the likely path and wind arrival times for Dolphin`\
+https://www.nytimes.com/interactive/2026/07/27/weather/dolphin-map-path-tracker.html
+
 **Even China’s A.I. Powerhouses Can’t Figure Out How to Profit Off A.I.**\
 `Chinese A.I. models are gaining ground. But the companies behind them do not have a clear strategy to make money from that success.`\
 https://www.nytimes.com/2026/07/27/business/china-ai-alibaba-bytedance.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/27/learning/word-of-the-day-winsome.html
 **Jeffries Kicks Off Midterm Sprint With Economic Pitch**\
 `Representative Hakeem Jeffries, the New York Democrat and minority leader, focused relentlessly on affordability in a swing district.`\
 https://www.nytimes.com/2026/07/27/us/politics/jeffries-democrats-midterms-affordability.html
-
-**Tres líderes mundiales distintos. Tres decisiones increíblemente malas**\
-`Las fantasías de soluciones rápidas de los hombres fuertes del mundo.`\
-https://www.nytimes.com/es/2026/07/27/espanol/opinion/trump-netanyahu-putin-guerras.html
-
-**Ejercicio, café y comunidad: ¿qué son los espacios de sobriedad?**\
-`En el tratamiento de las adicciones, hay un modelo en crecimiento para mantener la abstinencia y combatir la soledad de la recuperación.`\
-https://www.nytimes.com/es/2026/07/27/espanol/estilos-de-vida/adiccion-sobriedad-abstinencia.html
-
-**Costco or Whole Foods? Grocery Stores are Symbols of Identity**\
-`Our grocery stores mirror the mess of America.`\
-https://www.nytimes.com/2026/07/27/opinion/grocery-stores-politics.html
 

@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011054815/27vid-bidau-19846.html
+
+**Mapa: la trayectoria del huracán Genevieve en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Genevieve.`\
+https://www.nytimes.com/es/interactive/2026/07/27/espanol/huracan-genevieve-mapa.html
+
+**Maps: Tracking Tropical Storm Dolphin**\
+`See the likely path and wind arrival times for Dolphin`\
+https://www.nytimes.com/interactive/2026/07/27/weather/dolphin-map-path-tracker.html
+
 **How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
 `The Iran-backed Houthi militia in Yemen has seized on a vulnerable moment for neighboring Saudi Arabia, which does not want another war. The group hopes to force political concessions in Yemen that could give it more authority and more access to resources.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html

@@ -1,3 +1,7 @@
+**What We Know About Lindsay Clancy’s Trial for the Deaths of Her Children**\
+`The case in Massachusetts has revived a debate about postpartum psychosis. The trial starts Monday.`\
+https://www.nytimes.com/2026/07/27/us/lindsay-clancy-trial-murder-children.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054815/27vid-bidau-19846.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/world/europe/ukraine-drones-crimea-blackouts.
 **Word of the Day: winsome**\
 `This word has appeared in 79 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/27/learning/word-of-the-day-winsome.html
-
-**Jeffries Kicks Off Midterm Sprint With Economic Pitch**\
-`Representative Hakeem Jeffries, the New York Democrat and minority leader, focused relentlessly on affordability in a swing district.`\
-https://www.nytimes.com/2026/07/27/us/politics/jeffries-democrats-midterms-affordability.html
 
