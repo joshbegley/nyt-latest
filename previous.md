@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanchez-clip-75630.html
+
+**Carly Simon Reveals She Has Parkinson’s Disease**\
+`The singer-songwriter, 83, has also had surgery to treat basal cell carcinoma on her face, making her “self-conscious about being seen in public,” she said.`\
+https://www.nytimes.com/2026/07/27/arts/music/carly-simon-parkinsons.html
+
 **Heat From France’s Wildfires Creates a ‘Fire Cloud,’ or Pyrocumulonimbus**\
 `A pyrocumulonimbus — a thundercloud created by intense heat — is a phenomenon that can spark new blazes and is “unprecedented in France,” officials said.`\
 https://www.nytimes.com/2026/07/27/world/europe/pyrocumulonimbus-fire-cloud-france-wildfires.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/27/opinion/ultraprocessed-food-lawsuit.html
 **How to Keep a Travel Journal**\
 `A travel journal can be a great way to evoke specific details and memories from a trip. Here are some tips on how to lower the barrier to entry and to stay organized.`\
 https://www.nytimes.com/2026/07/27/travel/travel-journal-tips-recommendations.html
-
-**What Does ‘Semiformal’ Mean Today?**\
-`A reader searches for clarity on a party dress code.`\
-https://www.nytimes.com/2026/07/27/fashion/semiformal-dress-code-definition.html
-
-**How Meta Got Everything It Wanted in a Secret Louisiana Data Center Deal**\
-`A Times examination details how the Silicon Valley giant used private talks with local officials to start a project big enough to cover nearly six square miles.`\
-https://www.nytimes.com/2026/07/27/technology/meta-data-center-louisiana.html
 

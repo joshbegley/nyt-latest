@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanchez-clip-75630.html
+
+**Carly Simon Reveals She Has Parkinson’s Disease**\
+`The singer-songwriter, 83, has also had surgery to treat basal cell carcinoma on her face, making her “self-conscious about being seen in public,” she said.`\
+https://www.nytimes.com/2026/07/27/arts/music/carly-simon-parkinsons.html
+
 **Heat From France’s Wildfires Creates a ‘Fire Cloud,’ or Pyrocumulonimbus**\
 `A pyrocumulonimbus — a thundercloud created by intense heat — is a phenomenon that can spark new blazes and is “unprecedented in France,” officials said.`\
 https://www.nytimes.com/2026/07/27/world/europe/pyrocumulonimbus-fire-cloud-france-wildfires.html
