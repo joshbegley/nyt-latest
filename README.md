@@ -1,3 +1,7 @@
+**Protected No More**\
+`We look at the end of Temporary Protected Status.`\
+https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
+
 **Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
 `The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
 https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/well/move/agility-ladder-workout-balance.html
 **Wildfires Live Updates: Spain and France Fight to Contain Blazes as Extreme Heat Threatens New Fires**\
 `Firefighters in eastern Spain were working to hold back a worsening wildfire on Monday. The crisis has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
 https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
-
-**In Washington, Netanyahu Faces a Delicate Balancing Act**\
-`Prime Minister Benjamin Netanyahu of Israel is set to meet President Trump on Tuesday, with one eye on Iran and another on the coming elections back home.`\
-https://www.nytimes.com/2026/07/27/world/middleeast/trump-netanyahu-relationship-iran.html
 
