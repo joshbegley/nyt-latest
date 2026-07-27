@@ -1,3 +1,11 @@
+**In France, Some Residents and Farmers Help Firefighters to Contain Blazes**\
+`People described using water tanks and tractors to hold back flames in the worst-affected areas of southwestern France.`\
+https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
+
+**Chilled Tofu With Gochujang Sauce**\
+`This silken tofu, draped in a tangy, savory, chile-sweet gochujang sauce, is a warm weather epiphany: No cooking whatsoever.`\
+https://www.nytimes.com/video/dining/100000011055026/chilled-tofu-with-gochujang-sauce.html
+
 **Lemon-Garlic Linguine**\
 `This bright and creamy pasta is a weeknight go-to that can be embellished with seared scallops, shrimp or mushrooms to make it something special.`\
 https://www.nytimes.com/video/dining/100000011054928/lemon-garlic-linguine.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/27/realestate/renters-queens-artist.html
 **They Bought a Piece of Old New York, Then Gave It a Contemporary Spin**\
 `A creative couple wanted a New York City apartment that felt like home and found it in the Hotel des Artistes.`\
 https://www.nytimes.com/2026/07/27/realestate/mcalpine-hotel-des-artistes-new-york-apartment-renovation.html
-
-**‘A Chorus Line’ at 50-ish: Seeing Through Perfection to the Pain**\
-`A new production at Barrington Stage Company reminds us of how the “singular sensation” changed our relationship to performance.`\
-https://www.nytimes.com/2026/07/27/theater/chorus-line-barrington-stage.html
-
-**5 New Hotels in Vintage Buildings**\
-`From a restored warehouse in Seattle to a former prison in Nara, Japan, these accommodations offer intriguing surroundings with modern comforts.`\
-https://www.nytimes.com/2026/07/27/travel/new-hotels-historical-buildings.html
 

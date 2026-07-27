@@ -1,3 +1,11 @@
+**Lemon-Garlic Linguine**\
+`This bright and creamy pasta is a weeknight go-to that can be embellished with seared scallops, shrimp or mushrooms to make it something special.`\
+https://www.nytimes.com/video/dining/100000011054928/lemon-garlic-linguine.html
+
+**India’s ‘Cockroach’ Protesters Disperse, But Questions Remain on Education and Dissent**\
+`The ‘Cockroach’ movement dispersed, saying its demands had been met, but there are larger issues about the country’s education system and the future of dissent.`\
+https://www.nytimes.com/2026/07/27/world/asia/india-protests-cjp-education-modi.html
+
 **If You’re Over 40, You’re Ready to Use A.I.**\
 `A.I. should work like this mystical Jewish practice.`\
 https://www.nytimes.com/2026/07/27/opinion/teaching-kabbalah-ai.html
