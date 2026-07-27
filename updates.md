@@ -1,3 +1,23 @@
+**What A.I. Is Actually Doing to the Economy**\
+`Some data suggest that artificial intelligence is causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
+https://www.nytimes.com/2026/07/27/podcasts/the-daily/ai-economy.html
+
+**U.S. Pauses Iran Strikes Amid Growing Risks, and Measles Cases Hit a New Record**\
+`Plus, the soaring costs of President Trump’s new Air Force One.`\
+https://www.nytimes.com/2026/07/27/podcasts/the-headlines/us-iran-strikes-measles.html
+
+**Today’s Wordle Hints for July 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/27/crosswords/wordle-review-1865.html
+
+**NYT Strands Hints for July 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/27/crosswords/strands-sidekick-877.html
+
+**NYT Connections Answers for July 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/27/crosswords/connections-companion-1143.html
+
 **How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
 `The Iran-backed Houthis have seized on a vulnerable moment for Saudi Arabia, which is reluctant to enter another war, to try to force political concessions in Yemen.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html

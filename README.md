@@ -1,3 +1,7 @@
+**Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
+`The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
+https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
+
 **What A.I. Is Actually Doing to the Economy**\
 `Some data suggest that artificial intelligence is causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
 https://www.nytimes.com/2026/07/27/podcasts/the-daily/ai-economy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
 **In Washington, Netanyahu Faces a Delicate Balancing Act**\
 `Prime Minister Benjamin Netanyahu of Israel is set to meet President Trump on Tuesday, with one eye on Iran and another on the coming elections back home.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/trump-netanyahu-relationship-iran.html
-
-**Mamdani’s Grocery Stores Will Offer 30 Percent Discount on Some Products**\
-`Mayor Zohran Mamdani’s five city-owned grocery stores will provide a 30 percent discount on produce, meat, bread and milk.`\
-https://www.nytimes.com/2026/07/27/nyregion/mamdani-grocery-stores-discount.html
 

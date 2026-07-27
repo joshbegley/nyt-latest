@@ -1,3 +1,23 @@
+**What A.I. Is Actually Doing to the Economy**\
+`Some data suggest that artificial intelligence is causing job losses. Other sources show the opposite. Why is it so hard to figure out what’s going on?`\
+https://www.nytimes.com/2026/07/27/podcasts/the-daily/ai-economy.html
+
+**U.S. Pauses Iran Strikes Amid Growing Risks, and Measles Cases Hit a New Record**\
+`Plus, the soaring costs of President Trump’s new Air Force One.`\
+https://www.nytimes.com/2026/07/27/podcasts/the-headlines/us-iran-strikes-measles.html
+
+**Today’s Wordle Hints for July 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/27/crosswords/wordle-review-1865.html
+
+**NYT Strands Hints for July 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/27/crosswords/strands-sidekick-877.html
+
+**NYT Connections Answers for July 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/27/crosswords/connections-companion-1143.html
+
 **How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
 `The Iran-backed Houthis have seized on a vulnerable moment for Saudi Arabia, which is reluctant to enter another war, to try to force political concessions in Yemen.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/27/world/middleeast/trump-netanyahu-relationship
 **Mamdani’s Grocery Stores Will Offer 30 Percent Discount on Some Products**\
 `Mayor Zohran Mamdani’s five city-owned grocery stores will provide a 30 percent discount on produce, meat, bread and milk.`\
 https://www.nytimes.com/2026/07/27/nyregion/mamdani-grocery-stores-discount.html
-
-**Legionnaires’ Disease Has Made a Home in New York City. Here’s How.**\
-`New York that has endured significant outbreaks in recent years. Some experts say officials should focus more on risks in plumbing systems, even shower heads.`\
-https://www.nytimes.com/2026/07/27/nyregion/nyc-legionnaires-disease-epicenter.html
-
-**NYT Spelling Bee Answers for July 27, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/27/crosswords/spelling-bee-forum.html
-
-**China’s CXMT Stock Soars 470% in Start of Trading, Amid A.I. Race**\
-`The meteoric rise on its first day of trading catapulted CXMT, China’s leading memory chip maker, to being the most valuable company on the Shanghai stock exchange.`\
-https://www.nytimes.com/2026/07/27/business/cxmt-stock-price-ai.html
-
-**Three Dead After Shooting at Seattle Food Festival**\
-`At least three people were killed in a shooting at a food festival in Seattle on Sunday.`\
-https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html
-
-**‘Furious’ and 7 More Shows to Watch on TV This Week**\
-`A psychological thriller premieres, and a livestream from the Lollapalooza music festival begins.`\
-https://www.nytimes.com/2026/07/27/arts/television/furious-and-7-more-shows-to-watch-on-tv-this-week.html
 
