@@ -1,3 +1,11 @@
+**Una nueva ola de calor podría intensificar los incendios en España y Francia**\
+`Las altas temperaturas en partes de Francia, España y Portugal podrían combinarse con condiciones secas y fuertes vientos que empeorarían la amenaza de incendios forestales. Es la cuarta ola de calor que afecta a Europa desde mayo.`\
+https://www.nytimes.com/es/2026/07/27/espanol/mundo/cupula-calor-incendios-espana-europa.html
+
+**Amid France Wildfires, Some Residents Help Firefighters Contain Blazes**\
+`With firefighters stretched thin, volunteers put themselves at risk, using water tanks, hoses and tractors to hold back flames from villages and farms in southwestern France.`\
+https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
+
 **Review: Handel’s ‘Tolomeo’ Comes to Caramoor**\
 `Philharmonia Baroque Orchestra came to Caramoor with Handel’s “Tolomeo,” a far-fetched opera seria with a lively score.`\
 https://www.nytimes.com/2026/07/27/arts/music/handel-tolomeo-caramoor.html
