@@ -1,3 +1,11 @@
+**Wildfires Live Updates: Spain and France Face Extreme Heat as Flames Rage**\
+`Spain was fighting a worsening blaze in the country’s east on Monday, compounding a crisis that has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
+https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
+
+**In Washington, Netanyahu Faces a Delicate Balancing Act**\
+`Prime Minister Benjamin Netanyahu of Israel is set to meet President Trump on Tuesday, with one eye on Iran and another on the coming elections back home.`\
+https://www.nytimes.com/2026/07/27/world/middleeast/trump-netanyahu-relationship-iran.html
+
 **Mamdani’s Grocery Stores Will Offer 30 Percent Discount on Some Products**\
 `Mayor Zohran Mamdani’s five city-owned grocery stores will provide a 30 percent discount on produce, meat, bread and milk.`\
 https://www.nytimes.com/2026/07/27/nyregion/mamdani-grocery-stores-discount.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/26/world/middleeast/us-iran-war-pause.html
 **Extreme Heat and Strong Winds Fuel New Wildfires in France and Spain**\
 `Firefighters are tackling fresh blazes while others have been contained, and hundreds of thousands of people have been forced to flee. A new heat wave forecast to hit Europe could make conditions worse.`\
 https://www.nytimes.com/live/2026/07/26/world/france-spain-wildfires-evacutions
-
-**Europe Is Heating Up Again This Week. Here’s What to Know.**\
-`A new heat wave is forecast to hit the continent, piling the pressure on countries that are already fighting deadly wildfires that have forced hundreds of thousands to evacuate.`\
-https://www.nytimes.com/2026/07/26/weather/europe-heat-what-to-know.html
-
-**Trump Is Pushing Nuclear Energy, Including Saudi Deal. His Family and Supporters Could Benefit.**\
-`In some cases, no direct line can be drawn from the president’s domestic nuclear agenda to his family or close allies. But they have overlapping business ties that could position them for gains.`\
-https://www.nytimes.com/2026/07/26/us/politics/trump-nuclear-energy-agenda-saudi-deal.html
 
