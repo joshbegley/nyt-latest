@@ -1,3 +1,23 @@
+**Maine Democrats Have a New Working-Class Hero in Troy Jackson. Can He Deliver?**\
+`Troy Jackson, a former logger, faces the tall task of taking down Susan Collins.`\
+https://www.nytimes.com/2026/07/27/us/politics/troy-jackson-maine-senate-democrats.html
+
+**Chinese Start-Up Moonshot Details New A.I. Model**\
+`Moonshot said some users will have to get licenses to access its Kimi K3 model as the company threads a needle between sharing and profiting from its technology’s popularity.`\
+https://www.nytimes.com/2026/07/27/business/moonshot-kimi-k3-china-ai.html
+
+**India’s ‘Cockroach’ Moment**\
+`Narendra Modi caved to the demands of India’s young people — a nod to their real power.`\
+https://www.nytimes.com/2026/07/27/world/india-cockroach-protests-spain-france-fires.html
+
+**D4vd Murder Case May Go to Trial, Judge Rules**\
+`The decision capped a five-day preliminary hearing in which prosecutors detailed how and why they say the musician killed the 14-year-old Celeste Rivas Hernandez.`\
+https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
+
+**Seattle Police Search for 2nd Shooter in Sunday’s Deadly Attack**\
+`One 15-year-old suspect is in custody, but authorities said they were looking for a second shooter in the attack at a food festival that left three dead.`\
+https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
+
 **Heat Wave Threatens Further Wildfire Spread in France and Spain**\
 `The record wildfires, which have destroyed more than 200 homes and prompted large evacuations, could intensify with the arrival of a new heat wave.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/07/27/business/energy-environment/nuclear-power-pal
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011054825/27vid-bos-50014.html
-
-**Guyana Ferry Tragedy Exposes Political Rifts in Oil-Rich Country**\
-`The capsizing of a ferry was Guyana’s deadliest event since Jonestown in 1978. Many are asking how this could happen in one of the world’s fastest-growing economies.`\
-https://www.nytimes.com/2026/07/27/world/americas/guyana-ferry-accident-oil-economy.html
-
-**No Corrections: July 27, 2026**\
-`No corrections appeared in print on Monday, July 27, 2026.`\
-https://www.nytimes.com/2026/07/27/pageoneplus/no-corrections-july-27-2026.html
-
-**Corrections: July 25, 2026**\
-`Corrections that appeared in print on Saturday, July 25, 2026.`\
-https://www.nytimes.com/2026/07/27/pageoneplus/corrections-july-25-2026.html
-
-**The A.I. Debate That’s Driving a Wedge Through Big Tech**\
-`Investors and policymakers must contend with the competing camps that view open and closed artificial intelligence models as key to the sector’s future.`\
-https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
-
-**New Heat Wave Could Intensify Wildfires in France and Spain**\
-`Soaring temperatures in parts of France, Spain and Portugal could combine with dry conditions and strong winds to worsen the wildfire threat. It is the fourth heat wave to affect Europe since May.`\
-https://www.nytimes.com/2026/07/27/world/europe/heat-wave-forecast-france-spain-wildfires.html
 
