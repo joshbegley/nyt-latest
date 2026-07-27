@@ -1,3 +1,11 @@
+**A Setback for the MAGA Media Takeover**\
+`Trump is beatable if you take a page from his playbook and flood the zone with opposition.`\
+https://www.nytimes.com/2026/07/27/opinion/media-ellison-paramount.html
+
+**Trump Backs New Talks With Iran but Warns More Strikes Could Come**\
+`Iran denies offering to negotiate in return for a U.S. bombing pause. Prime Minister Benjamin Netanyahu of Israel visits the White House on Tuesday.`\
+https://www.nytimes.com/2026/07/27/us/politics/trump-iran-talks-negotiations.html
+
 **Trump Blames Affordability Problems on Biden in Michigan Speech**\
 `The president also assured supporters that negotiations over ending the war in Iran, a conflict that has sent fuel and energy prices soaring, are continuing in a “friendly” fashion.`\
 https://www.nytimes.com/2026/07/27/us/politics/trump-michigan-speech-tariffs.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/27/world/middleeast/saudi-arabia-drone-attacks-i
 **‘Purple Rain,’ Packed With Prince Songs, Plans Broadway Opening**\
 `The musical, set to begin previews next March, is an adaptation of the 1984 film about a musician whose talent is threatened by tumult at home and at the club.`\
 https://www.nytimes.com/2026/07/27/theater/prince-purple-rain-broadway.html
-
-**Nvidia Forms Alliance to Back Open-Source A.I. Amid Debate Over Safety**\
-`The company is continuing to back A.I. systems that can be freely used by others amid a continuing debate over the use of Chinese-made technology.`\
-https://www.nytimes.com/2026/07/27/technology/nvidia-open-source-ai.html
-
-**Today, In Short**\
-`Documentaries. Fidget toys. And chatbots.`\
-https://www.nytimes.com/2026/07/27/briefing/today-in-short.html
 
