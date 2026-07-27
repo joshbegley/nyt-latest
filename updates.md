@@ -1,3 +1,7 @@
+**No Corrections: July 27, 2026**\
+`No corrections appeared in print on Monday, July 27, 2026.`\
+https://www.nytimes.com/2026/07/27/pageoneplus/no-corrections-july-27-2026.html
+
 **Corrections: July 25, 2026**\
 `Corrections that appeared in print on Saturday, July 25, 2026.`\
 https://www.nytimes.com/2026/07/27/pageoneplus/corrections-july-25-2026.html
