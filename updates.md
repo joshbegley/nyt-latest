@@ -1,3 +1,11 @@
+**Betye Saar, Artist Who Upended Black Stereotypes, Dies at 99**\
+`Working with dolls, family photographs, fabric scraps and other found objects, she became a leading figure in assemblage art.`\
+https://www.nytimes.com/2026/07/27/arts/design/betye-saar-dead.html
+
+**D4vd Murder Case Can Go to Trial, Judge Rules**\
+`The decision capped a five-day preliminary hearing in which prosecutors detailed how and why they say the musician killed the 14-year-old Celeste Rivas Hernandez.`\
+https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
+
 **Trump Asks Supreme Court to Allow Order Restricting Mail Voting**\
 `The Trump administration asks justices to intervene after an appeals court blocked key parts of a mail-in voting executive order.`\
 https://www.nytimes.com/2026/07/27/us/politics/supreme-court-trump-mail-ballots.html

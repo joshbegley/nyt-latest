@@ -1,3 +1,11 @@
+**‘Tell Us Where to Look,’ Savannah Guthrie Pleads 6 Months Into Search**\
+`The “Today” show host spoke directly to her mother’s apparent abductor in a new video.`\
+https://www.nytimes.com/2026/07/27/us/savannah-guthrie-nancy-video.html
+
+**Savannah Guthrie Asks Kidnappers to ‘Do the Right Thing’**\
+`A few days shy of the sixth-month anniversary of her mother’s disappearance, Savannah Guthrie, the NBC “Today” show anchor, posted a new message to Instagram, urging whoever is responsible for the kidnapping to provide information on where she is.`\
+https://www.nytimes.com/video/us/100000011055628/savannah-guthrie-kidnappers-video.html
+
 **Betye Saar, Artist Who Upended Black Stereotypes, Dies at 99**\
 `Working with dolls, family photographs, fabric scraps and other found objects, she became a leading figure in assemblage art.`\
 https://www.nytimes.com/2026/07/27/arts/design/betye-saar-dead.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/interactive/2026/07/27/espanol/huracan-genevieve-mapa
 **Maps: Tracking Tropical Storm Dolphin**\
 `See the likely path and wind arrival times for Dolphin`\
 https://www.nytimes.com/interactive/2026/07/27/weather/dolphin-map-path-tracker.html
-
-**Even China’s A.I. Powerhouses Can’t Figure Out How to Profit Off A.I.**\
-`Chinese A.I. models are gaining ground. But the companies behind them do not have a clear strategy to make money from that success.`\
-https://www.nytimes.com/2026/07/27/business/china-ai-alibaba-bytedance.html
-
-**Should We Make Daylight Saving Time Permanent?**\
-`More light at the day’s end comes at a price: much later winter sunrises across much of the U.S. Scientists have documented consequences for public health and the economy.`\
-https://www.nytimes.com/2026/07/27/science/daylight-saving-time-health-safety.html
 
