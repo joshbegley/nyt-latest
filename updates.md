@@ -1,3 +1,7 @@
+**Israel and the Genocide Accusation**\
+`Readers take issue with a Holocaust scholar’s contention that Israel is guilty of genocide.`\
+https://www.nytimes.com/2026/07/27/opinion/letters/israel-genocide-accusation.html
+
 **Una nueva ola de calor podría intensificar los incendios en España y Francia**\
 `Las altas temperaturas en partes de Francia, España y Portugal podrían combinarse con condiciones secas y fuertes vientos que empeorarían la amenaza de incendios forestales. Es la cuarta ola de calor que afecta a Europa desde mayo.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/cupula-calor-incendios-espana-europa.html
