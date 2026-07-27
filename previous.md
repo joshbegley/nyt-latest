@@ -1,3 +1,7 @@
+**Iran War Enters 6th Month and a Period of Greater Uncertainty**\
+`Here is a rundown of the major events of the war, as both sides consider their next moves.`\
+https://www.nytimes.com/2026/07/27/us/politics/iran-war-timeline.html
+
 **Cómo los hutíes arrinconaron a Arabia Saudita en una nueva batalla**\
 `Los hutíes, respaldados por Irán, han aprovechado un momento vulnerable para Arabia Saudita, que se muestra reacia a entrar en otra guerra, para intentar forzar concesiones políticas en Yemen.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/guerra-iran-huties-arabia-saudita-trump.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/07/27/us/david-huerta-charges-dismiss-la-immigratio
 `The filing focused on the question of whether a photograph of seashells arranged to read “86 47” constituted a true threat under federal law.`\
 https://www.nytimes.com/2026/07/27/us/politics/comey-seeks-dismissal-of-charges.html
 
-**In France, Some of Europe’s Aerospace Leaders Are in the Path of the Fire**\
+**Wildfires in France Threaten Plants With Hazardous Material and Advanced Technology**\
 `The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanche
 **Carly Simon Reveals She Has Parkinson’s Disease**\
 `The singer-songwriter, 83, has also had surgery to treat basal cell carcinoma on her face, making her “self-conscious about being seen in public,” she said.`\
 https://www.nytimes.com/2026/07/27/arts/music/carly-simon-parkinsons.html
-
-**Heat From France’s Wildfires Creates a ‘Fire Cloud,’ or Pyrocumulonimbus**\
-`A pyrocumulonimbus — a thundercloud created by intense heat — is a phenomenon that can spark new blazes and is “unprecedented in France,” officials said.`\
-https://www.nytimes.com/2026/07/27/world/europe/pyrocumulonimbus-fire-cloud-france-wildfires.html
 

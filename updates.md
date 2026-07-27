@@ -1,3 +1,11 @@
+**Iran War Enters 6th Month and a Period of Greater Uncertainty**\
+`Here is a rundown of the major events of the war, as both sides consider their next moves.`\
+https://www.nytimes.com/2026/07/27/us/politics/iran-war-timeline.html
+
+**Wildfires in France Threaten Plants With Hazardous Material and Advanced Technology**\
+`The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
+https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html
+
 **Cómo los hutíes arrinconaron a Arabia Saudita en una nueva batalla**\
 `Los hutíes, respaldados por Irán, han aprovechado un momento vulnerable para Arabia Saudita, que se muestra reacia a entrar en otra guerra, para intentar forzar concesiones políticas en Yemen.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/guerra-iran-huties-arabia-saudita-trump.html
