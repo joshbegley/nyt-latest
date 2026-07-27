@@ -1,3 +1,11 @@
+**Heat Wave Threatens Further Wildfire Spread in France and Spain**\
+`The record wildfires, which have destroyed more than 200 homes and prompted large evacuations, could intensify with the arrival of a new heat wave.`\
+https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
+
+**Apple Regains Spot Over Nvidia as Most Valuable Public Company**\
+`The company slipped by the chipmaker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
+https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
+
 **Apple Regains Spot Over Nvidia as Most Valuable Public Company**\
 `The company slipped by the chip maker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
