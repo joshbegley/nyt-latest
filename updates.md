@@ -1,3 +1,11 @@
+**‘House of the Dragon’ Season 3, Episode 6 Recap: Mistakes Were Made**\
+`It’s one thing to inherit a throne. It’s quite another to rule from it.`\
+https://www.nytimes.com/2026/07/26/arts/television/house-of-the-dragon-recap-season-3-episode-6.html
+
+**‘House of the Dragon’: Fabien Frankel on One of Ser Criston’s Happiest Moments**\
+`This week’s episode was a pivotal moment in the Kingmaker’s long and tortured journey. According to the actor who plays him, it was also a highlight.`\
+https://www.nytimes.com/2026/07/26/arts/television/house-of-the-dragon-fabien-frankel-criston-cole.html
+
 **Pentagon Changes How It Reports Casualties in Iran War**\
 `The changes separated the casualty numbers into two separate web pages, potentially making it more difficult to tally the war’s full toll.`\
 https://www.nytimes.com/2026/07/26/us/politics/pentagon-casualties-iran-war.html

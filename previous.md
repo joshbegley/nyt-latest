@@ -1,3 +1,11 @@
+**‘House of the Dragon’ Season 3, Episode 6 Recap: Mistakes Were Made**\
+`It’s one thing to inherit a throne. It’s quite another to rule from it.`\
+https://www.nytimes.com/2026/07/26/arts/television/house-of-the-dragon-recap-season-3-episode-6.html
+
+**‘House of the Dragon’: Fabien Frankel on One of Ser Criston’s Happiest Moments**\
+`This week’s episode was a pivotal moment in the Kingmaker’s long and tortured journey. According to the actor who plays him, it was also a highlight.`\
+https://www.nytimes.com/2026/07/26/arts/television/house-of-the-dragon-fabien-frankel-criston-cole.html
+
 **Pentagon Changes How It Reports Casualties in Iran War**\
 `The changes separated the casualty numbers into two separate web pages, potentially making it more difficult to tally the war’s full toll.`\
 https://www.nytimes.com/2026/07/26/us/politics/pentagon-casualties-iran-war.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/26/style/squishy-fidget-toys-trading.html
 **Ready for Your Netflix Documentary? This TikTok Trend Prepares Users to Tell All.**\
 `That toxic former workplace, that unsavory group chat: TikTok and Instagram users are imagining moments in their life that might lead to sit-down dramatic interviews.`\
 https://www.nytimes.com/2026/07/26/style/netflix-documentary-tiktok-trend.html
-
-**Comedy and Tragedy Are a Potent Mix in Alison Espach’s Hit Novels**\
-`Two years and 500,000 hardcover sales later, Alison Espach’s novel comes out in paperback this week. It’s a book she didn’t want to write.`\
-https://www.nytimes.com/2026/07/26/books/review/the-wedding-people-alison-espach.html
-
-**An Admiral’s Rise Reveals the Politics Driving Hegseth’s Pentagon**\
-`Before he was picked to lead the Navy, Adm. Daryl Caudle found ways to signal his support for Defense Secretary Pete Hegseth’s anti-diversity goals.`\
-https://www.nytimes.com/2026/07/26/us/politics/caudle-navy-hegseth-parlatore-promotion.html
 
