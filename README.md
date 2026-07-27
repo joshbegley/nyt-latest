@@ -1,3 +1,15 @@
+**Review: Handel’s ‘Tolomeo’ Comes to Caramoor**\
+`Philharmonia Baroque Orchestra came to Caramoor with Handel’s “Tolomeo,” a far-fetched opera seria with a lively score.`\
+https://www.nytimes.com/2026/07/27/arts/music/handel-tolomeo-caramoor.html
+
+**Read Bryan Kohberger’s Statement About Abandoning His Guilty Plea**\
+`Bryan Kohberger, who pleaded guilty last year to killing four University of Idaho students, said he wants to withdraw his confession and reopen the case. Mr. Kohberger sent a statement to The New York Times by way of his family.`\
+https://www.nytimes.com/interactive/2026/07/27/us/bryan-kohberger-statement.html
+
+**Bryan Kohberger, Convicted in Idaho College Killings, Seeks to Take Back Guilty Plea**\
+`In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on ‘false promises’ and wrong information.`\
+https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
+
 **In France, Some Residents and Farmers Help Firefighters to Contain Blazes**\
 `People described using water tanks and tractors to hold back flames in the worst-affected areas of southwestern France.`\
 https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/27/us/alexander-kolodin-election-denial-arizona.
 **Cinephiles Trek to NYC’s AMC Lincoln Square to See ‘Odyssey’ in IMAX 70-mm. at 2 a.m.**\
 `Demand is high for the blockbuster at the IMAX 70-mm. theater in New York City, the largest in the United States, prompting additional screenings at 2 and 6 a.m. That hasn’t deterred audiences from coming.`\
 https://www.nytimes.com/2026/07/27/style/odyssey-lincoln-square-amc.html
-
-**Democratic Socialist Francesca Hong Rises in Crowded Wisconsin Governor Race**\
-`Democrats must decide what brand to put forward: an establishment name or a candidate on the left who has garnered excitement.`\
-https://www.nytimes.com/2026/07/27/us/wisconsin-governor-democratic-primary.html
-
-**She Got an Apartment in Queens, Thanks to a Benevolent Aunt**\
-`Her longtime dream to try to live in New York became possible through her family’s generosity. She gave herself six months to find a job and keep the dream going.`\
-https://www.nytimes.com/2026/07/27/realestate/renters-queens-artist.html
-
-**They Bought a Piece of Old New York, Then Gave It a Contemporary Spin**\
-`A creative couple wanted a New York City apartment that felt like home and found it in the Hotel des Artistes.`\
-https://www.nytimes.com/2026/07/27/realestate/mcalpine-hotel-des-artistes-new-york-apartment-renovation.html
 
