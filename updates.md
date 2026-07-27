@@ -1,3 +1,11 @@
+**Iran War Forces Energy Buyers to ‘Unshackle’ From Global Markets**\
+`Developing Asian nations, scarred by Middle East supply shocks, are working to scale back their reliance on imported fuels, including liquefied natural gas.`\
+https://www.nytimes.com/2026/07/27/business/natural-gas-lng-asia-exposure.html
+
+****\
+`People appeared to take shelter in the gift shop of the Space Needle at Seattle Center after the incident.`\
+https://www.nytimes.com/video/embedded/us/100000011054386/26vid-xp-seattle-15414.html
+
 **At Least 2 Killed in Shooting at Food Festival in Seattle**\
 `At least five others were injured during the shooting near the city’s Space Needle, the authorities said. No information about a suspect or a potential motive was immediately available.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
