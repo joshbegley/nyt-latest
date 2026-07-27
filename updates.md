@@ -1,3 +1,7 @@
+**Merz Criticizes Terrorism Laws After Deadly Berlin Pride Attack**\
+`Chancellor Friedrich Merz of Germany called for tighter monitoring after the authorities said the suspect in the assault had tried to join ISIS and was released from detention in May.`\
+https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
+
 **No Corrections: July 27, 2026**\
 `No corrections appeared in print on Monday, July 27, 2026.`\
 https://www.nytimes.com/2026/07/27/pageoneplus/no-corrections-july-27-2026.html

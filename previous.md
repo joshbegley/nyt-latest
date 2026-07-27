@@ -74,8 +74,8 @@ https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-wa
 `In a sobering new book, Annie Jacobsen considers the potentially civilization-ending impacts of biological war.`\
 https://www.nytimes.com/2026/07/27/books/review/biological-war-annie-jacobsen.html
 
-**Berlin Pride Attack Suspect Tried to Join ISIS, Prosecutors Say**\
-`The man was sentenced to prison for preparing a serious act of violence against the state but released from detention in May.`\
+**Merz Criticizes Terrorism Laws After Deadly Berlin Pride Attack**\
+`Chancellor Friedrich Merz of Germany called for tighter monitoring after the authorities said the suspect in the assault had tried to join ISIS and was released from detention in May.`\
 https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
 
 **Sin petróleo, Cuba se las arregla para sobrevivir**\
