@@ -1,3 +1,7 @@
+**Israel and the Genocide Accusation**\
+`Readers take issue with a Holocaust scholar’s contention that Israel is guilty of genocide.`\
+https://www.nytimes.com/2026/07/27/opinion/letters/israel-genocide-accusation.html
+
 **Una nueva ola de calor podría intensificar los incendios en España y Francia**\
 `Las altas temperaturas en partes de Francia, España y Portugal podrían combinarse con condiciones secas y fuertes vientos que empeorarían la amenaza de incendios forestales. Es la cuarta ola de calor que afecta a Europa desde mayo.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/cupula-calor-incendios-espana-europa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis
 **Sin petróleo, Cuba se las arregla para sobrevivir**\
 `El presidente Donald Trump ha intentado asfixiar a Cuba bloqueando sus importaciones de petróleo. Pero seis meses después, la isla está encontrando maneras de resistir.`\
 https://www.nytimes.com/es/2026/07/27/espanol/america-latina/cuba-bloqueo-petroleo-eeuu.html
-
-**Election Denier Alexander Kolodin Seeks to Run Arizona’s Elections as Secretary of State**\
-`Arizona G.O.P. voters nominated Alexander Kolodin for secretary of state, despite, or perhaps because of, election denial efforts that earned him an admonition from the state bar association.`\
-https://www.nytimes.com/2026/07/27/us/alexander-kolodin-election-denial-arizona.html
 
