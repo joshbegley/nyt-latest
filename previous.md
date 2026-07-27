@@ -1,3 +1,7 @@
+**Cracker Barrel Chief Executive Who Oversaw Logo Change Steps Down**\
+`Julie Masino faced backlash online when the company tried to shed its old-timey image. David Deno, a former chief of Bloomin’ Brands, will take over.`\
+https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
+
 **Man Dies After Being Struck by a Falling Rock at Glacier National Park**\
 `The man had been driving this month on a popular route through the park when a rock dislodged from a cliff face and struck his vehicle. Such fatal episodes are rare, officials said.`\
 https://www.nytimes.com/2026/07/27/us/rock-fall-death-glacier-national-park.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/07/27/crosswords/wordle-review-1865.html
 **NYT Strands Hints for July 28, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
 https://www.nytimes.com/2026/07/27/crosswords/strands-sidekick-877.html
-
-**NYT Connections Answers for July 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
-https://www.nytimes.com/2026/07/27/crosswords/connections-companion-1143.html
-
-**How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
-`The Iran-backed Houthi militia in Yemen has seized on a vulnerable moment for neighboring Saudi Arabia, which does not want another war. The group hopes to force political concessions in Yemen that could give it more authority and more access to resources.`\
-https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html
 

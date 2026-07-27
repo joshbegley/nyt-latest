@@ -1,3 +1,7 @@
+**Cracker Barrel Chief Executive Who Oversaw Logo Change Steps Down**\
+`Julie Masino faced backlash online when the company tried to shed its old-timey image. David Deno, a former chief of Bloomin’ Brands, will take over.`\
+https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
+
 **Man Dies After Being Struck by a Falling Rock at Glacier National Park**\
 `The man had been driving this month on a popular route through the park when a rock dislodged from a cliff face and struck his vehicle. Such fatal episodes are rare, officials said.`\
 https://www.nytimes.com/2026/07/27/us/rock-fall-death-glacier-national-park.html
