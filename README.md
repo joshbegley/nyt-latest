@@ -1,3 +1,119 @@
+**Election Denier Alexander Kolodin Seeks to Run Arizona’s Elections as Secretary of State**\
+`Arizona G.O.P. voters nominated Alexander Kolodin for secretary of state, despite, or perhaps because of, election denial efforts that earned him an admonition from the state bar association.`\
+https://www.nytimes.com/2026/07/27/us/alexander-kolodin-election-denial-arizona.html
+
+**An All-Night ‘Odyssey’ in IMAX 70-Millimeter Film at New York’s AMC Lincoln Square**\
+`Demand is high for the blockbuster at the IMAX 70-mm. theater in New York City, the largest in the United States, prompting additional screenings at 2 and 6 a.m. That hasn’t deterred audiences from coming.`\
+https://www.nytimes.com/2026/07/27/style/odyssey-lincoln-square-amc.html
+
+**Democratic Socialist Francesca Hong Rises in Crowded Wisconsin Governor Race**\
+`Democrats must decide what brand to put forward: an establishment name or a candidate on the left who has garnered excitement.`\
+https://www.nytimes.com/2026/07/27/us/wisconsin-governor-democratic-primary.html
+
+**She Got an Apartment in Queens, Thanks to a Benevolent Aunt**\
+`Her longtime dream to try to live in New York became possible through her family’s generosity. She gave herself six months to find a job and keep the dream going.`\
+https://www.nytimes.com/2026/07/27/realestate/renters-queens-artist.html
+
+**They Bought a Piece of Old New York, Then Gave It a Contemporary Spin**\
+`A creative couple wanted a New York City apartment that felt like home and found it in the Hotel des Artistes.`\
+https://www.nytimes.com/2026/07/27/realestate/mcalpine-hotel-des-artistes-new-york-apartment-renovation.html
+
+**‘A Chorus Line’ at 50-ish: Seeing Through Perfection to the Pain**\
+`A new production at Barrington Stage Company reminds us of how the “singular sensation” changed our relationship to performance.`\
+https://www.nytimes.com/2026/07/27/theater/chorus-line-barrington-stage.html
+
+**5 New Hotels in Vintage Buildings**\
+`From a restored warehouse in Seattle to a former prison in Nara, Japan, these accommodations offer intriguing surroundings with modern comforts.`\
+https://www.nytimes.com/2026/07/27/travel/new-hotels-historical-buildings.html
+
+**How a Social Worker Lives on $40,000 a Year in Brooklyn**\
+`At age 63, Everette Green is considering how to afford a future he never thought he would get after being incarcerated.`\
+https://www.nytimes.com/interactive/2026/07/27/nyregion/nyc-budgeting-affordability-green.html
+
+**Congress Budgeted Billions for Big Transit Projects. Trump Isn’t Spending It.**\
+`“It’s hard to look at the last year and see anything other than a deliberate slowdown of these grants.”`\
+https://www.nytimes.com/2026/07/27/upshot/transit-projects-trump.html
+
+**Can a Progressive Win in a Purple State? Abdul El-Sayed Wants to Find Out.**\
+`Michigan’s Aug. 4 primary is a critical front in the fight between Democrats’ progressive and moderate flanks and a preview of the 2028 presidential primary.`\
+https://www.nytimes.com/2026/07/27/us/politics/el-sayed-michigan-senate.html
+
+**How a Novelist of the American Past Recovered His Faith in Its Future**\
+`Colson Whitehead’s Harlem trilogy turns away from the pessimism of his recent novels to offer a more hopeful vision for Black history.`\
+https://www.nytimes.com/2026/07/27/magazine/colson-whitehead-black-history.html
+
+**If You Think ICE Detention is Bad Now, Privatization Will Make It Worse**\
+`The Trump administration has a housing problem.`\
+https://www.nytimes.com/2026/07/27/opinion/ice-immigration-detention-privatization.html
+
+**What the Democratic Socialists Want in New York**\
+`Fresh off Zohran Mamdani’s triumph and recent primary victories, the Democratic Socialists of America has an ambitious policy agenda. Gov. Kathy Hochul, a Democrat, is unlikely to cooperate.`\
+https://www.nytimes.com/2026/07/27/nyregion/what-the-democratic-socialists-want-in-new-york.html
+
+**Adam Driver Sells a Brooklyn Condo and Buys Three More**\
+`The actor found a buyer for his loft-style apartment, and reportedly bought three units nearby, and Helen Mirren relisted her Los Angeles estate.`\
+https://www.nytimes.com/2026/07/27/realestate/adam-driver-helen-mirren-celebrity-home-sales.html
+
+**Mina the Hollower Pays Homage to the Game Boy**\
+`Mina the Hollower draws inspiration from “The Secret of NIMH,” Victorian literature and 1990s role-playing games.`\
+https://www.nytimes.com/2026/07/27/arts/mina-hollower-review.html
+
+**Cuba, Lacking Fuel, Relies on Ingenuity to Defy Trump’s Blockade**\
+`President Trump has tried to strangle Cuba by blocking its oil imports. But six months later, the island is finding ways to endure.`\
+https://www.nytimes.com/2026/07/27/world/americas/trump-oil-gas-cuba-havana.html
+
+**The Real Reason I Was Looksmaxxing in Midlife: Grief**\
+`When you’re older than your mother was when she died, every gray hair and line cuts deep.`\
+https://www.nytimes.com/2026/07/27/well/looksmaxxing-grief-self-care.html
+
+**As New York City Ballet’s Shoe Colorist, Tim Foster Brings a Niche and Needed Craft**\
+`Tim Foster is a shoe colorist for New York City Ballet, an unexpected but, thanks to a new documentary, no longer unsung hero who practices a delicate, painstaking art.`\
+https://www.nytimes.com/2026/07/27/arts/dance/nyc-ballet-tim-foster-pointe-shoes.html
+
+**Ukrainian Attacks in Crimea Deprive Towns of Power and Water**\
+`Ukraine’s campaign to bring the war home to ordinary Russians is meant to pressure the Kremlin to negotiate. Moscow has acted as if there were no crisis.`\
+https://www.nytimes.com/2026/07/27/world/europe/ukraine-drones-crimea-blackouts.html
+
+**Word of the Day: winsome**\
+`This word has appeared in 79 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/27/learning/word-of-the-day-winsome.html
+
+**Jeffries Kicks Off Midterm Sprint With Economic Pitch**\
+`Representative Hakeem Jeffries, the New York Democrat and minority leader, focused relentlessly on affordability in a swing district.`\
+https://www.nytimes.com/2026/07/27/us/politics/jeffries-democrats-midterms-affordability.html
+
+**Tres líderes mundiales distintos. Tres decisiones increíblemente malas**\
+`Las fantasías de soluciones rápidas de los hombres fuertes del mundo.`\
+https://www.nytimes.com/es/2026/07/27/espanol/opinion/trump-netanyahu-putin-guerras.html
+
+**Ejercicio, café y comunidad: ¿qué son los espacios de sobriedad?**\
+`En el tratamiento de las adicciones, hay un modelo en crecimiento para mantener la abstinencia y combatir la soledad de la recuperación.`\
+https://www.nytimes.com/es/2026/07/27/espanol/estilos-de-vida/adiccion-sobriedad-abstinencia.html
+
+**Costco or Whole Foods? Grocery Stores are Symbols of Identity**\
+`Our grocery stores mirror the mess of America.`\
+https://www.nytimes.com/2026/07/27/opinion/grocery-stores-politics.html
+
+**The Fed’s New Chairman Faces His Biggest Test Yet**\
+`Kevin M. Warsh, who has said the Federal Reserve has “no tolerance” for elevated inflation, must decide whether he wants to push for an interest-rate increase at this week’s policy meeting.`\
+https://www.nytimes.com/2026/07/27/business/the-feds-new-chairman-faces-his-biggest-test-yet.html
+
+**Trump Gutted the Kennedy Center. A Tour Guide Wants You to See It Anyway.**\
+`In a dogged demonstration of love for a Washington institution, Sandy Weiswasser is among a few dozen volunteers still showing dwindling visitors a hollowed-out building.`\
+https://www.nytimes.com/2026/07/27/us/politics/kennedy-center-trump.html
+
+**Christopher Nolan’s ‘Odyssey’ Has a Circe Problem**\
+`One of the fascinating women of early literature, Circe becomes a simple witch in Christopher Nolan’s blockbuster.`\
+https://www.nytimes.com/2026/07/27/movies/the-odyssey-circe.html
+
+**5 Things to Know About Meta’s Giant Data Center in Louisiana**\
+`The road to the giant project was paved with secret meetings and an ever-expanding building plan.`\
+https://www.nytimes.com/2026/07/27/business/5-things-to-know-about-metas-giant-data-center-in-louisiana.html
+
+**What’s the Worst Thing Trump Can Do in the Midterms?**\
+`President Trump could accomplish on Jan. 3, 2027, what he failed to do on Jan. 6. 2021.`\
+https://www.nytimes.com/2026/07/27/opinion/trump-midterms-worst.html
+
 **‘Why Isn’t Dad at Home?’: The Books Helping Ukrainian Children Process the War**\
 `A surge of books in Ukraine since the war began has aimed to help children and their parents cope with trauma.`\
 https://www.nytimes.com/interactive/2026/07/27/world/europe/ukr-childrens-books.html
@@ -81,120 +197,4 @@ https://www.nytimes.com/video/embedded/us/100000011054386/26vid-xp-seattle-15414
 **At Least 3 Killed in Shooting at Food Festival in Seattle**\
 `Four others were injured during the shooting near the city’s Space Needle, the authorities said. The police were searching for one suspect and had taken another into custody.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
-
-**‘House of the Dragon’ Season 3, Episode 6 Recap: Mistakes Were Made**\
-`It’s one thing to inherit a throne. It’s quite another to rule from it.`\
-https://www.nytimes.com/2026/07/26/arts/television/house-of-the-dragon-recap-season-3-episode-6.html
-
-**‘House of the Dragon’: Fabien Frankel on One of Ser Criston’s Happiest Moments**\
-`This week’s episode was a pivotal moment in the Kingmaker’s long and tortured journey. According to the actor who plays him, it was also a highlight.`\
-https://www.nytimes.com/2026/07/26/arts/television/house-of-the-dragon-fabien-frankel-criston-cole.html
-
-**Pentagon Changes How It Reports Casualties in Iran War**\
-`The changes separated the casualty numbers into two separate web pages, potentially making it more difficult to tally the war’s full toll.`\
-https://www.nytimes.com/2026/07/26/us/politics/pentagon-casualties-iran-war.html
-
-**Secret Service Agent and 2 Others Charged in Near-Fatal Fraternity Hazing**\
-`A college fraternity member was paddled so severely during hazing rituals that he suffered kidney damage and nearly died.`\
-https://www.nytimes.com/2026/07/26/us/florida-secret-service-agent-fraternity-hazing.html
-
-**Oil Prices Drop After U.S. and Iran Pause Fighting for a Second Day**\
-`No strikes have been reported from either side since Friday, leaving oil investors optimistic about a resolution to the conflict.`\
-https://www.nytimes.com/2026/07/26/business/oil-prices-fall-iran-war.html
-
-**Extreme Heat and Strong Winds Fuel New Wildfires in Europe**\
-`Extreme heat and strong winds fueled new wildfires in France and Spain on Sunday. A heat wave is expected to hit Europe this week, which could make conditions worse.`\
-https://www.nytimes.com/video/world/europe/100000011054039/wildfires-extreme-heat-france-spain.html
-
-**Netanyahu Accuses Mamdani of ‘Hate Speech’ After Mayor’s Video Address**\
-`The Israeli prime minister criticized Mr. Mamdani for releasing a video last week in which the mayor called for the federal government to arrest Mr. Netanyahu for war crimes.`\
-https://www.nytimes.com/2026/07/26/nyregion/netanyahu-mamdani-fox-news.html
-
-**NYT Crossword Answers for July 27, 2026**\
-`Aidan Deshong casts about for answers.`\
-https://www.nytimes.com/2026/07/26/crosswords/daily-puzzle-2026-07-27.html
-
-**Officers Killed Man Who Attacked Berlin Pride Event, Authorities Say**\
-`The German authorities said that police officers had shot and killed the man suspected of killing one person and injuring 29 others at a gay Pride event in Berlin on Saturday.`\
-https://www.nytimes.com/video/world/europe/100000011053965/berlin-pride-parade-attack-suspect-dead.html
-
-**Flames Advance on Bordeaux, Where Evacuees Balance Dread and Hope**\
-`With surrounding towns in southwestern France evacuated and fire still spreading rapidly, several thousand are sheltering in the city, unsure what will become of their homes.`\
-https://www.nytimes.com/2026/07/26/world/europe/france-fires-bordeaux.html
-
-**Why Paramount Paused Its Blockbuster $111 Billion Deal for Warner Bros.**\
-`A flurry of negotiations last week cleared the way for an antitrust court battle with states that could determine the fate of the two iconic media giants.`\
-https://www.nytimes.com/2026/07/26/business/paramount-warner-bros-deal-pause.html
-
-**A South African Identity Crisis**\
-`Anti-immigrant activism reveals the contradictions of a country that projects itself as a bastion of human rights.`\
-https://www.nytimes.com/2026/07/26/world/south-africa-identity-crisis-wildfires.html
-
-**The Indian Diaspora in New York Joins the ‘Cockroach Party’ Protests**\
-`Hundreds of Indians abroad gathered in Manhattan to support the Gen Z-led movement that rocked the Indian government and led to the resignation of its education minister.`\
-https://www.nytimes.com/2026/07/26/nyregion/indians-nyc-cockroach-party-protests.html
-
-**Man Convicted of Shoving Flaming Car Into Gully, Igniting Giant Wildfire**\
-`The 2024 fire in Northern California was one of the state’s largest wildfires ever. The man faces a prison sentence of 25 years to life.`\
-https://www.nytimes.com/2026/07/26/us/man-convicted-arson-park-fire-california.html
-
-**Seattle Police Search for 2 Men Who Parachuted From the Space Needle**\
-`The men face criminal trespassing charges after they climbed over the glass wall of the observation deck of the city landmark and jumped from the ledge Friday evening.`\
-https://www.nytimes.com/2026/07/26/us/seattle-space-needle-base-jumpers.html
-
-**A 12-Year-Old Went to Buy a Ball. He Was Killed by a Stray Bullet.**\
-`Jacob Freytes, the son of a retired detective sergeant, died near his Bronx home after he was struck by the bullet from a gun fired during a brawl, law enforcement officials said.`\
-https://www.nytimes.com/2026/07/26/nyregion/boy-killed-bronx-shooting-arrest.html
-
-**Brasil niega las visas a funcionarios de EE. UU. que buscaban cuestionar el sistema electoral**\
-`En la solicitud de visa, los funcionarios de EE. UU. dijeron que planeaban reunirse con autoridades electorales para hablar sobre los sistemas de votación de Brasil.`\
-https://www.nytimes.com/es/2026/07/26/espanol/mundo/brasil-eeuu-elecciones.html
-
-**Forced to Evacuate Amid Spain Wildfires, Residents Wonder if Their Homes Still Stand**\
-`In central Spain, thousands of people sleep in shelters or in their cars, some of them evacuated multiple times ahead of the advancing flames, awaiting word on what they left behind.`\
-https://www.nytimes.com/2026/07/26/world/europe/spain-fires-evacuees-voices.html
-
-**Maps: Tracking Hurricane Genevieve**\
-`See the likely path and wind arrival times for Genevieve`\
-https://www.nytimes.com/interactive/2026/07/26/weather/genevieve-map-path-tracker.html
-
-**My Piece-of-Cake Cake**\
-`The most adaptable one-bowl cornmeal pound cake lives up to its name, with five stars and hundreds of happy reader notes.`\
-https://www.nytimes.com/2026/07/26/dining/my-piece-of-cake-cake.html
-
-**Paul Andrews, Founder of the Woodstock of U.F.O.s, Dies at 77**\
-`An annual convention in the California desert offered a safe space for believers to discuss extraterrestrial encounters, crop circles and other paranormal phenomena.`\
-https://www.nytimes.com/2026/07/26/us/paul-andrews-dead.html
-
-**These Nuns Wake Up at Midnight to Pray for New Moms**\
-`As empathy becomes politicized, these women are practicing it in the extreme.`\
-https://www.nytimes.com/2026/07/26/briefing/norbertine-nuns-california.html
-
-**Berlin Pride Attack: What We Know About the Suspected Act of Terrorism**\
-`German authorities said the main suspect in the crime, which they called a likely act of terrorism, had been killed in a police raid on Sunday evening.`\
-https://www.nytimes.com/2026/07/26/world/europe/berlin-pride-car-attack.html
-
-**Some Like It Hot, and Then Cold**\
-`Five of my favorite quick, easy dinners that turn into no-reheating-needed lunches.`\
-https://www.nytimes.com/2026/07/26/dining/some-like-it-hot-and-then-cold.html
-
-**‘The Odyssey’ Gives Us the Hero We Deserve**\
-`Christopher Nolan’s Odysseus is a halfway hero: he wrestles with the problems he creates. That makes him a perfect figure for our modern moment.`\
-https://www.nytimes.com/2026/07/26/opinion/odysseus-christopher-nolan.html
-
-**Democrats and the Fear of Socialism**\
-`Readers respond to “Socialism? Capitalism? Who Cares!,” an Opinion guest essay by E.J. Dionne Jr.`\
-https://www.nytimes.com/2026/07/26/opinion/democrats-socialism.html
-
-**The Accidental Hero Who Faced Down India’s Government**\
-`Abhijeet Dipke founded the Cockroach Janta Party as a joke after a judge insulted young people. The idea snowballed into a generational movement that has challenged the country’s leaders.`\
-https://www.nytimes.com/2026/07/26/world/asia/india-protests-cockroach-janta-party-abhijeet-dipke.html
-
-**Imitation Game**\
-`A look at how chatbot answer subjective questions.`\
-https://www.nytimes.com/2026/07/26/briefing/chatbots-answer-questions.html
-
-**Why ‘Your Friends & Neighbors’ Should Win the Best Drama Emmy**\
-`Do only creeps or chumps still believe in the American dream?`\
-https://www.nytimes.com/2026/07/26/opinion/your-friends-and-neighbors-apple-tv.html
 

@@ -1,3 +1,51 @@
+**‘Why Isn’t Dad at Home?’: The Books Helping Ukrainian Children Process the War**\
+`A surge of books in Ukraine since the war began has aimed to help children and their parents cope with trauma.`\
+https://www.nytimes.com/interactive/2026/07/27/world/europe/ukr-childrens-books.html
+
+**How Cubans Are Surviving a Fuel Crisis**\
+`Cubans are inventing ways to survive without fuel or electricity, using solar panels, makeshift generators and batteries to endure a devastating oil blockade imposed by the Trump administration.`\
+https://www.nytimes.com/video/world/americas/100000011024495/cuba-power-crisis-oil-solutions.html
+
+**Paramount is Betting Johnny Depp Can Make a Comeback With ‘Ebenezer: A Christmas Carol’**\
+`Paramount is betting that audiences will re-embrace the star a decade after allegations of domestic abuse and a defamation trial.`\
+https://www.nytimes.com/2026/07/27/movies/johnny-depp-ebenezer-a-christmas-carol-paramount.html
+
+**Want a Better Food System? Use the Anti-Tobacco Playbook.**\
+`A teenager’s lawsuit against the food industry shows us the path to a better food system.`\
+https://www.nytimes.com/2026/07/27/opinion/ultraprocessed-food-lawsuit.html
+
+**How to Keep a Travel Journal**\
+`A travel journal can be a great way to evoke specific details and memories from a trip. Here are some tips on how to lower the barrier to entry and to stay organized.`\
+https://www.nytimes.com/2026/07/27/travel/travel-journal-tips-recommendations.html
+
+**What Does ‘Semiformal’ Mean Today?**\
+`A reader searches for clarity on a party dress code.`\
+https://www.nytimes.com/2026/07/27/fashion/semiformal-dress-code-definition.html
+
+**How Meta Got Everything It Wanted in a Secret Louisiana Data Center Deal**\
+`A Times examination details how the Silicon Valley giant used private talks with local officials to start a project big enough to cover nearly six square miles.`\
+https://www.nytimes.com/2026/07/27/technology/meta-data-center-louisiana.html
+
+**How To Protect Our Lead in the A.I Race**\
+`America has produced its own kind of Sputnik. We should not squander it.`\
+https://www.nytimes.com/2026/07/27/opinion/chips-ai-china-trump.html
+
+**A 20-Minute Agility Ladder Workout**\
+`Try these moves to stay agile as you age.`\
+https://www.nytimes.com/2026/07/27/well/move/agility-ladder-workout-balance.html
+
+**Wildfires Live Updates: Spain and France Face Extreme Heat as Flames Rage**\
+`Spain was fighting a worsening blaze in the country’s east on Monday, compounding a crisis that has forced hundreds of thousands to evacuate in central Spain and southwest France.`\
+https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions
+
+**In Washington, Netanyahu Faces a Delicate Balancing Act**\
+`Prime Minister Benjamin Netanyahu of Israel is set to meet President Trump on Tuesday, with one eye on Iran and another on the coming elections back home.`\
+https://www.nytimes.com/2026/07/27/world/middleeast/trump-netanyahu-relationship-iran.html
+
+**Oil Prices Drop After U.S. and Iran Pause Fighting for a Second Day**\
+`No strikes have been reported from either side since Friday, leaving oil investors optimistic about a resolution to the conflict.`\
+https://www.nytimes.com/2026/07/26/business/oil-prices-fall-iran-war.html
+
 **At Least 3 Killed in Shooting at Food Festival in Seattle**\
 `Four others were injured during the shooting near the city’s Space Needle, the authorities said. The police were searching for one suspect and had taken another into custody.`\
 https://www.nytimes.com/2026/07/26/us/bite-of-seattle-shooting-center.html
