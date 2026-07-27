@@ -1,5 +1,13 @@
+**Un naufragio en Guyana cobra 100 vidas y exhibe los problemas políticos del auge petrolero**\
+`El hundimiento del ferri, en operación desde 1939, generó cuestionamientos sobre la gestión política de una de las economías de más rápido crecimiento del mundo.`\
+https://www.nytimes.com/es/2026/07/27/espanol/america-latina/guyana-ferri-naufragio-petroleo.html
+
+**Quiz: Find the Right Style of Sunglasses for Your Personality**\
+`Statement shades are the accessory of the moment. Take T’s quiz to find the ones that best suit your personality.`\
+https://www.nytimes.com/2026/07/27/t-magazine/best-sunglasses-personality-quiz.html
+
 **Bill McGlaughlin, Who Unlocked Classical Music for Many, Dies at 82**\
-`His public-radio programs “Saint Paul Sunday” and “Exploring Music,” at their height, were listened to by hundreds of thousands of people a week.`\
+`His public-radio programs “Saint Paul Sunday” and “Exploring Music” were, at their height, listened to by hundreds of thousands of people a week.`\
 https://www.nytimes.com/2026/07/27/arts/music/bill-mcglaughlin-dead.html
 
 **The Left’s Infighting Is a Big Problem**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/27/briefing/today-in-short.html
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/07/27/t-magazine/tk.html
-
-**Tiroteo en Seattle: 3 personas mueren en un festival gastronómico**\
-`Tres personas fallecieron durante un tiroteo cerca del Space Needle de la ciudad el domingo, dijo la policía. Un sospechoso estaba bajo custodia y la policía buscaba a otro.`\
-https://www.nytimes.com/es/2026/07/27/espanol/estados-unidos/tiroteo-seattle-festival-muertos.html
-
-**Race to Contain Wildfires in Europe Before Next Heatwave**\
-`Firefighters in Spain and France scrambled to contain raging blazes on Monday, racing against a fresh heatwave set to push Western European temperatures past 104 degrees Fahrenheit this week.`\
-https://www.nytimes.com/video/world/europe/100000011054630/europe-wildfires-extreme-heat.html
 
