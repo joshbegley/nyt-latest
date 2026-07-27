@@ -1,3 +1,11 @@
+**Berlin Pride Attack Suspect Tried to Join ISIS, Prosecutors Say**\
+`The man was sentenced to prison for preparing a serious act of violence against the state but released from detention in May.`\
+https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
+
+**‘Why Isn’t Dad at Home?’: The Books Helping Ukrainian Children Process the War**\
+`A surge of books in Ukraine since the war began has aimed to help children and their parents cope with trauma.`\
+https://www.nytimes.com/interactive/2026/07/27/world/europe/ukraine-childrens-books.html
+
 **Sin petróleo, Cuba se las arregla para sobrevivir**\
 `El presidente Donald Trump ha intentado asfixiar a Cuba bloqueando sus importaciones de petróleo. Pero seis meses después, la isla está encontrando maneras de resistir.`\
 https://www.nytimes.com/es/2026/07/27/espanol/america-latina/cuba-bloqueo-petroleo-eeuu.html
