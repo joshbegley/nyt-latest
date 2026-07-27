@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/07/27/world/india-cockroach-protests-spain-france-f
 https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
 
 **Seattle Police Search for 2nd Suspect in Deadly Food Festival Shooting**\
-`One 15-year-old suspect is in custody, but authorities said they were looking for a second shooter in the attack at a food festival that left three dead.`\
+`A 15-year-old suspect was in custody, and documents said a second shooter was killed on the scene. Police were looking for at least one more suspect in the attack that left three dead.`\
 https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
 
 **Heat Wave Threatens Further Wildfire Spread in France and Spain**\
