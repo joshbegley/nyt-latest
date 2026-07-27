@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/07/27/crosswords/wordle-review-1865.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
 https://www.nytimes.com/2026/07/27/crosswords/strands-sidekick-877.html
 
-**NYT Connections Answers for July 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, July 28, 2026.`\
-https://www.nytimes.com/2026/07/27/crosswords/connections-companion-1143.html
-
