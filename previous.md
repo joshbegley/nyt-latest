@@ -1,3 +1,11 @@
+**Man Dies After Being Struck by a Falling Rock at Glacier National Park**\
+`The man had been driving this month on a popular route through the park when a rock dislodged from a cliff face and struck his vehicle. Such fatal episodes are rare, officials said.`\
+https://www.nytimes.com/2026/07/27/us/rock-fall-death-glacier-national-park.html
+
+**Powerful Storms Prompt Tornado Warnings in Wisconsin and Near Chicago**\
+`Forecasters warned that more storms were expected through the day.`\
+https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
+
 **McConnell Extends Senate Leave, Will Miss State Picnic**\
 `A new statement said the senator was not “medically cleared” to leave a rehabilitation facility and would miss a Kentucky political event.`\
 https://www.nytimes.com/2026/07/27/us/politics/mcconnell-extends-senate-leave-update.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/27/crosswords/connections-companion-1143.html
 **How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict**\
 `The Iran-backed Houthi militia in Yemen has seized on a vulnerable moment for neighboring Saudi Arabia, which does not want another war. The group hopes to force political concessions in Yemen that could give it more authority and more access to resources.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html
-
-**Book Review: ‘Biological War,’ by Annie Jacobsen**\
-`In a sobering new book, Annie Jacobsen considers the potentially civilization-ending impacts of biological war.`\
-https://www.nytimes.com/2026/07/27/books/review/biological-war-annie-jacobsen.html
-
-**Merz Criticizes Terrorism Laws After Deadly Berlin Pride Attack**\
-`Chancellor Friedrich Merz of Germany called for tighter monitoring after the authorities said the suspect in the assault had tried to join ISIS and was released from detention in May.`\
-https://www.nytimes.com/2026/07/27/world/europe/berlin-pride-attack-suspect-isis.html
 

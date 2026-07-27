@@ -1,3 +1,11 @@
+**Man Dies After Being Struck by a Falling Rock at Glacier National Park**\
+`The man had been driving this month on a popular route through the park when a rock dislodged from a cliff face and struck his vehicle. Such fatal episodes are rare, officials said.`\
+https://www.nytimes.com/2026/07/27/us/rock-fall-death-glacier-national-park.html
+
+**Powerful Storms Prompt Tornado Warnings in Wisconsin and Near Chicago**\
+`Forecasters warned that more storms were expected through the day.`\
+https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
+
 **McConnell Extends Senate Leave, Will Miss State Picnic**\
 `A new statement said the senator was not “medically cleared” to leave a rehabilitation facility and would miss a Kentucky political event.`\
 https://www.nytimes.com/2026/07/27/us/politics/mcconnell-extends-senate-leave-update.html
