@@ -1,3 +1,7 @@
+**Comey Seeks Dismissal of Charges Accusing Him of Threatening Trump**\
+`The filing focused on the question of whether a photograph of seashells arranged to read “86 47” constituted a true threat under federal law.`\
+https://www.nytimes.com/2026/07/27/us/politics/comey-seeks-dismissal-of-charges.html
+
 **In France, Some of Europe’s Aerospace Leaders Are in the Path of the Fire**\
 `The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/07/27/arts/music/handel-tolomeo-caramoor.html
 https://www.nytimes.com/interactive/2026/07/27/us/bryan-kohberger-statement.html
 
 **Bryan Kohberger, Convicted in Idaho College Killings, Seeks to Take Back Guilty Plea**\
-`In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on ‘false promises’ and wrong information.`\
+`In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on “false promises” and wrong information.`\
 https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
 
 **Amid France Wildfires, Some Residents Help Firefighters Contain Blazes**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
 ****\
 `Footage released on Monday by the Spanish Military Emergencies Unit showed firefighters battling intense flames overnight in Sotillo de la Adrada, west of Madrid.`\
 https://www.nytimes.com/video/embedded/admin/100000011054603/00vid-visualstack-wildfires-5-31458.html
-
-**Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
-`The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
-https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
 
