@@ -1,3 +1,7 @@
+**Apple Regains Spot Over Nvidia as Most Valuable Public Company**\
+`The company slipped by the chip maker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
+https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
+
 **Iran War Enters 6th Month and a Period of Greater Uncertainty**\
 `Here is a rundown of the major events of the war, as both sides consider their next moves.`\
 https://www.nytimes.com/2026/07/27/us/politics/iran-war-timeline.html

@@ -1,5 +1,9 @@
+**Broiling Weather Threatens Further Spread of Fires in France and Spain**\
+`The record wildfires, which have destroyed more than 200 homes and prompted large evacuations, could intensify with the arrival of a new heat wave.`\
+https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
+
 **Apple Regains Spot Over Nvidia as Most Valuable Public Company**\
-`The company slipped by the chip maker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
+`The company slipped by the chipmaker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
 
 **Iran War Enters 6th Month and a Period of Greater Uncertainty**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
 **New Heat Wave Could Intensify Wildfires in France and Spain**\
 `Soaring temperatures in parts of France, Spain and Portugal could combine with dry conditions and strong winds to worsen the wildfire threat. It is the fourth heat wave to affect Europe since May.`\
 https://www.nytimes.com/2026/07/27/world/europe/heat-wave-forecast-france-spain-wildfires.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011054702/27vid-sanchez-clip-75630.html
 
