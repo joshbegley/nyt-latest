@@ -1,3 +1,23 @@
+**Review: Handel’s ‘Tolomeo’ Comes to Caramoor**\
+`Philharmonia Baroque Orchestra came to Caramoor with Handel’s “Tolomeo,” a far-fetched opera seria with a lively score.`\
+https://www.nytimes.com/2026/07/27/arts/music/handel-tolomeo-caramoor.html
+
+**Read Bryan Kohberger’s Statement About Abandoning His Guilty Plea**\
+`Bryan Kohberger, who pleaded guilty last year to killing four University of Idaho students, said he wants to withdraw his confession and reopen the case. Mr. Kohberger sent a statement to The New York Times by way of his family.`\
+https://www.nytimes.com/interactive/2026/07/27/us/bryan-kohberger-statement.html
+
+**Bryan Kohberger, Convicted in Idaho College Killings, Seeks to Take Back Guilty Plea**\
+`In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on ‘false promises’ and wrong information.`\
+https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
+
+**In France, Some Residents and Farmers Help Firefighters to Contain Blazes**\
+`People described using water tanks and tractors to hold back flames in the worst-affected areas of southwestern France.`\
+https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
+
+**Chilled Tofu With Gochujang Sauce**\
+`This silken tofu, draped in a tangy, savory, chile-sweet gochujang sauce, is a warm weather epiphany: No cooking whatsoever.`\
+https://www.nytimes.com/video/dining/100000011055026/chilled-tofu-with-gochujang-sauce.html
+
 **Lemon-Garlic Linguine**\
 `This bright and creamy pasta is a weeknight go-to that can be embellished with seared scallops, shrimp or mushrooms to make it something special.`\
 https://www.nytimes.com/video/dining/100000011054928/lemon-garlic-linguine.html

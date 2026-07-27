@@ -10,8 +10,8 @@ https://www.nytimes.com/interactive/2026/07/27/us/bryan-kohberger-statement.html
 `In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on ‘false promises’ and wrong information.`\
 https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
 
-**In France, Some Residents and Farmers Help Firefighters to Contain Blazes**\
-`People described using water tanks and tractors to hold back flames in the worst-affected areas of southwestern France.`\
+**In France’s Evacuation Zones, Some Residents Stay to Help Save Homes**\
+`With firefighters stretched thin, volunteers put themselves at risk, using water tanks, hoses and tractors to hold back flames from villages and farms in southwestern France.`\
 https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
 
 **Chilled Tofu With Gochujang Sauce**\
