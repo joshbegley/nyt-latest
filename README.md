@@ -1,3 +1,7 @@
+**Corrections: July 25, 2026**\
+`Corrections that appeared in print on Saturday, July 25, 2026.`\
+https://www.nytimes.com/2026/07/27/pageoneplus/corrections-july-25-2026.html
+
 **The A.I. Debate That’s Driving a Wedge Through Big Tech**\
 `Investors and policymakers must contend with the competing camps that view open and closed artificial intelligence models as key to the sector’s future.`\
 https://www.nytimes.com/2026/07/27/business/dealbook/open-closed-ai-debate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/opinion/trump-midterms-worst.html
 **‘Why Isn’t Dad at Home?’: The Books Helping Ukrainian Children Process the War**\
 `A surge of books in Ukraine since the war began has aimed to help children and their parents cope with trauma.`\
 https://www.nytimes.com/interactive/2026/07/27/world/europe/ukraine-childrens-books.html
-
-**How Cubans Are Surviving a Fuel Crisis**\
-`Cubans are inventing ways to survive without fuel or electricity, using solar panels, makeshift generators and batteries to endure a devastating oil blockade imposed by the Trump administration.`\
-https://www.nytimes.com/video/world/americas/100000011024495/cuba-power-crisis-oil-solutions.html
 
