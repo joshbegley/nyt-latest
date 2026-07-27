@@ -1,3 +1,7 @@
+**China’s CXMT Stock Soars 470% in Start of Trading, Amid A.I. Race**\
+`The meteoric rise on its first day of trading catapulted CXMT, China’s leading memory chip maker, to being the most valuable company on the Shanghai stock exchange.`\
+https://www.nytimes.com/2026/07/27/business/cxmt-stock-price-ai.html
+
 **Two Dead After Shooting at Seattle Food Festival**\
 `At least two people were killed in a shooting at a food festival in Seattle on Sunday.`\
 https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/26/style/sophie-lou-jacobsen-glassware.html
 **Trump Seems Trapped by Iran War, Even as He Wields the World’s Biggest Hammer**\
 `A president who thought there were no limits to his power has discovered several, leaving him more frustrated and erratic.`\
 https://www.nytimes.com/2026/07/26/us/politics/trump-trapped-in-iran-war.html
-
-**Senate Candidate Josh Turek Handcycles the Iowa Campaign Trail**\
-`State Representative Josh Turek, the Democrat running to flip Iowa’s open Senate seat, cycled with his hands at an Iowa biking event that took place between two cities nearly 60 miles apart.`\
-https://www.nytimes.com/2026/07/26/us/politics/turek-iowa-senate-democrat.html
 

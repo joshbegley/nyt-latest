@@ -1,3 +1,7 @@
+**China’s CXMT Stock Soars 470% in Start of Trading, Amid A.I. Race**\
+`The meteoric rise on its first day of trading catapulted CXMT, China’s leading memory chip maker, to being the most valuable company on the Shanghai stock exchange.`\
+https://www.nytimes.com/2026/07/27/business/cxmt-stock-price-ai.html
+
 **Two Dead After Shooting at Seattle Food Festival**\
 `At least two people were killed in a shooting at a food festival in Seattle on Sunday.`\
 https://www.nytimes.com/video/us/100000011054419/seattle-center-shooting.html
