@@ -22,6 +22,10 @@ https://www.nytimes.com/2026/07/27/world/asia/vietnam-south-china-sea-ship-sink.
 `We look at the end of Temporary Protected Status.`\
 https://www.nytimes.com/2026/07/27/briefing/end-temporary-protected-status.html
 
+****\
+`Footage released on Monday by the Spanish Military Emergencies Unit showed firefighters battling intense flames overnight in Sotillo de la Adrada, west of Madrid.`\
+https://www.nytimes.com/video/embedded/admin/100000011054603/00vid-visualstack-wildfires-5-31458.html
+
 **Even Before Attack, Berlin’s Gay Community Felt ‘More and More Unsafe’**\
 `The killing of a woman in what officials called an act of Islamist terrorism rattled a community that has seen a surge in threats, including from the far right.`\
 https://www.nytimes.com/2026/07/27/world/europe/gay-community-berlin-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/movies/johnny-depp-ebenezer-a-christmas-carol
 **Want a Better Food System? Use the Anti-Tobacco Playbook.**\
 `A teenager’s lawsuit against the food industry shows us the path to a better food system.`\
 https://www.nytimes.com/2026/07/27/opinion/ultraprocessed-food-lawsuit.html
-
-**How to Keep a Travel Journal**\
-`A travel journal can be a great way to evoke specific details and memories from a trip. Here are some tips on how to lower the barrier to entry and to stay organized.`\
-https://www.nytimes.com/2026/07/27/travel/travel-journal-tips-recommendations.html
 
