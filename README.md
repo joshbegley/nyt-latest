@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011054825/27vid-bos-50014.html
+
 **Guyana Ferry Tragedy Exposes Political Rifts in Oil-Rich Country**\
 `The capsizing of a ferry was Guyana’s deadliest event since Jonestown in 1978. Many are asking how this could happen in one of the world’s fastest-growing economies.`\
 https://www.nytimes.com/2026/07/27/world/americas/guyana-ferry-accident-oil-economy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/us/politics/kennedy-center-trump.html
 **Christopher Nolan’s ‘Odyssey’ Has a Circe Problem**\
 `One of the fascinating women of early literature, Circe becomes a simple witch in Christopher Nolan’s blockbuster.`\
 https://www.nytimes.com/2026/07/27/movies/the-odyssey-circe.html
-
-**5 Things to Know About Meta’s Giant Data Center in Louisiana**\
-`The road to the giant project was paved with secret meetings and an ever-expanding building plan.`\
-https://www.nytimes.com/2026/07/27/business/5-things-to-know-about-metas-giant-data-center-in-louisiana.html
 
