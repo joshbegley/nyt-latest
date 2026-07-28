@@ -1,9 +1,21 @@
+**The Good News and the Bad News About the New Housing Law**\
+`What happens when a good law meets a seemingly indifferent administration?`\
+https://www.nytimes.com/2026/07/28/opinion/housing-law-trump-congress.html
+
+**What to Do if Your Estrogen Patch Is Out of Stock**\
+`Some hormone therapy patches are still in short supply. Here’s what experts recommend to avoid missing a dose.`\
+https://www.nytimes.com/2026/07/28/well/live/estrogen-patches-shortage-menopause.html
+
+**Here Is the Schedule for Lindsey Graham’s Services and Funeral**\
+`The senator is being remembered on Tuesday in Washington and on Wednesday in South Carolina.`\
+https://www.nytimes.com/2026/07/28/us/politics/lindsey-graham-funeral-schedule.html
+
 **Un excursionista se empaló con su bastón y caminó 16 km para buscar ayuda**\
 `David Cifaldi iba a llegar a la cima del pico Granite, la montaña más alta de Montana, cuando resbaló y cayó sobre uno de sus bastones. Después bajó la montaña a pie para buscar ayuda médica.`\
 https://www.nytimes.com/es/2026/07/28/espanol/excursionista-empalo-baston.html
 
 **6.8 Magnitude Earthquake Rocks Japan**\
-`A powerful 6.8-magnitude earthquake rocked southwest Japan on Tuesday, causing fires, damaging historic structures, and leaving dozens injured, according to the state broadcaster.`\
+`A powerful 6.8-magnitude earthquake rocked southwest Japan on Tuesday, causing fires, damaging historic structures and leaving dozens injured, according to the state broadcaster.`\
 https://www.nytimes.com/video/world/asia/100000011057666/6-8-magnitude-earthquake-rocks-japan.html
 
 **Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/07/28/opinion/mamdani-netanyahu-stunt-israel.html
 **‘We Are Not Learning Anything’: India’s Gen Z Rage Is a Test for Modi**\
 `As India’s huge youth population surges, the government faces pressure to fix an education system that leaves many ill prepared for university, let alone for the workplace.`\
 https://www.nytimes.com/2026/07/28/world/asia/india-education-protests-cockroach-genz.html
-
-**Who Does JD Vance Think He Is?**\
-`The chameleon effect is endangering the vice president’s political prospects.`\
-https://www.nytimes.com/2026/07/28/opinion/jd-vance-president-campaign.html
-
-**Can Throo Compete With Uber and Lyft?**\
-`A new entry into the city’s ride-share market is appealing to drivers, saying they could make more money if they install the app.`\
-https://www.nytimes.com/2026/07/28/nyregion/can-throo-compete-with-uber-and-lyft.html
-
-**In This Costa Rican Forest, Monkeys Come Face-to-Face With A.I.**\
-`CapuchinAI, a portable testing station equipped with a touch screen and facial recognition software, could help scientists study primate intelligence in the wild.`\
-https://www.nytimes.com/2026/07/28/science/costa-rica-monkeys-ai.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
