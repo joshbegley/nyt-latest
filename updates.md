@@ -1,3 +1,7 @@
+**AFSCME Leader Lee Saunders to Retire as Unions Face New Opposition**\
+`Lee Saunders has led the country’s top union for local public workers at a time of growing public support and official opposition.`\
+https://www.nytimes.com/2026/07/28/us/politics/lee-saunders-afscme-retirement.html
+
 **Prediction Market Betting on Drug Trials and Approvals Sparks Concern About Undermining Research**\
 `Prediction markets on Kalshi and Polymarket now let people wager money on drug approvals. Kalshi also plans to allow bets on clinical trial results.`\
 https://www.nytimes.com/2026/07/28/business/kalshi-polymarket-prediction-market-drugs.html
