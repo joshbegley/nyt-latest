@@ -1,3 +1,7 @@
+**Latest Updates: Lindsey Graham Gets a Washington Goodbye**\
+`The senator from South Carolina, who died this month, will be honored by President Trump and other allies.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
 `Also among the 13 works up for the British literary award are the latest books from Douglas Stuart, Gwendoline Riley and Emma Cline.`\
 https://www.nytimes.com/2026/07/28/books/booker-prize-longlist.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/28/learning/word-of-the-day-bowdlerize.html
 **There’s a Way to Prevent Ovarian Cancer. Few Know About It.**\
 `The vast majority of cases begin in the fallopian tubes — and removing them can reduce the risk by nearly 80 percent.`\
 https://www.nytimes.com/2026/07/28/health/ovarian-cancer-fallopian-tubes.html
-
-**Sam Smith Shows a New Side on “Hazel Eyes”**\
-`After rising to global pop star status with songs about heartbreak, Smith returns with an album about pointedly queer “requited love,” made exactly how and where made them happiest.`\
-https://www.nytimes.com/2026/07/28/arts/music/sam-smith-hazel-eyes-new-album.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8-magnitude quake struck the southwestern prefecture of Kumamoto.`\
