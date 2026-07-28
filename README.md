@@ -1,5 +1,9 @@
-**Latest Updates: Lindsey Graham Gets a Washington Goodbye**\
-`The senator from South Carolina, who died this month, will be honored by President Trump and other allies.`\
+**How to Tell if a Giant Manta Is Pregnant? Give Her an Ultrasound.**\
+`Scientists managed to confirm pregnancies in three giant mantas with underwater ultrasound scans, offering clues to the animals’ elusive reproductive habits.`\
+https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
+
+**Live Updates: Vance to Pay Tribute at Lindsey Graham’s Washington Funeral**\
+`Vice President JD Vance will be among the speakers at a morning ceremony for Lindsey Graham, the senator from South Carolina who died this month. President Trump will speak later.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 
 **Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/28/travel/pizza-romana-rome-recommendations.html
 **Word of the Day: bowdlerize**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/28/learning/word-of-the-day-bowdlerize.html
-
-**There’s a Way to Prevent Ovarian Cancer. Few Know About It.**\
-`The vast majority of cases begin in the fallopian tubes — and removing them can reduce the risk by nearly 80 percent.`\
-https://www.nytimes.com/2026/07/28/health/ovarian-cancer-fallopian-tubes.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
