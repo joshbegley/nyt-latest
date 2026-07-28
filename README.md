@@ -1,3 +1,7 @@
+**Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
+`Lawmakers have introduced hundreds of bills related to vaccines this year. Their proposals offer a window into the modern movement against the shots.`\
+https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covid.html
+
 **Do you work in No Surprises Act arbitration? Tell us about it.**\
 `New York Times reporters are looking into how government contractors resolve medical billing disputes.`\
 https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/canada/100000011048960/whales-rescued-from-c
 **Public Control or ‘20th-Century Socialism’? U.K. Debates a Different Way.**\
 `The new prime minister, Andy Burnham, faulted Margaret Thatcher’s privatization in the 1980s. He wants an alternative economic model, especially to run utilities.`\
 https://www.nytimes.com/2026/07/28/business/andy-burnham-uk.html
-
-**An Artist Uses Plants as Her Muse**\
-`A botanical illustrator extends a seductive invitation to learn the subtleties of the 600-odd plant families on the planet.`\
-https://www.nytimes.com/2026/07/28/realestate/plant-family-botanical-illustrations.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
