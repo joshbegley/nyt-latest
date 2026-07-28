@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011059763/28vid-casket-exit.html
+
+**ICE Agents Target Foreign Citizens With Expired Visas at U.S. Airports**\
+`The Trump administration has begun arresting foreign citizens with expired U.S. visas at American airports, according to documents obtained by The New York Times and immigration lawyers.`\
+https://www.nytimes.com/video/us/100000011055643/ice-tsa-airport-arrests-expired-visa.html
+
 **Houthis Claim Strike on Another Saudi Oil Tanker**\
 `With their ally, Iran, bottling up the Strait of Hormuz, the Houthi group in Yemen is escalating its declared blockade of Saudi shipping in another vital waterway, the Red Sea.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/houthis-strike-saudi-tanker.html

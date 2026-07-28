@@ -1,3 +1,11 @@
+**Behind Closed Doors, Trump Huddles With Netanyahu and Zelensky**\
+`The visits by the leaders of Israel and Ukraine underscored just how deeply President Trump was enmeshed in conflicts he had promised — and failed — to end quickly.`\
+https://www.nytimes.com/2026/07/28/us/politics/trump-zelensky-netanyahu-wars.html
+
+**Lilly Yokoi, Acrobat Who Dazzled on a Golden Bicycle, Dies at 96**\
+`With her family troupe — and later as a solo star — she performed balletic, gymnastic tricks in circuses and theaters, at fairs and on television.`\
+https://www.nytimes.com/2026/07/28/theater/lilly-yokoi-dead.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011059763/28vid-casket-exit.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/business/energy-environment/100000011050115/red-se
 **Were You Stuck Footing the Bill on a Group Trip? Tell Us About It.**\
 `Traveling with friends can be tricky. We’re curious how you manage financial friction — and how you make sure your besties settle up.`\
 https://www.nytimes.com/2026/07/28/travel/group-trip-finances-readers.html
-
-**What to Know About the Kumamoto Earthquake in Japan**\
-`At least one person who was found in a collapsed house was killed, and about 50 others were injured on Tuesday in the southwestern prefecture of Kumamoto.`\
-https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-damage.html
-
-**The Fires in France and Spain are Breaking Modern Records: Charts and Maps**\
-`Huge wildfires in France and Spain have grown to the largest either country has seen in decades, breaking modern records.`\
-https://www.nytimes.com/interactive/2026/07/28/world/europe/france-spain-wildfires-2026-fire-season.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
