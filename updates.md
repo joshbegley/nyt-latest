@@ -1,3 +1,7 @@
+**Late Night Roasts President Trump’s Attempt at Comedy**\
+`“And let’s just say Iran’s not the only thing he bombed,” Seth Meyers said of the president’s performance at the White House Correspondents’ Dinner.`\
+https://www.nytimes.com/2026/07/28/arts/television/late-night-trump-white-house-correspondents-dinner.html
+
 **Por qué estos animales tienen OnlyFans**\
 `Mientras el gobierno federal reduce el presupuesto para investigación en “ciencias de la vida”, un grupo de científicos creó una cuenta para financiar el estudio de estos roedores.`\
 https://www.nytimes.com/es/2026/07/28/espanol/onlyfans-cuenta-marmotas.html
