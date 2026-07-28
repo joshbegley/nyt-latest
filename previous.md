@@ -1,3 +1,7 @@
+**‘Lili Elbe,’ Opera About Trans Heroine of ‘The Danish Girl,’ Is Timely**\
+`Lili Elbe’s story was told in “The Danish Girl.” Now Tobias Picker’s opera about her life, with a trans opera singer in the lead role, is making its U.S. premiere.`\
+https://www.nytimes.com/2026/07/28/arts/music/tobias-picker-lili-elbe-transgender-santa-fe-opera.html
+
 **The Immigration Crackdown and the Plight of the Caregivers**\
 `Readers describe a crisis for caregivers and families. Also: Canceling grants based on politics; no politics in uniform; rediscovering resilience.`\
 https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011057468/00int-indonesi
 **Heavy Rain Expected in New York on Tuesday**\
 `Forecasters warned that up to seven inches of rain could fall in and around New York City.`\
 https://www.nytimes.com/2026/07/28/weather/new-york-rain-storms.html
-
-**Calling Trump’s Personal Cell**\
-`Pablo and the hosts of “TrueAnon” dial the president’s phone number and ask the important questions.`\
-https://www.nytimes.com/2026/07/28/podcasts/trueanon-calling-trump-personal-cell.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\

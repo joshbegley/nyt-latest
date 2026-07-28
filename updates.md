@@ -1,3 +1,7 @@
+**‘Lili Elbe,’ Opera About Trans Heroine of ‘The Danish Girl,’ Is Timely**\
+`Lili Elbe’s story was told in “The Danish Girl.” Now Tobias Picker’s opera about her life, with a trans opera singer in the lead role, is making its U.S. premiere.`\
+https://www.nytimes.com/2026/07/28/arts/music/tobias-picker-lili-elbe-transgender-santa-fe-opera.html
+
 **The Immigration Crackdown and the Plight of the Caregivers**\
 `Readers describe a crisis for caregivers and families. Also: Canceling grants based on politics; no politics in uniform; rediscovering resilience.`\
 https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
