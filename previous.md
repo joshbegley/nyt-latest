@@ -1,3 +1,7 @@
+**Fire Raging Near Bordeaux Brings More Bad News for Its Vineyards**\
+`One of the largest fires in modern French history is raging near the vineyards of Bordeaux. That is just the latest problem for France’s embattled wine industry.`\
+https://www.nytimes.com/2026/07/28/world/europe/bordeaux-wine-fires-smoke.html
+
 **Live Updates: 6.8-Magnitude Earthquake Strikes Japan**\
 `Fires and injuries were reported after the quake in Kumamoto Prefecture, according to Japan’s state broadcaster. A tsunami warning was lifted.`\
 https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011055628/savannah-guthrie-kidnappers-vid
 **Betye Saar, Artist Who Upended Black Stereotypes, Dies at 99**\
 `Working with dolls, family photographs, fabric scraps and other found objects, she became a leading figure in assemblage art.`\
 https://www.nytimes.com/2026/07/27/arts/design/betye-saar-dead.html
-
-**Trump Asks Supreme Court to Allow Order Restricting Mail Voting**\
-`The Trump administration asks justices to intervene after an appeals court blocked key parts of a mail-in voting executive order.`\
-https://www.nytimes.com/2026/07/27/us/politics/supreme-court-trump-mail-ballots.html
 
