@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011058139/28vid-graham-coffin-steps.html
 
-**Boeing Reports Loss on $280 Million Hit on Troubled Air Force One Program**\
+**Boeing Reports Loss on $280 Million Hit to Troubled Air Force One Program**\
 `Boeing pushed back delivery of two presidential planes by four years. The delay and related expenses contributed to a bigger-than-expected loss in the second quarter.`\
 https://www.nytimes.com/2026/07/28/business/boeing-earnings-air-force-one.html
 
@@ -177,10 +177,6 @@ https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
 **El resurgimiento del tā moko, el tatuaje ritual maorí**\
 `En Nueva Zelanda, cada vez más jóvenes maoríes reivindican una tradición ancestral que el dominio colonial británico prohibió y que resurgió como un acto de protesta en la década de 1970.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/tatuaje-facial-maori-nueva-zelanda.html
-
-**Graham to Be Honored at Funeral Services This Week. Here’s How to Watch.**\
-`Closed ceremonies for the Republican senator, a stalwart ally of President Trump, will be held in Washington on Tuesday before a procession and public funeral in South Carolina the next day.`\
-https://www.nytimes.com/2026/07/28/us/politics/lindsey-graham-funeral-watch.html
 
 **Senate Democrats Press Blanche on Times Subpoenas**\
 `Days before a committee vote on Todd Blanche’s nomination to be attorney general, Democrats demanded answers about the since-withdrawn subpoenas.`\
