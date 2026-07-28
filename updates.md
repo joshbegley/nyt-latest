@@ -1,3 +1,27 @@
+**The Iranians Who Want More War**\
+`Fractures in Tehran are pitting a faction favoring negotiation with Washington against hard-liners who oppose making a deal with the United States.`\
+https://www.nytimes.com/2026/07/28/podcasts/the-daily/iran-war-funeral.html
+
+**Democratic Party Faces Debt and Disarray, and Wildfires Force Mass Evacuations in Europe**\
+`Plus, whales on a plane.`\
+https://www.nytimes.com/2026/07/28/podcasts/the-headlines/democratic-party-wildfires-europe.html
+
+**Today’s Wordle Hints for July 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/28/crosswords/wordle-review-1866.html
+
+**NYT Strands Hints for July 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/28/crosswords/strands-sidekick-878.html
+
+**NYT Connections Answers for July 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/28/crosswords/connections-companion-1144.html
+
+**‘We Are Not Learning Anything’: India’s Gen Z Rage Is a Test for Modi**\
+`As India’s huge youth population surges, the government faces pressure to fix an education system that leaves many ill prepared for university, let alone for the workplace.`\
+https://www.nytimes.com/2026/07/28/world/asia/india-education-protests-cockraoch-genz.html
+
 **As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks**\
 `Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump and have leverage over the Strait of Hormuz, analysts say.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
