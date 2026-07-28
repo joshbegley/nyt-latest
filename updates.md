@@ -1,3 +1,11 @@
+**Trump Backs New Talks but It’s Unclear What He Hopes to Achieve This Time**\
+`Iran denied President Trump’s claim that it wants to talk, and gave no sign that it would make concessions or speak directly with U.S. officials.`\
+https://www.nytimes.com/2026/07/27/us/politics/trump-iran-talks-negotiations.html
+
+**Tornado Damage Reported in Wisconsin as Storms Unleash Heavy Rain and Winds**\
+`Forecasters warned that more storms were expected into the evening.`\
+https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
+
 **A Setback for the MAGA Media Takeover**\
 `Trump is beatable if you take a page from his playbook and flood the zone with opposition.`\
 https://www.nytimes.com/2026/07/27/opinion/media-ellison-paramount.html
