@@ -1,3 +1,7 @@
+**The Iran War Just Put Another Key Oil Route at Risk**\
+`Attacks in the Strait of Hormuz during the Iran war have led Saudi Arabia to rely on an alternative route for exporting oil. Our reporter Rebecca F. Elliott explains how that route is now threatened by the Houthis, a Yemeni militia supported by Iran.`\
+https://www.nytimes.com/video/business/energy-environment/100000011050115/red-sea-blockade-oil-route.html
+
 **Were You Stuck Footing the Bill on a Group Trip? Tell Us About It.**\
 `Traveling with friends can be tricky. We’re curious how you manage financial friction — and how you make sure your besties settle up.`\
 https://www.nytimes.com/2026/07/28/travel/group-trip-finances-readers.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/28/podcasts/the-daily/iran-war-funeral.html
 **Democratic Party Faces Debt and Disarray, and Wildfires Force Mass Evacuations in Europe**\
 `Plus, whales on a plane.`\
 https://www.nytimes.com/2026/07/28/podcasts/the-headlines/democratic-party-wildfires-europe.html
-
-**Today’s Wordle Hints for July 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
-https://www.nytimes.com/2026/07/28/crosswords/wordle-review-1866.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
