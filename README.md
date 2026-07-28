@@ -1,3 +1,7 @@
+**The Cuban Way**\
+`We look at the state of the island as it struggles with an energy crisis.`\
+https://www.nytimes.com/2026/07/28/briefing/cuba-surviving-energy-crisis.html
+
 **India vive un momento ‘cucaracha’**\
 `Narendra Modi cedió ante las exigencias de los jóvenes de India, un reconocimiento a su verdadero poder.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/india-protestas-jovenes-cucaracha.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/business/media/faith-jenkins-kenny-lattimore-
 **Beyond Amsterdam and Venice: 6 Delightful European Canal Cities**\
 `From culture in Hamburg to sweet confections in Aveiro, the charms of these places are revealed as you drift down uncrowded waterways.`\
 https://www.nytimes.com/2026/07/28/travel/europe-alternative-canal-cities.html
-
-**Book Review: ‘Liberation Summer,’ by Micki McElya**\
-`A new book by the historian Micki McElya considers how the politics of beauty both shaped and divided the women’s movement.`\
-https://www.nytimes.com/2026/07/28/books/review/liberation-summer-micki-mcelya.html
 
