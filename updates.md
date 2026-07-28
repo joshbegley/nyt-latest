@@ -1,3 +1,11 @@
+**Writers Guild Withdraws Support From Film Festival Over A.I.**\
+`Urbanworld, a New York event, has added a section for movies made with A.I. tools. The union was a sponsor but has been outspoken on the dangers of A.I.`\
+https://www.nytimes.com/2026/07/28/movies/urbanworld-writers-guild-ai.html
+
+**Senators Forge a Deal on Graham’s Bill to Advance Russia Sanctions**\
+`Senators announced a breakthrough on the long-stalled measure as Senator Lindsey Graham, its main champion, was memorialized.`\
+https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
+
 **Trump’s Spy Chief Spends Final Hours in Job Boasting of Mass Firings**\
 `Bill Pulte, the acting director of national intelligence, said he has terminated nearly a third of the officials in his office, but others doubt the figures are accurate.`\
 https://www.nytimes.com/2026/07/28/us/politics/spy-chief-bill-pulte-final-hours.html

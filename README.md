@@ -1,3 +1,11 @@
+**What Is Open-Weight A.I.?**\
+`As Silicon Valley debates how artificial intelligence software should be created, “open weight” has been a major part of the discussions. Here’s what to know.`\
+https://www.nytimes.com/2026/07/28/technology/open-weight-ai.html
+
+**Ross Douthat Joins ‘60 Minutes’ as a Correspondent**\
+`Mr. Douthat, an opinion columnist at The New York Times, will join the CBS News program, along with several other journalists.`\
+https://www.nytimes.com/2026/07/28/business/media/60-minutes-ross-douthat.html
+
 **Writers Guild Withdraws Support From Film Festival Over A.I.**\
 `Urbanworld, a New York event, has added a section for movies made with A.I. tools. The union was a sponsor but has been outspoken on the dangers of A.I.`\
 https://www.nytimes.com/2026/07/28/movies/urbanworld-writers-guild-ai.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
 **How Are You Navigating This Extreme Summer?**\
 `Amid blistering heat, economic anxiety and a tumultuous news cycle, we want to hear how you’re experiencing the season.`\
 https://www.nytimes.com/2026/07/28/us/extreme-summer-routines-traditions.html
-
-**Today, In Short**\
-`Daylight saving time. New York City history. And nuns.`\
-https://www.nytimes.com/2026/07/28/briefing/today-in-short.html
-
-**France and Spain Race to Contain Wildfires**\
-`Firefighters in Spain and France took advantage of a brief respite from scorching conditions overnight to slow the spread of blazes near Madrid and Bordeaux, even as they braced on Tuesday for a new heat wave that could worsen raging wildfires.`\
-https://www.nytimes.com/video/world/europe/100000011057271/france-spain-wildfires-containment.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\

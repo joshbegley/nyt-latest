@@ -1,3 +1,11 @@
+**Writers Guild Withdraws Support From Film Festival Over A.I.**\
+`Urbanworld, a New York event, has added a section for movies made with A.I. tools. The union was a sponsor but has been outspoken on the dangers of A.I.`\
+https://www.nytimes.com/2026/07/28/movies/urbanworld-writers-guild-ai.html
+
+**Senators Forge a Deal on Graham’s Bill to Advance Russia Sanctions**\
+`Senators announced a breakthrough on the long-stalled measure as Senator Lindsey Graham, its main champion, was memorialized.`\
+https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
+
 **Trump’s Spy Chief Spends Final Hours in Job Boasting of Mass Firings**\
 `Bill Pulte, the acting director of national intelligence, said he has terminated nearly a third of the officials in his office, but others doubt the figures are accurate.`\
 https://www.nytimes.com/2026/07/28/us/politics/spy-chief-bill-pulte-final-hours.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/07/28/briefing/today-in-short.html
 **France and Spain Race to Contain Wildfires**\
 `Firefighters in Spain and France took advantage of a brief respite from scorching conditions overnight to slow the spread of blazes near Madrid and Bordeaux, even as they braced on Tuesday for a new heat wave that could worsen raging wildfires.`\
 https://www.nytimes.com/video/world/europe/100000011057271/france-spain-wildfires-containment.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011058265/28vid-vance-on-graham-people-sot.html
-
-**South Dakota Governor Republican Primary Runoff 2026: Live Election Results, Rhoden vs. Doeden**\
-`Get live results and maps from the 2026 South Dakota primary runoff election.`\
-https://www.nytimes.com/interactive/2026/07/28/us/elections/results-south-dakota-governor-runoff.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
