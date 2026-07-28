@@ -1,3 +1,23 @@
+**The Iranians Who Want More War**\
+`Fractures in Tehran are pitting a faction favoring negotiation with Washington against hard-liners who oppose making a deal with the United States.`\
+https://www.nytimes.com/2026/07/28/podcasts/the-daily/iran-war-funeral.html
+
+**Democratic Party Faces Debt and Disarray, and Wildfires Force Mass Evacuations in Europe**\
+`Plus, whales on a plane.`\
+https://www.nytimes.com/2026/07/28/podcasts/the-headlines/democratic-party-wildfires-europe.html
+
+**Today’s Wordle Hints for July 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/28/crosswords/wordle-review-1866.html
+
+**NYT Strands Hints for July 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/28/crosswords/strands-sidekick-878.html
+
+**NYT Connections Answers for July 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/28/crosswords/connections-companion-1144.html
+
 **As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks**\
 `Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump and have leverage over the Strait of Hormuz, analysts say.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/28/books/review/liberation-summer-micki-mcelya.h
 **To Recruit Teachers, School Districts Are Building Homes**\
 `The nation’s housing shortage has made it challenging for some essential workers like educators to live where they work. An increasing number of school districts are trying to change that.`\
 https://www.nytimes.com/2026/07/28/business/affordable-housing-schools-teachers.html
-
-**Is It OK to Eat the Same Things Every Day?**\
-`Some people do it to lose weight, others to avoid the hassle of planning meals. We asked experts how “food monotony” affects your health.`\
-https://www.nytimes.com/2026/07/28/well/eat/nutrition-food-monotony-meal-repetition.html
-
-**Fire Raging Near Bordeaux Brings More Bad News for Its Vineyards**\
-`One of the largest fires in modern French history is raging near the vineyards of Bordeaux. That is just the latest problem for France’s embattled wine industry.`\
-https://www.nytimes.com/2026/07/28/world/europe/bordeaux-wine-fires-smoke.html
-
-**Live Updates: 6.8-Magnitude Earthquake Strikes Japan**\
-`Fires and injuries were reported after the quake in the southwestern prefecture of Kumamoto, according to Japan’s state broadcaster. A tsunami warning was lifted.`\
-https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
-
-**Tech Stocks Tumble on Worries About A.I. Spending and China’s Chip Competition**\
-`South Korea temporarily paused trading on Tuesday as its benchmark stock index led losses across the region, closing more than 10 percent lower.`\
-https://www.nytimes.com/2026/07/28/business/stocks-ai-chips.html
-
-**New York Has a New Sheriff, and His Mentor Is Serpico**\
-`Edwin Raymond, a retired police lieutenant and former whistle-blower himself, was sworn in at a ceremony that paid homage to Frank Serpico, the famous anti-corruption detective of the 1970s.`\
-https://www.nytimes.com/2026/07/28/nyregion/nyc-sheriff-edwin-raymond-frank-serpico.html
 
