@@ -1,3 +1,7 @@
+**Germany’s AfD Opposes Pride Flags but May Win Support After L.G.B.T.Q. Attack**\
+`Analysts say a recent attack on a Pride celebration is likely to focus fall elections on issues favoring the far-right Alternative for Germany party.`\
+https://www.nytimes.com/2026/07/28/world/europe/berlin-pride-attack-afd-politics.html
+
 **Fourth Heat Wave of the Summer Hits Europe as France and Spain Fight Wildfires**\
 `Temperatures are soaring on the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
 https://www.nytimes.com/2026/07/28/weather/europe-heat-wave-weather-forecast.html
