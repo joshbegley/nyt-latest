@@ -1,3 +1,11 @@
+**Fauci, in Private Diary, Reflected on Covid’s Origins and His Own Fame**\
+`Private entries, released by a Republican senator, have reignited a furious debate over whether Covid-19 leaked from a lab.`\
+https://www.nytimes.com/2026/07/27/us/politics/fauci-in-private-diary-reflected-on-covids-origins-and-his-own-fame.html
+
+**6 Takeaways From Michigan’s Senate Debate Between Abdul El-Sayed and Haley Stevens**\
+`At the final debate before next week’s Democratic primary for Senate, Dr. Abdul El-Sayed and Representative Haley Stevens showcased their wildly different ideological stances and political styles.`\
+https://www.nytimes.com/2026/07/27/us/politics/abdul-el-sayed-haley-stevens-michigan-senate-debate-takeaways.html
+
 **En España y Francia el humo de los incendios forestales sofoca los cielos**\
 `Cientos de miles de personas se han visto obligadas a evacuar o se les ha pedido que se refugien en interiores.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/incendios-espana-francia-fotos.html
