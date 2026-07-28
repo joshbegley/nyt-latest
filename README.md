@@ -1,3 +1,7 @@
+**En España y Francia el humo de los incendios forestales sofoca los cielos**\
+`Cientos de miles de personas se han visto obligadas a evacuar o se les ha pedido que se refugien en interiores.`\
+https://www.nytimes.com/es/2026/07/27/espanol/mundo/incendios-espana-francia-fotos.html
+
 **NYT Crossword Answers for July 28, 2026**\
 `Adam Vincent noses ahead.`\
 https://www.nytimes.com/2026/07/27/crosswords/daily-puzzle-2027-07-28.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/07/27/us/bryan-kohberger-statement.html
 **Bryan Kohberger, Convicted in Idaho College Killings, Seeks to Take Back Guilty Plea**\
 `In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on “false promises” and wrong information.`\
 https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
-
-**Amid France Wildfires, Some Residents Help Firefighters Contain Blazes**\
-`With firefighters stretched thin, volunteers put themselves at risk, using water tanks, hoses and tractors to hold back flames from villages and farms in southwestern France.`\
-https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
 
