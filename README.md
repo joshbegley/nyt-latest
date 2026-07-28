@@ -1,3 +1,19 @@
+**New York Has a New Sheriff, and His Mentor Is Serpico**\
+`Edwin Raymond, a retired police lieutenant and former whistle-blower himself, was sworn in at a ceremony that paid homage to Frank Serpico, the famous anti-corruption detective of the 1970s.`\
+https://www.nytimes.com/2026/07/28/nyregion/nyc-sheriff-edwin-raymond-frank-serpico.html
+
+**NYT Spelling Bee Answers for July 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/28/crosswords/spelling-bee-forum.html
+
+**Breaking a Sweat for the Story, and Glory**\
+`A look at what it takes to report on, and join, an intense fitness program at the same time.`\
+https://www.nytimes.com/2026/07/28/insider/xenom-fitness.html
+
+**A Newsstand That Aims to Delight N.Y.C. Subway Riders**\
+`A comedian and his friends are transforming a vacant retail space at the West 4th Street station with freebies, art and puppet shows to make commutes more enjoyable.`\
+https://www.nytimes.com/2026/07/28/nyregion/subway-newstand-west-4th-station-nyc.html
+
 **Late Night Roasts President Trump’s Attempt at Comedy**\
 `“And let’s just say Iran’s not the only thing he bombed,” Seth Meyers said of the president’s performance at the White House Correspondents’ Dinner.`\
 https://www.nytimes.com/2026/07/28/arts/television/late-night-trump-white-house-correspondents-dinner.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/27/us/politics/troy-jackson-maine-senate-democra
 **Chinese Start-Up Moonshot Details New A.I. Model**\
 `Moonshot said some users would have to get licenses to use its Kimi K3 model as the company threads a needle between sharing and profiting from its technology’s popularity.`\
 https://www.nytimes.com/2026/07/27/business/moonshot-kimi-k3-china-ai.html
-
-**India’s ‘Cockroach’ Moment**\
-`Narendra Modi caved to the demands of India’s young people — a nod to their real power.`\
-https://www.nytimes.com/2026/07/27/world/india-cockroach-protests-spain-france-fires.html
-
-**D4vd Murder Case Can Go to Trial, Judge Rules**\
-`The decision capped a five-day preliminary hearing in which prosecutors detailed how and why they say the musician killed the 14-year-old Celeste Rivas Hernandez.`\
-https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
-
-**Seattle Police Search for 3rd Shooter in Deadly Food Festival Shooting**\
-`A 15-year-old suspect was in custody, and documents said a second shooter was killed on the scene. Police were looking for at least one more suspect in the attack that left three dead.`\
-https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
-
-**Heat Wave Threatens Further Wildfire Spread in France and Spain**\
-`The record wildfires, which have destroyed more than 200 homes and prompted large evacuations, could intensify with the arrival of a new heat wave.`\
-https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
 
