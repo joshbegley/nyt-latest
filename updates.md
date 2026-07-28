@@ -1,3 +1,19 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011058069/28vid-graham-hearse-arrival.html
+
+**Vivimos en una distopía de alimentos ultraprocesados. ¿Cómo salir de ella?**\
+`La demanda de un adolescente contra la industria alimentaria nos muestra el camino hacia un mejor sistema alimentario.`\
+https://www.nytimes.com/es/2026/07/28/espanol/opinion/alimentos-ultraprocesados-salud.html
+
+**How to Tell if a Giant Manta Is Pregnant? Give Her an Ultrasound.**\
+`Scientists managed to confirm pregnancies in three giant mantas with underwater ultrasound scans, offering clues to the animals’ elusive reproductive habits.`\
+https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
+
+**Live Updates: Vance to Pay Tribute at Lindsey Graham’s Washington Funeral**\
+`Vice President JD Vance will be among the speakers at a morning ceremony for Lindsey Graham, the senator from South Carolina who died this month. President Trump will speak later.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
 https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami

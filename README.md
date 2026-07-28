@@ -1,3 +1,7 @@
+**Terremoto en Japón: lo que hay que saber**\
+`Los equipos de emergencia se apresuran a buscar personas y extinguir incendios después de que el fuerte terremoto sacudiera la prefectura de Kumamoto, en una isla al suroeste del país.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/terremoto-japon.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011058069/28vid-graham-hearse-arrival.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/28/dining/restaurant-review-marcel-nyc.html
 **Newport Beach in California Struggles to Copy With Rowdy Outsiders**\
 `More than 400 people were arrested in Newport Beach on the July 4 weekend after a social media “takeover” got out of hand. Now the city is trying to figure out how to stop it from happening again.`\
 https://www.nytimes.com/2026/07/28/us/newport-beach-california-teen-takeover.html
-
-**‘Wham! 10 Days in China’ Review: Pop Music History With a Secret Goal**\
-`The British pop duo Wham! was the first Western act of its kind to play mainland China. This documentary reveals the hidden agenda of the shows.`\
-https://www.nytimes.com/2026/07/28/movies/wham-10-days-in-china-review.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
