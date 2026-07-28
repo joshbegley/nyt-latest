@@ -1,3 +1,7 @@
+**How Cubans Are Surviving**\
+`It’s been six months since the U.S. cut off the island’s fuel sources. Our reporters went there and found remarkable stories of resilience.`\
+https://www.nytimes.com/2026/07/28/world/cuba-us-trump-ukraine-iran-japan-quake.html
+
 **Researchers Create OnlyFans for Marmots to Bridge Funding Gap**\
 `A team of scientists from the Rocky Mountain Biological Laboratory faced a funding issue amid federal cuts to scientific research. To raise money for its marmot research, it started “OnlyMarms,” a free, G-rated account of cute videos that collects money through tips.`\
 https://www.nytimes.com/video/science/earth/100000011055061/trump-funding-cuts-marmot-onlyfans.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/28/us/politics/anthropic-ai-encryption-security-
 **‘The Odyssey’ Isn’t a Fashion Movie. But It Has One Great Outfit.**\
 `Plus: Bernard Arnault’s open letter and Zohran Mamdani meets Anna Wintour.`\
 https://www.nytimes.com/2026/07/28/style/odyssey-nolan-pattinson-antinous.html
-
-**‘La odisea’ nos da el héroe que merecemos**\
-`El Odiseo de Christopher Nolan es un héroe a medias: lucha contra los problemas que él mismo crea. Eso lo convierte en una figura perfecta para nuestro momento moderno.`\
-https://www.nytimes.com/es/2026/07/28/espanol/opinion/la-odisea-christopher-nolan.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
