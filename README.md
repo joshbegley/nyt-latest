@@ -1,3 +1,11 @@
+**Fauci, in Private Diary, Reflected on Covid’s Origins and His Own Fame**\
+`Private entries, released by a Republican senator, have reignited a furious debate over whether Covid-19 leaked from a lab.`\
+https://www.nytimes.com/2026/07/27/us/politics/fauci-in-private-diary-reflected-on-covids-origins-and-his-own-fame.html
+
+**6 Takeaways From Michigan’s Senate Debate Between Abdul El-Sayed and Haley Stevens**\
+`At the final debate before next week’s Democratic primary for Senate, Dr. Abdul El-Sayed and Representative Haley Stevens showcased their wildly different ideological stances and political styles.`\
+https://www.nytimes.com/2026/07/27/us/politics/abdul-el-sayed-haley-stevens-michigan-senate-debate-takeaways.html
+
 **En España y Francia el humo de los incendios forestales sofoca los cielos**\
 `Cientos de miles de personas se han visto obligadas a evacuar o se les ha pedido que se refugien en interiores.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/incendios-espana-francia-fotos.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/es/2026/07/27/espanol/mundo/cupula-calor-incendios-espan
 **Review: Handel’s ‘Tolomeo’ Comes to Caramoor**\
 `Philharmonia Baroque Orchestra came to Caramoor with Handel’s “Tolomeo,” a far-fetched opera seria with a lively score.`\
 https://www.nytimes.com/2026/07/27/arts/music/handel-tolomeo-caramoor.html
-
-**Read Bryan Kohberger’s Statement About Abandoning His Guilty Plea**\
-`Bryan Kohberger, who pleaded guilty last year to killing four University of Idaho students, said he wants to withdraw his confession and reopen the case. Mr. Kohberger sent a statement to The New York Times by way of his family.`\
-https://www.nytimes.com/interactive/2026/07/27/us/bryan-kohberger-statement.html
-
-**Bryan Kohberger, Convicted in Idaho College Killings, Seeks to Take Back Guilty Plea**\
-`In an interview from prison, Bryan Kohberger said he had filed a petition to reopen the case. He blamed his guilty plea on “false promises” and wrong information.`\
-https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
 
