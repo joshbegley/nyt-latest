@@ -1,3 +1,7 @@
+**En España y Francia el humo de los incendios forestales sofoca los cielos**\
+`Cientos de miles de personas se han visto obligadas a evacuar o se les ha pedido que se refugien en interiores.`\
+https://www.nytimes.com/es/2026/07/27/espanol/mundo/incendios-espana-francia-fotos.html
+
 **NYT Crossword Answers for July 28, 2026**\
 `Adam Vincent noses ahead.`\
 https://www.nytimes.com/2026/07/27/crosswords/daily-puzzle-2027-07-28.html
