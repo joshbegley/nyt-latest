@@ -1,3 +1,7 @@
+**Live Updates: 6.8-Magnitude Earthquake Strikes Japan**\
+`Fires and injuries were reported after the quake in Kumamoto Prefecture, according to Japan’s state broadcaster. A tsunami warning was lifted.`\
+https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
+
 **Tech Stocks Tumble on Worries About A.I. Spending and China’s Chip Competition**\
 `South Korea temporarily paused trading on Tuesday as its benchmark stock index led losses across the region, closing more than 10 percent lower.`\
 https://www.nytimes.com/2026/07/28/business/stocks-ai-chips.html

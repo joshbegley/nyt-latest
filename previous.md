@@ -1,10 +1,10 @@
+**Live Updates: 6.8-Magnitude Earthquake Strikes Japan**\
+`Fires and injuries were reported after the quake in Kumamoto Prefecture, according to Japan’s state broadcaster. A tsunami warning was lifted.`\
+https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
+
 **Tech Stocks Tumble on Worries About A.I. Spending and China’s Chip Competition**\
 `South Korea temporarily paused trading on Tuesday as its benchmark stock index led losses across the region, closing more than 10 percent lower.`\
 https://www.nytimes.com/2026/07/28/business/stocks-ai-chips.html
-
-**6.8-Magnitude Earthquake in Japan Triggers Tsunami Warning**\
-`The quake struck near the coastal city of Uto in southern Japan. There were no immediate reports of damage.`\
-https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-tsunami.html
 
 **New York Has a New Sheriff, and His Mentor Is Serpico**\
 `Edwin Raymond, a retired police lieutenant and former whistle-blower himself, was sworn in at a ceremony that paid homage to Frank Serpico, the famous anti-corruption detective of the 1970s.`\
