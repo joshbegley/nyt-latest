@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 28, 2026**\
+`Adam Vincent noses ahead.`\
+https://www.nytimes.com/2026/07/27/crosswords/daily-puzzle-2027-07-28.html
+
 **Tornado Damage Reported in Wisconsin as Storms Unleash Heavy Rain and Winds**\
 `Forecasters warned that more storms were expected into the evening stretching across the Midwest.`\
 https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
