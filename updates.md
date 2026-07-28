@@ -1,3 +1,15 @@
+**Prediction Market Betting on Drug Trials and Approvals Sparks Concern About Undermining Research**\
+`Prediction markets on Kalshi and Polymarket now let people wager money on drug approvals. Kalshi also plans to allow bets on clinical trial results.`\
+https://www.nytimes.com/2026/07/28/business/kalshi-polymarket-prediction-market-drugs.html
+
+**AFSCME Leader Lee Saunders to Retire as Unions Face New Opposition**\
+`Lee Saunders has led the country’s top union for local public workers at a time of growing public support and official opposition.`\
+https://www.nytimes.com/2026/07/28/us/politics/lee-saunders-ascme-retirement.html
+
+**Terremoto en Japón: lo que hay que saber**\
+`Los equipos de emergencia se apresuran a buscar personas y extinguir incendios después de que el fuerte terremoto sacudiera la prefectura de Kumamoto, en una isla al suroeste del país.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/terremoto-japon.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011058069/28vid-graham-hearse-arrival.html
