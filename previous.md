@@ -1,3 +1,7 @@
+**Trump’s Spy Chief Spends Final Hours in Job Boasting of Mass Firings**\
+`Bill Pulte, the acting director of national intelligence, said he has terminated nearly a third of the officials in his office, but others doubt the figures are accurate.`\
+https://www.nytimes.com/2026/07/28/us/politics/spy-chief-bill-pulte-final-hours.html
+
 **Graham and Netanyahu Worked Together to Denounce International Criminal Court**\
 `Senator Lindsey Graham helped to coordinate a group of lawmakers to rebuke the I.C.C., which was investigating Prime Minister Benjamin Netanyahu of Israel.`\
 https://www.nytimes.com/2026/07/28/us/politics/graham-netanyahu-documentary-icc.html
@@ -178,11 +182,7 @@ https://www.nytimes.com/video/embedded/us/politics/100000011058265/28vid-vance-o
 `Get live results and maps from the 2026 South Dakota primary runoff election.`\
 https://www.nytimes.com/interactive/2026/07/28/us/elections/results-south-dakota-governor-runoff.html
 
-**The Good News and the Bad News About the New Housing Law**\
-`What happens when a good law meets a seemingly indifferent administration?`\
-https://www.nytimes.com/2026/07/28/opinion/housing-law-trump-congress.html
-
-**Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
-`“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
+**Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
+`“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 

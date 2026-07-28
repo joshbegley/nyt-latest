@@ -1,3 +1,11 @@
+**Trump’s Spy Chief Spends Final Hours in Job Boasting of Mass Firings**\
+`Bill Pulte, the acting director of national intelligence, said he has terminated nearly a third of the officials in his office, but others doubt the figures are accurate.`\
+https://www.nytimes.com/2026/07/28/us/politics/spy-chief-bill-pulte-final-hours.html
+
+**Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
+`“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **Graham and Netanyahu Worked Together to Denounce International Criminal Court**\
 `Senator Lindsey Graham helped to coordinate a group of lawmakers to rebuke the I.C.C., which was investigating Prime Minister Benjamin Netanyahu of Israel.`\
 https://www.nytimes.com/2026/07/28/us/politics/graham-netanyahu-documentary-icc.html
