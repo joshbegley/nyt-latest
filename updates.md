@@ -1,3 +1,7 @@
+**Live Updates: Trump to Pay Tribute at Lindsey Graham’s Washington Funeral**\
+`The service for the South Carolina senator will be attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine. Vice President JD Vance was among the speakers at a morning ceremony.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **Ariana Grande Sues Over Hacking Campaign That Leaked Dozens of Songs**\
 `The singer says that for years members of her inner circle have been the victims of hacks aimed at stealing unreleased music, photos and videos.`\
 https://www.nytimes.com/2026/07/28/arts/music/ariana-grande-hacking-lawsuit.html
