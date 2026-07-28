@@ -10,8 +10,8 @@ https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-her
 `Justice may proceed slowly, and cautiously, but it does proceed.`\
 https://www.nytimes.com/2026/07/28/opinion/conquest-justice-putin.html
 
-**Remember When ‘Blame Canada’ Was a ‘South Park’ Joke?**\
-`It would be a grave mistake for Americans to treat their place in the world as an afterthought.`\
+**‘You Aren’t Going to Like What Comes After America’**\
+`I remember when ‘blame Canada’ was a joke.`\
 https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
 
 **Los enormes incendios forestales en España perforan el auge de Madrid**\

@@ -1,3 +1,7 @@
+**‘You Aren’t Going to Like What Comes After America’**\
+`I remember when ‘blame Canada’ was a joke.`\
+https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
+
 **Tornado Rips Through Wisconsin**\
 `A severe storm system damaged buildings, flipped cars and knocked down power lines in the Midwest. It prompted tornado and flash flood warnings across the region.`\
 https://www.nytimes.com/video/weather/100000011056695/wisconsin-tornado-menasha-storms.html
