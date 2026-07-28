@@ -1,3 +1,11 @@
+**A U.S. Citizen Deleted His Phone’s Data. Now He Faces a Felony Charge.**\
+`Federal prosecutors charged a man returning to the United States with obstruction because he gave them a passcode that erased his smartphone during a customs search.`\
+https://www.nytimes.com/2026/07/28/us/duress-password-phone-wipe-charge.html
+
+**ICE Arrests Surge at Airports**\
+`Also, a powerful earthquake hits Japan. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/07/28/briefing/ice-arrests-japan-earthquake.html
+
 **Trump Asks Supreme Court to Overturn $83.3 Million Award in Carroll Defamation Case**\
 `President Trump paid E. Jean Carroll more than $5 million from a 2023 lawsuit, but he is now asking the court to overturn a much larger award that a jury ordered him to pay in 2024 for defaming her.`\
 https://www.nytimes.com/2026/07/28/us/politics/trump-supreme-court-carroll.html
