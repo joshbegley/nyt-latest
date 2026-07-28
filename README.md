@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011058265/28vid-vance-on-graham-people-sot.html
+
 **South Dakota Governor Republican Primary Runoff 2026: Live Election Results, Rhoden vs. Doeden**\
 `Get live results and maps from the 2026 South Dakota primary runoff election.`\
 https://www.nytimes.com/interactive/2026/07/28/us/elections/results-south-dakota-governor-runoff.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
 **El resurgimiento del tā moko, el tatuaje ritual maorí**\
 `En Nueva Zelanda, cada vez más jóvenes maoríes reivindican una tradición ancestral que el dominio colonial británico prohibió y que resurgió como un acto de protesta en la década de 1970.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/tatuaje-facial-maori-nueva-zelanda.html
-
-**Senate Democrats Press Blanche on Times Subpoenas**\
-`Days before a committee vote on Todd Blanche’s nomination to be attorney general, Democrats demanded answers about the since-withdrawn subpoenas.`\
-https://www.nytimes.com/2026/07/28/us/politics/senate-democrats-todd-blanche-subpoenas.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
