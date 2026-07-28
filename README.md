@@ -1,3 +1,7 @@
+**Late Night Roasts President Trump’s Attempt at Comedy**\
+`“And let’s just say Iran’s not the only thing he bombed,” Seth Meyers said of the president’s performance at the White House Correspondents’ Dinner.`\
+https://www.nytimes.com/2026/07/28/arts/television/late-night-trump-white-house-correspondents-dinner.html
+
 **Por qué estos animales tienen OnlyFans**\
 `Mientras el gobierno federal reduce el presupuesto para investigación en “ciencias de la vida”, un grupo de científicos creó una cuenta para financiar el estudio de estos roedores.`\
 https://www.nytimes.com/es/2026/07/28/espanol/onlyfans-cuenta-marmotas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
 **Heat Wave Threatens Further Wildfire Spread in France and Spain**\
 `The record wildfires, which have destroyed more than 200 homes and prompted large evacuations, could intensify with the arrival of a new heat wave.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
-
-**Apple Regains Spot Over Nvidia as Most Valuable Public Company**\
-`The company slipped by the chipmaker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
-https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
 
