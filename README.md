@@ -1,3 +1,7 @@
+**Cyclospora Conspiracy Theories Have Social Media Users Jumping to Conclusions**\
+`On sites like X and TikTok, the conversation about Taylor Farms is dominated by conjecture about the produce firm’s donation to a Trump-linked PAC.`\
+https://www.nytimes.com/2026/07/28/business/media/cyclospora-social-media.html
+
 **Florida Executes One Man, and Plans a 2nd Execution Tonight**\
 `Both were set to be carried out by lethal injection.`\
 https://www.nytimes.com/2026/07/28/us/florida-executions.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/07/28/business/dealbook/chips-market-rout-ai.html
 **Fourth Heat Wave of the Summer Hits Europe as France and Spain Fight Wildfires**\
 `Temperatures are soaring on the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
 https://www.nytimes.com/2026/07/28/weather/europe-heat-wave-weather-forecast.html
-
-**Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer**\
-`The attack in the Caspian Sea was an unusually direct encounter between two countries that have been on opposite sides for years.`\
-https://www.nytimes.com/2026/07/28/world/middleeast/iran-ukraine-ship-strikes-caspian.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\

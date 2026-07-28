@@ -1,3 +1,11 @@
+**Florida Executes One Man, and Plans a 2nd Execution Tonight**\
+`Both were set to be carried out by lethal injection.`\
+https://www.nytimes.com/2026/07/28/us/florida-executions.html
+
+**Auteur-core! 9 Great Songs That Reference Filmmakers**\
+`Hear cinephile tracks from Charli XCX, David Bowie, SZA and more.`\
+https://www.nytimes.com/2026/07/28/arts/music/amplifier-newsletter-charli-xcx-david-cronenberg.html
+
 **Ariana Grande Sues Over Hacking Campaign That Leaked Dozens of Songs**\
 `The singer says that for years members of her inner circle have been the victims of hacks aimed at stealing unreleased music, photos and videos.`\
 https://www.nytimes.com/2026/07/28/arts/music/ariana-grande-hacking-lawsuit.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/07/28/weather/europe-heat-wave-weather-forecast.htm
 **Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer**\
 `The attack in the Caspian Sea was an unusually direct encounter between two countries that have been on opposite sides for years.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-ukraine-ship-strikes-caspian.html
-
-**The Cuban Way**\
-`We look at the state of the island as it struggles with an energy crisis.`\
-https://www.nytimes.com/2026/07/28/briefing/cuba-surviving-energy-crisis.html
-
-**India vive un momento ‘cucaracha’**\
-`Narendra Modi cedió ante las exigencias de los jóvenes de India, un reconocimiento a su verdadero poder.`\
-https://www.nytimes.com/es/2026/07/28/espanol/mundo/india-protestas-jovenes-cucaracha.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\

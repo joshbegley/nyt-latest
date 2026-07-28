@@ -1,3 +1,11 @@
+**Florida Executes One Man, and Plans a 2nd Execution Tonight**\
+`Both were set to be carried out by lethal injection.`\
+https://www.nytimes.com/2026/07/28/us/florida-executions.html
+
+**Auteur-core! 9 Great Songs That Reference Filmmakers**\
+`Hear cinephile tracks from Charli XCX, David Bowie, SZA and more.`\
+https://www.nytimes.com/2026/07/28/arts/music/amplifier-newsletter-charli-xcx-david-cronenberg.html
+
 **Live Updates: Trump to Pay Tribute at Lindsey Graham’s Washington Funeral**\
 `The service for the South Carolina senator is being attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine. Vice President JD Vance was among the speakers at a morning ceremony.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
