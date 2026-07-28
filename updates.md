@@ -1,3 +1,15 @@
+**The Immigration Crackdown and the Plight of the Caregivers**\
+`Readers describe a crisis for caregivers and families. Also: Canceling grants based on politics; no politics in uniform; rediscovering resilience.`\
+https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
+
+**How Are You Navigating This Extreme Summer?**\
+`Amid blistering heat, economic anxiety and a tumultuous news cycle, we want to hear how you’re experiencing the season.`\
+https://www.nytimes.com/2026/07/28/us/extreme-summer-routines-traditions.html
+
+**As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks**\
+`Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump can, and they have leverage over the Strait of Hormuz, analysts say.`\
+https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
+
 **Today, In Short**\
 `Daylight saving time. New York City history. And nuns.`\
 https://www.nytimes.com/2026/07/28/briefing/today-in-short.html

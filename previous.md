@@ -1,3 +1,11 @@
+**The Immigration Crackdown and the Plight of the Caregivers**\
+`Readers describe a crisis for caregivers and families. Also: Canceling grants based on politics; no politics in uniform; rediscovering resilience.`\
+https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
+
+**How Are You Navigating This Extreme Summer?**\
+`Amid blistering heat, economic anxiety and a tumultuous news cycle, we want to hear how you’re experiencing the season.`\
+https://www.nytimes.com/2026/07/28/us/extreme-summer-routines-traditions.html
+
 **Today, In Short**\
 `Daylight saving time. New York City history. And nuns.`\
 https://www.nytimes.com/2026/07/28/briefing/today-in-short.html
@@ -147,7 +155,7 @@ https://www.nytimes.com/2026/07/28/crosswords/strands-sidekick-878.html
 https://www.nytimes.com/2026/07/28/crosswords/connections-companion-1144.html
 
 **As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks**\
-`Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump and have leverage over the Strait of Hormuz, analysts say.`\
+`Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump can, and they have leverage over the Strait of Hormuz, analysts say.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
 
 **Map: 6.8-Magnitude Earthquake Shakes Japan**\
@@ -177,22 +185,6 @@ https://www.nytimes.com/2026/07/28/weather/new-york-rain-storms.html
 **Calling Trump’s Personal Cell**\
 `Pablo and the hosts of “TrueAnon” dial the president’s phone number and ask the important questions.`\
 https://www.nytimes.com/2026/07/28/podcasts/trueanon-calling-trump-personal-cell.html
-
-**Keigo Higashino, Best-Selling Japanese Mystery Writer, Dies at 68**\
-`His works, which included “The Devotion of Suspect X,” were widely translated and adapted for the screen.`\
-https://www.nytimes.com/2026/07/28/obituaries/keigo-higashino-author-dead.html
-
-**Fresh Clashes Erupt in Pakistani Kashmir on First Day of Contested Vote**\
-`Dozens have died in recent weeks ahead of a weekslong regional election, officials said. A banned civil rights group said supporters died in conflicts with the police.`\
-https://www.nytimes.com/2026/07/28/world/asia/pakistan-kashmir-election-violence.html
-
-**¿Está mal comer lo mismo todos los días?**\
-`Algunas personas lo hacen para perder peso, otras para evitar la molestia de planificar las comidas. Preguntamos a los expertos cómo afecta a la salud la “monotonía alimentaria”.`\
-https://www.nytimes.com/es/2026/07/28/espanol/misma-comida-todos-dias.html
-
-**The Democratic Party Needs Change**\
-`Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
-https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
