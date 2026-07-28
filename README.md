@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 28, 2026**\
+`Adam Vincent noses ahead.`\
+https://www.nytimes.com/2026/07/27/crosswords/daily-puzzle-2027-07-28.html
+
 **Los Angeles Judge Rules D4vd Murder Case Can Go to Trial**\
 `A Los Angeles judge ruled on Monday that the murder case against the singer D4vd, who is accused of killing 14-year-old Celeste Rivas Hernandez, could go to trial.`\
 https://www.nytimes.com/video/us/100000011055244/d4vd-trial-murder-hernandez.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/us/bryan-kohberger-idaho-college-deaths.html
 **Amid France Wildfires, Some Residents Help Firefighters Contain Blazes**\
 `With firefighters stretched thin, volunteers put themselves at risk, using water tanks, hoses and tractors to hold back flames from villages and farms in southwestern France.`\
 https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-france-wildfires.html
-
-**Chilled Tofu With Gochujang Sauce**\
-`This silken tofu, draped in a tangy, savory, chile-sweet gochujang sauce, is a warm weather epiphany: No cooking whatsoever.`\
-https://www.nytimes.com/video/dining/100000011055026/chilled-tofu-with-gochujang-sauce.html
 
