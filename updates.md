@@ -1,3 +1,7 @@
+**Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
+`Emergency workers were racing to find people and extinguish fires after the 6.8-magnitude quake struck the southwestern prefecture of Kumamoto.`\
+https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
+
 **Apple Introduces Leasing Program for iPhones and Other Devices**\
 `The program is an effort to make products more affordable as artificial intelligence sends some component prices soaring.`\
 https://www.nytimes.com/2026/07/28/technology/apple-leasing-program.html

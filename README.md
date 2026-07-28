@@ -1,3 +1,7 @@
+**Kumamoto Castle, a Famed Landmark, Is Damaged in the Japan Earthquake**\
+`The centuries-old castle, one of the country’s best-known, was also affected by the region’s 2016 earthquakes.`\
+https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-castle-damage.html
+
 **Apple Introduces Leasing Program for iPhones and Other Devices**\
 `The program is an effort to make products more affordable as artificial intelligence sends some component prices soaring.`\
 https://www.nytimes.com/2026/07/28/technology/apple-leasing-program.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/28/magazine/heritage-foundation-trump-republican
 **An Atlanta Museum’s New Look at the Civil War Goes Beyond Relics**\
 `The Atlanta History Center replaced an exhibition focused on military history with a reflection of America’s defining conflict.`\
 https://www.nytimes.com/2026/07/28/arts/design/civil-war-atlanta-history-center.html
-
-**Police Say Binance Is Making It Harder to Fight Crime**\
-`Investigators in Europe said that the cryptocurrency giant Binance had made it more difficult to track down scammers and solve other crimes.`\
-https://www.nytimes.com/2026/07/28/us/binance-crypto-crime.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8-magnitude quake struck the southwestern prefecture of Kumamoto.`\
