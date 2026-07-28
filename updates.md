@@ -1,3 +1,7 @@
+**Tornado Damage Reported in Wisconsin as Storms Unleash Heavy Rain and Winds**\
+`Forecasters warned that more storms were expected into the evening stretching across the Midwest.`\
+https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
+
 **Los Angeles Judge Rules D4vd Murder Case Can Go to Trial**\
 `A Los Angeles judge ruled on Monday that the murder case against the singer D4vd, who is accused of killing 14-year-old Celeste Rivas Hernandez, could go to trial.`\
 https://www.nytimes.com/video/us/100000011055244/d4vd-trial-murder-hernandez.html

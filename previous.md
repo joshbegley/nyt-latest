@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
 https://www.nytimes.com/2026/07/27/us/rock-fall-death-glacier-national-park.html
 
 **Tornado Damage Reported in Wisconsin as Storms Unleash Heavy Rain and Winds**\
-`Forecasters warned that more storms were expected into the evening.`\
+`Forecasters warned that more storms were expected into the evening stretching across the Midwest.`\
 https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
 
 **McConnell Extends Senate Leave, Will Miss State Picnic**\
