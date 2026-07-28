@@ -1,3 +1,19 @@
+**New York Has a New Sheriff, and His Mentor Is Serpico**\
+`Edwin Raymond, a retired police lieutenant and former whistle-blower himself, was sworn in at a ceremony that paid homage to Frank Serpico, the famous anti-corruption detective of the 1970s.`\
+https://www.nytimes.com/2026/07/28/nyregion/nyc-sheriff-edwin-raymond-frank-serpico.html
+
+**NYT Spelling Bee Answers for July 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/28/crosswords/spelling-bee-forum.html
+
+**Breaking a Sweat for the Story, and Glory**\
+`A look at what it takes to report on, and join, an intense fitness program at the same time.`\
+https://www.nytimes.com/2026/07/28/insider/xenom-fitness.html
+
+**A Newsstand That Aims to Delight N.Y.C. Subway Riders**\
+`A comedian and his friends are transforming a vacant retail space at the West 4th Street station with freebies, art and puppet shows to make commutes more enjoyable.`\
+https://www.nytimes.com/2026/07/28/nyregion/subway-newstand-west-4th-station-nyc.html
+
 **Putin Saw a Gap in Which He Could Act With Impunity. Let’s Close the Gap.**\
 `Justice may proceed slowly, and cautiously, but it does proceed.`\
 https://www.nytimes.com/2026/07/28/opinion/conquest-justice-putin.html
