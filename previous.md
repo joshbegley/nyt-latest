@@ -1,6 +1,18 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011059286/29DC-Flashlight-Tariff-Production-Video.html
+
+**Long-Delayed Guggenheim Abu Dhabi to Open in December**\
+`The museum, designed by Frank Gehry for the capital of the United Arab Emirates, will show art from the 1960s to the present.`\
+https://www.nytimes.com/2026/07/28/arts/design/guggenheim-abu-dhabi-opening-december.html
+
+****\
+`tktktk factory in Thailand`\
+https://www.nytimes.com/video/embedded/business/100000011059293/29DC-Flashlight-Tariff-video-factory.html
+
 **Gibson Dunn Hires Rival Wachtell Lipton’s Co-Chair**\
 `Gibson Dunn’s hiring of the seasoned litigator William Savitt highlights the fierce competition for top lawyers across Wall Street.`\
-https://www.nytimes.com/2026/07/28/business/gibson-dunn-hires-wachtell-liptons-co-chair.html
+https://www.nytimes.com/2026/07/28/business/dealbook/gibson-dunn-hires-wachtell-liptons-co-chair.html
 
 **Georgia 13th Congressional District Special 2026: Live Election Results**\
 `Get live results and maps from the 2026 Georgia special election.`\
@@ -170,19 +182,7 @@ https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 `Also among the 13 works up for the British literary award are the latest books from Douglas Stuart, Gwendoline Riley and Emma Cline.`\
 https://www.nytimes.com/2026/07/28/books/booker-prize-longlist.html
 
-**Street Style Look of the Week: 1970s Flair on the Cheap**\
-`James Rutherford is often able to snag louche 1970s pieces without much trouble. “It’s really a reviled decade, you know, as far as men’s fashion is concerned,” he said.`\
-https://www.nytimes.com/2026/07/28/style/street-style-look-1970s-suit.html
-
-**Kumamoto Castle, a Famed Landmark, Is Damaged in the Japan Earthquake**\
-`The centuries-old castle, one of the country’s best-known, was also affected by the region’s 2016 earthquakes.`\
-https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-castle-damage.html
-
 **Trump Administration Live Updates: Trump Meets With Netanyahu and Zelensky as Wars Continue in Iran and Ukraine**\
 `(No description)`\
 https://www.nytimes.com/live/2026/07/28/us/trump-news
-
-**Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
-`Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
-https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
 

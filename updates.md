@@ -1,3 +1,19 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/business/100000011059286/29DC-Flashlight-Tariff-Production-Video.html
+
+**Long-Delayed Guggenheim Abu Dhabi to Open in December**\
+`The museum, designed by Frank Gehry for the capital of the United Arab Emirates, will show art from the 1960s to the present.`\
+https://www.nytimes.com/2026/07/28/arts/design/guggenheim-abu-dhabi-opening-december.html
+
+****\
+`tktktk factory in Thailand`\
+https://www.nytimes.com/video/embedded/business/100000011059293/29DC-Flashlight-Tariff-video-factory.html
+
+**Gibson Dunn Hires Rival Wachtell Lipton’s Co-Chair**\
+`Gibson Dunn’s hiring of the seasoned litigator William Savitt highlights the fierce competition for top lawyers across Wall Street.`\
+https://www.nytimes.com/2026/07/28/business/dealbook/gibson-dunn-hires-wachtell-liptons-co-chair.html
+
 **Darline Graham Mourns Her Brother as She Seeks His Seat**\
 `Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
 https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html
