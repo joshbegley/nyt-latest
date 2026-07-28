@@ -1,3 +1,19 @@
+**Trump Asks Supreme Court to Overturn $83.3 Million Award in Carroll Defamation Case**\
+`President Trump paid E. Jean Carroll more than $5 million from a 2023 lawsuit, but he is now asking the court to overturn a much larger award that a jury ordered him to pay in 2024 for defaming her.`\
+https://www.nytimes.com/2026/07/28/us/politics/trump-supreme-court-carroll.html
+
+**Iran Considered Retaliatory Strike on Ukrainian Seaport**\
+`A flurry of diplomacy has eased tensions, officials said, after an incident risked triggering a wider war.`\
+https://www.nytimes.com/2026/07/28/us/politics/iran-ukraine-tensions.html
+
+**Democrats Disagree Over Israel — and That’s OK.**\
+`The debate over Israel has become a major fault line in the Democratic Party. On “The Ezra Klein Show,” Ben Wikler argues that the ongoing disagreement over U.S. foreign policy is a “healthy” part of the democratic process.`\
+https://www.nytimes.com/video/opinion/100000011044925/democrats-disagree-over-israel-and-thats-ok.html
+
+**The Democratic Party Should Be a ‘Very Big Tent’**\
+`From democratic socialists to centrists, should the Democratic Party try to appeal to as broad a spectrum of voters as possible? The Times Opinion columnist Ezra Klein asks Ben Wikler, who served as the chair of the Democratic Party of Wisconsin from 2019 to 2025 and has a lot of experience building a voter base in a swing state.`\
+https://www.nytimes.com/video/opinion/100000011044922/the-democratic-party-should-be-a-very-big-tent.html
+
 **Lo que debes saber sobre el terremoto en Japón**\
 `Un sismo de magnitud 6,8 se registró en el suroeste del país, en la prefectura de Kumamoto, causando daños en edificios y viviendas. Al menos una persona murió y se reportan decenas de heridos.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/japon-terremoto.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/28/business/media/cyclospora-social-media.html
 **Florida Executes One Man, and Plans a 2nd Execution Tonight**\
 `The second man is scheduled to be killed at 6 p.m., which would result in the rare instance of a state carrying out two executions in one day.`\
 https://www.nytimes.com/2026/07/28/us/florida-executions.html
-
-**Auteur-core! 9 Great Songs That Reference Filmmakers**\
-`Hear cinephile tracks from Charli XCX, David Bowie, SZA and more.`\
-https://www.nytimes.com/2026/07/28/arts/music/amplifier-newsletter-charli-xcx-david-cronenberg.html
-
-**Ariana Grande Sues Over Hacking Campaign That Leaked Dozens of Songs**\
-`The singer says that for years members of her inner circle have been the victims of hacks aimed at stealing unreleased music, photos and videos.`\
-https://www.nytimes.com/2026/07/28/arts/music/ariana-grande-hacking-lawsuit.html
-
-**The Iran War Just Put Another Key Oil Route at Risk**\
-`Attacks in the Strait of Hormuz during the Iran war have led Saudi Arabia to rely on an alternative route for exporting oil. Our reporter Rebecca F. Elliott explains how that route is now threatened by the Houthis, a Yemeni militia supported by Iran.`\
-https://www.nytimes.com/video/business/energy-environment/100000011050115/red-sea-blockade-oil-route.html
-
-**Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
-`“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
-https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 
