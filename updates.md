@@ -1,3 +1,7 @@
+**The Cuban Way**\
+`We look at the state of the island as it struggles with an energy crisis.`\
+https://www.nytimes.com/2026/07/28/briefing/cuba-surviving-energy-crisis.html
+
 **India vive un momento ‘cucaracha’**\
 `Narendra Modi cedió ante las exigencias de los jóvenes de India, un reconocimiento a su verdadero poder.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/india-protestas-jovenes-cucaracha.html
