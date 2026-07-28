@@ -1,3 +1,11 @@
+**Graham Mourns Her Brother as She Seeks His Seat**\
+`Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
+https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html
+
+**Por qué Irán no tiene prisa por reanudar las conversaciones con EE. UU.**\
+`En medio de una pausa en los combates, los líderes de Irán apuestan a que pueden soportar más presión que el presidente Trump, y a que tienen influencia sobre el estrecho de Ormuz, según analistas.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/iran-guerra-eeuu-trump.html
+
 **Cyclospora Conspiracy Theories Have Social Media Users Jumping to Conclusions**\
 `On sites like X and TikTok, the conversation about Taylor Farms is dominated by conjecture about the produce firm’s donation to a Trump-linked PAC.`\
 https://www.nytimes.com/2026/07/28/business/media/cyclospora-social-media.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/07/28/technology/apple-leasing-program.html
 **Germany’s AfD Opposes Pride Flags but May Win Support After L.G.B.T.Q. Attack**\
 `Analysts say a recent attack on a Pride celebration is likely to focus fall elections on issues favoring the far-right Alternative for Germany party.`\
 https://www.nytimes.com/2026/07/28/world/europe/berlin-pride-attack-afd-politics.html
-
-**The Chips Rout Goes Global**\
-`Shares in semiconductor companies plunged in South Korea and Europe, adding fresh doubts to the durability of the artificial intelligence trade.`\
-https://www.nytimes.com/2026/07/28/business/dealbook/chips-market-rout-ai.html
-
-**Fourth Heat Wave of the Summer Hits Europe as France and Spain Fight Wildfires**\
-`Temperatures are soaring on the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
-https://www.nytimes.com/2026/07/28/weather/europe-heat-wave-weather-forecast.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
