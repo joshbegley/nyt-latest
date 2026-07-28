@@ -1,3 +1,15 @@
+**Un excursionista se empaló con su bastón y caminó 16 km para buscar ayuda**\
+`David Cifaldi iba a llegar a la cima del pico Granite, la montaña más alta de Montana, cuando resbaló y cayó sobre uno de sus bastones. Después bajó la montaña a pie para buscar ayuda médica.`\
+https://www.nytimes.com/es/2026/07/28/espanol/excursionista-empalo-baston.html
+
+**6.8 Magnitude Earthquake Rocks Japan**\
+`A powerful 6.8-magnitude earthquake rocked southwest Japan on Tuesday, causing fires, damaging historic structures, and leaving dozens injured, according to the state broadcaster.`\
+https://www.nytimes.com/video/world/asia/100000011057666/6-8-magnitude-earthquake-rocks-japan.html
+
+**Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
+`Ruby Rippey has stayed mostly quiet since her relationship with the San Francisco mayor rocked the city. Not anymore.`\
+https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
+
 **Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
 `Lawmakers have introduced hundreds of bills related to vaccines this year. Their proposals offer a window into the modern movement against the shots.`\
 https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covid.html
