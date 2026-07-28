@@ -1,3 +1,19 @@
+**Trump Asks Supreme Court to Overturn $83.3 Million Award in Carroll Defamation Case**\
+`President Trump paid E. Jean Carroll more than $5 million from a 2023 lawsuit, but he is now asking the court to overturn a much larger award that a jury ordered him to pay in 2024 for defaming her.`\
+https://www.nytimes.com/2026/07/28/us/politics/trump-supreme-court-carroll.html
+
+**Iran Considered Retaliatory Strike on Ukrainian Seaport**\
+`A flurry of diplomacy has eased tensions, officials said, after an incident risked triggering a wider war.`\
+https://www.nytimes.com/2026/07/28/us/politics/iran-ukraine-tensions.html
+
+**Democrats Disagree Over Israel — and That’s OK.**\
+`The debate over Israel has become a major fault line in the Democratic Party. On “The Ezra Klein Show,” Ben Wikler argues that the ongoing disagreement over U.S. foreign policy is a “healthy” part of the democratic process.`\
+https://www.nytimes.com/video/opinion/100000011044925/democrats-disagree-over-israel-and-thats-ok.html
+
+**The Democratic Party Should Be a ‘Very Big Tent’**\
+`From democratic socialists to centrists, should the Democratic Party try to appeal to as broad a spectrum of voters as possible? The Times Opinion columnist Ezra Klein asks Ben Wikler, who served as the chair of the Democratic Party of Wisconsin from 2019 to 2025 and has a lot of experience building a voter base in a swing state.`\
+https://www.nytimes.com/video/opinion/100000011044922/the-democratic-party-should-be-a-very-big-tent.html
+
 **Lo que debes saber sobre el terremoto en Japón**\
 `Un sismo de magnitud 6,8 se registró en el suroeste del país, en la prefectura de Kumamoto, causando daños en edificios y viviendas. Al menos una persona murió y se reportan decenas de heridos.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/japon-terremoto.html
