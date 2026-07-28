@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Daylight saving time. New York City history. And nuns.`\
+https://www.nytimes.com/2026/07/28/briefing/today-in-short.html
+
 **France and Spain Race to Contain Wildfires**\
 `Firefighters in Spain and France took advantage of a brief respite from scorching conditions overnight to slow the spread of blazes near Madrid and Bordeaux, even as they braced on Tuesday for a new heat wave that could worsen raging wildfires.`\
 https://www.nytimes.com/video/world/europe/100000011057271/france-spain-wildfires-containment.html
