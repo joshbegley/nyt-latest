@@ -1,3 +1,39 @@
+**Quote of the Day: Tours Must Go on at Gutted Kennedy Center**\
+`Quotation of the Day for Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/28/pageoneplus/quote-of-the-day-tours-must-go-on-at-gutted-kennedy-center.html
+
+**Massive Wildfires Draw Close to Madrid**\
+`Madrid is booming, culturally and economically, but the wildfires raging within a short drive of the capital have provided a reality check.`\
+https://www.nytimes.com/2026/07/28/world/europe/spain-wildfires-madrid.html
+
+**Drilling for Oil the Old-Fashioned Way in ‘Little Texas,’ Indonesia**\
+`Small pumps and truck engines are used to extract crude from the ground in parts of the country, which has tens of thousands of community-run oil wells.`\
+https://www.nytimes.com/2026/07/28/world/asia/indonesia-crude-oil-wells-drilling.html
+
+**Zelensky and Trump Will Meet at the White House. Has Their Relationship Thawed?**\
+`President Trump will meet his Ukrainian counterpart in Washington this week. President Volodymyr Zelensky will also attend the funeral of Senator Lindsey Graham.`\
+https://www.nytimes.com/2026/07/28/world/europe/zelensky-trump-meeting-ukraine-war-russia.html
+
+****\
+`Big oil companies have long considered Wonocolo commercially insignificant.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011048120/00int-indonesia-dispatch-2230.html
+
+**He Served China’s Police State of Xinjiang. He Says It Imprisoned Him, Too.**\
+`After nearly 10 years carrying out Chinese government repression in Xinjiang, a former police officer is now seeking asylum in Germany.`\
+https://www.nytimes.com/2026/07/28/business/china-uyghurs.html
+
+**Southeast Asian Resort Towns Suffer as Iran War Keeps European Tourists Away**\
+`Soaring airfares and disruptions to Middle Eastern travel hubs are keeping many travelers away from destinations in Cambodia, Thailand and Indonesia.`\
+https://www.nytimes.com/2026/07/28/world/asia/iran-war-southeast-asia-tourism.html
+
+**The Iran War Is Making Asia’s Street Food More Expensive**\
+`Some staple dishes in Asia are no longer as affordable to purchase or prepare. Customers and food sellers alike are feeling the pinch.`\
+https://www.nytimes.com/2026/07/28/world/asia/iran-war-price-inflation-street-food-asia.html
+
+**Corrections: July 28, 2026**\
+`Corrections that appeared in print on Tuesday, July 28, 2026.`\
+https://www.nytimes.com/2026/07/28/pageoneplus/corrections-july-28-2026.html
+
 ****\
 `please add summary`\
 https://www.nytimes.com/video/embedded/business/100000011056666/Biz-China-Beef.html
@@ -161,36 +197,4 @@ https://www.nytimes.com/2026/07/27/us/politics/comey-seeks-dismissal-of-charges.
 **Wildfires in France Threaten Plants With Hazardous Material and Advanced Technology**\
 `The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
 https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html
-
-**Shots Fired Outside U.S. Consulate in Canada for Second Time This Year**\
-`The police said that it was too early to say if the episode was linked to a shooting that targeted the diplomatic post in March.`\
-https://www.nytimes.com/2026/07/27/world/canada/toronto-us-consulate-shooting.html
-
-**Trial of Lindsay Clancy, Accused of Murdering Her Children, Begins With Ex-Husband’s Testimony**\
-`Her former husband, Patrick Clancy, described her deteriorating mental health. He had publicly urged empathy for “the real Lindsay.”`\
-https://www.nytimes.com/2026/07/27/us/lindsay-clancy-husband-testimony.html
-
-**Despite Cancellations, Company Says ‘Game of Thrones’ Play Is On Track**\
-`The Royal Shakespeare Company called off five preview performances of the epic four-hour production last week, including one just hours before its scheduled curtain.`\
-https://www.nytimes.com/2026/07/27/theater/game-of-thrones-mad-king-royal-shakespeare-cancellations.html
-
-**Julie Masino, Cracker Barrel CEO Who Oversaw Logo Change, Steps Down**\
-`Julie Masino faced backlash online when the company tried to shed its old-timey image. David Deno, a former chief of Bloomin’ Brands, will take over.`\
-https://www.nytimes.com/2026/07/27/business/cracker-barrel-julie-masino.html
-
-**Man Dies After Being Struck by a Falling Rock at Glacier National Park**\
-`The man had been driving this month on a popular route through the park when a rock dislodged from a cliff face and struck his vehicle. Such fatal episodes are rare, officials said.`\
-https://www.nytimes.com/2026/07/27/us/rock-fall-death-glacier-national-park.html
-
-**Tornado Damage Reported in Wisconsin as Storms Unleash Heavy Rain and Winds**\
-`Forecasters warned that more storms were expected into the evening stretching across the Midwest.`\
-https://www.nytimes.com/2026/07/27/weather/chicago-wisconsin-tornadoes-forecast.html
-
-**McConnell Extends Senate Leave, Will Miss State Picnic**\
-`A new statement said the senator was not “medically cleared” to leave a rehabilitation facility and would miss a Kentucky political event.`\
-https://www.nytimes.com/2026/07/27/us/politics/mcconnell-extends-senate-leave-update.html
-
-**Israel and the Genocide Accusation**\
-`Readers take issue with a Holocaust scholar’s contention that Israel is guilty of genocide.`\
-https://www.nytimes.com/2026/07/27/opinion/letters/israel-genocide-accusation.html
 

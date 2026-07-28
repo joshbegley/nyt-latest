@@ -1,3 +1,11 @@
+**Los enormes incendios forestales en España perforan el auge de Madrid**\
+`Madrid vive un auge cultural y económico, pero los devastadores incendios forestales a pocos kilómetros de la capital han sido un golpe de realidad para sus habitantes.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/incendios-forestales-espana-madrid.html
+
+****\
+`please add a summary tktktk`\
+https://www.nytimes.com/video/embedded/business/100000011056745/28DC-Flashlight-Tariffs.html
+
 **Quote of the Day: Tours Must Go on at Gutted Kennedy Center**\
 `Quotation of the Day for Tuesday, July 28, 2026.`\
 https://www.nytimes.com/2026/07/28/pageoneplus/quote-of-the-day-tours-must-go-on-at-gutted-kennedy-center.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/27/espanol/rutina-ejercicios-equilibrio-agili
 **Case to Be Dropped Against Labor Leader David Huerta in L.A. Immigration Raid**\
 `The arrest of David Huerta last summer helped spark a wave of protests against the Trump administration’s immigration crackdown.`\
 https://www.nytimes.com/2026/07/27/us/david-huerta-charges-dismiss-la-immigration-raids.html
-
-**Comey Seeks Dismissal of Charges Accusing Him of Threatening Trump**\
-`The filing focused on the question of whether a photograph of seashells arranged to read “86 47” constituted a true threat under federal law.`\
-https://www.nytimes.com/2026/07/27/us/politics/comey-seeks-dismissal-of-charges.html
-
-**Wildfires in France Threaten Plants With Hazardous Material and Advanced Technology**\
-`The area around Bordeaux has many plants that work with sophisticated technologies and hazardous materials.`\
-https://www.nytimes.com/2026/07/27/world/europe/france-fires-aerospace-plants.html
 
