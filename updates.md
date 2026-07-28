@@ -1,3 +1,7 @@
+**Live Updates: Trump Pays Tribute at Lindsey Graham’s Washington Funeral**\
+`President Trump spoke at a service for the South Carolina senator  attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **Graham Mourns Her Brother as She Seeks His Seat**\
 `Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
 https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html

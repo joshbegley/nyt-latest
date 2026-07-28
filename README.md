@@ -1,3 +1,7 @@
+**Trump Loved Graham, Not So Much His Beloved Senate**\
+`The South Carolinian relished serving as a “bridge” between the institution he revered and the president, but now that bridge is gone.`\
+https://www.nytimes.com/2026/07/28/us/politics/trump-graham-senate.html
+
 **Graham Mourns Her Brother as She Seeks His Seat**\
 `Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
 https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html
@@ -174,9 +178,9 @@ https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-castle-d
 `The program is an effort to make products more affordable as artificial intelligence sends some component prices soaring.`\
 https://www.nytimes.com/2026/07/28/technology/apple-leasing-program.html
 
-**Germany’s AfD Opposes Pride Flags but May Win Support After L.G.B.T.Q. Attack**\
-`Analysts say a recent attack on a Pride celebration is likely to focus fall elections on issues favoring the far-right Alternative for Germany party.`\
-https://www.nytimes.com/2026/07/28/world/europe/berlin-pride-attack-afd-politics.html
+**Trump Administration Live Updates: Trump Meets With Netanyahu and Zelensky as Wars Continue in Iran and Ukraine**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/28/us/trump-news
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
