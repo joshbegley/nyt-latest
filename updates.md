@@ -1,3 +1,7 @@
+**Jewish Terrorism Is Also a Threat to Zionism**\
+`A blunt warning for Israel.`\
+https://www.nytimes.com/2026/07/28/opinion/israel-settlers-west-bank.html
+
 **How Cubans Are Surviving**\
 `It’s been six months since the U.S. cut off the island’s fuel sources. Our reporters went there and found remarkable stories of resilience.`\
 https://www.nytimes.com/2026/07/28/world/cuba-us-trump-ukraine-iran-japan-quake.html

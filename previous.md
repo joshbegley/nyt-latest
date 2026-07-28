@@ -1,3 +1,7 @@
+**Jewish Terrorism Is Also a Threat to Zionism**\
+`A blunt warning for Israel.`\
+https://www.nytimes.com/2026/07/28/opinion/israel-settlers-west-bank.html
+
 **How Cubans Are Surviving**\
 `It’s been six months since the U.S. cut off the island’s fuel sources. Our reporters went there and found remarkable stories of resilience.`\
 https://www.nytimes.com/2026/07/28/world/cuba-us-trump-ukraine-iran-japan-quake.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/28/business/cyclospora-food-safety-fda.html
 **An Anthropic Claude AI Model Finds Flaws in Tough-to-Crack Encryption Algorithms**\
 `Claude Mythos Preview discovered new attacks in testing against weakened cryptographic algorithms, which protect online financial transactions, private communications and more.`\
 https://www.nytimes.com/2026/07/28/us/politics/anthropic-ai-encryption-security-aes.html
-
-**‘The Odyssey’ Isn’t a Fashion Movie. But It Has One Great Outfit.**\
-`Plus: Bernard Arnault’s open letter and Zohran Mamdani meets Anna Wintour.`\
-https://www.nytimes.com/2026/07/28/style/odyssey-nolan-pattinson-antinous.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
