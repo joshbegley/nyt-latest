@@ -1,3 +1,7 @@
+**Mamdani’s Judicial Panel Appears to Be Missing Something: Jewish Members**\
+`Jewish lawyers’ groups expressed their frustration to Mayor Zohran Mamdani that his 18-member advisory committee on the judiciary appeared to have no Jewish representation.`\
+https://www.nytimes.com/2026/07/27/nyregion/mamdani-judges-jewish.html
+
 **Trump Backs New Talks but It’s Unclear What He Hopes to Achieve This Time**\
 `Iran denied President Trump’s claim that it wants to talk, and gave no sign that it would make concessions or speak directly with U.S. officials.`\
 https://www.nytimes.com/2026/07/27/us/politics/trump-iran-talks-negotiations.html

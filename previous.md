@@ -1,3 +1,7 @@
+**Mamdani’s Judicial Panel Appears to Be Missing Something: Jewish Members**\
+`Jewish lawyers’ groups expressed their frustration to Mayor Zohran Mamdani that his 18-member advisory committee on the judiciary appeared to have no Jewish representation.`\
+https://www.nytimes.com/2026/07/27/nyregion/mamdani-judges-jewish.html
+
 **A Setback for the MAGA Media Takeover**\
 `Trump is beatable if you take a page from his playbook and flood the zone with opposition.`\
 https://www.nytimes.com/2026/07/27/opinion/media-ellison-paramount.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011054594/berlin-pride-attack-m
 **Saudis Blame Iran-Backed Militias Based in Iraq for Drone Attacks**\
 `The kingdom is being dragged deeper into the wider regional conflict as it faces attacks from Iraq and Yemen.`\
 https://www.nytimes.com/2026/07/27/world/middleeast/saudi-arabia-drone-attacks-iraq-iran.html
-
-**‘Purple Rain,’ Packed With Prince Songs, Plans Broadway Opening**\
-`The musical, set to begin previews next March, is an adaptation of the 1984 film about a musician whose talent is threatened by tumult at home and at the club.`\
-https://www.nytimes.com/2026/07/27/theater/prince-purple-rain-broadway.html
 
