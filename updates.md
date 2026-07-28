@@ -1,3 +1,15 @@
+**Fresh Clashes Erupt in Pakistani Kashmir on First Day of Contested Vote**\
+`Dozens have died in recent weeks ahead of a weekslong regional election, officials said. A banned civil rights group said supporters died in conflicts with the police.`\
+https://www.nytimes.com/2026/07/28/world/asia/pakistan-kashmir-election-violence.html
+
+**¿Está mal comer lo mismo todos los días?**\
+`Algunas personas lo hacen para perder peso, otras para evitar la molestia de planificar las comidas. Preguntamos a los expertos cómo afecta a la salud la “monotonía alimentaria”.`\
+https://www.nytimes.com/es/2026/07/28/espanol/misma-comida-todos-dias.html
+
+**What is the Democratic Party? What Could It Be?**\
+`Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
+https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
+
 **El resurgimiento del tā moko, el tatuaje ritual maorí**\
 `En Nueva Zelanda, cada vez más jóvenes maoríes reivindican una tradición ancestral que el dominio colonial británico prohibió y que resurgió como un acto de protesta en la década de 1970.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/tatuaje-facial-maori-nueva-zelanda.html
