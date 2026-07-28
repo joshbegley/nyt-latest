@@ -1,3 +1,7 @@
+**Were You Stuck Footing the Bill on a Group Trip? Tell Us About It.**\
+`Traveling with friends can be tricky. We’re curious how you manage financial friction — and how you make sure your besties settle up.`\
+https://www.nytimes.com/2026/07/28/travel/group-trip-finances-readers.html
+
 **What to Know About the Kumamoto Earthquake in Japan**\
 `At least one person who was found in a collapsed house was killed, and about 50 others were injured on Tuesday in the southwestern prefecture of Kumamoto.`\
 https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-damage.html
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
 `Lawmakers have introduced hundreds of bills related to vaccines this year. Their proposals offer a window into the modern movement against the shots.`\
 https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covid.html
 
-**Do you work in No Surprises Act arbitration? Tell us about it.**\
+**Do You Work in No Surprises Act Arbitration? Tell Us About It.**\
 `New York Times reporters are looking into how government contractors resolve medical billing disputes.`\
 https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/28/podcasts/the-headlines/democratic-party-wildf
 **Today’s Wordle Hints for July 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
 https://www.nytimes.com/2026/07/28/crosswords/wordle-review-1866.html
-
-**NYT Strands Hints for July 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
-https://www.nytimes.com/2026/07/28/crosswords/strands-sidekick-878.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\

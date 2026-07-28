@@ -1,3 +1,19 @@
+**What to Know About the Kumamoto Earthquake in Japan**\
+`At least one person who was found in a collapsed house was killed, and about 50 others were injured on Tuesday in the southwestern prefecture of Kumamoto.`\
+https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-damage.html
+
+**The Fires in France and Spain are Breaking Modern Records: Charts and Maps**\
+`Huge wildfires in France and Spain have grown to the largest either country has seen in decades, breaking modern records.`\
+https://www.nytimes.com/interactive/2026/07/28/world/europe/france-spain-wildfires-2026-fire-season.html
+
+**As Cyclospora Cases Climb, FDA Official Says Food Supply Is Safe**\
+`The acting deputy commissioner for food said the agency was taking action even though finding the root cause of the outbreaks is difficult.`\
+https://www.nytimes.com/2026/07/28/business/cyclospora-food-safety-fda.html
+
+**An Anthropic Claude AI Model Finds Flaws in Tough-to-Crack Encryption Algorithms**\
+`Claude Mythos Preview discovered new attacks in testing against weakened cryptographic algorithms, which protect online financial transactions, private communications and more.`\
+https://www.nytimes.com/2026/07/28/us/politics/anthropic-ai-encryption-security-aes.html
+
 **‘The Odyssey’ Isn’t a Fashion Movie. But It Has One Great Outfit.**\
 `Plus: Bernard Arnault’s open letter and Zohran Mamdani meets Anna Wintour.`\
 https://www.nytimes.com/2026/07/28/style/odyssey-nolan-pattinson-antinous.html
