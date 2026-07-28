@@ -1,3 +1,7 @@
+**Apple Introduces Leasing Program for iPhones and Other Devices**\
+`The program is an effort to make products more affordable as artificial intelligence sends some component prices soaring.`\
+https://www.nytimes.com/2026/07/28/technology/apple-leasing-program.html
+
 **Germany’s AfD Opposes Pride Flags but May Win Support After L.G.B.T.Q. Attack**\
 `Analysts say a recent attack on a Pride celebration is likely to focus fall elections on issues favoring the far-right Alternative for Germany party.`\
 https://www.nytimes.com/2026/07/28/world/europe/berlin-pride-attack-afd-politics.html
