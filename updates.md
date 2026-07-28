@@ -1,3 +1,7 @@
+**The Cervo’s Team Dives for Oysters at Zig Zag**\
+`Tin’s sticks to cold food while waiting for utilities, Keepers offers more tavern fare for downtown and more restaurant news.`\
+https://www.nytimes.com/2026/07/28/dining/nyc-restaurant-news.html
+
 **‘Lili Elbe,’ Opera About Trans Heroine of ‘The Danish Girl,’ Is Timely**\
 `Lili Elbe’s story was told in “The Danish Girl.” Now Tobias Picker’s opera about her life, with a trans opera singer in the lead role, is making its U.S. premiere.`\
 https://www.nytimes.com/2026/07/28/arts/music/tobias-picker-lili-elbe-transgender-santa-fe-opera.html

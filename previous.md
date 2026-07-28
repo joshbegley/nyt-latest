@@ -1,3 +1,7 @@
+**The Cervo’s Team Dives for Oysters at Zig Zag**\
+`Tin’s sticks to cold food while waiting for utilities, Keepers offers more tavern fare for downtown and more restaurant news.`\
+https://www.nytimes.com/2026/07/28/dining/nyc-restaurant-news.html
+
 **‘Lili Elbe,’ Opera About Trans Heroine of ‘The Danish Girl,’ Is Timely**\
 `Lili Elbe’s story was told in “The Danish Girl.” Now Tobias Picker’s opera about her life, with a trans opera singer in the lead role, is making its U.S. premiere.`\
 https://www.nytimes.com/2026/07/28/arts/music/tobias-picker-lili-elbe-transgender-santa-fe-opera.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/embedded/world/asia/100000011057479/00int-indonesi
 ****\
 `Big oil companies have long considered Wonocolo commercially insignificant.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011057468/00int-indonesia-dispatch-13763.html
-
-**Heavy Rain Expected in New York on Tuesday**\
-`Forecasters warned that up to seven inches of rain could fall in and around New York City.`\
-https://www.nytimes.com/2026/07/28/weather/new-york-rain-storms.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
