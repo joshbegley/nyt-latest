@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011058069/28vid-graham-hearse-arrival.html
+
+**Vivimos en una distopía de alimentos ultraprocesados. ¿Cómo salir de ella?**\
+`La demanda de un adolescente contra la industria alimentaria nos muestra el camino hacia un mejor sistema alimentario.`\
+https://www.nytimes.com/es/2026/07/28/espanol/opinion/alimentos-ultraprocesados-salud.html
+
 **How to Tell if a Giant Manta Is Pregnant? Give Her an Ultrasound.**\
 `Scientists managed to confirm pregnancies in three giant mantas with underwater ultrasound scans, offering clues to the animals’ elusive reproductive habits.`\
 https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/28/us/newport-beach-california-teen-takeover.htm
 **‘Wham! 10 Days in China’ Review: Pop Music History With a Secret Goal**\
 `The British pop duo Wham! was the first Western act of its kind to play mainland China. This documentary reveals the hidden agenda of the shows.`\
 https://www.nytimes.com/2026/07/28/movies/wham-10-days-in-china-review.html
-
-**Rome Is Experiencing a Pizza Renaissance. Here’s Where to Grab a Slice.**\
-`Pizza al taglio, the traditional Roman snack sold by weight, has been given an upgrade, with toppings like wine-braised meatballs and cumin-scented lamb. Here, the best places to grab a slice.`\
-https://www.nytimes.com/2026/07/28/travel/pizza-romana-rome-recommendations.html
-
-**Word of the Day: bowdlerize**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/28/learning/word-of-the-day-bowdlerize.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
