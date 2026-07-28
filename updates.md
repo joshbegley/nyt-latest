@@ -1,3 +1,11 @@
+**France and Spain Race to Contain Wildfires**\
+`Firefighters in Spain and France took advantage of a brief respite from scorching conditions overnight to slow the spread of blazes near Madrid and Bordeaux, even as they braced on Tuesday for a new heat wave that could worsen raging wildfires.`\
+https://www.nytimes.com/video/world/europe/100000011057271/france-spain-wildfires-containment.html
+
+**Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
+`Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
+https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011058265/28vid-vance-on-graham-people-sot.html
