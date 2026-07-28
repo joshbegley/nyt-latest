@@ -1,3 +1,19 @@
+**As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks**\
+`Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump and have leverage over the Strait of Hormuz, analysts say.`\
+https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
+
+**Map: 6.8-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/28/world/quake-tracker-japan.html
+
+**France and Spain Race to Tamp Down Wildfires Before Heat Wave Hits**\
+`Faced with unprecedented blazes, firefighters in both countries are using a brief window of opportunity to bring the flames under control before temperatures spike.`\
+https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
+
+**The Democratic Party Needs Change**\
+`Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
+https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
+
 ****\
 `Makeshift oil rigs in an oil field in Wonocolo village in Bojonegoro, Indonesia, in June.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011057477/00int-indonesia-dispatch-61289.html
