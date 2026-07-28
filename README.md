@@ -1,3 +1,7 @@
+****\
+`please add summary`\
+https://www.nytimes.com/video/embedded/business/100000011056666/Biz-China-Beef.html
+
 **Minnesota Judge Blocks First State Ban on Prediction Markets Like Kalshi and Polymarket**\
 `The law, which would make it a felony for most prediction markets to operate and advertise in the state, was set to take effect on Saturday.`\
 https://www.nytimes.com/2026/07/27/us/minnesota-kalshi-polymarket-ban.html
@@ -118,7 +122,7 @@ https://www.nytimes.com/2026/07/27/world/india-cockroach-protests-spain-france-f
 `The decision capped a five-day preliminary hearing in which prosecutors detailed how and why they say the musician killed the 14-year-old Celeste Rivas Hernandez.`\
 https://www.nytimes.com/2026/07/27/arts/music/d4vd-celesete-rivas-hernandez-murder.html
 
-**Seattle Police Search for 2nd Suspect in Deadly Food Festival Shooting**\
+**Seattle Police Search for 3rd Shooter in Deadly Food Festival Shooting**\
 `A 15-year-old suspect was in custody, and documents said a second shooter was killed on the scene. Police were looking for at least one more suspect in the attack that left three dead.`\
 https://www.nytimes.com/2026/07/27/us/seattle-food-festival-shooting.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/us/politics/mcconnell-extends-senate-leave-up
 **Israel and the Genocide Accusation**\
 `Readers take issue with a Holocaust scholar’s contention that Israel is guilty of genocide.`\
 https://www.nytimes.com/2026/07/27/opinion/letters/israel-genocide-accusation.html
-
-**Una nueva ola de calor podría intensificar los incendios en España y Francia**\
-`Las altas temperaturas en partes de Francia, España y Portugal podrían combinarse con condiciones secas y fuertes vientos que empeorarían la amenaza de incendios forestales. Es la cuarta ola de calor que afecta a Europa desde mayo.`\
-https://www.nytimes.com/es/2026/07/27/espanol/mundo/cupula-calor-incendios-espana-europa.html
 
