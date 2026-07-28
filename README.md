@@ -1,3 +1,7 @@
+**What’s Going on With Mitch McConnell? Kentucky’s Governor Has Questions.**\
+`Gov. Andy Beshear called on Senator McConnell, who has been hospitalized since June, to prove his capacity to serve, or resign.`\
+https://www.nytimes.com/2026/07/28/us/politics/mitch-mcconnell-andy-beshear.html
+
 **Investigation of School Epstein Helped Finds Abuses Went Beyond Him**\
 `A law firm hired by Interlochen, the arts school and camp, to look into alumni complaints of sexual abuse fielded dozens of disturbing accounts, primarily from decades ago.`\
 https://www.nytimes.com/2026/07/28/arts/music/jeffrey-epstein-interlochen-arts-abuse.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/business/dealbook/gibson-dunn-hires-wachtell-
 **Georgia 13th Congressional District Special 2026: Live Election Results**\
 `Get live results and maps from the 2026 Georgia special election.`\
 https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-house-13-special.html
-
-**Trump Loved Graham, Not So Much His Beloved Senate**\
-`The South Carolinian relished serving as a “bridge” between the institution he revered and the president, but now that bridge is gone.`\
-https://www.nytimes.com/2026/07/28/us/politics/trump-graham-senate.html
 
