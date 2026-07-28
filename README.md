@@ -1,3 +1,7 @@
+**Germany’s AfD Opposes Pride Flags but May Win Support After L.G.B.T.Q. Attack**\
+`Analysts say a recent attack on a Pride celebration is likely to focus fall elections on issues favoring the far-right Alternative for Germany party.`\
+https://www.nytimes.com/2026/07/28/world/europe/berlin-pride-attack-afd-politics.html
+
 **The Chips Rout Goes Global**\
 `Shares in semiconductor companies plunged in South Korea and Europe, adding fresh doubts to the durability of the artificial intelligence trade.`\
 https://www.nytimes.com/2026/07/28/business/dealbook/chips-market-rout-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/magazine/weather-forecasting-storms-predictio
 **9 Things Experts Wish You’d Do in Midlife to Increase Longevity**\
 `How you care for yourself at this life stage matters a lot for your later years.`\
 https://www.nytimes.com/2026/07/28/well/longevity-expert-tips-middle-age.html
-
-**Cubans Aren’t Sleeping in Sweltering Blackouts**\
-`Our reporter Jack Nicas visits a sweltering Cuba where, six months into the Trump administration’s oil blockade, people struggle to sleep with no electricity for fans or air-conditioning.`\
-https://www.nytimes.com/video/world/americas/100000011002617/cubans-arent-sleeping-in-sweltering-blackouts.html
 
