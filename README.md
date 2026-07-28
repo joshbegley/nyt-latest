@@ -134,8 +134,8 @@ https://www.nytimes.com/es/2026/07/28/espanol/opinion/alimentos-ultraprocesados-
 `Scientists managed to confirm pregnancies in three giant mantas with underwater ultrasound scans, offering clues to the animals’ elusive reproductive habits.`\
 https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
 
-**Live Updates: Vance Pays Tribute at Lindsey Graham’s Washington Funeral**\
-`Vice President JD Vance was among the speakers at a morning ceremony for Lindsey Graham, the senator from South Carolina who died this month. President Trump will speak later.`\
+**Live Updates: Trump to Pay Tribute at Lindsey Graham’s Washington Funeral**\
+`The service for the South Carolina senator will be attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine. Vice President JD Vance was among the speakers at a morning ceremony.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 
 **Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\

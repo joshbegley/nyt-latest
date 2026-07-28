@@ -1,3 +1,7 @@
+**Ariana Grande Sues Over Hacking Campaign That Leaked Dozens of Songs**\
+`The singer says that for years members of her inner circle have been the victims of hacks aimed at stealing unreleased music, photos and videos.`\
+https://www.nytimes.com/2026/07/28/arts/music/ariana-grande-hacking-lawsuit.html
+
 **The Iran War Just Put Another Key Oil Route at Risk**\
 `Attacks in the Strait of Hormuz during the Iran war have led Saudi Arabia to rely on an alternative route for exporting oil. Our reporter Rebecca F. Elliott explains how that route is now threatened by the Houthis, a Yemeni militia supported by Iran.`\
 https://www.nytimes.com/video/business/energy-environment/100000011050115/red-sea-blockade-oil-route.html
