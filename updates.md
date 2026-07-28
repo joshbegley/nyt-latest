@@ -1,3 +1,7 @@
+**Latest Updates: Lindsey Graham Gets a Washington Goodbye**\
+`The senator from South Carolina, who died this month, will be honored by President Trump and other allies.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
 `Also among the 13 works up for the British literary award are the latest books from Douglas Stuart, Gwendoline Riley and Emma Cline.`\
 https://www.nytimes.com/2026/07/28/books/booker-prize-longlist.html
