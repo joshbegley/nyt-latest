@@ -2,9 +2,9 @@
 `Shares in semiconductor companies plunged in South Korea and Europe, adding fresh doubts to the durability of the artificial intelligence trade.`\
 https://www.nytimes.com/2026/07/28/business/dealbook/chips-market-rout-ai.html
 
-**Temperatures Soar in Europe**\
-`The fourth heat wave of the summer is hitting the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
-https://www.nytimes.com/2026/07/28/weather/temperatures-soar-in-europe.html
+**Fourth Heat Wave of the Summer Hits Europe as France and Spain Fight Wildfires**\
+`Temperatures are soaring on the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
+https://www.nytimes.com/2026/07/28/weather/europe-heat-wave-weather-forecast.html
 
 **Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer**\
 `The attack in the Caspian Sea was an unusually direct encounter between two countries that have been on opposite sides for years.`\
