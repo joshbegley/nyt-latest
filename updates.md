@@ -1,3 +1,7 @@
+**Boeing Reports Loss on $280 Million Hit to Troubled Air Force One Program**\
+`Boeing pushed back delivery of two presidential planes by four years. The delay and related expenses contributed to a bigger-than-expected loss in the second quarter.`\
+https://www.nytimes.com/2026/07/28/business/boeing-earnings-air-force-one.html
+
 **The Good News and the Bad News About the New Housing Law**\
 `What happens when a good law meets a seemingly indifferent administration?`\
 https://www.nytimes.com/2026/07/28/opinion/housing-law-trump-congress.html

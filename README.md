@@ -1,3 +1,11 @@
+**South Dakota Governor Republican Primary Runoff 2026: Live Election Results, Rhoden vs. Doeden**\
+`Get live results and maps from the 2026 South Dakota primary runoff election.`\
+https://www.nytimes.com/interactive/2026/07/28/us/elections/results-south-dakota-governor-runoff.html
+
+**Georgia 13th Congressional District Special 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia special election.`\
+https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-house-13-special.html
+
 **The Good News and the Bad News About the New Housing Law**\
 `What happens when a good law meets a seemingly indifferent administration?`\
 https://www.nytimes.com/2026/07/28/opinion/housing-law-trump-congress.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/es/2026/07/28/espanol/mundo/tatuaje-facial-maori-nueva-z
 **Senate Democrats Press Blanche on Times Subpoenas**\
 `Days before a committee vote on Todd Blanche’s nomination to be attorney general, Democrats demanded answers about the since-withdrawn subpoenas.`\
 https://www.nytimes.com/2026/07/28/us/politics/senate-democrats-todd-blanche-subpoenas.html
-
-**Mamdani’s Netanyahu Stunt Was a Waste of His Talent and Our Time**\
-`What if Mamdani actually wanted to be a bridge builder between Israelis and Palestinians, a role for which he has the unique capacity and talent?`\
-https://www.nytimes.com/2026/07/28/opinion/mamdani-netanyahu-stunt-israel.html
-
-**‘We Are Not Learning Anything’: India’s Gen Z Rage Is a Test for Modi**\
-`As India’s huge youth population surges, the government faces pressure to fix an education system that leaves many ill prepared for university, let alone for the workplace.`\
-https://www.nytimes.com/2026/07/28/world/asia/india-education-protests-cockroach-genz.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
