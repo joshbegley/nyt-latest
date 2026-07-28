@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/07/28/arts/design/civil-war-atlanta-history-center.
 `Investigators in Europe said that the cryptocurrency giant Binance had made it more difficult to track down scammers and solve other crimes.`\
 https://www.nytimes.com/2026/07/28/us/binance-crypto-crime.html
 
-**How to Predict the Weather in Our Era of Freakish Storms**\
-`The computer models meteorologists use aren’t 100 percent accurate. But natural weather forecasters seem to have a sixth sense for sudden squalls.`\
-https://www.nytimes.com/2026/07/28/magazine/weather-forecasting-storms-predictions.html
+**Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
+`Emergency workers were racing to find people and extinguish fires after the 6.8-magnitude quake struck the southwestern prefecture of Kumamoto.`\
+https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
 
