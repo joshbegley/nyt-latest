@@ -1,3 +1,27 @@
+****\
+`Makeshift oil rigs in an oil field in Wonocolo village in Bojonegoro, Indonesia, in June.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011057477/00int-indonesia-dispatch-61289.html
+
+****\
+`Refined oil pouring out from a pipe during the distillation process.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011057479/00int-indonesia-dispatch-75272.html
+
+****\
+`Big oil companies have long considered Wonocolo commercially insignificant.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011057468/00int-indonesia-dispatch-13763.html
+
+**Heavy Rain Expected in New York on Tuesday**\
+`Forecasters warned that up to five inches of rain could fall in and around New York City.`\
+https://www.nytimes.com/2026/07/28/weather/new-york-rain-storms.html
+
+**Calling Trump’s Personal Cell**\
+`Pablo and the hosts of “TrueAnon” dial the president’s phone number and ask the important questions.`\
+https://www.nytimes.com/2026/07/28/podcasts/trueanon-calling-trump-personal-cell.html
+
+**Keigo Higashino, Best-Selling Japanese Mystery Writer, Dies at 68**\
+`His works, which included “The Devotion of Suspect X,” were widely translated and adapted for the screen.`\
+https://www.nytimes.com/2026/07/28/obituaries/keigo-higashino-author-dead.html
+
 **Fresh Clashes Erupt in Pakistani Kashmir on First Day of Contested Vote**\
 `Dozens have died in recent weeks ahead of a weekslong regional election, officials said. A banned civil rights group said supporters died in conflicts with the police.`\
 https://www.nytimes.com/2026/07/28/world/asia/pakistan-kashmir-election-violence.html
@@ -151,7 +175,7 @@ https://www.nytimes.com/2026/07/28/well/eat/nutrition-food-monotony-meal-repetit
 https://www.nytimes.com/2026/07/28/world/europe/bordeaux-wine-fires-smoke.html
 
 **Live Updates: 6.8-Magnitude Earthquake Strikes Japan**\
-`Fires and injuries were reported after the quake in Kumamoto Prefecture, according to Japan’s state broadcaster. A tsunami warning was lifted.`\
+`Fires and injuries were reported after the quake in the southwestern prefecture of Kumamoto, according to Japan’s state broadcaster. A tsunami warning was lifted.`\
 https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
 
 **Tech Stocks Tumble on Worries About A.I. Spending and China’s Chip Competition**\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/07/28/insider/xenom-fitness.html
 **A Newsstand That Aims to Delight N.Y.C. Subway Riders**\
 `A comedian and his friends are transforming a vacant retail space at the West 4th Street station with freebies, art and puppet shows to make commutes more enjoyable.`\
 https://www.nytimes.com/2026/07/28/nyregion/subway-newstand-west-4th-station-nyc.html
-
-**Late Night Roasts President Trump’s Attempt at Comedy**\
-`“And let’s just say Iran’s not the only thing he bombed,” Seth Meyers said of the president’s performance at the White House Correspondents’ Dinner.`\
-https://www.nytimes.com/2026/07/28/arts/television/late-night-trump-white-house-correspondents-dinner.html
-
-**Por qué estos animales tienen OnlyFans**\
-`Mientras el gobierno federal reduce el presupuesto para investigación en “ciencias de la vida”, un grupo de científicos creó una cuenta para financiar el estudio de estos roedores.`\
-https://www.nytimes.com/es/2026/07/28/espanol/onlyfans-cuenta-marmotas.html
-
-**Tornado Rips Through Wisconsin**\
-`A severe storm system damaged buildings, flipped cars and knocked down power lines in the Midwest. It prompted tornado and flash flood warnings across the region.`\
-https://www.nytimes.com/video/weather/100000011056695/wisconsin-tornado-menasha-storms.html
-
-**Quién es la novia de Jeffrey Epstein que heredaría millones de dólares**\
-`Fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en 2019. Es una figura compleja e inusual en el mundo Epstein.`\
-https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-herencia-dinero.html
-
-**Putin Saw a Gap in Which He Could Act With Impunity. Let’s Close the Gap.**\
-`Justice may proceed slowly, and cautiously, but it does proceed.`\
-https://www.nytimes.com/2026/07/28/opinion/conquest-justice-putin.html
-
-**‘You Aren’t Going to Like What Comes After America’**\
-`Remember when ‘blame Canada’ was a joke?`\
-https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
 
