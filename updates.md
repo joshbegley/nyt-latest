@@ -1,3 +1,7 @@
+**France and Spain Race to Contain Fires Before Some Areas Reach 104 Degrees**\
+`Faced with unprecedented blazes, firefighters in both countries are using a brief window of opportunity to bring the flames under control before temperatures spike.`\
+https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
+
 **Latest Updates: Lindsey Graham Gets a Washington Goodbye**\
 `The senator from South Carolina, who died this month, will be honored by President Trump and other allies.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
