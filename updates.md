@@ -1,3 +1,7 @@
+**Linda Perhacs, Experimental Folk Singer, Is Reported Missing**\
+`Friends of the influential psychedelic folk songwriter said they had been unable to reach her since her discharge from a care facility eight months ago.`\
+https://www.nytimes.com/2026/07/28/arts/music/linda-perhacs-missing-folk-music.html
+
 **ICE Arrests Surge at Airports, Opening New Front in Deportation Drive**\
 `Federal agents are arresting spouses of Americans, tech workers and others whose visas have expired, including many who have active applications to stay in the country.`\
 https://www.nytimes.com/2026/07/28/us/ice-arrests-airports-visa-overstay.html
