@@ -1,3 +1,7 @@
+**Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
+`Ruby Rippey has stayed mostly quiet since her relationship with the San Francisco mayor rocked the city. Not anymore.`\
+https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
+
 **Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
 `Lawmakers have introduced hundreds of bills related to vaccines this year. Their proposals offer a window into the modern movement against the shots.`\
 https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covid.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/28/world/canada/marineland-canada-beluga-whales-
 **Whales Rescued From Canadian Park in a Rare International Effort**\
 `Six of 30 beluga whales were airlifted from a shuttered aquatic park in Canada to facilities in Chicago and San Antonio, with others scheduled to depart in the next coming months.`\
 https://www.nytimes.com/video/world/canada/100000011048960/whales-rescued-from-canadian-park-in-a-rare-international-effort.html
-
-**Public Control or ‘20th-Century Socialism’? U.K. Debates a Different Way.**\
-`The new prime minister, Andy Burnham, faulted Margaret Thatcher’s privatization in the 1980s. He wants an alternative economic model, especially to run utilities.`\
-https://www.nytimes.com/2026/07/28/business/andy-burnham-uk.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\

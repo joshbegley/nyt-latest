@@ -1,3 +1,11 @@
+**Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
+`Lawmakers have introduced hundreds of bills related to vaccines this year. Their proposals offer a window into the modern movement against the shots.`\
+https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covid.html
+
+**Do you work in No Surprises Act arbitration? Tell us about it.**\
+`New York Times reporters are looking into how government contractors resolve medical billing disputes.`\
+https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011058139/28vid-graham-coffin-steps.html
