@@ -14,7 +14,7 @@ https://www.nytimes.com/video/weather/100000011056695/wisconsin-tornado-menasha-
 `Fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en 2019. Es una figura compleja e inusual en el mundo Epstein.`\
 https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-herencia-dinero.html
 
-**Putin Thinks Conquest Can Be Cost Free. We Disagree.**\
+**Putin Saw a Gap in Which He Could Act With Impunity. Let’s Close the Gap.**\
 `Justice may proceed slowly, and cautiously, but it does proceed.`\
 https://www.nytimes.com/2026/07/28/opinion/conquest-justice-putin.html
 

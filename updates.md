@@ -1,3 +1,7 @@
+**Putin Saw a Gap in Which He Could Act With Impunity. Let’s Close the Gap.**\
+`Justice may proceed slowly, and cautiously, but it does proceed.`\
+https://www.nytimes.com/2026/07/28/opinion/conquest-justice-putin.html
+
 **Late Night Roasts President Trump’s Attempt at Comedy**\
 `“And let’s just say Iran’s not the only thing he bombed,” Seth Meyers said of the president’s performance at the White House Correspondents’ Dinner.`\
 https://www.nytimes.com/2026/07/28/arts/television/late-night-trump-white-house-correspondents-dinner.html
