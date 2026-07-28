@@ -1,3 +1,11 @@
+**Gibson Dunn Hires Rival Wachtell Lipton’s Co-Chair**\
+`Gibson Dunn’s hiring of the seasoned litigator William Savitt highlights the fierce competition for top lawyers across Wall Street.`\
+https://www.nytimes.com/2026/07/28/business/gibson-dunn-hires-wachtell-liptons-co-chair.html
+
+**Georgia 13th Congressional District Special 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia special election.`\
+https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-house-13-special.html
+
 **Trump Loved Graham, Not So Much His Beloved Senate**\
 `The South Carolinian relished serving as a “bridge” between the institution he revered and the president, but now that bridge is gone.`\
 https://www.nytimes.com/2026/07/28/us/politics/trump-graham-senate.html
@@ -90,10 +98,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000011058265/28vid-vance-o
 `Get live results and maps from the 2026 South Dakota primary runoff election.`\
 https://www.nytimes.com/interactive/2026/07/28/us/elections/results-south-dakota-governor-runoff.html
 
-**Georgia 13th Congressional District Special 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia special election.`\
-https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-house-13-special.html
-
 **The Good News and the Bad News About the New Housing Law**\
 `What happens when a good law meets a seemingly indifferent administration?`\
 https://www.nytimes.com/2026/07/28/opinion/housing-law-trump-congress.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/07/28/style/street-style-look-1970s-suit.html
 **Kumamoto Castle, a Famed Landmark, Is Damaged in the Japan Earthquake**\
 `The centuries-old castle, one of the country’s best-known, was also affected by the region’s 2016 earthquakes.`\
 https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-castle-damage.html
-
-**Apple Introduces Leasing Program for iPhones and Other Devices**\
-`The program is an effort to make products more affordable as artificial intelligence sends some component prices soaring.`\
-https://www.nytimes.com/2026/07/28/technology/apple-leasing-program.html
 
 **Trump Administration Live Updates: Trump Meets With Netanyahu and Zelensky as Wars Continue in Iran and Ukraine**\
 `(No description)`\
