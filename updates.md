@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011059270/28vid-trump-graham-politics-sot.html
+
+**Biden Acknowledges Keeping Classified Materials in Newly Released Tapes**\
+`Recordings from 2016 and 2017 show that Joseph R. Biden Jr. knew he had retained classified materials but reveal little that was not already documented in a special counsel’s report.`\
+https://www.nytimes.com/2026/07/28/us/politics/biden-recordings-classified-documents-special-counsel.html
+
 **At ‘The Shards’ Premiere, Kaia Gerber and Homer Gere Relive 1980s L.A.**\
 `Ryan Murphy’s “Love Story” fueled a nostalgia for ’90s New York. Will his new prep-school thriller bring back the wayfarer era of Southern California?`\
 https://www.nytimes.com/2026/07/28/style/shards-kaia-gerber-ryan-murphy.html
