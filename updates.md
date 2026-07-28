@@ -1,3 +1,11 @@
+**Darline Graham Mourns Her Brother as She Seeks His Seat**\
+`Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
+https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html
+
+**Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
+`“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **Gibson Dunn Hires Rival Wachtell Lipton’s Co-Chair**\
 `Gibson Dunn’s hiring of the seasoned litigator William Savitt highlights the fierce competition for top lawyers across Wall Street.`\
 https://www.nytimes.com/2026/07/28/business/gibson-dunn-hires-wachtell-liptons-co-chair.html

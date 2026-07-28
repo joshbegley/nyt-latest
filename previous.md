@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-h
 `The South Carolinian relished serving as a “bridge” between the institution he revered and the president, but now that bridge is gone.`\
 https://www.nytimes.com/2026/07/28/us/politics/trump-graham-senate.html
 
-**Graham Mourns Her Brother as She Seeks His Seat**\
+**Darline Graham Mourns Her Brother as She Seeks His Seat**\
 `Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
 https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html
 
@@ -162,8 +162,8 @@ https://www.nytimes.com/es/2026/07/28/espanol/opinion/alimentos-ultraprocesados-
 `Scientists managed to confirm pregnancies in three giant mantas with underwater ultrasound scans, offering clues to the animals’ elusive reproductive habits.`\
 https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
 
-**Live Updates: Trump Pays Tribute at Lindsey Graham’s Washington Funeral**\
-`President Trump spoke at a service for the South Carolina senator  attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine.`\
+**Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
+`“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 
 **Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
