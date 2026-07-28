@@ -1,3 +1,11 @@
+**Senate Confirms Jay Clayton to Lead U.S. Intelligence Community**\
+`Mr. Clayton, who shed Democratic support after he refused to clearly say Joseph R. Biden Jr. won the 2020 election, will take over the Office of the Director of National Intelligence from Bill Pulte.`\
+https://www.nytimes.com/2026/07/28/us/politics/senate-confirms-jay-clayton-intelligence-director.html
+
+**Trump Will End Subsidies for Medicare Drug Premiums**\
+`Millions of older Americans could pay more for their prescription drug coverage next year.`\
+https://www.nytimes.com/2026/07/28/business/medicare-drug-subsidies-part-d.html
+
 **At Graham’s Farewell, a Glimpse Into Power in Trump’s Washington**\
 `The political evolution of Lindsey Graham, the South Carolina senator, both captivated and confused many of his old friends but reflected the changing order in the nation’s capital.`\
 https://www.nytimes.com/2026/07/28/us/politics/lindsey-graham-funeral-trump-dc.html
