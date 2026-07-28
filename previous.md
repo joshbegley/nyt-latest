@@ -1,3 +1,7 @@
+**A Six-Pack of Beer Might Close a Constitutional Loophole**\
+`An upcoming case will determine whether the Supreme Court treats an ordinary person with the same care it has long shown corporations.`\
+https://www.nytimes.com/2026/07/28/opinion/alaska-pilot-beer-constitution-eighth-amendment.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011059286/29DC-Flashlight-Tariff-Production-Video.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
-
-**Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
-`Also among the 13 works up for the British literary award are the latest books from Douglas Stuart, Gwendoline Riley and Emma Cline.`\
-https://www.nytimes.com/2026/07/28/books/booker-prize-longlist.html
 
 **Trump Administration Live Updates: Trump Meets With Netanyahu and Zelensky as Wars Continue in Iran and Ukraine**\
 `(No description)`\

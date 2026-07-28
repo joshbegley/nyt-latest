@@ -1,3 +1,7 @@
+**A Six-Pack of Beer Might Close a Constitutional Loophole**\
+`An upcoming case will determine whether the Supreme Court treats an ordinary person with the same care it has long shown corporations.`\
+https://www.nytimes.com/2026/07/28/opinion/alaska-pilot-beer-constitution-eighth-amendment.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/business/100000011059286/29DC-Flashlight-Tariff-Production-Video.html
