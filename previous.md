@@ -1,3 +1,7 @@
+**India vive un momento ‘cucaracha’**\
+`Narendra Modi cedió ante las exigencias de los jóvenes de India, un reconocimiento a su verdadero poder.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/india-protestas-jovenes-cucaracha.html
+
 **The Iranians Who Want More War**\
 `Fractures in Tehran are pitting a faction favoring negotiation with Washington against hard-liners who oppose making a deal with the United States.`\
 https://www.nytimes.com/2026/07/28/podcasts/the-daily/iran-war-funeral.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/travel/europe-alternative-canal-cities.html
 **Book Review: ‘Liberation Summer,’ by Micki McElya**\
 `A new book by the historian Micki McElya considers how the politics of beauty both shaped and divided the women’s movement.`\
 https://www.nytimes.com/2026/07/28/books/review/liberation-summer-micki-mcelya.html
-
-**To Recruit Teachers, School Districts Are Building Homes**\
-`The nation’s housing shortage has made it challenging for some essential workers like educators to live where they work. An increasing number of school districts are trying to change that.`\
-https://www.nytimes.com/2026/07/28/business/affordable-housing-schools-teachers.html
 

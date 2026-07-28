@@ -1,3 +1,7 @@
+**India vive un momento ‘cucaracha’**\
+`Narendra Modi cedió ante las exigencias de los jóvenes de India, un reconocimiento a su verdadero poder.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/india-protestas-jovenes-cucaracha.html
+
 **The Iranians Who Want More War**\
 `Fractures in Tehran are pitting a faction favoring negotiation with Washington against hard-liners who oppose making a deal with the United States.`\
 https://www.nytimes.com/2026/07/28/podcasts/the-daily/iran-war-funeral.html
