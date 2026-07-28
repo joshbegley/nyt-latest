@@ -1,3 +1,11 @@
+**‘The Odyssey’ Isn’t a Fashion Movie. But It Has One Great Outfit.**\
+`Plus: Bernard Arnault’s open letter and Zohran Mamdani meets Anna Wintour.`\
+https://www.nytimes.com/2026/07/28/style/odyssey-nolan-pattinson-antinous.html
+
+**‘La odisea’ nos da el héroe que merecemos**\
+`El Odiseo de Christopher Nolan es un héroe a medias: lucha contra los problemas que él mismo crea. Eso lo convierte en una figura perfecta para nuestro momento moderno.`\
+https://www.nytimes.com/es/2026/07/28/espanol/opinion/la-odisea-christopher-nolan.html
+
 **The Cervo’s Team Dives for Oysters at Zig Zag**\
 `Tin’s sticks to cold food while waiting for utilities, Keepers offers more tavern fare for downtown and more restaurant news.`\
 https://www.nytimes.com/2026/07/28/dining/nyc-restaurant-news.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/es/2026/07/28/espanol/excursionista-empalo-baston.html
 https://www.nytimes.com/video/world/asia/100000011057666/6-8-magnitude-earthquake-rocks-japan.html
 
 **Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
-`Ruby Rippey has stayed mostly quiet since her relationship with the San Francisco mayor rocked the city. Not anymore.`\
+`Ruby Rippey had stayed mostly quiet since her relationship with the San Francisco mayor rocked the city.`\
 https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
 
 **Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
 ****\
 `Makeshift oil rigs in an oil field in Wonocolo village in Bojonegoro, Indonesia, in June.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011057477/00int-indonesia-dispatch-61289.html
-
-****\
-`Refined oil pouring out from a pipe during the distillation process.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011057479/00int-indonesia-dispatch-75272.html
-
-****\
-`Big oil companies have long considered Wonocolo commercially insignificant.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011057468/00int-indonesia-dispatch-13763.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\

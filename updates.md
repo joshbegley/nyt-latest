@@ -1,3 +1,15 @@
+**‘The Odyssey’ Isn’t a Fashion Movie. But It Has One Great Outfit.**\
+`Plus: Bernard Arnault’s open letter and Zohran Mamdani meets Anna Wintour.`\
+https://www.nytimes.com/2026/07/28/style/odyssey-nolan-pattinson-antinous.html
+
+**‘La odisea’ nos da el héroe que merecemos**\
+`El Odiseo de Christopher Nolan es un héroe a medias: lucha contra los problemas que él mismo crea. Eso lo convierte en una figura perfecta para nuestro momento moderno.`\
+https://www.nytimes.com/es/2026/07/28/espanol/opinion/la-odisea-christopher-nolan.html
+
+**Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
+`Ruby Rippey had stayed mostly quiet since her relationship with the San Francisco mayor rocked the city.`\
+https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
+
 **The Cervo’s Team Dives for Oysters at Zig Zag**\
 `Tin’s sticks to cold food while waiting for utilities, Keepers offers more tavern fare for downtown and more restaurant news.`\
 https://www.nytimes.com/2026/07/28/dining/nyc-restaurant-news.html
