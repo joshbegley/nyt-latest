@@ -1,3 +1,7 @@
+**Temperatures Soar in Europe**\
+`The fourth heat wave of the summer is hitting the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
+https://www.nytimes.com/2026/07/28/weather/temperatures-soar-in-europe.html
+
 **Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer**\
 `The attack in the Caspian Sea was an unusually direct encounter between two countries that have been on opposite sides for years.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-ukraine-ship-strikes-caspian.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011002617/cubans-arent-sleepi
 **Book Review: ‘All That’s Unseen,’ by Emilee Hackney**\
 `“All That’s Unseen,” by Emilee Hackney, an eighth-generation Appalachian, offers a portrait both loving and cleareyed of the region that formed her.`\
 https://www.nytimes.com/2026/07/28/books/review/all-thats-unseen-emilee-hackney.html
-
-**Faith and Kenny Lattimore Chose a Rare Move: Fighting Defamation on YouTube**\
-`Faith Jenkins Lattimore and Kenny Lattimore took the rare step of battling defamation on YouTube. Even with money and legal experience, they struggled to make progress.`\
-https://www.nytimes.com/2026/07/28/business/media/faith-jenkins-kenny-lattimore-youtube.html
 
