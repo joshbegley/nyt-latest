@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011059270/28vid-trump-graham-politics-sot.html
+
+**Biden Acknowledges Keeping Classified Materials in Newly Released Tapes**\
+`Recordings from 2016 and 2017 show that Joseph R. Biden Jr. knew he had retained classified materials but reveal little that was not already documented in a special counsel’s report.`\
+https://www.nytimes.com/2026/07/28/us/politics/biden-recordings-classified-documents-special-counsel.html
+
 **At ‘The Shards’ Premiere, Kaia Gerber and Homer Gere Relive 1980s L.A.**\
 `Ryan Murphy’s “Love Story” fueled a nostalgia for ’90s New York. Will his new prep-school thriller bring back the wayfarer era of Southern California?`\
 https://www.nytimes.com/2026/07/28/style/shards-kaia-gerber-ryan-murphy.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/es/2026/07/28/espanol/mundo/terremoto-japon.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011058069/28vid-graham-hearse-arrival.html
-
-**Vivimos en una distopía de alimentos ultraprocesados. ¿Cómo salir de ella?**\
-`La demanda de un adolescente contra la industria alimentaria nos muestra el camino hacia un mejor sistema alimentario.`\
-https://www.nytimes.com/es/2026/07/28/espanol/opinion/alimentos-ultraprocesados-salud.html
-
-**How to Tell if a Giant Manta Is Pregnant? Give Her an Ultrasound.**\
-`Scientists managed to confirm pregnancies in three giant mantas with underwater ultrasound scans, offering clues to the animals’ elusive reproductive habits.`\
-https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
 
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\

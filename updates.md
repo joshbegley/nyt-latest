@@ -1,3 +1,7 @@
+**At ‘The Shards’ Premiere, Kaia Gerber and Homer Gere Relive 1980s L.A.**\
+`Ryan Murphy’s “Love Story” fueled a nostalgia for ’90s New York. Will his new prep-school thriller bring back the wayfarer era of Southern California?`\
+https://www.nytimes.com/2026/07/28/style/shards-kaia-gerber-ryan-murphy.html
+
 **A Six-Pack of Beer Might Close a Constitutional Loophole**\
 `An upcoming case will determine whether the Supreme Court treats an ordinary person with the same care it has long shown corporations.`\
 https://www.nytimes.com/2026/07/28/opinion/alaska-pilot-beer-constitution-eighth-amendment.html
