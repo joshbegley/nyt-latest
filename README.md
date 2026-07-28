@@ -1,3 +1,7 @@
+**Linda Perhacs, Experimental Folk Singer, Is Reported Missing**\
+`Friends of the influential psychedelic folk songwriter said they had been unable to reach her since her discharge from a care facility eight months ago.`\
+https://www.nytimes.com/2026/07/28/arts/music/linda-perhacs-missing-folk-music.html
+
 **ICE Arrests Surge at Airports, Opening New Front in Deportation Drive**\
 `Federal agents are arresting spouses of Americans, tech workers and others whose visas have expired, including many who have active applications to stay in the country.`\
 https://www.nytimes.com/2026/07/28/us/ice-arrests-airports-visa-overstay.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covi
 **Do You Work in No Surprises Act Arbitration? Tell Us About It.**\
 `New York Times reporters are looking into how government contractors resolve medical billing disputes.`\
 https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011058139/28vid-graham-coffin-steps.html
 
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\

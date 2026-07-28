@@ -1,3 +1,15 @@
+**ICE Arrests Surge at Airports, Opening New Front in Deportation Drive**\
+`Federal agents are arresting spouses of Americans, tech workers and others whose visas have expired, including many who have active applications to stay in the country.`\
+https://www.nytimes.com/2026/07/28/us/ice-arrests-airports-visa-overstay.html
+
+**Gov. Sherrill in the Hot Seat After U.S. Demand for Noncitizens’ Names**\
+`After disclosing that thousands of ineligible people were added to the voter rolls, New Jersey Gov. Mikie Sherrill is trying to bring accountability while resisting President Trump’s narrative.`\
+https://www.nytimes.com/2026/07/28/nyregion/noncitizen-voting-new-jersey-sherrill.html
+
+**Florida Executes One Man, and Plans a 2nd Execution Tonight**\
+`The second man is scheduled to be killed at 6 p.m., which would result in the rare instance of a state carrying out two executions in one day.`\
+https://www.nytimes.com/2026/07/28/us/florida-executions.html
+
 **Fossil Fuel Executives Cash In**\
 `Insiders at leading oil and gas companies have made millions from stocks since the Iran war began.`\
 https://www.nytimes.com/2026/07/28/climate/fossil-fuel-executives-stocks-iran.html
