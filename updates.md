@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011058265/28vid-vance-on-graham-people-sot.html
+
+**South Dakota Governor Republican Primary Runoff 2026: Live Election Results, Rhoden vs. Doeden**\
+`Get live results and maps from the 2026 South Dakota primary runoff election.`\
+https://www.nytimes.com/interactive/2026/07/28/us/elections/results-south-dakota-governor-runoff.html
+
+**Georgia 13th Congressional District Special 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia special election.`\
+https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-house-13-special.html
+
 **Boeing Reports Loss on $280 Million Hit to Troubled Air Force One Program**\
 `Boeing pushed back delivery of two presidential planes by four years. The delay and related expenses contributed to a bigger-than-expected loss in the second quarter.`\
 https://www.nytimes.com/2026/07/28/business/boeing-earnings-air-force-one.html
