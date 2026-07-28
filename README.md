@@ -1,3 +1,11 @@
+**Un excursionista se empaló con su bastón y caminó 16 km para buscar ayuda**\
+`David Cifaldi iba a llegar a la cima del pico Granite, la montaña más alta de Montana, cuando resbaló y cayó sobre uno de sus bastones. Después bajó la montaña a pie para buscar ayuda médica.`\
+https://www.nytimes.com/es/2026/07/28/espanol/excursionista-empalo-baston.html
+
+**6.8 Magnitude Earthquake Rocks Japan**\
+`A powerful 6.8-magnitude earthquake rocked southwest Japan on Tuesday, causing fires, damaging historic structures, and leaving dozens injured, according to the state broadcaster.`\
+https://www.nytimes.com/video/world/asia/100000011057666/6-8-magnitude-earthquake-rocks-japan.html
+
 **Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
 `Ruby Rippey has stayed mostly quiet since her relationship with the San Francisco mayor rocked the city. Not anymore.`\
 https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/28/nyregion/can-throo-compete-with-uber-and-lyft
 **In This Costa Rican Forest, Monkeys Come Face-to-Face With A.I.**\
 `CapuchinAI, a portable testing station equipped with a touch screen and facial recognition software, could help scientists study primate intelligence in the wild.`\
 https://www.nytimes.com/2026/07/28/science/costa-rica-monkeys-ai.html
-
-**How Do You Move 30 Beluga Whales? With Cranes, Planes and Anti-Anxiety Medicine.**\
-`Relocating the whales from a closed marine attraction in Canada to aquariums in the United States and Spain requires coordination, permits and a police escort.`\
-https://www.nytimes.com/2026/07/28/world/canada/marineland-canada-beluga-whales-relocated.html
-
-**Whales Rescued From Canadian Park in a Rare International Effort**\
-`Six of 30 beluga whales were airlifted from a shuttered aquatic park in Canada to facilities in Chicago and San Antonio, with others scheduled to depart in the next coming months.`\
-https://www.nytimes.com/video/world/canada/100000011048960/whales-rescued-from-canadian-park-in-a-rare-international-effort.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
