@@ -1,3 +1,27 @@
+**Graham and Netanyahu Worked Together to Denounce International Criminal Court**\
+`Senator Lindsey Graham helped to coordinate a group of lawmakers to rebuke the I.C.C., which was investigating Prime Minister Benjamin Netanyahu of Israel.`\
+https://www.nytimes.com/2026/07/28/us/politics/graham-netanyahu-documentary-icc.html
+
+**Obama to Headline Democratic Redistricting Fund-Raiser**\
+`After exhausting their gerrymandering options in 2026, the party is hoping to redraw more congressional maps ahead of the next election cycle.`\
+https://www.nytimes.com/2026/07/28/us/politics/obama-fund-raiser-marthas-vineyard-redistricting.html
+
+**Georgia Teen Is Sentenced to Life for Deadly School Shooting**\
+`The boy pleaded guilty to 55 charges stemming from the 2024 attack at Apalachee High School in Winder, Ga., that killed two students and two teachers.`\
+https://www.nytimes.com/2026/07/28/us/colt-gray-sentenced-apalachee-high-school-shooting.html
+
+**New York Museum Misused $597,000 in Federal Funds, Investigators Say**\
+`Investigators said museum leaders compelled staff members to inflate time sheets and improperly draw on funds meant for a geological survey.`\
+https://www.nytimes.com/2026/07/28/nyregion/fraud-museum-new-york.html
+
+**‘Spider-Man: Brand New Day’ Review: Can We Do Whatever a Spider Can?**\
+`The Spider-Man series is about growing up. Now its superhero has become an adult.`\
+https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html
+
+**Restaurant Review: Arthur in New York**\
+`At their new Greenpoint restaurant, Kevin and Lexy Finch are betting that New Yorkers want more than steak frites.`\
+https://www.nytimes.com/2026/07/28/dining/restaurant-review-arthur-nyc.html
+
 **Masa Madre Makes New York City’s Most Unforgettable Concha**\
 `In the first episode of “A Little Treat With Nikita Richardson,” we visit this artisanal Mexican bakery in Sunnyside, Queens.`\
 https://www.nytimes.com/2026/07/28/dining/little-treat-conchas-masa-madre.html
