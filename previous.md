@@ -1,3 +1,7 @@
+**7.1-Magnitude Earthquake in Japan Triggers Tsunami Warning**\
+`The quake struck near the coastal city of Uki in southern Japan. There were no immediate reports of damage.`\
+https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-tsunami.html
+
 **New York Has a New Sheriff, and His Mentor Is Serpico**\
 `Edwin Raymond, a retired police lieutenant and former whistle-blower himself, was sworn in at a ceremony that paid homage to Frank Serpico, the famous anti-corruption detective of the 1970s.`\
 https://www.nytimes.com/2026/07/28/nyregion/nyc-sheriff-edwin-raymond-frank-serpico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/us/politics/supreme-court-trump-mail-ballots.
 **Maine Democrats Have a New Working-Class Hero in Troy Jackson. Can He Deliver?**\
 `Troy Jackson, a former logger, faces the tall task of taking down Susan Collins.`\
 https://www.nytimes.com/2026/07/27/us/politics/troy-jackson-maine-senate-democrats.html
-
-**Chinese Start-Up Moonshot Details New A.I. Model**\
-`Moonshot said some users would have to get licenses to use its Kimi K3 model as the company threads a needle between sharing and profiting from its technology’s popularity.`\
-https://www.nytimes.com/2026/07/27/business/moonshot-kimi-k3-china-ai.html
 

@@ -1,3 +1,7 @@
+**7.1-Magnitude Earthquake in Japan Triggers Tsunami Warning**\
+`The quake struck near the coastal city of Uki in southern Japan. There were no immediate reports of damage.`\
+https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-tsunami.html
+
 **New York Has a New Sheriff, and His Mentor Is Serpico**\
 `Edwin Raymond, a retired police lieutenant and former whistle-blower himself, was sworn in at a ceremony that paid homage to Frank Serpico, the famous anti-corruption detective of the 1970s.`\
 https://www.nytimes.com/2026/07/28/nyregion/nyc-sheriff-edwin-raymond-frank-serpico.html
