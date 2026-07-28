@@ -1,3 +1,15 @@
+**Gibson Dunn Hires Rival Wachtell Lipton’s Co-Chair**\
+`Gibson Dunn’s hiring of the seasoned litigator William Savitt highlights the fierce competition for top lawyers across Wall Street.`\
+https://www.nytimes.com/2026/07/28/business/gibson-dunn-hires-wachtell-liptons-co-chair.html
+
+**Trump Loved Graham, Not So Much His Beloved Senate**\
+`The South Carolinian relished serving as a “bridge” between the institution he revered and the president, but now that bridge is gone.`\
+https://www.nytimes.com/2026/07/28/us/politics/trump-graham-senate.html
+
+**Trump Administration Live Updates: Trump Meets With Netanyahu and Zelensky as Wars Continue in Iran and Ukraine**\
+`(No description)`\
+https://www.nytimes.com/live/2026/07/28/us/trump-news
+
 **Live Updates: Trump Pays Tribute at Lindsey Graham’s Washington Funeral**\
 `President Trump spoke at a service for the South Carolina senator  attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
