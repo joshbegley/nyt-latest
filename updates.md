@@ -1,4 +1,8 @@
 **‘You Aren’t Going to Like What Comes After America’**\
+`Remember when ‘blame Canada’ was a joke?`\
+https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
+
+**‘You Aren’t Going to Like What Comes After America’**\
 `I remember when ‘blame Canada’ was a joke.`\
 https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
 
