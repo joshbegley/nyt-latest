@@ -1,3 +1,19 @@
+**How Cubans Are Surviving**\
+`It’s been six months since the U.S. cut off the island’s fuel sources. Our reporters went there and found remarkable stories of resilience.`\
+https://www.nytimes.com/2026/07/28/world/cuba-us-trump-ukraine-iran-japan-quake.html
+
+**Researchers Create OnlyFans for Marmots to Bridge Funding Gap**\
+`A team of scientists from the Rocky Mountain Biological Laboratory faced a funding issue amid federal cuts to scientific research. To raise money for its marmot research, it started “OnlyMarms,” a free, G-rated account of cute videos that collects money through tips.`\
+https://www.nytimes.com/video/science/earth/100000011055061/trump-funding-cuts-marmot-onlyfans.html
+
+**How A.I.’s Latest Science Fiction Scenario Came True**\
+`This week, a rogue A.I. agent acted autonomously and conducted a cyberattack on the company Hugging Face. In the latest episode of “Hard Fork,” the hosts, Kevin Roose and Casey Newtown, discuss how the attack happened and why it matters.`\
+https://www.nytimes.com/video/podcasts/100000011059601/how-ais-latest-science-fiction-scenario-came-true.html
+
+**Is Kimi K3 ‘Distilled’ From an American A.I. Model?**\
+`In this week’s episode of “Hard Fork,” the hosts Kevin Roose and Casey Newton discuss Kimi K3, a highly efficient new A.I. model from China’s Moonshot A.I. K3 claims impressive efficiency and coding capabilities, but was it build by “distilling,” essentially copying and reworking, American technology?”`\
+https://www.nytimes.com/video/podcasts/100000011059528/is-kimi-k3-distilled-from-an-american-ai-model.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011059433/28vid-hannity-israel-sot.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/07/28/us/politics/anthropic-ai-encryption-security-
 **‘The Odyssey’ Isn’t a Fashion Movie. But It Has One Great Outfit.**\
 `Plus: Bernard Arnault’s open letter and Zohran Mamdani meets Anna Wintour.`\
 https://www.nytimes.com/2026/07/28/style/odyssey-nolan-pattinson-antinous.html
-
-**‘La odisea’ nos da el héroe que merecemos**\
-`El Odiseo de Christopher Nolan es un héroe a medias: lucha contra los problemas que él mismo crea. Eso lo convierte en una figura perfecta para nuestro momento moderno.`\
-https://www.nytimes.com/es/2026/07/28/espanol/opinion/la-odisea-christopher-nolan.html
-
-**The Cervo’s Team Dives for Oysters at Zig Zag**\
-`Tin’s sticks to cold food while waiting for utilities, Keepers offers more tavern fare for downtown and more restaurant news.`\
-https://www.nytimes.com/2026/07/28/dining/nyc-restaurant-news.html
-
-**‘Lili Elbe,’ Opera About Trans Heroine of ‘The Danish Girl,’ Is Timely**\
-`Lili Elbe’s story was told in “The Danish Girl.” Now Tobias Picker’s opera about her life, with a trans opera singer in the lead role, is making its U.S. premiere.`\
-https://www.nytimes.com/2026/07/28/arts/music/tobias-picker-lili-elbe-transgender-santa-fe-opera.html
-
-**The Immigration Crackdown and the Plight of the Caregivers**\
-`Readers describe a crisis for caregivers and families. Also: Canceling grants based on politics; no politics in uniform; rediscovering resilience.`\
-https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\

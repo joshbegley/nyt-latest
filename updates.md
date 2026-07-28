@@ -1,3 +1,19 @@
+**How Cubans Are Surviving**\
+`It’s been six months since the U.S. cut off the island’s fuel sources. Our reporters went there and found remarkable stories of resilience.`\
+https://www.nytimes.com/2026/07/28/world/cuba-us-trump-ukraine-iran-japan-quake.html
+
+**Researchers Create OnlyFans for Marmots to Bridge Funding Gap**\
+`A team of scientists from the Rocky Mountain Biological Laboratory faced a funding issue amid federal cuts to scientific research. To raise money for its marmot research, it started “OnlyMarms,” a free, G-rated account of cute videos that collects money through tips.`\
+https://www.nytimes.com/video/science/earth/100000011055061/trump-funding-cuts-marmot-onlyfans.html
+
+**How A.I.’s Latest Science Fiction Scenario Came True**\
+`This week, a rogue A.I. agent acted autonomously and conducted a cyberattack on the company Hugging Face. In the latest episode of “Hard Fork,” the hosts, Kevin Roose and Casey Newtown, discuss how the attack happened and why it matters.`\
+https://www.nytimes.com/video/podcasts/100000011059601/how-ais-latest-science-fiction-scenario-came-true.html
+
+**Is Kimi K3 ‘Distilled’ From an American A.I. Model?**\
+`In this week’s episode of “Hard Fork,” the hosts Kevin Roose and Casey Newton discuss Kimi K3, a highly efficient new A.I. model from China’s Moonshot A.I. K3 claims impressive efficiency and coding capabilities, but was it build by “distilling,” essentially copying and reworking, American technology?”`\
+https://www.nytimes.com/video/podcasts/100000011059528/is-kimi-k3-distilled-from-an-american-ai-model.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011059433/28vid-hannity-israel-sot.html
