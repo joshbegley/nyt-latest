@@ -1,3 +1,11 @@
+**Los enormes incendios forestales en España perforan el auge de Madrid**\
+`Madrid vive un auge cultural y económico, pero los devastadores incendios forestales a pocos kilómetros de la capital han sido un golpe de realidad para sus habitantes.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/incendios-forestales-espana-madrid.html
+
+****\
+`please add a summary tktktk`\
+https://www.nytimes.com/video/embedded/business/100000011056745/28DC-Flashlight-Tariffs.html
+
 **Quote of the Day: Tours Must Go on at Gutted Kennedy Center**\
 `Quotation of the Day for Tuesday, July 28, 2026.`\
 https://www.nytimes.com/2026/07/28/pageoneplus/quote-of-the-day-tours-must-go-on-at-gutted-kennedy-center.html
