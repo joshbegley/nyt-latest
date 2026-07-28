@@ -1,3 +1,11 @@
+**Tech Stocks Drop on Worries About A.I. Spending and China Chip Competition**\
+`South Korea temporarily paused trading on Tuesday as its benchmark stock index led losses across the region, closing more than 10 percent lower.`\
+https://www.nytimes.com/2026/07/28/business/stocks-ai-chips.html
+
+**6.8-Magnitude Earthquake in Japan Triggers Tsunami Warning**\
+`The quake struck near the coastal city of Uto in southern Japan. There were no immediate reports of damage.`\
+https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-tsunami.html
+
 **7.1-Magnitude Earthquake in Japan Triggers Tsunami Warning**\
 `The quake struck near the coastal city of Uki in southern Japan. There were no immediate reports of damage.`\
 https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-tsunami.html
