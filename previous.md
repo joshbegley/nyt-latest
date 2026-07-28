@@ -1,3 +1,15 @@
+**Quién es la novia de Jeffrey Epstein que heredaría millones de dólares**\
+`Karyna Shuliak fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en su celda en 2019. Es una figura compleja e inusual en el mundo del delincuente sexual.`\
+https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-herencia-dinero.html
+
+**Putin Thinks Conquest Can Be Cost Free. We Disagree.**\
+`Justice may proceed slowly, and cautiously, but it does proceed.`\
+https://www.nytimes.com/2026/07/28/opinion/conquest-justice-putin.html
+
+**Remember When ‘Blame Canada’ Was a ‘South Park’ Joke?**\
+`It would be a grave mistake for Americans to treat their place in the world as an afterthought.`\
+https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
+
 **Los enormes incendios forestales en España perforan el auge de Madrid**\
 `Madrid vive un auge cultural y económico, pero los devastadores incendios forestales a pocos kilómetros de la capital han sido un golpe de realidad para sus habitantes.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/incendios-forestales-espana-madrid.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/27/us/politics/iran-war-timeline.html
 **Cómo los hutíes arrinconaron a Arabia Saudita en una nueva batalla**\
 `Los hutíes, respaldados por Irán, han aprovechado un momento vulnerable para Arabia Saudita, que se muestra reacia a entrar en otra guerra, para intentar forzar concesiones políticas en Yemen.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/guerra-iran-huties-arabia-saudita-trump.html
-
-**As Communities Unite Against Europe’s Wildfires, Politicians Trade Blows**\
-`Spain’s center-left accused conservatives of underfunding the disaster response, while critics of France’s government decried delays.`\
-https://www.nytimes.com/2026/07/27/world/europe/europe-wildfires-politician-response.html
-
-**Una rutina de 20 minutos para mejorar el equilibrio y la coordinación**\
-`Prueba estos movimientos para mantenerte ágil a medida que envejeces.`\
-https://www.nytimes.com/es/2026/07/27/espanol/rutina-ejercicios-equilibrio-agilidad-evitar-caidas.html
-
-**Case to Be Dropped Against Labor Leader David Huerta in L.A. Immigration Raid**\
-`The arrest of David Huerta last summer helped spark a wave of protests against the Trump administration’s immigration crackdown.`\
-https://www.nytimes.com/2026/07/27/us/david-huerta-charges-dismiss-la-immigration-raids.html
 
