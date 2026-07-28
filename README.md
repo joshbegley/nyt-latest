@@ -1,9 +1,13 @@
+**Por qué estos animales tienen OnlyFans**\
+`Mientras el gobierno federal reduce el presupuesto para investigación en “ciencias de la vida”, un grupo de científicos creó una cuenta para financiar el estudio de estos roedores.`\
+https://www.nytimes.com/es/2026/07/28/espanol/onlyfans-cuenta-marmotas.html
+
 **Tornado Rips Through Wisconsin**\
 `A severe storm system damaged buildings, flipped cars and knocked down power lines in the Midwest. It prompted tornado and flash flood warnings across the region.`\
 https://www.nytimes.com/video/weather/100000011056695/wisconsin-tornado-menasha-storms.html
 
 **Quién es la novia de Jeffrey Epstein que heredaría millones de dólares**\
-`Karyna Shuliak fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en su celda en 2019. Es una figura compleja e inusual en el mundo del delincuente sexual.`\
+`Fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en 2019. Es una figura compleja e inusual en el mundo Epstein.`\
 https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-herencia-dinero.html
 
 **Putin Thinks Conquest Can Be Cost Free. We Disagree.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/world/europe/france-spain-fires.html
 **Apple Regains Spot Over Nvidia as Most Valuable Public Company**\
 `The company slipped by the chipmaker Nvidia, amid growing concern about costs associated with the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
-
-**Iran War Enters 6th Month and a Period of Greater Uncertainty**\
-`Here is a rundown of the major events of the war, as both sides consider their next moves.`\
-https://www.nytimes.com/2026/07/27/us/politics/iran-war-timeline.html
 
