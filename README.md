@@ -1,3 +1,11 @@
+**Couple Stalked by eBay Settle for $56 Million**\
+`Two Massachusetts journalists were harassed by a Silicon Valley security team in a case that raised questions about when executives should be held responsible.`\
+https://www.nytimes.com/2026/07/28/technology/ebay-settles-stalking-case.html
+
+**Who Wins (and Who Loses) in the Democrats’ New 2028 Primary Calendar?**\
+`Democratic Party officials have approved a new calendar that puts South Carolina at the head of the line. Black and Latino voters will gain new clout.`\
+https://www.nytimes.com/2026/07/28/us/politics/democrats-2028-primary-calendar.html
+
 **What Is Open-Weight A.I.?**\
 `As Silicon Valley debates how artificial intelligence software should be created, “open weight” has been a major part of the discussions. Here’s what to know.`\
 https://www.nytimes.com/2026/07/28/technology/open-weight-ai.html
@@ -177,10 +185,6 @@ https://www.nytimes.com/2026/07/28/arts/music/tobias-picker-lili-elbe-transgende
 **The Immigration Crackdown and the Plight of the Caregivers**\
 `Readers describe a crisis for caregivers and families. Also: Canceling grants based on politics; no politics in uniform; rediscovering resilience.`\
 https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
-
-**How Are You Navigating This Extreme Summer?**\
-`Amid blistering heat, economic anxiety and a tumultuous news cycle, we want to hear how you’re experiencing the season.`\
-https://www.nytimes.com/2026/07/28/us/extreme-summer-routines-traditions.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
