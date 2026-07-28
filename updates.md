@@ -1,3 +1,7 @@
+**Lo que debes saber sobre el terremoto en Japón**\
+`Un sismo de magnitud 6,8 se registró en el suroeste del país, en la prefectura de Kumamoto, causando daños en edificios y viviendas. Al menos una persona murió y se reportan decenas de heridos.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/japon-terremoto.html
+
 **Behind Closed Doors, Trump Huddles With Netanyahu and Zelensky**\
 `The visits by the leaders of Israel and Ukraine underscored just how deeply President Trump was enmeshed in conflicts he had promised — and failed — to end quickly.`\
 https://www.nytimes.com/2026/07/28/us/politics/trump-zelensky-netanyahu-wars.html

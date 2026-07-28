@@ -1,3 +1,7 @@
+**Lo que debes saber sobre el terremoto en Japón**\
+`Un sismo de magnitud 6,8 se registró en el suroeste del país, en la prefectura de Kumamoto, causando daños en edificios y viviendas. Al menos una persona murió y se reportan decenas de heridos.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/japon-terremoto.html
+
 **Behind Closed Doors, Trump Huddles With Netanyahu and Zelensky**\
 `The visits by the leaders of Israel and Ukraine underscored just how deeply President Trump was enmeshed in conflicts he had promised — and failed — to end quickly.`\
 https://www.nytimes.com/2026/07/28/us/politics/trump-zelensky-netanyahu-wars.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/28/arts/music/ariana-grande-hacking-lawsuit.html
 **The Iran War Just Put Another Key Oil Route at Risk**\
 `Attacks in the Strait of Hormuz during the Iran war have led Saudi Arabia to rely on an alternative route for exporting oil. Our reporter Rebecca F. Elliott explains how that route is now threatened by the Houthis, a Yemeni militia supported by Iran.`\
 https://www.nytimes.com/video/business/energy-environment/100000011050115/red-sea-blockade-oil-route.html
-
-**Were You Stuck Footing the Bill on a Group Trip? Tell Us About It.**\
-`Traveling with friends can be tricky. We’re curious how you manage financial friction — and how you make sure your besties settle up.`\
-https://www.nytimes.com/2026/07/28/travel/group-trip-finances-readers.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
