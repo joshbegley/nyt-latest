@@ -1,3 +1,11 @@
+**Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
+`Also among the 13 works up for the British literary award are the latest books from Douglas Stuart, Gwendoline Riley and Emma Cline.`\
+https://www.nytimes.com/2026/07/28/books/booker-prize-longlist.html
+
+**Street Style Look of the Week: 1970s Flair on the Cheap**\
+`James Rutherford is often able to snag louche 1970s pieces without much trouble. “It’s really a reviled decade, you know, as far as men’s fashion is concerned,” he said.`\
+https://www.nytimes.com/2026/07/28/style/street-style-look-1970s-suit.html
+
 **Kumamoto Castle, a Famed Landmark, Is Damaged in the Japan Earthquake**\
 `The centuries-old castle, one of the country’s best-known, was also affected by the region’s 2016 earthquakes.`\
 https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-castle-damage.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/28/health/ovarian-cancer-fallopian-tubes.html
 **Sam Smith Shows a New Side on “Hazel Eyes”**\
 `After rising to global pop star status with songs about heartbreak, Smith returns with an album about pointedly queer “requited love,” made exactly how and where made them happiest.`\
 https://www.nytimes.com/2026/07/28/arts/music/sam-smith-hazel-eyes-new-album.html
-
-**What the Crackup of the Heritage Foundation Says About the Post-Trump Right**\
-`The bastion of American conservatism best known for Project 2025 has been consumed by an ideological — and generational — civil war.`\
-https://www.nytimes.com/2026/07/28/magazine/heritage-foundation-trump-republicans.html
-
-**An Atlanta Museum’s New Look at the Civil War Goes Beyond Relics**\
-`The Atlanta History Center replaced an exhibition focused on military history with a reflection of America’s defining conflict.`\
-https://www.nytimes.com/2026/07/28/arts/design/civil-war-atlanta-history-center.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8-magnitude quake struck the southwestern prefecture of Kumamoto.`\
