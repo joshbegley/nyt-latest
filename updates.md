@@ -1,3 +1,11 @@
+**Behind Closed Doors, Trump Huddles With Netanyahu and Zelensky**\
+`The visits by the leaders of Israel and Ukraine underscored just how deeply President Trump was enmeshed in conflicts he had promised — and failed — to end quickly.`\
+https://www.nytimes.com/2026/07/28/us/politics/trump-zelensky-netanyahu-wars.html
+
+**Lilly Yokoi, Acrobat Who Dazzled on a Golden Bicycle, Dies at 96**\
+`With her family troupe — and later as a solo star — she performed balletic, gymnastic tricks in circuses and theaters, at fairs and on television.`\
+https://www.nytimes.com/2026/07/28/theater/lilly-yokoi-dead.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011059763/28vid-casket-exit.html
