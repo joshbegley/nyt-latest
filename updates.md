@@ -1,3 +1,11 @@
+**Mark Zuckerberg Blasts Centralization of A.I. Power**\
+`In an interview, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
+https://www.nytimes.com/2026/07/28/technology/mark-zuckerberg-meta-ai.html
+
+**Researchers Create OnlyFans for Marmots to Bridge Funding Gap**\
+`Daniel Blumstein, a professor of ecology and evolutionary biology at U.C.L.A., faced a funding issue amid federal cuts to scientific research. To raise money for its marmot research, his team started “OnlyMarms,” a free, G-rated account of cute videos that collects money through tips.`\
+https://www.nytimes.com/video/science/earth/100000011055061/trump-funding-cuts-marmot-onlyfans.html
+
 **What’s Going on With Mitch McConnell? Kentucky’s Governor Has Questions.**\
 `Gov. Andy Beshear called on Senator McConnell, who has been hospitalized since June, to prove his capacity to serve, or resign.`\
 https://www.nytimes.com/2026/07/28/us/politics/mitch-mcconnell-andy-beshear.html

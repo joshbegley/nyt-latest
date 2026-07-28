@@ -1,3 +1,7 @@
+**Mark Zuckerberg Blasts Centralization of A.I. Power**\
+`In an interview, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
+https://www.nytimes.com/2026/07/28/technology/mark-zuckerberg-meta-ai.html
+
 **What’s Going on With Mitch McConnell? Kentucky’s Governor Has Questions.**\
 `Gov. Andy Beshear called on Senator McConnell, who has been hospitalized since June, to prove his capacity to serve, or resign.`\
 https://www.nytimes.com/2026/07/28/us/politics/mitch-mcconnell-andy-beshear.html
@@ -67,7 +71,7 @@ https://www.nytimes.com/2026/07/28/opinion/israel-settlers-west-bank.html
 https://www.nytimes.com/2026/07/28/world/cuba-us-trump-ukraine-iran-japan-quake.html
 
 **Researchers Create OnlyFans for Marmots to Bridge Funding Gap**\
-`A team of scientists from the Rocky Mountain Biological Laboratory faced a funding issue amid federal cuts to scientific research. To raise money for its marmot research, it started “OnlyMarms,” a free, G-rated account of cute videos that collects money through tips.`\
+`Daniel Blumstein, a professor of ecology and evolutionary biology at U.C.L.A., faced a funding issue amid federal cuts to scientific research. To raise money for its marmot research, his team started “OnlyMarms,” a free, G-rated account of cute videos that collects money through tips.`\
 https://www.nytimes.com/video/science/earth/100000011055061/trump-funding-cuts-marmot-onlyfans.html
 
 **How A.I.’s Latest Science Fiction Scenario Came True**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000011059293/29DC-Flashlight-
 **Gibson Dunn Hires Rival Wachtell Lipton’s Co-Chair**\
 `Gibson Dunn’s hiring of the seasoned litigator William Savitt highlights the fierce competition for top lawyers across Wall Street.`\
 https://www.nytimes.com/2026/07/28/business/dealbook/gibson-dunn-hires-wachtell-liptons-co-chair.html
-
-**Georgia 13th Congressional District Special 2026: Live Election Results**\
-`Get live results and maps from the 2026 Georgia special election.`\
-https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-house-13-special.html
 
