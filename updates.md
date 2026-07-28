@@ -1,3 +1,7 @@
+**Minnesota Judge Blocks First State Ban on Prediction Markets Like Kalshi and Polymarket**\
+`The law, which would make it a felony for most prediction markets to operate and advertise in the state, was set to take effect on Saturday.`\
+https://www.nytimes.com/2026/07/27/us/minnesota-kalshi-polymarket-ban.html
+
 **Fauci, in Private Diary, Reflected on Covid’s Origins and His Own Fame**\
 `Private entries, released by a Republican senator, have reignited a furious debate over whether Covid-19 leaked from a lab.`\
 https://www.nytimes.com/2026/07/27/us/politics/fauci-in-private-diary-reflected-on-covids-origins-and-his-own-fame.html

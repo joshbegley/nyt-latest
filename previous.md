@@ -1,3 +1,7 @@
+**Minnesota Judge Blocks First State Ban on Prediction Markets Like Kalshi and Polymarket**\
+`The law, which would make it a felony for most prediction markets to operate and advertise in the state, was set to take effect on Saturday.`\
+https://www.nytimes.com/2026/07/27/us/minnesota-kalshi-polymarket-ban.html
+
 **Fauci, in Private Diary, Reflected on Covid’s Origins and His Own Fame**\
 `Private entries, released by a Republican senator, have reignited a furious debate over whether Covid-19 leaked from a lab.`\
 https://www.nytimes.com/2026/07/27/us/politics/fauci-in-private-diary-reflected-on-covids-origins-and-his-own-fame.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/07/27/opinion/letters/israel-genocide-accusation.ht
 **Una nueva ola de calor podría intensificar los incendios en España y Francia**\
 `Las altas temperaturas en partes de Francia, España y Portugal podrían combinarse con condiciones secas y fuertes vientos que empeorarían la amenaza de incendios forestales. Es la cuarta ola de calor que afecta a Europa desde mayo.`\
 https://www.nytimes.com/es/2026/07/27/espanol/mundo/cupula-calor-incendios-espana-europa.html
-
-**Review: Handel’s ‘Tolomeo’ Comes to Caramoor**\
-`Philharmonia Baroque Orchestra came to Caramoor with Handel’s “Tolomeo,” a far-fetched opera seria with a lively score.`\
-https://www.nytimes.com/2026/07/27/arts/music/handel-tolomeo-caramoor.html
 
