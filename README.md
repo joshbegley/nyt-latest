@@ -1,3 +1,7 @@
+**Apple Introduces Leasing Program for iPhones and Other Devices**\
+`The program is an effort to make products more affordable as artificial intelligence sends some component prices soaring.`\
+https://www.nytimes.com/2026/07/28/technology/apple-leasing-program.html
+
 **Germany’s AfD Opposes Pride Flags but May Win Support After L.G.B.T.Q. Attack**\
 `Analysts say a recent attack on a Pride celebration is likely to focus fall elections on issues favoring the far-right Alternative for Germany party.`\
 https://www.nytimes.com/2026/07/28/world/europe/berlin-pride-attack-afd-politics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/us/binance-crypto-crime.html
 **How to Predict the Weather in Our Era of Freakish Storms**\
 `The computer models meteorologists use aren’t 100 percent accurate. But natural weather forecasters seem to have a sixth sense for sudden squalls.`\
 https://www.nytimes.com/2026/07/28/magazine/weather-forecasting-storms-predictions.html
-
-**9 Things Experts Wish You’d Do in Midlife to Increase Longevity**\
-`How you care for yourself at this life stage matters a lot for your later years.`\
-https://www.nytimes.com/2026/07/28/well/longevity-expert-tips-middle-age.html
 
