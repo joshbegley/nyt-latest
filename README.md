@@ -1,3 +1,7 @@
+**The Chips Rout Goes Global**\
+`Shares in semiconductor companies plunged in South Korea and Europe, adding fresh doubts to the durability of the artificial intelligence trade.`\
+https://www.nytimes.com/2026/07/28/business/dealbook/chips-market-rout-ai.html
+
 **Temperatures Soar in Europe**\
 `The fourth heat wave of the summer is hitting the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
 https://www.nytimes.com/2026/07/28/weather/temperatures-soar-in-europe.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/video/embedded/world/asia/100000011057479/00int-indonesi
 https://www.nytimes.com/video/embedded/world/asia/100000011057468/00int-indonesia-dispatch-13763.html
 
 **Heavy Rain Expected in New York on Tuesday**\
-`Forecasters warned that up to five inches of rain could fall in and around New York City.`\
+`Forecasters warned that up to seven inches of rain could fall in and around New York City.`\
 https://www.nytimes.com/2026/07/28/weather/new-york-rain-storms.html
 
 **Calling Trump’s Personal Cell**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/well/longevity-expert-tips-middle-age.html
 **Cubans Aren’t Sleeping in Sweltering Blackouts**\
 `Our reporter Jack Nicas visits a sweltering Cuba where, six months into the Trump administration’s oil blockade, people struggle to sleep with no electricity for fans or air-conditioning.`\
 https://www.nytimes.com/video/world/americas/100000011002617/cubans-arent-sleeping-in-sweltering-blackouts.html
-
-**Book Review: ‘All That’s Unseen,’ by Emilee Hackney**\
-`“All That’s Unseen,” by Emilee Hackney, an eighth-generation Appalachian, offers a portrait both loving and cleareyed of the region that formed her.`\
-https://www.nytimes.com/2026/07/28/books/review/all-thats-unseen-emilee-hackney.html
 

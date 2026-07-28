@@ -1,3 +1,7 @@
+**Temperatures Soar in Europe**\
+`The fourth heat wave of the summer is hitting the continent this week as wide swaths of France and Spain are already fighting big blazes.`\
+https://www.nytimes.com/2026/07/28/weather/temperatures-soar-in-europe.html
+
 **Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer**\
 `The attack in the Caspian Sea was an unusually direct encounter between two countries that have been on opposite sides for years.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-ukraine-ship-strikes-caspian.html
