@@ -1,3 +1,7 @@
+**Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
+`Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
+https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
+
 **France and Spain Race to Contain Fires Before Some Areas Reach 104 Degrees**\
 `Faced with unprecedented blazes, firefighters in both countries are using a brief window of opportunity to bring the flames under control before temperatures spike.`\
 https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
