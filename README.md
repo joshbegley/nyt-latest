@@ -1,3 +1,7 @@
+**Gov. Sherrill in the Hot Seat After U.S. Demand for Noncitizens’ Names**\
+`After disclosing that thousands of ineligible people were added to the voter rolls, New Jersey Gov. Mikie Sherrill is trying to bring accountability while resisting President Trump’s narrative.`\
+https://www.nytimes.com/2026/07/28/nyregion/noncitizen-voting-new-jersey-sherrill.html
+
 **Fossil Fuel Executives Cash In**\
 `Insiders at leading oil and gas companies have made millions from stocks since the Iran war began.`\
 https://www.nytimes.com/2026/07/28/climate/fossil-fuel-executives-stocks-iran.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/embedded/us/politics/100000011058139/28vid-graham-
 **Boeing Reports Loss on $280 Million Hit to Troubled Air Force One Program**\
 `Boeing pushed back delivery of two presidential planes by four years. The delay and related expenses contributed to a bigger-than-expected loss in the second quarter.`\
 https://www.nytimes.com/2026/07/28/business/boeing-earnings-air-force-one.html
-
-**Prediction Market Betting on Drug Trials and Approvals Sparks Concern About Undermining Research**\
-`Prediction markets on Kalshi and Polymarket now let people wager money on drug approvals. Kalshi also plans to allow bets on clinical trial results.`\
-https://www.nytimes.com/2026/07/28/business/kalshi-polymarket-prediction-market-drugs.html
 
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\

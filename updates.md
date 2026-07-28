@@ -1,3 +1,7 @@
+**Fossil Fuel Executives Cash In**\
+`Insiders at leading oil and gas companies have made millions from stocks since the Iran war began.`\
+https://www.nytimes.com/2026/07/28/climate/fossil-fuel-executives-stocks-iran.html
+
 **Iran Hangs Protesters as Executions Surge, Rights Groups Say**\
 `Human rights activists say the Iranian government has been rapidly escalating executions. The latest prompted public protest, videos appear to show.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-hanging-protesters.html

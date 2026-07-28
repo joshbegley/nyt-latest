@@ -1,3 +1,7 @@
+**Fossil Fuel Executives Cash In**\
+`Insiders at leading oil and gas companies have made millions from stocks since the Iran war began.`\
+https://www.nytimes.com/2026/07/28/climate/fossil-fuel-executives-stocks-iran.html
+
 **Iran Hangs Protesters as Executions Surge, Rights Groups Say**\
 `Human rights activists say the Iranian government has been rapidly escalating executions. The latest prompted public protest, videos appear to show.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/iran-hanging-protesters.html
@@ -178,15 +182,7 @@ https://www.nytimes.com/2026/07/28/business/boeing-earnings-air-force-one.html
 `Prediction markets on Kalshi and Polymarket now let people wager money on drug approvals. Kalshi also plans to allow bets on clinical trial results.`\
 https://www.nytimes.com/2026/07/28/business/kalshi-polymarket-prediction-market-drugs.html
 
-**AFSCME Leader Lee Saunders to Retire as Unions Face New Opposition**\
-`Lee Saunders has led the country’s top union for local public workers at a time of growing public support and official opposition.`\
-https://www.nytimes.com/2026/07/28/us/politics/lee-saunders-afscme-retirement.html
-
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
-
-**Trump Administration Live Updates: Trump Meets With Netanyahu and Zelensky as Wars Continue in Iran and Ukraine**\
-`(No description)`\
-https://www.nytimes.com/live/2026/07/28/us/trump-news
 
