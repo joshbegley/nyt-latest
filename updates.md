@@ -1,3 +1,7 @@
+**‘We Are Not Learning Anything’: India’s Gen Z Rage Is a Test for Modi**\
+`As India’s huge youth population surges, the government faces pressure to fix an education system that leaves many ill prepared for university, let alone for the workplace.`\
+https://www.nytimes.com/2026/07/28/world/asia/india-education-protests-cockroach-genz.html
+
 **The Cuban Way**\
 `We look at the state of the island as it struggles with an energy crisis.`\
 https://www.nytimes.com/2026/07/28/briefing/cuba-surviving-energy-crisis.html
