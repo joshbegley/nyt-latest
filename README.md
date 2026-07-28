@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011059433/28vid-hannity-israel-sot.html
+
 **Couple Stalked by eBay Settle for $56 Million**\
 `Two Massachusetts journalists were harassed by a Silicon Valley security team in a case that raised questions about when executives should be held responsible.`\
 https://www.nytimes.com/2026/07/28/technology/ebay-settles-stalking-case.html
