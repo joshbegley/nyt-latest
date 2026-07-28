@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Daylight saving time. New York City history. And nuns.`\
+https://www.nytimes.com/2026/07/28/briefing/today-in-short.html
+
 **France and Spain Race to Contain Wildfires**\
 `Firefighters in Spain and France took advantage of a brief respite from scorching conditions overnight to slow the spread of blazes near Madrid and Bordeaux, even as they braced on Tuesday for a new heat wave that could worsen raging wildfires.`\
 https://www.nytimes.com/video/world/europe/100000011057271/france-spain-wildfires-containment.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/28/espanol/misma-comida-todos-dias.html
 **The Democratic Party Needs Change**\
 `Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
 https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
-
-**El resurgimiento del tā moko, el tatuaje ritual maorí**\
-`En Nueva Zelanda, cada vez más jóvenes maoríes reivindican una tradición ancestral que el dominio colonial británico prohibió y que resurgió como un acto de protesta en la década de 1970.`\
-https://www.nytimes.com/es/2026/07/28/espanol/mundo/tatuaje-facial-maori-nueva-zelanda.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
