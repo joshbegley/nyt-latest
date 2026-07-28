@@ -1,3 +1,15 @@
+**In ‘Cat Cohen: Broad Strokes,’ a Comic Faces Death (and Being Basic)**\
+`After recovering from a life-threatening stroke, a fame-hungry musical comedian contends with a worse fate: She might just be average.`\
+https://www.nytimes.com/2026/07/27/theater/cat-cohen-broad-strokes.html
+
+**‘The Saviors’ Review: Childlike Faith, Adult Betrayal**\
+`Bubba Weiler’s new play about two altar boys at a crossroads includes several beautiful performances, even when the line between sweetness and treacle blurs.`\
+https://www.nytimes.com/2026/07/27/theater/the-saviors-review-childlike-faith-adult-betrayal.html
+
+**OpenAI Close to Landing $500 Billion Data Center With Backing From Nvidia**\
+`The chipmaking giant is in talks with OpenAI to provide a $250 billion financial backstop for the project, which would be among the largest of the A.I. boom.`\
+https://www.nytimes.com/2026/07/27/technology/openai-data-center-nvidia.html
+
 **Mamdani’s Judicial Panel Appears to Be Missing Something: Jewish Members**\
 `Jewish lawyers’ groups expressed their frustration to Mayor Zohran Mamdani that his 18-member advisory committee on the judiciary appeared to have no Jewish representation.`\
 https://www.nytimes.com/2026/07/27/nyregion/mamdani-judges-jewish.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/video/dining/100000011054928/lemon-garlic-linguine.html
 **Microsoft Unveils A.I. Cybersecurity Tools**\
 `As some executives fret over the safety of new A.I. systems, protecting against them could be a big business for tech companies.`\
 https://www.nytimes.com/2026/07/27/technology/microsoft-unveils-ai-cybersecurity-tools.html
-
-**India’s ‘Cockroach’ Protesters Disperse, But Questions Remain on Education and Dissent**\
-`The ‘Cockroach’ movement dispersed, saying its demands had been met, but there are larger issues about the country’s education system and the future of dissent.`\
-https://www.nytimes.com/2026/07/27/world/asia/india-protests-cjp-education-modi.html
-
-**Berlin Locals Left Shaken After Pride Terror Attack**\
-`Chancellor Friedrich Merz of Germany has questioned the country’s terrorism surveillance laws after it was revealed that the suspect behind Saturday’s attack on Berlin’s Pride parade had previously tried to join the Islamic State.`\
-https://www.nytimes.com/video/world/europe/100000011054594/berlin-pride-attack-merz-terror-laws.html
-
-**Saudis Blame Iran-Backed Militias Based in Iraq for Drone Attacks**\
-`The kingdom is being dragged deeper into the wider regional conflict as it faces attacks from Iraq and Yemen.`\
-https://www.nytimes.com/2026/07/27/world/middleeast/saudi-arabia-drone-attacks-iraq-iran.html
 

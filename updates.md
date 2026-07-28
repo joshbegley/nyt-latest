@@ -1,3 +1,15 @@
+**In ‘Cat Cohen: Broad Strokes,’ a Comic Faces Death (and Being Basic)**\
+`After recovering from a life-threatening stroke, a fame-hungry musical comedian contends with a worse fate: She might just be average.`\
+https://www.nytimes.com/2026/07/27/theater/cat-cohen-broad-strokes.html
+
+**‘The Saviors’ Review: Childlike Faith, Adult Betrayal**\
+`Bubba Weiler’s new play about two altar boys at a crossroads includes several beautiful performances, even when the line between sweetness and treacle blurs.`\
+https://www.nytimes.com/2026/07/27/theater/the-saviors-review-childlike-faith-adult-betrayal.html
+
+**OpenAI Close to Landing $500 Billion Data Center With Backing From Nvidia**\
+`The chipmaking giant is in talks with OpenAI to provide a $250 billion financial backstop for the project, which would be among the largest of the A.I. boom.`\
+https://www.nytimes.com/2026/07/27/technology/openai-data-center-nvidia.html
+
 **Mamdani’s Judicial Panel Appears to Be Missing Something: Jewish Members**\
 `Jewish lawyers’ groups expressed their frustration to Mayor Zohran Mamdani that his 18-member advisory committee on the judiciary appeared to have no Jewish representation.`\
 https://www.nytimes.com/2026/07/27/nyregion/mamdani-judges-jewish.html
