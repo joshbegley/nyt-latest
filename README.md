@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/07/28/business/kalshi-polymarket-prediction-market-
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 
-**Trump Administration Live Updates: Trump Meets With Netanyahu and Zelensky as Wars Continue in Iran and Ukraine**\
-`(No description)`\
-https://www.nytimes.com/live/2026/07/28/us/trump-news
-
