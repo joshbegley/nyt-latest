@@ -1,3 +1,15 @@
+**Los Angeles Judge Rules D4vd Murder Case Can Go to Trial**\
+`A Los Angeles judge ruled on Monday that the murder case against the singer D4vd, who is accused of killing 14-year-old Celeste Rivas Hernandez, could go to trial.`\
+https://www.nytimes.com/video/us/100000011055244/d4vd-trial-murder-hernandez.html
+
+**BuzzFeed Lays Off a Third of Its Staff**\
+`The company’s new owner, Byron Allen, is cutting roughly 180 employees as he looks to reduce its financial losses.`\
+https://www.nytimes.com/2026/07/27/business/buzzfeed-huffpost-layoffs-byron-allen.html
+
+**Chinese Start-Up Moonshot Details New A.I. Model**\
+`Moonshot said some users would have to get licenses to use its Kimi K3 model as the company threads a needle between sharing and profiting from its technology’s popularity.`\
+https://www.nytimes.com/2026/07/27/business/moonshot-kimi-k3-china-ai.html
+
 **In ‘Cat Cohen: Broad Strokes,’ a Comic Faces Death (and Being Basic)**\
 `After recovering from a life-threatening stroke, a fame-hungry musical comedian contends with a worse fate: She might just be average.`\
 https://www.nytimes.com/2026/07/27/theater/cat-cohen-broad-strokes.html

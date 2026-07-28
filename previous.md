@@ -1,3 +1,11 @@
+**Los Angeles Judge Rules D4vd Murder Case Can Go to Trial**\
+`A Los Angeles judge ruled on Monday that the murder case against the singer D4vd, who is accused of killing 14-year-old Celeste Rivas Hernandez, could go to trial.`\
+https://www.nytimes.com/video/us/100000011055244/d4vd-trial-murder-hernandez.html
+
+**BuzzFeed Lays Off a Third of Its Staff**\
+`The company’s new owner, Byron Allen, is cutting roughly 180 employees as he looks to reduce its financial losses.`\
+https://www.nytimes.com/2026/07/27/business/buzzfeed-huffpost-layoffs-byron-allen.html
+
 **In ‘Cat Cohen: Broad Strokes,’ a Comic Faces Death (and Being Basic)**\
 `After recovering from a life-threatening stroke, a fame-hungry musical comedian contends with a worse fate: She might just be average.`\
 https://www.nytimes.com/2026/07/27/theater/cat-cohen-broad-strokes.html
@@ -79,7 +87,7 @@ https://www.nytimes.com/2026/07/27/us/politics/supreme-court-trump-mail-ballots.
 https://www.nytimes.com/2026/07/27/us/politics/troy-jackson-maine-senate-democrats.html
 
 **Chinese Start-Up Moonshot Details New A.I. Model**\
-`Moonshot said some users will have to get licenses to access its Kimi K3 model as the company threads a needle between sharing and profiting from its technology’s popularity.`\
+`Moonshot said some users would have to get licenses to use its Kimi K3 model as the company threads a needle between sharing and profiting from its technology’s popularity.`\
 https://www.nytimes.com/2026/07/27/business/moonshot-kimi-k3-china-ai.html
 
 **India’s ‘Cockroach’ Moment**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/27/world/europe/residents-farmers-firefighters-f
 **Chilled Tofu With Gochujang Sauce**\
 `This silken tofu, draped in a tangy, savory, chile-sweet gochujang sauce, is a warm weather epiphany: No cooking whatsoever.`\
 https://www.nytimes.com/video/dining/100000011055026/chilled-tofu-with-gochujang-sauce.html
-
-**Lemon-Garlic Linguine**\
-`This bright and creamy pasta is a weeknight go-to that can be embellished with seared scallops, shrimp or mushrooms to make it something special.`\
-https://www.nytimes.com/video/dining/100000011054928/lemon-garlic-linguine.html
-
-**Microsoft Unveils A.I. Cybersecurity Tools**\
-`As some executives fret over the safety of new A.I. systems, protecting against them could be a big business for tech companies.`\
-https://www.nytimes.com/2026/07/27/technology/microsoft-unveils-ai-cybersecurity-tools.html
 
