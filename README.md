@@ -1,3 +1,19 @@
+**Georgia Teen Is Sentenced to Life for Deadly School Shooting**\
+`The boy pleaded guilty to 55 charges stemming from the 2024 attack at Apalachee High School in Winder, Ga., that killed two students and two teachers.`\
+https://www.nytimes.com/2026/07/28/us/colt-gray-sentenced-apalachee-high-school-shooting.html
+
+**New York Museum Misused $597,000 in Federal Funds, Investigators Say**\
+`Investigators said museum leaders compelled staff members to inflate time sheets and improperly draw on funds meant for a geological survey.`\
+https://www.nytimes.com/2026/07/28/nyregion/fraud-museum-new-york.html
+
+**‘Spider-Man: Brand New Day’ Review: Can We Do Whatever a Spider Can?**\
+`The Spider-Man series is about growing up. Now its superhero has become an adult.`\
+https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html
+
+**Restaurant Review: Arthur in New York**\
+`At their new Greenpoint restaurant, Kevin and Lexy Finch are betting that New Yorkers want more than steak frites.`\
+https://www.nytimes.com/2026/07/28/dining/restaurant-review-arthur-nyc.html
+
 **Masa Madre Makes New York City’s Most Unforgettable Concha**\
 `In the first episode of “A Little Treat With Nikita Richardson,” we visit this artisanal Mexican bakery in Sunnyside, Queens.`\
 https://www.nytimes.com/2026/07/28/dining/little-treat-conchas-masa-madre.html
@@ -165,22 +181,6 @@ https://www.nytimes.com/2026/07/28/well/live/estrogen-patches-shortage-menopause
 **Here Is the Schedule for Lindsey Graham’s Services and Funeral**\
 `The senator is being remembered on Tuesday in Washington and on Wednesday in South Carolina.`\
 https://www.nytimes.com/2026/07/28/us/politics/lindsey-graham-funeral-schedule.html
-
-**Un excursionista se empaló con su bastón y caminó 16 km para buscar ayuda**\
-`David Cifaldi iba a llegar a la cima del pico Granite, la montaña más alta de Montana, cuando resbaló y cayó sobre uno de sus bastones. Después bajó la montaña a pie para buscar ayuda médica.`\
-https://www.nytimes.com/es/2026/07/28/espanol/excursionista-empalo-baston.html
-
-**6.8 Magnitude Earthquake Rocks Japan**\
-`A powerful 6.8-magnitude earthquake rocked southwest Japan on Tuesday, causing fires, damaging historic structures and leaving dozens injured, according to the state broadcaster.`\
-https://www.nytimes.com/video/world/asia/100000011057666/6-8-magnitude-earthquake-rocks-japan.html
-
-**Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
-`Ruby Rippey had stayed mostly quiet since her relationship with the San Francisco mayor rocked the city.`\
-https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
-
-**Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
-`Lawmakers have introduced hundreds of bills related to vaccines this year. Their proposals offer a window into the modern movement against the shots.`\
-https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covid.html
 
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\

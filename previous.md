@@ -1,3 +1,7 @@
+**Masa Madre Makes New York City’s Most Unforgettable Concha**\
+`In the first episode of “A Little Treat With Nikita Richardson,” we visit this artisanal Mexican bakery in Sunnyside, Queens.`\
+https://www.nytimes.com/2026/07/28/dining/little-treat-conchas-masa-madre.html
+
 **Linda Perhacs, Experimental Folk Singer, Is Reported Missing**\
 `Friends of the influential psychedelic folk songwriter said they had been unable to reach her since her discharge from a care facility eight months ago.`\
 https://www.nytimes.com/2026/07/28/arts/music/linda-perhacs-missing-folk-music.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
 **Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
 `Lawmakers have introduced hundreds of bills related to vaccines this year. Their proposals offer a window into the modern movement against the shots.`\
 https://www.nytimes.com/interactive/2026/07/28/us/vaccine-laws-requirements-covid.html
-
-**Do You Work in No Surprises Act Arbitration? Tell Us About It.**\
-`New York Times reporters are looking into how government contractors resolve medical billing disputes.`\
-https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
 
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
