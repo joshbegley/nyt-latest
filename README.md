@@ -182,10 +182,6 @@ https://www.nytimes.com/interactive/2026/07/28/world/quake-tracker-japan.html
 `Faced with massive blazes, firefighters in both countries are using a brief window of opportunity to bring the flames under control before temperatures spike.`\
 https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
 
-****\
-`Makeshift oil rigs in an oil field in Wonocolo village in Bojonegoro, Indonesia, in June.`\
-https://www.nytimes.com/video/embedded/world/asia/100000011057477/00int-indonesia-dispatch-61289.html
-
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
 https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
