@@ -1,3 +1,15 @@
+**Fresh Clashes Erupt in Pakistani Kashmir on First Day of Contested Vote**\
+`Dozens have died in recent weeks ahead of a weekslong regional election, officials said. A banned civil rights group said supporters died in conflicts with the police.`\
+https://www.nytimes.com/2026/07/28/world/asia/pakistan-kashmir-election-violence.html
+
+**¿Está mal comer lo mismo todos los días?**\
+`Algunas personas lo hacen para perder peso, otras para evitar la molestia de planificar las comidas. Preguntamos a los expertos cómo afecta a la salud la “monotonía alimentaria”.`\
+https://www.nytimes.com/es/2026/07/28/espanol/misma-comida-todos-dias.html
+
+**What is the Democratic Party? What Could It Be?**\
+`Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
+https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
+
 **El resurgimiento del tā moko, el tatuaje ritual maorí**\
 `En Nueva Zelanda, cada vez más jóvenes maoríes reivindican una tradición ancestral que el dominio colonial británico prohibió y que resurgió como un acto de protesta en la década de 1970.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/tatuaje-facial-maori-nueva-zelanda.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/28/opinion/conquest-justice-putin.html
 **‘You Aren’t Going to Like What Comes After America’**\
 `Remember when ‘blame Canada’ was a joke?`\
 https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
-
-**Los enormes incendios forestales en España perforan el auge de Madrid**\
-`Madrid vive un auge cultural y económico, pero los devastadores incendios forestales a pocos kilómetros de la capital han sido un golpe de realidad para sus habitantes.`\
-https://www.nytimes.com/es/2026/07/28/espanol/mundo/incendios-forestales-espana-madrid.html
-
-****\
-`please add a summary tktktk`\
-https://www.nytimes.com/video/embedded/business/100000011056745/28DC-Flashlight-Tariffs.html
-
-**Quote of the Day: Tours Must Go on at Gutted Kennedy Center**\
-`Quotation of the Day for Tuesday, July 28, 2026.`\
-https://www.nytimes.com/2026/07/28/pageoneplus/quote-of-the-day-tours-must-go-on-at-gutted-kennedy-center.html
 
