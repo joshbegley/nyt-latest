@@ -1,3 +1,7 @@
+**As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks**\
+`Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump and have leverage over the Strait of Hormuz, analysts say.`\
+https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
+
 **Map: 6.8-Magnitude Earthquake Shakes Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/28/world/quake-tracker-japan.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/07/28/world/asia/pakistan-kashmir-election-violence
 `Algunas personas lo hacen para perder peso, otras para evitar la molestia de planificar las comidas. Preguntamos a los expertos cómo afecta a la salud la “monotonía alimentaria”.`\
 https://www.nytimes.com/es/2026/07/28/espanol/misma-comida-todos-dias.html
 
-**What is the Democratic Party? What Could It Be?**\
+**The Democratic Party Needs Change**\
 `Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
 https://www.nytimes.com/2026/07/28/opinion/ezra-klein-podcast-ben-wikler.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/business/stocks-ai-chips.html
 **New York Has a New Sheriff, and His Mentor Is Serpico**\
 `Edwin Raymond, a retired police lieutenant and former whistle-blower himself, was sworn in at a ceremony that paid homage to Frank Serpico, the famous anti-corruption detective of the 1970s.`\
 https://www.nytimes.com/2026/07/28/nyregion/nyc-sheriff-edwin-raymond-frank-serpico.html
-
-**NYT Spelling Bee Answers for July 28, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/28/crosswords/spelling-bee-forum.html
 
