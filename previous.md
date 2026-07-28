@@ -1,3 +1,7 @@
+**Tornado Rips Through Wisconsin**\
+`A severe storm system damaged buildings, flipped cars and knocked down power lines in the Midwest. It prompted tornado and flash flood warnings across the region.`\
+https://www.nytimes.com/video/weather/100000011056695/wisconsin-tornado-menasha-storms.html
+
 **Quién es la novia de Jeffrey Epstein que heredaría millones de dólares**\
 `Karyna Shuliak fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en su celda en 2019. Es una figura compleja e inusual en el mundo del delincuente sexual.`\
 https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-herencia-dinero.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/27/technology/apple-valuation.html
 **Iran War Enters 6th Month and a Period of Greater Uncertainty**\
 `Here is a rundown of the major events of the war, as both sides consider their next moves.`\
 https://www.nytimes.com/2026/07/27/us/politics/iran-war-timeline.html
-
-**Cómo los hutíes arrinconaron a Arabia Saudita en una nueva batalla**\
-`Los hutíes, respaldados por Irán, han aprovechado un momento vulnerable para Arabia Saudita, que se muestra reacia a entrar en otra guerra, para intentar forzar concesiones políticas en Yemen.`\
-https://www.nytimes.com/es/2026/07/27/espanol/mundo/guerra-iran-huties-arabia-saudita-trump.html
 

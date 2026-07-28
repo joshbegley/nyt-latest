@@ -1,3 +1,7 @@
+**Tornado Rips Through Wisconsin**\
+`A severe storm system damaged buildings, flipped cars and knocked down power lines in the Midwest. It prompted tornado and flash flood warnings across the region.`\
+https://www.nytimes.com/video/weather/100000011056695/wisconsin-tornado-menasha-storms.html
+
 **Quién es la novia de Jeffrey Epstein que heredaría millones de dólares**\
 `Karyna Shuliak fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en su celda en 2019. Es una figura compleja e inusual en el mundo del delincuente sexual.`\
 https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-herencia-dinero.html
