@@ -63,7 +63,7 @@ https://www.nytimes.com/es/2026/07/28/espanol/excursionista-empalo-baston.html
 https://www.nytimes.com/video/world/asia/100000011057666/6-8-magnitude-earthquake-rocks-japan.html
 
 **Aide Who Had Affair With Newsom 20 Years Ago Details Her Experience**\
-`Ruby Rippey has stayed mostly quiet since her relationship with the San Francisco mayor rocked the city. Not anymore.`\
+`Ruby Rippey had stayed mostly quiet since her relationship with the San Francisco mayor rocked the city.`\
 https://www.nytimes.com/2026/07/28/us/gavin-newsom-ruby-rippey-affair.html
 
 **Vaccine Laws Were Under Debate in Dozens of States. Here’s How Those Bills Fared.**\
