@@ -102,8 +102,8 @@ https://www.nytimes.com/2026/07/28/technology/ebay-settles-stalking-case.html
 `Democratic Party officials have approved a new calendar that puts South Carolina at the head of the line. Black and Latino voters will gain new clout.`\
 https://www.nytimes.com/2026/07/28/us/politics/democrats-2028-primary-calendar.html
 
-**What Is Open-Weight A.I.?**\
-`As Silicon Valley debates how artificial intelligence software should be created, “open weight” has been a major part of the discussions. Here’s what to know.`\
+**What Is Open-Weights A.I.?**\
+`As Silicon Valley debates how artificial intelligence software should be created, “open weights” have been a major part of the discussions. Here’s what to know.`\
 https://www.nytimes.com/2026/07/28/technology/open-weight-ai.html
 
 **Ross Douthat Joins ‘60 Minutes’ as a Correspondent**\
