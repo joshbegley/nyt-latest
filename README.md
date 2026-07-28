@@ -92,7 +92,7 @@ https://www.nytimes.com/2026/07/28/opinion/mamdani-netanyahu-stunt-israel.html
 
 **‘We Are Not Learning Anything’: India’s Gen Z Rage Is a Test for Modi**\
 `As India’s huge youth population surges, the government faces pressure to fix an education system that leaves many ill prepared for university, let alone for the workplace.`\
-https://www.nytimes.com/2026/07/28/world/asia/india-education-protests-cockraoch-genz.html
+https://www.nytimes.com/2026/07/28/world/asia/india-education-protests-cockroach-genz.html
 
 **Who Does JD Vance Think He Is?**\
 `The chameleon effect is endangering the vice president’s political prospects.`\
