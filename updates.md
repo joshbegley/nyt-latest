@@ -1,3 +1,7 @@
+**Tech Stocks Tumble on Worries About A.I. Spending and China’s Chip Competition**\
+`South Korea temporarily paused trading on Tuesday as its benchmark stock index led losses across the region, closing more than 10 percent lower.`\
+https://www.nytimes.com/2026/07/28/business/stocks-ai-chips.html
+
 **Tech Stocks Drop on Worries About A.I. Spending and China Chip Competition**\
 `South Korea temporarily paused trading on Tuesday as its benchmark stock index led losses across the region, closing more than 10 percent lower.`\
 https://www.nytimes.com/2026/07/28/business/stocks-ai-chips.html
