@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011059763/28vid-casket-exit.html
+
+**ICE Agents Target Foreign Citizens With Expired Visas at U.S. Airports**\
+`The Trump administration has begun arresting foreign citizens with expired U.S. visas at American airports, according to documents obtained by The New York Times and immigration lawyers.`\
+https://www.nytimes.com/video/us/100000011055643/ice-tsa-airport-arrests-expired-visa.html
+
 **Houthis Claim Strike on Another Saudi Oil Tanker**\
 `With their ally, Iran, bottling up the Strait of Hormuz, the Houthi group in Yemen is escalating its declared blockade of Saudi shipping in another vital waterway, the Red Sea.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/houthis-strike-saudi-tanker.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-damage.h
 **The Fires in France and Spain are Breaking Modern Records: Charts and Maps**\
 `Huge wildfires in France and Spain have grown to the largest either country has seen in decades, breaking modern records.`\
 https://www.nytimes.com/interactive/2026/07/28/world/europe/france-spain-wildfires-2026-fire-season.html
-
-**As Cyclospora Cases Climb, FDA Official Says Food Supply Is Safe**\
-`The acting deputy commissioner for food said the agency was taking action even though finding the root cause of the outbreaks is difficult.`\
-https://www.nytimes.com/2026/07/28/business/cyclospora-food-safety-fda.html
-
-**An Anthropic Claude AI Model Finds Flaws in Tough-to-Crack Encryption Algorithms**\
-`Claude Mythos Preview discovered new attacks in testing against weakened cryptographic algorithms, which protect online financial transactions, private communications and more.`\
-https://www.nytimes.com/2026/07/28/us/politics/anthropic-ai-encryption-security-aes.html
 
 **Live Updates: Lindsey Graham Remembered at Funeral as Friend and Relentless Fighter**\
 `“He died doing the work he was born to do,” President Trump said at a service for the South Carolina senator at the National Cathedral.`\
