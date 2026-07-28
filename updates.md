@@ -1,3 +1,15 @@
+**The Iran War Just Put Another Key Oil Route at Risk**\
+`Attacks in the Strait of Hormuz during the Iran war have led Saudi Arabia to rely on an alternative route for exporting oil. Our reporter Rebecca F. Elliott explains how that route is now threatened by the Houthis, a Yemeni militia supported by Iran.`\
+https://www.nytimes.com/video/business/energy-environment/100000011050115/red-sea-blockade-oil-route.html
+
+**Were You Stuck Footing the Bill on a Group Trip? Tell Us About It.**\
+`Traveling with friends can be tricky. We’re curious how you manage financial friction — and how you make sure your besties settle up.`\
+https://www.nytimes.com/2026/07/28/travel/group-trip-finances-readers.html
+
+**Do You Work in No Surprises Act Arbitration? Tell Us About It.**\
+`New York Times reporters are looking into how government contractors resolve medical billing disputes.`\
+https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
+
 **What to Know About the Kumamoto Earthquake in Japan**\
 `At least one person who was found in a collapsed house was killed, and about 50 others were injured on Tuesday in the southwestern prefecture of Kumamoto.`\
 https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-damage.html
