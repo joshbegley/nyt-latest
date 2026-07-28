@@ -1,3 +1,19 @@
+**What to Know About the Kumamoto Earthquake in Japan**\
+`At least one person who was found in a collapsed house was killed, and about 50 others were injured on Tuesday in the southwestern prefecture of Kumamoto.`\
+https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-damage.html
+
+**The Fires in France and Spain are Breaking Modern Records: Charts and Maps**\
+`Huge wildfires in France and Spain have grown to the largest either country has seen in decades, breaking modern records.`\
+https://www.nytimes.com/interactive/2026/07/28/world/europe/france-spain-wildfires-2026-fire-season.html
+
+**As Cyclospora Cases Climb, FDA Official Says Food Supply Is Safe**\
+`The acting deputy commissioner for food said the agency was taking action even though finding the root cause of the outbreaks is difficult.`\
+https://www.nytimes.com/2026/07/28/business/cyclospora-food-safety-fda.html
+
+**An Anthropic Claude AI Model Finds Flaws in Tough-to-Crack Encryption Algorithms**\
+`Claude Mythos Preview discovered new attacks in testing against weakened cryptographic algorithms, which protect online financial transactions, private communications and more.`\
+https://www.nytimes.com/2026/07/28/us/politics/anthropic-ai-encryption-security-aes.html
+
 **‘The Odyssey’ Isn’t a Fashion Movie. But It Has One Great Outfit.**\
 `Plus: Bernard Arnault’s open letter and Zohran Mamdani meets Anna Wintour.`\
 https://www.nytimes.com/2026/07/28/style/odyssey-nolan-pattinson-antinous.html
@@ -165,22 +181,6 @@ https://www.nytimes.com/2026/07/28/crosswords/wordle-review-1866.html
 **NYT Strands Hints for July 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
 https://www.nytimes.com/2026/07/28/crosswords/strands-sidekick-878.html
-
-**NYT Connections Answers for July 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 29, 2026.`\
-https://www.nytimes.com/2026/07/28/crosswords/connections-companion-1144.html
-
-**As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks**\
-`Amid a reprieve in the fighting, Iran’s leaders are betting that they can endure more pain than President Trump can, and they have leverage over the Strait of Hormuz, analysts say.`\
-https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
-
-**Map: 6.8-Magnitude Earthquake Shakes Japan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/07/28/world/quake-tracker-japan.html
-
-**France and Spain Race to Contain Fires Before Some Areas Reach 104 Degrees**\
-`Faced with massive blazes, firefighters in both countries are using a brief window of opportunity to bring the flames under control before temperatures spike.`\
-https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
