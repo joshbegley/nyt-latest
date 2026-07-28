@@ -1,3 +1,7 @@
+**Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer**\
+`The attack in the Caspian Sea was an unusually direct encounter between two countries that have been on opposite sides for years.`\
+https://www.nytimes.com/2026/07/28/world/middleeast/iran-ukraine-ship-strikes-caspian.html
+
 **The Cuban Way**\
 `We look at the state of the island as it struggles with an energy crisis.`\
 https://www.nytimes.com/2026/07/28/briefing/cuba-surviving-energy-crisis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/books/review/all-thats-unseen-emilee-hackney.
 **Faith and Kenny Lattimore Chose a Rare Move: Fighting Defamation on YouTube**\
 `Faith Jenkins Lattimore and Kenny Lattimore took the rare step of battling defamation on YouTube. Even with money and legal experience, they struggled to make progress.`\
 https://www.nytimes.com/2026/07/28/business/media/faith-jenkins-kenny-lattimore-youtube.html
-
-**Beyond Amsterdam and Venice: 6 Delightful European Canal Cities**\
-`From culture in Hamburg to sweet confections in Aveiro, the charms of these places are revealed as you drift down uncrowded waterways.`\
-https://www.nytimes.com/2026/07/28/travel/europe-alternative-canal-cities.html
 
