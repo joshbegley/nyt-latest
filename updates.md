@@ -1,3 +1,15 @@
+**Graham Mourns Her Brother as She Seeks His Seat**\
+`Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
+https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html
+
+**Por qué Irán no tiene prisa por reanudar las conversaciones con EE. UU.**\
+`En medio de una pausa en los combates, los líderes de Irán apuestan a que pueden soportar más presión que el presidente Trump, y a que tienen influencia sobre el estrecho de Ormuz, según analistas.`\
+https://www.nytimes.com/es/2026/07/28/espanol/mundo/iran-guerra-eeuu-trump.html
+
+**Cyclospora Conspiracy Theories Have Social Media Users Jumping to Conclusions**\
+`On sites like X and TikTok, the conversation about Taylor Farms is dominated by conjecture about the produce firm’s donation to a Trump-linked PAC.`\
+https://www.nytimes.com/2026/07/28/business/media/cyclospora-social-media.html
+
 **Florida Executes One Man, and Plans a 2nd Execution Tonight**\
 `Both were set to be carried out by lethal injection.`\
 https://www.nytimes.com/2026/07/28/us/florida-executions.html
