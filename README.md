@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/28/world/quake-tracker-japan.html
 
-**France and Spain Race to Tamp Down Wildfires Before Heat Wave Hits**\
+**France and Spain Race to Contain Fires Before Some Areas Reach 104 Degrees**\
 `Faced with unprecedented blazes, firefighters in both countries are using a brief window of opportunity to bring the flames under control before temperatures spike.`\
 https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
 
