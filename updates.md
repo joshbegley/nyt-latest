@@ -1,3 +1,7 @@
+**What Is Open-Weights A.I.?**\
+`As Silicon Valley debates how artificial intelligence software should be created, “open weights” have been a major part of the discussions. Here’s what to know.`\
+https://www.nytimes.com/2026/07/28/technology/open-weight-ai.html
+
 **Domestic Abuse Allegations Rock Max Miller’s Ohio House Race**\
 `Representative Max Miller, a Republican, is facing accusations of abuse from his ex-wife in a bitter family feud that might put his otherwise safe seat in play.`\
 https://www.nytimes.com/2026/07/28/us/politics/domestic-abuse-allegations-ohio-house-race.html
