@@ -1,3 +1,11 @@
+**Por qué estos animales tienen OnlyFans**\
+`Mientras el gobierno federal reduce el presupuesto para investigación en “ciencias de la vida”, un grupo de científicos creó una cuenta para financiar el estudio de estos roedores.`\
+https://www.nytimes.com/es/2026/07/28/espanol/onlyfans-cuenta-marmotas.html
+
+**Quién es la novia de Jeffrey Epstein que heredaría millones de dólares**\
+`Fue la última persona a la que el financiero caído en desgracia llamó antes de suicidarse en 2019. Es una figura compleja e inusual en el mundo Epstein.`\
+https://www.nytimes.com/es/2026/07/28/espanol/negocios/jeffrey-epstein-novia-herencia-dinero.html
+
 **‘You Aren’t Going to Like What Comes After America’**\
 `Remember when ‘blame Canada’ was a joke?`\
 https://www.nytimes.com/2026/07/28/opinion/canada-trump-tariffs-south-park.html
