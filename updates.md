@@ -1,3 +1,11 @@
+**Domestic Abuse Allegations Rock Max Miller’s Ohio House Race**\
+`Representative Max Miller, a Republican, is facing accusations of abuse from his ex-wife in a bitter family feud that might put his otherwise safe seat in play.`\
+https://www.nytimes.com/2026/07/28/us/politics/domestic-abuse-allegations-ohio-house-race.html
+
+**St. Paul Police Chief Filed Harassment Complaint Against the Mayor**\
+`The city has hired an outside lawyer to investigate after Chief Axel Henry accused Mayor Kaohly Her, in her first term in office, of behaving inappropriately toward police officers.`\
+https://www.nytimes.com/2026/07/28/us/st-paul-police-chief-sexual-harassment-mayor.html
+
 **Mark Zuckerberg Blasts Centralization of A.I. Power**\
 `In an interview, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
 https://www.nytimes.com/2026/07/28/technology/mark-zuckerberg-meta-ai.html

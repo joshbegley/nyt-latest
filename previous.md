@@ -1,3 +1,11 @@
+**Domestic Abuse Allegations Rock Max Miller’s Ohio House Race**\
+`Representative Max Miller, a Republican, is facing accusations of abuse from his ex-wife in a bitter family feud that might put his otherwise safe seat in play.`\
+https://www.nytimes.com/2026/07/28/us/politics/domestic-abuse-allegations-ohio-house-race.html
+
+**St. Paul Police Chief Filed Harassment Complaint Against the Mayor**\
+`The city has hired an outside lawyer to investigate after Chief Axel Henry accused Mayor Kaohly Her, in her first term in office, of behaving inappropriately toward police officers.`\
+https://www.nytimes.com/2026/07/28/us/st-paul-police-chief-sexual-harassment-mayor.html
+
 **Mark Zuckerberg Blasts Centralization of A.I. Power**\
 `In an interview, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
 https://www.nytimes.com/2026/07/28/technology/mark-zuckerberg-meta-ai.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/embedded/business/100000011059286/29DC-Flashlight-
 **Long-Delayed Guggenheim Abu Dhabi to Open in December**\
 `The museum, designed by Frank Gehry for the capital of the United Arab Emirates, will show art from the 1960s to the present.`\
 https://www.nytimes.com/2026/07/28/arts/design/guggenheim-abu-dhabi-opening-december.html
-
-****\
-`tktktk factory in Thailand`\
-https://www.nytimes.com/video/embedded/business/100000011059293/29DC-Flashlight-Tariff-video-factory.html
-
-**Gibson Dunn Hires Rival Wachtell Lipton’s Co-Chair**\
-`Gibson Dunn’s hiring of the seasoned litigator William Savitt highlights the fierce competition for top lawyers across Wall Street.`\
-https://www.nytimes.com/2026/07/28/business/dealbook/gibson-dunn-hires-wachtell-liptons-co-chair.html
 
