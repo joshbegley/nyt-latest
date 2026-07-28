@@ -1,3 +1,7 @@
+**Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer**\
+`The attack in the Caspian Sea was an unusually direct encounter between two countries that have been on opposite sides for years.`\
+https://www.nytimes.com/2026/07/28/world/middleeast/iran-ukraine-ship-strikes-caspian.html
+
 **‘We Are Not Learning Anything’: India’s Gen Z Rage Is a Test for Modi**\
 `As India’s huge youth population surges, the government faces pressure to fix an education system that leaves many ill prepared for university, let alone for the workplace.`\
 https://www.nytimes.com/2026/07/28/world/asia/india-education-protests-cockroach-genz.html
