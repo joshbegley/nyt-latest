@@ -1,3 +1,31 @@
+****\
+`Makeshift oil rigs in an oil field in Wonocolo village in Bojonegoro, Indonesia, in June.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011057477/00int-indonesia-dispatch-61289.html
+
+****\
+`Refined oil pouring out from a pipe during the distillation process.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011057479/00int-indonesia-dispatch-75272.html
+
+****\
+`Big oil companies have long considered Wonocolo commercially insignificant.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011057468/00int-indonesia-dispatch-13763.html
+
+**Heavy Rain Expected in New York on Tuesday**\
+`Forecasters warned that up to five inches of rain could fall in and around New York City.`\
+https://www.nytimes.com/2026/07/28/weather/new-york-rain-storms.html
+
+**Calling Trump’s Personal Cell**\
+`Pablo and the hosts of “TrueAnon” dial the president’s phone number and ask the important questions.`\
+https://www.nytimes.com/2026/07/28/podcasts/trueanon-calling-trump-personal-cell.html
+
+**Keigo Higashino, Best-Selling Japanese Mystery Writer, Dies at 68**\
+`His works, which included “The Devotion of Suspect X,” were widely translated and adapted for the screen.`\
+https://www.nytimes.com/2026/07/28/obituaries/keigo-higashino-author-dead.html
+
+**Live Updates: 6.8-Magnitude Earthquake Strikes Japan**\
+`Fires and injuries were reported after the quake in the southwestern prefecture of Kumamoto, according to Japan’s state broadcaster. A tsunami warning was lifted.`\
+https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami
+
 **Fresh Clashes Erupt in Pakistani Kashmir on First Day of Contested Vote**\
 `Dozens have died in recent weeks ahead of a weekslong regional election, officials said. A banned civil rights group said supporters died in conflicts with the police.`\
 https://www.nytimes.com/2026/07/28/world/asia/pakistan-kashmir-election-violence.html

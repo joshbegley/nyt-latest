@@ -1,3 +1,11 @@
+**Map: 6.8-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/28/world/quake-tracker-japan.html
+
+**France and Spain Race to Tamp Down Wildfires Before Heat Wave Hits**\
+`Faced with unprecedented blazes, firefighters in both countries are using a brief window of opportunity to bring the flames under control before temperatures spike.`\
+https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html
+
 ****\
 `Makeshift oil rigs in an oil field in Wonocolo village in Bojonegoro, Indonesia, in June.`\
 https://www.nytimes.com/video/embedded/world/asia/100000011057477/00int-indonesia-dispatch-61289.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/28/nyregion/nyc-sheriff-edwin-raymond-frank-serp
 **NYT Spelling Bee Answers for July 28, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/07/28/crosswords/spelling-bee-forum.html
-
-**Breaking a Sweat for the Story, and Glory**\
-`A look at what it takes to report on, and join, an intense fitness program at the same time.`\
-https://www.nytimes.com/2026/07/28/insider/xenom-fitness.html
-
-**A Newsstand That Aims to Delight N.Y.C. Subway Riders**\
-`A comedian and his friends are transforming a vacant retail space at the West 4th Street station with freebies, art and puppet shows to make commutes more enjoyable.`\
-https://www.nytimes.com/2026/07/28/nyregion/subway-newstand-west-4th-station-nyc.html
 
