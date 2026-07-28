@@ -1,3 +1,15 @@
+**What’s Going on With Mitch McConnell? Kentucky’s Governor Has Questions.**\
+`Gov. Andy Beshear called on Senator McConnell, who has been hospitalized since June, to prove his capacity to serve, or resign.`\
+https://www.nytimes.com/2026/07/28/us/politics/mitch-mcconnell-andy-beshear.html
+
+**Investigation of School Epstein Helped Finds Abuses Went Beyond Him**\
+`A law firm hired by Interlochen, the arts school and camp, to look into alumni complaints of sexual abuse fielded dozens of disturbing accounts, primarily from decades ago.`\
+https://www.nytimes.com/2026/07/28/arts/music/jeffrey-epstein-interlochen-arts-abuse.html
+
+**Gunther von Hagens, Creator of Polarizing ‘Body Worlds’ Exhibits, Dies at 81**\
+`A German scientist, he developed a process for turning corpses into posable figures. His shows drew millions of visitors, and many detractors.`\
+https://www.nytimes.com/2026/07/28/science/gunther-von-hagens-dead.html
+
 **A U.S. Citizen Deleted His Phone’s Data. Now He Faces a Felony Charge.**\
 `Federal prosecutors charged a man returning to the United States with obstruction because he gave them a passcode that erased his smartphone during a customs search.`\
 https://www.nytimes.com/2026/07/28/us/duress-password-phone-wipe-charge.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/28/business/dealbook/gibson-dunn-hires-wachtell-
 **Georgia 13th Congressional District Special 2026: Live Election Results**\
 `Get live results and maps from the 2026 Georgia special election.`\
 https://www.nytimes.com/interactive/2026/07/28/us/elections/results-georgia-us-house-13-special.html
-
-**Trump Loved Graham, Not So Much His Beloved Senate**\
-`The South Carolinian relished serving as a “bridge” between the institution he revered and the president, but now that bridge is gone.`\
-https://www.nytimes.com/2026/07/28/us/politics/trump-graham-senate.html
-
-**Darline Graham Mourns Her Brother as She Seeks His Seat**\
-`Senator Darline Graham, who was appointed to serve out Lindsey Graham’s term after his unexpected death, appeared somber and stoic.`\
-https://www.nytimes.com/2026/07/28/us/politics/darline-graham-sister-lindsey.html
-
-**Por qué Irán no tiene prisa por reanudar las conversaciones con EE. UU.**\
-`En medio de una pausa en los combates, los líderes de Irán apuestan a que pueden soportar más presión que el presidente Trump, y a que tienen influencia sobre el estrecho de Ormuz, según analistas.`\
-https://www.nytimes.com/es/2026/07/28/espanol/mundo/iran-guerra-eeuu-trump.html
 

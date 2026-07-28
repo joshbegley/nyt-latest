@@ -1,3 +1,15 @@
+**What’s Going on With Mitch McConnell? Kentucky’s Governor Has Questions.**\
+`Gov. Andy Beshear called on Senator McConnell, who has been hospitalized since June, to prove his capacity to serve, or resign.`\
+https://www.nytimes.com/2026/07/28/us/politics/mitch-mcconnell-andy-beshear.html
+
+**Investigation of School Epstein Helped Finds Abuses Went Beyond Him**\
+`A law firm hired by Interlochen, the arts school and camp, to look into alumni complaints of sexual abuse fielded dozens of disturbing accounts, primarily from decades ago.`\
+https://www.nytimes.com/2026/07/28/arts/music/jeffrey-epstein-interlochen-arts-abuse.html
+
+**Gunther von Hagens, Creator of Polarizing ‘Body Worlds’ Exhibits, Dies at 81**\
+`A German scientist, he developed a process for turning corpses into posable figures. His shows drew millions of visitors, and many detractors.`\
+https://www.nytimes.com/2026/07/28/science/gunther-von-hagens-dead.html
+
 **A U.S. Citizen Deleted His Phone’s Data. Now He Faces a Felony Charge.**\
 `Federal prosecutors charged a man returning to the United States with obstruction because he gave them a passcode that erased his smartphone during a customs search.`\
 https://www.nytimes.com/2026/07/28/us/duress-password-phone-wipe-charge.html
