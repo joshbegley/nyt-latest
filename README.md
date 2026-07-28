@@ -178,10 +178,6 @@ https://www.nytimes.com/2026/07/28/briefing/cuba-surviving-energy-crisis.html
 `Narendra Modi cedió ante las exigencias de los jóvenes de India, un reconocimiento a su verdadero poder.`\
 https://www.nytimes.com/es/2026/07/28/espanol/mundo/india-protestas-jovenes-cucaracha.html
 
-**The Iranians Who Want More War**\
-`Fractures in Tehran are pitting a faction favoring negotiation with Washington against hard-liners who oppose making a deal with the United States.`\
-https://www.nytimes.com/2026/07/28/podcasts/the-daily/iran-war-funeral.html
-
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
 https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami

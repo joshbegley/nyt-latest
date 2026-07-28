@@ -1,4 +1,8 @@
 **Live Updates: Trump to Pay Tribute at Lindsey Graham’s Washington Funeral**\
+`The service for the South Carolina senator is being attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine. Vice President JD Vance was among the speakers at a morning ceremony.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
+**Live Updates: Trump to Pay Tribute at Lindsey Graham’s Washington Funeral**\
 `The service for the South Carolina senator will be attended by Prime Minister Benjamin Netanyahu of Israel and President Volodymyr Zelensky of Ukraine. Vice President JD Vance was among the speakers at a morning ceremony.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 
