@@ -1,3 +1,11 @@
+**Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
+`Also among the 13 works up for the British literary award are the latest books from Douglas Stuart, Gwendoline Riley and Emma Cline.`\
+https://www.nytimes.com/2026/07/28/books/booker-prize-longlist.html
+
+**Street Style Look of the Week: 1970s Flair on the Cheap**\
+`James Rutherford is often able to snag louche 1970s pieces without much trouble. “It’s really a reviled decade, you know, as far as men’s fashion is concerned,” he said.`\
+https://www.nytimes.com/2026/07/28/style/street-style-look-1970s-suit.html
+
 **Kumamoto Castle, a Famed Landmark, Is Damaged in the Japan Earthquake**\
 `The centuries-old castle, one of the country’s best-known, was also affected by the region’s 2016 earthquakes.`\
 https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-castle-damage.html
