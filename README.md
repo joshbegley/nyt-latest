@@ -1,3 +1,11 @@
+**Graham and Netanyahu Worked Together to Denounce International Criminal Court**\
+`Senator Lindsey Graham helped to coordinate a group of lawmakers to rebuke the I.C.C., which was investigating Prime Minister Benjamin Netanyahu of Israel.`\
+https://www.nytimes.com/2026/07/28/us/politics/graham-netanyahu-documentary-icc.html
+
+**Obama to Headline Democratic Redistricting Fund-Raiser**\
+`After exhausting their gerrymandering options in 2026, the party is hoping to redraw more congressional maps ahead of the next election cycle.`\
+https://www.nytimes.com/2026/07/28/us/politics/obama-fund-raiser-marthas-vineyard-redistricting.html
+
 **Georgia Teen Is Sentenced to Life for Deadly School Shooting**\
 `The boy pleaded guilty to 55 charges stemming from the 2024 attack at Apalachee High School in Winder, Ga., that killed two students and two teachers.`\
 https://www.nytimes.com/2026/07/28/us/colt-gray-sentenced-apalachee-high-school-shooting.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/interactive/2026/07/28/us/elections/results-south-dakota
 **The Good News and the Bad News About the New Housing Law**\
 `What happens when a good law meets a seemingly indifferent administration?`\
 https://www.nytimes.com/2026/07/28/opinion/housing-law-trump-congress.html
-
-**What to Do if Your Estrogen Patch Is Out of Stock**\
-`Some hormone therapy patches are still in short supply. Here’s what experts recommend to avoid missing a dose.`\
-https://www.nytimes.com/2026/07/28/well/live/estrogen-patches-shortage-menopause.html
-
-**Here Is the Schedule for Lindsey Graham’s Services and Funeral**\
-`The senator is being remembered on Tuesday in Washington and on Wednesday in South Carolina.`\
-https://www.nytimes.com/2026/07/28/us/politics/lindsey-graham-funeral-schedule.html
 
 **Live Updates: Trump Pays Tribute at Graham’s Washington Funeral**\
 `“He died doing the work he was born to do,” President Trump said at a service for Lindsey Graham, the South Carolina senator, at the National Cathedral.`\
