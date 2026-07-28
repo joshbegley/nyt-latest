@@ -1,3 +1,15 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011058139/28vid-graham-coffin-steps.html
+
+**Boeing Reports Loss on $280 Million Hit on Troubled Air Force One Program**\
+`Boeing pushed back delivery of two presidential planes by four years. The delay and related expenses contributed to a bigger-than-expected loss in the second quarter.`\
+https://www.nytimes.com/2026/07/28/business/boeing-earnings-air-force-one.html
+
+**Live Updates: Vance Pays Tribute at Lindsey Graham’s Washington Funeral**\
+`Vice President JD Vance was among the speakers at a morning ceremony for Lindsey Graham, the senator from South Carolina who died this month. President Trump will speak later.`\
+https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
+
 **AFSCME Leader Lee Saunders to Retire as Unions Face New Opposition**\
 `Lee Saunders has led the country’s top union for local public workers at a time of growing public support and official opposition.`\
 https://www.nytimes.com/2026/07/28/us/politics/lee-saunders-afscme-retirement.html

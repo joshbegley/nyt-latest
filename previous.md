@@ -1,3 +1,11 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011058139/28vid-graham-coffin-steps.html
+
+**Boeing Reports Loss on $280 Million Hit on Troubled Air Force One Program**\
+`Boeing pushed back delivery of two presidential planes by four years. The delay and related expenses contributed to a bigger-than-expected loss in the second quarter.`\
+https://www.nytimes.com/2026/07/28/business/boeing-earnings-air-force-one.html
+
 **Prediction Market Betting on Drug Trials and Approvals Sparks Concern About Undermining Research**\
 `Prediction markets on Kalshi and Polymarket now let people wager money on drug approvals. Kalshi also plans to allow bets on clinical trial results.`\
 https://www.nytimes.com/2026/07/28/business/kalshi-polymarket-prediction-market-drugs.html
@@ -22,8 +30,8 @@ https://www.nytimes.com/es/2026/07/28/espanol/opinion/alimentos-ultraprocesados-
 `Scientists managed to confirm pregnancies in three giant mantas with underwater ultrasound scans, offering clues to the animals’ elusive reproductive habits.`\
 https://www.nytimes.com/2026/07/28/science/giant-mantas-pregnant-ultrasound.html
 
-**Live Updates: Vance to Pay Tribute at Lindsey Graham’s Washington Funeral**\
-`Vice President JD Vance will be among the speakers at a morning ceremony for Lindsey Graham, the senator from South Carolina who died this month. President Trump will speak later.`\
+**Live Updates: Vance Pays Tribute at Lindsey Graham’s Washington Funeral**\
+`Vice President JD Vance was among the speakers at a morning ceremony for Lindsey Graham, the senator from South Carolina who died this month. President Trump will speak later.`\
 https://www.nytimes.com/live/2026/07/28/us/lindsey-graham-funeral-services
 
 **Booker Prize 2026 Nominees: Marlon James, Elizabeth Strout and More**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/28/realestate/plant-family-botanical-illustratio
 **What is the Democratic Party? What Could It Be?**\
 `Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
 https://www.nytimes.com/video/opinion/100000011044917/what-is-the-democratic-party-what-could-it-be.html
-
-**Lena Waithe Says Goodbye to ‘The Chi’**\
-`Her groundbreaking drama just ended after eight seasons. “I’m grateful that we’re going out when people still care,” she said.`\
-https://www.nytimes.com/2026/07/28/arts/television/lena-waithe-the-chi-end.html
-
-**Rocket Explosions Used To Be Tragic. Now They’re Punchlines.**\
-`Online, videos of failed launches have become occasions to mock billionaires.`\
-https://www.nytimes.com/2026/07/28/magazine/rocket-explosions-space-blue-origin-nasa.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\

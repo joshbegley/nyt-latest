@@ -1,3 +1,7 @@
+**Do you work in No Surprises Act arbitration? Tell us about it.**\
+`New York Times reporters are looking into how government contractors resolve medical billing disputes.`\
+https://www.nytimes.com/2026/07/28/upshot/arbitration-medical-prices.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011058139/28vid-graham-coffin-steps.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/28/business/andy-burnham-uk.html
 **An Artist Uses Plants as Her Muse**\
 `A botanical illustrator extends a seductive invitation to learn the subtleties of the 600-odd plant families on the planet.`\
 https://www.nytimes.com/2026/07/28/realestate/plant-family-botanical-illustrations.html
-
-**What is the Democratic Party? What Could It Be?**\
-`Ben Wikler, a former state party chair, thinks the Democratic Party needs to reinvent itself.`\
-https://www.nytimes.com/video/opinion/100000011044917/what-is-the-democratic-party-what-could-it-be.html
 
 **Live Updates: Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
