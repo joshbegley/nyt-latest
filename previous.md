@@ -8,7 +8,7 @@ https://www.nytimes.com/video/podcasts/100000011058557/is-polyamory-right-for-me
 
 **At Graham’s Farewell, a Glimpse Into Power in Trump’s Washington**\
 `The political evolution of Lindsey Graham, the South Carolina senator, both captivated and confused many of his old friends but reflected the changing order in the nation’s capital.`\
-https://www.nytimes.com/2026/07/28/us/politics/at-grahams-farewell-a-glimpse-into-power-in-trumps-washington.html
+https://www.nytimes.com/2026/07/28/us/politics/lindsey-graham-funeral-trump-dc.html
 
 **Ghost Gun Was Used in Seattle Festival Shooting, Police Say**\
 `Untraceable firearms purchased without background checks and assembled from parts that have no serial numbers remain a growing problem, despite Biden-era prohibitions.`\

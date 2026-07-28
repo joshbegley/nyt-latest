@@ -1,3 +1,7 @@
+**At Graham’s Farewell, a Glimpse Into Power in Trump’s Washington**\
+`The political evolution of Lindsey Graham, the South Carolina senator, both captivated and confused many of his old friends but reflected the changing order in the nation’s capital.`\
+https://www.nytimes.com/2026/07/28/us/politics/lindsey-graham-funeral-trump-dc.html
+
 **Brote de ‘Cyclospora’: los alimentos en EE. UU. son seguros, dice funcionario de la FDA**\
 `Los principales reguladores de salud insisten en que los consumidores pueden confiar en lo que comen. Aun así, los brotes de ciclosporiasis preocupan a los expertos en seguridad alimentaria.`\
 https://www.nytimes.com/es/2026/07/28/espanol/negocios/brote-cyclospora-alimentos-fda.html
