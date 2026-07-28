@@ -1,3 +1,19 @@
+**Brote de ‘Cyclospora’: los alimentos en EE. UU. son seguros, dice funcionario de la FDA**\
+`Los principales reguladores de salud insisten en que los consumidores pueden confiar en lo que comen. Aun así, los brotes de ciclosporiasis preocupan a los expertos en seguridad alimentaria.`\
+https://www.nytimes.com/es/2026/07/28/espanol/negocios/brote-cyclospora-alimentos-fda.html
+
+**Is Polyamory Right for Me?**\
+`Polyamory expert Dr. Elisabeth “Eli” Sheff tells you what you need to know before opening up your relationship.`\
+https://www.nytimes.com/video/podcasts/100000011058557/is-polyamory-right-for-me.html
+
+**At Graham’s Farewell, a Glimpse Into Power in Trump’s Washington**\
+`The political evolution of Lindsey Graham, the South Carolina senator, both captivated and confused many of his old friends but reflected the changing order in the nation’s capital.`\
+https://www.nytimes.com/2026/07/28/us/politics/at-grahams-farewell-a-glimpse-into-power-in-trumps-washington.html
+
+**Ghost Gun Was Used in Seattle Festival Shooting, Police Say**\
+`Untraceable firearms purchased without background checks and assembled from parts that have no serial numbers remain a growing problem, despite Biden-era prohibitions.`\
+https://www.nytimes.com/2026/07/28/us/ghost-gun-seattle-food-festival-shooting.html
+
 **Domestic Abuse Allegations Rock Max Miller’s Ohio House Race**\
 `Representative Max Miller, a Republican, is facing accusations of abuse from his ex-wife in a bitter family feud that might put his otherwise safe seat in play.`\
 https://www.nytimes.com/2026/07/28/us/politics/domestic-abuse-allegations-ohio-house-race.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011059270/28vid-trump-g
 **Biden Acknowledges Keeping Classified Materials in Newly Released Tapes**\
 `Recordings from 2016 and 2017 show that Joseph R. Biden Jr. knew he had retained classified materials but reveal little that was not already documented in a special counsel’s report.`\
 https://www.nytimes.com/2026/07/28/us/politics/biden-recordings-classified-documents-special-counsel.html
-
-**At ‘The Shards’ Premiere, Kaia Gerber and Homer Gere Relive 1980s L.A.**\
-`Ryan Murphy’s “Love Story” fueled a nostalgia for ’90s New York. Will his new prep-school thriller bring back the wayfarer era of Southern California?`\
-https://www.nytimes.com/2026/07/28/style/shards-kaia-gerber-ryan-murphy.html
-
-**A Six-Pack of Beer Might Close a Constitutional Loophole**\
-`An upcoming case will determine whether the Supreme Court treats an ordinary person with the same care it has long shown corporations.`\
-https://www.nytimes.com/2026/07/28/opinion/alaska-pilot-beer-constitution-eighth-amendment.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/business/100000011059286/29DC-Flashlight-Tariff-Production-Video.html
-
-**Long-Delayed Guggenheim Abu Dhabi to Open in December**\
-`The museum, designed by Frank Gehry for the capital of the United Arab Emirates, will show art from the 1960s to the present.`\
-https://www.nytimes.com/2026/07/28/arts/design/guggenheim-abu-dhabi-opening-december.html
 

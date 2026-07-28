@@ -1,3 +1,19 @@
+**Brote de ‘Cyclospora’: los alimentos en EE. UU. son seguros, dice funcionario de la FDA**\
+`Los principales reguladores de salud insisten en que los consumidores pueden confiar en lo que comen. Aun así, los brotes de ciclosporiasis preocupan a los expertos en seguridad alimentaria.`\
+https://www.nytimes.com/es/2026/07/28/espanol/negocios/brote-cyclospora-alimentos-fda.html
+
+**Is Polyamory Right for Me?**\
+`Polyamory expert Dr. Elisabeth “Eli” Sheff tells you what you need to know before opening up your relationship.`\
+https://www.nytimes.com/video/podcasts/100000011058557/is-polyamory-right-for-me.html
+
+**At Graham’s Farewell, a Glimpse Into Power in Trump’s Washington**\
+`The political evolution of Lindsey Graham, the South Carolina senator, both captivated and confused many of his old friends but reflected the changing order in the nation’s capital.`\
+https://www.nytimes.com/2026/07/28/us/politics/at-grahams-farewell-a-glimpse-into-power-in-trumps-washington.html
+
+**Ghost Gun Was Used in Seattle Festival Shooting, Police Say**\
+`Untraceable firearms purchased without background checks and assembled from parts that have no serial numbers remain a growing problem, despite Biden-era prohibitions.`\
+https://www.nytimes.com/2026/07/28/us/ghost-gun-seattle-food-festival-shooting.html
+
 **What Is Open-Weights A.I.?**\
 `As Silicon Valley debates how artificial intelligence software should be created, “open weights” have been a major part of the discussions. Here’s what to know.`\
 https://www.nytimes.com/2026/07/28/technology/open-weight-ai.html
