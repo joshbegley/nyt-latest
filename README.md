@@ -1,3 +1,7 @@
+**The Immigration Crackdown and the Plight of the Caregivers**\
+`Readers describe a crisis for caregivers and families. Also: Canceling grants based on politics; no politics in uniform; rediscovering resilience.`\
+https://www.nytimes.com/2026/07/28/opinion/immigration-elder-care.html
+
 **How Are You Navigating This Extreme Summer?**\
 `Amid blistering heat, economic anxiety and a tumultuous news cycle, we want to hear how you’re experiencing the season.`\
 https://www.nytimes.com/2026/07/28/us/extreme-summer-routines-traditions.html
@@ -181,14 +185,6 @@ https://www.nytimes.com/2026/07/28/weather/new-york-rain-storms.html
 **Calling Trump’s Personal Cell**\
 `Pablo and the hosts of “TrueAnon” dial the president’s phone number and ask the important questions.`\
 https://www.nytimes.com/2026/07/28/podcasts/trueanon-calling-trump-personal-cell.html
-
-**Keigo Higashino, Best-Selling Japanese Mystery Writer, Dies at 68**\
-`His works, which included “The Devotion of Suspect X,” were widely translated and adapted for the screen.`\
-https://www.nytimes.com/2026/07/28/obituaries/keigo-higashino-author-dead.html
-
-**Fresh Clashes Erupt in Pakistani Kashmir on First Day of Contested Vote**\
-`Dozens have died in recent weeks ahead of a weekslong regional election, officials said. A banned civil rights group said supporters died in conflicts with the police.`\
-https://www.nytimes.com/2026/07/28/world/asia/pakistan-kashmir-election-violence.html
 
 **Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say**\
 `Emergency workers were racing to find people and extinguish fires after the 6.8 magnitude quake struck the southwestern prefecture of Kumamoto.`\
