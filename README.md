@@ -1,3 +1,7 @@
+**112 Degrees in Paris, Flames Near Bordeaux. France Can’t Go On Like This.**\
+`The frightening heat and wildfires this summer should be an impetus to those in charge to reckon with how quickly the risks are changing.`\
+https://www.nytimes.com/2026/07/29/opinion/france-wildfires-heat-air-conditioning.html
+
 **Quote of the Day: India Student Protests Spur Wider Discussion on Education System**\
 `Quotation of the Day for Wednesday, July 29, 2026.`\
 https://www.nytimes.com/2026/07/29/pageoneplus/quote-of-the-day-india-student-protests-spur-wider-discussion-on-education-system.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/business/media/60-minutes-ross-douthat.html
 **Writers Guild Withdraws Support From Film Festival Over A.I.**\
 `Urbanworld, a New York event, has added a section for movies made with A.I. tools. The union was a sponsor but has been outspoken on the dangers of A.I.`\
 https://www.nytimes.com/2026/07/28/movies/urbanworld-writers-guild-ai.html
-
-**Senate Advances Graham’s Russia Sanctions Bill**\
-`As Washington remembered Senator Lindsey Graham, his colleagues cleared away a hurdle to passage of his long-stalled bill to penalize Moscow.`\
-https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
 
