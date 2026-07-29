@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 29, 2026**\
+`Emily Biegas and Sala Wanetick emerge victorious.`\
+https://www.nytimes.com/2026/07/28/crosswords/daily-puzzle-2026-07-29.html
+
 **South Dakota Governor Seeking Full Term Clinches G.O.P. Nomination**\
 `Gov. Larry Rhoden, who ascended to the office last year when Kristi Noem left for the Trump cabinet, overcame a large Republican primary field and won a runoff election.`\
 https://www.nytimes.com/2026/07/28/us/rhoden-wins-south-dakota-governor-republican-primary.html

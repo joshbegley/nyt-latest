@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 29, 2026**\
+`Emily Biegas and Sala Wanetick emerge victorious.`\
+https://www.nytimes.com/2026/07/28/crosswords/daily-puzzle-2026-07-29.html
+
 **South Dakota Governor Seeking Full Term Clinches G.O.P. Nomination**\
 `Gov. Larry Rhoden, who ascended to the office last year when Kristi Noem left for the Trump cabinet, overcame a large Republican primary field and won a runoff election.`\
 https://www.nytimes.com/2026/07/28/us/rhoden-wins-south-dakota-governor-republican-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/dining/little-treat-conchas-masa-madre.html
 **Linda Perhacs, Experimental Folk Singer, Is Reported Missing**\
 `Friends of the influential psychedelic folk songwriter said they had been unable to reach her since her discharge from a care facility eight months ago.`\
 https://www.nytimes.com/2026/07/28/arts/music/linda-perhacs-missing-folk-music.html
-
-**ICE Arrests Surge at Airports, Opening New Front in Deportation Drive**\
-`Federal agents are arresting spouses of Americans, tech workers and others whose visas have expired, including many who have active applications to stay in the country.`\
-https://www.nytimes.com/2026/07/28/us/ice-arrests-airports-visa-overstay.html
 
