@@ -1,3 +1,7 @@
+**Big Tech Turmoil Clouds the A.I. Earnings Picture**\
+`The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
+https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
+
 **How the Curtain Rose on One of Zaha Hadid’s Final Acts**\
 `The Royal Theater of Rabat is an architectural performance itself, with devilishly difficult curves. It was a homecoming to a world the star designer loved.`\
 https://www.nytimes.com/2026/07/29/arts/design/how-the-curtain-rose-on-one-of-zaha-hadids-final-acts.html
