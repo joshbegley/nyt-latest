@@ -1,3 +1,7 @@
+**At Lindsey Graham’s Funeral There Were Tributes, But Politics Too**\
+`A gathering of South Carolina’s political elite paid tribute to the late senator’s career against a backdrop of a highly competitive race to replace him.`\
+https://www.nytimes.com/2026/07/29/us/politics/lindsey-graham-funeral-south-carolina.html
+
 **Clara Ester, Who Was With Martin Luther King Jr. in His Last Moments, Dies at 78**\
 `A Memphis college student and activist, she witnessed Dr. King’s assassination in 1968 when he was shot at his motel and ran to him to check his pulse.`\
 https://www.nytimes.com/2026/07/29/us/clara-ester-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-
 **New York’s Tax on Second Homes**\
 `Readers, including the president of the Real Estate Board of New York, respond to an editorial that praised the tax. Also: Two psychiatrists, on the need to mourn.`\
 https://www.nytimes.com/2026/07/29/opinion/second-homes-tax-new-york.html
-
-**European Wildfires Amplified by Emptying Countryside and Fewer Farms**\
-`A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
-https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\

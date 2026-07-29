@@ -1,3 +1,7 @@
+**Rollout of New York City’s Second-Home Tax Is Confusing Some Residents**\
+`The so-called pied-à-terre tax is causing anxiety for homeowners who feel outed by the publication of their addresses. Some say they have only one home.`\
+https://www.nytimes.com/2026/07/29/nyregion/new-york-second-home-tax-rollout-anxiety.html
+
 **Microsoft Increases Spending on A.I. as Profit Jumps 31%**\
 `Like other big technology companies, Microsoft is hoping its aggressive spending on artificial intelligence is starting to translate into revenue.`\
 https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-report.html
