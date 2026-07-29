@@ -1,3 +1,11 @@
+**Some Jordanians Demand that American Troops Leave the Kingdom**\
+`Hundreds of political, legal and other figures signed a public letter warning that Jordan’s close alliance with the United States poses a risk.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/jordan-us-military-iran-war.html
+
+**Amid Myanmar’s Civil War, the Rich Seek Parties and ‘Positive Vibes Only’**\
+`The lifestyles of the wealthy in Myanmar — nightclubs, caviar and trips abroad — have been largely untouched by years of deadly conflict.`\
+https://www.nytimes.com/2026/07/29/world/asia/myanmar-war-nightlife-luxury.html
+
 **Quote of the Day: India Student Protests Spur Wider Discussion on Education System**\
 `Quotation of the Day for Wednesday, July 29, 2026.`\
 https://www.nytimes.com/2026/07/29/pageoneplus/quote-of-the-day-india-student-protests-spur-wider-discussion-on-education-system.html
