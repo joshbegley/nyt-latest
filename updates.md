@@ -1,3 +1,11 @@
+**Trump Pays Tribute at Lindsey Graham’s Funeral**\
+`President Trump paid tribute to Senator Lindsey Graham in a memorial service at the National Cathedral on Tuesday.`\
+https://www.nytimes.com/video/us/politics/100000011059917/trump-lindsey-graham-washington-funeral.html
+
+**The Doctor and His Diary: What Fauci’s Innermost Musings Reveal**\
+`Dr. Anthony S. Fauci seemed to be the life of the party, even in the midst of a deadly pandemic.`\
+https://www.nytimes.com/2026/07/28/us/politics/fauci-diary-fame.html
+
 **The Doctor and His Diary: What Fauci’s Innermost Musings Reveal**\
 `Dr. Anthony S. Fauci seemed to be the life of the party, even in the midst of a deadly pandemic.`\
 https://www.nytimes.com/2026/07/28/us/politics/the-doctor-and-his-diary-what-faucis-innermost-musings-reveal.html
