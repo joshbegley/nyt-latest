@@ -1,3 +1,7 @@
+**Incendios en España y Francia: lo peor podría estar por venir**\
+`Los bomberos han logrado contener incendios en ambos países, pero los vientos son fuertes y las temperaturas están aumentando. El dirigente español dijo que las próximas 12 horas serían “decisivas”.`\
+https://www.nytimes.com/es/2026/07/29/espanol/mundo/espana-francia-incendios-ola-calor.html
+
 **Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
 `Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/opinion/language-musuems-history-age-well.htm
 **With Little Electricity in Cuba, He Uses a Giant Battery to Throw Parties**\
 `David González has suddenly become the host of Havana’s hottest parties amid its energy crisis. Can he turn them into a movement?`\
 https://www.nytimes.com/2026/07/29/world/americas/havana-cuba-parties-david-gonzalez.html
-
-**Transforming an Old Newsstand Into a Celebration of Subways**\
-`Al Mullen is reopening a newsstand in the West Fourth Street station under a program to turn former retail spaces in the stations to new uses.`\
-https://www.nytimes.com/2026/07/29/nyregion/transforming-an-old-newsstand-into-a-celebration-of-subways.html
 
