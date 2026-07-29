@@ -2,8 +2,8 @@
 `El Departamento de Estado, bajo el mando del secretario de Estado Marco Rubio, ha deportado a cubanos incluso a África. Ahora está negociando con un país sudamericano.`\
 https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/trump-deportados-cubanos-uruguay.html
 
-**Man Who Rammed Car Into Synagogue Sentenced to One More Week in Jail**\
-`Dan Sohail, who has spent six months in detention, pleaded guilty to damaging religious property in Brooklyn. The judge said that he needed mental health treatment and had not acted out of hate.`\
+**Mental Health Issues Cited in Sentencing of Man Who Drove Into Synagogue**\
+`Dan Sohail, who has spent six months in detention, was sentenced to one more week. The judge in Brooklyn said that he needed mental health treatment and had not acted out of hate.`\
 https://www.nytimes.com/2026/07/29/nyregion/chabad-brooklyn-synagogue-car-ramming.html
 
 **Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.
 https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
 
 **Live Updates: Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
-`Kevin M. Warsh explains in a news conference how bank officials plan to address persistent inflation pressures.`\
+`Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
 **Today, In Short**\
