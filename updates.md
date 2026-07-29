@@ -1,3 +1,7 @@
+**4 Takeaways From the Federal Reserve Meeting**\
+`Fed officials held interest rates steady, but they have splintered over how to fight inflation.`\
+https://www.nytimes.com/2026/07/29/business/economy/4-takeaways-from-the-federal-reserve-meeting.html
+
 **Mental Health Issues Cited in Sentencing of Man Who Drove Into Synagogue**\
 `Dan Sohail, who has spent six months in detention, was sentenced to one more week. The judge in Brooklyn said that he needed mental health treatment and had not acted out of hate.`\
 https://www.nytimes.com/2026/07/29/nyregion/chabad-brooklyn-synagogue-car-ramming.html
