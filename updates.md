@@ -1,3 +1,15 @@
+**Shipping Risks Rise Across Crucial Middle East Oil Routes**\
+`Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
+https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
+
+**Can Anyone Spare a Buck For Texas?**\
+`One of America’s most competitive Senate races features a surprising dynamic: No Republicans are spending money yet.`\
+https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
+
+**Was I Wrong to Repeat a Sensitive Conversation I Overheard in Childhood?**\
+`A conversation between parents more than 60 years ago shed light on the paternity of a reader’s siblings. But a sister angrily insists that it wasn’t his information to divulge.`\
+https://www.nytimes.com/2026/07/29/style/paternity-dna-test-family-drama.html
+
 **How to Change Your Image as a Heartless Luxury Titan Overnight**\
 `Bernard Arnault, the chairman of LVMH, makes an unexpected social media move.`\
 https://www.nytimes.com/2026/07/29/style/bernard-arnault-open-letter-x.html
