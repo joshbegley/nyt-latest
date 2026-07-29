@@ -1,3 +1,7 @@
+**Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
+`The case against Pavel Durov reflected an ongoing fight over one of the world’s most popular messaging and media apps, which is widely used in the country.`\
+https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
+
 **Can Anyone Spare a Buck For Texas?**\
 `One of America’s most competitive Senate races features a surprising dynamic: The big Republican committees aren’t spending yet.`\
 https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
