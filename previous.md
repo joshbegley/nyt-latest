@@ -1,3 +1,15 @@
+**Trump Has Made Billions in Office. Will His Party Pay Politically?**\
+`The president took in a staggering $2.2 billion last year while in office. Democrats are hoping to make it a campaign issue in the midterm elections.`\
+https://www.nytimes.com/2026/07/29/us/politics/trump-personal-wealth.html
+
+**Un salvavidas adolescente enfrenta al implacable oleaje para proteger a un niño**\
+`Un video captó la sorprendente maniobra de un joven salvavidas en una playa de Santa Cruz, California, el fin de semana.`\
+https://www.nytimes.com/es/2026/07/29/espanol/salvavidas-adolescente.html
+
+**Republicans Threaten to Block Blanche Nomination**\
+`Also, Fauci invokes the Fifth Amendment. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/07/29/briefing/blanche-nomination-fauci-testimony-happy-cities.html
+
 **Lawyer Who Represented Trump Is Appointed U.S. Attorney in Manhattan**\
 `Federal court judges appointed James M. McDonald, a former federal prosecutor, to the post. He represented President Trump in his appeal of his criminal conviction.`\
 https://www.nytimes.com/2026/07/29/nyregion/trump-attorney-james-mcdonald-manhattan.html
@@ -43,7 +55,7 @@ https://www.nytimes.com/2026/07/29/opinion/sex-trafficking-epstein-exploited.htm
 https://www.nytimes.com/2026/07/29/world/europe-summer-heat-fires-saudi.html
 
 **Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
-`Discoveries that chronic inflammation can lead to myriad illnesses could be this century’s biggest medical breakthrough.`\
+`The discovery that chronic inflammation is a cause of myriad illnesses could be this century's biggest medical breakthrough.`\
 https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
 
 **Microsoft Increases Spending on A.I. as Profit Jumps 31.6%**\
@@ -177,14 +189,6 @@ https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payout
 **Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
 `The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive.”`\
 https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
-
-**Students: Is A.I. Changing Your Life? Tell Us.**\
-`We’re looking for college and high school students to tell us about A.I.`\
-https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.html
-
-**Obama Endorses Josh Turek in Iowa Senate Race With Basketball Video**\
-`The former president is trying to help Josh Turek net a Senate seat in Iowa, which Democrats see as one of their best pickup opportunities of the midterms.`\
-https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
