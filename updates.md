@@ -1,3 +1,7 @@
+**Can Anyone Spare a Buck For Texas?**\
+`One of America’s most competitive Senate races features a surprising dynamic: The big Republican committees aren’t spending yet.`\
+https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
+
 **Trump’s Tariffs Are Sending Some Companies Back to China**\
 `For some U.S. brands seeking a location for their factories, the economic logic is once again pointing to China.`\
 https://www.nytimes.com/2026/07/29/business/economy/trump-tariffs-china.html
