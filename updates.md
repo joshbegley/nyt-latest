@@ -1,3 +1,15 @@
+**On National Parks and Brainrot: The Winners of Week 6 of Our Summer Reading Contest**\
+`Chenyi Zhu reflects on national parks, while Christopher Leung wonders about internet slang.`\
+https://www.nytimes.com/2026/07/29/learning/on-national-parks-and-brainrot-the-winners-of-week-6-of-our-summer-reading-contest.html
+
+**Residents Return to Destruction After Wildfires in Spain**\
+`Residents in Spain began returning to what was left of their properties after intense wildfires tore through parts of the country. But officials warned that the battle was far from over.`\
+https://www.nytimes.com/video/world/europe/100000011060594/spain-wildfires-damage.html
+
+**Glen Hansard, Oscar-Winning Frontman of Irish Band the Frames, Dies at 56**\
+`The popular singer-songwriter won, with Markéta Irglová, an Oscar for the song “Falling Slowly” from the film “Once.”`\
+https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
+
 **Incendios en España y Francia: lo peor podría estar por venir**\
 `Los bomberos han logrado contener incendios en ambos países, pero los vientos son fuertes y las temperaturas están aumentando. El dirigente español dijo que las próximas 12 horas serían “decisivas”.`\
 https://www.nytimes.com/es/2026/07/29/espanol/mundo/espana-francia-incendios-ola-calor.html
