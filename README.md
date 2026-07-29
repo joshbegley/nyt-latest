@@ -116,7 +116,7 @@ https://www.nytimes.com/2026/07/29/us/lindsey-graham-south-carolina-memorial.htm
 
 **Trump’s Tariffs Are Sending Some Companies Back to China**\
 `For some U.S. brands seeking a location for their factories, the economic logic is once again pointing to China.`\
-https://www.nytimes.com/2026/07/29/business/economy/trumps-tariffs-are-sending-some-companies-back-to-china.html
+https://www.nytimes.com/2026/07/29/business/economy/trump-tariffs-china.html
 
 **Why Do We Tolerate Elon Musk’s Racist Commentary?**\
 `Why does the owner of X get a pass for what he says and does there?`\
