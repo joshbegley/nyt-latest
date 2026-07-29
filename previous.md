@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. and Saudi Arabia Target Iranian Proxies**\
+`The U.S. and Saudi Arabia said they had carried out joint air strikes on Iranian proxies in Iraq. The Iranian military said it had targeted American military assets in Jordan.`\
+https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
+
 **Japan Races to Reach People Trapped After Earthquake Kills at Least 13**\
 `Rescue personnel are working to free those trapped in collapsed buildings after a 6.8-magnitude earthquake struck Kumamoto on Tuesday.`\
 https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-rescue-survivors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html
 **Restaurant Review: Arthur in New York**\
 `At their new Greenpoint restaurant, Kevin and Lexy Finch are betting that New Yorkers want more than steak frites.`\
 https://www.nytimes.com/2026/07/28/dining/restaurant-review-arthur-nyc.html
-
-**Masa Madre Makes New York City’s Most Unforgettable Concha**\
-`In the first episode of “A Little Treat With Nikita Richardson,” we visit this artisanal Mexican bakery in Sunnyside, Queens.`\
-https://www.nytimes.com/2026/07/28/dining/little-treat-conchas-masa-madre.html
 

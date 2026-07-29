@@ -1,5 +1,5 @@
 **Iran War Live Updates: U.S. and Saudi Arabia Target Iranian Proxies**\
-`The U.S. and Saudi Arabia said they had carried out joint air strikes on Iranian proxies in Iraq. The Iranian military said it had targeted American military assets in Jordan.`\
+`The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq. The Iranian military said it had targeted American military assets in Jordan.`\
 https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
 
 **Japan Races to Reach People Trapped After Earthquake Kills at Least 13**\
