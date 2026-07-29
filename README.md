@@ -1,3 +1,7 @@
+**Jimmy Fallon Weighs In on Trump and Kennedy**\
+`The “Tonight Show” host surmised that Trump might be regretting “picking a health secretary who lives on raccoon meat and Zyn pouches.”`\
+https://www.nytimes.com/2026/07/29/arts/television/jimmy-fallon-rfk-jr-trump.html
+
 **ICE aumenta los arrestos en aeropuertos de EE. UU.**\
 `Agentes federales están arrestando a cónyuges de estadounidenses, trabajadores tecnológicos y otras personas con visas vencidas, incluidas muchas que tienen solicitudes activas para quedarse.`\
 https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/ice-arrestos-aeropuertos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/us/politics/100000011059433/28vid-hannity
 **Couple Stalked by eBay Settle for $56 Million**\
 `Two Massachusetts journalists were harassed by a Silicon Valley security team in a case that raised questions about when executives should be held responsible.`\
 https://www.nytimes.com/2026/07/28/technology/ebay-settles-stalking-case.html
-
-**Who Wins (and Who Loses) in the Democrats’ New 2028 Primary Calendar?**\
-`Democratic Party officials have approved a new calendar that puts South Carolina at the head of the line. Black and Latino voters will gain new clout.`\
-https://www.nytimes.com/2026/07/28/us/politics/democrats-2028-primary-calendar.html
 
