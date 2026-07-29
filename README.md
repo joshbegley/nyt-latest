@@ -1,3 +1,7 @@
+**Clara Ester, Who Was With Martin Luther King Jr. in His Last Moments, Dies at 78**\
+`A Memphis college student and activist, she witnessed Dr. King’s assassination in 1968 when he was shot at his motel and ran to him to check his pulse.`\
+https://www.nytimes.com/2026/07/29/us/clara-ester-dead.html
+
 **New York’s Rollout of Its Second-Home Tax Is Confusing Some Residents**\
 `The state’s so-called pied-à-terre tax is causing anxiety for homeowners who feel outed by the publication of their addresses. Some say they have only one home.`\
 https://www.nytimes.com/2026/07/29/nyregion/new-york-second-home-tax-rollout-anxiety.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/29/opinion/second-homes-tax-new-york.html
 **European Wildfires Amplified by Emptying Countryside and Fewer Farms**\
 `A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
 https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
-
-**Sanctions Bill Would Give Trump Sweeping New Tariff Powers**\
-`A bipartisan bill in the Senate would allow President Trump to impose tariffs on the biggest importers of Russian energy.`\
-https://www.nytimes.com/2026/07/29/us/politics/trump-tariffs-sanctions.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
