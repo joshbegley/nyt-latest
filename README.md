@@ -1,3 +1,7 @@
+**What to Know About Iraq’s Militias**\
+`At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/heres-what-to-know-about-iraqs-militias.html
+
 **Fauci Accuses Senator Rand Paul of ‘Obsession’ During Senate Hearing**\
 `Dr. Anthony S. Fauci accused Senator Rand Paul of having an “unhinged obsession” with him during a Senate hearing on Wednesday on the origins of Covid-19.`\
 https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-senate-hearing.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/07/29/us/south-florida-state-college-professor-fire
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html
 
 **Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
-`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive,” and performed at the Paris Olympics.`\
+`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive.”`\
 https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
 
 **Students: Is A.I. Changing Your Life? Tell Us.**\
@@ -181,14 +185,6 @@ https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-demo
 **ICE Arrests Surge at Airports, and Fauci’s Private Diary Faces Scrutiny**\
 `Plus, why toxic wastewater is bubbling up out of the ground.`\
 https://www.nytimes.com/2026/07/29/podcasts/the-headlines/ice-airports-fauci-diaries.html
-
-**Today’s Wordle Hints for July 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
-https://www.nytimes.com/2026/07/29/crosswords/wordle-review-1867.html
-
-**NYT Strands Hints for July 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
-https://www.nytimes.com/2026/07/29/crosswords/strands-sidekick-879.html
 
 **Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
