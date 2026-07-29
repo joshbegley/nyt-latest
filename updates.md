@@ -1,3 +1,11 @@
+**Government Borrowing Cost Hits Two-Decade High After Fed Rate Decision**\
+`The surge in Treasury yields suggests investors doubt that the Federal Reserve can keep inflation contained.`\
+https://www.nytimes.com/2026/07/29/business/economy/treasury-yields-fed-inflation.html
+
+**New Strikes Engulf More Countries in the Iran War**\
+`President Trump threatened retribution after Iran fired missiles at U.S. military bases in Jordan. Strikes by U.S. and Saudi warplanes on Iranian-linked militias in Iraq were a further escalation after a lull.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/iran-war-us-jordan-saudi-iraq.html
+
 **Trump Unveils $22.5 Billion Redesign of Dulles Airport**\
 `The project would make the airport easier to navigate and include a new United lounge, officials said. It’s part of the president’s plans to remake the Washington area.`\
 https://www.nytimes.com/2026/07/29/us/politics/trump-dulles-airport-redesign.html
