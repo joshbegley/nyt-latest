@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/07/28/business/media/60-minutes-ross-douthat.html
 https://www.nytimes.com/2026/07/28/movies/urbanworld-writers-guild-ai.html
 
 **Senators Forge a Deal on Graham’s Bill to Advance Russia Sanctions**\
-`Senators announced a breakthrough on the long-stalled measure as Senator Lindsey Graham, its main champion, was memorialized.`\
+`As Washington remembered Senator Lindsey Graham, his colleagues cleared away a hurdle to passage of his long-stalled bill to penalize Moscow.`\
 https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
 
 **Trump’s Spy Chief Spends Final Hours in Job Boasting of Mass Firings**\

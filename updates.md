@@ -1,3 +1,7 @@
+**Senators Forge a Deal on Graham’s Bill to Advance Russia Sanctions**\
+`As Washington remembered Senator Lindsey Graham, his colleagues cleared away a hurdle to passage of his long-stalled bill to penalize Moscow.`\
+https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
+
 **2 Wheels, 14 Days, 2,448 Miles: A Motorcycle Tour of Route 66**\
 `To mark the road’s 100th anniversary, a Times journalist rode the length of it to see what’s become of America’s most storied highway.`\
 https://www.nytimes.com/interactive/2026/07/28/travel/route-66-anniversary-chicago-santa-monica.html
