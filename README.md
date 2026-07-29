@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
 
 **Wildfires Slow in France and Spain, but Worse May Be Ahead**\
-`Firefighters have contained vast wildfires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
+`Firefighters have contained vast fires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
 https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
 
 **Israel, AIPAC and Difficult Questions for Democrats**\
