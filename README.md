@@ -1,3 +1,23 @@
+**Con el brote de ‘Cyclospora’ surgen desinformación y conspiraciones**\
+`En plataformas como X y TikTok, la conversación sobre Taylor Farms está dominada por especulaciones políticas.`\
+https://www.nytimes.com/es/2026/07/29/espanol/cyclospora-taylor-farms-desinformacion.html
+
+**The Latest Sign of Knicks Fever: ‘Champions Way’ Is Headed for Auction**\
+`New York City will auction off a limited edition “Champions Way” street sign that was hung along the team’s parade route.`\
+https://www.nytimes.com/2026/07/29/nyregion/knicks-street-sign-auction.html
+
+**Why Some Orthodox Jews Oppose Permanent Daylight Saving Time**\
+`Orthodox Jewish leaders have lobbied against the Sunshine Protection Act since it was passed by the House of Representatives in July, joining an unlikely coalition of opponents.`\
+https://www.nytimes.com/2026/07/29/nyregion/daylight-saving-time-jewish.html
+
+**‘The Devil’s Mouth’ Review: Between a Shark and a Hard Place**\
+`This Thailand-set vacation thriller is neither silly nor gory enough to chum the waters for audiences at home.`\
+https://www.nytimes.com/2026/07/29/movies/the-devils-mouth-review.html
+
+**NYT Spelling Bee Answers for July 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/29/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Weighs In on Trump and Kennedy**\
 `The “Tonight Show” host surmised that Trump might be regretting “picking a health secretary who lives on raccoon meat and Zyn pouches.”`\
 https://www.nytimes.com/2026/07/29/arts/television/jimmy-fallon-rfk-jr-trump.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/28/opinion/israel-settlers-west-bank.html
 **How Cubans Are Surviving**\
 `It’s been six months since the U.S. cut off the island’s fuel sources. Our reporters went there and found remarkable stories of resilience.`\
 https://www.nytimes.com/2026/07/28/world/cuba-us-trump-ukraine-iran-japan-quake.html
-
-**Researchers Create OnlyFans for Marmots to Bridge Funding Gap**\
-`Daniel Blumstein, a professor of ecology and evolutionary biology at U.C.L.A., faced a funding issue amid federal cuts to scientific research. To raise money for its marmot research, his team started “OnlyMarms,” a free, G-rated account of cute videos that collects money through tips.`\
-https://www.nytimes.com/video/science/earth/100000011055061/trump-funding-cuts-marmot-onlyfans.html
-
-**How A.I.’s Latest Science Fiction Scenario Came True**\
-`This week, a rogue A.I. agent acted autonomously and conducted a cyberattack on the company Hugging Face. In the latest episode of “Hard Fork,” the hosts, Kevin Roose and Casey Newtown, discuss how the attack happened and why it matters.`\
-https://www.nytimes.com/video/podcasts/100000011059601/how-ais-latest-science-fiction-scenario-came-true.html
-
-**Is Kimi K3 ‘Distilled’ From an American A.I. Model?**\
-`In this week’s episode of “Hard Fork,” the hosts Kevin Roose and Casey Newton discuss Kimi K3, a highly efficient new A.I. model from China’s Moonshot A.I. K3 claims impressive efficiency and coding capabilities, but was it build by “distilling,” essentially copying and reworking, American technology?”`\
-https://www.nytimes.com/video/podcasts/100000011059528/is-kimi-k3-distilled-from-an-american-ai-model.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011059433/28vid-hannity-israel-sot.html
-
-**Couple Stalked by eBay Settle for $56 Million**\
-`Two Massachusetts journalists were harassed by a Silicon Valley security team in a case that raised questions about when executives should be held responsible.`\
-https://www.nytimes.com/2026/07/28/technology/ebay-settles-stalking-case.html
 
