@@ -1,3 +1,15 @@
+**Teenage Lifeguard Fights Intense Waves to Bring Boy to Safety**\
+`A lifeguard with a relentless grip on a young boy brought him to safety amid enormous waves that ripped across a Santa Cruz beach over the weekend.`\
+https://www.nytimes.com/2026/07/29/us/santa-cruz-lifeguard-rescue-ryder-williams.html
+
+**Teenage Lifeguard Rescues Boy in Unrelenting Surf in Santa Cruz**\
+`A video capturing the rescue showed bystanders rushing into the surf to help as the lifeguard and the boy were sent under multiple times.`\
+https://www.nytimes.com/video/us/100000011060703/lifeguard-rescues-child-california.html
+
+**Work Halted at Another Office-to-Apartment Conversion in Midtown Manhattan**\
+`The Department of Buildings ordered work to stop on certain floors at 750 Third Avenue. It’s the third conversion project to have work halted since one became dangerously unstable earlier this month.`\
+https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.html
+
 **Muere Kavinsky, DJ francés, a los 50 años**\
 `El músico, cuyo nombre real era Vincent Belorgey, era conocido por su éxito de 2010 “Nightcall”, que apareció en la película “Drive”.`\
 https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
@@ -75,7 +87,7 @@ https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.
 https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
 
 **Live Updates: Fed Leaves Interest Rates Unchanged, but Internal Pressures Grow**\
-`Kevin M. Warsh, in his second news conference as the Federal Reserve’s chairman, will explain how officials are thinking about persistent inflation and a resilient job market.`\
+`Kevin M. Warsh explains to reporters how bank officials plan to address persistent inflation pressures.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
 **Today, In Short**\
@@ -110,7 +122,7 @@ https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-
 `In Newfoundland, 20-year-old smelly sludge will finally be removed.`\
 https://www.nytimes.com/2026/07/29/world/canada/fish-sauce-plant-canada-st-marys.html
 
-**Maps: Series of Earthquakes Shake the Philippines**\
+**Maps: Series of Earthquakes Shakes the Philippines**\
 `View the locations of the quake epicenters and shake areas.`\
 https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
 
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.
 **Was I Wrong to Repeat a Sensitive Conversation I Overheard in Childhood?**\
 `A conversation between parents more than 60 years ago shed light on the paternity of a reader’s siblings. But a sister angrily insists that it wasn’t his information to divulge.`\
 https://www.nytimes.com/2026/07/29/style/paternity-dna-test-family-drama.html
-
-**How to Change Your Image as a Heartless Luxury Titan Overnight**\
-`Bernard Arnault, the chairman of LVMH, makes an unexpected social media move.`\
-https://www.nytimes.com/2026/07/29/style/bernard-arnault-open-letter-x.html
-
-**BTS Won’t Enter Music From Comeback Album for Grammy Awards**\
-`The group announced it would not submit its most recent album, ‘Arirang,’ for consideration a month after the Recording Academy introduced a new category for Asian pop.`\
-https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-category.html
-
-**Corrections: July 29, 2026**\
-`Corrections that appeared in print on Wednesday, July 29, 2026.`\
-https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\

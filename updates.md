@@ -1,3 +1,23 @@
+**Teenage Lifeguard Fights Intense Waves to Bring Boy to Safety**\
+`A lifeguard with a relentless grip on a young boy brought him to safety amid enormous waves that ripped across a Santa Cruz beach over the weekend.`\
+https://www.nytimes.com/2026/07/29/us/santa-cruz-lifeguard-rescue-ryder-williams.html
+
+**Teenage Lifeguard Rescues Boy in Unrelenting Surf in Santa Cruz**\
+`A video capturing the rescue showed bystanders rushing into the surf to help as the lifeguard and the boy were sent under multiple times.`\
+https://www.nytimes.com/video/us/100000011060703/lifeguard-rescues-child-california.html
+
+**Work Halted at Another Office-to-Apartment Conversion in Midtown Manhattan**\
+`The Department of Buildings ordered work to stop on certain floors at 750 Third Avenue. It’s the third conversion project to have work halted since one became dangerously unstable earlier this month.`\
+https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.html
+
+**Live Updates: Fed Leaves Interest Rates Unchanged, but Internal Pressures Grow**\
+`Kevin M. Warsh explains to reporters how bank officials plan to address persistent inflation pressures.`\
+https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
+
+**Maps: Series of Earthquakes Shakes the Philippines**\
+`View the locations of the quake epicenters and shake areas.`\
+https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
+
 **Muere Kavinsky, DJ francés, a los 50 años**\
 `El músico, cuyo nombre real era Vincent Belorgey, era conocido por su éxito de 2010 “Nightcall”, que apareció en la película “Drive”.`\
 https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
