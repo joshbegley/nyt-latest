@@ -1,3 +1,11 @@
+**Government Borrowing Cost Hits Two-Decade High After Fed Rate Decision**\
+`The surge in Treasury yields suggests investors doubt that the Federal Reserve can keep inflation contained.`\
+https://www.nytimes.com/2026/07/29/business/economy/treasury-yields-fed-inflation.html
+
+**New Strikes Engulf More Countries in the Iran War**\
+`President Trump threatened retribution after Iran fired missiles at U.S. military bases in Jordan. Strikes by U.S. and Saudi warplanes on Iranian-linked militias in Iraq were a further escalation after a lull.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/iran-war-us-jordan-saudi-iraq.html
+
 **Trump Unveils $22.5 Billion Redesign of Dulles Airport**\
 `The project would make the airport easier to navigate and include a new United lounge, officials said. It’s part of the president’s plans to remake the Washington area.`\
 https://www.nytimes.com/2026/07/29/us/politics/trump-dulles-airport-redesign.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/29/business/economy/what-to-watch-at-the-meeting
 **Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
 `The kingdom’s defense ministry said airstrikes in Iraq targeting Iran-backed militias were in retaliation for attacks on Saudi oil facilities this week.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-us-iran-war.html
-
-**Today, In Short**\
-`Beluga whales. Pizza renaissance. And travel journals.`\
-https://www.nytimes.com/2026/07/29/briefing/today-in-short.html
-
-**Do I Have to Keep Housing My Slovenly, Unemployed Brother-in-Law?**\
-`My partner agrees that the arrangement is unsustainable, but he has taken no meaningful steps to change it.`\
-https://www.nytimes.com/2026/07/29/magazine/housing-brother-in-law-ethics.html
 
