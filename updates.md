@@ -1,3 +1,7 @@
+**Hezbollah Attacks Strategic Area in Southern Lebanon, Israel Says**\
+`The Israeli military said the Iran-backed militant group had used an explosive drone to target one of its vehicles on a strategic ridge, raising fears of a renewed escalation.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/israel-hezbollah-lebanon.html
+
 **The Woman Behind Emma M. Lion**\
 `Beth Brower has been self-publishing for a decade. But her series drawn from the cheeky “journals” of a young woman in Victorian England has been a breakout.`\
 https://www.nytimes.com/2026/07/29/books/review/beth-brower-unselected-journals-of-emma-m-lion.html

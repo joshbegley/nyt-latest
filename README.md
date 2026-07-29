@@ -1,3 +1,11 @@
+**Michelle Obama and Justice Jackson Talk Work-Life Balance and Public Service**\
+`Justice Ketanji Brown Jackson’s appearance on the former first lady’s podcast was a rare meeting of the two powerful, popular Black women.`\
+https://www.nytimes.com/2026/07/29/us/politics/michelle-obama-justice-jackson-podcast.html
+
+**As Trump Squeezes Cuba, He Plans to Send Cuban Deportees to Uruguay**\
+`The State Department under Secretary of State Marco Rubio has deported Cubans to Africa. Now it’s negotiating with a South American country.`\
+https://www.nytimes.com/2026/07/29/us/politics/trump-cuban-deportees-uruguay.html
+
 **Hezbollah Attacks Strategic Area in Southern Lebanon, Israel Says**\
 `The Israeli military said the Iran-backed militant group had used an explosive drone to target one of its vehicles on a strategic ridge, raising fears of a renewed escalation.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/israel-hezbollah-lebanon.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/29/movies/john-leguizamo-the-odyssey-christopher
 **Trying to Make a Buck Off a Data Center, One 6-Pack at a Time**\
 `What do you do when a $25 billion complex is under construction nearby? One couple in Abilene had an idea.`\
 https://www.nytimes.com/2026/07/29/us/data-center-construction-workers.html
-
-**The Young Hopefuls of ‘Spring Awakening’ Take Their Musical Shot**\
-`The creative team behind a revival of the rock musical celebrating teenage love and angst turned to open auditions as they cast the show.`\
-https://www.nytimes.com/2026/07/29/theater/spring-awakening-revival-casting.html
-
-**Word of the Day: pugnacity**\
-`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/29/learning/word-of-the-day-pugnacity.html
 
