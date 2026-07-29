@@ -1,3 +1,7 @@
+**What to Know About Project Sunrise, a 22-Hour Nonstop Flight Between London and Sydney**\
+`Qantas plans to launch the world’s longest commercial flight next year from Sydney to London, using specially manufactured Airbus jets.`\
+https://www.nytimes.com/2026/07/29/world/australia/qantas-long-haul-flight-project-sunrise.html
+
 **South Korea’s Memory Chip Giant Defies A.I. Market Jitters**\
 `SK Hynix, a leading memory chipmaker, reported stratospheric sales and profits on Wednesday. But it was not enough to calm skittish investors.`\
 https://www.nytimes.com/2026/07/29/business/skhynix-chips-memory.html
