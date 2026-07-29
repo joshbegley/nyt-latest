@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/07/29/us/south-florida-state-college-professor-fire
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html
 
 **Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
-`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive” and performed at the Paris Olympics.`\
+`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive,” and performed at the Paris Olympics.`\
 https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
 
 **Students: Is A.I. Changing Your Life? Tell Us.**\

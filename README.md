@@ -146,7 +146,7 @@ https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
 `The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
 
-**Fauci Invokes the Fifth Amendment, Refusing to Answer Senate Committee Questions**\
+**Fauci Pleads the Fifth, Refusing to Answer Questions on Covid Origins at Senate Hearing**\
 `The panel’s chairman, Rand Paul, has long accused Dr. Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
 

@@ -1,3 +1,7 @@
+**Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
+`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive,” and performed at the Paris Olympics.`\
+https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
+
 **Emptying Countryside Leaves ‘No Simple Solution’ to European Wildfires**\
 `A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
 https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
