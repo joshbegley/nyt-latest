@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
 
 **What to Know About Iraq’s Militias**\
 `At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/heres-what-to-know-about-iraqs-militias.html
+https://www.nytimes.com/2026/07/29/world/middleeast/iraq-popular-mobilization-forces-iran.html
 
 **Fauci Accuses Senator Rand Paul of ‘Obsession’ During Senate Hearing**\
 `Dr. Anthony S. Fauci accused Senator Rand Paul of having an “unhinged obsession” with him during a Senate hearing on Wednesday on the origins of Covid-19.`\
