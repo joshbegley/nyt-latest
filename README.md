@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`First Kiss Moon, the biggest museum and being sure of someone.`\
+https://www.nytimes.com/2026/07/29/briefing/29-the-good-list-museum-first-kiss.html
+
 **Teenage Lifeguard Fights Intense Waves to Bring Boy to Safety**\
 `A lifeguard with a relentless grip on a young boy brought him to safety amid enormous waves that ripped across a Santa Cruz beach over the weekend.`\
 https://www.nytimes.com/2026/07/29/us/santa-cruz-lifeguard-rescue-ryder-williams.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.
 https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
 
 **Live Updates: Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
-`Kevin M. Warsh explains to reporters how bank officials plan to address persistent inflation pressures.`\
+`Kevin M. Warsh explains in a news conference how bank officials plan to address persistent inflation pressures.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
 **Today, In Short**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.htm
 **Why Republicans Aren’t Funding the Texas Senate Race Yet**\
 `The peculiar dynamic is playing out in Texas, where the fate of the Republican nominee, Ken Paxton, will help decide which party controls the U.S. Senate.`\
 https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
-
-**Was I Wrong to Repeat a Sensitive Conversation I Overheard in Childhood?**\
-`A conversation between parents more than 60 years ago shed light on the paternity of a reader’s siblings. But a sister angrily insists that it wasn’t his information to divulge.`\
-https://www.nytimes.com/2026/07/29/style/paternity-dna-test-family-drama.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
