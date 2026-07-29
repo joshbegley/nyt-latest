@@ -1,3 +1,11 @@
+**Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
+`Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
+https://www.nytimes.com/2026/07/29/business/dealbook/pangram-ai-slop-detection.html
+
+**Can This Man Stop the Mamdani Agenda?**\
+`Reihan Salam loves New York. He loves the free market. And he’s very worried.`\
+https://www.nytimes.com/2026/07/29/nyregion/mamdani-manhattan-institute-affordability.html
+
 **BTS Won’t Enter Music From Comeback Album for Grammy Awards**\
 `The group’s decision comes a month after the Recording Academy announced five new award categories, including one for Best Asian Pop Music Performance.`\
 https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-category.html

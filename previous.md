@@ -20,7 +20,7 @@ https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
 
 **Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
 `Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
-https://www.nytimes.com/2026/07/29/business/dealbook/sick-of-ai-generated-content-the-slop-janitor-is-here-to-help.html
+https://www.nytimes.com/2026/07/29/business/dealbook/pangram-ai-slop-detection.html
 
 **Europe Is Burning**\
 `We look at the wildfires in France and Spain.`\
@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/07/29/learning/word-of-the-day-pugnacity.html
 `The state is a major importer of fracking wastewater, which gets pumped underground but doesn’t always stay there. The city of Marietta is fighting back.`\
 https://www.nytimes.com/2026/07/29/climate/ohio-fracking-water-injection-wells.html
 
-**The Mamdani Resister**\
+**Can This Man Stop the Mamdani Agenda?**\
 `Reihan Salam loves New York. He loves the free market. And he’s very worried.`\
 https://www.nytimes.com/2026/07/29/nyregion/mamdani-manhattan-institute-affordability.html
 
