@@ -1,3 +1,7 @@
+**Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
+`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive” and performed at the Paris Olympics.`\
+https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
+
 **Students: Is A.I. Changing Your Life? Tell Us.**\
 `We’re looking for college and high school students to tell us about A.I.`\
 https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.html
@@ -94,7 +98,7 @@ https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service
 `The Israeli military accused Hamas of using the mosque to store weapons. The Hamas-run government’s media office said Israel’s claims aimed to justify its attacks on mosques.`\
 https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
 
-**Shipping Risks Rise Across Crucial Middle East Oil Routes**\
+**Shipping Risks Spread Across Crucial Middle East Oil Routes**\
 `Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/29/world/europe/summer-heat-wave-fires-climate-c
 **Las mujeres son demasiado controladoras, escribió ella. Su mensaje sigue hallando eco**\
 `El mensaje de ‘La esposa entregada’, el libro más vendido de Laura Doyle, resultó provocador. Muchas mujeres aseguran que les salvó el matrimonio.`\
 https://www.nytimes.com/es/2026/07/29/espanol/la-esposa-entregada-laura-doyle.html
-
-**Trump’s Chaos Is a Job Killer**\
-`The administration’s capriciousness and the long tail of federal funding cuts.`\
-https://www.nytimes.com/2026/07/29/opinion/trump-job-market-federal-funding-us.html
 
 **Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
