@@ -1,3 +1,19 @@
+**Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
+`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive” and performed at the Paris Olympics.`\
+https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
+
+**Students: Is A.I. Changing Your Life? Tell Us.**\
+`We’re looking for college and high school students to tell us about A.I.`\
+https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.html
+
+**Obama Endorses Josh Turek in Iowa Senate Race With Basketball Video**\
+`The former president is trying to help Josh Turek net a Senate seat in Iowa, which Democrats see as one of their best pickup opportunities of the midterms.`\
+https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
+
+**Live Updates: Federal Reserve to Make a Close Call on Interest Rates**\
+`Kevin M. Warsh, after his second meeting as the Fed’s chairman, will explain how officials are thinking about persistent inflation and a resilient job market.`\
+https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
+
 **Today, In Short**\
 `Beluga whales. Pizza renaissance. And travel journals.`\
 https://www.nytimes.com/2026/07/29/briefing/today-in-short.html
@@ -82,7 +98,7 @@ https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service
 `The Israeli military accused Hamas of using the mosque to store weapons. The Hamas-run government’s media office said Israel’s claims aimed to justify its attacks on mosques.`\
 https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
 
-**Shipping Risks Rise Across Crucial Middle East Oil Routes**\
+**Shipping Risks Spread Across Crucial Middle East Oil Routes**\
 `Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
 
@@ -174,27 +190,7 @@ https://www.nytimes.com/2026/07/29/world/europe/summer-heat-wave-fires-climate-c
 `El mensaje de ‘La esposa entregada’, el libro más vendido de Laura Doyle, resultó provocador. Muchas mujeres aseguran que les salvó el matrimonio.`\
 https://www.nytimes.com/es/2026/07/29/espanol/la-esposa-entregada-laura-doyle.html
 
-**Trump’s Chaos Is a Job Killer**\
-`The administration’s capriciousness and the long tail of federal funding cuts.`\
-https://www.nytimes.com/2026/07/29/opinion/trump-job-market-federal-funding-us.html
-
-**Art Gallery Pop-Ups Are Occupying Empty New York Storefronts**\
-`From New York’s Hudson Valley to Brooklyn, curators are hosting pop-up art exhibitions in empty commercial spaces. Artists and brokers alike are seeing the benefits.`\
-https://www.nytimes.com/2026/07/29/realestate/site-seen-art-pop-up-empty-storefronts.html
-
-**‘No Influencers’ Sign at Nantucket Store Spurs Heated Debate**\
-`The store owner said his “No Influencers” sign was meant to be “tongue-in-cheek.” It spurred a heated debate anyway.`\
-https://www.nytimes.com/2026/07/29/style/nantucket-shop-no-influencers-paige-lorenze.html
-
-**What to Watch at the Federal Reserve’s July Meeting**\
-`Kevin M. Warsh, who will preside over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
-https://www.nytimes.com/2026/07/29/business/federal-reserve-july-meeting.html
-
-**A Deluge of A.I. Computing Power Is About to Come Online, Fueling Major Leaps**\
-`The number of A.I. chips that provide the computing power to advance the fast-evolving technology is doubling every nine months.`\
-https://www.nytimes.com/interactive/2026/07/29/technology/ai-chips-data-center-boom.html
-
-**Lindsey Graham’s South Carolina Funeral: What to Know**\
-`The senator’s funeral services are in Columbia, the capital. His remains will be buried Wednesday afternoon in Pickens County, S.C., where he was born and raised.`\
-https://www.nytimes.com/2026/07/29/us/lindsey-graham-south-carolina-memorial.html
+**Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
+`The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
+https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
 

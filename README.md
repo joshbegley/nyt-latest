@@ -1,3 +1,7 @@
+**With Blanche Nomination at Stake, Payouts to Trump Allies Continue**\
+`A seven-figure settlement is announced two days before a scheduled Senate committee vote on Todd Blanche’s nomination to be attorney general.`\
+https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html
+
 **Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
 `The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive” and performed at the Paris Olympics.`\
 https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/es/2026/07/29/espanol/estilos-de-vida/miedo-alturas-acro
 **Summer of Heat, Fires and Storms Is a Reckoning for Europe on Climate**\
 `The continent is experiencing some of its biggest fires and highest temperatures ever. Residents are fleeing, leaders are struggling to respond and “it will get worse,” one climate expert said.`\
 https://www.nytimes.com/2026/07/29/world/europe/summer-heat-wave-fires-climate-change.html
-
-**Las mujeres son demasiado controladoras, escribió ella. Su mensaje sigue hallando eco**\
-`El mensaje de ‘La esposa entregada’, el libro más vendido de Laura Doyle, resultó provocador. Muchas mujeres aseguran que les salvó el matrimonio.`\
-https://www.nytimes.com/es/2026/07/29/espanol/la-esposa-entregada-laura-doyle.html
 
 **Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\

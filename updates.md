@@ -1,3 +1,27 @@
+**Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
+`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive” and performed at the Paris Olympics.`\
+https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
+
+**Students: Is A.I. Changing Your Life? Tell Us.**\
+`We’re looking for college and high school students to tell us about A.I.`\
+https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.html
+
+**Obama Endorses Josh Turek in Iowa Senate Race With Basketball Video**\
+`The former president is trying to help Josh Turek net a Senate seat in Iowa, which Democrats see as one of their best pickup opportunities of the midterms.`\
+https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
+
+**Live Updates: Federal Reserve to Make a Close Call on Interest Rates**\
+`Kevin M. Warsh, after his second meeting as the Fed’s chairman, will explain how officials are thinking about persistent inflation and a resilient job market.`\
+https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
+
+**Shipping Risks Spread Across Crucial Middle East Oil Routes**\
+`Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
+https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
+
+**Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
+`The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
+https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
+
 **Today, In Short**\
 `Beluga whales. Pizza renaissance. And travel journals.`\
 https://www.nytimes.com/2026/07/29/briefing/today-in-short.html
