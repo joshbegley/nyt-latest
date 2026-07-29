@@ -1,3 +1,7 @@
+**South Dakota Governor Seeking Full Term Clinches G.O.P. Nomination**\
+`Gov. Larry Rhoden, who ascended to the office last year when Kristi Noem left for the Trump cabinet, overcame a large Republican primary field and won a runoff election.`\
+https://www.nytimes.com/2026/07/28/us/rhoden-wins-south-dakota-governor-republican-primary.html
+
 **Mark Zuckerberg Blasts Centralization of A.I. Power**\
 `In an interview with The Times, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
 https://www.nytimes.com/2026/07/28/technology/mark-zuckerberg-meta-ai.html

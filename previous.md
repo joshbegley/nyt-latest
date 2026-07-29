@@ -1,3 +1,7 @@
+**South Dakota Governor Seeking Full Term Clinches G.O.P. Nomination**\
+`Gov. Larry Rhoden, who ascended to the office last year when Kristi Noem left for the Trump cabinet, overcame a large Republican primary field and won a runoff election.`\
+https://www.nytimes.com/2026/07/28/us/rhoden-wins-south-dakota-governor-republican-primary.html
+
 **Trump Pays Tribute at Lindsey Graham’s Funeral**\
 `President Trump paid tribute to Senator Lindsey Graham in a memorial service at the National Cathedral on Tuesday.`\
 https://www.nytimes.com/video/us/politics/100000011059917/trump-lindsey-graham-washington-funeral.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/arts/music/linda-perhacs-missing-folk-music.h
 **ICE Arrests Surge at Airports, Opening New Front in Deportation Drive**\
 `Federal agents are arresting spouses of Americans, tech workers and others whose visas have expired, including many who have active applications to stay in the country.`\
 https://www.nytimes.com/2026/07/28/us/ice-arrests-airports-visa-overstay.html
-
-**Gov. Sherrill in the Hot Seat After U.S. Demand for Noncitizens’ Names**\
-`After disclosing that thousands of ineligible people were added to the voter rolls, New Jersey Gov. Mikie Sherrill is trying to bring accountability while resisting President Trump’s narrative.`\
-https://www.nytimes.com/2026/07/28/nyregion/noncitizen-voting-new-jersey-sherrill.html
 
