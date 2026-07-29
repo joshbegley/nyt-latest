@@ -1,3 +1,15 @@
+**Trump Administration Is Repurposing Federal Land for A.I. Data Centers**\
+`In the latest example, the Energy Department will convert a shuttered Cold War-era uranium enrichment facility into a data center campus and gas plants.`\
+https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
+
+**European Wildfires Amplified by Emptying Countryside and Fewer Farms**\
+`A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
+https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
+
+**BTS Won’t Enter Music From Comeback Album for Grammy Awards**\
+`The group announced it would not submit its most recent album, ‘Arirang,’ for consideration a month after the Recording Academy introduced a new category for Asian pop.`\
+https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-category.html
+
 **What to Know About Iraq’s Militias**\
 `At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/heres-what-to-know-about-iraqs-militias.html

@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/07/29/world/middleeast/israel-hezbollah-lebanon.htm
 https://www.nytimes.com/2026/07/29/books/review/beth-brower-unselected-journals-of-emma-m-lion.html
 
 **Trump Demanded Details of Agents’ Interview of Comey, New Filing Says**\
-`The demand suggests the intense personal involvement of President Trump in investigating one of his longtime critics, the former F.B.I. director James B. Comey.`\
+`The request suggests the intense personal involvement of President Trump in investigating one of his longtime critics, the former F.B.I. director James B. Comey.`\
 https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service.html
 
 **Israel Strikes Mosque in Gaza City**\
@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
 `Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\
 https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-democrats.html
 
-**Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
-`The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
+**Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
+`The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
 https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
 

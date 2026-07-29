@@ -1,3 +1,7 @@
+**Trump Administration Is Repurposing Federal Land for A.I. Data Centers**\
+`In the latest example, the Energy Department will convert a shuttered Cold War-era uranium enrichment facility into a data center campus and gas plants.`\
+https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
+
 **What to Know About Iraq’s Militias**\
 `At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/heres-what-to-know-about-iraqs-militias.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-
 `Readers, including the president of the Real Estate Board of New York, respond to an editorial that praised the tax. Also: Two psychiatrists, on the need to mourn.`\
 https://www.nytimes.com/2026/07/29/opinion/second-homes-tax-new-york.html
 
-**Emptying Countryside Leaves ‘No Simple Solution’ to European Wildfires**\
+**European Wildfires Amplified by Emptying Countryside and Fewer Farms**\
 `A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
 https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
 
@@ -143,7 +147,7 @@ https://www.nytimes.com/2026/07/29/style/paternity-dna-test-family-drama.html
 https://www.nytimes.com/2026/07/29/style/bernard-arnault-open-letter-x.html
 
 **BTS Won’t Enter Music From Comeback Album for Grammy Awards**\
-`The group’s decision comes a month after the Recording Academy announced five new award categories, including one for Best Asian Pop Music Performance.`\
+`The group announced it would not submit its most recent album, ‘Arirang,’ for consideration a month after the Recording Academy introduced a new category for Asian pop.`\
 https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-category.html
 
 **Corrections: July 29, 2026**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
 **Israel, AIPAC and Difficult Questions for Democrats**\
 `Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\
 https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-democrats.html
-
-**ICE Arrests Surge at Airports, and Fauci’s Private Diary Faces Scrutiny**\
-`Plus, why toxic wastewater is bubbling up out of the ground.`\
-https://www.nytimes.com/2026/07/29/podcasts/the-headlines/ice-airports-fauci-diaries.html
 
 **Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
