@@ -12,11 +12,11 @@ https://www.nytimes.com/2026/07/29/well/high-blood-pressure-pregnancy.html
 
 **Some Jordanians Demand that American Troops Leave the Kingdom**\
 `Hundreds of political, legal and other figures signed a public letter warning that Jordan’s close alliance with the United States poses a risk.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/some-jordanians-dare-to-speak-out-against-us-troop-presence.html
+https://www.nytimes.com/2026/07/29/world/middleeast/jordan-us-military-iran-war.html
 
 **Amid Myanmar’s Civil War, the Rich Seek Parties and ‘Positive Vibes Only’**\
 `The lifestyles of the wealthy in Myanmar — nightclubs, caviar and trips abroad — have been largely untouched by years of deadly conflict.`\
-https://www.nytimes.com/2026/07/29/world/asia/this-country-is-ravaged-by-war-but-its-rich-feel-positive-vibes-only.html
+https://www.nytimes.com/2026/07/29/world/asia/myanmar-war-nightlife-luxury.html
 
 **Some Northern Ireland Loyalists Embrace an Anti-Immigrant Ideology**\
 `Northern Ireland’s Protestant loyalists have long felt their identity was under siege. Now anti-immigrant ideology has found a new toehold here.`\
