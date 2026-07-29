@@ -1,3 +1,7 @@
+**Man Who Rammed Car Into Synagogue Sentenced to One More Week in Jail**\
+`Dan Sohail, who has spent six months in detention, pleaded guilty to damaging religious property in Brooklyn. The judge said that he needed mental health treatment and had not acted out of hate.`\
+https://www.nytimes.com/2026/07/29/nyregion/chabad-brooklyn-synagogue-car-ramming.html
+
 **The Good List: 6 Things to Bring Joy to Your Day**\
 `First Kiss Moon, the biggest museum and being sure of someone.`\
 https://www.nytimes.com/2026/07/29/briefing/29-the-good-list-museum-first-kiss.html
