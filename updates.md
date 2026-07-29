@@ -1,3 +1,7 @@
+**Israel Strikes Mosque in Gaza City**\
+`The Israeli military accused Hamas of using the mosque to store weapons. The Hamas-run government’s media office said Israel’s claims aimed to justify its attacks on mosques.`\
+https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
+
 **Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
 `The case against Pavel Durov reflected an ongoing fight over one of the world’s most popular messaging and media apps, which is widely used in the country.`\
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html

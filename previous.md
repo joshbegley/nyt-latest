@@ -1,3 +1,7 @@
+**Israel Strikes Mosque in Gaza City**\
+`The Israeli military accused Hamas of using the mosque to store weapons. The Hamas-run government’s media office said Israel’s claims aimed to justify its attacks on mosques.`\
+https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
+
 **Shipping Risks Rise Across Crucial Middle East Oil Routes**\
 `Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/nyregion/mamdani-manhattan-institute-affordab
 **How the Curtain Rose on One of Zaha Hadid’s Final Acts**\
 `The Royal Theater of Rabat is an architectural performance itself, with devilishly difficult curves. It was a homecoming to a world the star designer loved.`\
 https://www.nytimes.com/2026/07/29/arts/design/how-the-curtain-rose-on-one-of-zaha-hadids-final-acts.html
-
-**A Movie Night in Cuba’s Blackout**\
-`Amid the energy crisis caused by the Trump administration’s oil blockade of Cuba, our correspondent Jack Nicas visits a children’s movie night in a Havana neighborhood made possible by one family’s modified generator.`\
-https://www.nytimes.com/video/world/americas/100000011017841/a-movie-night-in-cubas-blackout.html
 
