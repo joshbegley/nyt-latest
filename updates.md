@@ -1,3 +1,15 @@
+**Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
+`Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
+https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
+
+**Lindsey Graham’s South Carolina Funeral: What to Know**\
+`The senator’s funeral services are in Columbia, the capital. His remains will be buried Wednesday afternoon in Pickens County, S.C., where he was born and raised.`\
+https://www.nytimes.com/2026/07/29/us/lindsey-graham-south-carolina-memorial.html
+
+**With Little Electricity in Cuba, He Uses a Giant Battery to Throw Parties**\
+`David González has suddenly become the host of Havana’s hottest parties amid its energy crisis. Can he turn them into a movement?`\
+https://www.nytimes.com/2026/07/29/world/americas/havana-cuba-parties-david-gonzalez.html
+
 **Canada’s Answer to Trump’s Tariffs: More Energy Deals With Europe**\
 `The Carney government’s agreement with a German natural gas company will also reduce Europe’s dependence on a Qatari supply made more uncertain by war.`\
 https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-tariffs.html
