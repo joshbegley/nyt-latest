@@ -1,3 +1,7 @@
+**Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
+`The charges against Pavel Durov reflected an ongoing fight over one of the most popular messaging and media apps in the country.`\
+https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
+
 **Fires Slow in France and Spain, but Worse May Be Ahead**\
 `Officials said they had contained the spread of vast fires in both countries, but warned that rising temperatures and high winds meant the situation was still fluid.`\
 https://www.nytimes.com/2026/07/29/world/europe/europe-fires-spain-france.html
