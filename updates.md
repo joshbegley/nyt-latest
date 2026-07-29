@@ -1,3 +1,15 @@
+**Fauci Accuses Senator Rand Paul of ‘Obsession’ During Senate Hearing**\
+`Dr. Anthony S. Fauci accused Senator Rand Paul of having an “unhinged obsession” with him during a Senate hearing on Wednesday on the origins of Covid-19.`\
+https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-senate-hearing.html
+
+**New York’s Tax on Second Homes**\
+`Readers, including the president of the Real Estate Board of New York, respond to an editorial that praised the tax. Also: Two psychiatrists, on the need to mourn.`\
+https://www.nytimes.com/2026/07/29/opinion/second-homes-tax-new-york.html
+
+**Fauci Pleads the Fifth, Refusing to Answer Questions on Covid Origins at Senate Hearing**\
+`The panel’s chairman, Rand Paul, has long accused Dr. Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
+https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
+
 **Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
 `The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive,” and performed at the Paris Olympics.`\
 https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
