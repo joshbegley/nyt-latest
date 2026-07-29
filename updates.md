@@ -1,3 +1,31 @@
+**Why Are We Polling Now?**\
+`A poll is a snapshot of a given time in the election cycle. Polls shared months before an election enable our readers to have access to the same information campaigns and political leaders have about public sentiment.`\
+https://www.nytimes.com/video/insider/100000010994124/why-are-we-polling-now.html
+
+**Así sobrevive Cuba a la falta de combustible**\
+`Han pasado seis meses desde que EE. UU. cortó las fuentes de combustible de la isla. Nuestros reporteros fueron hasta allá y encontraron historias notables de resiliencia.`\
+https://www.nytimes.com/es/2026/07/29/espanol/mundo/cuba-sobrevivencia-apagones-corriente.html
+
+**The Happiest Cities of 2026**\
+`A study mined data on emotional, physical and financial health, as well as community and environmental factors, to find the happiest Americans.`\
+https://www.nytimes.com/2026/07/29/realestate/the-happiest-cities-of-2026.html
+
+**Ground Chicken Grounds This Savory Stir-Fry With Green Beans**\
+`Or pork, beef or lamb — this fast, healthy stir-fry makes the most of your favorite ground meat.`\
+https://www.nytimes.com/2026/07/29/dining/ground-chicken-grounds-this-savory-stir-fry-with-green-beans.html
+
+**Reliving Their Gym Class Nightmares, One Sprint at a Time**\
+`At a gathering in Central Park, hundreds of young adults revived a childhood fitness test that many of them once loathed.`\
+https://www.nytimes.com/2026/07/29/well/move/pacer-test-gen-z-fitness.html
+
+**Could Jettisoning CNN Save the Paramount Merger?**\
+`It’s a thorn in the side of David Ellison’s paused dream.`\
+https://www.nytimes.com/2026/07/29/opinion/cnn-paramount-warner-bros-merger-ellison.html
+
+**Glen Hansard, Frontman of Irish Band the Frames, Dies at 56**\
+`The Irish singer-songwriter won an Oscar for the song “Falling Slowly” from the movie “Once.”`\
+https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
+
 **Glen Hansard, Frontman of Irish Band the Frames, Dies at 56**\
 `The Irish singer-songwriter, who won an Oscar for the song “Falling Slowly” from the movie “Once,” died in a motorcycle crash.`\
 https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
