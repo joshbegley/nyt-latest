@@ -1,3 +1,7 @@
+**BTS Won’t Enter Music From Comeback Album for Grammy Awards**\
+`The group’s decision comes a month after the Recording Academy announced five new award categories, including one for Best Asian Pop Music Performance.`\
+https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-category.html
+
 **Corrections: July 29, 2026**\
 `Corrections that appeared in print on Wednesday, July 29, 2026.`\
 https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
