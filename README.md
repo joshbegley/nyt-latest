@@ -1,3 +1,7 @@
+**Maps: Earthquakes Shake the Philippines**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
+
 **Why Are We Polling Now?**\
 `A poll is a snapshot of a given time in the election cycle. Polls shared months before an election enable our readers to have access to the same information campaigns and political leaders have about public sentiment.`\
 https://www.nytimes.com/video/insider/100000010994124/why-are-we-polling-now.html
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-
 `Corrections that appeared in print on Wednesday, July 29, 2026.`\
 https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
 
-**Glen Hansard, Frontman of Irish Band the Frames, Dies at 56**\
+**Glen Hansard, Oscar-Winning Frontman of Irish Band the Frames, Dies at 56**\
 `The Irish singer-songwriter won an Oscar for the song “Falling Slowly” from the movie “Once.”`\
 https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/29/books/bookstores-midtown-manhatta
 **Pick Your Favorite $575,000 Home**\
 `This week’s properties are in Oregon City, Ore., St. Louis and Birmingham, Ala.`\
 https://www.nytimes.com/2026/07/29/realestate/pick-your-favorite-home-in-oregon-city-st-louis-birmingham.html
-
-**Matt Damon’s Biceps in That ‘Odyssey’ Fight Scene? They’re Hers.**\
-`Devyn Dalton, a 4-foot-6 woman, is the leading man’s stunt double in Christopher Nolan’s summer blockbuster.`\
-https://www.nytimes.com/2026/07/29/style/devyn-dalton-matt-damon-stuntwoman-odyssey.html
 
