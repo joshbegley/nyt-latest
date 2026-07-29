@@ -1,3 +1,7 @@
+**Canada’s Answer to Trump’s Tariffs: More Energy Deals With Europe**\
+`The Carney government’s agreement with a German natural gas company will also reduce Europe’s dependence on a Qatari supply made more uncertain by war.`\
+https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-tariffs.html
+
 **St. Mary’s, Newfoundland, Will No Longer Reek of Rotten Fish Sauce**\
 `In Newfoundland, 20-year-old smelly sludge will finally be removed.`\
 https://www.nytimes.com/2026/07/29/world/canada/fish-sauce-plant-canada-st-marys.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/nyregion/transforming-an-old-newsstand-into-a
 **A.I. Companies Are Recruiting Electricians and Carpenters by the Thousands**\
 `The future of artificial intelligence depends on finding more skilled humans for some very physical jobs.`\
 https://www.nytimes.com/2026/07/29/business/economy/data-center-electricians-training.html
-
-**Midtown Manhattan Bookstore Crawl: Where to Shop and Recharge**\
-`This walking tour through the bustling heart of New York City includes bookstores, great reading spots and literary-themed snacks.`\
-https://www.nytimes.com/interactive/2026/07/29/books/bookstores-midtown-manhattan-nyc.html
 
