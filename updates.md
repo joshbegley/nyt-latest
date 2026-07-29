@@ -1,3 +1,15 @@
+**The Internet Suddenly Loves Emeril, Years After His TV Stardom**\
+`Clips of his live shows are a hot item on social media, charming younger viewers with his kitchen basics.`\
+https://www.nytimes.com/2026/07/29/dining/emeril-lagasse.html
+
+**The Easiest Lemon Curd**\
+`Using a microwave to cook lemon curd streamlines the entire process, and eliminates the need to stand over the stove whisking constantly. The result is silky-smooth and as tart as you like.`\
+https://www.nytimes.com/video/dining/100000011061816/the-easiest-lemon-curd.html
+
+**Ten Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
+`The accusations include sex with underage girls and sexually explicit messages. The actor denied the allegations.`\
+https://www.nytimes.com/2026/07/29/us/jared-leto-sexual-assault-bbc.html
+
 **Incendios en Europa: la llegada de una ‘nueva era de megaincendios’**\
 `El declive de la actividad agrícola en el continente europeo ha cambiado los mosaicos de pastizales y campos arados por vegetación silvestre que arde intensamente durante los veranos calurosos y secos.`\
 https://www.nytimes.com/es/2026/07/29/espanol/tiempo-y-clima/espana-mega-incendios-francia-cambio-climatico.html
