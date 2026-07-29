@@ -1,3 +1,7 @@
+**At Lindsey Graham’s Funeral There Were Tributes, But Politics Too**\
+`A gathering of South Carolina’s political elite paid tribute to the late senator’s career against a backdrop of a highly competitive race to replace him.`\
+https://www.nytimes.com/2026/07/29/us/politics/lindsey-graham-funeral-south-carolina.html
+
 **Rollout of New York City’s Second-Home Tax Is Confusing Some Residents**\
 `The so-called pied-à-terre tax is causing anxiety for homeowners who feel outed by the publication of their addresses. Some say they have only one home.`\
 https://www.nytimes.com/2026/07/29/nyregion/new-york-second-home-tax-rollout-anxiety.html

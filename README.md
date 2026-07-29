@@ -1,4 +1,4 @@
-**At Lindsey Graham’s Funeral There Were Tributes, But Politics Too**\
+**Tributes, and Politics Too, at Lindsey Graham’s Funeral in South Carolina**\
 `A gathering of South Carolina’s political elite paid tribute to the late senator’s career against a backdrop of a highly competitive race to replace him.`\
 https://www.nytimes.com/2026/07/29/us/politics/lindsey-graham-funeral-south-carolina.html
 
@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/07/29/nyregion/new-york-second-home-tax-rollout-anx
 `With Iran flexing its might, President Trump appears to be weighing military options again, after rejecting plans to escalate.`\
 https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
 
-**Record Numbers of Public Document Requests Are in Limbo or Unfulfilled**\
+**Record Numbers of FOIA Public Document Requests Are in Limbo or Unfulfilled**\
 `A Times analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
 https://www.nytimes.com/2026/07/29/us/politics/foia-public-document-requests.html
 
