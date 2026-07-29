@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/07/29/opinion/elon-musk-far-right-remigration.html
 `You may as well say that history ages poorly, too, or demand warning signs outside museums.`\
 https://www.nytimes.com/2026/07/29/opinion/language-musuems-history-age-well.html
 
-**The Cuban Throwing Parties to Fight for Political Change**\
+**With Little Electricity in Cuba, He Uses a Giant Battery to Throw Parties**\
 `David González has suddenly become the host of Havana’s hottest parties amid its energy crisis. Can he turn them into a movement?`\
 https://www.nytimes.com/2026/07/29/world/americas/havana-cuba-parties-david-gonzalez.html
 

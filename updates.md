@@ -1,3 +1,11 @@
+**Canada’s Answer to Trump’s Tariffs: More Energy Deals With Europe**\
+`The Carney government’s agreement with a German natural gas company will also reduce Europe’s dependence on a Qatari supply made more uncertain by war.`\
+https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-tariffs.html
+
+**St. Mary’s, Newfoundland, Will No Longer Reek of Rotten Fish Sauce**\
+`In Newfoundland, 20-year-old smelly sludge will finally be removed.`\
+https://www.nytimes.com/2026/07/29/world/canada/fish-sauce-plant-canada-st-marys.html
+
 **Maps: Earthquakes Shake the Philippines**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
