@@ -1,3 +1,11 @@
+**2 Wheels, 14 Days, 2,448 Miles: A Motorcycle Tour of Route 66**\
+`To mark the road’s 100th anniversary, a Times journalist rode the length of it to see what’s become of America’s most storied highway.`\
+https://www.nytimes.com/interactive/2026/07/28/travel/route-66-anniversary-chicago-santa-monica.html
+
+**A Blunt Warning for Israel**\
+`Jewish terrorism is also a threat to Zionism.`\
+https://www.nytimes.com/2026/07/28/opinion/israel-settlers-west-bank.html
+
 **Senate Confirms Jay Clayton to Lead U.S. Intelligence Community**\
 `Mr. Clayton, who shed Democratic support after he refused to clearly say Joseph R. Biden Jr. won the 2020 election, will take over the Office of the Director of National Intelligence from Bill Pulte.`\
 https://www.nytimes.com/2026/07/28/us/politics/senate-confirms-jay-clayton-intelligence-director.html
