@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/07/29/us/santa-cruz-lifeguard-rescue-ryder-williams
 `A video capturing the rescue showed bystanders rushing into the surf to help as the lifeguard and the boy were sent under multiple times.`\
 https://www.nytimes.com/video/us/100000011060703/lifeguard-rescues-child-california.html
 
-**Work Halted at Another Office-to-Apartment Conversion in Midtown Manhattan**\
+**Work Halted at Another Office Conversion in Midtown Manhattan**\
 `The Department of Buildings ordered work to stop on certain floors at 750 Third Avenue. It’s the third conversion project to have work halted since one became dangerously unstable earlier this month.`\
 https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.html
 

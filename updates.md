@@ -1,3 +1,7 @@
+**Trump planea enviar a Uruguay a deportados cubanos**\
+`El Departamento de Estado, bajo el mando del secretario de Estado Marco Rubio, ha deportado a cubanos incluso a África. Ahora está negociando con un país sudamericano.`\
+https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/trump-deportados-cubanos-uruguay.html
+
 **Man Who Rammed Car Into Synagogue Sentenced to One More Week in Jail**\
 `Dan Sohail, who has spent six months in detention, pleaded guilty to damaging religious property in Brooklyn. The judge said that he needed mental health treatment and had not acted out of hate.`\
 https://www.nytimes.com/2026/07/29/nyregion/chabad-brooklyn-synagogue-car-ramming.html

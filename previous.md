@@ -1,3 +1,7 @@
+**Trump planea enviar a Uruguay a deportados cubanos**\
+`El Departamento de Estado, bajo el mando del secretario de Estado Marco Rubio, ha deportado a cubanos incluso a África. Ahora está negociando con un país sudamericano.`\
+https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/trump-deportados-cubanos-uruguay.html
+
 **Man Who Rammed Car Into Synagogue Sentenced to One More Week in Jail**\
 `Dan Sohail, who has spent six months in detention, pleaded guilty to damaging religious property in Brooklyn. The judge said that he needed mental health treatment and had not acted out of hate.`\
 https://www.nytimes.com/2026/07/29/nyregion/chabad-brooklyn-synagogue-car-ramming.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service
 **Israel Strikes Mosque in Gaza City**\
 `The Israeli military accused Hamas of using the mosque to store weapons. The Hamas-run government’s media office said Israel’s claims aimed to justify its attacks on mosques.`\
 https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
-
-**Shipping Risks Spread Across Crucial Middle East Oil Routes**\
-`Attacks on ships in the Strait of Hormuz and the Bab al-Mandab Strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
-https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
