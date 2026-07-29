@@ -1,3 +1,11 @@
+**Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
+`Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
+https://www.nytimes.com/2026/07/29/us/patrick-clancy-lindsay-trial.html
+
+**Tiny Love Stories: ‘Women Undulating Underwater’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/29/style/tiny-modern-love-stories-women-undulating-underwater.html
+
 **Trump Administration Is Repurposing Federal Land for A.I. Data Centers**\
 `In the latest example, the Energy Department will convert a shuttered Cold War-era uranium enrichment facility into a data center campus and gas plants.`\
 https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html
 **Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
 `The case against Pavel Durov reflected an ongoing fight over one of the world’s most popular messaging and media apps, which is widely used in the country.`\
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
-
-**Wildfires Slow in France and Spain, but Worse May Be Ahead**\
-`Firefighters have contained vast wildfires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
-https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
-
-**Israel, AIPAC and Difficult Questions for Democrats**\
-`Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\
-https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-democrats.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
