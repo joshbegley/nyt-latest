@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
 
 **Can Anyone Spare a Buck For Texas?**\
-`One of America’s most competitive Senate races features a surprising dynamic: No Republicans are spending money yet.`\
+`One of America’s most competitive Senate races features a surprising dynamic: The big Republican committees aren’t spending yet.`\
 https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
 
 **Was I Wrong to Repeat a Sensitive Conversation I Overheard in Childhood?**\
