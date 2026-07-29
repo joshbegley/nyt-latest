@@ -1,6 +1,10 @@
+**Trump Encounters a More Determined Iran as War Widens**\
+`With Iran flexing its might, President Trump appears to be weighing military options again, after rejecting plans to escalate.`\
+https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
+
 **Record Numbers of Public Document Requests Are in Limbo or Unfulfilled**\
 `A Times’s analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
-https://www.nytimes.com/2026/07/29/us/politics/record-numbers-of-public-document-requests-are-in-limbo-or-unfulfilled.html
+https://www.nytimes.com/2026/07/29/us/politics/foia-public-document-requests.html
 
 **Trump Has Made Billions in Office. Will His Party Pay Politically?**\
 `The president took in a staggering $2.2 billion last year while in office. Democrats are hoping to make it a campaign issue in the midterm elections.`\
@@ -131,7 +135,7 @@ https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.
 https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
 
 **Senators Cornyn and Tillis Threaten to Block Blanche Nomination Over Trump’s IRS Deal**\
-`Senators John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
+`John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
 
 **Un ciudadano de EE. UU. borró los datos de su teléfono. Ahora enfrenta un cargo por delito grave**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/29/us/politics/trump-tariffs-sanctions.html
 **Florida Professor Fired for Assigning a Profane Story, Lawsuit Says**\
 `South Florida State College fired an English professor after she assigned a story about a teacher who talks about sex with her students. Now the professor is suing.`\
 https://www.nytimes.com/2026/07/29/us/south-florida-state-college-professor-fired-lawsuit.html
-
-**With Blanche Nomination at Stake, Payouts to Trump Allies Continue**\
-`A seven-figure settlement is announced two days before a scheduled Senate committee vote on Todd Blanche’s nomination to be attorney general.`\
-https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
