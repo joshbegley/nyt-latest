@@ -1,3 +1,11 @@
+**Lindsay Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
+`Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
+https://www.nytimes.com/2026/07/29/us/lindsay-clancy-murder-trial-husband.html
+
+**Shipping Risks Spread Across Crucial Middle East Oil Routes**\
+`Attacks on ships in the Strait of Hormuz and the Bab al-Mandab Strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
+https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
+
 **Un ciudadano de EE. UU. borró los datos de su teléfono. Ahora enfrenta un cargo por delito grave**\
 `Fiscales federales acusaron a un hombre que regresaba al país de obstrucción después de que dio un código de acceso que borró la información de su celular durante una inspección de aduanas.`\
 https://www.nytimes.com/es/2026/07/29/espanol/aduana-estados-unidos-telefono-borrar-datos.html
