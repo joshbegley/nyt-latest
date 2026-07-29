@@ -142,6 +142,10 @@ https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
+**What to know about the Fed’s decision.**\
+`Kevin M. Warsh, presiding over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
+https://www.nytimes.com/2026/07/29/business/economy/what-to-watch-at-the-meeting.html
+
 **Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
 `The kingdom’s defense ministry said airstrikes in Iraq targeting Iran-backed militias were in retaliation for attacks on Saudi oil facilities this week.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-us-iran-war.html
