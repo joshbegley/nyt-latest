@@ -1,3 +1,11 @@
+**Meta’s Profit Falls 14 Percent as A.I. Spending Continues**\
+`The Silicon Valley company’s costs rose more steeply than revenue growth, as it continues to invest heavily in artificial intelligence.`\
+https://www.nytimes.com/2026/07/29/technology/meta-profit-ai.html
+
+**Rusia acusa al fundador de Telegram de facilitar el terrorismo**\
+`Pavel Durov está bajo la mira del Kremlin en un renovado intento del Estado ruso por controlar la popular aplicación de mensajería.`\
+https://www.nytimes.com/es/2026/07/29/espanol/mundo/telegram-fundador-rusia-putin.html
+
 **Families Face Anxiety, Angst as Loved Ones Are Deployed to Fight Iran**\
 `As the war with Iran has continued, some are finding that the stress is bringing back old anxieties.`\
 https://www.nytimes.com/2026/07/29/us/iran-war-military-families-anxiety.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/29/realestate/the-happiest-cities-of-2026.html
 **Ground Chicken Grounds This Savory Stir-Fry With Green Beans**\
 `Or pork, beef or lamb — this fast, healthy stir-fry makes the most of your favorite ground meat.`\
 https://www.nytimes.com/2026/07/29/dining/ground-chicken-grounds-this-savory-stir-fry-with-green-beans.html
-
-**Reliving Their Gym Class Nightmares, One Sprint at a Time**\
-`At a gathering in Central Park, hundreds of young adults revived a childhood fitness test that many of them once loathed.`\
-https://www.nytimes.com/2026/07/29/well/move/pacer-test-gen-z-fitness.html
-
-**Could Jettisoning CNN Save the Paramount Merger?**\
-`It’s a thorn in the side of David Ellison’s paused dream.`\
-https://www.nytimes.com/2026/07/29/opinion/cnn-paramount-warner-bros-merger-ellison.html
 
