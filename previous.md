@@ -1,3 +1,11 @@
+**9 consejos de los expertos para aumentar tu longevidad en la mediana edad**\
+`Cómo te cuides en esta etapa de la vida importa mucho para tus años venideros.`\
+https://www.nytimes.com/es/2026/07/29/espanol/longevidad-mediana-edad.html
+
+**The Hidden Cost of China’s Free A.I.**\
+`Whoever supplies the world’s A.I. will shape how the world thinks.`\
+https://www.nytimes.com/2026/07/29/opinion/ai-china-us-free-models.html
+
 **112 Degrees in Paris, Flames Near Bordeaux. France Can’t Go On Like This.**\
 `The frightening heat and wildfires this summer should be an impetus to those in charge to reckon with how quickly the risks are changing.`\
 https://www.nytimes.com/2026/07/29/opinion/france-wildfires-heat-air-conditioning.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/28/us/politics/democrats-2028-primary-calendar.h
 **What Is Open-Weights A.I.?**\
 `As Silicon Valley debates how artificial intelligence software should be created, “open weights” have been a major part of the discussions. Here’s what to know.`\
 https://www.nytimes.com/2026/07/28/technology/open-weight-ai.html
-
-**Ross Douthat Joins ‘60 Minutes’ as a Correspondent**\
-`Mr. Douthat, an opinion columnist at The New York Times, will join the CBS News program, along with several other journalists.`\
-https://www.nytimes.com/2026/07/28/business/media/60-minutes-ross-douthat.html
-
-**Writers Guild Withdraws Support From Film Festival Over A.I.**\
-`Urbanworld, a New York event, has added a section for movies made with A.I. tools. The union was a sponsor but has been outspoken on the dangers of A.I.`\
-https://www.nytimes.com/2026/07/28/movies/urbanworld-writers-guild-ai.html
 

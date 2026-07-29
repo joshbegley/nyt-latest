@@ -1,3 +1,11 @@
+**9 consejos de los expertos para aumentar tu longevidad en la mediana edad**\
+`Cómo te cuides en esta etapa de la vida importa mucho para tus años venideros.`\
+https://www.nytimes.com/es/2026/07/29/espanol/longevidad-mediana-edad.html
+
+**The Hidden Cost of China’s Free A.I.**\
+`Whoever supplies the world’s A.I. will shape how the world thinks.`\
+https://www.nytimes.com/2026/07/29/opinion/ai-china-us-free-models.html
+
 **112 Degrees in Paris, Flames Near Bordeaux. France Can’t Go On Like This.**\
 `The frightening heat and wildfires this summer should be an impetus to those in charge to reckon with how quickly the risks are changing.`\
 https://www.nytimes.com/2026/07/29/opinion/france-wildfires-heat-air-conditioning.html
