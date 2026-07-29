@@ -1,3 +1,7 @@
+**David Hirsch, Who Turned Sonoma Coast Into World-Class Wine Region, Dies at 81**\
+`He helped establish a windswept part of California as a source for great American pinot noir and chardonnay grapes, and later built his own winery.`\
+https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
+
 **Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
 `Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
 https://www.nytimes.com/2026/07/29/us/patrick-clancy-lindsay-trial.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/business/dealbook/pangram-ai-slop-detection.h
 **Europe Is Burning**\
 `We look at the wildfires in France and Spain.`\
 https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html
-
-**Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
-`The case against Pavel Durov reflected an ongoing fight over one of the world’s most popular messaging and media apps, which is widely used in the country.`\
-https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
