@@ -1,3 +1,7 @@
+**The Internet Suddenly Loves Emeril, Years After His TV Stardom**\
+`Clips of his live shows are a hot item on social media, charming younger viewers with his kitchen basics.`\
+https://www.nytimes.com/2026/07/29/dining/emeril-lagasse.html
+
 **The Easiest Lemon Curd**\
 `Using a microwave to cook lemon curd streamlines the entire process, and eliminates the need to stand over the stove whisking constantly. The result is silky-smooth and as tart as you like.`\
 https://www.nytimes.com/video/dining/100000011061816/the-easiest-lemon-curd.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/opinion/cnn-paramount-warner-bros-merger-elli
 **Michelle Obama and Justice Jackson Talk Work-Life Balance and Public Service**\
 `Justice Ketanji Brown Jackson’s appearance on the former first lady’s podcast was a rare meeting of the two powerful, popular Black women.`\
 https://www.nytimes.com/2026/07/29/us/politics/michelle-obama-justice-jackson-podcast.html
-
-**As Trump Squeezes Cuba, He Plans to Send Cuban Deportees to Uruguay**\
-`The State Department under Secretary of State Marco Rubio has deported Cubans to Africa. Now it’s negotiating with a South American country.`\
-https://www.nytimes.com/2026/07/29/us/politics/trump-cuban-deportees-uruguay.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
