@@ -1,3 +1,11 @@
+**Lawyer Who Represented Trump Is Appointed U.S. Attorney in Manhattan**\
+`Federal court judges appointed James M. McDonald, a former federal prosecutor, to the post. He represented President Trump in his appeal of his criminal conviction.`\
+https://www.nytimes.com/2026/07/29/nyregion/trump-attorney-james-mcdonald-manhattan.html
+
+**What We Really Learned From the Fauci Hearing**\
+`Show trials are bad for democracy.`\
+https://www.nytimes.com/2026/07/29/opinion/anthony-fauci-hearing-covid.html
+
 **10 Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
 `The accusations include sex with underage girls and sexually explicit messages. The actor denied the allegations.`\
 https://www.nytimes.com/2026/07/29/us/jared-leto-sexual-assault-bbc.html
