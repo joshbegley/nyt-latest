@@ -1,6 +1,10 @@
+**Trump Pays Tribute at Lindsey Graham’s Funeral**\
+`President Trump paid tribute to Senator Lindsey Graham in a memorial service at the National Cathedral on Tuesday.`\
+https://www.nytimes.com/video/us/politics/100000011059917/trump-lindsey-graham-washington-funeral.html
+
 **The Doctor and His Diary: What Fauci’s Innermost Musings Reveal**\
 `Dr. Anthony S. Fauci seemed to be the life of the party, even in the midst of a deadly pandemic.`\
-https://www.nytimes.com/2026/07/28/us/politics/the-doctor-and-his-diary-what-faucis-innermost-musings-reveal.html
+https://www.nytimes.com/2026/07/28/us/politics/fauci-diary-fame.html
 
 **2 Wheels, 14 Days, 2,448 Miles: A Motorcycle Tour of Route 66**\
 `To mark the road’s 100th anniversary, a Times journalist rode the length of it to see what’s become of America’s most storied highway.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/us/ice-arrests-airports-visa-overstay.html
 **Gov. Sherrill in the Hot Seat After U.S. Demand for Noncitizens’ Names**\
 `After disclosing that thousands of ineligible people were added to the voter rolls, New Jersey Gov. Mikie Sherrill is trying to bring accountability while resisting President Trump’s narrative.`\
 https://www.nytimes.com/2026/07/28/nyregion/noncitizen-voting-new-jersey-sherrill.html
-
-**Fossil Fuel Executives Cash In**\
-`Insiders at leading oil and gas companies have made millions from stocks since the Iran war began.`\
-https://www.nytimes.com/2026/07/28/climate/fossil-fuel-executives-stocks-iran.html
 

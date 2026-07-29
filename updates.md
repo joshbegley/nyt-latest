@@ -1,3 +1,11 @@
+**The Doctor and His Diary: What Fauci’s Innermost Musings Reveal**\
+`Dr. Anthony S. Fauci seemed to be the life of the party, even in the midst of a deadly pandemic.`\
+https://www.nytimes.com/2026/07/28/us/politics/the-doctor-and-his-diary-what-faucis-innermost-musings-reveal.html
+
+**Senate Advances Graham’s Russia Sanctions Bill**\
+`As Washington remembered Senator Lindsey Graham, his colleagues cleared away a hurdle to passage of his long-stalled bill to penalize Moscow.`\
+https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
+
 **Senators Forge a Deal on Graham’s Bill to Advance Russia Sanctions**\
 `As Washington remembered Senator Lindsey Graham, his colleagues cleared away a hurdle to passage of his long-stalled bill to penalize Moscow.`\
 https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
