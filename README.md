@@ -1,3 +1,15 @@
+**Shipping Risks Rise Across Crucial Middle East Oil Routes**\
+`Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
+https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
+
+**Can Anyone Spare a Buck For Texas?**\
+`One of America’s most competitive Senate races features a surprising dynamic: No Republicans are spending money yet.`\
+https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
+
+**Was I Wrong to Repeat a Sensitive Conversation I Overheard in Childhood?**\
+`A conversation between parents more than 60 years ago shed light on the paternity of a reader’s siblings. But a sister angrily insists that it wasn’t his information to divulge.`\
+https://www.nytimes.com/2026/07/29/style/paternity-dna-test-family-drama.html
+
 **How to Change Your Image as a Heartless Luxury Titan Overnight**\
 `Bernard Arnault, the chairman of LVMH, makes an unexpected social media move.`\
 https://www.nytimes.com/2026/07/29/style/bernard-arnault-open-letter-x.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/29/arts/design/how-the-curtain-rose-on-one-of-za
 **A Movie Night in Cuba’s Blackout**\
 `Amid the energy crisis caused by the Trump administration’s oil blockade of Cuba, our correspondent Jack Nicas visits a children’s movie night in a Havana neighborhood made possible by one family’s modified generator.`\
 https://www.nytimes.com/video/world/americas/100000011017841/a-movie-night-in-cubas-blackout.html
-
-**Is Polyamory Right for You?**\
-`Elisabeth Sheff spent 30 years studying polyamory. Here’s what she learned.`\
-https://www.nytimes.com/2026/07/29/podcasts/polyamory-dating-elisabeth-sheff.html
-
-**Is More Data About Your Body Actually Good for You?**\
-`The Silicon Valley health trend making doctors nervous.`\
-https://www.nytimes.com/video/opinion/100000011049045/is-more-data-about-your-body-actually-good-for-you.html
-
-**Global Oil Prices Jump as Attacks Resume in the Middle East**\
-`After several days of a lull in the direct conflict, a flare up in tensions left investors concerned about the continued flow of energy from the region.`\
-https://www.nytimes.com/2026/07/29/business/oil-prices-iran-war-us-attacks.html
 

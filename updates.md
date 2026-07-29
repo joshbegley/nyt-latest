@@ -1,3 +1,15 @@
+**How to Change Your Image as a Heartless Luxury Titan Overnight**\
+`Bernard Arnault, the chairman of LVMH, makes an unexpected social media move.`\
+https://www.nytimes.com/2026/07/29/style/bernard-arnault-open-letter-x.html
+
+**Fauci Invokes the Fifth Amendment, Refusing to Answer Senate Committee Questions**\
+`The panel’s chairman, Rand Paul, has long accused Dr. Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
+https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
+
+**Wildfires Slow in France and Spain, but Worse May Be Ahead**\
+`Firefighters have contained vast wildfires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
+https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
+
 **What to Watch at the Federal Reserve’s July Meeting**\
 `Kevin M. Warsh, who will preside over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
 https://www.nytimes.com/2026/07/29/business/federal-reserve-july-meeting.html
