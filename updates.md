@@ -1,3 +1,7 @@
+**Glen Hansard, Frontman of Irish Band the Frames, Dies at 56**\
+`The Irish singer-songwriter, who won an Oscar for the song “Falling Slowly” from the movie “Once,” died in a motorcycle crash.`\
+https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
+
 **Michelle Obama and Justice Jackson Talk Work-Life Balance and Public Service**\
 `Justice Ketanji Brown Jackson’s appearance on the former first lady’s podcast was a rare meeting of the two powerful, popular Black women.`\
 https://www.nytimes.com/2026/07/29/us/politics/michelle-obama-justice-jackson-podcast.html
