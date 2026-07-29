@@ -1,3 +1,15 @@
+**Clara Ester, Who Was With Martin Luther King Jr. in His Last Moments, Dies at 78**\
+`A Memphis college student and activist, she witnessed Dr. King’s assassination in 1968 when he was shot at his motel and ran to him to check his pulse.`\
+https://www.nytimes.com/2026/07/29/us/clara-ester-dead.html
+
+**New York’s Rollout of Its Second-Home Tax Is Confusing Some Residents**\
+`The state’s so-called pied-à-terre tax is causing anxiety for homeowners who feel outed by the publication of their addresses. Some say they have only one home.`\
+https://www.nytimes.com/2026/07/29/nyregion/new-york-second-home-tax-rollout-anxiety.html
+
+**Record Numbers of Public Document Requests Are in Limbo or Unfulfilled**\
+`A Times analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
+https://www.nytimes.com/2026/07/29/us/politics/foia-public-document-requests.html
+
 **Trump Encounters a More Determined Iran as War Widens**\
 `With Iran flexing its might, President Trump appears to be weighing military options again, after rejecting plans to escalate.`\
 https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
