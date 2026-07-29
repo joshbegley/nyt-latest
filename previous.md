@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/07/29/us/lindsey-graham-south-carolina-memorial.htm
 `For some U.S. brands seeking a location for their factories, the economic logic is once again pointing to China.`\
 https://www.nytimes.com/2026/07/29/business/economy/trumps-tariffs-are-sending-some-companies-back-to-china.html
 
-**Elon Musk Is a Menace to Society**\
+**Why Do We Tolerate Elon Musk’s Racist Commentary?**\
 `Why does the owner of X get a pass for what he says and does there?`\
 https://www.nytimes.com/2026/07/29/opinion/elon-musk-far-right-remigration.html
 

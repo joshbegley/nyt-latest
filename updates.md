@@ -1,3 +1,7 @@
+**Why Do We Tolerate Elon Musk’s Racist Commentary?**\
+`Why does the owner of X get a pass for what he says and does there?`\
+https://www.nytimes.com/2026/07/29/opinion/elon-musk-far-right-remigration.html
+
 **Big Tech Turmoil Clouds the A.I. Earnings Picture**\
 `The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
