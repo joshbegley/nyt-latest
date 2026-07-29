@@ -1,3 +1,11 @@
+**Maps: Earthquakes Shake the Philippines**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
+
+**Glen Hansard, Oscar-Winning Frontman of Irish Band the Frames, Dies at 56**\
+`The Irish singer-songwriter won an Oscar for the song “Falling Slowly” from the movie “Once.”`\
+https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
+
 **Why Are We Polling Now?**\
 `A poll is a snapshot of a given time in the election cycle. Polls shared months before an election enable our readers to have access to the same information campaigns and political leaders have about public sentiment.`\
 https://www.nytimes.com/video/insider/100000010994124/why-are-we-polling-now.html

@@ -1,3 +1,7 @@
+**St. Mary’s, Newfoundland, Will No Longer Reek of Rotten Fish Sauce**\
+`In Newfoundland, 20-year-old smelly sludge will finally be removed.`\
+https://www.nytimes.com/2026/07/29/world/canada/fish-sauce-plant-canada-st-marys.html
+
 **Maps: Earthquakes Shake the Philippines**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/business/economy/data-center-electricians-tra
 **Midtown Manhattan Bookstore Crawl: Where to Shop and Recharge**\
 `This walking tour through the bustling heart of New York City includes bookstores, great reading spots and literary-themed snacks.`\
 https://www.nytimes.com/interactive/2026/07/29/books/bookstores-midtown-manhattan-nyc.html
-
-**Pick Your Favorite $575,000 Home**\
-`This week’s properties are in Oregon City, Ore., St. Louis and Birmingham, Ala.`\
-https://www.nytimes.com/2026/07/29/realestate/pick-your-favorite-home-in-oregon-city-st-louis-birmingham.html
 
