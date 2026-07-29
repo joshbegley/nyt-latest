@@ -1,3 +1,7 @@
+**112 Degrees in Paris, Flames Near Bordeaux. France Can’t Go On Like This.**\
+`The frightening heat and wildfires this summer should be an impetus to those in charge to reckon with how quickly the risks are changing.`\
+https://www.nytimes.com/2026/07/29/opinion/france-wildfires-heat-air-conditioning.html
+
 **Some Jordanians Demand that American Troops Leave the Kingdom**\
 `Hundreds of political, legal and other figures signed a public letter warning that Jordan’s close alliance with the United States poses a risk.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/jordan-us-military-iran-war.html
