@@ -1,3 +1,7 @@
+**Scientists Perform Underwater Ultrasound Scans to Detect Pregnancies in Giant Manta Rays**\
+`Scientists in Mexico were the first to perform ultrasounds on giant manta rays to detect pregnancies. The researchers hoped to learn more about the life cycle of the largest ray species in the world.`\
+https://www.nytimes.com/video/science/earth/100000011059127/giant-manta-rays-pregnant-ultrasounds.html
+
 **Salman Rushdie’s Attacker Found Guilty of Aiding a Foreign Terror Group**\
 `Hadi Matar stabbed Mr. Rushdie repeatedly at a literary conference in 2022 and could spend the rest of his life in prison.`\
 https://www.nytimes.com/2026/07/29/nyregion/hadi-matar-salman-rushdie-terror.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/world/europe/100000011060594/spain-wildfires-damag
 **Incendios en España y Francia: lo peor podría estar por venir**\
 `Los bomberos han logrado contener incendios en ambos países, pero los vientos son fuertes y las temperaturas están aumentando. El dirigente español dijo que las próximas 12 horas serían “decisivas”.`\
 https://www.nytimes.com/es/2026/07/29/espanol/mundo/espana-francia-incendios-ola-calor.html
-
-**Canada’s Answer to Trump’s Tariffs: More Energy Deals With Europe**\
-`The Carney government’s agreement with a German natural gas company will also reduce Europe’s dependence on a Qatari supply made more uncertain by war.`\
-https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-tariffs.html
 
