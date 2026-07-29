@@ -1,3 +1,7 @@
+**Record Numbers of Public Document Requests Are in Limbo or Unfulfilled**\
+`A Times’s analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
+https://www.nytimes.com/2026/07/29/us/politics/record-numbers-of-public-document-requests-are-in-limbo-or-unfulfilled.html
+
 **Trump Has Made Billions in Office. Will His Party Pay Politically?**\
 `The president took in a staggering $2.2 billion last year while in office. Democrats are hoping to make it a campaign issue in the midterm elections.`\
 https://www.nytimes.com/2026/07/29/us/politics/trump-personal-wealth.html
