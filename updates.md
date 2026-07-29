@@ -1,3 +1,7 @@
+**Rescuers Search for Survivors After Deadly Earthquake Hits Japan**\
+`Rescue personnel rushed to save people trapped in collapsed buildings on Wednesday after a 6.8-magnitude earthquake rocked southwest Japan.`\
+https://www.nytimes.com/video/world/asia/100000011060361/japan-earthquake-rescue-survivors.html
+
 **Con el brote de ‘Cyclospora’ surgen desinformación y conspiraciones**\
 `En plataformas como X y TikTok, la conversación sobre Taylor Farms está dominada por especulaciones políticas.`\
 https://www.nytimes.com/es/2026/07/29/espanol/cyclospora-taylor-farms-desinformacion.html
