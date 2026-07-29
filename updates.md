@@ -1,3 +1,11 @@
+**Europe Is Burning**\
+`We look at the wildfires in France and Spain.`\
+https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html
+
+**The Silicon Valley Health Trend Making Doctors Nervous**\
+`Is more data about your body actually good for you?`\
+https://www.nytimes.com/2026/07/29/opinion/health-data-trend-body.html
+
 **Wildfires Slow in France and Spain, but Worse May Be Ahead**\
 `Firefighters have contained vast fires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
 https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html

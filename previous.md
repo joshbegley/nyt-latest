@@ -1,3 +1,7 @@
+**Europe Is Burning**\
+`We look at the wildfires in France and Spain.`\
+https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html
+
 **Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
 `The charges against Pavel Durov reflected an ongoing fight over one of the most popular messaging and media apps in the country.`\
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
@@ -106,8 +110,8 @@ https://www.nytimes.com/2026/07/29/realestate/pick-your-favorite-home-in-oregon-
 `Devyn Dalton, a 4-foot-6 woman, is the leading man’s stunt double in Christopher Nolan’s summer blockbuster.`\
 https://www.nytimes.com/2026/07/29/style/devyn-dalton-matt-damon-stuntwoman-odyssey.html
 
-**Is More Data About Your Body Actually Good for You?**\
-`The Silicon Valley health trend making doctors nervous.`\
+**The Silicon Valley Health Trend Making Doctors Nervous**\
+`Is more data about your body actually good for you?`\
 https://www.nytimes.com/2026/07/29/opinion/health-data-trend-body.html
 
 **The Chips That Will Decide A.I.’s Future**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/nyregion/knicks-street-sign-auction.html
 **‘The Devil’s Mouth’ Review: Between a Shark and a Hard Place**\
 `This Thailand-set vacation thriller is neither silly nor gory enough to chum the waters for audiences at home.`\
 https://www.nytimes.com/2026/07/29/movies/the-devils-mouth-review.html
-
-**NYT Spelling Bee Answers for July 29, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/29/crosswords/spelling-bee-forum.html
 
