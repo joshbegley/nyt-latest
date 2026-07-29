@@ -1,3 +1,7 @@
+**Global Oil Prices Jump as Attacks Resume in the Middle East**\
+`After several days of a lull in the direct conflict, a flare up in tensions left investors concerned about the continued flow of energy from the region.`\
+https://www.nytimes.com/2026/07/29/business/oil-prices-iran-war-us-attacks.html
+
 **What to Know About Project Sunrise, a 22-Hour Nonstop Flight Between London and Sydney**\
 `Qantas plans to launch the world’s longest commercial flight next year from Sydney to London, using specially manufactured Airbus jets.`\
 https://www.nytimes.com/2026/07/29/world/australia/qantas-long-haul-flight-project-sunrise.html

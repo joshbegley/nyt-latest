@@ -1,3 +1,7 @@
+**Is More Data About Your Body Actually Good for You?**\
+`The Silicon Valley health trend making doctors nervous.`\
+https://www.nytimes.com/video/opinion/100000011049045/is-more-data-about-your-body-actually-good-for-you.html
+
 **Global Oil Prices Jump as Attacks Resume in the Middle East**\
 `After several days of a lull in the direct conflict, a flare up in tensions left investors concerned about the continued flow of energy from the region.`\
 https://www.nytimes.com/2026/07/29/business/oil-prices-iran-war-us-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/us/politics/trump-zelensky-netanyahu-wars.htm
 **Lilly Yokoi, Acrobat Who Dazzled on a Golden Bicycle, Dies at 96**\
 `With her family troupe — and later as a solo star — she performed balletic, gymnastic tricks in circuses and theaters, at fairs and on television.`\
 https://www.nytimes.com/2026/07/28/theater/lilly-yokoi-dead.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/us/politics/100000011059763/28vid-casket-exit.html
 
