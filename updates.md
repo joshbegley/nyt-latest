@@ -1,3 +1,7 @@
+**Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
+`Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
+https://www.nytimes.com/2026/07/29/business/dealbook/sick-of-ai-generated-content-the-slop-janitor-is-here-to-help.html
+
 **Europe Is Burning**\
 `We look at the wildfires in France and Spain.`\
 https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html

@@ -1,3 +1,7 @@
+**Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
+`Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
+https://www.nytimes.com/2026/07/29/business/dealbook/sick-of-ai-generated-content-the-slop-janitor-is-here-to-help.html
+
 **Europe Is Burning**\
 `We look at the wildfires in France and Spain.`\
 https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/nyregion/daylight-saving-time-jewish.html
 **The Latest Sign of Knicks Fever: ‘Champions Way’ Is Headed for Auction**\
 `New York City will auction off a limited edition “Champions Way” street sign that was hung along the team’s parade route.`\
 https://www.nytimes.com/2026/07/29/nyregion/knicks-street-sign-auction.html
-
-**‘The Devil’s Mouth’ Review: Between a Shark and a Hard Place**\
-`This Thailand-set vacation thriller is neither silly nor gory enough to chum the waters for audiences at home.`\
-https://www.nytimes.com/2026/07/29/movies/the-devils-mouth-review.html
 
