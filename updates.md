@@ -1,3 +1,23 @@
+**El anfitrión que organiza fiestas para luchar por el cambio político en Cuba**\
+`En medio de apagones generalizados, David González ha convertido su casa en un oasis donde la alegría y la política empiezan a mezclarse.`\
+https://www.nytimes.com/es/2026/07/29/espanol/america-latina/cuba-fiestas-proyecto.html
+
+**Enfrenté el miedo a las alturas con un tour de ‘vía ferrata’**\
+`Un excursionista nervioso se inscribió en un recorrido de “vía ferrata” en los acantilados de un cañón de las Adirondack. Esto es lo que aprendió en las cornisas, peldaños y puentes expuestos.`\
+https://www.nytimes.com/es/2026/07/29/espanol/estilos-de-vida/miedo-alturas-acrofobia-via-ferrata.html
+
+**Summer of Heat, Fires and Storms Is a Reckoning for Europe on Climate**\
+`The continent is experiencing some of its biggest fires and highest temperatures ever. Residents are fleeing, leaders are struggling to respond and “it will get worse,” one climate expert said.`\
+https://www.nytimes.com/2026/07/29/world/europe/summer-heat-wave-fires-climate-change.html
+
+**Las mujeres son demasiado controladoras, escribió ella. Su mensaje sigue hallando eco**\
+`El mensaje de ‘La esposa entregada’, el libro más vendido de Laura Doyle, resultó provocador. Muchas mujeres aseguran que les salvó el matrimonio.`\
+https://www.nytimes.com/es/2026/07/29/espanol/la-esposa-entregada-laura-doyle.html
+
+**Trump’s Chaos Is a Job Killer**\
+`The administration’s capriciousness and the long tail of federal funding cuts.`\
+https://www.nytimes.com/2026/07/29/opinion/trump-job-market-federal-funding-us.html
+
 **Art Gallery Pop-Ups Are Occupying Empty New York Storefronts**\
 `From New York’s Hudson Valley to Brooklyn, curators are hosting pop-up art exhibitions in empty commercial spaces. Artists and brokers alike are seeing the benefits.`\
 https://www.nytimes.com/2026/07/29/realestate/site-seen-art-pop-up-empty-storefronts.html

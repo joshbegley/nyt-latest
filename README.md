@@ -1,3 +1,7 @@
+**See How the U.S. and Iran Cycle Between War and Cease-Fire**\
+`War. Cease-fire. Somewhere in between. The United States and Iran can’t stop cycling between conflict and negotiation.`\
+https://www.nytimes.com/interactive/2026/07/29/world/middleeast/iran-war-cease-fire-trump-timeline.html
+
 **El anfitrión que organiza fiestas para luchar por el cambio político en Cuba**\
 `En medio de apagones generalizados, David González ha convertido su casa en un oasis donde la alegría y la política empiezan a mezclarse.`\
 https://www.nytimes.com/es/2026/07/29/espanol/america-latina/cuba-fiestas-proyecto.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/pageoneplus/quote-of-the-day-india-student-pr
 **Moroccan Man’s Death While Restrained By Police Reverberates Across Italy**\
 `Abderrahim Fakir died after police officers pinned him to the ground. His death has evolved into a broader standoff over the treatment and role of immigrants in Italy.`\
 https://www.nytimes.com/2026/07/29/world/europe/fakir-moroccan-death-italy-police.html
-
-**Rates of High Blood Pressure Are Rising in Pregnant Women, Study Finds**\
-`Hypertension during pregnancy is associated with stillbirth, heart disease among mothers and other serious complications.`\
-https://www.nytimes.com/2026/07/29/well/high-blood-pressure-pregnancy.html
 
