@@ -1,3 +1,7 @@
+**Trump’s Tariffs Are Sending Some Companies Back to China**\
+`For some U.S. brands seeking a location for their factories, the economic logic is once again pointing to China.`\
+https://www.nytimes.com/2026/07/29/business/economy/trump-tariffs-china.html
+
 **Shipping Risks Rise Across Crucial Middle East Oil Routes**\
 `Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
