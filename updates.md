@@ -1,3 +1,27 @@
+**Israel, AIPAC and Difficult Questions for Democrats**\
+`Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\
+https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-democrats.html
+
+**ICE Arrests Surge at Airports, and Fauci’s Private Diary Faces Scrutiny**\
+`Plus, why toxic wastewater is bubbling up out of the ground.`\
+https://www.nytimes.com/2026/07/29/podcasts/the-headlines/ice-airports-fauci-diaries.html
+
+**Today’s Wordle Hints for July 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/29/crosswords/wordle-review-1867.html
+
+**NYT Strands Hints for July 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/29/crosswords/strands-sidekick-879.html
+
+**NYT Connections Answers for July 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/29/crosswords/connections-companion-1145.html
+
+**Midtown Manhattan Bookstore Crawl: Where to Shop and Recharge**\
+`This walking tour through the bustling heart of New York City includes bookstores, great reading spots and literary-themed snacks.`\
+https://www.nytimes.com/interactive/2026/07/29/books/bookstores-midtown-manhattan-nyc.html
+
 **See How the U.S. and Iran Cycle Between War and Cease-Fire**\
 `War. Cease-fire. Somewhere in between. The United States and Iran can’t stop cycling between conflict and negotiation.`\
 https://www.nytimes.com/interactive/2026/07/29/world/middleeast/iran-war-cease-fire-trump-timeline.html
