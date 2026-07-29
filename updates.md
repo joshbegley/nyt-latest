@@ -1,3 +1,23 @@
+**Con el brote de ‘Cyclospora’ surgen desinformación y conspiraciones**\
+`En plataformas como X y TikTok, la conversación sobre Taylor Farms está dominada por especulaciones políticas.`\
+https://www.nytimes.com/es/2026/07/29/espanol/cyclospora-taylor-farms-desinformacion.html
+
+**The Latest Sign of Knicks Fever: ‘Champions Way’ Is Headed for Auction**\
+`New York City will auction off a limited edition “Champions Way” street sign that was hung along the team’s parade route.`\
+https://www.nytimes.com/2026/07/29/nyregion/knicks-street-sign-auction.html
+
+**Why Some Orthodox Jews Oppose Permanent Daylight Saving Time**\
+`Orthodox Jewish leaders have lobbied against the Sunshine Protection Act since it was passed by the House of Representatives in July, joining an unlikely coalition of opponents.`\
+https://www.nytimes.com/2026/07/29/nyregion/daylight-saving-time-jewish.html
+
+**‘The Devil’s Mouth’ Review: Between a Shark and a Hard Place**\
+`This Thailand-set vacation thriller is neither silly nor gory enough to chum the waters for audiences at home.`\
+https://www.nytimes.com/2026/07/29/movies/the-devils-mouth-review.html
+
+**NYT Spelling Bee Answers for July 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/29/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Weighs In on Trump and Kennedy**\
 `The “Tonight Show” host surmised that Trump might be regretting “picking a health secretary who lives on raccoon meat and Zyn pouches.”`\
 https://www.nytimes.com/2026/07/29/arts/television/jimmy-fallon-rfk-jr-trump.html
