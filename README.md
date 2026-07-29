@@ -1,3 +1,11 @@
+**Lawyer Who Represented Trump Is Appointed U.S. Attorney in Manhattan**\
+`Federal court judges appointed James M. McDonald, a former federal prosecutor, to the post. He represented President Trump in his appeal of his criminal conviction.`\
+https://www.nytimes.com/2026/07/29/nyregion/trump-attorney-james-mcdonald-manhattan.html
+
+**What We Really Learned From the Fauci Hearing**\
+`Show trials are bad for democracy.`\
+https://www.nytimes.com/2026/07/29/opinion/anthony-fauci-hearing-covid.html
+
 **Government Borrowing Cost Hits Two-Decade High After Fed Rate Decision**\
 `The surge in Treasury yields suggests investors doubt that the Federal Reserve can keep inflation contained.`\
 https://www.nytimes.com/2026/07/29/business/economy/treasury-yields-fed-inflation.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
-
-**Fed Holds Rates Steady but Three Officials Back Increase**\
-`Kevin M. Warsh’s second meeting as chairman of the Federal Reserve was colored by internal divisions over the path forward for policy.`\
-https://www.nytimes.com/2026/07/29/business/economy/what-to-watch-at-the-meeting.html
-
-**Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
-`The kingdom’s defense ministry said airstrikes in Iraq targeting Iran-backed militias were in retaliation for attacks on Saudi oil facilities this week.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-us-iran-war.html
 

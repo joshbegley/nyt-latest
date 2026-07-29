@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/07/29/dining/emeril-lagasse.html
 `Using a microwave to cook lemon curd streamlines the entire process, and eliminates the need to stand over the stove whisking constantly. The result is silky-smooth and as tart as you like.`\
 https://www.nytimes.com/video/dining/100000011061816/the-easiest-lemon-curd.html
 
-**Ten Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
+**10 Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
 `The accusations include sex with underage girls and sexually explicit messages. The actor denied the allegations.`\
 https://www.nytimes.com/2026/07/29/us/jared-leto-sexual-assault-bbc.html
 

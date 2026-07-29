@@ -1,3 +1,7 @@
+**10 Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
+`The accusations include sex with underage girls and sexually explicit messages. The actor denied the allegations.`\
+https://www.nytimes.com/2026/07/29/us/jared-leto-sexual-assault-bbc.html
+
 **Government Borrowing Cost Hits Two-Decade High After Fed Rate Decision**\
 `The surge in Treasury yields suggests investors doubt that the Federal Reserve can keep inflation contained.`\
 https://www.nytimes.com/2026/07/29/business/economy/treasury-yields-fed-inflation.html
