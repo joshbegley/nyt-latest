@@ -130,6 +130,10 @@ https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
+**Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-makes-a-reluctant-entry-into-the-us-iran-war.html
+
 **Today, In Short**\
 `Beluga whales. Pizza renaissance. And travel journals.`\
 https://www.nytimes.com/2026/07/29/briefing/today-in-short.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/29/well/move/pacer-test-gen-z-fitness.html
 **Could Jettisoning CNN Save the Paramount Merger?**\
 `It’s a thorn in the side of David Ellison’s paused dream.`\
 https://www.nytimes.com/2026/07/29/opinion/cnn-paramount-warner-bros-merger-ellison.html
-
-**Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
-`The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
-https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
 
