@@ -1,3 +1,11 @@
+**Corrections: July 29, 2026**\
+`Corrections that appeared in print on Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
+
+**Glen Hansard, Frontman of Irish Band the Frames, Dies at 56**\
+`The Irish singer-songwriter, who won an Oscar for the song “Falling Slowly” from the movie “Once,” died in a motorcycle crash.`\
+https://www.nytimes.com/2026/07/29/obituaries/glen-hansard-dead.html
+
 **Big Tech Turmoil Clouds the A.I. Earnings Picture**\
 `The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/29/world/australia/qantas-long-haul-flight-proje
 **South Korea’s Memory Chip Giant Defies A.I. Market Jitters**\
 `SK Hynix, a leading memory chipmaker, reported stratospheric sales and profits on Wednesday. But it was not enough to calm skittish investors.`\
 https://www.nytimes.com/2026/07/29/business/skhynix-chips-memory.html
-
-**Rescuers Search for Survivors After Deadly Earthquake Hits Japan**\
-`Rescue personnel rushed to save people trapped in collapsed buildings on Wednesday after a 6.8-magnitude earthquake rocked southwest Japan.`\
-https://www.nytimes.com/video/world/asia/100000011060361/japan-earthquake-rescue-survivors.html
-
-**Con el brote de ‘Cyclospora’ surgen desinformación y conspiraciones**\
-`En plataformas como X y TikTok, la conversación sobre Taylor Farms está dominada por especulaciones políticas.`\
-https://www.nytimes.com/es/2026/07/29/espanol/cyclospora-taylor-farms-desinformacion.html
 

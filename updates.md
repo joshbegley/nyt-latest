@@ -1,3 +1,11 @@
+**Corrections: July 29, 2026**\
+`Corrections that appeared in print on Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
+
+**Glen Hansard, Frontman of Irish Band the Frames, Dies at 56**\
+`The Irish singer-songwriter, who won an Oscar for the song “Falling Slowly” from the movie “Once,” died in a motorcycle crash.`\
+https://www.nytimes.com/2026/07/29/obituaries/glen-hansard-dead.html
+
 **Why Do We Tolerate Elon Musk’s Racist Commentary?**\
 `Why does the owner of X get a pass for what he says and does there?`\
 https://www.nytimes.com/2026/07/29/opinion/elon-musk-far-right-remigration.html
