@@ -1,3 +1,7 @@
+**South Korea’s Memory Chip Giant Defies A.I. Market Jitters**\
+`SK Hynix, a leading memory chipmaker, reported stratospheric sales and profits on Wednesday. But it was not enough to calm skittish investors.`\
+https://www.nytimes.com/2026/07/29/business/skhynix-chips-memory.html
+
 **Rescuers Search for Survivors After Deadly Earthquake Hits Japan**\
 `Rescue personnel rushed to save people trapped in collapsed buildings on Wednesday after a 6.8-magnitude earthquake rocked southwest Japan.`\
 https://www.nytimes.com/video/world/asia/100000011060361/japan-earthquake-rescue-survivors.html
