@@ -1,3 +1,11 @@
+**Michelle Obama and Justice Jackson Talk Work-Life Balance and Public Service**\
+`Justice Ketanji Brown Jackson’s appearance on the former first lady’s podcast was a rare meeting of the two powerful, popular Black women.`\
+https://www.nytimes.com/2026/07/29/us/politics/michelle-obama-justice-jackson-podcast.html
+
+**As Trump Squeezes Cuba, He Plans to Send Cuban Deportees to Uruguay**\
+`The State Department under Secretary of State Marco Rubio has deported Cubans to Africa. Now it’s negotiating with a South American country.`\
+https://www.nytimes.com/2026/07/29/us/politics/trump-cuban-deportees-uruguay.html
+
 **Hezbollah Attacks Strategic Area in Southern Lebanon, Israel Says**\
 `The Israeli military said the Iran-backed militant group had used an explosive drone to target one of its vehicles on a strategic ridge, raising fears of a renewed escalation.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/israel-hezbollah-lebanon.html

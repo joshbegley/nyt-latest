@@ -48,7 +48,7 @@ https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
 
 **Glen Hansard, Frontman of Irish Band the Frames, Dies at 56**\
 `The Irish singer-songwriter, who won an Oscar for the song “Falling Slowly” from the movie “Once,” died in a motorcycle crash.`\
-https://www.nytimes.com/2026/07/29/obituaries/glen-hansard-dead.html
+https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
 
 **Big Tech Turmoil Clouds the A.I. Earnings Picture**\
 `The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
