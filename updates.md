@@ -1,3 +1,23 @@
+**Salman Rushdie’s Attacker Found Guilty of Aiding a Foreign Terror Group**\
+`Hadi Matar stabbed Mr. Rushdie repeatedly at a literary conference in 2022 and could spend the rest of his life in prison.`\
+https://www.nytimes.com/2026/07/29/nyregion/hadi-matar-salman-rushdie-terror.html
+
+**What Our Epstein Outrage Has Obscured**\
+`It’s easy to shake our fists at a monster. It would be more effective to actually help exploited girls.`\
+https://www.nytimes.com/2026/07/29/opinion/sex-trafficking-epstein-exploited.html
+
+**The Summer That Broke Europe**\
+`Record heat and wildfires are devastating the continent, and scientists warn the climate crisis is getting worse.`\
+https://www.nytimes.com/2026/07/29/world/europe-summer-heat-fires-saudi.html
+
+**Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
+`Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
+https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
+
+**Fed Holds Rates Steady but Three Officials Back Increase**\
+`Kevin M. Warsh’s second meeting as chairman of the Federal Reserve was colored by internal divisions over the path forward for policy.`\
+https://www.nytimes.com/2026/07/29/business/economy/what-to-watch-at-the-meeting.html
+
 **Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
 `Discoveries that chronic inflammation can lead to myriad illnesses could be this century’s biggest medical breakthrough.`\
 https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html

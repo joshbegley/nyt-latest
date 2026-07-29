@@ -1,3 +1,15 @@
+**Salman Rushdie’s Attacker Found Guilty of Aiding a Foreign Terror Group**\
+`Hadi Matar stabbed Mr. Rushdie repeatedly at a literary conference in 2022 and could spend the rest of his life in prison.`\
+https://www.nytimes.com/2026/07/29/nyregion/hadi-matar-salman-rushdie-terror.html
+
+**What Our Epstein Outrage Has Obscured**\
+`It’s easy to shake our fists at a monster. It would be more effective to actually help exploited girls.`\
+https://www.nytimes.com/2026/07/29/opinion/sex-trafficking-epstein-exploited.html
+
+**The Summer That Broke Europe**\
+`Record heat and wildfires are devastating the continent, and scientists warn the climate crisis is getting worse.`\
+https://www.nytimes.com/2026/07/29/world/europe-summer-heat-fires-saudi.html
+
 **Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
 `Discoveries that chronic inflammation can lead to myriad illnesses could be this century’s biggest medical breakthrough.`\
 https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
@@ -142,12 +154,12 @@ https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.
 `The former president is trying to help Josh Turek net a Senate seat in Iowa, which Democrats see as one of their best pickup opportunities of the midterms.`\
 https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
 
-**Live Updates: Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
+**Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
-**What to know about the Fed’s decision.**\
-`Kevin M. Warsh, presiding over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
+**Fed Holds Rates Steady but Three Officials Back Increase**\
+`Kevin M. Warsh’s second meeting as chairman of the Federal Reserve was colored by internal divisions over the path forward for policy.`\
 https://www.nytimes.com/2026/07/29/business/economy/what-to-watch-at-the-meeting.html
 
 **Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
@@ -177,16 +189,4 @@ https://www.nytimes.com/es/2026/07/29/espanol/mundo/espana-francia-incendios-ola
 **Canada’s Answer to Trump’s Tariffs: More Energy Deals With Europe**\
 `The Carney government’s agreement with a German natural gas company will also reduce Europe’s dependence on a Qatari supply made more uncertain by war.`\
 https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-tariffs.html
-
-**St. Mary’s, Newfoundland, Will No Longer Reek of Rotten Fish Sauce**\
-`In Newfoundland, 20-year-old smelly sludge will finally be removed.`\
-https://www.nytimes.com/2026/07/29/world/canada/fish-sauce-plant-canada-st-marys.html
-
-**Maps: Series of Earthquakes Shakes the Philippines**\
-`View the locations of the quake epicenters and shake areas.`\
-https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
-
-**Why Are We Polling Now?**\
-`A poll is a snapshot of a given time in the election cycle. Polls shared months before an election enable our readers to have access to the same information campaigns and political leaders have about public sentiment.`\
-https://www.nytimes.com/video/insider/100000010994124/why-are-we-polling-now.html
 
