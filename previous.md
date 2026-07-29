@@ -1,3 +1,7 @@
+**Japan Races to Reach People Trapped After Earthquake Kills at Least 13**\
+`Rescue personnel are working to free those trapped in collapsed buildings after a 6.8-magnitude earthquake struck Kumamoto on Tuesday.`\
+https://www.nytimes.com/2026/07/28/world/asia/japan-earthquake-kumamoto-rescue-survivors.html
+
 **NYT Crossword Answers for July 29, 2026**\
 `Emily Biegas and Sala Wanetick emerge victorious.`\
 https://www.nytimes.com/2026/07/28/crosswords/daily-puzzle-2026-07-29.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/dining/restaurant-review-arthur-nyc.html
 **Masa Madre Makes New York City’s Most Unforgettable Concha**\
 `In the first episode of “A Little Treat With Nikita Richardson,” we visit this artisanal Mexican bakery in Sunnyside, Queens.`\
 https://www.nytimes.com/2026/07/28/dining/little-treat-conchas-masa-madre.html
-
-**Linda Perhacs, Experimental Folk Singer, Is Reported Missing**\
-`Friends of the influential psychedelic folk songwriter said they had been unable to reach her since her discharge from a care facility eight months ago.`\
-https://www.nytimes.com/2026/07/28/arts/music/linda-perhacs-missing-folk-music.html
 
