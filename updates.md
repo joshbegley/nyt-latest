@@ -1,3 +1,31 @@
+**Quote of the Day: India Student Protests Spur Wider Discussion on Education System**\
+`Quotation of the Day for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/29/pageoneplus/quote-of-the-day-india-student-protests-spur-wider-discussion-on-education-system.html
+
+**Moroccan Man’s Death While Restrained By Police Reverberates Across Italy**\
+`Abderrahim Fakir died after police officers pinned him to the ground. His death has evolved into a broader standoff over the treatment and role of immigrants in Italy.`\
+https://www.nytimes.com/2026/07/29/world/europe/fakir-moroccan-death-italy-police.html
+
+**Rates of High Blood Pressure Are Rising in Pregnant Women, Study Finds**\
+`Hypertension during pregnancy is associated with stillbirth, heart disease among mothers and other serious complications.`\
+https://www.nytimes.com/2026/07/29/well/high-blood-pressure-pregnancy.html
+
+**Some Jordanians Demand that American Troops Leave the Kingdom**\
+`Hundreds of political, legal and other figures signed a public letter warning that Jordan’s close alliance with the United States poses a risk.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/some-jordanians-dare-to-speak-out-against-us-troop-presence.html
+
+**Amid Myanmar’s Civil War, the Rich Seek Parties and ‘Positive Vibes Only’**\
+`The lifestyles of the wealthy in Myanmar — nightclubs, caviar and trips abroad — have been largely untouched by years of deadly conflict.`\
+https://www.nytimes.com/2026/07/29/world/asia/this-country-is-ravaged-by-war-but-its-rich-feel-positive-vibes-only.html
+
+**Some Northern Ireland Loyalists Embrace an Anti-Immigrant Ideology**\
+`Northern Ireland’s Protestant loyalists have long felt their identity was under siege. Now anti-immigrant ideology has found a new toehold here.`\
+https://www.nytimes.com/2026/07/29/world/europe/northern-ireland-belfast-protestant-loyalists-immigration-violence.html
+
+****\
+`Dancing at the Pioneer Plus.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011050724/26int-myanmar-rich-19486.html
+
 **Iran War Live Updates: U.S. and Saudi Arabia Target Iranian Proxies**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq. The Iranian military said it had targeted American military assets in Jordan.`\
 https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump

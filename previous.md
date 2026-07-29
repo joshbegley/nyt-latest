@@ -1,3 +1,31 @@
+**Quote of the Day: India Student Protests Spur Wider Discussion on Education System**\
+`Quotation of the Day for Wednesday, July 29, 2026.`\
+https://www.nytimes.com/2026/07/29/pageoneplus/quote-of-the-day-india-student-protests-spur-wider-discussion-on-education-system.html
+
+**Moroccan Man’s Death While Restrained By Police Reverberates Across Italy**\
+`Abderrahim Fakir died after police officers pinned him to the ground. His death has evolved into a broader standoff over the treatment and role of immigrants in Italy.`\
+https://www.nytimes.com/2026/07/29/world/europe/fakir-moroccan-death-italy-police.html
+
+**Rates of High Blood Pressure Are Rising in Pregnant Women, Study Finds**\
+`Hypertension during pregnancy is associated with stillbirth, heart disease among mothers and other serious complications.`\
+https://www.nytimes.com/2026/07/29/well/high-blood-pressure-pregnancy.html
+
+**Some Jordanians Demand that American Troops Leave the Kingdom**\
+`Hundreds of political, legal and other figures signed a public letter warning that Jordan’s close alliance with the United States poses a risk.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/some-jordanians-dare-to-speak-out-against-us-troop-presence.html
+
+**Amid Myanmar’s Civil War, the Rich Seek Parties and ‘Positive Vibes Only’**\
+`The lifestyles of the wealthy in Myanmar — nightclubs, caviar and trips abroad — have been largely untouched by years of deadly conflict.`\
+https://www.nytimes.com/2026/07/29/world/asia/this-country-is-ravaged-by-war-but-its-rich-feel-positive-vibes-only.html
+
+**Some Northern Ireland Loyalists Embrace an Anti-Immigrant Ideology**\
+`Northern Ireland’s Protestant loyalists have long felt their identity was under siege. Now anti-immigrant ideology has found a new toehold here.`\
+https://www.nytimes.com/2026/07/29/world/europe/northern-ireland-belfast-protestant-loyalists-immigration-violence.html
+
+****\
+`Dancing at the Pioneer Plus.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011050724/26int-myanmar-rich-19486.html
+
 **Iran War Live Updates: U.S. and Saudi Arabia Target Iranian Proxies**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq. The Iranian military said it had targeted American military assets in Jordan.`\
 https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/07/28/movies/urbanworld-writers-guild-ai.html
 **Senate Advances Graham’s Russia Sanctions Bill**\
 `As Washington remembered Senator Lindsey Graham, his colleagues cleared away a hurdle to passage of his long-stalled bill to penalize Moscow.`\
 https://www.nytimes.com/2026/07/28/us/politics/senators-russia-sanctions-bill-graham.html
-
-**Trump’s Spy Chief Spends Final Hours in Job Boasting of Mass Firings**\
-`Bill Pulte, the acting director of national intelligence, said he has terminated nearly a third of the officials in his office, but others doubt the figures are accurate.`\
-https://www.nytimes.com/2026/07/28/us/politics/spy-chief-bill-pulte-final-hours.html
-
-**Graham and Netanyahu Worked Together to Denounce International Criminal Court**\
-`Senator Lindsey Graham helped to coordinate a group of lawmakers to rebuke the I.C.C., which was investigating Prime Minister Benjamin Netanyahu of Israel.`\
-https://www.nytimes.com/2026/07/28/us/politics/graham-netanyahu-documentary-icc.html
-
-**Obama to Headline Democratic Redistricting Fund-Raiser**\
-`After exhausting their gerrymandering options in 2026, the party is hoping to redraw more congressional maps ahead of the next election cycle.`\
-https://www.nytimes.com/2026/07/28/us/politics/obama-fund-raiser-marthas-vineyard-redistricting.html
-
-**Georgia Teen Is Sentenced to Life for Deadly School Shooting**\
-`The boy pleaded guilty to 55 charges stemming from the 2024 attack at Apalachee High School in Winder, Ga., that killed two students and two teachers.`\
-https://www.nytimes.com/2026/07/28/us/colt-gray-sentenced-apalachee-high-school-shooting.html
-
-**New York Museum Misused $597,000 in Federal Funds, Investigators Say**\
-`Investigators said museum leaders compelled staff members to inflate time sheets and improperly draw on funds meant for a geological survey.`\
-https://www.nytimes.com/2026/07/28/nyregion/fraud-museum-new-york.html
-
-**‘Spider-Man: Brand New Day’ Review: Can We Do Whatever a Spider Can?**\
-`The Spider-Man series is about growing up. Now its superhero has become an adult.`\
-https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html
-
-**Restaurant Review: Arthur in New York**\
-`At their new Greenpoint restaurant, Kevin and Lexy Finch are betting that New Yorkers want more than steak frites.`\
-https://www.nytimes.com/2026/07/28/dining/restaurant-review-arthur-nyc.html
 
