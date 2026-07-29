@@ -1,3 +1,7 @@
+**David Hirsch, Who Turned Sonoma Coast Into World-Class Wine Region, Dies at 81**\
+`He helped establish a windswept part of California as a source for great American pinot noir and chardonnay grapes, and later built his own winery.`\
+https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
+
 **Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
 `Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
 https://www.nytimes.com/2026/07/29/us/patrick-clancy-lindsay-trial.html
