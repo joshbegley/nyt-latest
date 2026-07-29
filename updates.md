@@ -1,3 +1,7 @@
+**Eviction Filings Have Dipped in Many Places, but Not Here**\
+`Why Minnesota is an exception to an otherwise positive national trend.`\
+https://www.nytimes.com/2026/07/29/headway/eviction-filings-minnesota-housing.html
+
 **Crowds in Gaza Rush to Safety as Israel Strikes a Mosque**\
 `Palestinians in Gaza City rushed to evacuate as the Israeli military bombed a mosque near an encampment for the displaced. The Israeli military said the mosque had been used to store weapons for Hamas, a claim Gaza’s government denied. No deaths were reported.`\
 https://www.nytimes.com/video/world/middleeast/100000011060539/gaza-israel-mosque-strike.html

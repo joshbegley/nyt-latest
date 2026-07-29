@@ -1,3 +1,7 @@
+**Eviction Filings Have Dipped in Many Places, but Not Here**\
+`Why Minnesota is an exception to an otherwise positive national trend.`\
+https://www.nytimes.com/2026/07/29/headway/eviction-filings-minnesota-housing.html
+
 **Crowds in Gaza Rush to Safety as Israel Strikes a Mosque**\
 `Palestinians in Gaza City rushed to evacuate as the Israeli military bombed a mosque near an encampment for the displaced. The Israeli military said the mosque had been used to store weapons for Hamas, a claim Gaza’s government denied. No deaths were reported.`\
 https://www.nytimes.com/video/world/middleeast/100000011060539/gaza-israel-mosque-strike.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
 **Fauci Pleads the Fifth, Refusing to Answer Questions on Covid Origins at Senate Hearing**\
 `The panel’s chairman, Rand Paul, has long accused Dr. Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
-
-**Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
-`Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
-https://www.nytimes.com/2026/07/29/business/dealbook/pangram-ai-slop-detection.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
