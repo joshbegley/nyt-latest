@@ -1,3 +1,7 @@
+**Fauci and His Senate Nemesis Rand Paul to Face Off in Hearing**\
+`The Kentucky Republican has accused Dr. Anthony Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
+https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
+
 **Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
 `Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/sick-of-ai-generated-content-the-slop-janitor-is-here-to-help.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/es/2026/07/29/espanol/cyclospora-taylor-farms-desinforma
 **Why Some Orthodox Jews Oppose Permanent Daylight Saving Time**\
 `Orthodox Jewish leaders have lobbied against the Sunshine Protection Act since it was passed by the House of Representatives in July, joining an unlikely coalition of opponents.`\
 https://www.nytimes.com/2026/07/29/nyregion/daylight-saving-time-jewish.html
-
-**The Latest Sign of Knicks Fever: ‘Champions Way’ Is Headed for Auction**\
-`New York City will auction off a limited edition “Champions Way” street sign that was hung along the team’s parade route.`\
-https://www.nytimes.com/2026/07/29/nyregion/knicks-street-sign-auction.html
 

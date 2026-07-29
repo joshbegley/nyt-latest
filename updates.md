@@ -1,3 +1,7 @@
+**Fauci and His Senate Nemesis Rand Paul to Face Off in Hearing**\
+`The Kentucky Republican has accused Dr. Anthony Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
+https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
+
 **Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
 `Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/sick-of-ai-generated-content-the-slop-janitor-is-here-to-help.html
