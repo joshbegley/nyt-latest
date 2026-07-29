@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/07/29/business/dealbook/pangram-ai-slop-detection.h
 https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html
 
 **Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
-`The charges against Pavel Durov reflected an ongoing fight over one of the most popular messaging and media apps in the country.`\
+`The case against Pavel Durov reflected an ongoing fight over one of the world’s most popular messaging and media apps, which is widely used in the country.`\
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
 
 **Wildfires Slow in France and Spain, but Worse May Be Ahead**\
