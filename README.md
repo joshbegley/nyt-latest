@@ -1,3 +1,7 @@
+**The Doctor and His Diary: What Fauci’s Innermost Musings Reveal**\
+`Dr. Anthony S. Fauci seemed to be the life of the party, even in the midst of a deadly pandemic.`\
+https://www.nytimes.com/2026/07/28/us/politics/the-doctor-and-his-diary-what-faucis-innermost-musings-reveal.html
+
 **2 Wheels, 14 Days, 2,448 Miles: A Motorcycle Tour of Route 66**\
 `To mark the road’s 100th anniversary, a Times journalist rode the length of it to see what’s become of America’s most storied highway.`\
 https://www.nytimes.com/interactive/2026/07/28/travel/route-66-anniversary-chicago-santa-monica.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/nyregion/noncitizen-voting-new-jersey-sherril
 **Fossil Fuel Executives Cash In**\
 `Insiders at leading oil and gas companies have made millions from stocks since the Iran war began.`\
 https://www.nytimes.com/2026/07/28/climate/fossil-fuel-executives-stocks-iran.html
-
-**Iran Hangs Protesters as Executions Surge, Rights Groups Say**\
-`Human rights activists say the Iranian government has been rapidly escalating executions. The latest prompted public protest, videos appear to show.`\
-https://www.nytimes.com/2026/07/28/world/middleeast/iran-hanging-protesters.html
 
