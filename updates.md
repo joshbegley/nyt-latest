@@ -1,3 +1,11 @@
+**The Woman Behind Emma M. Lion**\
+`Beth Brower has been self-publishing for a decade. But her series drawn from the cheeky “journals” of a young woman in Victorian England has been a breakout.`\
+https://www.nytimes.com/2026/07/29/books/review/beth-brower-unselected-journals-of-emma-m-lion.html
+
+**Trump Demanded Details of Agents’ Interview of Comey, New Filing Says**\
+`The demand suggests the intense personal involvement of President Trump in investigating one of his longtime critics, the former F.B.I. director James B. Comey.`\
+https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service.html
+
 **Israel Strikes Mosque in Gaza City**\
 `The Israeli military accused Hamas of using the mosque to store weapons. The Hamas-run government’s media office said Israel’s claims aimed to justify its attacks on mosques.`\
 https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
