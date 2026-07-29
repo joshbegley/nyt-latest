@@ -1,3 +1,7 @@
+**Fires Slow in France and Spain, but Worse May Be Ahead**\
+`Officials said they had contained the spread of vast fires in both countries, but warned that rising temperatures and high winds meant the situation was still fluid.`\
+https://www.nytimes.com/2026/07/29/world/europe/europe-fires-spain-france.html
+
 **Israel, AIPAC and Difficult Questions for Democrats**\
 `Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\
 https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-democrats.html

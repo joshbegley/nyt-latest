@@ -1,3 +1,7 @@
+**Fires Slow in France and Spain, but Worse May Be Ahead**\
+`Officials said they had contained the spread of vast fires in both countries, but warned that rising temperatures and high winds meant the situation was still fluid.`\
+https://www.nytimes.com/2026/07/29/world/europe/europe-fires-spain-france.html
+
 **Israel, AIPAC and Difficult Questions for Democrats**\
 `Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\
 https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/crosswords/spelling-bee-forum.html
 **Jimmy Fallon Weighs In on Trump and Kennedy**\
 `The “Tonight Show” host surmised that Trump might be regretting “picking a health secretary who lives on raccoon meat and Zyn pouches.”`\
 https://www.nytimes.com/2026/07/29/arts/television/jimmy-fallon-rfk-jr-trump.html
-
-**ICE aumenta los arrestos en aeropuertos de EE. UU.**\
-`Agentes federales están arrestando a cónyuges de estadounidenses, trabajadores tecnológicos y otras personas con visas vencidas, incluidas muchas que tienen solicitudes activas para quedarse.`\
-https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/ice-arrestos-aeropuertos.html
 
