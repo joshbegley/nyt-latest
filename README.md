@@ -1,3 +1,7 @@
+**How to Change Your Image as a Heartless Luxury Titan Overnight**\
+`Bernard Arnault, the chairman of LVMH, makes an unexpected social media move.`\
+https://www.nytimes.com/2026/07/29/style/bernard-arnault-open-letter-x.html
+
 **BTS Won’t Enter Music From Comeback Album for Grammy Awards**\
 `The group’s decision comes a month after the Recording Academy announced five new award categories, including one for Best Asian Pop Music Performance.`\
 https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-category.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/07/29/obituaries/glen-hansard-dead.html
 `The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
 
-**Fauci and His Senate Nemesis Rand Paul to Face Off in Hearing**\
-`The Kentucky Republican has accused Dr. Anthony Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
+**Fauci Invokes the Fifth Amendment, Refusing to Answer Senate Committee Questions**\
+`The panel’s chairman, Rand Paul, has long accused Dr. Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
 
 **Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/07/29/briefing/europe-is-burning.html
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
 
 **Wildfires Slow in France and Spain, but Worse May Be Ahead**\
-`Firefighters have contained vast fires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
+`Firefighters have contained vast wildfires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
 https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
 
 **Israel, AIPAC and Difficult Questions for Democrats**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011049045/is-more-data-about-your-bo
 **Global Oil Prices Jump as Attacks Resume in the Middle East**\
 `After several days of a lull in the direct conflict, a flare up in tensions left investors concerned about the continued flow of energy from the region.`\
 https://www.nytimes.com/2026/07/29/business/oil-prices-iran-war-us-attacks.html
-
-**What to Know About Project Sunrise, a 22-Hour Nonstop Flight Between London and Sydney**\
-`Qantas plans to launch the world’s longest commercial flight next year from Sydney to London, using specially manufactured Airbus jets.`\
-https://www.nytimes.com/2026/07/29/world/australia/qantas-long-haul-flight-project-sunrise.html
 
