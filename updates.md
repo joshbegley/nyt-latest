@@ -1,3 +1,7 @@
+**Muere Kavinsky, DJ francés, a los 50 años**\
+`El músico, cuyo nombre real era Vincent Belorgey, era conocido por su éxito de 2010 “Nightcall”, que apareció en la película “Drive”.`\
+https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
+
 **Vote on Blanche in Doubt After Senators Express Skepticism Over I.R.S. Provision**\
 `Senators John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html

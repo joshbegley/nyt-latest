@@ -1,3 +1,7 @@
+**Muere Kavinsky, DJ francés, a los 50 años**\
+`El músico, cuyo nombre real era Vincent Belorgey, era conocido por su éxito de 2010 “Nightcall”, que apareció en la película “Drive”.`\
+https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
+
 **Vote on Blanche in Doubt After Senators Express Skepticism Over I.R.S. Provision**\
 `Senators John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-
 **Corrections: July 29, 2026**\
 `Corrections that appeared in print on Wednesday, July 29, 2026.`\
 https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
-
-**Glen Hansard, Oscar-Winning Frontman of Irish Band the Frames, Dies at 56**\
-`The popular singer-songwriter won, with Markéta Irglová, an Oscar for the song “Falling Slowly” from the film “Once.”`\
-https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
