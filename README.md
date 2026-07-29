@@ -1,3 +1,7 @@
+**Man Who Rammed Car Into Synagogue Sentenced to One More Week in Jail**\
+`Dan Sohail, who has spent six months in detention, pleaded guilty to damaging religious property in Brooklyn. The judge said that he needed mental health treatment and had not acted out of hate.`\
+https://www.nytimes.com/2026/07/29/nyregion/chabad-brooklyn-synagogue-car-ramming.html
+
 **Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
 `Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
 **Shipping Risks Spread Across Crucial Middle East Oil Routes**\
 `Attacks on ships in the Strait of Hormuz and the Bab al-Mandab Strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
-
-**Why Republicans Aren’t Funding the Texas Senate Race Yet**\
-`The peculiar dynamic is playing out in Texas, where the fate of the Republican nominee, Ken Paxton, will help decide which party controls the U.S. Senate.`\
-https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
