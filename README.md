@@ -1,3 +1,11 @@
+**The Easiest Lemon Curd**\
+`Using a microwave to cook lemon curd streamlines the entire process, and eliminates the need to stand over the stove whisking constantly. The result is silky-smooth and as tart as you like.`\
+https://www.nytimes.com/video/dining/100000011061816/the-easiest-lemon-curd.html
+
+**Ten Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
+`The accusations include sex with underage girls and sexually explicit messages. The actor denied the allegations.`\
+https://www.nytimes.com/2026/07/29/us/jared-leto-sexual-assault-bbc.html
+
 **Incendios en Europa: la llegada de una ‘nueva era de megaincendios’**\
 `El declive de la actividad agrícola en el continente europeo ha cambiado los mosaicos de pastizales y campos arados por vegetación silvestre que arde intensamente durante los veranos calurosos y secos.`\
 https://www.nytimes.com/es/2026/07/29/espanol/tiempo-y-clima/espana-mega-incendios-francia-cambio-climatico.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/07/29/us/politics/michelle-obama-justice-jackson-po
 **As Trump Squeezes Cuba, He Plans to Send Cuban Deportees to Uruguay**\
 `The State Department under Secretary of State Marco Rubio has deported Cubans to Africa. Now it’s negotiating with a South American country.`\
 https://www.nytimes.com/2026/07/29/us/politics/trump-cuban-deportees-uruguay.html
-
-**Hezbollah Attacks Strategic Area in Southern Lebanon, Israel Says**\
-`The Israeli military said the Iran-backed militant group had used an explosive drone to target one of its vehicles on a strategic ridge, raising fears of a renewed escalation.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/israel-hezbollah-lebanon.html
-
-**The Woman Behind Emma M. Lion**\
-`Beth Brower has been self-publishing for a decade. But her series drawn from the cheeky “journals” of a young woman in Victorian England has been a breakout.`\
-https://www.nytimes.com/2026/07/29/books/review/beth-brower-unselected-journals-of-emma-m-lion.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\

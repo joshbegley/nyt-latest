@@ -1,3 +1,7 @@
+**Incendios en Europa: la llegada de una ‘nueva era de megaincendios’**\
+`El declive de la actividad agrícola en el continente europeo ha cambiado los mosaicos de pastizales y campos arados por vegetación silvestre que arde intensamente durante los veranos calurosos y secos.`\
+https://www.nytimes.com/es/2026/07/29/espanol/tiempo-y-clima/espana-mega-incendios-francia-cambio-climatico.html
+
 **4 Takeaways From the Federal Reserve Meeting**\
 `Fed officials held interest rates steady, but they have splintered over how to fight inflation.`\
 https://www.nytimes.com/2026/07/29/business/economy/fed-meeting-interest-rates-takeaways.html
