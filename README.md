@@ -1,3 +1,7 @@
+**South Korea’s Memory Chip Giant Defies A.I. Market Jitters**\
+`SK Hynix, a leading memory chipmaker, reported stratospheric sales and profits on Wednesday. But it was not enough to calm skittish investors.`\
+https://www.nytimes.com/2026/07/29/business/skhynix-chips-memory.html
+
 **Rescuers Search for Survivors After Deadly Earthquake Hits Japan**\
 `Rescue personnel rushed to save people trapped in collapsed buildings on Wednesday after a 6.8-magnitude earthquake rocked southwest Japan.`\
 https://www.nytimes.com/video/world/asia/100000011060361/japan-earthquake-rescue-survivors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011055643/ice-tsa-airport-arrests-expired
 **Houthis Claim Strike on Another Saudi Oil Tanker**\
 `With their ally, Iran, bottling up the Strait of Hormuz, the Houthi group in Yemen is escalating its declared blockade of Saudi shipping in another vital waterway, the Red Sea.`\
 https://www.nytimes.com/2026/07/28/world/middleeast/houthis-strike-saudi-tanker.html
-
-**A Blunt Warning for Israel**\
-`Jewish terrorism is also a threat to Zionism.`\
-https://www.nytimes.com/2026/07/28/opinion/israel-settlers-west-bank.html
 
