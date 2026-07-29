@@ -1,3 +1,7 @@
+**Un ciudadano de EE. UU. borró los datos de su teléfono. Ahora enfrenta un cargo por delito grave**\
+`Fiscales federales acusaron a un hombre que regresaba al país de obstrucción después de que dio un código de acceso que borró la información de su celular durante una inspección de aduanas.`\
+https://www.nytimes.com/es/2026/07/29/espanol/aduana-estados-unidos-telefono-borrar-datos.html
+
 **Eviction Filings Have Dipped in Many Places, but Not Here**\
 `Why Minnesota is an exception to an otherwise positive national trend.`\
 https://www.nytimes.com/2026/07/29/headway/eviction-filings-minnesota-housing.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
 **Big Tech Turmoil Clouds the A.I. Earnings Picture**\
 `The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
-
-**Fauci Pleads the Fifth, Refusing to Answer Questions on Covid Origins at Senate Hearing**\
-`The panel’s chairman, Rand Paul, has long accused Dr. Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
-https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\

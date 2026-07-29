@@ -14,7 +14,7 @@ https://www.nytimes.com/video/world/middleeast/100000011060539/gaza-israel-mosqu
 `He helped establish a windswept part of California as a source for great American pinot noir and chardonnay grapes, and later built his own winery.`\
 https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
 
-**Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
+**Lindsay Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
 `Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
 https://www.nytimes.com/2026/07/29/us/lindsay-clancy-murder-trial-husband.html
 
@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service
 https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
 
 **Shipping Risks Spread Across Crucial Middle East Oil Routes**\
-`Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
+`Attacks on ships in the Strait of Hormuz and the Bab al-Mandab Strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
 
 **Why Republicans Aren’t Funding the Texas Senate Race Yet**\
