@@ -1,3 +1,11 @@
+**Fauci Accuses Senator Rand Paul of ‘Obsession’ During Senate Hearing**\
+`Dr. Anthony S. Fauci accused Senator Rand Paul of having an “unhinged obsession” with him during a Senate hearing on Wednesday on the origins of Covid-19.`\
+https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-senate-hearing.html
+
+**New York’s Tax on Second Homes**\
+`Readers, including the president of the Real Estate Board of New York, respond to an editorial that praised the tax. Also: Two psychiatrists, on the need to mourn.`\
+https://www.nytimes.com/2026/07/29/opinion/second-homes-tax-new-york.html
+
 **Emptying Countryside Leaves ‘No Simple Solution’ to European Wildfires**\
 `A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
 https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/07/29/crosswords/wordle-review-1867.html
 **NYT Strands Hints for July 30, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
 https://www.nytimes.com/2026/07/29/crosswords/strands-sidekick-879.html
-
-**NYT Connections Answers for July 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
-https://www.nytimes.com/2026/07/29/crosswords/connections-companion-1145.html
-
-**How the U.S. and Iran Whiplash Between War and Cease-Fire, in One Chart**\
-`War. Cease-fire. Somewhere in between. The United States and Iran can’t stop cycling between conflict and negotiation.`\
-https://www.nytimes.com/interactive/2026/07/29/world/middleeast/iran-war-cease-fire-trump-timeline.html
 
 **Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
