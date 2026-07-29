@@ -1,3 +1,15 @@
+**Meta’s Profit Falls 14 Percent as A.I. Spending Continues**\
+`The Silicon Valley company’s costs rose more steeply than revenue growth, as it continues to invest heavily in artificial intelligence.`\
+https://www.nytimes.com/2026/07/29/technology/meta-profit-ai.html
+
+**Rusia acusa al fundador de Telegram de facilitar el terrorismo**\
+`Pavel Durov está bajo la mira del Kremlin en un renovado intento del Estado ruso por controlar la popular aplicación de mensajería.`\
+https://www.nytimes.com/es/2026/07/29/espanol/mundo/telegram-fundador-rusia-putin.html
+
+**Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
+`(No description)`\
+https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-makes-a-reluctant-entry-into-the-us-iran-war.html
+
 **Families Face Anxiety, Angst as Loved Ones Are Deployed to Fight Iran**\
 `As the war with Iran has continued, some are finding that the stress is bringing back old anxieties.`\
 https://www.nytimes.com/2026/07/29/us/iran-war-military-families-anxiety.html

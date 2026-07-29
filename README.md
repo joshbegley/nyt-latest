@@ -1,3 +1,7 @@
+**Microsoft Increases Spending on A.I. as Profit Jumps 31.6%**\
+`Like other big technology companies, Microsoft is hoping its aggressive spending on artificial intelligence is starting to translate into revenue.`\
+https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-report.html
+
 **Meta’s Profit Falls 14 Percent as A.I. Spending Continues**\
 `The Silicon Valley company’s costs rose more steeply than revenue growth, as it continues to invest heavily in artificial intelligence.`\
 https://www.nytimes.com/2026/07/29/technology/meta-profit-ai.html
@@ -139,8 +143,8 @@ https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
 **Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
-`(No description)`\
-https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-makes-a-reluctant-entry-into-the-us-iran-war.html
+`The kingdom’s defense ministry said airstrikes in Iraq targeting Iran-backed militias were in retaliation for attacks on Saudi oil facilities this week.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-us-iran-war.html
 
 **Today, In Short**\
 `Beluga whales. Pizza renaissance. And travel journals.`\
@@ -181,12 +185,4 @@ https://www.nytimes.com/video/insider/100000010994124/why-are-we-polling-now.htm
 **Así sobrevive Cuba a la falta de combustible**\
 `Han pasado seis meses desde que EE. UU. cortó las fuentes de combustible de la isla. Nuestros reporteros fueron hasta allá y encontraron historias notables de resiliencia.`\
 https://www.nytimes.com/es/2026/07/29/espanol/mundo/cuba-sobrevivencia-apagones-corriente.html
-
-**The Happiest Cities of 2026**\
-`A study mined data on emotional, physical and financial health, as well as community and environmental factors, to find the happiest Americans.`\
-https://www.nytimes.com/2026/07/29/realestate/the-happiest-cities-of-2026.html
-
-**Ground Chicken Grounds This Savory Stir-Fry With Green Beans**\
-`Or pork, beef or lamb — this fast, healthy stir-fry makes the most of your favorite ground meat.`\
-https://www.nytimes.com/2026/07/29/dining/ground-chicken-grounds-this-savory-stir-fry-with-green-beans.html
 
