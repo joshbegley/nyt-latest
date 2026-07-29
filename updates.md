@@ -1,3 +1,5 @@
+
+
 **Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
 `Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
