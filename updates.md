@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Bring Joy to Your Day**\
+`First Kiss Moon, the biggest museum and being sure of someone.`\
+https://www.nytimes.com/2026/07/29/briefing/29-the-good-list-museum-first-kiss.html
+
+**Live Updates: Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
+`Kevin M. Warsh explains in a news conference how bank officials plan to address persistent inflation pressures.`\
+https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
+
 **Teenage Lifeguard Fights Intense Waves to Bring Boy to Safety**\
 `A lifeguard with a relentless grip on a young boy brought him to safety amid enormous waves that ripped across a Santa Cruz beach over the weekend.`\
 https://www.nytimes.com/2026/07/29/us/santa-cruz-lifeguard-rescue-ryder-williams.html
