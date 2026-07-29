@@ -1,3 +1,7 @@
+**Families Face Anxiety, Angst as Loved Ones Are Deployed to Fight Iran**\
+`As the war with Iran has continued, some are finding that the stress is bringing back old anxieties.`\
+https://www.nytimes.com/2026/07/29/us/iran-war-military-families-anxiety.html
+
 **The Internet Suddenly Loves Emeril, Years After His TV Stardom**\
 `Clips of his live shows are a hot item on social media, charming younger viewers with his kitchen basics.`\
 https://www.nytimes.com/2026/07/29/dining/emeril-lagasse.html

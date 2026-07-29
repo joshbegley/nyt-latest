@@ -1,3 +1,7 @@
+**Families Face Anxiety, Angst as Loved Ones Are Deployed to Fight Iran**\
+`As the war with Iran has continued, some are finding that the stress is bringing back old anxieties.`\
+https://www.nytimes.com/2026/07/29/us/iran-war-military-families-anxiety.html
+
 **The Internet Suddenly Loves Emeril, Years After His TV Stardom**\
 `Clips of his live shows are a hot item on social media, charming younger viewers with his kitchen basics.`\
 https://www.nytimes.com/2026/07/29/dining/emeril-lagasse.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/well/move/pacer-test-gen-z-fitness.html
 **Could Jettisoning CNN Save the Paramount Merger?**\
 `It’s a thorn in the side of David Ellison’s paused dream.`\
 https://www.nytimes.com/2026/07/29/opinion/cnn-paramount-warner-bros-merger-ellison.html
-
-**Michelle Obama and Justice Jackson Talk Work-Life Balance and Public Service**\
-`Justice Ketanji Brown Jackson’s appearance on the former first lady’s podcast was a rare meeting of the two powerful, popular Black women.`\
-https://www.nytimes.com/2026/07/29/us/politics/michelle-obama-justice-jackson-podcast.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
