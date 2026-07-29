@@ -1,3 +1,7 @@
+**Microsoft Increases Spending on A.I. as Profit Jumps 31%**\
+`Like other big technology companies, Microsoft is hoping its aggressive spending on artificial intelligence is starting to translate into revenue.`\
+https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-report.html
+
 **Clara Ester, Who Was With Martin Luther King Jr. in His Last Moments, Dies at 78**\
 `A Memphis college student and activist, she witnessed Dr. King’s assassination in 1968 when he was shot at his motel and ran to him to check his pulse.`\
 https://www.nytimes.com/2026/07/29/us/clara-ester-dead.html
