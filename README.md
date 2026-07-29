@@ -1,3 +1,7 @@
+**Big Tech Turmoil Clouds the A.I. Earnings Picture**\
+`The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
+https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
+
 **Fauci and His Senate Nemesis Rand Paul to Face Off in Hearing**\
 `The Kentucky Republican has accused Dr. Anthony Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011060361/japan-earthquake-rescue
 **Con el brote de ‘Cyclospora’ surgen desinformación y conspiraciones**\
 `En plataformas como X y TikTok, la conversación sobre Taylor Farms está dominada por especulaciones políticas.`\
 https://www.nytimes.com/es/2026/07/29/espanol/cyclospora-taylor-farms-desinformacion.html
-
-**Why Some Orthodox Jews Oppose Permanent Daylight Saving Time**\
-`Orthodox Jewish leaders have lobbied against the Sunshine Protection Act since it was passed by the House of Representatives in July, joining an unlikely coalition of opponents.`\
-https://www.nytimes.com/2026/07/29/nyregion/daylight-saving-time-jewish.html
 

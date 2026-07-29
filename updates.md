@@ -1,3 +1,7 @@
+**How the Curtain Rose on One of Zaha Hadid’s Final Acts**\
+`The Royal Theater of Rabat is an architectural performance itself, with devilishly difficult curves. It was a homecoming to a world the star designer loved.`\
+https://www.nytimes.com/2026/07/29/arts/design/how-the-curtain-rose-on-one-of-zaha-hadids-final-acts.html
+
 **Fauci and His Senate Nemesis Rand Paul to Face Off in Hearing**\
 `The Kentucky Republican has accused Dr. Anthony Fauci of funding research that triggered the Covid pandemic and lying about it to Congress — charges Dr. Fauci denies.`\
 https://www.nytimes.com/2026/07/29/us/politics/fauci-testifies-rand-paul.html
