@@ -1,3 +1,7 @@
+**With Blanche Nomination at Stake, Payouts to Trump Allies Continue**\
+`A seven-figure settlement is announced two days before a scheduled Senate committee vote on Todd Blanche’s nomination to be attorney general.`\
+https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html
+
 **Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
 `The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive” and performed at the Paris Olympics.`\
 https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
