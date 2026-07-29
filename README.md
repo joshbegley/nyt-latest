@@ -1,6 +1,10 @@
+**Trump Unveils $22.5 Billion Redesign of Dulles Airport**\
+`The project would make the airport easier to navigate and include a new United lounge, officials said. It’s part of the president’s plans to remake the Washington area.`\
+https://www.nytimes.com/2026/07/29/us/politics/trump-dulles-airport-redesign.html
+
 **Two Tankers Hit in Apparent Drone Strike in Egypt**\
 `An explosion at a port on Egypt’s Mediterranean coast set fire to two ships, including a U.S. gas storage tanker, according to maritime tracking firms.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/two-ships-hit-in-apparent-drone-strike-at-egyptian-port.html
+https://www.nytimes.com/2026/07/29/world/middleeast/ships-drone-strike-egypt.html
 
 **In Indonesia, a New Generation Takes Up Leaf Weaving**\
 `Plus: Cartagena hotels, the crustacean gaining popularity and more recommendations from T Magazine.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/29/briefing/today-in-short.html
 **Do I Have to Keep Housing My Slovenly, Unemployed Brother-in-Law?**\
 `My partner agrees that the arrangement is unsustainable, but he has taken no meaningful steps to change it.`\
 https://www.nytimes.com/2026/07/29/magazine/housing-brother-in-law-ethics.html
-
-**On National Parks and Brainrot: The Winners of Week 6 of Our Summer Reading Contest**\
-`Chenyi Zhu reflects on national parks, while Christopher Leung wonders about internet slang.`\
-https://www.nytimes.com/2026/07/29/learning/on-national-parks-and-brainrot-the-winners-of-week-6-of-our-summer-reading-contest.html
 
