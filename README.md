@@ -1,3 +1,23 @@
+**Israel, AIPAC and Difficult Questions for Democrats**\
+`Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\
+https://www.nytimes.com/2026/07/29/podcasts/the-daily/israel-aipac-midterms-democrats.html
+
+**ICE Arrests Surge at Airports, and Fauci’s Private Diary Faces Scrutiny**\
+`Plus, why toxic wastewater is bubbling up out of the ground.`\
+https://www.nytimes.com/2026/07/29/podcasts/the-headlines/ice-airports-fauci-diaries.html
+
+**Today’s Wordle Hints for July 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/29/crosswords/wordle-review-1867.html
+
+**NYT Strands Hints for July 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/29/crosswords/strands-sidekick-879.html
+
+**NYT Connections Answers for July 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/29/crosswords/connections-companion-1145.html
+
 **See How the U.S. and Iran Cycle Between War and Cease-Fire**\
 `War. Cease-fire. Somewhere in between. The United States and Iran can’t stop cycling between conflict and negotiation.`\
 https://www.nytimes.com/interactive/2026/07/29/world/middleeast/iran-war-cease-fire-trump-timeline.html
@@ -67,7 +87,7 @@ https://www.nytimes.com/2026/07/29/nyregion/transforming-an-old-newsstand-into-a
 https://www.nytimes.com/2026/07/29/business/economy/data-center-electricians-training.html
 
 **Midtown Manhattan Bookstore Crawl: Where to Shop and Recharge**\
-`The bustling corridor at the sweaty heart of New York City is also home to a surprising number of bookstores and other literary oases.`\
+`This walking tour through the bustling heart of New York City includes bookstores, great reading spots and literary-themed snacks.`\
 https://www.nytimes.com/interactive/2026/07/29/books/bookstores-midtown-manhattan-nyc.html
 
 **Pick Your Favorite $575,000 Home**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/29/arts/television/jimmy-fallon-rfk-jr-trump.htm
 **ICE aumenta los arrestos en aeropuertos de EE. UU.**\
 `Agentes federales están arrestando a cónyuges de estadounidenses, trabajadores tecnológicos y otras personas con visas vencidas, incluidas muchas que tienen solicitudes activas para quedarse.`\
 https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/ice-arrestos-aeropuertos.html
-
-**9 consejos de los expertos para aumentar tu longevidad en la mediana edad**\
-`Cómo te cuides en esta etapa de la vida importa mucho para tus años venideros.`\
-https://www.nytimes.com/es/2026/07/29/espanol/longevidad-mediana-edad.html
-
-**The Hidden Cost of China’s Free A.I.**\
-`Whoever supplies the world’s A.I. will shape how the world thinks.`\
-https://www.nytimes.com/2026/07/29/opinion/ai-china-us-free-models.html
-
-**112 Degrees in Paris, Flames Near Bordeaux. France Can’t Go On Like This.**\
-`The frightening heat and wildfires this summer should be an impetus to those in charge to reckon with how quickly the risks are changing.`\
-https://www.nytimes.com/2026/07/29/opinion/france-wildfires-heat-air-conditioning.html
-
-**Quote of the Day: India Student Protests Spur Wider Discussion on Education System**\
-`Quotation of the Day for Wednesday, July 29, 2026.`\
-https://www.nytimes.com/2026/07/29/pageoneplus/quote-of-the-day-india-student-protests-spur-wider-discussion-on-education-system.html
-
-**Moroccan Man’s Death While Restrained By Police Reverberates Across Italy**\
-`Abderrahim Fakir died after police officers pinned him to the ground. His death has evolved into a broader standoff over the treatment and role of immigrants in Italy.`\
-https://www.nytimes.com/2026/07/29/world/europe/fakir-moroccan-death-italy-police.html
 
