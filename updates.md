@@ -1,3 +1,7 @@
+**ICE aumenta los arrestos en aeropuertos de EE. UU.**\
+`Agentes federales están arrestando a cónyuges de estadounidenses, trabajadores tecnológicos y otras personas con visas vencidas, incluidas muchas que tienen solicitudes activas para quedarse.`\
+https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/ice-arrestos-aeropuertos.html
+
 **9 consejos de los expertos para aumentar tu longevidad en la mediana edad**\
 `Cómo te cuides en esta etapa de la vida importa mucho para tus años venideros.`\
 https://www.nytimes.com/es/2026/07/29/espanol/longevidad-mediana-edad.html

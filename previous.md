@@ -1,3 +1,7 @@
+**ICE aumenta los arrestos en aeropuertos de EE. UU.**\
+`Agentes federales están arrestando a cónyuges de estadounidenses, trabajadores tecnológicos y otras personas con visas vencidas, incluidas muchas que tienen solicitudes activas para quedarse.`\
+https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/ice-arrestos-aeropuertos.html
+
 **9 consejos de los expertos para aumentar tu longevidad en la mediana edad**\
 `Cómo te cuides en esta etapa de la vida importa mucho para tus años venideros.`\
 https://www.nytimes.com/es/2026/07/29/espanol/longevidad-mediana-edad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/28/technology/ebay-settles-stalking-case.html
 **Who Wins (and Who Loses) in the Democrats’ New 2028 Primary Calendar?**\
 `Democratic Party officials have approved a new calendar that puts South Carolina at the head of the line. Black and Latino voters will gain new clout.`\
 https://www.nytimes.com/2026/07/28/us/politics/democrats-2028-primary-calendar.html
-
-**What Is Open-Weights A.I.?**\
-`As Silicon Valley debates how artificial intelligence software should be created, “open weights” have been a major part of the discussions. Here’s what to know.`\
-https://www.nytimes.com/2026/07/28/technology/open-weight-ai.html
 
