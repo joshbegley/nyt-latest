@@ -1,3 +1,7 @@
+**Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
+`Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
+https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
+
 **The Good List: 6 Things to Bring Joy to Your Day**\
 `First Kiss Moon, the biggest museum and being sure of someone.`\
 https://www.nytimes.com/2026/07/29/briefing/29-the-good-list-museum-first-kiss.html
@@ -113,10 +117,6 @@ https://www.nytimes.com/video/world/europe/100000011060594/spain-wildfires-damag
 **Incendios en España y Francia: lo peor podría estar por venir**\
 `Los bomberos han logrado contener incendios en ambos países, pero los vientos son fuertes y las temperaturas están aumentando. El dirigente español dijo que las próximas 12 horas serían “decisivas”.`\
 https://www.nytimes.com/es/2026/07/29/espanol/mundo/espana-francia-incendios-ola-calor.html
-
-**Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
-`Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
-https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
 
 **Canada’s Answer to Trump’s Tariffs: More Energy Deals With Europe**\
 `The Carney government’s agreement with a German natural gas company will also reduce Europe’s dependence on a Qatari supply made more uncertain by war.`\
