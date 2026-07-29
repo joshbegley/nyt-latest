@@ -1,3 +1,7 @@
+**Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
+`Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
+https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
+
 **Canada’s Answer to Trump’s Tariffs: More Energy Deals With Europe**\
 `The Carney government’s agreement with a German natural gas company will also reduce Europe’s dependence on a Qatari supply made more uncertain by war.`\
 https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-tariffs.html
@@ -170,8 +174,8 @@ https://www.nytimes.com/2026/07/29/business/federal-reserve-july-meeting.html
 `The number of A.I. chips that provide the computing power to advance the fast-evolving technology is doubling every nine months.`\
 https://www.nytimes.com/interactive/2026/07/29/technology/ai-chips-data-center-boom.html
 
-**What to Know About Lindsey Graham’s South Carolina Memorial**\
-`The senator’s funeral service will be held in Columbia, the capital. His remains will be buried in Pickens County, S.C., where he was born and raised.`\
+**Lindsey Graham’s South Carolina Funeral: What to Know**\
+`The senator’s funeral services are in Columbia, the capital. His remains will be buried Wednesday afternoon in Pickens County, S.C., where he was born and raised.`\
 https://www.nytimes.com/2026/07/29/us/lindsey-graham-south-carolina-memorial.html
 
 **Trump’s Tariffs Are Sending Some Companies Back to China**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/world/americas/havana-cuba-parties-david-gonz
 **Transforming an Old Newsstand Into a Celebration of Subways**\
 `Al Mullen is reopening a newsstand in the West Fourth Street station under a program to turn former retail spaces in the stations to new uses.`\
 https://www.nytimes.com/2026/07/29/nyregion/transforming-an-old-newsstand-into-a-celebration-of-subways.html
-
-**A.I. Companies Are Recruiting Electricians and Carpenters by the Thousands**\
-`The future of artificial intelligence depends on finding more skilled humans for some very physical jobs.`\
-https://www.nytimes.com/2026/07/29/business/economy/data-center-electricians-training.html
 
