@@ -1,3 +1,7 @@
+**Incendios en Europa: la llegada de una ‘nueva era de megaincendios’**\
+`El declive de la actividad agrícola en el continente europeo ha cambiado los mosaicos de pastizales y campos arados por vegetación silvestre que arde intensamente durante los veranos calurosos y secos.`\
+https://www.nytimes.com/es/2026/07/29/espanol/tiempo-y-clima/espana-mega-incendios-francia-cambio-climatico.html
+
 **4 Takeaways From the Federal Reserve Meeting**\
 `Fed officials held interest rates steady, but they have splintered over how to fight inflation.`\
 https://www.nytimes.com/2026/07/29/business/economy/fed-meeting-interest-rates-takeaways.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/world/middleeast/israel-hezbollah-lebanon.htm
 **The Woman Behind Emma M. Lion**\
 `Beth Brower has been self-publishing for a decade. But her series drawn from the cheeky “journals” of a young woman in Victorian England has been a breakout.`\
 https://www.nytimes.com/2026/07/29/books/review/beth-brower-unselected-journals-of-emma-m-lion.html
-
-**Trump Demanded Details of Agents’ Interview of Comey, New Filing Says**\
-`The request suggests the intense personal involvement of President Trump in investigating one of his longtime critics, the former F.B.I. director James B. Comey.`\
-https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\

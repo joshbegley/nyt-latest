@@ -1,5 +1,13 @@
 **4 Takeaways From the Federal Reserve Meeting**\
 `Fed officials held interest rates steady, but they have splintered over how to fight inflation.`\
+https://www.nytimes.com/2026/07/29/business/economy/fed-meeting-interest-rates-takeaways.html
+
+**Senators Cornyn and Tillis Threaten to Block Blanche Nomination Over Trump’s IRS Deal**\
+`Senators John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
+https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
+
+**4 Takeaways From the Federal Reserve Meeting**\
+`Fed officials held interest rates steady, but they have splintered over how to fight inflation.`\
 https://www.nytimes.com/2026/07/29/business/economy/4-takeaways-from-the-federal-reserve-meeting.html
 
 **Mental Health Issues Cited in Sentencing of Man Who Drove Into Synagogue**\

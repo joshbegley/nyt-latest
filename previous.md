@@ -1,6 +1,6 @@
 **4 Takeaways From the Federal Reserve Meeting**\
 `Fed officials held interest rates steady, but they have splintered over how to fight inflation.`\
-https://www.nytimes.com/2026/07/29/business/economy/4-takeaways-from-the-federal-reserve-meeting.html
+https://www.nytimes.com/2026/07/29/business/economy/fed-meeting-interest-rates-takeaways.html
 
 **Trump planea enviar a Uruguay a deportados cubanos**\
 `El Departamento de Estado, bajo el mando del secretario de Estado Marco Rubio, ha deportado a cubanos incluso a África. Ahora está negociando con un país sudamericano.`\
@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.
 `El músico, cuyo nombre real era Vincent Belorgey, era conocido por su éxito de 2010 “Nightcall”, que apareció en la película “Drive”.`\
 https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
 
-**Vote on Blanche in Doubt After Senators Express Skepticism Over I.R.S. Provision**\
+**Senators Cornyn and Tillis Threaten to Block Blanche Nomination Over Trump’s IRS Deal**\
 `Senators John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
 
