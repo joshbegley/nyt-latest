@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Beluga whales. Pizza renaissance. And travel journals.`\
+https://www.nytimes.com/2026/07/29/briefing/today-in-short.html
+
+**Do I Have to Keep Housing My Slovenly, Unemployed Brother-in-Law?**\
+`My partner agrees that the arrangement is unsustainable, but he has taken no meaningful steps to change it.`\
+https://www.nytimes.com/2026/07/29/magazine/housing-brother-in-law-ethics.html
+
 **On National Parks and Brainrot: The Winners of Week 6 of Our Summer Reading Contest**\
 `Chenyi Zhu reflects on national parks, while Christopher Leung wonders about internet slang.`\
 https://www.nytimes.com/2026/07/29/learning/on-national-parks-and-brainrot-the-winners-of-week-6-of-our-summer-reading-contest.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/07/29/technology/ai-chips-data-center-b
 **Lindsey Graham’s South Carolina Funeral: What to Know**\
 `The senator’s funeral services are in Columbia, the capital. His remains will be buried Wednesday afternoon in Pickens County, S.C., where he was born and raised.`\
 https://www.nytimes.com/2026/07/29/us/lindsey-graham-south-carolina-memorial.html
-
-**Trump’s Tariffs Are Sending Some Companies Back to China**\
-`For some U.S. brands seeking a location for their factories, the economic logic is once again pointing to China.`\
-https://www.nytimes.com/2026/07/29/business/economy/trump-tariffs-china.html
-
-**Why Do We Tolerate Elon Musk’s Racist Commentary?**\
-`Why does the owner of X get a pass for what he says and does there?`\
-https://www.nytimes.com/2026/07/29/opinion/elon-musk-far-right-remigration.html
 
