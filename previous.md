@@ -88,7 +88,7 @@ https://www.nytimes.com/2026/07/29/style/nantucket-shop-no-influencers-paige-lor
 
 **What to Watch at the Federal Reserve’s July Meeting**\
 `Kevin M. Warsh, who will preside over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
-https://www.nytimes.com/2026/07/29/business/what-to-know-federal-reserve-july-meeting.html
+https://www.nytimes.com/2026/07/29/business/federal-reserve-july-meeting.html
 
 **A Deluge of A.I. Computing Power Is About to Come Online, Fueling Major Leaps**\
 `The number of A.I. chips that provide the computing power to advance the fast-evolving technology is doubling every nine months.`\

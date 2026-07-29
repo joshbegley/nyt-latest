@@ -1,3 +1,7 @@
+**What to Watch at the Federal Reserve’s July Meeting**\
+`Kevin M. Warsh, who will preside over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
+https://www.nytimes.com/2026/07/29/business/federal-reserve-july-meeting.html
+
 **Sick of A.I.-Generated Content? The ‘Slop Janitor’ Is Here to Help.**\
 `Pangram, an A.I. detection start-up, promises near-perfect accuracy in sniffing out writing and imagery that wasn’t made by humans. It’s raising some big questions along the way.`\
 https://www.nytimes.com/2026/07/29/business/dealbook/pangram-ai-slop-detection.html
