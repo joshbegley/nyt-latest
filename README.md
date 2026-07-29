@@ -1,3 +1,7 @@
+**Record Numbers of Public Document Requests Are in Limbo or Unfulfilled**\
+`A Times’s analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
+https://www.nytimes.com/2026/07/29/us/politics/record-numbers-of-public-document-requests-are-in-limbo-or-unfulfilled.html
+
 **Trump Has Made Billions in Office. Will His Party Pay Politically?**\
 `The president took in a staggering $2.2 billion last year while in office. Democrats are hoping to make it a campaign issue in the midterm elections.`\
 https://www.nytimes.com/2026/07/29/us/politics/trump-personal-wealth.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/29/us/south-florida-state-college-professor-fire
 **With Blanche Nomination at Stake, Payouts to Trump Allies Continue**\
 `A seven-figure settlement is announced two days before a scheduled Senate committee vote on Todd Blanche’s nomination to be attorney general.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html
-
-**Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
-`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive.”`\
-https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
