@@ -1,3 +1,7 @@
+**Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
+`Discoveries that chronic inflammation can lead to myriad illnesses could be this century’s biggest medical breakthrough.`\
+https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
+
 **Microsoft Increases Spending on A.I. as Profit Jumps 31.6%**\
 `Like other big technology companies, Microsoft is hoping its aggressive spending on artificial intelligence is starting to translate into revenue.`\
 https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-report.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.h
 **Why Are We Polling Now?**\
 `A poll is a snapshot of a given time in the election cycle. Polls shared months before an election enable our readers to have access to the same information campaigns and political leaders have about public sentiment.`\
 https://www.nytimes.com/video/insider/100000010994124/why-are-we-polling-now.html
-
-**Así sobrevive Cuba a la falta de combustible**\
-`Han pasado seis meses desde que EE. UU. cortó las fuentes de combustible de la isla. Nuestros reporteros fueron hasta allá y encontraron historias notables de resiliencia.`\
-https://www.nytimes.com/es/2026/07/29/espanol/mundo/cuba-sobrevivencia-apagones-corriente.html
 

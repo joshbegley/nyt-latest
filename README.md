@@ -142,12 +142,12 @@ https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.
 `The former president is trying to help Josh Turek net a Senate seat in Iowa, which Democrats see as one of their best pickup opportunities of the midterms.`\
 https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
 
-**Live Updates: Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
+**Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
-**What to know about the Fed’s decision.**\
-`Kevin M. Warsh, presiding over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
+**Fed Holds Rates Steady but Three Officials Back Increase**\
+`Kevin M. Warsh’s second meeting as chairman of the Federal Reserve was colored by internal divisions over the path forward for policy.`\
 https://www.nytimes.com/2026/07/29/business/economy/what-to-watch-at-the-meeting.html
 
 **Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\

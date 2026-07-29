@@ -1,3 +1,7 @@
+**Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
+`Discoveries that chronic inflammation can lead to myriad illnesses could be this century’s biggest medical breakthrough.`\
+https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
+
 **Microsoft Increases Spending on A.I. as Profit Jumps 31.6%**\
 `Like other big technology companies, Microsoft is hoping its aggressive spending on artificial intelligence is starting to translate into revenue.`\
 https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-report.html
