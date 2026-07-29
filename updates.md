@@ -1,3 +1,23 @@
+**Emptying Countryside Leaves ‘No Simple Solution’ to European Wildfires**\
+`A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
+https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
+
+**Sanctions Bill Would Give Trump Sweeping New Tariff Powers**\
+`A bipartisan bill in the Senate would allow President Trump to impose tariffs on the biggest importers of Russian energy.`\
+https://www.nytimes.com/2026/07/29/us/politics/trump-tariffs-sanctions.html
+
+**Florida Professor Fired for Assigning a Profane Story, Lawsuit Says**\
+`South Florida State College fired an English professor after she assigned a story about a teacher who talks about sex with her students. Now the professor is suing.`\
+https://www.nytimes.com/2026/07/29/us/south-florida-state-college-professor-fired-lawsuit.html
+
+**Maps: Series of Earthquakes Shake the Philippines**\
+`View the locations of the quake epicenters and shake areas.`\
+https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
+
+**Why Republicans Aren’t Funding the Texas Senate Race Yet**\
+`The peculiar dynamic is playing out in Texas, where the fate of the Republican nominee, Ken Paxton, will help decide which party controls the U.S. Senate.`\
+https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
+
 **With Blanche Nomination at Stake, Payouts to Trump Allies Continue**\
 `A seven-figure settlement is announced two days before a scheduled Senate committee vote on Todd Blanche’s nomination to be attorney general.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html

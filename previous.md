@@ -1,3 +1,15 @@
+**Emptying Countryside Leaves ‘No Simple Solution’ to European Wildfires**\
+`A warming planet and a shift away from farming have set the stage for larger fires on the continent. “We must learn to coexist with them,” one report said.`\
+https://www.nytimes.com/2026/07/29/climate/france-spain-europe-megafires.html
+
+**Sanctions Bill Would Give Trump Sweeping New Tariff Powers**\
+`A bipartisan bill in the Senate would allow President Trump to impose tariffs on the biggest importers of Russian energy.`\
+https://www.nytimes.com/2026/07/29/us/politics/trump-tariffs-sanctions.html
+
+**Florida Professor Fired for Assigning a Profane Story, Lawsuit Says**\
+`South Florida State College fired an English professor after she assigned a story about a teacher who talks about sex with her students. Now the professor is suing.`\
+https://www.nytimes.com/2026/07/29/us/south-florida-state-college-professor-fired-lawsuit.html
+
 **With Blanche Nomination at Stake, Payouts to Trump Allies Continue**\
 `A seven-figure settlement is announced two days before a scheduled Senate committee vote on Todd Blanche’s nomination to be attorney general.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-weaponization-payouts.html
@@ -50,8 +62,8 @@ https://www.nytimes.com/2026/07/29/world/canada/canada-lng-germany-carney-trump-
 `In Newfoundland, 20-year-old smelly sludge will finally be removed.`\
 https://www.nytimes.com/2026/07/29/world/canada/fish-sauce-plant-canada-st-marys.html
 
-**Maps: Earthquakes Shake the Philippines**\
-`View the location of the quake’s epicenter and shake area.`\
+**Maps: Series of Earthquakes Shake the Philippines**\
+`View the locations of the quake epicenters and shake areas.`\
 https://www.nytimes.com/interactive/2026/07/29/world/quake-tracker-philippines.html
 
 **Why Are We Polling Now?**\
@@ -106,8 +118,8 @@ https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
 `Attacks on ships in the Strait of Hormuz and the Bab al-Mandab strait are disrupting the passage of oil tankers in the Persian Gulf and the Red Sea.`\
 https://www.nytimes.com/2026/07/29/business/iran-war-hormuz-red-sea-shipping.html
 
-**Can Anyone Spare a Buck For Texas?**\
-`One of America’s most competitive Senate races features a surprising dynamic: The big Republican committees aren’t spending yet.`\
+**Why Republicans Aren’t Funding the Texas Senate Race Yet**\
+`The peculiar dynamic is playing out in Texas, where the fate of the Republican nominee, Ken Paxton, will help decide which party controls the U.S. Senate.`\
 https://www.nytimes.com/2026/07/29/us/politics/texas-senate-paxton-fund-raising.html
 
 **Was I Wrong to Repeat a Sensitive Conversation I Overheard in Childhood?**\
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/07/29/crosswords/connections-companion-1145.html
 **How the U.S. and Iran Whiplash Between War and Cease-Fire, in One Chart**\
 `War. Cease-fire. Somewhere in between. The United States and Iran can’t stop cycling between conflict and negotiation.`\
 https://www.nytimes.com/interactive/2026/07/29/world/middleeast/iran-war-cease-fire-trump-timeline.html
-
-**El anfitrión que organiza fiestas para luchar por el cambio político en Cuba**\
-`En medio de apagones generalizados, David González ha convertido su casa en un oasis donde la alegría y la política empiezan a mezclarse.`\
-https://www.nytimes.com/es/2026/07/29/espanol/america-latina/cuba-fiestas-proyecto.html
-
-**Enfrenté el miedo a las alturas con un tour de ‘vía ferrata’**\
-`Un excursionista nervioso se inscribió en un recorrido de “vía ferrata” en los acantilados de un cañón de las Adirondack. Esto es lo que aprendió en las cornisas, peldaños y puentes expuestos.`\
-https://www.nytimes.com/es/2026/07/29/espanol/estilos-de-vida/miedo-alturas-acrofobia-via-ferrata.html
-
-**Summer of Heat, Fires and Storms Is a Reckoning for Europe on Climate**\
-`The continent is experiencing some of its biggest fires and highest temperatures ever. Residents are fleeing, leaders are struggling to respond and “it will get worse,” one climate expert said.`\
-https://www.nytimes.com/2026/07/29/world/europe/summer-heat-wave-fires-climate-change.html
 
 **Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iranian proxies in Iraq, and Iran launched an attack on sites in Jordan.`\
