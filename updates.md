@@ -1,3 +1,11 @@
+**What to Know About Iraq’s Militias**\
+`At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/heres-what-to-know-about-iraqs-militias.html
+
+**Kavinsky, French D.J. and Electronic Musician, Dies at 50**\
+`The artist, whose real name was Vincent Belorgey, was best known for his 2010 hit “Nightcall,” which was featured in the film “Drive.”`\
+https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html
+
 **Fauci Accuses Senator Rand Paul of ‘Obsession’ During Senate Hearing**\
 `Dr. Anthony S. Fauci accused Senator Rand Paul of having an “unhinged obsession” with him during a Senate hearing on Wednesday on the origins of Covid-19.`\
 https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-senate-hearing.html
