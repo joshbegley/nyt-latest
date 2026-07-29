@@ -1,3 +1,7 @@
+**In Indonesia, a New Generation Takes Up Leaf Weaving**\
+`Plus: Cartagena hotels, the crustacean gaining popularity and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/07/29/t-magazine/indonesia-leaf-weaving.html
+
 **Scientists Perform Underwater Ultrasound Scans to Detect Pregnancies in Giant Manta Rays**\
 `Scientists in Mexico were the first to perform ultrasounds on giant manta rays to detect pregnancies. The researchers hoped to learn more about the life cycle of the largest ray species in the world.`\
 https://www.nytimes.com/video/science/earth/100000011059127/giant-manta-rays-pregnant-ultrasounds.html

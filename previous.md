@@ -1,3 +1,7 @@
+**In Indonesia, a New Generation Takes Up Leaf Weaving**\
+`Plus: Cartagena hotels, the crustacean gaining popularity and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/07/29/t-magazine/indonesia-leaf-weaving.html
+
 **Scientists Perform Underwater Ultrasound Scans to Detect Pregnancies in Giant Manta Rays**\
 `Scientists in Mexico were the first to perform ultrasounds on giant manta rays to detect pregnancies. The researchers hoped to learn more about the life cycle of the largest ray species in the world.`\
 https://www.nytimes.com/video/science/earth/100000011059127/giant-manta-rays-pregnant-ultrasounds.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/29/learning/on-national-parks-and-brainrot-the-w
 **Residents Return to Destruction After Wildfires in Spain**\
 `Residents in Spain began returning to what was left of their properties after intense wildfires tore through parts of the country. But officials warned that the battle was far from over.`\
 https://www.nytimes.com/video/world/europe/100000011060594/spain-wildfires-damage.html
-
-**Incendios en España y Francia: lo peor podría estar por venir**\
-`Los bomberos han logrado contener incendios en ambos países, pero los vientos son fuertes y las temperaturas están aumentando. El dirigente español dijo que las próximas 12 horas serían “decisivas”.`\
-https://www.nytimes.com/es/2026/07/29/espanol/mundo/espana-francia-incendios-ola-calor.html
 
