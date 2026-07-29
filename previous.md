@@ -1,3 +1,7 @@
+**Vote on Blanche in Doubt After Senators Express Skepticism Over I.R.S. Provision**\
+`Senators John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
+https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
+
 **Un ciudadano de EE. UU. borró los datos de su teléfono. Ahora enfrenta un cargo por delito grave**\
 `Fiscales federales acusaron a un hombre que regresaba al país de obstrucción después de que dio un código de acceso que borró la información de su celular durante una inspección de aduanas.`\
 https://www.nytimes.com/es/2026/07/29/espanol/aduana-estados-unidos-telefono-borrar-datos.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/07/29/us/students-is-ai-changing-your-life-tell-us.
 `The former president is trying to help Josh Turek net a Senate seat in Iowa, which Democrats see as one of their best pickup opportunities of the midterms.`\
 https://www.nytimes.com/2026/07/29/us/politics/obama-endorses-turek-iowa-senate.html
 
-**Live Updates: Federal Reserve to Make a Close Call on Interest Rates**\
-`Kevin M. Warsh, after his second meeting as the Fed’s chairman, will explain how officials are thinking about persistent inflation and a resilient job market.`\
+**Live Updates: Fed Leaves Interest Rates Unchanged, but Internal Pressures Grow**\
+`Kevin M. Warsh, in his second news conference as the Federal Reserve’s chairman, will explain how officials are thinking about persistent inflation and a resilient job market.`\
 https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
 **Today, In Short**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/07/29/pageoneplus/corrections-july-29-2026.html
 **Glen Hansard, Oscar-Winning Frontman of Irish Band the Frames, Dies at 56**\
 `The popular singer-songwriter won, with Markéta Irglová, an Oscar for the song “Falling Slowly” from the film “Once.”`\
 https://www.nytimes.com/2026/07/29/arts/glen-hansard-dead.html
-
-**Big Tech Turmoil Clouds the A.I. Earnings Picture**\
-`The Nasdaq 100 is flirting with correction territory as investors brace for earnings reports from Meta, Microsoft and Amazon.`\
-https://www.nytimes.com/2026/07/29/business/dealbook/big-tech-ai-earnings.html
 
 **Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
 `The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\

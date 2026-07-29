@@ -1,3 +1,11 @@
+**Vote on Blanche in Doubt After Senators Express Skepticism Over I.R.S. Provision**\
+`Senators John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
+https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
+
+**Live Updates: Fed Leaves Interest Rates Unchanged, but Internal Pressures Grow**\
+`Kevin M. Warsh, in his second news conference as the Federal Reserve’s chairman, will explain how officials are thinking about persistent inflation and a resilient job market.`\
+https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
+
 **Lindsay Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
 `Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
 https://www.nytimes.com/2026/07/29/us/lindsay-clancy-murder-trial-husband.html
