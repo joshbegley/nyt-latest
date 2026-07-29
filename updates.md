@@ -1,3 +1,11 @@
+**Crowds in Gaza Rush to Safety as Israel Strikes a Mosque**\
+`Palestinians in Gaza City rushed to evacuate as the Israeli military bombed a mosque near an encampment for the displaced. The Israeli military said the mosque had been used to store weapons for Hamas, a claim Gaza’s government denied. No deaths were reported.`\
+https://www.nytimes.com/video/world/middleeast/100000011060539/gaza-israel-mosque-strike.html
+
+**Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
+`Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
+https://www.nytimes.com/2026/07/29/us/lindsay-clancy-murder-trial-husband.html
+
 **David Hirsch, Who Turned Sonoma Coast Into World-Class Wine Region, Dies at 81**\
 `He helped establish a windswept part of California as a source for great American pinot noir and chardonnay grapes, and later built his own winery.`\
 https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
