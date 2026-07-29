@@ -1,3 +1,7 @@
+**Jimmy Fallon Weighs In on Trump and Kennedy**\
+`The “Tonight Show” host surmised that Trump might be regretting “picking a health secretary who lives on raccoon meat and Zyn pouches.”`\
+https://www.nytimes.com/2026/07/29/arts/television/jimmy-fallon-rfk-jr-trump.html
+
 **ICE aumenta los arrestos en aeropuertos de EE. UU.**\
 `Agentes federales están arrestando a cónyuges de estadounidenses, trabajadores tecnológicos y otras personas con visas vencidas, incluidas muchas que tienen solicitudes activas para quedarse.`\
 https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/ice-arrestos-aeropuertos.html
