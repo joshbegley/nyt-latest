@@ -1,3 +1,7 @@
+**What to Know About Iraq’s Militias**\
+`At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/iraq-popular-mobilization-forces-iran.html
+
 **Eviction Filings Have Dipped in Many Places, but Not Here**\
 `Why Minnesota is an exception to an otherwise positive national trend.`\
 https://www.nytimes.com/2026/07/29/headway/eviction-filings-minnesota-housing.html
