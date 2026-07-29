@@ -1,3 +1,15 @@
+**Trump Encounters a More Determined Iran as War Widens**\
+`With Iran flexing its might, President Trump appears to be weighing military options again, after rejecting plans to escalate.`\
+https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
+
+**Record Numbers of Public Document Requests Are in Limbo or Unfulfilled**\
+`A Times’s analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
+https://www.nytimes.com/2026/07/29/us/politics/foia-public-document-requests.html
+
+**Senators Cornyn and Tillis Threaten to Block Blanche Nomination Over Trump’s IRS Deal**\
+`John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
+https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
+
 **Record Numbers of Public Document Requests Are in Limbo or Unfulfilled**\
 `A Times’s analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
 https://www.nytimes.com/2026/07/29/us/politics/record-numbers-of-public-document-requests-are-in-limbo-or-unfulfilled.html
