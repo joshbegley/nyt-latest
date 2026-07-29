@@ -1,3 +1,7 @@
+**Mark Zuckerberg Blasts Centralization of A.I. Power**\
+`In an interview with The Times, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
+https://www.nytimes.com/2026/07/28/technology/mark-zuckerberg-meta-ai.html
+
 **Trump Pays Tribute at Lindsey Graham’s Funeral**\
 `President Trump paid tribute to Senator Lindsey Graham in a memorial service at the National Cathedral on Tuesday.`\
 https://www.nytimes.com/video/us/politics/100000011059917/trump-lindsey-graham-washington-funeral.html

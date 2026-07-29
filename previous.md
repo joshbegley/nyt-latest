@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/07/28/us/politics/domestic-abuse-allegations-ohio-h
 https://www.nytimes.com/2026/07/28/us/st-paul-police-chief-sexual-harassment-mayor.html
 
 **Mark Zuckerberg Blasts Centralization of A.I. Power**\
-`In an interview, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
+`In an interview with The Times, Meta’s chief executive took aim at Anthropic and OpenAI, which have pushed to tightly control A.I. development, and said he supported “more openness.”`\
 https://www.nytimes.com/2026/07/28/technology/mark-zuckerberg-meta-ai.html
 
 **What’s Going on With Mitch McConnell? Kentucky’s Governor Has Questions.**\
