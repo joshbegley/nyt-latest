@@ -1,3 +1,15 @@
+**Microsoft Increases Spending on A.I. as Profit Jumps 31.6%**\
+`Like other big technology companies, Microsoft is hoping its aggressive spending on artificial intelligence is starting to translate into revenue.`\
+https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-report.html
+
+**What to know about the Fed’s decision.**\
+`Kevin M. Warsh, presiding over his second meeting as chairman of the central bank, faces pressure to raise interest rates as inflation remains elevated.`\
+https://www.nytimes.com/2026/07/29/business/economy/what-to-watch-at-the-meeting.html
+
+**Saudi Arabia’s Strikes in Iraq Mark Entry Into U.S.-Iran War.**\
+`The kingdom’s defense ministry said airstrikes in Iraq targeting Iran-backed militias were in retaliation for attacks on Saudi oil facilities this week.`\
+https://www.nytimes.com/2026/07/29/world/middleeast/saudi-arabia-us-iran-war.html
+
 **Meta’s Profit Falls 14 Percent as A.I. Spending Continues**\
 `The Silicon Valley company’s costs rose more steeply than revenue growth, as it continues to invest heavily in artificial intelligence.`\
 https://www.nytimes.com/2026/07/29/technology/meta-profit-ai.html
