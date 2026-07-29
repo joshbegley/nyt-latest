@@ -1,3 +1,11 @@
+**The Woman Behind Emma M. Lion**\
+`Beth Brower has been self-publishing for a decade. But her series drawn from the cheeky “journals” of a young woman in Victorian England has been a breakout.`\
+https://www.nytimes.com/2026/07/29/books/review/beth-brower-unselected-journals-of-emma-m-lion.html
+
+**Trump Demanded Details of Agents’ Interview of Comey, New Filing Says**\
+`The demand suggests the intense personal involvement of President Trump in investigating one of his longtime critics, the former F.B.I. director James B. Comey.`\
+https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service.html
+
 **Israel Strikes Mosque in Gaza City**\
 `The Israeli military accused Hamas of using the mosque to store weapons. The Hamas-run government’s media office said Israel’s claims aimed to justify its attacks on mosques.`\
 https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/29/learning/word-of-the-day-pugnacity.html
 **In Ohio, Toxic Wastewater Is Bubbling Up Out of the Ground**\
 `The state is a major importer of fracking wastewater, which gets pumped underground but doesn’t always stay there. The city of Marietta is fighting back.`\
 https://www.nytimes.com/2026/07/29/climate/ohio-fracking-water-injection-wells.html
-
-**Can This Man Stop the Mamdani Agenda?**\
-`Reihan Salam loves New York. He loves the free market. And he’s very worried.`\
-https://www.nytimes.com/2026/07/29/nyregion/mamdani-manhattan-institute-affordability.html
-
-**How the Curtain Rose on One of Zaha Hadid’s Final Acts**\
-`The Royal Theater of Rabat is an architectural performance itself, with devilishly difficult curves. It was a homecoming to a world the star designer loved.`\
-https://www.nytimes.com/2026/07/29/arts/design/how-the-curtain-rose-on-one-of-zaha-hadids-final-acts.html
 
