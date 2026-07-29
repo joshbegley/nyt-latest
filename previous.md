@@ -2,9 +2,9 @@
 `The charges against Pavel Durov reflected an ongoing fight over one of the most popular messaging and media apps in the country.`\
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
 
-**Fires Slow in France and Spain, but Worse May Be Ahead**\
-`Officials said they had contained the spread of vast fires in both countries, but warned that rising temperatures and high winds meant the situation was still fluid.`\
-https://www.nytimes.com/2026/07/29/world/europe/europe-fires-spain-france.html
+**Wildfires Slow in France and Spain, but Worse May Be Ahead**\
+`Firefighters have contained vast fires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
+https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
 
 **Israel, AIPAC and Difficult Questions for Democrats**\
 `Once the guardian of the bipartisan pro-Israel consensus, the lobbying group AIPAC is now a polarizing force in the Democratic Party.`\

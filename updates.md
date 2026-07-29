@@ -1,3 +1,7 @@
+**Wildfires Slow in France and Spain, but Worse May Be Ahead**\
+`Firefighters have contained vast fires in both countries, but winds are high and temperatures rising. Spain’s prime minister said the next 12 hours would be “decisive.”`\
+https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html
+
 **Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism**\
 `The charges against Pavel Durov reflected an ongoing fight over one of the most popular messaging and media apps in the country.`\
 https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html
