@@ -1,3 +1,19 @@
+**Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
+`Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
+https://www.nytimes.com/2026/07/29/us/patrick-clancy-lindsay-trial.html
+
+**Tiny Love Stories: ‘Women Undulating Underwater’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/07/29/style/tiny-modern-love-stories-women-undulating-underwater.html
+
+**Trump Demanded Details of Agents’ Interview of Comey, New Filing Says**\
+`The request suggests the intense personal involvement of President Trump in investigating one of his longtime critics, the former F.B.I. director James B. Comey.`\
+https://www.nytimes.com/2026/07/29/us/james-comey-seashells-trump-secret-service.html
+
+**Iran War Live Updates: New Strikes Engulf More Countries in Conflict**\
+`The U.S. and Saudi Arabia said they had carried out joint airstrikes on Iran-backed militias in Iraq, and Iran targeted U.S. military sites in Jordan.`\
+https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump
+
 **Trump Administration Is Repurposing Federal Land for A.I. Data Centers**\
 `In the latest example, the Energy Department will convert a shuttered Cold War-era uranium enrichment facility into a data center campus and gas plants.`\
 https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
