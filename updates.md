@@ -1,3 +1,7 @@
+**Los bíceps de Matt Damon en ‘La odisea’ son de una mujer**\
+`Devyn Dalton, una doble de acción de apenas 1,40 metros de estatura, es la dueña de los espectaculares bíceps de Odiseo en la película de Christopher Nolan.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/una-mujer-y-no-matt-damon-es-quien-enfrenta-a-los-lestrigones-en-la-odisea.html
+
 **Quote of the Day: Blistering Summer Pushes Europe to the Brink**\
 `Quotation of the Day for Thursday, July 30, 2026.`\
 https://www.nytimes.com/2026/07/30/pageoneplus/quote-of-the-day-blistering-summer-pushes-europe-to-the-brink.html

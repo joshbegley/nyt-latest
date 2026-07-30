@@ -1,3 +1,7 @@
+**Los bíceps de Matt Damon en ‘La odisea’ son de una mujer**\
+`Devyn Dalton, una doble de acción de apenas 1,40 metros de estatura, es la dueña de los espectaculares bíceps de Odiseo en la película de Christopher Nolan.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/una-mujer-y-no-matt-damon-es-quien-enfrenta-a-los-lestrigones-en-la-odisea.html
+
 **Quote of the Day: Blistering Summer Pushes Europe to the Brink**\
 `Quotation of the Day for Thursday, July 30, 2026.`\
 https://www.nytimes.com/2026/07/30/pageoneplus/quote-of-the-day-blistering-summer-pushes-europe-to-the-brink.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/es/2026/07/29/espanol/tiempo-y-clima/espana-mega-incendi
 **4 Takeaways From the Federal Reserve Meeting**\
 `Fed officials held interest rates steady, but they have splintered over how to fight inflation.`\
 https://www.nytimes.com/2026/07/29/business/economy/fed-meeting-interest-rates-takeaways.html
-
-**Trump planea enviar a Uruguay a deportados cubanos**\
-`El Departamento de Estado, bajo el mando del secretario de Estado Marco Rubio, ha deportado a cubanos incluso a África. Ahora está negociando con un país sudamericano.`\
-https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/trump-deportados-cubanos-uruguay.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
