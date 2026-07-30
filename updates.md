@@ -1,3 +1,7 @@
+**Civilians Battle Wildfire Threatening Bordeaux**\
+`Residents in Bordeaux in southwestern France are doing everything in their power to stop a wildfire that’s been burning for more than a week. The flames are too spread out for professional firefighters to be everywhere, so for now, civilian volunteers are the only thing standing between the fire and a major French city.`\
+https://www.nytimes.com/video/world/europe/100000011061309/france-wildfires-bordeaux-civilian-volunteers.html
+
 **Jeannette Etheredge, Who Hosted San Francisco at Tosca Cafe, Dies at 85**\
 `As the North Beach bar’s proprietor for 33 years, she turned it into a hub for actors, directors, writers, dancers and politicians.`\
 https://www.nytimes.com/2026/07/30/obituaries/jeanette-etheredge-dead.html
