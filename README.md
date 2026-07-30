@@ -1,3 +1,15 @@
+**Iran War Live Updates: Drone Attack in Egypt Threatens to Expand Conflict**\
+`The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
+https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
+
+**Poland’s Leader Says Russian Missile May Have Struck Its Territory During Ukraine Attack**\
+`Russian missiles have briefly entered Polish airspace during Russian strikes on western Ukraine in the past, but a missile has never hit Poland itself.`\
+https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
+
+**Oil Prices Teeter as Middle East Veers Toward Wider Conflict**\
+`Bond yields are also higher on concerns about inflation.`\
+https://www.nytimes.com/2026/07/30/business/oil-stocks-iran-war.html
+
 **‘Nightmarish’ Wildfire in Crete Kills Two Firefighters as Thousands Evacuate**\
 `Greece also worked to contain blazes on Lesbos and in the Peloponnese, where another firefighter died, in the midst of a brutal wildfire season for Europe.`\
 https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000011063002/30vid-greece
 **Japan Earthquake Death Toll Rises to 34**\
 `Rescue crews were working to find people who might still be trapped in a collapsed shopping mall, as the region faced sweltering heat.`\
 https://www.nytimes.com/2026/07/30/world/asia/japan-earthquake-kumamoto-death-toll.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011062991/30vid-spain-fire-embed-95927.html
-
-**Kawhi Leonard’s New Secret Side Deal**\
-`As the N.B.A. tries to end its investigation, Pablo digs even deeper.`\
-https://www.nytimes.com/2026/07/30/podcasts/kawhi-leonards-new-secret-side-deal.html
-
-**Algunas empresas regresan a China ante los aranceles de Trump**\
-`Para algunas marcas estadounidenses que buscan dónde instalar sus fábricas, la lógica económica vuelve a inclinar la balanza hacia China.`\
-https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/china-trump-aranceles.html
 
