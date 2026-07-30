@@ -1,3 +1,15 @@
+**Pope Leo Says He Hopes to Visit U.S. Within ‘Next Couple of Years’**\
+`When asked about a possible trip, Leo XIV said that he had been looking at the calendar for the “next couple of years.”`\
+https://www.nytimes.com/2026/07/30/world/europe/pope-leo-visit-us-american.html
+
+**Oil Prices Wobble as Middle East Veers Toward Wider Conflict**\
+`Bond yields are also higher on concerns about inflation.`\
+https://www.nytimes.com/2026/07/30/business/oil-stocks-iran-war.html
+
+**Wildfires in Greece Kill 3 Firefighters as Blazes Still Burn in France and Spain**\
+`Greece also worked to contain blazes on Lesbos and in the Peloponnese, where another firefighter died, in the midst of a brutal wildfire season for Europe.`\
+https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
+
 **How the War With Iran Is Widening, and U.S. Hospitals See a Surge of Uninsured Patients**\
 `Plus, the horrendous smell plaguing one Canadian town.`\
 https://www.nytimes.com/2026/07/30/podcasts/the-headlines/iran-war-us-hospitals-uninsured-patients.html

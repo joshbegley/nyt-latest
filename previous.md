@@ -1,3 +1,7 @@
+**Pope Leo Says He Hopes to Visit U.S. Within ‘Next Couple of Years’**\
+`When asked about a possible trip, Leo XIV said that he had been looking at the calendar for the “next couple of years.”`\
+https://www.nytimes.com/2026/07/30/world/europe/pope-leo-visit-us-american.html
+
 **How the War With Iran Is Widening, and U.S. Hospitals See a Surge of Uninsured Patients**\
 `Plus, the horrendous smell plaguing one Canadian town.`\
 https://www.nytimes.com/2026/07/30/podcasts/the-headlines/iran-war-us-hospitals-uninsured-patients.html
@@ -26,11 +30,11 @@ https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
 `Russian missiles have briefly entered Polish airspace during Russian strikes on western Ukraine in the past, but a missile has never hit Poland itself.`\
 https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
 
-**Oil Prices Teeter as Middle East Veers Toward Wider Conflict**\
+**Oil Prices Wobble as Middle East Veers Toward Wider Conflict**\
 `Bond yields are also higher on concerns about inflation.`\
 https://www.nytimes.com/2026/07/30/business/oil-stocks-iran-war.html
 
-**‘Nightmarish’ Wildfire in Crete Kills Two Firefighters as Thousands Evacuate**\
+**Wildfires in Greece Kill 3 Firefighters as Blazes Still Burn in France and Spain**\
 `Greece also worked to contain blazes on Lesbos and in the Peloponnese, where another firefighter died, in the midst of a brutal wildfire season for Europe.`\
 https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
 
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/07/30/theater/game-of-thrones-mad-king-royal-shakes
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/30/learning/word-of-the-day-emolument.html
 
-**How to Watch Two Summer Meteor Showers Peak On the Same Night**\
-`The end of July brings the Alpha Capricornids and the Southern Delta Aquarids, both of which will be most active on Thursday night into Friday morning.`\
-https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
-
 **A New York Hair Salon, Happily Stuck in 1986**\
 `All around it, luxury boutiques attract a wealthy crowd. But Anonymous Hair Salon hasn’t changed much since opening all those years ago.`\
 https://www.nytimes.com/2026/07/30/style/anonymous-hair-salon-soho-manhattan.html
+
+**How to Watch Two Summer Meteor Showers Peak On the Same Night**\
+`The end of July brings the Alpha Capricornids and the Southern Delta Aquarids, both of which will be most active on Thursday night into Friday morning.`\
+https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
 
 **Is a Novel Ever Finished? Many Writers Say No.**\
 `After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Please vote below for the one you prefer.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/well/live/cervical-cancer-screening-guideline
 **Cuba’s Bet on Solar**\
 `President Trump keeps predicting Cuba will collapse after he cut off its oil. But it’s still standing. Our reporter Jack Nicas visited to see how Cubans are adopting solar to offset the power shortage.`\
 https://www.nytimes.com/video/world/americas/100000011014208/cubas-bet-on-solar.html
-
-**Books That Illuminate New York’s Forgotten History**\
-`The best-selling authors Marie Benedict and Victoria Christopher Murray recommend gripping books that illuminate hidden chapters of the city’s past.`\
-https://www.nytimes.com/2026/07/30/books/new-york-books-historical-fiction.html
 
