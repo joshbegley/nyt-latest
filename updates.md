@@ -1,3 +1,7 @@
+**Fertility Doctor Accused of Using Own Sperm to Impregnate Woman**\
+`Dr. Dennis Lutz, the chairman of the University of North Dakota’s OB-GYN department, did not deny the claims in a lawsuit. The university said it intends to fire him.`\
+https://www.nytimes.com/2026/07/29/us/university-north-dakota-obgyn-sued.html
+
 **Part of the Emerald City scene in Sidney Lumet’s 1978 film “The Wiz.”**\
 `Part of the Emerald City scene from Sidney Lumet’s “The Wiz” (1978).`\
 https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047559/part-of-the-emerald-city-scene-in-sidney-lumets-1978-film-the-wiz.html
