@@ -1,3 +1,27 @@
+**Spain Mobilizes Military as Thousands of Migrants Cross Into Ceuta**\
+`The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
+https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html
+
+**Lo que realmente aprendimos de la audiencia de Fauci**\
+`Los juicios espectáculo son perjudiciales para la democracia.`\
+https://www.nytimes.com/es/2026/07/30/espanol/opinion/covid-origen-fauci.html
+
+**Five Hot Dogs, One Man, Infinite Toppings**\
+`Forget ketchup and mustard. At these five New York City spots, hot dogs are taken to the extreme.`\
+https://www.nytimes.com/2026/07/30/dining/latin-america-hot-dogs.html
+
+**After Claiming ‘Bias’ at Smithsonian, Trump Officials Stage Patriotic Exhibition**\
+`Trump officials have promised to “make visual arts great,” with a museum exhibition that includes artwork by several people with personal connections to the planners.`\
+https://www.nytimes.com/2026/07/30/arts/design/trump-exhibition-patriotism.html
+
+**Senate Committee Approves Measure to Block Trump’s Effort to Gut Education Dept.**\
+`The bipartisan bill is a long way from becoming law, but it represents the strongest opposition yet from Congress to the administration’s agenda.`\
+https://www.nytimes.com/2026/07/30/us/politics/senate-committee-education-dept.html
+
+**U.S. Government Mislabels Map of African Countries at AIDS Conference**\
+`Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
+https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
+
 **U.S. Government Mislabels Map of  African Countries at AIDS Conference**\
 `Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
 https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
