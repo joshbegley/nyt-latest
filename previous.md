@@ -1,3 +1,11 @@
+**Wildfires Erupt in Greece**\
+`Greek authorities on Thursday battled deadly wildfires fueled by strong winds, which have forced thousands to flee.`\
+https://www.nytimes.com/video/world/europe/100000011063012/greece-wildfires-crete.html
+
+**U.S. Sees Iran as Likely Behind Cyberattack on Minnesota Water Systems**\
+`Investigators cautioned that the assessment was preliminary. There were no indications that any water supply had been rendered unsafe to drink.`\
+https://www.nytimes.com/2026/07/30/us/politics/minnesota-water-cyberattack-iran.html
+
 **Attack on Egyptian Port Shows Suez Canal’s Vulnerability**\
 `The port where the Wednesday strike occurred is near the Suez Canal, through which a significant amount of the world’s shipping moves.`\
 https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-canal-vulnerability.html
@@ -91,7 +99,7 @@ https://www.nytimes.com/2026/07/30/business/oil-stocks-iran-war.html
 https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
 
 **Russia Strikes Ukraine With Missiles and Drones, Killing at Least 8**\
-`President Volodymyr Zelensky of Ukraine said that a family of five had been killed at home in the latest in a series of large-scale aerial assaults by Moscow.`\
+`President Volodymyr Zelensky of Ukraine said five members of a family had been killed in the latest large-scale aerial assault by Moscow.`\
 https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-drones-attacks.html
 
 **El mensaje de Cuba para Trump: estamos listos para hacer negocios**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/30/world/americas/cuba-deputy-foreign-minister-i
 **Air India Offered to Cover My Flight on Another Airline. It Cost Me $2,000.**\
 `After a cancellation and long delays, the airline offered to cover the cost of a flight on another carrier. Then it refused to make good on that promise.`\
 https://www.nytimes.com/2026/07/30/travel/air-india-canceled-flight-refund.html
-
-**Accept Your Fate. Don’t Wear Shorts to the Office.**\
-`It might be hot but men must resist showing the knee.`\
-https://www.nytimes.com/2026/07/30/opinion/office-shorts-men.html
-
-**Should I Tell My Conservative Mother That My Child Is Trans?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who worries that speaking up will cause a family fracture.`\
-https://www.nytimes.com/2026/07/30/well/family/trans-gender-family-secret.html
 
