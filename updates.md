@@ -1,4 +1,12 @@
 **Attack on Egyptian Port Shows Suez Canal’s Vulnerability**\
+`The port where the Wednesday strike occurred is near the Suez Canal, through which a significant amount of the world’s shipping moves.`\
+https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-canal-vulnerability.html
+
+**For Fame, Press 1. For Infamy, Press 2.**\
+`Would you rather be famous or infamous?`\
+https://www.nytimes.com/2026/07/30/opinion/fauci-el-syed-democratic-socialists-america.html
+
+**Attack on Egyptian Port Shows Suez Canal’s Vulnerability**\
 `The port where the Wednesday strike occurred is near the Suez, through which a significant amount of the world’s shipping moves.`\
 https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-canal-vulnerability.html
 

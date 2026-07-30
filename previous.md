@@ -1,5 +1,5 @@
 **Attack on Egyptian Port Shows Suez Canal’s Vulnerability**\
-`The port where the Wednesday strike occurred is near the Suez, through which a significant amount of the world’s shipping moves.`\
+`The port where the Wednesday strike occurred is near the Suez Canal, through which a significant amount of the world’s shipping moves.`\
 https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-canal-vulnerability.html
 
 **Mission to Save Falling NASA Space Telescope Suffers Setback**\
@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/07/30/magazine/liberal-arts-degree-conservatives.ht
 https://www.nytimes.com/interactive/2026/07/30/travel/things-to-do-sifnos.html
 
 **For Fame, Press 1. For Infamy, Press 2.**\
-`Fauci and the D.S.A. have a lot to answer for.`\
+`Would you rather be famous or infamous?`\
 https://www.nytimes.com/2026/07/30/opinion/fauci-el-syed-democratic-socialists-america.html
 
 **Domi and JD Beck Return With ‘Who Asked?’**\
