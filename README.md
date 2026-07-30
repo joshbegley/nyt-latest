@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-dron
 `Carlos Fernández de Cossío, viceministro de Relaciones Exteriores de Cuba y uno de los interlocutores del gobierno comunista con EE. UU., habla con The New York Times sobre la actual crisis de la isla.`\
 https://www.nytimes.com/es/2026/07/30/espanol/america-latina/cuba-trump-bloqueo-negocios.html
 
-**Why Won’t America’s Aging Elite Retire?**\
-`How the elderly hoard the future.`\
+**How Older Americans Hoard the Future**\
+`Aging politicians are just the “tip of the iceberg.”`\
 https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
 
 **Gen Z Thinks Religion Got Too Political**\
@@ -134,8 +134,8 @@ https://www.nytimes.com/2026/07/30/realestate/housing-market-near-nyc.html
 `A Dutch fashion iconoclast turns the Brooklyn Museum into her atelier — and a reporter tries to be a couturier for a day.`\
 https://www.nytimes.com/2026/07/30/arts/design/iris-van-herpen-fashion-sculpting-the-senses-brooklyn.html
 
-**Why Won’t America’s Aging Elite Retire?**\
-`How the elderly hoard the future.`\
+**How Older Americans Hoard the Future**\
+`Aging politicians are just the “tip of the iceberg.”`\
 https://www.nytimes.com/video/opinion/100000011048682/why-wont-americas-aging-elite-retire.html
 
 **Cuba to Trump: We’re Open for Business**\
