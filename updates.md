@@ -1,3 +1,7 @@
+**China Threatens Retaliation as U.S. Moves to Block Robot Imports**\
+`The dispute highlights how robotics has become the latest battleground in the intensifying technological and industrial rivalry between Washington and Beijing.`\
+https://www.nytimes.com/2026/07/30/business/china-robots-ban-fcc.html
+
 **Si tienes más de 40 años, estás listo para la IA**\
 `La inteligencia artificial debería funcionar como esta práctica mística judía.`\
 https://www.nytimes.com/es/2026/07/30/espanol/opinion/ia-edad-uso.html

@@ -1,3 +1,7 @@
+**China Threatens Retaliation as U.S. Moves to Block Robot Imports**\
+`The dispute highlights how robotics has become the latest battleground in the intensifying technological and industrial rivalry between Washington and Beijing.`\
+https://www.nytimes.com/2026/07/30/business/china-robots-ban-fcc.html
+
 **Si tienes más de 40 años, estás listo para la IA**\
 `La inteligencia artificial debería funcionar como esta práctica mística judía.`\
 https://www.nytimes.com/es/2026/07/30/espanol/opinion/ia-edad-uso.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/29/world/europe-summer-heat-fires-saudi.html
 **Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
 `The discovery that chronic inflammation is a cause of myriad illnesses could be this century's biggest medical breakthrough.`\
 https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
-
-**Microsoft Increases Spending on A.I. as Profit Jumps 31%**\
-`Like other big technology companies, Microsoft is hoping its aggressive spending on artificial intelligence is starting to translate into revenue.`\
-https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-report.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
