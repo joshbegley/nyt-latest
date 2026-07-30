@@ -1,3 +1,7 @@
+**Earth’s Warming Primed France and Spain to Burn, Scientists Find**\
+`The likelihood of hot, dry weather that helps wildfires spread has increased sharply in Europe in recent decades, according to a new report.`\
+https://www.nytimes.com/2026/07/30/climate/france-spain-wildfires-climate-change.html
+
 **Father of Teenage Gunman in Georgia Sentenced to 15 Years in Prison**\
 `Colin Gray was sentenced to 15 years in prison on Thursday after a jury found that he bore responsibility for a shooting carried out by his teenage son at Apalachee High School in 2024.`\
 https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-georgia-sentenced-to-15-years-in-prison.html
