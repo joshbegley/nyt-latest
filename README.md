@@ -1,3 +1,7 @@
+**A Historian Considers the Yuppie**\
+`“We live in the world we inherited from them,” the author Dylan Gottlieb says.`\
+https://www.nytimes.com/2026/07/30/style/yuppie-historian-new-york-society-1980s.html
+
 **DOJ Seeks to Use Secretive Court to Deport Mother of Convicted ISIS Supporter**\
 `The case is an early test of the court, where much of the evidence is presented in secret and defendants cannot challenge how it was collected.`\
 https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.htm
 `I wonder why that could be.`\
 https://www.nytimes.com/2026/07/30/opinion/gen-z-religion-evangelicals-trump.html
 
-**Warsh’s Performance Falls Flat With Markets as Fed Holds Rates Steady**\
-`Kevin M. Warsh has made taming inflation the top priority of his tenure as Federal Reserve chairman. But his hesitancy to embrace the possibility of higher borrowing costs has sparked a backlash.`\
+**Markets Challenge Warsh’s Approach to Taming Inflation**\
+`Kevin M. Warsh has made controlling inflation the top priority of his tenure as Federal Reserve chairman. But his hesitancy to embrace the possibility of higher borrowing costs has sparked a backlash.`\
 https://www.nytimes.com/2026/07/30/business/warshs-performance-falls-flat-with-markets-as-fed-holds-rates-steady.html
 
 **They Wanted a House in Miami for $800,000 — Attached or Otherwise**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/dining/diet-candy.html
 **‘The Samurai and the Prisoner’ Review: Kiyoshi Kurosawa’s Satisfying Whodunit**\
 `Kiyoshi Kurosawa directs a satisfying period piece about the tense collaboration between a lord and a cunning envoy.`\
 https://www.nytimes.com/2026/07/30/movies/the-samurai-and-the-prisoner-review.html
-
-**When A.I. Invaded ‘Heated Rivalry’ Fan Fiction, the Meltdown Was Epic**\
-`An anonymous X account posted a detailed breakdown of chatbot text in 38 popular stories inspired by the hockey romance. The fandom spiraled.`\
-https://www.nytimes.com/2026/07/30/technology/ai-heated-rivalry-fan-fiction.html
 
