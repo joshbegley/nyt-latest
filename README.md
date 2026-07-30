@@ -1,3 +1,11 @@
+**Japan Earthquake Death Toll Rises to 34**\
+`Rescue crews were working to find people who might still be trapped in a collapsed shopping mall, as the region faced sweltering heat.`\
+https://www.nytimes.com/2026/07/30/world/asia/japan-earthquake-kumamoto-death-toll.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011062991/30vid-spain-fire-embed-95927.html
+
 **Kawhi Leonard’s New Secret Side Deal**\
 `As the N.B.A. tries to end its investigation, Pablo digs even deeper.`\
 https://www.nytimes.com/2026/07/30/podcasts/kawhi-leonards-new-secret-side-deal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/science/earth/100000011059127/giant-manta-rays-pre
 **Salman Rushdie’s Attacker Found Guilty of Aiding a Foreign Terror Group**\
 `Hadi Matar stabbed Mr. Rushdie repeatedly at a literary conference in 2022 and could spend the rest of his life in prison.`\
 https://www.nytimes.com/2026/07/29/nyregion/hadi-matar-salman-rushdie-terror.html
-
-**What Our Epstein Outrage Has Obscured**\
-`It’s easy to shake our fists at a monster. It would be more effective to actually help exploited girls.`\
-https://www.nytimes.com/2026/07/29/opinion/sex-trafficking-epstein-exploited.html
-
-**The Summer That Broke Europe**\
-`Record heat and wildfires are devastating the continent, and scientists warn the climate crisis is getting worse.`\
-https://www.nytimes.com/2026/07/29/world/europe-summer-heat-fires-saudi.html
 
