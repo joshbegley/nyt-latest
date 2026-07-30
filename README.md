@@ -1,3 +1,19 @@
+**Basta de burlas sobre ‘envejecer mal’**\
+`Las críticas, las películas, las caricaturas, los libros reflejan tan solo un momento en el tiempo y un contexto determinado.`\
+https://www.nytimes.com/es/2026/07/30/espanol/opinion/envejecer-mal-burlas.html
+
+**Muchos casos de cáncer de ovario no inician en los ovarios**\
+`Las trompas de Falopio son el origen de la mayoría de casos, y extirparlas puede reducir el riesgo en casi un 80 por ciento.`\
+https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/cancer-ovario-prevencion.html
+
+**Tossed Tuna and Furloughed Workers: Midtown’s ‘Frozen Zone’ Scrapes By**\
+`For nearly three weeks, restaurants and other small businesses in the shadow of the former Pfizer building were shut when the tower began to buckle.`\
+https://www.nytimes.com/2026/07/30/nyregion/tossed-tuna-and-furloughed-workers-midtowns-frozen-zone-scrapes-by.html
+
+**NYT Spelling Bee Answers for July 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/30/crosswords/spelling-bee-forum.html
+
 **Fiebre de ‘squishies’: ¿Por qué es tan difícil conseguir estos juguetes?**\
 `Los niños hacen, intercambian y buscan squishies, esos juguetes blanditos y moldeables que se pueden apretar y que vienen en una gran variedad de formas.`\
 https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/squishies-juguetes.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/07/29/technology/meta-profit-ai.html
 **Rusia acusa al fundador de Telegram de facilitar el terrorismo**\
 `Pavel Durov está bajo la mira del Kremlin en un renovado intento del Estado ruso por controlar la popular aplicación de mensajería.`\
 https://www.nytimes.com/es/2026/07/29/espanol/mundo/telegram-fundador-rusia-putin.html
-
-**Families Face Anxiety, Angst as Loved Ones Are Deployed to Fight Iran**\
-`As the war with Iran has continued, some are finding that the stress is bringing back old anxieties.`\
-https://www.nytimes.com/2026/07/29/us/iran-war-military-families-anxiety.html
-
-**The Internet Suddenly Loves Emeril, Years After His TV Stardom**\
-`Clips of his live shows are a hot item on social media, charming younger viewers with his kitchen basics.`\
-https://www.nytimes.com/2026/07/29/dining/emeril-lagasse.html
-
-**The Easiest Lemon Curd**\
-`Using a microwave to cook lemon curd streamlines the entire process, and eliminates the need to stand over the stove whisking constantly. The result is silky-smooth and as tart as you like.`\
-https://www.nytimes.com/video/dining/100000011061816/the-easiest-lemon-curd.html
-
-**10 Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
-`The accusations include sex with underage girls and sexually explicit messages. The actor denied the allegations.`\
-https://www.nytimes.com/2026/07/29/us/jared-leto-sexual-assault-bbc.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
