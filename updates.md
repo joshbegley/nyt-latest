@@ -1,3 +1,19 @@
+**DOJ Seeks to Use Secretive Court to Deport Mother of Convicted ISIS Supporter**\
+`The case is an early test of the court, where much of the evidence is presented in secret and defendants cannot challenge how it was collected.`\
+https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
+
+**U.S. Economy Grew More Slowly in the Second Quarter**\
+`Gross domestic product expanded at a 1.5 percent annual rate over the past three months, as war in the Middle East shook energy prices and supply chains.`\
+https://www.nytimes.com/2026/07/30/business/economy/us-economy-gdp-growth.html
+
+**A key inflation measure eased in June during a pause in the war with Iran.**\
+`Price pressures eased during a brief reprieve in the war with Iran, but the resumption of fighting suggests that inflation risks are still prevalent.`\
+https://www.nytimes.com/2026/07/30/business/feds-preferred-inflation-gauge-eased-in-june.html
+
+**China, Its Economy Stumbling, Signals Only Cautious Support**\
+`The ruling Politburo called for “more proactive” tax and spending policies but did not endorse broad action to address weak consumer spending.`\
+https://www.nytimes.com/2026/07/30/business/china-economy-politburo.html
+
 **Accept Your Fate. Don’t Wear Shorts to the Office.**\
 `It might be hot but men must resist showing the knee.`\
 https://www.nytimes.com/2026/07/30/opinion/office-shorts-men.html

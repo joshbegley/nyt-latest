@@ -1,3 +1,19 @@
+**DOJ Seeks to Use Secretive Court to Deport Mother of Convicted ISIS Supporter**\
+`The case is an early test of the court, where much of the evidence is presented in secret and defendants cannot challenge how it was collected.`\
+https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
+
+**U.S. Economy Grew More Slowly in the Second Quarter**\
+`Gross domestic product expanded at a 1.5 percent annual rate over the past three months, as war in the Middle East shook energy prices and supply chains.`\
+https://www.nytimes.com/2026/07/30/business/economy/us-economy-gdp-growth.html
+
+**A key inflation measure eased in June during a pause in the war with Iran.**\
+`Price pressures eased during a brief reprieve in the war with Iran, but the resumption of fighting suggests that inflation risks are still prevalent.`\
+https://www.nytimes.com/2026/07/30/business/feds-preferred-inflation-gauge-eased-in-june.html
+
+**China, Its Economy Stumbling, Signals Only Cautious Support**\
+`The ruling Politburo called for “more proactive” tax and spending policies but did not endorse broad action to address weak consumer spending.`\
+https://www.nytimes.com/2026/07/30/business/china-economy-politburo.html
+
 **A ‘Credibility Shock’ Looms Over the Fed**\
 `Bonds sold off sharply after the Federal Reserve’s latest rate decision, signaling growing turmoil between the markets and the central bank.`\
 https://www.nytimes.com/2026/07/30/business/dealbook/fed-warsh-credibility-shock.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/30/movies/the-samurai-and-the-prisoner-review.ht
 **When A.I. Invaded ‘Heated Rivalry’ Fan Fiction, the Meltdown Was Epic**\
 `An anonymous X account posted a detailed breakdown of chatbot text in 38 popular stories inspired by the hockey romance. The fandom spiraled.`\
 https://www.nytimes.com/2026/07/30/technology/ai-heated-rivalry-fan-fiction.html
-
-**Three of Summer’s Best Thrillers**\
-`Our columnist on “The Amateur,” by Chris Bohjalian, and two other books.`\
-https://www.nytimes.com/2026/07/30/books/review/new-thriller-novels.html
-
-**It’s ‘Game of Thrones,’ on Shakespeare’s Stage**\
-`As the hit series keeps expanding, an ambitious stage adaptation of George R.R. Martin’s prequel saga has found a natural home at the Royal Shakespeare Company.`\
-https://www.nytimes.com/2026/07/30/theater/game-of-thrones-mad-king-royal-shakespeare.html
-
-**Word of the Day: emolument**\
-`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/07/30/learning/word-of-the-day-emolument.html
-
-**How to Watch Two Summer Meteor Showers Peak On the Same Night**\
-`The end of July brings the Alpha Capricornids and the Southern Delta Aquarids, both of which will be most active on Thursday night into Friday morning.`\
-https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
 
