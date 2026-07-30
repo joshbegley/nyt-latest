@@ -1,3 +1,7 @@
+**¿Las galletas de Crumbl son las mejores o las peores? Da igual**\
+`La cadena de postres de más rápido crecimiento en Estados Unidos tiene divididos a los amantes de los dulces. Pero el debate es excelente para el negocio.`\
+https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
+
 **Ronald G. Davis, a Mime Who Spoke Out, Dies at 92**\
 `At the height of the psychedelic era, he guided the very vocal San Francisco Mime Troupe’s pointed satire of American militarism, racism and bourgeois values.`\
 https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html

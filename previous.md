@@ -1,3 +1,7 @@
+**¿Las galletas de Crumbl son las mejores o las peores? Da igual**\
+`La cadena de postres de más rápido crecimiento en Estados Unidos tiene divididos a los amantes de los dulces. Pero el debate es excelente para el negocio.`\
+https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
+
 **Ronald G. Davis, a Mime Who Spoke Out, Dies at 92**\
 `At the height of the psychedelic era, he guided the very vocal San Francisco Mime Troupe’s pointed satire of American militarism, racism and bourgeois values.`\
 https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.htm
 **Gen Z Thinks Religion Got Too Political**\
 `Does Gen Z feel welcome at church?`\
 https://www.nytimes.com/2026/07/30/opinion/gen-z-religion-evangelicals-trump.html
-
-**Markets Challenge Warsh’s Approach to Taming Inflation**\
-`Kevin M. Warsh has made controlling inflation the top priority of his tenure as Federal Reserve chairman. But his hesitancy to embrace the possibility of higher borrowing costs has sparked a backlash.`\
-https://www.nytimes.com/2026/07/30/business/warshs-performance-falls-flat-with-markets-as-fed-holds-rates-steady.html
 
