@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/07/29/opinion/anthony-fauci-hearing-covid.html
 https://www.nytimes.com/2026/07/29/business/economy/treasury-yields-fed-inflation.html
 
 **New Strikes Engulf More Countries in the Iran War**\
-`President Trump threatened retribution after Iran fired missiles at U.S. military bases in Jordan. Strikes by U.S. and Saudi warplanes on Iranian-linked militias in Iraq were a further escalation after a lull.`\
+`The U.S. unleashed new strikes on Iran after a day in which attacks on Iraq, Jordan and Egypt threatened to expand the scope of the war.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/iran-war-us-jordan-saudi-iraq.html
 
 **Trump Unveils $22.5 Billion Redesign of Dulles Airport**\
