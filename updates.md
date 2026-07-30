@@ -1,3 +1,11 @@
+**Ebola Outbreak Is Now the Second-Deadliest Ever, and in Record Time**\
+`The disease has killed more than 1,500 people in the Democratic Republic of Congo in just over two months, causing deaths faster than officials have ever recorded.`\
+https://www.nytimes.com/2026/07/30/world/africa/ebola-deaths-record.html
+
+**Russian Missile Lands in Polish Field During Deadly Ukraine Attack, NATO Says**\
+`NATO said that a Russian-launched missile had exploded in Poland, a member of the military alliance, during a large-scale overnight assault on neighboring Ukraine.`\
+https://www.nytimes.com/video/world/europe/100000011063135/russian-missile-lands-in-polish-field-during-deadly-ukraine-attack-nato-says.html
+
 **A City With a Plan**\
 `Cincinnati wants to take in people fleeing climate disasters. Plus, the latest on fires in Europe.`\
 https://www.nytimes.com/2026/07/30/climate/cincinnati-climate-migrants-plan.html
