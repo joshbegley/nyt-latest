@@ -1,3 +1,7 @@
+**U.S. Aircraft Carrier Makes a Rare Port Call in Vietnam**\
+`The visit, the longest since the two countries restored relations, is a show of mutual cooperation and a signal from the U.S. to China. But it comes during tensions over tariffs.`\
+https://www.nytimes.com/2026/07/30/world/asia/vietnam-aircraft-carrier.html
+
 **To Know What Your Customers Think, Just Ask Their A.I. Twins**\
 `Simile, a fast-growing start-up, says it can provide companies with accurate insights by surveying millions of A.I.-generated consumers.`\
 https://www.nytimes.com/2026/07/30/business/dealbook/simile-ai-agents-funding.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
 **A New York Hair Salon, Happily Stuck in 1986**\
 `All around it, luxury boutiques attract a wealthy crowd. But Anonymous Hair Salon hasn’t changed much since opening all those years ago.`\
 https://www.nytimes.com/2026/07/30/style/anonymous-hair-salon-soho-manhattan.html
-
-**Is a Novel Ever Finished? Many Writers Say No.**\
-`After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Vote below for the one you prefer.`\
-https://www.nytimes.com/2026/07/30/books/review/unfinished-novel-galley-zadie-smith-saul-bellow.html
 
