@@ -1,3 +1,7 @@
+**Simone Forti, Movement Artist Inspired by the Everyday, Dies at 91**\
+`The creator of Dance Constructions that borrowed from sculpture and performance, she was a deep influence in the early 1960s on ideas about what dance could be.`\
+https://www.nytimes.com/2026/07/29/arts/dance/simone-forti-dead.html
+
 **Hollywood Foreign Press Association Sues Over Takeover of Golden Globes**\
 `The press association, which owned and operated the awards show until 2023, is suing its new owner, Penske Media, claiming its purchase was fraudulent.`\
 https://www.nytimes.com/2026/07/29/business/media/golden-globes-penske-hollywood-foreign-press.html
