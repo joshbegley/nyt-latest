@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/07/30/technology/ai-bubble-venture-capital.html
 `The United States is an outlier in the West. We look at why the country clings to the death penalty.`\
 https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.html
 
-**Apple’s Profit Increases 27 Percent, Topping Wall Street Expectations**\
+**Apple’s Profit Is Up 27%, but Expectations for Current Quarter Disappoint**\
 `The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/30/technology/apple-earnings.html
 

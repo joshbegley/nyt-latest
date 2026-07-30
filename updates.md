@@ -1,3 +1,7 @@
+**Apple’s Profit Is Up 27%, but Expectations for Current Quarter Disappoint**\
+`The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
+https://www.nytimes.com/2026/07/30/technology/apple-earnings.html
+
 **Iran War Is Entangling a Growing List of Mideast Nations**\
 `As the U.S. and Iran exchange strikes, more countries are being touched — and some are joining in.`\
 https://www.nytimes.com/2026/07/30/world/middleeast/us-iran-war-expansion.html
