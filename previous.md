@@ -1,3 +1,7 @@
+**Fiebre de ‘squishies’: ¿Por qué es tan difícil conseguir estos juguetes?**\
+`Los niños hacen, intercambian y buscan squishies, esos juguetes blanditos y moldeables que se pueden apretar y que vienen en una gran variedad de formas.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/squishies-juguetes.html
+
 **Late Night Reviews Trump’s Eulogy for ‘Friend’ Lindsey Graham**\
 `“I can’t believe I have to say this to Donald Trump, but can you just lie to us?” Jordan Klepper said on “The Daily Show.”`\
 https://www.nytimes.com/2026/07/30/arts/television/late-night-trump-eulogy-lindsey-graham.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/dining/100000011061816/the-easiest-lemon-curd.html
 **10 Women Accuse Jared Leto of Sexual Misconduct in BBC Report**\
 `The accusations include sex with underage girls and sexually explicit messages. The actor denied the allegations.`\
 https://www.nytimes.com/2026/07/29/us/jared-leto-sexual-assault-bbc.html
-
-**Incendios en Europa: la llegada de una ‘nueva era de megaincendios’**\
-`El declive de la actividad agrícola en el continente europeo ha cambiado los mosaicos de pastizales y campos arados por vegetación silvestre que arde intensamente durante los veranos calurosos y secos.`\
-https://www.nytimes.com/es/2026/07/29/espanol/tiempo-y-clima/espana-mega-incendios-francia-cambio-climatico.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\

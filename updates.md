@@ -1,3 +1,7 @@
+**Fiebre de ‘squishies’: ¿Por qué es tan difícil conseguir estos juguetes?**\
+`Los niños hacen, intercambian y buscan squishies, esos juguetes blanditos y moldeables que se pueden apretar y que vienen en una gran variedad de formas.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/squishies-juguetes.html
+
 **Late Night Reviews Trump’s Eulogy for ‘Friend’ Lindsey Graham**\
 `“I can’t believe I have to say this to Donald Trump, but can you just lie to us?” Jordan Klepper said on “The Daily Show.”`\
 https://www.nytimes.com/2026/07/30/arts/television/late-night-trump-eulogy-lindsey-graham.html
