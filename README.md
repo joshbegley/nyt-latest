@@ -1,3 +1,7 @@
+**Fried Chicken with Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
+`The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
+https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
+
 **Spain Mobilizes Military as Thousands of Migrants Cross Into Ceuta**\
 `The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
 https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organizati
 **Trump’s Tariff Exemptions Include Diamonds, Oil and Gas, Copper and Other Items**\
 `A new round of tariff carve-outs has raised familiar questions about who should receive the lucrative exceptions, and why.`\
 https://www.nytimes.com/2026/07/30/business/economy/trump-tariffs-exemptions.html
-
-**Today, In Short**\
-`Influencers. Route 66. And Emeril-maxxing.`\
-https://www.nytimes.com/2026/07/30/briefing/today-in-short.html
 
