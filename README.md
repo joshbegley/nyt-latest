@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/07/30/style/yuppie-historian-new-york-society-1980s
 https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
 
 **U.S. GDP Growth Slowed in Second Quarter of 2026**\
-`Gross domestic product expanded at a 1.5 percent annual rate over the past three months, as war in the Middle East shook energy prices and supply chains.`\
+`Gross domestic product grew at a slower rate in the second quarter and persistent price pressures are unsettling financial markets.`\
 https://www.nytimes.com/2026/07/30/business/economy/us-economy-gdp-growth.html
 
 **Fed’s Preferred Inflation Gauge Eased During Pause in Iran War**\
