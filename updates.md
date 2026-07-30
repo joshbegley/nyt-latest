@@ -1,3 +1,7 @@
+**A City With a Plan**\
+`Cincinnati wants to take in people fleeing climate disasters. Plus, the latest on fires in Europe.`\
+https://www.nytimes.com/2026/07/30/climate/cincinnati-climate-migrants-plan.html
+
 **Former Lt. Gov. Mandela Barnes Exits Race for Wisconsin Governor**\
 `With a democratic socialist, Francesca Hong, leading in polls, former Lt. Gov. Mandela Barnes said he was ending his campaign in the closely divided state.`\
 https://www.nytimes.com/2026/07/30/us/wisconsin-democratic-primary-for-governor-narrows-as-candidate-exits.html

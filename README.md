@@ -1,3 +1,7 @@
+**Russian Missile Lands in Polish Field During Deadly Ukraine Attack, NATO Says**\
+`NATO said that a Russian-launched missile had exploded in Poland, a member of the military alliance, during a large-scale overnight assault on neighboring Ukraine.`\
+https://www.nytimes.com/video/world/europe/100000011063135/russian-missile-lands-in-polish-field-during-deadly-ukraine-attack-nato-says.html
+
 **Former Lt. Gov. Mandela Barnes Exits Race for Wisconsin Governor**\
 `With a democratic socialist, Francesca Hong, leading in polls, former Lt. Gov. Mandela Barnes said he was ending his campaign in the closely divided state.`\
 https://www.nytimes.com/2026/07/30/us/wisconsin-democratic-primary-for-governor-narrows-as-candidate-exits.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/us/boyle-heights-warehouse-fire-smell.html
 **A Historian Considers the Yuppie**\
 `“We live in the world we inherited from them,” the author Dylan Gottlieb says.`\
 https://www.nytimes.com/2026/07/30/style/yuppie-historian-new-york-society-1980s.html
-
-**DOJ Seeks to Use Court to Deport Mother of Convicted ISIS Supporter**\
-`The case is an early test of a court that has never been used before, where much of the evidence is presented in secret and defendants cannot challenge how it was collected.`\
-https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
 
