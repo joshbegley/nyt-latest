@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011063002/30vid-greece-fire-embed-37498.html
+
 **Japan Earthquake Death Toll Rises to 34**\
 `Rescue crews were working to find people who might still be trapped in a collapsed shopping mall, as the region faced sweltering heat.`\
 https://www.nytimes.com/2026/07/30/world/asia/japan-earthquake-kumamoto-death-toll.html
