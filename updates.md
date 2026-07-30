@@ -1,3 +1,19 @@
+**Former Lt. Gov. Mandela Barnes Exits Race for Wisconsin Governor**\
+`With a democratic socialist, Francesca Hong, leading in polls, former Lt. Gov. Mandela Barnes said he was ending his campaign in the closely divided state.`\
+https://www.nytimes.com/2026/07/30/us/wisconsin-democratic-primary-for-governor-narrows-as-candidate-exits.html
+
+**Our Modern Way of Speaking Comes With Extra Dressing**\
+`We don’t speak just to say something. We speak to be heard.`\
+https://www.nytimes.com/2026/07/30/opinion/gen-z-speech-patterns-language.html
+
+**Our 2026-27 Student Contest Calendar**\
+`Seven opportunities for teenagers to engage, experiment, reflect and create — via writing, audio, video, visual art and more.`\
+https://www.nytimes.com/2026/07/30/learning/our-2026-27-student-contest-calendar.html
+
+**A City With a Plan**\
+`Cincinnati wants to take in people fleeing climate disasters. Plus, the latest on fires in Europe.`\
+https://www.nytimes.com/2026/07/30/climate/cincinatti-climate-migrants-plan.html
+
 **State Department Map Mislabels African Countries at AIDS Conference**\
 `Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
 https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html

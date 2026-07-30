@@ -1,3 +1,19 @@
+**Former Lt. Gov. Mandela Barnes Exits Race for Wisconsin Governor**\
+`With a democratic socialist, Francesca Hong, leading in polls, former Lt. Gov. Mandela Barnes said he was ending his campaign in the closely divided state.`\
+https://www.nytimes.com/2026/07/30/us/wisconsin-democratic-primary-for-governor-narrows-as-candidate-exits.html
+
+**Our Modern Way of Speaking Comes With Extra Dressing**\
+`We don’t speak just to say something. We speak to be heard.`\
+https://www.nytimes.com/2026/07/30/opinion/gen-z-speech-patterns-language.html
+
+**Our 2026-27 Student Contest Calendar**\
+`Seven opportunities for teenagers to engage, experiment, reflect and create — via writing, audio, video, visual art and more.`\
+https://www.nytimes.com/2026/07/30/learning/our-2026-27-student-contest-calendar.html
+
+**A City With a Plan**\
+`Cincinnati wants to take in people fleeing climate disasters. Plus, the latest on fires in Europe.`\
+https://www.nytimes.com/2026/07/30/climate/cincinatti-climate-migrants-plan.html
+
 **State Department Map Mislabels African Countries at AIDS Conference**\
 `Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
 https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/30/style/yuppie-historian-new-york-society-1980s
 **DOJ Seeks to Use Court to Deport Mother of Convicted ISIS Supporter**\
 `The case is an early test of a court that has never been used before, where much of the evidence is presented in secret and defendants cannot challenge how it was collected.`\
 https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
-
-**U.S. GDP Growth Slowed in Second Quarter of 2026**\
-`Gross domestic product grew at a slower rate in the second quarter and persistent price pressures are unsettling financial markets.`\
-https://www.nytimes.com/2026/07/30/business/economy/us-economy-gdp-growth.html
-
-**Fed’s Preferred Inflation Gauge Eased During Pause in Iran War**\
-`Price pressures eased during a brief reprieve in the war with Iran, but the resumption of fighting suggests that inflation risks are still prevalent.`\
-https://www.nytimes.com/2026/07/30/business/federal-reserve-inflation-iran-war.html
-
-**China, Its Economy Stumbling, Signals Only Cautious Support**\
-`The ruling Politburo called for “more proactive” tax and spending policies but did not endorse broad action to address weak consumer spending.`\
-https://www.nytimes.com/2026/07/30/business/china-economy-politburo.html
-
-**A ‘Credibility Shock’ Looms Over the Fed**\
-`Bonds sold off sharply after the Federal Reserve’s latest rate decision, signaling growing turmoil between the markets and the central bank.`\
-https://www.nytimes.com/2026/07/30/business/dealbook/fed-warsh-credibility-shock.html
 
