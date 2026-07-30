@@ -1,3 +1,19 @@
+**Basta de burlas sobre ‘envejecer mal’**\
+`Las críticas, las películas, las caricaturas, los libros reflejan tan solo un momento en el tiempo y un contexto determinado.`\
+https://www.nytimes.com/es/2026/07/30/espanol/opinion/envejecer-mal-burlas.html
+
+**Muchos casos de cáncer de ovario no inician en los ovarios**\
+`Las trompas de Falopio son el origen de la mayoría de casos, y extirparlas puede reducir el riesgo en casi un 80 por ciento.`\
+https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/cancer-ovario-prevencion.html
+
+**Tossed Tuna and Furloughed Workers: Midtown’s ‘Frozen Zone’ Scrapes By**\
+`For nearly three weeks, restaurants and other small businesses in the shadow of the former Pfizer building were shut when the tower began to buckle.`\
+https://www.nytimes.com/2026/07/30/nyregion/tossed-tuna-and-furloughed-workers-midtowns-frozen-zone-scrapes-by.html
+
+**NYT Spelling Bee Answers for July 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/07/30/crosswords/spelling-bee-forum.html
+
 **Fiebre de ‘squishies’: ¿Por qué es tan difícil conseguir estos juguetes?**\
 `Los niños hacen, intercambian y buscan squishies, esos juguetes blanditos y moldeables que se pueden apretar y que vienen en una gran variedad de formas.`\
 https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/squishies-juguetes.html
