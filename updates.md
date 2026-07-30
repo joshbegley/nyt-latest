@@ -1,3 +1,19 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html
+
+**‘This Is Very Strange’: Ancient Smallpox May Have Been Less Deadly**\
+`Scientists have found smallpox viruses in the remains of people in Chile from around 500 years ago, revealing how the virus may have evolved into a global killer.`\
+https://www.nytimes.com/2026/07/30/science/ancient-small-pox.html
+
+**Linda Perhacs, the Folk Singer, Is Found and Is Safe, Authorities Confirm**\
+`Friends of the “Parallelograms” artist, who was reported missing earlier this week, said she is living in a new care facility.`\
+https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.html
+
+**A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
+`The once-high flying firm Situational Awareness, whose founder is 24, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
+
 **Saudi Arabia Aims to Deter Red Sea Attacks With New Coalition**\
 `Facing attacks by Yemen’s Houthi militia, Saudi Arabia has invited dozens of countries to assist it in protecting shipping in the Red Sea, diplomats say.`\
 https://www.nytimes.com/2026/07/30/world/middleeast/saudi-arabia-red-sea-houthis.html
