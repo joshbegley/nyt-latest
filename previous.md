@@ -1,3 +1,7 @@
+**2 lluvias de estrellas tendrán su pico en la misma noche. Cómo verlas**\
+`El final de julio trae a las Alfa Capricórnidas y las Delta Acuáridas del Sur, ambas estarán en su punto de mayor actividad durante la noche del jueves y la madrugada del viernes.`\
+https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/como-ver-meteoros-capricornidas-acuaridas.html
+
 **Erica Schwartz, Trump’s Nominee for C.D.C. Director, Advances to Full Senate Vote**\
 `A vote to confirm Dr. Erica Schwartz, who has publicly supported childhood vaccines, will take place in the full Senate.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-cdc-erica-schwartz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/arts/music/domi-jd-beck-who-asked-interview.h
 **Anthony Bourdain’s Wild Summers Still Echo in Provincetown**\
 `As a new film evokes his coming-of-age in this bohemian Cape Cod town, Pete Wells goes looking for the people and restaurants that shaped him.`\
 https://www.nytimes.com/2026/07/30/dining/anthony-bourdain-provincetown-tony-movie.html
-
-**As China’s A.I. Gets Stronger, It Poses New Risks to Beijing**\
-`China’s A.I. rise is creating a new dilemma for Beijing. The open models that win influence abroad may pose risks to the country’s security and geopolitical strategy.`\
-https://www.nytimes.com/2026/07/30/world/asia/as-chinas-ai-gets-stronger-it-poses-new-risks-to-beijing.html
 
