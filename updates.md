@@ -1,3 +1,7 @@
+**Hollywood Foreign Press Association Sues Over Takeover of Golden Globes**\
+`The press association, which owned and operated the awards show until 2023, is suing its new owner, Penske Media, claiming its purchase was fraudulent.`\
+https://www.nytimes.com/2026/07/29/business/media/golden-globes-penske-hollywood-foreign-press.html
+
 **Dentists in Brooklyn Exploited Patients in Pain, Lawsuit Charges**\
 `New York City sued two dental practices, saying they offered patients high-interest loans to pay their bills and often falsely said procedures were not covered by insurance.`\
 https://www.nytimes.com/2026/07/29/us/dentists-canarsie-brooklyn-insurance-lawsuit.html

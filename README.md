@@ -1,3 +1,7 @@
+**Simone Forti, Movement Artist Inspired by the Everyday, Dies at 91**\
+`The creator of Dance Constructions that borrowed from sculpture and performance, she was a deep influence in the early 1960s on ideas about what dance could be.`\
+https://www.nytimes.com/2026/07/29/arts/dance/simone-forti-dead.html
+
 **Hollywood Foreign Press Association Sues Over Takeover of Golden Globes**\
 `The press association, which owned and operated the awards show until 2023, is suing its new owner, Penske Media, claiming its purchase was fraudulent.`\
 https://www.nytimes.com/2026/07/29/business/media/golden-globes-penske-hollywood-foreign-press.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/29/style/tiny-modern-love-stories-women-undulati
 **Trump Administration Is Repurposing Federal Land for A.I. Data Centers**\
 `In the latest example, the Energy Department will convert a shuttered Cold War-era uranium enrichment facility into a data center campus and gas plants.`\
 https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
-
-**What to Know About Iraq’s Militias**\
-`At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/iraq-popular-mobilization-forces-iran.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
