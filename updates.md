@@ -1,3 +1,7 @@
+**Algunas empresas regresan a China ante los aranceles de Trump**\
+`Para algunas marcas estadounidenses que buscan dónde instalar sus fábricas, la lógica económica vuelve a inclinar la balanza hacia China.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/china-trump-aranceles.html
+
 **China Threatens Retaliation as U.S. Moves to Block Robot Imports**\
 `The dispute highlights how robotics has become the latest battleground in the intensifying technological and industrial rivalry between Washington and Beijing.`\
 https://www.nytimes.com/2026/07/30/business/china-robots-ban-fcc.html
