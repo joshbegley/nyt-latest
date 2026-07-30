@@ -1,3 +1,11 @@
+**Father of Teenage Gunman in Georgia Sentenced to 15 Years in Prison**\
+`Colin Gray was sentenced to 15 years in prison on Thursday after a jury found that he bore responsibility for a shooting carried out by his teenage son at Apalachee High School in 2024.`\
+https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-georgia-sentenced-to-15-years-in-prison.html
+
+**Dulles Airport’s Reviled ‘People Movers’ May Be Lurching Into the Sunset**\
+`A $22.5 billion redesign plan eliminates the “mobile lounges,” which were conceived as a way of making air travel more efficient. Many passengers found the opposite to be true.`\
+https://www.nytimes.com/2026/07/30/us/dulles-airport-people-movers-trump.html
+
 **T.S.A. Finds 5 Civil War Cannonballs in Passenger’s Luggage in Alabama**\
 `The inert relics, some as big as a grapefruit, were detected when agents X-rayed checked bags.`\
 https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/07/30/us/politics/trump-voa-news-sarah-rogers.html
 `The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
 https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
 
-**Spain Mobilizes Military as Thousands of Migrants Cross Into Ceuta**\
+**Thousands of Migrants Enter Ceuta, a Spanish Enclave, From Morocco**\
 `The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
 https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/30/movies/jimmy-review-james-baldwin.html
 **For Museum Boss Who Became a Trump Target, It’s Déjà Vu All Over Again**\
 `Kim Sajet left as director of the National Portrait Gallery when she found herself in the White House cross hairs. Now she’s watching another Smithsonian chief go through it.`\
 https://www.nytimes.com/2026/07/30/arts/design/trump-smithsonian-museums-sajet-hartig.html
-
-**Taco Bell Sales Recover Following Cyclospora Outbreak**\
-`Transparency around pulling affected lettuce from stores has helped Taco Bell regain consumer trust, its parent company, Yum Brands, said.`\
-https://www.nytimes.com/2026/07/30/business/taco-bell-sales-cyclospora.html
-
-**Un incendio forestal en Grecia causa la muerte de 2 bomberos mientras miles evacúan**\
-`Grecia también trabajó para contener incendios en Lesbos y en el Peloponeso, donde murió otro bombero, en medio de una brutal temporada de incendios forestales para Europa.`\
-https://www.nytimes.com/es/2026/07/30/espanol/mundo/incendios-europa-grecia.html
 

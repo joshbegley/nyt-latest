@@ -1,3 +1,15 @@
+**Father of Teenage Gunman in Georgia Sentenced to 15 Years in Prison**\
+`Colin Gray was sentenced to 15 years in prison on Thursday after a jury found that he bore responsibility for a shooting carried out by his teenage son at Apalachee High School in 2024.`\
+https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-georgia-sentenced-to-15-years-in-prison.html
+
+**Dulles Airport’s Reviled ‘People Movers’ May Be Lurching Into the Sunset**\
+`A $22.5 billion redesign plan eliminates the “mobile lounges,” which were conceived as a way of making air travel more efficient. Many passengers found the opposite to be true.`\
+https://www.nytimes.com/2026/07/30/us/dulles-airport-people-movers-trump.html
+
+**Thousands of Migrants Enter Ceuta, a Spanish Enclave, From Morocco**\
+`The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
+https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html
+
 **T.S.A. Finds 5 Civil War Cannonballs in Passenger’s Luggage in Alabama**\
 `The inert relics, some as big as a grapefruit, were detected when agents X-rayed checked bags.`\
 https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
