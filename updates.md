@@ -1,3 +1,15 @@
+**To Know What Your Customers Think, Just Ask Their A.I. Twins**\
+`Simile, a fast-growing start-up, says it can provide companies with accurate insights by surveying millions of A.I.-generated consumers.`\
+https://www.nytimes.com/2026/07/30/business/dealbook/simile-ai-agents-funding.html
+
+**Retribution**\
+`We look at the ongoing fight between the Trump administration and James Comey.`\
+https://www.nytimes.com/2026/07/30/briefing/president-trump-james-comey.html
+
+**Poland’s Leader Says Russian Missile May Have Struck Its Territory During Ukraine Attack**\
+`Russian missiles have briefly entered Polish airspace in the past. Investigators have yet to definitively identify the object that struck Poland overnight.`\
+https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
+
 **Pope Leo Says He Hopes to Visit U.S. Within ‘Next Couple of Years’**\
 `When asked about a possible trip, Leo XIV said that he had been looking at the calendar for the “next couple of years.”`\
 https://www.nytimes.com/2026/07/30/world/europe/pope-leo-visit-us-american.html

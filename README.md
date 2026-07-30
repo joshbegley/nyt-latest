@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
 https://www.nytimes.com/2026/07/30/style/anonymous-hair-salon-soho-manhattan.html
 
 **Is a Novel Ever Finished? Many Writers Say No.**\
-`After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Please vote below for the one you prefer.`\
+`After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Vote below for the one you prefer.`\
 https://www.nytimes.com/2026/07/30/books/review/unfinished-novel-galley-zadie-smith-saul-bellow.html
 
