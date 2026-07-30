@@ -1,3 +1,7 @@
+**Dentists in Brooklyn Exploited Patients in Pain, Lawsuit Charges**\
+`New York City sued two dental practices, saying they offered patients high-interest loans to pay their bills and often falsely said procedures were not covered by insurance.`\
+https://www.nytimes.com/2026/07/29/us/dentists-canarsie-brooklyn-insurance-lawsuit.html
+
 **Tributes, and Politics Too, at Lindsey Graham’s Funeral in South Carolina**\
 `A gathering of South Carolina’s political elite paid tribute to the late senator’s career against a backdrop of a highly competitive race to replace him.`\
 https://www.nytimes.com/2026/07/29/us/politics/lindsey-graham-funeral-south-carolina.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/29/world/middleeast/iraq-popular-mobilization-fo
 **Fauci Accuses Senator Rand Paul of ‘Obsession’ During Senate Hearing**\
 `Dr. Anthony S. Fauci accused Senator Rand Paul of having an “unhinged obsession” with him during a Senate hearing on Wednesday on the origins of Covid-19.`\
 https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-senate-hearing.html
-
-**New York’s Tax on Second Homes**\
-`Readers, including the president of the Real Estate Board of New York, respond to an editorial that praised the tax. Also: Two psychiatrists, on the need to mourn.`\
-https://www.nytimes.com/2026/07/29/opinion/second-homes-tax-new-york.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
