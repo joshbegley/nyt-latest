@@ -1,3 +1,79 @@
+**Why Won’t America’s Aging Elite Retire?**\
+`How the elderly hoard the future.`\
+https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
+
+**Gen Z Thinks Religion Got Too Political**\
+`I wonder why that could be.`\
+https://www.nytimes.com/2026/07/30/opinion/gen-z-religion-evangelicals-trump.html
+
+**Warsh’s Performance Falls Flat With Markets as Fed Holds Rates Steady**\
+`Kevin M. Warsh has made taming inflation the top priority of his tenure as Federal Reserve chairman. But his hesitancy to embrace the possibility of higher borrowing costs has sparked a backlash.`\
+https://www.nytimes.com/2026/07/30/business/warshs-performance-falls-flat-with-markets-as-fed-holds-rates-steady.html
+
+**They Wanted a House in Miami for $800,000 — Attached or Otherwise**\
+`After seeing their rent balloon to more than $4,000 a month, a young couple searched some of Miami’s walkable neighborhoods for a single-family house or townhome where they could start a family.`\
+https://www.nytimes.com/interactive/2026/07/30/realestate/miami-florida-homes-townhouses-prices-sale.html
+
+**Mistaken Username Sent Man to Prison for 18 Months, Court Finds**\
+`An appeals court in Canada acquitted Brandon Klayme of child pornography-related charges. His Kik username had one less underscore than another account that was involved.`\
+https://www.nytimes.com/2026/07/30/world/canada/wrongful-conviction-kik-username-underscore.html
+
+**7 of Betye Saar’s Most Important Works**\
+`The artist, who died just short of her 100th birthday, subverted racist tropes by turning mammy dolls into warriors and presenting the breadth of the Black experience.`\
+https://www.nytimes.com/2026/07/30/arts/betye-saar-artwork.html
+
+**Apple’s Siri Got an A.I. Brain Transplant. Try These 5 Prompts to Get Acclimated.**\
+`An upgrade transformed the beleaguered virtual assistant into a modern chatbot. It’s imperfect but worth trying.`\
+https://www.nytimes.com/2026/07/30/technology/personaltech/apple-siri-ai-prompts.html
+
+**How Haley Stevens’s Accent Became a Flashpoint in Michigan’s Senate Race**\
+`How the politics of raised a’s and disappearing g’s briefly came to dominate the Michigan Senate race.`\
+https://www.nytimes.com/2026/07/30/us/politics/haley-stevens-accent-michigan-senate.html
+
+**After Obamacare Cuts, Hospitals Are Treating More Uninsured Patients**\
+`More people who lost coverage after congressional Republicans ended enhanced federal subsidies are now seeking care in emergency rooms and unable to pay bills.`\
+https://www.nytimes.com/2026/07/30/business/aca-obamacare-health-insurance.html
+
+**Conservatives Like the Liberal Arts, Actually. They Just Don’t Like the Phrase.**\
+`Some people revere the “liberal arts” while others call them useless. They’re probably talking about different things.`\
+https://www.nytimes.com/2026/07/30/magazine/liberal-arts-degree-conservatives.html
+
+**36 Hours on Sifnos, Greece: Things to Do and See**\
+`Coastal trails, whitewashed monasteries and thrilling new takes on traditional Greek cuisine make this uncrowded island worth the trip.`\
+https://www.nytimes.com/interactive/2026/07/30/travel/things-to-do-sifnos.html
+
+**For Fame, Press 1. For Infamy, Press 2.**\
+`Fauci and the D.S.A. have a lot to answer for.`\
+https://www.nytimes.com/2026/07/30/opinion/fauci-el-syed-democratic-socialists-america.html
+
+**Domi and JD Beck Return With ‘Who Asked?’**\
+`With their second album, “Who Asked?,” the virtuoso jazz-and-beyond duo Domi and JD Beck re-emerges with ever more intricate songs.`\
+https://www.nytimes.com/2026/07/30/arts/music/domi-jd-beck-who-asked-interview.html
+
+**Anthony Bourdain’s Wild Summers Still Echo in Provincetown**\
+`As a new film evokes his coming-of-age in this bohemian Cape Cod town, Pete Wells goes looking for the people and restaurants that shaped him.`\
+https://www.nytimes.com/2026/07/30/dining/anthony-bourdain-provincetown-tony-movie.html
+
+**As China’s A.I. Gets Stronger, It Poses New Risks to Beijing**\
+`China’s A.I. rise is creating a new dilemma for Beijing. The open models that win influence abroad may pose risks to the country’s security and geopolitical strategy.`\
+https://www.nytimes.com/2026/07/30/world/asia/as-chinas-ai-gets-stronger-it-poses-new-risks-to-beijing.html
+
+**Not Everyone Wants Year-Round Daylight Saving Time**\
+`Some Orthodox Jews oppose a bill that would make daylight saving time permanent, and farmers and some sleep experts are also opposed.`\
+https://www.nytimes.com/2026/07/30/nyregion/not-everyone-wants-year-round-daylight-saving-time.html
+
+**Bipartisan Anger Grows at Pentagon’s Delayed ‘Forever Chemicals’ Cleanups**\
+`Hundreds of bases are contaminated with PFAS, which are linked to low birth weight and other risks. Politicians from both parties are demanding explanations.`\
+https://www.nytimes.com/2026/07/30/climate/pfas-forever-chemical-pentagon-cleanup-delay.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are on the Upper West Side, in Yorkville and in Greenpoint.`\
+https://www.nytimes.com/2026/07/30/realestate/housing-market-nyc.html
+
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a three-bedroom in Wilton, Conn., and a four-bedroom in Great Neck, N.Y.`\
+https://www.nytimes.com/2026/07/30/realestate/housing-market-near-nyc.html
+
 **Iris van Herpen: Please Pleat With Me**\
 `A Dutch fashion iconoclast turns the Brooklyn Museum into her atelier — and a reporter tries to be a couturier for a day.`\
 https://www.nytimes.com/2026/07/30/arts/design/iris-van-herpen-fashion-sculpting-the-senses-brooklyn.html

@@ -1,3 +1,79 @@
+**Why Won’t America’s Aging Elite Retire?**\
+`How the elderly hoard the future.`\
+https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
+
+**Gen Z Thinks Religion Got Too Political**\
+`I wonder why that could be.`\
+https://www.nytimes.com/2026/07/30/opinion/gen-z-religion-evangelicals-trump.html
+
+**Warsh’s Performance Falls Flat With Markets as Fed Holds Rates Steady**\
+`Kevin M. Warsh has made taming inflation the top priority of his tenure as Federal Reserve chairman. But his hesitancy to embrace the possibility of higher borrowing costs has sparked a backlash.`\
+https://www.nytimes.com/2026/07/30/business/warshs-performance-falls-flat-with-markets-as-fed-holds-rates-steady.html
+
+**They Wanted a House in Miami for $800,000 — Attached or Otherwise**\
+`After seeing their rent balloon to more than $4,000 a month, a young couple searched some of Miami’s walkable neighborhoods for a single-family house or townhome where they could start a family.`\
+https://www.nytimes.com/interactive/2026/07/30/realestate/miami-florida-homes-townhouses-prices-sale.html
+
+**Mistaken Username Sent Man to Prison for 18 Months, Court Finds**\
+`An appeals court in Canada acquitted Brandon Klayme of child pornography-related charges. His Kik username had one less underscore than another account that was involved.`\
+https://www.nytimes.com/2026/07/30/world/canada/wrongful-conviction-kik-username-underscore.html
+
+**7 of Betye Saar’s Most Important Works**\
+`The artist, who died just short of her 100th birthday, subverted racist tropes by turning mammy dolls into warriors and presenting the breadth of the Black experience.`\
+https://www.nytimes.com/2026/07/30/arts/betye-saar-artwork.html
+
+**Apple’s Siri Got an A.I. Brain Transplant. Try These 5 Prompts to Get Acclimated.**\
+`An upgrade transformed the beleaguered virtual assistant into a modern chatbot. It’s imperfect but worth trying.`\
+https://www.nytimes.com/2026/07/30/technology/personaltech/apple-siri-ai-prompts.html
+
+**How Haley Stevens’s Accent Became a Flashpoint in Michigan’s Senate Race**\
+`How the politics of raised a’s and disappearing g’s briefly came to dominate the Michigan Senate race.`\
+https://www.nytimes.com/2026/07/30/us/politics/haley-stevens-accent-michigan-senate.html
+
+**After Obamacare Cuts, Hospitals Are Treating More Uninsured Patients**\
+`More people who lost coverage after congressional Republicans ended enhanced federal subsidies are now seeking care in emergency rooms and unable to pay bills.`\
+https://www.nytimes.com/2026/07/30/business/aca-obamacare-health-insurance.html
+
+**Conservatives Like the Liberal Arts, Actually. They Just Don’t Like the Phrase.**\
+`Some people revere the “liberal arts” while others call them useless. They’re probably talking about different things.`\
+https://www.nytimes.com/2026/07/30/magazine/liberal-arts-degree-conservatives.html
+
+**36 Hours on Sifnos, Greece: Things to Do and See**\
+`Coastal trails, whitewashed monasteries and thrilling new takes on traditional Greek cuisine make this uncrowded island worth the trip.`\
+https://www.nytimes.com/interactive/2026/07/30/travel/things-to-do-sifnos.html
+
+**For Fame, Press 1. For Infamy, Press 2.**\
+`Fauci and the D.S.A. have a lot to answer for.`\
+https://www.nytimes.com/2026/07/30/opinion/fauci-el-syed-democratic-socialists-america.html
+
+**Domi and JD Beck Return With ‘Who Asked?’**\
+`With their second album, “Who Asked?,” the virtuoso jazz-and-beyond duo Domi and JD Beck re-emerges with ever more intricate songs.`\
+https://www.nytimes.com/2026/07/30/arts/music/domi-jd-beck-who-asked-interview.html
+
+**Anthony Bourdain’s Wild Summers Still Echo in Provincetown**\
+`As a new film evokes his coming-of-age in this bohemian Cape Cod town, Pete Wells goes looking for the people and restaurants that shaped him.`\
+https://www.nytimes.com/2026/07/30/dining/anthony-bourdain-provincetown-tony-movie.html
+
+**As China’s A.I. Gets Stronger, It Poses New Risks to Beijing**\
+`China’s A.I. rise is creating a new dilemma for Beijing. The open models that win influence abroad may pose risks to the country’s security and geopolitical strategy.`\
+https://www.nytimes.com/2026/07/30/world/asia/as-chinas-ai-gets-stronger-it-poses-new-risks-to-beijing.html
+
+**Not Everyone Wants Year-Round Daylight Saving Time**\
+`Some Orthodox Jews oppose a bill that would make daylight saving time permanent, and farmers and some sleep experts are also opposed.`\
+https://www.nytimes.com/2026/07/30/nyregion/not-everyone-wants-year-round-daylight-saving-time.html
+
+**Bipartisan Anger Grows at Pentagon’s Delayed ‘Forever Chemicals’ Cleanups**\
+`Hundreds of bases are contaminated with PFAS, which are linked to low birth weight and other risks. Politicians from both parties are demanding explanations.`\
+https://www.nytimes.com/2026/07/30/climate/pfas-forever-chemical-pentagon-cleanup-delay.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are on the Upper West Side, in Yorkville and in Greenpoint.`\
+https://www.nytimes.com/2026/07/30/realestate/housing-market-nyc.html
+
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a three-bedroom in Wilton, Conn., and a four-bedroom in Great Neck, N.Y.`\
+https://www.nytimes.com/2026/07/30/realestate/housing-market-near-nyc.html
+
 **Iris van Herpen: Please Pleat With Me**\
 `A Dutch fashion iconoclast turns the Brooklyn Museum into her atelier — and a reporter tries to be a couturier for a day.`\
 https://www.nytimes.com/2026/07/30/arts/design/iris-van-herpen-fashion-sculpting-the-senses-brooklyn.html
@@ -121,80 +197,4 @@ https://www.nytimes.com/es/2026/07/30/espanol/opinion/ia-edad-uso.html
 **U.S. Renews Strikes on Iran as Fighting Resumes in the Middle East**\
 `U.S. Central Command announced early Thursday local time that it had launched new strikes on Iran in response to Iranian forces that were targeting U.S. military assets in the region.`\
 https://www.nytimes.com/video/world/middleeast/100000011062797/iran-war-us-strikes.html
-
-**Basta de burlas sobre ‘envejecer mal’**\
-`Las críticas, las películas, las caricaturas, los libros reflejan tan solo un momento en el tiempo y un contexto determinado.`\
-https://www.nytimes.com/es/2026/07/30/espanol/opinion/envejecer-mal-burlas.html
-
-**Muchos casos de cáncer de ovario no inician en los ovarios**\
-`Las trompas de Falopio son el origen de la mayoría de casos, y extirparlas puede reducir el riesgo en casi un 80 por ciento.`\
-https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/cancer-ovario-prevencion.html
-
-**Tossed Tuna and Furloughed Workers: Midtown’s ‘Frozen Zone’ Scrapes By**\
-`For nearly three weeks, restaurants and other small businesses in the shadow of the former Pfizer building were shut when the tower began to buckle.`\
-https://www.nytimes.com/2026/07/30/nyregion/tossed-tuna-and-furloughed-workers-midtowns-frozen-zone-scrapes-by.html
-
-**NYT Spelling Bee Answers for July 30, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/07/30/crosswords/spelling-bee-forum.html
-
-**Fiebre de ‘squishies’: ¿Por qué es tan difícil conseguir estos juguetes?**\
-`Los niños hacen, intercambian y buscan squishies, esos juguetes blanditos y moldeables que se pueden apretar y que vienen en una gran variedad de formas.`\
-https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/squishies-juguetes.html
-
-**Late Night Reviews Trump’s Eulogy for ‘Friend’ Lindsey Graham**\
-`“I can’t believe I have to say this to Donald Trump, but can you just lie to us?” Jordan Klepper said on “The Daily Show.”`\
-https://www.nytimes.com/2026/07/30/arts/television/late-night-trump-eulogy-lindsey-graham.html
-
-**Los bíceps de Matt Damon en ‘La odisea’ son de una mujer**\
-`Devyn Dalton, una doble de acción de apenas 1,40 metros de estatura, es la dueña de los espectaculares bíceps de Odiseo en la película de Christopher Nolan.`\
-https://www.nytimes.com/es/2026/07/30/espanol/estilos-de-vida/una-mujer-y-no-matt-damon-es-quien-enfrenta-a-los-lestrigones-en-la-odisea.html
-
-**Quote of the Day: Blistering Summer Pushes Europe to the Brink**\
-`Quotation of the Day for Thursday, July 30, 2026.`\
-https://www.nytimes.com/2026/07/30/pageoneplus/quote-of-the-day-blistering-summer-pushes-europe-to-the-brink.html
-
-**As Wildfires Plague Europe, Scotland Races to Save a Cherished National Park**\
-`As Europe’s climate warms, even moorlands and forests in the Cairngorms, in the Scottish Highlands, have fallen victim to rapidly spreading flames.`\
-https://www.nytimes.com/2026/07/30/world/europe/scotland-wildfire-cairngorms-highlands.html
-
-**A.I. Data Centers in Space? A System to Cool Chips Could Help.**\
-`Researchers at Caltech and Sophia Space, a start-up, have developed a technology using solar power to prevent computer equipment from overheating in orbit.`\
-https://www.nytimes.com/2026/07/30/business/solar-powered-data-centers.html
-
-**How Climate Change and Tariffs Help China Raise More Cattle**\
-`As increased rain makes grasslands and cornfields possible in areas that once were deserts, the world’s largest beef importer is becoming more self-reliant by expanding domestic herds.`\
-https://www.nytimes.com/2026/07/30/business/china-beef-imports-tariffs.html
-
-**U.S.-Saudi Attack on Iraqi Militias Risks Drawing Them into War**\
-`Iran-aligned militias in Iraq were under growing pressure to disarm, but the latest strikes may embolden them to get more deeply involved in the war.`\
-https://www.nytimes.com/2026/07/30/world/europe/iraqi-militias-iran-war-saudi-arabia-us.html
-
-**Corrections: July 30, 2026**\
-`Corrections that appeared in print on Thursday, July 30, 2026.`\
-https://www.nytimes.com/2026/07/30/pageoneplus/corrections-july-30-2026.html
-
-**Fertility Doctor Accused of Using Own Sperm to Impregnate Woman**\
-`Dr. Dennis Lutz, the chairman of the University of North Dakota’s OB-GYN department, did not deny the claims in a lawsuit. The university said it intends to fire him.`\
-https://www.nytimes.com/2026/07/29/us/university-north-dakota-obgyn-sued.html
-
-**Part of the Emerald City scene in Sidney Lumet’s 1978 film “The Wiz.”**\
-`Part of the Emerald City scene from Sidney Lumet’s “The Wiz” (1978).`\
-https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047559/part-of-the-emerald-city-scene-in-sidney-lumets-1978-film-the-wiz.html
-
-**Lucille Ball in a clip from the 1940 film “Dance, GIrl, Dance”**\
-`Lucille Ball in Dorothy Arzner’s “Dance, Girl, Dance” (1940).`\
-https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047737/lucille-ball-in-a-clip-from-the-1940-film-dance-girl-dance.html
-
-**Consuelo Harris dancing in Oscar Micheaux’s 1938 film “Swing!”**\
-`Consuelo Harris dancing a solo in Oscar Micheaux’s “Swing!” (1938).`\
-https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047165/consuelo-harris-dancing-in-oscar-micheauxs-1938-film-swing.html
-
-**The dance-off scene in Robert Wise and Jerome Robbins’s 1961 film “West Side Story.”**\
-`The dance-off scene in Robert Wise and Jerome Robbins’s “West Side Story” (1961).`\
-https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047403/the-dance-off-scene-in-robert-wise-and-jerome-robbinss-1961-film-west-side-story.html
-
-**Scenes from Claire Denis’s 1999 film “Beau Travail”**\
-`Members of the French Foreign Legion training in Claire Denis’s “Beau Travail” (1999).`\
-https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011046658/scenes-from-claire-deniss-1999-film-beau-travail.html
 
