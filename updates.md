@@ -1,3 +1,7 @@
+**Bond Investors’ Inflation Angst Rises on Fed’s Lack of Guidance**\
+`The yield on government bonds, which underpins borrowing costs from mortgages to business loans, remained elevated over concerns about the Federal Reserve’s efforts to contain inflation.`\
+https://www.nytimes.com/2026/07/30/business/federal-reserve-warsh-bonds.html
+
 **Colin Gray, Father of Teenage Shooter in Georgia, Sentenced to 15 Years in Prison**\
 `Prosecutors argued that Colin Gray bore responsibility for the 2024 shooting because he had given his son a gun and failed to act as the teen’s mental health deteriorated.`\
 https://www.nytimes.com/2026/07/30/us/colin-gray-sentencing-apalachee-school-shooting.html

@@ -1,3 +1,7 @@
+**Stone Fruit Caprese**\
+`A standout caprese starts with great fruit. You need ripe tomatoes to weep juices, which then mingle with grassy olive oil and milky cheese to make your dressing.`\
+https://www.nytimes.com/video/dining/100000011063708/stone-fruit-caprese.html
+
 **Bond Investors’ Inflation Angst Rises on Fed’s Lack of Guidance**\
 `The yield on government bonds, which underpins borrowing costs from mortgages to business loans, remained elevated over concerns about the Federal Reserve’s efforts to contain inflation.`\
 https://www.nytimes.com/2026/07/30/business/federal-reserve-warsh-bonds.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/podcasts/the-daily/europe-burning-fires-spain
 **Today’s Wordle Hints for July 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
 https://www.nytimes.com/2026/07/30/crosswords/wordle-review-1868.html
-
-**NYT Strands Hints for July 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
-https://www.nytimes.com/2026/07/30/crosswords/strands-sidekick-880.html
 
