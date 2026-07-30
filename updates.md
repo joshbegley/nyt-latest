@@ -1,3 +1,7 @@
+**State Department Map Mislabels African Countries at AIDS Conference**\
+`Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
+https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
+
 **Trump Says He May Drop Blanche’s Attorney General Nomination, for Now**\
 `President Trump’s threat followed a day of fruitless negotiations with two Republican holdouts, Senators John Cornyn and Thom Tillis.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html

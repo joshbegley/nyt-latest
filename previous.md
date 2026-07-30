@@ -1,3 +1,7 @@
+**State Department Map Mislabels African Countries at AIDS Conference**\
+`Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
+https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
+
 **Civilians Battle Wildfire Threatening Bordeaux**\
 `Residents in Bordeaux in southwestern France are doing everything in their power to stop a wildfire that’s been burning for more than a week. The flames are too spread out for professional firefighters to be everywhere, so for now, civilian volunteers are the only thing standing between the fire and a major French city.`\
 https://www.nytimes.com/video/world/europe/100000011061309/france-wildfires-bordeaux-civilian-volunteers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/business/china-economy-politburo.html
 **A ‘Credibility Shock’ Looms Over the Fed**\
 `Bonds sold off sharply after the Federal Reserve’s latest rate decision, signaling growing turmoil between the markets and the central bank.`\
 https://www.nytimes.com/2026/07/30/business/dealbook/fed-warsh-credibility-shock.html
-
-**U.S. Aircraft Carrier Makes a Rare Port Call in Vietnam**\
-`The visit, the longest since the two countries restored relations, is a show of mutual cooperation and a signal from the U.S. to China. But it comes during tensions over tariffs.`\
-https://www.nytimes.com/2026/07/30/world/asia/vietnam-aircraft-carrier.html
 
