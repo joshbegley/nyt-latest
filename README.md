@@ -1,9 +1,13 @@
+**Execution Nation**\
+`The United States is an outlier in the West. We look at why the country clings to the death penalty.`\
+https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.html
+
 **Apple’s Profit Increases 27 Percent, Topping Wall Street Expectations**\
 `The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/30/technology/apples-earnings-profit-increases-topping-wall-street-expectations.html
 
 **Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
-`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending is mounting.`\
+`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending are mounting.`\
 https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
 
 **Does Congress Have the Power to Stop the Iran War?**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011063473/
 **ABC Formally Rebukes F.C.C. for Review of TV Licenses**\
 `The network’s comments are part of its efforts to push back against the F.C.C.’s review of its local broadcast licenses.`\
 https://www.nytimes.com/2026/07/30/business/media/abc-fcc-tv-licenses.html
-
-**Military Testosterone Policy Raises Questions About Its Links to Aggression**\
-`Defense Secretary Pete Hegseth’s call for a “High-T military” raises questions about testosterone’s effect on aggression in some men.`\
-https://www.nytimes.com/2026/07/30/science/testosterone-behavior-aggression.html
 
