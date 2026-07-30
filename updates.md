@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 30, 2026**\
+`Joel Woodford’s puzzle comes in loud and clear.`\
+https://www.nytimes.com/2026/07/29/crosswords/daily-puzzle-2026-07-30.html
+
 **Trump’s Ballroom Is Racing Ahead. Its Legality Is Still Being Contested.**\
 `See how the construction of the White House ballroom and bunker complex has progressed since December, while its legality is being weighed in court.`\
 https://www.nytimes.com/interactive/2026/07/29/us/politics/trump-east-wing-ballroom-legal.html

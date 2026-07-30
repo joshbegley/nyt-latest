@@ -1,3 +1,7 @@
+**NYT Crossword Answers for July 30, 2026**\
+`Joel Woodford’s puzzle comes in loud and clear.`\
+https://www.nytimes.com/2026/07/29/crosswords/daily-puzzle-2026-07-30.html
+
 **Trump’s Ballroom Is Racing Ahead. Its Legality Is Still Being Contested.**\
 `See how the construction of the White House ballroom and bunker complex has progressed since December, while its legality is being weighed in court.`\
 https://www.nytimes.com/interactive/2026/07/29/us/politics/trump-east-wing-ballroom-legal.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000011060539/gaza-israel-mosqu
 **David Hirsch, Who Turned Sonoma Coast Into World-Class Wine Region, Dies at 81**\
 `He helped establish a windswept part of California as a source for great American pinot noir and chardonnay grapes, and later built his own winery.`\
 https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
-
-**Lindsay Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
-`Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
-https://www.nytimes.com/2026/07/29/us/lindsay-clancy-murder-trial-husband.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
