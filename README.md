@@ -1,3 +1,7 @@
+**Does Congress Have the Power to Stop the Iran War?**\
+`In theory, the War Powers Act gives Congress the power to end a war. But our chief White House correspondent, Peter Baker, describes how President Trump is the latest president to find ways to engage in war without congressional approval.`\
+https://www.nytimes.com/video/us/politics/100000011061667/does-congress-have-the-power-to-stop-the-iran-war.html
+
 **Hiker Trekked About 6 Hours to Safety After Impaling Himself With Pole**\
 `David Cifaldi, 32, slipped on a rock and fell on one of his trekking poles while hiking in Montana on Granite Peak. Somehow, he wasn’t in pain and there was no blood, and he was able to trek out.`\
 https://www.nytimes.com/video/us/100000011063804/hiker-montana-pole-granite-peak.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/como-ver-mete
 **Erica Schwartz, Trump’s Nominee for C.D.C. Director, Advances to Full Senate Vote**\
 `A vote to confirm Dr. Erica Schwartz, who has publicly supported childhood vaccines, will take place in the full Senate.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-cdc-erica-schwartz.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, a portrait of a jazz musician, a French archival family film and an Alabama prison exposé using footage from inmates.`\
-https://www.nytimes.com/2026/07/30/movies/documentaries-streaming.html
 
