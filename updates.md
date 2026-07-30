@@ -1,3 +1,11 @@
+**Japan Earthquake Death Toll Rises to 34**\
+`Rescue crews were working to find people who might still be trapped in a collapsed shopping mall, as the region faced sweltering heat.`\
+https://www.nytimes.com/2026/07/30/world/asia/japan-earthquake-kumamoto-death-toll.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011062991/30vid-spain-fire-embed-95927.html
+
 **Kawhi Leonard’s New Secret Side Deal**\
 `As the N.B.A. tries to end its investigation, Pablo digs even deeper.`\
 https://www.nytimes.com/2026/07/30/podcasts/kawhi-leonards-new-secret-side-deal.html

@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011063002/30vid-greece-fire-embed-37498.html
+
 **Japan Earthquake Death Toll Rises to 34**\
 `Rescue crews were working to find people who might still be trapped in a collapsed shopping mall, as the region faced sweltering heat.`\
 https://www.nytimes.com/2026/07/30/world/asia/japan-earthquake-kumamoto-death-toll.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/t-magazine/indonesia-leaf-weaving.html
 **Scientists Perform Underwater Ultrasound Scans to Detect Pregnancies in Giant Manta Rays**\
 `Scientists in Mexico were the first to perform ultrasounds on giant manta rays to detect pregnancies. The researchers hoped to learn more about the life cycle of the largest ray species in the world.`\
 https://www.nytimes.com/video/science/earth/100000011059127/giant-manta-rays-pregnant-ultrasounds.html
-
-**Salman Rushdie’s Attacker Found Guilty of Aiding a Foreign Terror Group**\
-`Hadi Matar stabbed Mr. Rushdie repeatedly at a literary conference in 2022 and could spend the rest of his life in prison.`\
-https://www.nytimes.com/2026/07/29/nyregion/hadi-matar-salman-rushdie-terror.html
 
