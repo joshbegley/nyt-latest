@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/07/29/us/clara-ester-dead.html
 https://www.nytimes.com/2026/07/29/nyregion/new-york-second-home-tax-rollout-anxiety.html
 
 **Trump Encounters a More Determined Iran as War Widens**\
-`With Iran flexing its might, President Trump appears to be weighing military options again, after rejecting plans to escalate.`\
+`The United States is again exchanging strikes with Iran, just days after the president appeared to reject plans to escalate.`\
 https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
 
 **Record Numbers of FOIA Public Document Requests Are in Limbo or Unfulfilled**\
