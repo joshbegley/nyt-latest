@@ -1,3 +1,11 @@
+**T.S.A. Finds 5 Civil War Cannonballs in Passenger’s Luggage in Alabama**\
+`The inert relics, some as big as a grapefruit, were detected when agents X-rayed checked bags.`\
+https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
+
+**Why an A.I. Bubble Might Not Be a Bad Thing**\
+`As fears spread over a possible artificial intelligence bubble, some tech investors say: Bring it on.`\
+https://www.nytimes.com/2026/07/30/technology/ai-bubble-venture-capital.html
+
 **Execution Nation**\
 `The United States is an outlier in the West. We look at why the country clings to the death penalty.`\
 https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/30/business/taco-bell-sales-cyclospora.html
 **Un incendio forestal en Grecia causa la muerte de 2 bomberos mientras miles evacúan**\
 `Grecia también trabajó para contener incendios en Lesbos y en el Peloponeso, donde murió otro bombero, en medio de una brutal temporada de incendios forestales para Europa.`\
 https://www.nytimes.com/es/2026/07/30/espanol/mundo/incendios-europa-grecia.html
-
-**A clip from the 1977 John Cassavetes film “Opening Night”**\
-`Gena Rowlands in John Cassavetes’s “Opening Night” (1977).`\
-https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011063473/a-clip-from-the-1977-john-cassavetes-film-opening-night.html
-
-**ABC Formally Rebukes F.C.C. for Review of TV Licenses**\
-`The network’s comments are part of its efforts to push back against the F.C.C.’s review of its local broadcast licenses.`\
-https://www.nytimes.com/2026/07/30/business/media/abc-fcc-tv-licenses.html
 

@@ -1,3 +1,7 @@
+**Fried Chicken With Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
+`The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
+https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
+
 **A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
 `The once-high-flying firm Situational Awareness, whose founder is 24, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
 https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
