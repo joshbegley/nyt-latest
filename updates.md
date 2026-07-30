@@ -1,3 +1,7 @@
+**U.S. Government Mislabels Map of  African Countries at AIDS Conference**\
+`Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
+https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
+
 **Is Drake’s ‘Janice STFU’ the Song of the Summer?**\
 `Is Drake’s “Janice STFU” — an undeniable earworm — too bitter to be crowned the summer anthem... or just bitter enough?`\
 https://www.nytimes.com/video/podcasts/100000011055345/is-drakes-janice-stfu-the-song-of-the-summer.html

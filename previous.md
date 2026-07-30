@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/07/30/learning/our-2026-27-student-contest-calendar
 `Cincinnati wants to take in people fleeing climate disasters. Plus, the latest on fires in Europe.`\
 https://www.nytimes.com/2026/07/30/climate/cincinnati-climate-migrants-plan.html
 
-**State Department Map Mislabels African Countries at AIDS Conference**\
+**U.S. Government Mislabels Map of  African Countries at AIDS Conference**\
 `Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
 https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
 

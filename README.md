@@ -1,3 +1,15 @@
+**Five Hot Dogs, One Man, Infinite Toppings**\
+`Forget ketchup and mustard. At these five New York City spots, hot dogs are taken to the extreme.`\
+https://www.nytimes.com/2026/07/30/dining/latin-america-hot-dogs.html
+
+**After Claiming ‘Bias’ at Smithsonian, Trump Officials Stage Patriotic Exhibition**\
+`Trump officials have promised to “make visual arts great,” with a museum exhibition that includes artwork by several people with personal connections to the planners.`\
+https://www.nytimes.com/2026/07/30/arts/design/trump-exhibition-patriotism.html
+
+**Senate Committee Approves Measure to Block Trump’s Effort to Gut Education Dept.**\
+`The bipartisan bill is a long way from becoming law, but it represents the strongest opposition yet from Congress to the administration’s agenda.`\
+https://www.nytimes.com/2026/07/30/us/politics/senate-committee-education-dept.html
+
 **Is Drake’s ‘Janice STFU’ the Song of the Summer?**\
 `Is Drake’s “Janice STFU” — an undeniable earworm — too bitter to be crowned the summer anthem... or just bitter enough?`\
 https://www.nytimes.com/video/podcasts/100000011055345/is-drakes-janice-stfu-the-song-of-the-summer.html
@@ -30,7 +42,7 @@ https://www.nytimes.com/2026/07/30/learning/our-2026-27-student-contest-calendar
 `Cincinnati wants to take in people fleeing climate disasters. Plus, the latest on fires in Europe.`\
 https://www.nytimes.com/2026/07/30/climate/cincinnati-climate-migrants-plan.html
 
-**U.S. Government Mislabels Map of  African Countries at AIDS Conference**\
+**U.S. Government Mislabels Map of African Countries at AIDS Conference**\
 `Nigeria, a coastal country in western Africa, was landlocked in the Sahara, among other errors. The department said it had been “hastily altered.”`\
 https://www.nytimes.com/2026/07/30/us/politics/state-department-map-africa.html
 
@@ -181,20 +193,4 @@ https://www.nytimes.com/2026/07/30/dining/zucchini-chickpea-and-tomato-salad-sup
 **Wildfire in Suffolk, UK, Breaks Out a Few Miles From Nuclear Power Station**\
 `A large fire engulfed almost 250 acres of land in Suffolk, a scenic area on the coast. It was a few miles from a nuclear power station.`\
 https://www.nytimes.com/2026/07/30/world/europe/suffolk-wildfire-uk.html
-
-**Wildfires Erupt in Greece**\
-`Greek authorities on Thursday battled deadly wildfires fueled by strong winds, which have forced thousands to flee.`\
-https://www.nytimes.com/video/world/europe/100000011063012/greece-wildfires-crete.html
-
-**U.S. Sees Iran as Likely Behind Cyberattack on Minnesota Water Systems**\
-`Investigators cautioned that the assessment was preliminary. There were no indications that any water supply had been rendered unsafe to drink.`\
-https://www.nytimes.com/2026/07/30/us/politics/minnesota-water-cyberattack-iran.html
-
-**Attack on Egyptian Port Shows Suez Canal’s Vulnerability**\
-`The port where the Wednesday strike occurred is near the Suez Canal, through which a significant amount of the world’s shipping moves.`\
-https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-canal-vulnerability.html
-
-**Mission to Save Falling NASA Space Telescope Suffers Setback**\
-`A spacecraft meant to push NASA’s Swift Observatory to a higher orbit malfunctioned and started tumbling several days ago. Engineers think it can still succeed.`\
-https://www.nytimes.com/2026/07/30/science/nasa-swift-link-rescue-mishap.html
 
