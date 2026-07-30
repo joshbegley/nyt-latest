@@ -1,3 +1,15 @@
+**Was Your Trip to Europe Affected by Heat or Wildfires? Tell Us About It.**\
+`Have you had to cancel, reschedule or replan a trip to France, Spain or elsewhere because of raging fires or stifling heat? If so, we want to hear from you.`\
+https://www.nytimes.com/2026/07/30/travel/europe-heat-fire-reader-callout.html
+
+**Two More Appeals Courts Rule Against Trump Detention Policy**\
+`The rulings deepen a split across the judiciary, making it more likely that the Supreme Court will consider the legality of detaining undocumented immigrants indefinitely.`\
+https://www.nytimes.com/2026/07/30/us/politics/appeals-courts-immigrant-detention-policy.html
+
+**What McConnell, Trump and Biden Have in Common**\
+`From the Senate to the White House, American politicians are aging past their prime. On Interesting Times, Samuel Moyn, a Yale professor, argues that we’re facing a tyranny of the elderly.`\
+https://www.nytimes.com/video/opinion/100000011048687/what-mcconnell-trump-and-biden-have-in-common.html
+
 **Earth’s Warming Primed France and Spain to Burn, Scientists Find**\
 `The likelihood of hot, dry weather that helps wildfires spread has increased sharply in Europe in recent decades, according to a new report.`\
 https://www.nytimes.com/2026/07/30/climate/france-spain-wildfires-climate-change.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
 **Trump Threatens to Withdraw Blanche as Attorney General, Dealing Blow to Nomination**\
 `President Trump’s threat followed a day of fruitless negotiations with two Republican holdouts, Senators John Cornyn and Thom Tillis.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
-
-**A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
-`The once-high-flying firm Situational Awareness, whose founder is 24, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
-https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
-
-**Jennifer Finch, Scalding Bassist for Alt-Rock Band L7, Dies at 59**\
-`Often performing barefoot, she provided the thunder for a breakout feminist band of the 1990s, which had an alternative hit with “Pretend We’re Dead.”`\
-https://www.nytimes.com/2026/07/30/arts/music/jennifer-finch-dead.html
-
-**‘Jimmy’ Review: Inhabiting the World of a Young James Baldwin**\
-`The director Yashaddai Owens took his Bolex film camera to Istanbul and Paris to show glimpses of the gifted author before he became a literary quasar.`\
-https://www.nytimes.com/2026/07/30/movies/jimmy-review-james-baldwin.html
 
