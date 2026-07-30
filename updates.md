@@ -1,3 +1,15 @@
+**Iran War Live Updates: Drone Attack in Egypt Threatens to Expand Conflict**\
+`The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
+https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
+
+**Poland’s Leader Says Russian Missile May Have Struck Its Territory During Ukraine Attack**\
+`Russian missiles have briefly entered Polish airspace during Russian strikes on western Ukraine in the past, but a missile has never hit Poland itself.`\
+https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
+
+**Oil Prices Teeter as Middle East Veers Toward Wider Conflict**\
+`Bond yields are also higher on concerns about inflation.`\
+https://www.nytimes.com/2026/07/30/business/oil-stocks-iran-war.html
+
 **‘Nightmarish’ Wildfire in Crete Kills Two Firefighters as Thousands Evacuate**\
 `Greece also worked to contain blazes on Lesbos and in the Peloponnese, where another firefighter died, in the midst of a brutal wildfire season for Europe.`\
 https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
