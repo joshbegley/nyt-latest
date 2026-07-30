@@ -1,67 +1,3 @@
-**In Queens, a Fantastical Garden Featuring a 25-Foot-Long Teddy Bear**\
-`Ahead of their installation at MoMA PS1, the artist Precious Okoyomon discusses finding inspiration in an empty room and embracing absurdity.`\
-https://www.nytimes.com/2026/07/30/t-magazine/precious-okoyomon-moma-ps1.html
-
-**España vuelve a enfrentar presión migratoria en Ceuta por el cruce de miles de migrantes**\
-`El aumento repentino de cruces hacia Ceuta volvió a poner a prueba la relación entre España y Marruecos y la capacidad de respuesta de las autoridades europeas.`\
-https://www.nytimes.com/es/2026/07/30/espanol/mundo/espana-marruecos-ceuta-migrantes.html
-
-**Seattle’s Police Chief Resigns Under Pressure**\
-`The decision followed days of criticism over how the department handled the release of information about a shooting that killed three people at a food festival.`\
-https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
-
-**Iran War Is Entangling a Growing List of Mideast Nations**\
-`As the U.S. and Iran exchange strikes, more countries are being touched — and some are joining in.`\
-https://www.nytimes.com/2026/07/30/world/middleeast/us-iran-war-expansion.html
-
-**Texas Parents Try New Tactic to Remove Ten Commandments From Schools**\
-`A lawsuit filed by three parents argues that the displays violate a state religious freedom law and asks for them to be removed before school starts in August.`\
-https://www.nytimes.com/2026/07/30/us/ten-commandments-texas-schools-lawsuit.html
-
-**The Economy Slows**\
-`Plus, Trump weighs pulling his nomination of Todd Blanche. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/07/30/briefing/economy-blanche-iran.html
-
-**What ‘Succession’ Gets Right About Our Aging Elite**\
-`It’s not just politicians — American executives are getting older too, with the average age of chief executives rising to 61 in 2023, according to an April 2026 working paper from the National Bureau of Economic Research. The Yale law professor Samuel Moyn talks about the “dark side” of this trend on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000011048690/what-succession-gets-right-about-our-aging-elite.html
-
-**Was Your Trip to Europe Affected by Heat or Wildfires? Tell Us About It.**\
-`Have you had to cancel, reschedule or replan a trip to France, Spain or elsewhere because of raging fires or stifling heat? If so, we want to hear from you.`\
-https://www.nytimes.com/2026/07/30/travel/europe-heat-fire-reader-callout.html
-
-**Two More Appeals Courts Rule Against Trump’s Detention Policy**\
-`The rulings deepen a split across the judiciary, making it more likely that the Supreme Court will consider the legality of detaining undocumented immigrants indefinitely.`\
-https://www.nytimes.com/2026/07/30/us/politics/appeals-courts-immigrant-detention-policy.html
-
-**What McConnell, Trump and Biden Have in Common**\
-`From the Senate to the White House, American politicians are aging past their prime. On Interesting Times, Samuel Moyn, a Yale professor, argues that we’re facing a tyranny of the elderly.`\
-https://www.nytimes.com/video/opinion/100000011048687/what-mcconnell-trump-and-biden-have-in-common.html
-
-**Earth’s Warming Primed France and Spain to Burn, Scientists Find**\
-`The likelihood of hot, dry weather that helps wildfires spread has increased sharply in Europe in recent decades, according to a new report.`\
-https://www.nytimes.com/2026/07/30/climate/france-spain-wildfires-climate-change.html
-
-**Father of Teenage Gunman in Georgia Sentenced to 15 Years in Prison**\
-`Colin Gray was sentenced to 15 years in prison on Thursday after a jury found that he bore responsibility for a shooting carried out by his teenage son at Apalachee High School in 2024.`\
-https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-georgia-sentenced-to-15-years-in-prison.html
-
-**Dulles Airport’s Reviled ‘People Movers’ May Be Lurching Into the Sunset**\
-`A $22.5 billion redesign plan eliminates the “mobile lounges,” which were conceived as a way of making air travel more efficient. Many passengers found the opposite to be true.`\
-https://www.nytimes.com/2026/07/30/us/dulles-airport-people-movers-trump.html
-
-**T.S.A. Finds 5 Civil War Cannonballs in Passenger’s Luggage in Alabama**\
-`The inert relics, some as big as a grapefruit, were detected when agents X-rayed checked bags.`\
-https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
-
-**Why an A.I. Bubble Might Not Be a Bad Thing**\
-`As fears spread over a possible artificial intelligence bubble, some tech investors say: Bring it on.`\
-https://www.nytimes.com/2026/07/30/technology/ai-bubble-venture-capital.html
-
-**Execution Nation**\
-`The United States is an outlier in the West. We look at why the country clings to the death penalty.`\
-https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.html
-
 **Apple’s Profit Is Up 27%, but Expectations for Current Quarter Disappoint**\
 `The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/30/technology/apple-earnings.html
@@ -189,4 +125,68 @@ https://www.nytimes.com/2026/07/30/opinion/anthony-fauci-hearing-diary.html
 **Elon Musk Plans at Least $100 Million in Midterm Spending to Help Republicans**\
 `Elon Musk, a year after a huge blowup with President Trump and the Republican Party, is said to be planning to spend in at least eight states to help them in November.`\
 https://www.nytimes.com/2026/07/30/us/politics/elon-musk-midterms-republicans.html
+
+**At Tanglewood, the Fresh Air Is Tainted by Tension**\
+`The Boston Symphony Orchestra’s summer home looks placid on the surface, but underneath the organization is waging war on itself.`\
+https://www.nytimes.com/2026/07/30/arts/music/tanglewood-tension-boston-orchestra.html
+
+**Dupes of My Favorite Restaurant Dishes**\
+`Just because I’m taking a break from dining out doesn’t mean I can’t enjoy my go-to orders at home.`\
+https://www.nytimes.com/2026/07/30/dining/dupes-of-my-favorite-restaurant-dishes.html
+
+**A ‘Zombie Court’ for Terror Cases Awakens**\
+`Dormant for 30 years, a little-known tribunal is hearing its first case.`\
+https://www.nytimes.com/2026/07/30/us/politics/the-docket-alien-removal-court.html
+
+**Bipartisan Senate Bill Would Give Judiciary Control of Some Courthouses**\
+`A new bipartisan bill comes after years of complaints from the courts that the General Services Administration is a bad landlord.`\
+https://www.nytimes.com/2026/07/30/us/senate-bill-gsa-courthouses.html
+
+**¿Las galletas de Crumbl son las mejores o las peores? Da igual**\
+`La cadena de postres de más rápido crecimiento en Estados Unidos tiene divididos a los amantes de los dulces. Pero el debate es excelente para el negocio.`\
+https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
+
+**Ronald G. Davis, a Mime Who Spoke Out, Dies at 92**\
+`At the height of the psychedelic era, he guided the very vocal San Francisco Mime Troupe’s pointed satire of American militarism, racism and bourgeois values.`\
+https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
+
+**Trump Threatens to Withdraw Blanche as Attorney General, Dealing Blow to Nomination**\
+`President Trump’s threat followed a day of fruitless negotiations with two Republican holdouts, Senators John Cornyn and Thom Tillis.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
+
+**A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
+`The once-high-flying firm Situational Awareness, whose founder is 24, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
+
+**Jennifer Finch, Scalding Bassist for Alt-Rock Band L7, Dies at 59**\
+`Often performing barefoot, she provided the thunder for a breakout feminist band of the 1990s, which had an alternative hit with “Pretend We’re Dead.”`\
+https://www.nytimes.com/2026/07/30/arts/music/jennifer-finch-dead.html
+
+**‘Jimmy’ Review: Inhabiting the World of a Young James Baldwin**\
+`The director Yashaddai Owens took his Bolex film camera to Istanbul and Paris to show glimpses of the gifted author before he became a literary quasar.`\
+https://www.nytimes.com/2026/07/30/movies/jimmy-review-james-baldwin.html
+
+**For Museum Boss Who Became a Trump Target, It’s Déjà Vu All Over Again**\
+`Kim Sajet left as director of the National Portrait Gallery when she found herself in the White House cross hairs. Now she’s watching another Smithsonian chief go through it.`\
+https://www.nytimes.com/2026/07/30/arts/design/trump-smithsonian-museums-sajet-hartig.html
+
+**Taco Bell Sales Recover Following Cyclospora Outbreak**\
+`Transparency around pulling affected lettuce from stores has helped Taco Bell regain consumer trust, its parent company, Yum Brands, said.`\
+https://www.nytimes.com/2026/07/30/business/taco-bell-sales-cyclospora.html
+
+**Un incendio forestal en Grecia causa la muerte de 2 bomberos mientras miles evacúan**\
+`Grecia también trabajó para contener incendios en Lesbos y en el Peloponeso, donde murió otro bombero, en medio de una brutal temporada de incendios forestales para Europa.`\
+https://www.nytimes.com/es/2026/07/30/espanol/mundo/incendios-europa-grecia.html
+
+**A clip from the 1977 John Cassavetes film “Opening Night”**\
+`Gena Rowlands in John Cassavetes’s “Opening Night” (1977).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011063473/a-clip-from-the-1977-john-cassavetes-film-opening-night.html
+
+**ABC Formally Rebukes F.C.C. for Review of TV Licenses**\
+`The network’s comments are part of its efforts to push back against the F.C.C.’s review of its local broadcast licenses.`\
+https://www.nytimes.com/2026/07/30/business/media/abc-fcc-tv-licenses.html
+
+**Military Testosterone Policy Raises Questions About Its Links to Aggression**\
+`Defense Secretary Pete Hegseth’s call for a “High-T military” raises questions about testosterone’s effect on aggression in some men.`\
+https://www.nytimes.com/2026/07/30/science/testosterone-behavior-aggression.html
 
