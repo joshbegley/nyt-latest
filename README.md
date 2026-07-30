@@ -1,3 +1,7 @@
+**L.A. Warehouse Fire Leaves Behind Rats, Flies and an Unending Stench**\
+`The Boyle Heights neighborhood of Los Angeles is still dealing with the smell of rotting food and fears over possible toxins after a cold-storage facility burst into flames in June.`\
+https://www.nytimes.com/2026/07/30/us/boyle-heights-warehouse-fire-smell.html
+
 **A Historian Considers the Yuppie**\
 `“We live in the world we inherited from them,” the author Dylan Gottlieb says.`\
 https://www.nytimes.com/2026/07/30/style/yuppie-historian-new-york-society-1980s.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/movies/i-want-your-sex-review-working-out-the
 **Who Put Candy on a Diet?**\
 `“Healthy” confections, whether marketed as “better-for-you” or “functional,” have overwhelmed grocery and convenience stores, and even found their way into gyms and supplement shops.`\
 https://www.nytimes.com/2026/07/30/dining/diet-candy.html
-
-**‘The Samurai and the Prisoner’ Review: Kiyoshi Kurosawa’s Satisfying Whodunit**\
-`Kiyoshi Kurosawa directs a satisfying period piece about the tense collaboration between a lord and a cunning envoy.`\
-https://www.nytimes.com/2026/07/30/movies/the-samurai-and-the-prisoner-review.html
 
