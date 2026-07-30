@@ -1,3 +1,11 @@
+**T.S.A. Finds 5 Civil War Cannonballs in Passenger’s Luggage in Alabama**\
+`The inert relics, some as big as a grapefruit, were detected when agents X-rayed checked bags.`\
+https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
+
+**Why an A.I. Bubble Might Not Be a Bad Thing**\
+`As fears spread over a possible artificial intelligence bubble, some tech investors say: Bring it on.`\
+https://www.nytimes.com/2026/07/30/technology/ai-bubble-venture-capital.html
+
 **Fried Chicken With Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
 `The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
 https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
