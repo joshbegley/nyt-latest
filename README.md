@@ -187,7 +187,7 @@ https://www.nytimes.com/es/2026/07/30/espanol/america-latina/cuba-trump-bloqueo-
 https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
 
 **Gen Z Thinks Religion Got Too Political**\
-`I wonder why that could be.`\
+`Does Gen Z feel welcome at church?`\
 https://www.nytimes.com/2026/07/30/opinion/gen-z-religion-evangelicals-trump.html
 
 **Markets Challenge Warsh’s Approach to Taming Inflation**\

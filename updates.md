@@ -1,3 +1,11 @@
+**Trump Says He May Drop Blanche’s Attorney General Nomination, for Now**\
+`President Trump’s threat followed a day of fruitless negotiations with two holdout Republicans, Senators John Cornyn and Thom Tillis.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
+
+**A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
+`The once-high flying fund, Situational Awareness, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
+
 **Floundering A.I. Hedge Fund Is Rescued by Rival**\
 `The once-high flying fund, Situational Awareness, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
 https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
