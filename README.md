@@ -1,3 +1,7 @@
+**Jennifer Finch, Scalding Bassist for Alt-Rock Band L7, Dies at 59**\
+`Often performing barefoot, she provided the thunder for a breakout feminist band of the 1990s, which had an alternative hit with “Pretend We’re Dead.”`\
+https://www.nytimes.com/2026/07/30/arts/music/jennifer-finch-dead.html
+
 **‘Jimmy’ Review: Inhabiting the World of a Young James Baldwin**\
 `The director Yashaddai Owens took his Bolex film camera to Istanbul and Paris to show glimpses of the gifted author before he became a literary quasar.`\
 https://www.nytimes.com/2026/07/30/movies/jimmy-review-james-baldwin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/world/canada/wrongful-conviction-kik-username
 **Remembering Betye Saar in 7 Essential Works**\
 `The artist, who died just short of her 100th birthday, subverted racist tropes by turning mammy dolls into warriors and presenting the breadth of the Black experience.`\
 https://www.nytimes.com/2026/07/30/arts/betye-saar-artwork.html
-
-**Apple’s Siri Got an A.I. Brain Transplant. Try These 5 Prompts to Get Acclimated.**\
-`An upgrade transformed the beleaguered virtual assistant into a modern chatbot. It’s imperfect but worth trying.`\
-https://www.nytimes.com/2026/07/30/technology/personaltech/apple-siri-ai-prompts.html
 
