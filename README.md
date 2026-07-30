@@ -1,3 +1,7 @@
+**España vuelve a enfrentar presión migratoria en Ceuta por el cruce de miles de migrantes**\
+`El aumento repentino de cruces hacia Ceuta volvió a poner a prueba la relación entre España y Marruecos y la capacidad de respuesta de las autoridades europeas.`\
+https://www.nytimes.com/es/2026/07/30/espanol/mundo/espana-marruecos-ceuta-migrantes.html
+
 **Seattle’s Police Chief Resigns Under Pressure**\
 `The decision followed days of criticism over how the department handled the release of information about a shooting that killed three people at a food festival.`\
 https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/us/politics/elon-musk-midterms-republicans.ht
 **At Tanglewood, the Fresh Air Is Tainted by Tension**\
 `The Boston Symphony Orchestra’s summer home looks placid on the surface, but underneath the organization is waging war on itself.`\
 https://www.nytimes.com/2026/07/30/arts/music/tanglewood-tension-boston-orchestra.html
-
-**Dupes of My Favorite Restaurant Dishes**\
-`Just because I’m taking a break from dining out doesn’t mean I can’t enjoy my go-to orders at home.`\
-https://www.nytimes.com/2026/07/30/dining/dupes-of-my-favorite-restaurant-dishes.html
 
