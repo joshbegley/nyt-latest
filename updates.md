@@ -1,3 +1,27 @@
+**How the War With Iran Is Widening, and U.S. Hospitals See a Surge of Uninsured Patients**\
+`Plus, the horrendous smell plaguing one Canadian town.`\
+https://www.nytimes.com/2026/07/30/podcasts/the-headlines/iran-war-us-hospitals-uninsured-patients.html
+
+**Europe Is Burning**\
+`Hundreds of thousands of people in France and Spain have been forced to evacuate from blazes fueled by soaring temperatures and dry conditions.`\
+https://www.nytimes.com/2026/07/30/podcasts/the-daily/europe-burning-fires-spain-france.html
+
+**Today’s Wordle Hints for July 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/30/crosswords/wordle-review-1868.html
+
+**NYT Strands Hints for July 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/30/crosswords/strands-sidekick-880.html
+
+**NYT Connections Answers for July 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/30/crosswords/connections-companion-1146.html
+
+**Iran War Live Updates: Middle East Faces Expanded War as Iran and U.S. Reignite Attacks**\
+`Egypt said it had come under attack from an unidentified drone. Earlier, Saudi Arabia acknowledged direct involvement in the war for the first time.`\
+https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
+
 **Iran War Live Updates: Drone Attack in Egypt Threatens to Expand Conflict**\
 `The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
 https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump

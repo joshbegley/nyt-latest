@@ -1,5 +1,25 @@
-**Iran War Live Updates: Drone Attack in Egypt Threatens to Expand Conflict**\
-`The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
+**How the War With Iran Is Widening, and U.S. Hospitals See a Surge of Uninsured Patients**\
+`Plus, the horrendous smell plaguing one Canadian town.`\
+https://www.nytimes.com/2026/07/30/podcasts/the-headlines/iran-war-us-hospitals-uninsured-patients.html
+
+**Europe Is Burning**\
+`Hundreds of thousands of people in France and Spain have been forced to evacuate from blazes fueled by soaring temperatures and dry conditions.`\
+https://www.nytimes.com/2026/07/30/podcasts/the-daily/europe-burning-fires-spain-france.html
+
+**Today’s Wordle Hints for July 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/30/crosswords/wordle-review-1868.html
+
+**NYT Strands Hints for July 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/30/crosswords/strands-sidekick-880.html
+
+**NYT Connections Answers for July 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/30/crosswords/connections-companion-1146.html
+
+**Iran War Live Updates: Middle East Faces Expanded War as Iran and U.S. Reignite Attacks**\
+`Egypt said it had come under attack from an unidentified drone. Earlier, Saudi Arabia acknowledged direct involvement in the war for the first time.`\
 https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
 
 **Poland’s Leader Says Russian Missile May Have Struck Its Territory During Ukraine Attack**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011014208/cubas-bet-on-solar.
 **Books That Illuminate New York’s Forgotten History**\
 `The best-selling authors Marie Benedict and Victoria Christopher Murray recommend gripping books that illuminate hidden chapters of the city’s past.`\
 https://www.nytimes.com/2026/07/30/books/new-york-books-historical-fiction.html
-
-**The Movies That Get Dancers on Their Feet**\
-`Savion Glover, Honey Balenciaga and other artists from the world of performance share their favorites, from era-defining musicals to art-house dramas.`\
-https://www.nytimes.com/2026/07/30/t-magazine/dance-films-best-choreography.html
-
-**Rescue Boat Crews Show Signs of Brain Injuries, but Coast Guard Isn’t Looking**\
-`Untreated and undiagnosed, the crews that save lives in the roughest seas face the relentless pounding of waves.`\
-https://www.nytimes.com/2026/07/30/us/coast-guard-rescue-boat-surfmen-brain-injury.html
-
-**Sales Are So Low, California Wineries Are Burning Their Vineyards**\
-`The rise and fall of pinot noir symbolizes the larger struggles of the wine industry as younger generations turn to other beverages.`\
-https://www.nytimes.com/2026/07/30/us/pinot-noir-california-wine-sales-decline.html
-
-****\
-`(No description)`\
-https://www.nytimes.com/video/embedded/world/europe/100000011063002/30vid-greece-fire-embed-37498.html
-
-**Japan Earthquake Death Toll Rises to 34**\
-`Rescue crews were working to find people who might still be trapped in a collapsed shopping mall, as the region faced sweltering heat.`\
-https://www.nytimes.com/2026/07/30/world/asia/japan-earthquake-kumamoto-death-toll.html
 
