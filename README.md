@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/07/30/theater/game-of-thrones-mad-king-royal-shakes
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/30/learning/word-of-the-day-emolument.html
 
-**How to Watch Two Summer Meteor Showers Peak On the Same Night**\
-`The end of July brings the Alpha Capricornids and the Southern Delta Aquarids, both of which will be most active on Thursday night into Friday morning.`\
-https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
-
 **A New York Hair Salon, Happily Stuck in 1986**\
 `All around it, luxury boutiques attract a wealthy crowd. But Anonymous Hair Salon hasn’t changed much since opening all those years ago.`\
 https://www.nytimes.com/2026/07/30/style/anonymous-hair-salon-soho-manhattan.html
+
+**How to Watch Two Summer Meteor Showers Peak On the Same Night**\
+`The end of July brings the Alpha Capricornids and the Southern Delta Aquarids, both of which will be most active on Thursday night into Friday morning.`\
+https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
 
 **Is a Novel Ever Finished? Many Writers Say No.**\
 `After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Please vote below for the one you prefer.`\
