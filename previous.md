@@ -1,3 +1,95 @@
+**Iris van Herpen: Please Pleat With Me**\
+`A Dutch fashion iconoclast turns the Brooklyn Museum into her atelier — and a reporter tries to be a couturier for a day.`\
+https://www.nytimes.com/2026/07/30/arts/design/iris-van-herpen-fashion-sculpting-the-senses-brooklyn.html
+
+**Why Won’t America’s Aging Elite Retire?**\
+`How the elderly hoard the future.`\
+https://www.nytimes.com/video/opinion/100000011048682/why-wont-americas-aging-elite-retire.html
+
+**Cuba to Trump: We’re Open for Business**\
+`A top Cuban official says the island won’t negotiate its politics, but it is willing to talk investment, including from President Trump.`\
+https://www.nytimes.com/2026/07/30/world/americas/cuba-deputy-foreign-minister-interview-trump.html
+
+**Air India Offered to Cover My Flight on Another Airline. It Cost Me $2,000.**\
+`After a cancellation and long delays, the airline offered to cover the cost of a flight on another carrier. Then it refused to make good on that promise.`\
+https://www.nytimes.com/2026/07/30/travel/air-india-canceled-flight-refund.html
+
+**The Case Against Office Shorts**\
+`It might be hot but men must resist showing the knee.`\
+https://www.nytimes.com/2026/07/30/opinion/office-shorts-men.html
+
+**Should I Tell My Conservative Mother That My Child Is Trans?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who worries that speaking up will cause a family fracture.`\
+https://www.nytimes.com/2026/07/30/well/family/trans-gender-family-secret.html
+
+**A Bay Area Pastor Made an A.I. Twin to Talk About God at Any Time**\
+`To meet the growing needs of his church, Justin Lester created an A.I. duplicate of himself. Every day he sees more people using it.`\
+https://www.nytimes.com/2026/07/30/us/ai-twin-pastor-justin-lester-california-church.html
+
+**‘I Want Your Sex’ Review: Working Out the Kinks With Your Boss**\
+`Cooper Hoffman and Olivia Wilde explore a tie-me-up, turn-me-on relationship in Gregg Araki’s jolly sex comedy.`\
+https://www.nytimes.com/2026/07/30/movies/i-want-your-sex-review-working-out-the-kinks-with-your-boss.html
+
+**Who Put Candy on a Diet?**\
+`“Healthy” confections, whether marketed as “better-for-you” or “functional,” have overwhelmed grocery and convenience stores, and even found their way into gyms and supplement shops.`\
+https://www.nytimes.com/2026/07/30/dining/diet-candy.html
+
+**‘The Samurai and the Prisoner’ Review: Kiyoshi Kurosawa’s Satisfying Whodunit**\
+`Kiyoshi Kurosawa directs a satisfying period piece about the tense collaboration between a lord and a cunning envoy.`\
+https://www.nytimes.com/2026/07/30/movies/the-samurai-and-the-prisoner-review.html
+
+**When A.I. Invaded ‘Heated Rivalry’ Fan Fiction, the Meltdown Was Epic**\
+`An anonymous X account posted a detailed breakdown of chatbot text in 38 popular stories inspired by the hockey romance. The fandom spiraled.`\
+https://www.nytimes.com/2026/07/30/technology/ai-heated-rivalry-fan-fiction.html
+
+**Three of Summer’s Best Thrillers**\
+`Our columnist on “The Amateur,” by Chris Bohjalian, and two other books.`\
+https://www.nytimes.com/2026/07/30/books/review/new-thriller-novels.html
+
+**It’s ‘Game of Thrones,’ on Shakespeare’s Stage**\
+`As the hit series keeps expanding, an ambitious stage adaptation of George R.R. Martin’s prequel saga has found a natural home at the Royal Shakespeare Company.`\
+https://www.nytimes.com/2026/07/30/theater/game-of-thrones-mad-king-royal-shakespeare.html
+
+**Word of the Day: emolument**\
+`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/07/30/learning/word-of-the-day-emolument.html
+
+**How to Watch Two Summer Meteor Showers Peak On the Same Night**\
+`The end of July brings the Alpha Capricornids and the Southern Delta Aquarids, both of which will be most active on Thursday night into Friday morning.`\
+https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
+
+**A New York Hair Salon, Happily Stuck in 1986**\
+`All around it, luxury boutiques attract a wealthy crowd. But Anonymous Hair Salon hasn’t changed much since opening all those years ago.`\
+https://www.nytimes.com/2026/07/30/style/anonymous-hair-salon-soho-manhattan.html
+
+**Is a Novel Ever Finished? Many Writers Say No.**\
+`After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Please vote below for the one you prefer.`\
+https://www.nytimes.com/2026/07/30/books/review/unfinished-novel-galley-zadie-smith-saul-bellow.html
+
+**What Doctors Want You to Know About Cervical Cancer Screening**\
+`The guidelines have changed recently as new testing options have become available. Getting screened doesn’t have to be painful or confusing.`\
+https://www.nytimes.com/2026/07/30/well/live/cervical-cancer-screening-guidelines.html
+
+**Cuba’s Bet on Solar**\
+`President Trump keeps predicting Cuba will collapse after he cut off its oil. But it’s still standing. Our reporter Jack Nicas visited to see how Cubans are adopting solar to offset the power shortage.`\
+https://www.nytimes.com/video/world/americas/100000011014208/cubas-bet-on-solar.html
+
+**Books That Illuminate New York’s Forgotten History**\
+`The best-selling authors Marie Benedict and Victoria Christopher Murray recommend gripping books that illuminate hidden chapters of the city’s past.`\
+https://www.nytimes.com/2026/07/30/books/new-york-books-historical-fiction.html
+
+**The Movies That Get Dancers on Their Feet**\
+`Savion Glover, Honey Balenciaga and other artists from the world of performance share their favorites, from era-defining musicals to art-house dramas.`\
+https://www.nytimes.com/2026/07/30/t-magazine/dance-films-best-choreography.html
+
+**Rescue Boat Crews Show Signs of Brain Injuries, but Coast Guard Isn’t Looking**\
+`Untreated and undiagnosed, the crews that save lives in the roughest seas face the relentless pounding of waves.`\
+https://www.nytimes.com/2026/07/30/us/coast-guard-rescue-boat-surfmen-brain-injury.html
+
+**Sales Are So Low, California Wineries Are Burning Their Vineyards**\
+`The rise and fall of pinot noir symbolizes the larger struggles of the wine industry as younger generations turn to other beverages.`\
+https://www.nytimes.com/2026/07/30/us/pinot-noir-california-wine-sales-decline.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011063002/30vid-greece-fire-embed-37498.html
@@ -105,96 +197,4 @@ https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047403/
 **Scenes from Claire Denis’s 1999 film “Beau Travail”**\
 `Members of the French Foreign Legion training in Claire Denis’s “Beau Travail” (1999).`\
 https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011046658/scenes-from-claire-deniss-1999-film-beau-travail.html
-
-**NYT Crossword Answers for July 30, 2026**\
-`Joel Woodford’s puzzle comes in loud and clear.`\
-https://www.nytimes.com/2026/07/29/crosswords/daily-puzzle-2026-07-30.html
-
-**Trump’s Ballroom Is Racing Ahead. Its Legality Is Still Being Contested.**\
-`See how the construction of the White House ballroom and bunker complex has progressed since December, while its legality is being weighed in court.`\
-https://www.nytimes.com/interactive/2026/07/29/us/politics/trump-east-wing-ballroom-legal.html
-
-**Parents of Toddler Found Alive in Arizona Morgue Will Not Face Charges**\
-`The boy, who was 18 months old, had been found unconscious in a pool at the family home in Gilbert, Ariz., and was declared dead. But a medical examiner’s employee later discovered he was breathing.`\
-https://www.nytimes.com/2026/07/29/us/arizona-toddler-dead-alive-morgue.html
-
-**Reseña de ‘Spider-Man: un nuevo día’: Peter Parker ya creció**\
-`La saga del Hombre Araña trata sobre crecer. Finalmente, su superhéroe se ha convertido en un adulto.`\
-https://www.nytimes.com/es/2026/07/29/espanol/cultura/resena-spider-man-un-nuevo-dia.html
-
-**Simone Forti, Movement Artist Inspired by the Everyday, Dies at 91**\
-`The creator of Dance Constructions that borrowed from sculpture and performance, she was a deep influence in the early 1960s on ideas about what dance could be.`\
-https://www.nytimes.com/2026/07/29/arts/dance/simone-forti-dead.html
-
-**Hollywood Foreign Press Association Sues Over Takeover of Golden Globes**\
-`The press association, which owned and operated the awards show until 2023, is suing its new owner, Penske Media, claiming its purchase was fraudulent.`\
-https://www.nytimes.com/2026/07/29/business/media/golden-globes-penske-hollywood-foreign-press.html
-
-**Dentists in Brooklyn Exploited Patients in Pain, Lawsuit Charges**\
-`New York City sued two dental practices, saying they offered patients high-interest loans to pay their bills and often falsely said procedures were not covered by insurance.`\
-https://www.nytimes.com/2026/07/29/us/dentists-canarsie-brooklyn-insurance-lawsuit.html
-
-**Tributes, and Politics Too, at Lindsey Graham’s Funeral in South Carolina**\
-`A gathering of South Carolina’s political elite paid tribute to the late senator’s career against a backdrop of a highly competitive race to replace him.`\
-https://www.nytimes.com/2026/07/29/us/politics/lindsey-graham-funeral-south-carolina.html
-
-**Clara Ester, Who Was With Martin Luther King Jr. in His Last Moments, Dies at 78**\
-`A Memphis college student and activist, she witnessed Dr. King’s assassination in 1968 when he was shot at his motel and ran to him to check his pulse.`\
-https://www.nytimes.com/2026/07/29/us/clara-ester-dead.html
-
-**Rollout of New York City’s Second-Home Tax Is Confusing Some Residents**\
-`The so-called pied-à-terre tax is causing anxiety for homeowners who feel outed by the publication of their addresses. Some say they have only one home.`\
-https://www.nytimes.com/2026/07/29/nyregion/new-york-second-home-tax-rollout-anxiety.html
-
-**U.S. Strikes Iran Again, as Trump Encounters a More Determined Adversary in Widened War**\
-`The United States is again exchanging strikes with Iran, just days after the president appeared to reject plans to escalate.`\
-https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
-
-**Record Numbers of FOIA Public Document Requests Are in Limbo or Unfulfilled**\
-`A Times analysis of 16 years of available federal data shows federal agencies lag in processing requests for government records.`\
-https://www.nytimes.com/2026/07/29/us/politics/foia-public-document-requests.html
-
-**Trump Has Made Billions in Office. Will His Party Pay Politically?**\
-`The president took in a staggering $2.2 billion last year while in office. Democrats are hoping to make it a campaign issue in the midterm elections.`\
-https://www.nytimes.com/2026/07/29/us/politics/trump-personal-wealth.html
-
-**Un salvavidas adolescente enfrenta al implacable oleaje para proteger a un niño**\
-`Un video captó la sorprendente maniobra de un joven salvavidas en una playa de Santa Cruz, California, el fin de semana.`\
-https://www.nytimes.com/es/2026/07/29/espanol/salvavidas-adolescente.html
-
-**Republicans Threaten to Block Blanche Nomination**\
-`Also, Fauci invokes the Fifth Amendment. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/07/29/briefing/blanche-nomination-fauci-testimony-happy-cities.html
-
-**Lawyer Who Represented Trump Is Appointed U.S. Attorney in Manhattan**\
-`Federal court judges appointed James M. McDonald, a former federal prosecutor, to the post. He represented President Trump in his appeal of his criminal conviction.`\
-https://www.nytimes.com/2026/07/29/nyregion/trump-attorney-james-mcdonald-manhattan.html
-
-**What We Really Learned From the Fauci Hearing**\
-`Show trials are bad for democracy.`\
-https://www.nytimes.com/2026/07/29/opinion/anthony-fauci-hearing-covid.html
-
-**Government Borrowing Cost Hits Two-Decade High After Fed Rate Decision**\
-`The surge in Treasury yields suggests investors doubt that the Federal Reserve can keep inflation contained.`\
-https://www.nytimes.com/2026/07/29/business/economy/treasury-yields-fed-inflation.html
-
-**New Strikes Engulf More Countries in the Iran War**\
-`The U.S. unleashed new strikes on Iran after a day in which attacks on Iraq, Jordan and Egypt threatened to expand the scope of the war.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/iran-war-us-jordan-saudi-iraq.html
-
-**Trump Unveils $22.5 Billion Redesign of Dulles Airport**\
-`The project would make the airport easier to navigate and include a new United lounge, officials said. It’s part of the president’s plans to remake the Washington area.`\
-https://www.nytimes.com/2026/07/29/us/politics/trump-dulles-airport-redesign.html
-
-**Two Tankers Hit in Apparent Drone Strike in Egypt**\
-`An explosion at a port on Egypt’s Mediterranean coast set fire to two ships, including a U.S. gas storage tanker, according to maritime tracking firms.`\
-https://www.nytimes.com/2026/07/29/world/middleeast/ships-drone-strike-egypt.html
-
-**In Indonesia, a New Generation Takes Up Leaf Weaving**\
-`Plus: Cartagena hotels, the crustacean gaining popularity and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/07/29/t-magazine/indonesia-leaf-weaving.html
-
-**Scientists Perform Underwater Ultrasound Scans to Detect Pregnancies in Giant Manta Rays**\
-`Scientists in Mexico were the first to perform ultrasounds on giant manta rays to detect pregnancies. The researchers hoped to learn more about the life cycle of the largest ray species in the world.`\
-https://www.nytimes.com/video/science/earth/100000011059127/giant-manta-rays-pregnant-ultrasounds.html
 
