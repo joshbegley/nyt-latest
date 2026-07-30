@@ -1,3 +1,23 @@
+**Part of the Emerald City scene in Sidney Lumet’s 1978 film “The Wiz.”**\
+`Part of the Emerald City scene from Sidney Lumet’s “The Wiz” (1978).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047559/part-of-the-emerald-city-scene-in-sidney-lumets-1978-film-the-wiz.html
+
+**Lucille Ball in a clip from the 1940 film “Dance, GIrl, Dance”**\
+`Lucille Ball in Dorothy Arzner’s “Dance, Girl, Dance” (1940).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047737/lucille-ball-in-a-clip-from-the-1940-film-dance-girl-dance.html
+
+**Consuelo Harris dancing in Oscar Micheaux’s 1938 film “Swing!”**\
+`Consuelo Harris dancing a solo in Oscar Micheaux’s “Swing!” (1938).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047165/consuelo-harris-dancing-in-oscar-micheauxs-1938-film-swing.html
+
+**The dance-off scene in Robert Wise and Jerome Robbins’s 1961 film “West Side Story.”**\
+`The dance-off scene in Robert Wise and Jerome Robbins’s “West Side Story” (1961).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047403/the-dance-off-scene-in-robert-wise-and-jerome-robbinss-1961-film-west-side-story.html
+
+**Scenes from Claire Denis’s 1999 film “Beau Travail”**\
+`Members of the French Foreign Legion training in Claire Denis’s “Beau Travail” (1999).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011046658/scenes-from-claire-deniss-1999-film-beau-travail.html
+
 **Parents of Toddler Found Alive in Arizona Morgue Will Not Face Charges**\
 `The boy, who was 18 months old, had been found unconscious in a pool at the family home in Gilbert, Ariz., and was declared dead. But a medical examiner’s employee later discovered he was breathing.`\
 https://www.nytimes.com/2026/07/29/us/arizona-toddler-dead-alive-morgue.html

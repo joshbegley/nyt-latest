@@ -1,3 +1,7 @@
+**Fertility Doctor Accused of Using Own Sperm to Impregnate Woman**\
+`Dr. Dennis Lutz, the chairman of the University of North Dakota’s OB-GYN department, did not deny the claims in a lawsuit. The university said it intends to fire him.`\
+https://www.nytimes.com/2026/07/29/us/university-north-dakota-obgyn-sued.html
+
 **Part of the Emerald City scene in Sidney Lumet’s 1978 film “The Wiz.”**\
 `Part of the Emerald City scene from Sidney Lumet’s “The Wiz” (1978).`\
 https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047559/part-of-the-emerald-city-scene-in-sidney-lumets-1978-film-the-wiz.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/100000011060703/lifeguard-rescues-child-califor
 **Work Halted at Another Office Conversion in Midtown Manhattan**\
 `The Department of Buildings ordered work to stop on certain floors at 750 Third Avenue. It’s the third conversion project to have work halted since one became dangerously unstable earlier this month.`\
 https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.html
-
-**Muere Kavinsky, DJ francés, a los 50 años**\
-`El músico, cuyo nombre real era Vincent Belorgey, era conocido por su éxito de 2010 “Nightcall”, que apareció en la película “Drive”.`\
-https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\

@@ -1,3 +1,23 @@
+**Part of the Emerald City scene in Sidney Lumet’s 1978 film “The Wiz.”**\
+`Part of the Emerald City scene from Sidney Lumet’s “The Wiz” (1978).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047559/part-of-the-emerald-city-scene-in-sidney-lumets-1978-film-the-wiz.html
+
+**Lucille Ball in a clip from the 1940 film “Dance, GIrl, Dance”**\
+`Lucille Ball in Dorothy Arzner’s “Dance, Girl, Dance” (1940).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047737/lucille-ball-in-a-clip-from-the-1940-film-dance-girl-dance.html
+
+**Consuelo Harris dancing in Oscar Micheaux’s 1938 film “Swing!”**\
+`Consuelo Harris dancing a solo in Oscar Micheaux’s “Swing!” (1938).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047165/consuelo-harris-dancing-in-oscar-micheauxs-1938-film-swing.html
+
+**The dance-off scene in Robert Wise and Jerome Robbins’s 1961 film “West Side Story.”**\
+`The dance-off scene in Robert Wise and Jerome Robbins’s “West Side Story” (1961).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011047403/the-dance-off-scene-in-robert-wise-and-jerome-robbinss-1961-film-west-side-story.html
+
+**Scenes from Claire Denis’s 1999 film “Beau Travail”**\
+`Members of the French Foreign Legion training in Claire Denis’s “Beau Travail” (1999).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011046658/scenes-from-claire-deniss-1999-film-beau-travail.html
+
 **NYT Crossword Answers for July 30, 2026**\
 `Joel Woodford’s puzzle comes in loud and clear.`\
 https://www.nytimes.com/2026/07/29/crosswords/daily-puzzle-2026-07-30.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.
 **Muere Kavinsky, DJ francés, a los 50 años**\
 `El músico, cuyo nombre real era Vincent Belorgey, era conocido por su éxito de 2010 “Nightcall”, que apareció en la película “Drive”.`\
 https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
-
-**Senators Cornyn and Tillis Force Delay of Blanche Nomination Over Trump’s IRS Deal**\
-`John Cornyn and Thom Tillis accused the nominee for attorney general of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
-https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
-
-**Un ciudadano de EE. UU. borró los datos de su teléfono. Ahora enfrenta un cargo por delito grave**\
-`Fiscales federales acusaron a un hombre que regresaba al país de obstrucción después de que dio un código de acceso que borró la información de su celular durante una inspección de aduanas.`\
-https://www.nytimes.com/es/2026/07/29/espanol/aduana-estados-unidos-telefono-borrar-datos.html
-
-**Eviction Filings Have Dipped in Many Places, but Not Here**\
-`Why Minnesota is an exception to an otherwise positive national trend.`\
-https://www.nytimes.com/2026/07/29/headway/eviction-filings-minnesota-housing.html
-
-**Crowds in Gaza Rush to Safety as Israel Strikes a Mosque**\
-`Palestinians in Gaza City rushed to evacuate as the Israeli military bombed a mosque near an encampment for the displaced. The Israeli military said the mosque had been used to store weapons for Hamas, a claim Gaza’s government denied. No deaths were reported.`\
-https://www.nytimes.com/video/world/middleeast/100000011060539/gaza-israel-mosque-strike.html
-
-**David Hirsch, Who Turned Sonoma Coast Into World-Class Wine Region, Dies at 81**\
-`He helped establish a windswept part of California as a source for great American pinot noir and chardonnay grapes, and later built his own winery.`\
-https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
