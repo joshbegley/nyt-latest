@@ -1,3 +1,11 @@
+**To Know What Your Customers Think, Just Ask Their A.I. Twins**\
+`Simile, a fast-growing start-up, says it can provide companies with accurate insights by surveying millions of A.I.-generated consumers.`\
+https://www.nytimes.com/2026/07/30/business/dealbook/simile-ai-agents-funding.html
+
+**Retribution**\
+`We look at the ongoing fight between the Trump administration and James Comey.`\
+https://www.nytimes.com/2026/07/30/briefing/president-trump-james-comey.html
+
 **Pope Leo Says He Hopes to Visit U.S. Within ‘Next Couple of Years’**\
 `When asked about a possible trip, Leo XIV said that he had been looking at the calendar for the “next couple of years.”`\
 https://www.nytimes.com/2026/07/30/world/europe/pope-leo-visit-us-american.html
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/07/30/crosswords/connections-companion-1146.html
 https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
 
 **Poland’s Leader Says Russian Missile May Have Struck Its Territory During Ukraine Attack**\
-`Russian missiles have briefly entered Polish airspace during Russian strikes on western Ukraine in the past, but a missile has never hit Poland itself.`\
+`Russian missiles have briefly entered Polish airspace in the past. Investigators have yet to definitively identify the object that struck Poland overnight.`\
 https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
 
 **Oil Prices Wobble as Middle East Veers Toward Wider Conflict**\
@@ -178,23 +186,15 @@ https://www.nytimes.com/2026/07/30/theater/game-of-thrones-mad-king-royal-shakes
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/07/30/learning/word-of-the-day-emolument.html
 
-**A New York Hair Salon, Happily Stuck in 1986**\
-`All around it, luxury boutiques attract a wealthy crowd. But Anonymous Hair Salon hasn’t changed much since opening all those years ago.`\
-https://www.nytimes.com/2026/07/30/style/anonymous-hair-salon-soho-manhattan.html
-
 **How to Watch Two Summer Meteor Showers Peak On the Same Night**\
 `The end of July brings the Alpha Capricornids and the Southern Delta Aquarids, both of which will be most active on Thursday night into Friday morning.`\
 https://www.nytimes.com/2026/07/30/science/meteors-capricornids-aquarids.html
 
+**A New York Hair Salon, Happily Stuck in 1986**\
+`All around it, luxury boutiques attract a wealthy crowd. But Anonymous Hair Salon hasn’t changed much since opening all those years ago.`\
+https://www.nytimes.com/2026/07/30/style/anonymous-hair-salon-soho-manhattan.html
+
 **Is a Novel Ever Finished? Many Writers Say No.**\
 `After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Please vote below for the one you prefer.`\
 https://www.nytimes.com/2026/07/30/books/review/unfinished-novel-galley-zadie-smith-saul-bellow.html
-
-**What Doctors Want You to Know About Cervical Cancer Screening**\
-`The guidelines have changed recently as new testing options have become available. Getting screened doesn’t have to be painful or confusing.`\
-https://www.nytimes.com/2026/07/30/well/live/cervical-cancer-screening-guidelines.html
-
-**Cuba’s Bet on Solar**\
-`President Trump keeps predicting Cuba will collapse after he cut off its oil. But it’s still standing. Our reporter Jack Nicas visited to see how Cubans are adopting solar to offset the power shortage.`\
-https://www.nytimes.com/video/world/americas/100000011014208/cubas-bet-on-solar.html
 
