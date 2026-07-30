@@ -1,5 +1,5 @@
 **Seattle’s Police Chief Resigns Under Pressure**\
-`The decision follows days of criticism over how the department handled the release of information on a recent shooting that killed three people at a food festival.`\
+`The decision followed days of criticism over how the department handled the release of information about a shooting that killed three people at a food festival.`\
 https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
 
 **Iran War Is Entangling a Growing List of Mideast Nations**\
