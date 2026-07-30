@@ -1,3 +1,7 @@
+**Hollywood Foreign Press Association Sues Over Takeover of Golden Globes**\
+`The press association, which owned and operated the awards show until 2023, is suing its new owner, Penske Media, claiming its purchase was fraudulent.`\
+https://www.nytimes.com/2026/07/29/business/media/golden-globes-penske-hollywood-foreign-press.html
+
 **Dentists in Brooklyn Exploited Patients in Pain, Lawsuit Charges**\
 `New York City sued two dental practices, saying they offered patients high-interest loans to pay their bills and often falsely said procedures were not covered by insurance.`\
 https://www.nytimes.com/2026/07/29/us/dentists-canarsie-brooklyn-insurance-lawsuit.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
 **What to Know About Iraq’s Militias**\
 `At least 20 fighters of the Popular Mobilization Forces, an umbrella group of Iraqi militias with ties to Iran, were killed in a wave of U.S. and Saudi airstrikes.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/iraq-popular-mobilization-forces-iran.html
-
-**Fauci Accuses Senator Rand Paul of ‘Obsession’ During Senate Hearing**\
-`Dr. Anthony S. Fauci accused Senator Rand Paul of having an “unhinged obsession” with him during a Senate hearing on Wednesday on the origins of Covid-19.`\
-https://www.nytimes.com/video/us/politics/100000011060791/fauci-rand-paul-covid-senate-hearing.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
