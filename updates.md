@@ -1,3 +1,11 @@
+**Attack on Egyptian Port Shows Suez Canal’s Vulnerability**\
+`The port where the Wednesday strike occurred is near the Suez, through which a significant amount of the world’s shipping moves.`\
+https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-canal-vulnerability.html
+
+**Iran War Live Updates: Drone Attack in Egypt Threatens to Expand Fighting**\
+`The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
+https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
+
 **Mission to Save Falling NASA Space Telescope Suffers Setback**\
 `A spacecraft meant to push NASA’s Swift Observatory to a higher orbit malfunctioned and started tumbling several days ago. Engineers think it can still succeed.`\
 https://www.nytimes.com/2026/07/30/science/nasa-swift-link-rescue-mishap.html
