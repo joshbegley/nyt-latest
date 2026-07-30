@@ -1,3 +1,7 @@
+**Hiker Trekked About 6 Hours to Safety After Impaling Himself With Pole**\
+`David Cifaldi, 32, slipped on a rock and fell on one of his trekking poles while hiking in Montana on Granite Peak. Somehow, he wasn’t in pain and there was no blood, and he was able to trek out.`\
+https://www.nytimes.com/video/us/100000011063804/hiker-montana-pole-granite-peak.html
+
 **Trump’s Nominee to Oversee VOA, Sarah B. Rogers, Suggests Return of Journalists on Leave**\
 `The statement by the nominee, Sarah B. Rogers, signaled a stark reversal of the president’s earlier efforts to shutter Voice of America and other federally funded news groups.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-voa-news-sarah-rogers.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/us/politics/trump-cdc-erica-schwartz.html
 **Three Great Documentaries to Stream**\
 `In this month’s picks, a portrait of a jazz musician, a French archival family film and an Alabama prison exposé using footage from inmates.`\
 https://www.nytimes.com/2026/07/30/movies/documentaries-streaming.html
-
-**Former Officials Protest U.S. Plan to Defund Pan American Health Organization**\
-`The group of former health and national security officials warned that Americans will be more vulnerable to infectious disease threats.`\
-https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organization-withdrawal.html
 
