@@ -1,3 +1,7 @@
+**Dulles Airport’s Reviled ‘People Movers’ May Be Lurching Into the Sunset**\
+`A $22.5 billion redesign plan eliminates the “mobile lounges,” which were conceived as a way of making air travel more efficient. Many passengers found the opposite to be true.`\
+https://www.nytimes.com/2026/07/30/us/dulles-airport-people-movers-trump.html
+
 **T.S.A. Finds 5 Civil War Cannonballs in Passenger’s Luggage in Alabama**\
 `The inert relics, some as big as a grapefruit, were detected when agents X-rayed checked bags.`\
 https://www.nytimes.com/2026/07/30/us/tsa-alabama-civil-war-cannonballs.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/arts/design/trump-smithsonian-museums-sajet-h
 **Taco Bell Sales Recover Following Cyclospora Outbreak**\
 `Transparency around pulling affected lettuce from stores has helped Taco Bell regain consumer trust, its parent company, Yum Brands, said.`\
 https://www.nytimes.com/2026/07/30/business/taco-bell-sales-cyclospora.html
-
-**Un incendio forestal en Grecia causa la muerte de 2 bomberos mientras miles evacúan**\
-`Grecia también trabajó para contener incendios en Lesbos y en el Peloponeso, donde murió otro bombero, en medio de una brutal temporada de incendios forestales para Europa.`\
-https://www.nytimes.com/es/2026/07/30/espanol/mundo/incendios-europa-grecia.html
 
