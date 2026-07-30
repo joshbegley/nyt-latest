@@ -1,3 +1,7 @@
+**A ‘Zombie Court’ for Terror Cases Awakens**\
+`Dormant for 30 years, a little-known tribunal is hearing its first case.`\
+https://www.nytimes.com/2026/07/30/us/politics/the-docket-alien-removal-court.html
+
 **Bipartisan Senate Bill Would Give Judiciary Control of Some Courthouses**\
 `A new bipartisan bill comes after years of complaints from the courts that the General Services Administration is a bad landlord.`\
 https://www.nytimes.com/2026/07/30/us/senate-bill-gsa-courthouses.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-dron
 **El mensaje de Cuba para Trump: estamos listos para hacer negocios**\
 `Carlos Fernández de Cossío, viceministro de Relaciones Exteriores de Cuba y uno de los interlocutores del gobierno comunista con EE. UU., habla con The New York Times sobre la actual crisis de la isla.`\
 https://www.nytimes.com/es/2026/07/30/espanol/america-latina/cuba-trump-bloqueo-negocios.html
-
-**How Older Americans Hoard the Future**\
-`Aging politicians are just the “tip of the iceberg.”`\
-https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
 
