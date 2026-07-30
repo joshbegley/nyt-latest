@@ -1,3 +1,7 @@
+**Wildfires Erupt in Greece**\
+`Greek authorities on Thursday battled deadly wildfires fueled by strong winds, which have forced thousands to flee.`\
+https://www.nytimes.com/video/world/europe/100000011063012/greece-wildfires-crete.html
+
 **U.S. Sees Iran as Likely Behind Cyberattack on Minnesota Water Systems**\
 `Investigators cautioned that the assessment was preliminary. There were no indications that any water supply had been rendered unsafe to drink.`\
 https://www.nytimes.com/2026/07/30/us/politics/minnesota-water-cyberattack-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/world/americas/cuba-deputy-foreign-minister-i
 **Air India Offered to Cover My Flight on Another Airline. It Cost Me $2,000.**\
 `After a cancellation and long delays, the airline offered to cover the cost of a flight on another carrier. Then it refused to make good on that promise.`\
 https://www.nytimes.com/2026/07/30/travel/air-india-canceled-flight-refund.html
-
-**Accept Your Fate. Don’t Wear Shorts to the Office.**\
-`It might be hot but men must resist showing the knee.`\
-https://www.nytimes.com/2026/07/30/opinion/office-shorts-men.html
 
