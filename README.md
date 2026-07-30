@@ -1,3 +1,7 @@
+**Colin Gray, Father of Teenage Shooter in Georgia, Sentenced to 15 Years in Prison**\
+`Prosecutors argued that Colin Gray bore responsibility for the 2024 shooting because he had given his son a gun and failed to act as the teen’s mental health deteriorated.`\
+https://www.nytimes.com/2026/07/30/us/colin-gray-sentencing-apalachee-school-shooting.html
+
 **Why Democrats Won’t Stop Forcing Votes on the War**\
 `Even after winning approval of a measure calling on President Trump to end the war, they continue to call votes to force Republicans to answer for it.`\
 https://www.nytimes.com/2026/07/30/us/politics/democrats-war-powers-votes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/crosswords/strands-sidekick-880.html
 **NYT Connections Answers for July 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, July 31, 2026.`\
 https://www.nytimes.com/2026/07/30/crosswords/connections-companion-1146.html
-
-**Iran War Live Updates: Drone Attack in Egypt Threatens to Expand Fighting**\
-`The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
-https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
 
