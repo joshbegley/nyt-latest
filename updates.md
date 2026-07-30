@@ -1,3 +1,11 @@
+**Jeannette Etheredge, Who Hosted San Francisco at Tosca Cafe, Dies at 85**\
+`As the North Beach bar’s proprietor for 33 years, she turned it into a hub for actors, directors, writers, dancers and politicians.`\
+https://www.nytimes.com/2026/07/30/obituaries/jeanette-etheredge-dead.html
+
+**The Folk Singer Linda Perhacs Is Found and Is Safe, Authorities Confirm**\
+`Friends of the “Parallelograms” artist, who was reported missing earlier this week, said she is living in a new care facility.`\
+https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html

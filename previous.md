@@ -1,3 +1,7 @@
+**Jeannette Etheredge, Who Hosted San Francisco at Tosca Cafe, Dies at 85**\
+`As the North Beach bar’s proprietor for 33 years, she turned it into a hub for actors, directors, writers, dancers and politicians.`\
+https://www.nytimes.com/2026/07/30/obituaries/jeanette-etheredge-dead.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html
 `Scientists have found smallpox viruses in the remains of people in Chile from around 500 years ago, revealing how the virus may have evolved into a global killer.`\
 https://www.nytimes.com/2026/07/30/science/ancient-small-pox.html
 
-**Linda Perhacs, the Folk Singer, Is Found and Is Safe, Authorities Confirm**\
+**The Folk Singer Linda Perhacs Is Found and Is Safe, Authorities Confirm**\
 `Friends of the “Parallelograms” artist, who was reported missing earlier this week, said she is living in a new care facility.`\
 https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/world/asia/vietnam-aircraft-carrier.html
 **To Know What Your Customers Think, Just Ask Their A.I. Twins**\
 `Simile, a fast-growing start-up, says it can provide companies with accurate insights by surveying millions of A.I.-generated consumers.`\
 https://www.nytimes.com/2026/07/30/business/dealbook/simile-ai-agents-funding.html
-
-**Retribution**\
-`We look at the ongoing fight between the Trump administration and James Comey.`\
-https://www.nytimes.com/2026/07/30/briefing/president-trump-james-comey.html
 
