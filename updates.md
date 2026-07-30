@@ -1,3 +1,11 @@
+**How Older Americans Hoard the Future**\
+`Aging politicians are just the “tip of the iceberg.”`\
+https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
+
+**How Older Americans Hoard the Future**\
+`Aging politicians are just the “tip of the iceberg.”`\
+https://www.nytimes.com/video/opinion/100000011048682/why-wont-americas-aging-elite-retire.html
+
 **Is a Novel Ever Finished? Many Writers Say No.**\
 `After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Vote below for the one you prefer.`\
 https://www.nytimes.com/2026/07/30/books/review/unfinished-novel-galley-zadie-smith-saul-bellow.html
