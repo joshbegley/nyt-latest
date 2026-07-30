@@ -1,3 +1,7 @@
+**Former Officials Protest U.S. Plan to Defund Pan American Health Organization**\
+`The group of former health and national security officials warned that Americans will be more vulnerable to infectious disease threats.`\
+https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organization-withdrawal.html
+
 **Trump’s Tariff Exemptions Include Diamonds, Oil and Gas, Copper and Other Items**\
 `A new round of tariff carve-outs has raised familiar questions about who should receive the lucrative exceptions, and why.`\
 https://www.nytimes.com/2026/07/30/business/economy/trump-tariffs-exemptions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/nyregion/not-everyone-wants-year-round-daylig
 **Bipartisan Anger Grows at Pentagon’s Delayed ‘Forever Chemicals’ Cleanups**\
 `Hundreds of bases are contaminated with PFAS, which are linked to low birth weight and other risks. Politicians from both parties are demanding explanations.`\
 https://www.nytimes.com/2026/07/30/climate/pfas-forever-chemical-pentagon-cleanup-delay.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are on the Upper West Side, in Yorkville and in Greenpoint.`\
-https://www.nytimes.com/2026/07/30/realestate/housing-market-nyc.html
 

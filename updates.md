@@ -1,3 +1,7 @@
+**Former Officials Protest U.S. Plan to Defund Pan American Health Organization**\
+`The group of former health and national security officials warned that Americans will be more vulnerable to infectious disease threats.`\
+https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organization-withdrawal.html
+
 **Trump’s Tariff Exemptions Include Diamonds, Oil and Gas, Copper and Other Items**\
 `A new round of tariff carve-outs has raised familiar questions about who should receive the lucrative exceptions, and why.`\
 https://www.nytimes.com/2026/07/30/business/economy/trump-tariffs-exemptions.html

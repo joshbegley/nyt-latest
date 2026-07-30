@@ -1,3 +1,11 @@
+**Erica Schwartz, Trump’s Nominee for C.D.C. Director, Advances to Full Senate Vote**\
+`A vote to confirm Dr. Erica Schwartz, who has publicly supported childhood vaccines, will take place in the full Senate.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-cdc-erica-schwartz.html
+
+**Three Great Documentaries to Stream**\
+`In this month’s picks, a portrait of a jazz musician, a French archival family film and an Alabama prison exposé using footage from inmates.`\
+https://www.nytimes.com/2026/07/30/movies/documentaries-streaming.html
+
 **Former Officials Protest U.S. Plan to Defund Pan American Health Organization**\
 `The group of former health and national security officials warned that Americans will be more vulnerable to infectious disease threats.`\
 https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organization-withdrawal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/30/dining/anthony-bourdain-provincetown-tony-mov
 **As China’s A.I. Gets Stronger, It Poses New Risks to Beijing**\
 `China’s A.I. rise is creating a new dilemma for Beijing. The open models that win influence abroad may pose risks to the country’s security and geopolitical strategy.`\
 https://www.nytimes.com/2026/07/30/world/asia/as-chinas-ai-gets-stronger-it-poses-new-risks-to-beijing.html
-
-**Not Everyone Wants Year-Round Daylight Saving Time**\
-`Some Orthodox Jews oppose a bill that would make daylight saving time permanent, and farmers and some sleep experts are also opposed.`\
-https://www.nytimes.com/2026/07/30/nyregion/not-everyone-wants-year-round-daylight-saving-time.html
-
-**Bipartisan Anger Grows at Pentagon’s Delayed ‘Forever Chemicals’ Cleanups**\
-`Hundreds of bases are contaminated with PFAS, which are linked to low birth weight and other risks. Politicians from both parties are demanding explanations.`\
-https://www.nytimes.com/2026/07/30/climate/pfas-forever-chemical-pentagon-cleanup-delay.html
 
