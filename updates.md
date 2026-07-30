@@ -1,3 +1,7 @@
+**A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
+`The once-high-flying firm Situational Awareness, whose founder is 24, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
+
 **Apple’s Profit Increases 27 Percent, Topping Wall Street Expectations**\
 `The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/30/technology/apple-earnings.html

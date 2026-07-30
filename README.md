@@ -22,7 +22,7 @@ https://www.nytimes.com/video/us/100000011063804/hiker-montana-pole-granite-peak
 `The statement by the nominee, Sarah B. Rogers, signaled a stark reversal of the president’s earlier efforts to shutter Voice of America and other federally funded news groups.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-voa-news-sarah-rogers.html
 
-**Fried Chicken with Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
+**Fried Chicken With Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
 `The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
 https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
 
