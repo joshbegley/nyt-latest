@@ -1,3 +1,11 @@
+**Russia Strikes Ukraine With Missiles and Drones, Killing at Least 8**\
+`President Volodymyr Zelensky of Ukraine said that a family of five had been killed at home in the latest in a series of large-scale aerial assaults by Moscow.`\
+https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-drones-attacks.html
+
+**El mensaje de Cuba para Trump: estamos listos para hacer negocios**\
+`Carlos Fernández de Cossío, viceministro de Relaciones Exteriores de Cuba y uno de los interlocutores del gobierno comunista con EE. UU., habla con The New York Times sobre la actual crisis de la isla.`\
+https://www.nytimes.com/es/2026/07/30/espanol/america-latina/cuba-trump-bloqueo-negocios.html
+
 **Why Won’t America’s Aging Elite Retire?**\
 `How the elderly hoard the future.`\
 https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/china-trump-arancel
 **China Threatens Retaliation as U.S. Moves to Block Robot Imports**\
 `The dispute highlights how robotics has become the latest battleground in the intensifying technological and industrial rivalry between Washington and Beijing.`\
 https://www.nytimes.com/2026/07/30/business/china-robots-ban-fcc.html
-
-**Si tienes más de 40 años, estás listo para la IA**\
-`La inteligencia artificial debería funcionar como esta práctica mística judía.`\
-https://www.nytimes.com/es/2026/07/30/espanol/opinion/ia-edad-uso.html
-
-**U.S. Renews Strikes on Iran as Fighting Resumes in the Middle East**\
-`U.S. Central Command announced early Thursday local time that it had launched new strikes on Iran in response to Iranian forces that were targeting U.S. military assets in the region.`\
-https://www.nytimes.com/video/world/middleeast/100000011062797/iran-war-us-strikes.html
 

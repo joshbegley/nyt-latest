@@ -1,3 +1,11 @@
+**Russia Strikes Ukraine With Missiles and Drones, Killing at Least 8**\
+`President Volodymyr Zelensky of Ukraine said that a family of five had been killed at home in the latest in a series of large-scale aerial assaults by Moscow.`\
+https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-drones-attacks.html
+
+**El mensaje de Cuba para Trump: estamos listos para hacer negocios**\
+`Carlos Fernández de Cossío, viceministro de Relaciones Exteriores de Cuba y uno de los interlocutores del gobierno comunista con EE. UU., habla con The New York Times sobre la actual crisis de la isla.`\
+https://www.nytimes.com/es/2026/07/30/espanol/america-latina/cuba-trump-bloqueo-negocios.html
+
 **Why Won’t America’s Aging Elite Retire?**\
 `How the elderly hoard the future.`\
 https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
