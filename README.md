@@ -1,3 +1,7 @@
+**‘Nightmarish’ Wildfire in Crete Kills Two Firefighters as Thousands Evacuate**\
+`Greece also worked to contain blazes on Lesbos and in the Peloponnese, where another firefighter died, in the midst of a brutal wildfire season for Europe.`\
+https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
+
 **Russia Strikes Ukraine With Missiles and Drones, Killing at Least 8**\
 `President Volodymyr Zelensky of Ukraine said that a family of five had been killed at home in the latest in a series of large-scale aerial assaults by Moscow.`\
 https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-drones-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/podcasts/kawhi-leonards-new-secret-side-deal.
 **Algunas empresas regresan a China ante los aranceles de Trump**\
 `Para algunas marcas estadounidenses que buscan dónde instalar sus fábricas, la lógica económica vuelve a inclinar la balanza hacia China.`\
 https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/china-trump-aranceles.html
-
-**China Threatens Retaliation as U.S. Moves to Block Robot Imports**\
-`The dispute highlights how robotics has become the latest battleground in the intensifying technological and industrial rivalry between Washington and Beijing.`\
-https://www.nytimes.com/2026/07/30/business/china-robots-ban-fcc.html
 
