@@ -1,3 +1,7 @@
+**Taco Bell Sales Recover Following Cyclospora Outbreak**\
+`Transparency around pulling affected lettuce from stores has helped Taco Bell regain consumer trust, its parent company, Yum Brands, said.`\
+https://www.nytimes.com/2026/07/30/business/taco-bell-sales-cyclospora.html
+
 **Un incendio forestal en Grecia causa la muerte de 2 bomberos mientras miles evacúan**\
 `Grecia también trabajó para contener incendios en Lesbos y en el Peloponeso, donde murió otro bombero, en medio de una brutal temporada de incendios forestales para Europa.`\
 https://www.nytimes.com/es/2026/07/30/espanol/mundo/incendios-europa-grecia.html

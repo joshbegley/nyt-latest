@@ -1,3 +1,11 @@
+**‘Jimmy’ Review: Inhabiting the World of a Young James Baldwin**\
+`The director Yashaddai Owens took his Bolex film camera to Istanbul and Paris to show glimpses of the gifted author before he became a literary quasar.`\
+https://www.nytimes.com/2026/07/30/movies/jimmy-review-james-baldwin.html
+
+**For Museum Boss Who Became a Trump Target, It’s Déjà Vu All Over Again**\
+`Kim Sajet left as director of the National Portrait Gallery when she found herself in the White House cross hairs. Now she’s watching another Smithsonian chief go through it.`\
+https://www.nytimes.com/2026/07/30/arts/design/trump-smithsonian-museums-sajet-hartig.html
+
 **Taco Bell Sales Recover Following Cyclospora Outbreak**\
 `Transparency around pulling affected lettuce from stores has helped Taco Bell regain consumer trust, its parent company, Yum Brands, said.`\
 https://www.nytimes.com/2026/07/30/business/taco-bell-sales-cyclospora.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/30/arts/betye-saar-artwork.html
 **Apple’s Siri Got an A.I. Brain Transplant. Try These 5 Prompts to Get Acclimated.**\
 `An upgrade transformed the beleaguered virtual assistant into a modern chatbot. It’s imperfect but worth trying.`\
 https://www.nytimes.com/2026/07/30/technology/personaltech/apple-siri-ai-prompts.html
-
-**How Haley Stevens’s Accent Became a Flashpoint in Michigan’s Senate Race**\
-`How the politics of raised a’s and disappearing g’s briefly came to dominate the Michigan Senate race.`\
-https://www.nytimes.com/2026/07/30/us/politics/haley-stevens-accent-michigan-senate.html
-
-**After Obamacare Cuts, Hospitals Are Treating More Uninsured Patients**\
-`More people who lost coverage after congressional Republicans ended enhanced federal subsidies are now seeking care in emergency rooms and unable to pay bills.`\
-https://www.nytimes.com/2026/07/30/business/aca-obamacare-health-insurance.html
 
