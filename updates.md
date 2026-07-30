@@ -1,3 +1,11 @@
+**Mission to Save Falling NASA Space Telescope Suffers Setback**\
+`A spacecraft meant to push NASA’s Swift Observatory to a higher orbit malfunctioned and started tumbling several days ago. Engineers think it can still succeed.`\
+https://www.nytimes.com/2026/07/30/science/nasa-swift-link-rescue-mishap.html
+
+**U.S. GDP Growth Slowed in Second Quarter of 2026**\
+`Gross domestic product grew at a slower rate in the second quarter and persistent price pressures are unsettling financial markets.`\
+https://www.nytimes.com/2026/07/30/business/economy/us-economy-gdp-growth.html
+
 **Amy Winehouse’s Father Ordered to Pay $1.3 Million in Suit Over Her Belongings**\
 `Mitch Winehouse had accused two of the singer’s friends of secretly auctioning her belongings. A judge ruled that he must pay their legal fees.`\
 https://www.nytimes.com/2026/07/30/arts/music/amy-winehouse-father-mitch-friends-lawsuit.html
