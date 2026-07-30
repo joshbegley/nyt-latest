@@ -1,3 +1,7 @@
+**U.S. Renews Strikes on Iran as Fighting Resumes in the Middle East**\
+`U.S. Central Command announced early Thursday local time that it had launched new strikes on Iran in response to Iranian forces that were targeting U.S. military assets in the region.`\
+https://www.nytimes.com/video/world/middleeast/100000011062797/iran-war-us-strikes.html
+
 **Basta de burlas sobre ‘envejecer mal’**\
 `Las críticas, las películas, las caricaturas, los libros reflejan tan solo un momento en el tiempo y un contexto determinado.`\
 https://www.nytimes.com/es/2026/07/30/espanol/opinion/envejecer-mal-burlas.html

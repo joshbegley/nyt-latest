@@ -1,3 +1,7 @@
+**U.S. Renews Strikes on Iran as Fighting Resumes in the Middle East**\
+`U.S. Central Command announced early Thursday local time that it had launched new strikes on Iran in response to Iranian forces that were targeting U.S. military assets in the region.`\
+https://www.nytimes.com/video/world/middleeast/100000011062797/iran-war-us-strikes.html
+
 **Basta de burlas sobre ‘envejecer mal’**\
 `Las críticas, las películas, las caricaturas, los libros reflejan tan solo un momento en el tiempo y un contexto determinado.`\
 https://www.nytimes.com/es/2026/07/30/espanol/opinion/envejecer-mal-burlas.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/29/technology/microsoft-quarterly-earnings-repor
 **Meta’s Profit Falls 14 Percent as A.I. Spending Continues**\
 `The Silicon Valley company’s costs rose more steeply than revenue growth, as it continues to invest heavily in artificial intelligence.`\
 https://www.nytimes.com/2026/07/29/technology/meta-profit-ai.html
-
-**Rusia acusa al fundador de Telegram de facilitar el terrorismo**\
-`Pavel Durov está bajo la mira del Kremlin en un renovado intento del Estado ruso por controlar la popular aplicación de mensajería.`\
-https://www.nytimes.com/es/2026/07/29/espanol/mundo/telegram-fundador-rusia-putin.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
