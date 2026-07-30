@@ -1,3 +1,7 @@
+**Reseña de ‘Spider-Man: un nuevo día’: Peter Parker ya creció**\
+`La saga del Hombre Araña trata sobre crecer. Finalmente, su superhéroe se ha convertido en un adulto.`\
+https://www.nytimes.com/es/2026/07/29/espanol/cultura/resena-spider-man-un-nuevo-dia.html
+
 **Senators Cornyn and Tillis Force Delay of Blanche Nomination Over Trump’s IRS Deal**\
 `John Cornyn and Thom Tillis accused the nominee for attorney general of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
