@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
 https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
 
 **A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
-`The once-high flying firm Situational Awareness, whose founder is 24, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+`The once-high-flying firm Situational Awareness, whose founder is 24, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
 https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
 
 **Jennifer Finch, Scalding Bassist for Alt-Rock Band L7, Dies at 59**\
