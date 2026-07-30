@@ -1,3 +1,11 @@
+**Amy Winehouse’s Father Ordered to Pay $1.3 Million in Suit Over Her Belongings**\
+`Mitch Winehouse had accused two of the singer’s friends of secretly auctioning her belongings. A judge ruled that he must pay their legal fees.`\
+https://www.nytimes.com/2026/07/30/arts/music/amy-winehouse-father-mitch-friends-lawsuit.html
+
+**‘I Want Your Sex’ Review: Working Out the Kinks With Your Boss**\
+`Cooper Hoffman and Olivia Wilde explore a tie-me-up, turn-me-on relationship in Gregg Araki’s jolly sex comedy.`\
+https://www.nytimes.com/2026/07/30/movies/i-want-your-sex-review-olivia-wilde.html
+
 **L.A. Warehouse Fire Leaves Behind Rats, Flies and an Unending Stench**\
 `The Boyle Heights neighborhood of Los Angeles is still dealing with the smell of rotting food and fears over possible toxins after a cold-storage facility burst into flames in June.`\
 https://www.nytimes.com/2026/07/30/us/boyle-heights-warehouse-fire-smell.html
