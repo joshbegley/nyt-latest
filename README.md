@@ -1,3 +1,7 @@
+**Attack on Egyptian Port Shows Suez Canal’s Vulnerability**\
+`The port where the Wednesday strike occurred is near the Suez, through which a significant amount of the world’s shipping moves.`\
+https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-canal-vulnerability.html
+
 **Mission to Save Falling NASA Space Telescope Suffers Setback**\
 `A spacecraft meant to push NASA’s Swift Observatory to a higher orbit malfunctioned and started tumbling several days ago. Engineers think it can still succeed.`\
 https://www.nytimes.com/2026/07/30/science/nasa-swift-link-rescue-mishap.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/opinion/office-shorts-men.html
 **Should I Tell My Conservative Mother That My Child Is Trans?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who worries that speaking up will cause a family fracture.`\
 https://www.nytimes.com/2026/07/30/well/family/trans-gender-family-secret.html
-
-**A Bay Area Pastor Made an A.I. Twin to Talk About God at Any Time**\
-`To meet the growing needs of his church, Justin Lester created an A.I. duplicate of himself. Every day he sees more people using it.`\
-https://www.nytimes.com/2026/07/30/us/ai-twin-pastor-justin-lester-california-church.html
 
