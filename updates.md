@@ -1,3 +1,7 @@
+**‘Nightmarish’ Wildfire in Crete Kills Two Firefighters as Thousands Evacuate**\
+`Greece also worked to contain blazes on Lesbos and in the Peloponnese, where another firefighter died, in the midst of a brutal wildfire season for Europe.`\
+https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
+
 **Russia Strikes Ukraine With Missiles and Drones, Killing at Least 8**\
 `President Volodymyr Zelensky of Ukraine said that a family of five had been killed at home in the latest in a series of large-scale aerial assaults by Moscow.`\
 https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-drones-attacks.html
