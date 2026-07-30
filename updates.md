@@ -1,3 +1,15 @@
+**Saudi Arabia Aims to Deter Red Sea Attacks With New Coalition**\
+`Facing attacks by Yemen’s Houthi militia, Saudi Arabia has invited dozens of countries to assist it in protecting shipping in the Red Sea, diplomats say.`\
+https://www.nytimes.com/2026/07/30/world/middleeast/saudi-arabia-red-sea-houthis.html
+
+**Stone Fruit Caprese**\
+`A standout caprese starts with great fruit. You need ripe tomatoes to weep juices, which then mingle with grassy olive oil and milky cheese to make your dressing.`\
+https://www.nytimes.com/video/dining/100000011063708/stone-fruit-caprese.html
+
+**Why Democrats Won’t Stop Forcing Votes On Trump’s Iran War Powers**\
+`Even after winning approval of a measure calling on President Trump to end the war, they continue to call votes to force Republicans to answer for it.`\
+https://www.nytimes.com/2026/07/30/us/politics/democrats-war-powers-votes.html
+
 **Bond Investors’ Inflation Angst Rises on Fed’s Lack of Guidance**\
 `The yield on government bonds, which underpins borrowing costs from mortgages to business loans, remained elevated over concerns about the Federal Reserve’s efforts to contain inflation.`\
 https://www.nytimes.com/2026/07/30/business/federal-reserve-warsh-bonds.html
