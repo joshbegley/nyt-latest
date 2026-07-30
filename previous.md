@@ -71,7 +71,7 @@ https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
 https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
 
 **Trump Says He May Drop Blanche’s Attorney General Nomination, for Now**\
-`President Trump’s threat followed a day of fruitless negotiations with two holdout Republicans, Senators John Cornyn and Thom Tillis.`\
+`President Trump’s threat followed a day of fruitless negotiations with two Republican holdouts, Senators John Cornyn and Thom Tillis.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
 
 **A.I. Hedge Fund Situational Awareness Rescued by Rival Citadel**\
