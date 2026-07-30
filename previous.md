@@ -1,3 +1,15 @@
+**Elon Musk Plans at Least $100 Million in Midterm Spending to Help Republicans**\
+`Elon Musk, a year after a huge blowup with President Trump and the Republican Party, is said to be planning to spend in at least eight states to help them in November.`\
+https://www.nytimes.com/2026/07/30/us/politics/elon-musk-midterms-republicans.html
+
+**At Tanglewood, the Fresh Air Is Tainted by Tension**\
+`The Boston Symphony Orchestra’s summer home looks placid on the surface, but underneath the organization is waging war on itself.`\
+https://www.nytimes.com/2026/07/30/arts/music/tanglewood-tension-boston-orchestra.html
+
+**Dupes of My Favorite Restaurant Dishes**\
+`Just because I’m taking a break from dining out doesn’t mean I can’t enjoy my go-to orders at home.`\
+https://www.nytimes.com/2026/07/30/dining/dupes-of-my-favorite-restaurant-dishes.html
+
 **A ‘Zombie Court’ for Terror Cases Awakens**\
 `Dormant for 30 years, a little-known tribunal is hearing its first case.`\
 https://www.nytimes.com/2026/07/30/us/politics/the-docket-alien-removal-court.html
@@ -110,8 +122,8 @@ https://www.nytimes.com/2026/07/30/science/nasa-swift-link-rescue-mishap.html
 `Mitch Winehouse had accused two of the singer’s friends of secretly auctioning her belongings. A judge ruled that he must pay their legal fees.`\
 https://www.nytimes.com/2026/07/30/arts/music/amy-winehouse-father-mitch-friends-lawsuit.html
 
-**L.A. Warehouse Fire Leaves Behind Rats, Flies and an Unending Stench**\
-`The Boyle Heights neighborhood of Los Angeles is still dealing with the smell of rotting food and fears over possible toxins after a cold-storage facility burst into flames in June.`\
+**A Fire Burned Next Door. Now They Live With the Stench of Rotting Meat.**\
+`The Boyle Heights neighborhood of Los Angeles is still dealing with foul odor and fears over possible toxins over a month after a cold-storage facility burst into flames.`\
 https://www.nytimes.com/2026/07/30/us/boyle-heights-warehouse-fire-smell.html
 
 **A Historian Considers the Yuppie**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.ht
 **Oil Prices Wobble as Middle East Veers Toward Wider Conflict**\
 `Bond yields are also higher on concerns about inflation.`\
 https://www.nytimes.com/2026/07/30/business/oil-stocks-iran-war.html
-
-**Wildfires in Greece Kill 3 Firefighters as Blazes Still Burn in France and Spain**\
-`Greece also worked to contain blazes on Lesbos and in the Peloponnese, where another firefighter died, in the midst of a brutal wildfire season for Europe.`\
-https://www.nytimes.com/2026/07/30/world/europe/wildfires-europe-greece.html
-
-**Russia Strikes Ukraine With Missiles and Drones, Killing at Least 8**\
-`President Volodymyr Zelensky of Ukraine said five members of a family had been killed in the latest large-scale aerial assault by Moscow.`\
-https://www.nytimes.com/2026/07/30/world/europe/russia-ukraine-war-missiles-drones-attacks.html
-
-**El mensaje de Cuba para Trump: estamos listos para hacer negocios**\
-`Carlos Fernández de Cossío, viceministro de Relaciones Exteriores de Cuba y uno de los interlocutores del gobierno comunista con EE. UU., habla con The New York Times sobre la actual crisis de la isla.`\
-https://www.nytimes.com/es/2026/07/30/espanol/america-latina/cuba-trump-bloqueo-negocios.html
 

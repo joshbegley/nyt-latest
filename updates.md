@@ -1,3 +1,19 @@
+**Elon Musk Plans at Least $100 Million in Midterm Spending to Help Republicans**\
+`Elon Musk, a year after a huge blowup with President Trump and the Republican Party, is said to be planning to spend in at least eight states to help them in November.`\
+https://www.nytimes.com/2026/07/30/us/politics/elon-musk-midterms-republicans.html
+
+**At Tanglewood, the Fresh Air Is Tainted by Tension**\
+`The Boston Symphony Orchestra’s summer home looks placid on the surface, but underneath the organization is waging war on itself.`\
+https://www.nytimes.com/2026/07/30/arts/music/tanglewood-tension-boston-orchestra.html
+
+**Dupes of My Favorite Restaurant Dishes**\
+`Just because I’m taking a break from dining out doesn’t mean I can’t enjoy my go-to orders at home.`\
+https://www.nytimes.com/2026/07/30/dining/dupes-of-my-favorite-restaurant-dishes.html
+
+**A Fire Burned Next Door. Now They Live With the Stench of Rotting Meat.**\
+`The Boyle Heights neighborhood of Los Angeles is still dealing with foul odor and fears over possible toxins over a month after a cold-storage facility burst into flames.`\
+https://www.nytimes.com/2026/07/30/us/boyle-heights-warehouse-fire-smell.html
+
 **A ‘Zombie Court’ for Terror Cases Awakens**\
 `Dormant for 30 years, a little-known tribunal is hearing its first case.`\
 https://www.nytimes.com/2026/07/30/us/politics/the-docket-alien-removal-court.html

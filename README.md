@@ -1,3 +1,11 @@
+**Why Democrats Won’t Stop Forcing Votes on the War**\
+`Even after winning approval of a measure calling on President Trump to end the war, they continue to call votes to force Republicans to answer for it.`\
+https://www.nytimes.com/2026/07/30/us/politics/democrats-war-powers-votes.html
+
+**The Fauci Interrogation, and the Diary**\
+`Readers react to Dr. Anthony Fauci’s dramatic hearing before a Senate committee. Also: Betting on elections; happy in the muck.`\
+https://www.nytimes.com/2026/07/30/opinion/anthony-fauci-hearing-diary.html
+
 **Elon Musk Plans at Least $100 Million in Midterm Spending to Help Republicans**\
 `Elon Musk, a year after a huge blowup with President Trump and the Republican Party, is said to be planning to spend in at least eight states to help them in November.`\
 https://www.nytimes.com/2026/07/30/us/politics/elon-musk-midterms-republicans.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/30/crosswords/connections-companion-1146.html
 **Iran War Live Updates: Drone Attack in Egypt Threatens to Expand Fighting**\
 `The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
 https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
-
-**NATO Says Russian Missile Hit Poland During Ukraine Attack**\
-`Russian missiles have briefly entered Polish airspace in the past. Investigators have yet to definitively identify the object that struck overnight.`\
-https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
-
-**Oil Prices Wobble as Middle East Veers Toward Wider Conflict**\
-`Bond yields are also higher on concerns about inflation.`\
-https://www.nytimes.com/2026/07/30/business/oil-stocks-iran-war.html
 
