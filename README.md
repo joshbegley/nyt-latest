@@ -1,3 +1,7 @@
+**Civilians Battle Wildfire Threatening Bordeaux**\
+`Residents in Bordeaux in southwestern France are doing everything in their power to stop a wildfire that’s been burning for more than a week. The flames are too spread out for professional firefighters to be everywhere, so for now, civilian volunteers are the only thing standing between the fire and a major French city.`\
+https://www.nytimes.com/video/world/europe/100000011061309/france-wildfires-bordeaux-civilian-volunteers.html
+
 **Jeannette Etheredge, Who Hosted San Francisco at Tosca Cafe, Dies at 85**\
 `As the North Beach bar’s proprietor for 33 years, she turned it into a hub for actors, directors, writers, dancers and politicians.`\
 https://www.nytimes.com/2026/07/30/obituaries/jeanette-etheredge-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/business/dealbook/fed-warsh-credibility-shock
 **U.S. Aircraft Carrier Makes a Rare Port Call in Vietnam**\
 `The visit, the longest since the two countries restored relations, is a show of mutual cooperation and a signal from the U.S. to China. But it comes during tensions over tariffs.`\
 https://www.nytimes.com/2026/07/30/world/asia/vietnam-aircraft-carrier.html
-
-**To Know What Your Customers Think, Just Ask Their A.I. Twins**\
-`Simile, a fast-growing start-up, says it can provide companies with accurate insights by surveying millions of A.I.-generated consumers.`\
-https://www.nytimes.com/2026/07/30/business/dealbook/simile-ai-agents-funding.html
 
