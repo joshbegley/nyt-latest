@@ -1,3 +1,11 @@
+**Fried Chicken with Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
+`The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
+https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
+
+**Trump’s Effort to Gut Education Dept. Rebuked by Senate Committee**\
+`The bipartisan bill is a long way from becoming law, but it represents the strongest opposition yet from Congress to the administration’s agenda.`\
+https://www.nytimes.com/2026/07/30/us/politics/senate-committee-education-dept.html
+
 **Spain Mobilizes Military as Thousands of Migrants Cross Into Ceuta**\
 `The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
 https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html

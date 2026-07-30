@@ -1,3 +1,7 @@
+**Fried Chicken with Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
+`The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
+https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
+
 **Spain Mobilizes Military as Thousands of Migrants Cross Into Ceuta**\
 `The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
 https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/07/30/dining/latin-america-hot-dogs.html
 `Trump officials have promised to “make visual arts great,” with a museum exhibition that includes artwork by several people with personal connections to the planners.`\
 https://www.nytimes.com/2026/07/30/arts/design/trump-exhibition-patriotism.html
 
-**Senate Committee Approves Measure to Block Trump’s Effort to Gut Education Dept.**\
+**Trump’s Effort to Gut Education Dept. Rebuked by Senate Committee**\
 `The bipartisan bill is a long way from becoming law, but it represents the strongest opposition yet from Congress to the administration’s agenda.`\
 https://www.nytimes.com/2026/07/30/us/politics/senate-committee-education-dept.html
 
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organizati
 **Trump’s Tariff Exemptions Include Diamonds, Oil and Gas, Copper and Other Items**\
 `A new round of tariff carve-outs has raised familiar questions about who should receive the lucrative exceptions, and why.`\
 https://www.nytimes.com/2026/07/30/business/economy/trump-tariffs-exemptions.html
-
-**Today, In Short**\
-`Influencers. Route 66. And Emeril-maxxing.`\
-https://www.nytimes.com/2026/07/30/briefing/today-in-short.html
-
-**We Need a Better Test for Dangerous A.I.**\
-`Responding to the safety risks A.I. pose means coming to terms with an uncomfortable truth: A.I. models are weapons.`\
-https://www.nytimes.com/2026/07/30/opinion/ai-weapon-testing.html
 
