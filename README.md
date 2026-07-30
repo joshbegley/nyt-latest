@@ -1,3 +1,7 @@
+**Earth’s Warming Primed France and Spain to Burn, Scientists Find**\
+`The likelihood of hot, dry weather that helps wildfires spread has increased sharply in Europe in recent decades, according to a new report.`\
+https://www.nytimes.com/2026/07/30/climate/france-spain-wildfires-climate-change.html
+
 **Father of Teenage Gunman in Georgia Sentenced to 15 Years in Prison**\
 `Colin Gray was sentenced to 15 years in prison on Thursday after a jury found that he bore responsibility for a shooting carried out by his teenage son at Apalachee High School in 2024.`\
 https://www.nytimes.com/video/us/100000011064170/father-of-teenage-gunman-in-georgia-sentenced-to-15-years-in-prison.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/arts/music/jennifer-finch-dead.html
 **‘Jimmy’ Review: Inhabiting the World of a Young James Baldwin**\
 `The director Yashaddai Owens took his Bolex film camera to Istanbul and Paris to show glimpses of the gifted author before he became a literary quasar.`\
 https://www.nytimes.com/2026/07/30/movies/jimmy-review-james-baldwin.html
-
-**For Museum Boss Who Became a Trump Target, It’s Déjà Vu All Over Again**\
-`Kim Sajet left as director of the National Portrait Gallery when she found herself in the White House cross hairs. Now she’s watching another Smithsonian chief go through it.`\
-https://www.nytimes.com/2026/07/30/arts/design/trump-smithsonian-museums-sajet-hartig.html
 
