@@ -1,3 +1,11 @@
+**The Economy Slows**\
+`Plus, Trump weighs pulling his nomination of Todd Blanche. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/30/briefing/economy-blanche-iran.html
+
+**What ‘Succession’ Gets Right About Our Aging Elite**\
+`It’s not just politicians — American executives are getting older too, with the average age of chief executives rising to 61 in 2023, according to an April 2026 working paper from the National Bureau of Economic Research. The Yale law professor Samuel Moyn talks about the “dark side” of this trend on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000011048690/what-succession-gets-right-about-our-aging-elite.html
+
 **Was Your Trip to Europe Affected by Heat or Wildfires? Tell Us About It.**\
 `Have you had to cancel, reschedule or replan a trip to France, Spain or elsewhere because of raging fires or stifling heat? If so, we want to hear from you.`\
 https://www.nytimes.com/2026/07/30/travel/europe-heat-fire-reader-callout.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/30/us/senate-bill-gsa-courthouses.html
 **¿Las galletas de Crumbl son las mejores o las peores? Da igual**\
 `La cadena de postres de más rápido crecimiento en Estados Unidos tiene divididos a los amantes de los dulces. Pero el debate es excelente para el negocio.`\
 https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
-
-**Ronald G. Davis, a Mime Who Spoke Out, Dies at 92**\
-`At the height of the psychedelic era, he guided the very vocal San Francisco Mime Troupe’s pointed satire of American militarism, racism and bourgeois values.`\
-https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
-
-**Trump Threatens to Withdraw Blanche as Attorney General, Dealing Blow to Nomination**\
-`President Trump’s threat followed a day of fruitless negotiations with two Republican holdouts, Senators John Cornyn and Thom Tillis.`\
-https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
 

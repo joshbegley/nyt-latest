@@ -1,3 +1,11 @@
+**Iran War Is Entangling a Growing List of Mideast Nations**\
+`As the U.S. and Iran exchange strikes, more countries are being touched — and some are joining in.`\
+https://www.nytimes.com/2026/07/30/world/middleeast/us-iran-war-expansion.html
+
+**Texas Parents Try New Tactic to Remove Ten Commandments From Schools**\
+`A lawsuit filed by three parents argues that the displays violate a state religious freedom law and asks for them to be removed before school starts in August.`\
+https://www.nytimes.com/2026/07/30/us/ten-commandments-texas-schools-lawsuit.html
+
 **The Economy Slows**\
 `Plus, Trump weighs pulling his nomination of Todd Blanche. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/30/briefing/economy-blanche-iran.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/video/opinion/100000011048690/what-succession-gets-right
 `Have you had to cancel, reschedule or replan a trip to France, Spain or elsewhere because of raging fires or stifling heat? If so, we want to hear from you.`\
 https://www.nytimes.com/2026/07/30/travel/europe-heat-fire-reader-callout.html
 
-**Two More Appeals Courts Rule Against Trump Detention Policy**\
+**Two More Appeals Courts Rule Against Trump’s Detention Policy**\
 `The rulings deepen a split across the judiciary, making it more likely that the Supreme Court will consider the legality of detaining undocumented immigrants indefinitely.`\
 https://www.nytimes.com/2026/07/30/us/politics/appeals-courts-immigrant-detention-policy.html
 
@@ -47,7 +55,7 @@ https://www.nytimes.com/2026/07/30/world/us-death-penalty-iran-saudi-world-cup.h
 https://www.nytimes.com/2026/07/30/technology/apple-earnings.html
 
 **Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
-`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending are mounting.`\
+`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending is mounting.`\
 https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
 
 **Does Congress Have the Power to Stop the Iran War?**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/07/30/dining/dupes-of-my-favorite-restaurant-dishes
 **A ‘Zombie Court’ for Terror Cases Awakens**\
 `Dormant for 30 years, a little-known tribunal is hearing its first case.`\
 https://www.nytimes.com/2026/07/30/us/politics/the-docket-alien-removal-court.html
-
-**Bipartisan Senate Bill Would Give Judiciary Control of Some Courthouses**\
-`A new bipartisan bill comes after years of complaints from the courts that the General Services Administration is a bad landlord.`\
-https://www.nytimes.com/2026/07/30/us/senate-bill-gsa-courthouses.html
-
-**¿Las galletas de Crumbl son las mejores o las peores? Da igual**\
-`La cadena de postres de más rápido crecimiento en Estados Unidos tiene divididos a los amantes de los dulces. Pero el debate es excelente para el negocio.`\
-https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
 

@@ -1,3 +1,11 @@
+**The Economy Slows**\
+`Plus, Trump weighs pulling his nomination of Todd Blanche. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/07/30/briefing/economy-blanche-iran.html
+
+**What ‘Succession’ Gets Right About Our Aging Elite**\
+`It’s not just politicians — American executives are getting older too, with the average age of chief executives rising to 61 in 2023, according to an April 2026 working paper from the National Bureau of Economic Research. The Yale law professor Samuel Moyn talks about the “dark side” of this trend on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000011048690/what-succession-gets-right-about-our-aging-elite.html
+
 **Was Your Trip to Europe Affected by Heat or Wildfires? Tell Us About It.**\
 `Have you had to cancel, reschedule or replan a trip to France, Spain or elsewhere because of raging fires or stifling heat? If so, we want to hear from you.`\
 https://www.nytimes.com/2026/07/30/travel/europe-heat-fire-reader-callout.html
