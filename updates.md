@@ -1,3 +1,7 @@
+**Seattle’s Police Chief Resigns Under Pressure After Festival Shooting**\
+`The decision followed days of criticism over how the department handled the release of information about a shooting that killed three people.`\
+https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
+
 **Alabama Plans Inmate’s Execution After Supreme Court Blocked Last Attempt**\
 `The state will try again to execute Jeffery Lee — this time, by lethal injection — after courts said doing so using nitrogen gas was “likely unconstitutional.”`\
 https://www.nytimes.com/2026/07/30/us/alabama-plans-inmates-execution-after-supreme-court-blocked-last-attempt.html
