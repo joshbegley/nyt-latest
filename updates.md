@@ -1,3 +1,11 @@
+**Is Drake’s ‘Janice STFU’ the Song of the Summer?**\
+`Is Drake’s “Janice STFU” — an undeniable earworm — too bitter to be crowned the summer anthem... or just bitter enough?`\
+https://www.nytimes.com/video/podcasts/100000011055345/is-drakes-janice-stfu-the-song-of-the-summer.html
+
+**Is Stella Lefty’s ‘Boston’ the Song of the Summer?**\
+`Jon and Joe battle through an 8-song bracket of this summer’s biggest hits — including Stella Lefty’s rising “Boston” — to determine the winner for 2026.`\
+https://www.nytimes.com/video/podcasts/100000011064292/is-stella-leftys-boston-the-song-of-the-summer.html
+
 **Ebola Outbreak Is Now the Second-Deadliest Ever, and in Record Time**\
 `The disease has killed more than 1,500 people in the Democratic Republic of Congo in just over two months, causing deaths faster than officials have ever recorded.`\
 https://www.nytimes.com/2026/07/30/world/africa/ebola-deaths-record.html
