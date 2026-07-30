@@ -1,3 +1,7 @@
+**Floundering A.I. Hedge Fund Is Rescued by Rival**\
+`The once-high flying fund, Situational Awareness, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
+
 **Floundering Artificial Intelligence Hedge Fund Is Rescued by Rival**\
 `The once-high flying fund Situational Awareness has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
 https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html

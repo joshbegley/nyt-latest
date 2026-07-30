@@ -1,5 +1,5 @@
-**Floundering Artificial Intelligence Hedge Fund Is Rescued by Rival**\
-`The once-high flying fund Situational Awareness has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+**Floundering A.I. Hedge Fund Is Rescued by Rival**\
+`The once-high flying fund, Situational Awareness, has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
 https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
 
 **Jennifer Finch, Scalding Bassist for Alt-Rock Band L7, Dies at 59**\
