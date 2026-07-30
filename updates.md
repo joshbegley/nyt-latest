@@ -1,3 +1,7 @@
+**U.S. Strikes Iran Again, as Trump Encounters a More Determined Adversary in Widened War**\
+`The United States is again exchanging strikes with Iran, just days after the president appeared to reject plans to escalate.`\
+https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
+
 **Simone Forti, Movement Artist Inspired by the Everyday, Dies at 91**\
 `The creator of Dance Constructions that borrowed from sculpture and performance, she was a deep influence in the early 1960s on ideas about what dance could be.`\
 https://www.nytimes.com/2026/07/29/arts/dance/simone-forti-dead.html
