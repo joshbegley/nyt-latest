@@ -1,3 +1,19 @@
+**Un incendio forestal en Grecia causa la muerte de 2 bomberos mientras miles evacúan**\
+`Grecia también trabajó para contener incendios en Lesbos y en el Peloponeso, donde murió otro bombero, en medio de una brutal temporada de incendios forestales para Europa.`\
+https://www.nytimes.com/es/2026/07/30/espanol/mundo/incendios-europa-grecia.html
+
+**A clip from the 1977 John Cassavetes film “Opening Night”**\
+`Gena Rowlands in John Cassavetes’s “Opening Night” (1977).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011063473/a-clip-from-the-1977-john-cassavetes-film-opening-night.html
+
+**ABC Formally Rebukes F.C.C. for Review of TV Licenses**\
+`The network’s comments are part of its efforts to push back against the F.C.C.’s review of its local broadcast licenses.`\
+https://www.nytimes.com/2026/07/30/business/media/abc-fcc-tv-licenses.html
+
+**Military Testosterone Policy Raises Questions About Its Links to Aggression**\
+`Defense Secretary Pete Hegseth’s call for a “High-T military” raises questions about testosterone’s effect on aggression in some men.`\
+https://www.nytimes.com/2026/07/30/science/testosterone-behavior-aggression.html
+
 **2 lluvias de estrellas tendrán su pico en la misma noche. Cómo verlas**\
 `El final de julio trae a las Alfa Capricórnidas y las Delta Acuáridas del Sur, ambas estarán en su punto de mayor actividad durante la noche del jueves y la madrugada del viernes.`\
 https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/como-ver-meteoros-capricornidas-acuaridas.html
