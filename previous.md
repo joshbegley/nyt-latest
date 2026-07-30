@@ -1,3 +1,23 @@
+**Trump’s Tariff Exemptions Include Diamonds, Oil and Gas, Copper and Other Items**\
+`A new round of tariff carve-outs has raised familiar questions about who should receive the lucrative exceptions, and why.`\
+https://www.nytimes.com/2026/07/30/business/economy/trump-tariffs-exemptions.html
+
+**Today, In Short**\
+`Influencers. Route 66. And Emeril-maxxing.`\
+https://www.nytimes.com/2026/07/30/briefing/today-in-short.html
+
+**We Need a Better Test for Dangerous A.I.**\
+`Responding to the safety risks A.I. pose means coming to terms with an uncomfortable truth: A.I. models are weapons.`\
+https://www.nytimes.com/2026/07/30/opinion/ai-weapon-testing.html
+
+**Zucchini, Chickpea and Tomato Salad, Super and Simple**\
+`Says one reader: “This is a great way to use my garden bounty.”`\
+https://www.nytimes.com/2026/07/30/dining/zucchini-chickpea-and-tomato-salad-super-and-simple.html
+
+**Wildfire in Suffolk, UK, Breaks Out a Few Miles From Nuclear Power Station**\
+`A large fire engulfed almost 250 acres of land in Suffolk, a scenic area on the coast. It was a few miles from a nuclear power station.`\
+https://www.nytimes.com/2026/07/30/world/europe/suffolk-wildfire-uk.html
+
 **Wildfires Erupt in Greece**\
 `Greek authorities on Thursday battled deadly wildfires fueled by strong winds, which have forced thousands to flee.`\
 https://www.nytimes.com/video/world/europe/100000011063012/greece-wildfires-crete.html
@@ -86,8 +106,8 @@ https://www.nytimes.com/2026/07/30/crosswords/connections-companion-1146.html
 `The United States and Iran exchanged strikes overnight, after Saudi Arabia acknowledged direct involvement in the war for the first time.`\
 https://www.nytimes.com/live/2026/07/30/world/iran-war-strikes-trump
 
-**Poland’s Leader Says Russian Missile May Have Struck Its Territory During Ukraine Attack**\
-`Russian missiles have briefly entered Polish airspace in the past. Investigators have yet to definitively identify the object that struck Poland overnight.`\
+**NATO Says Russian Missile Hit Poland During Ukraine Attack**\
+`Russian missiles have briefly entered Polish airspace in the past. Investigators have yet to definitively identify the object that struck overnight.`\
 https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
 
 **Oil Prices Wobble as Middle East Veers Toward Wider Conflict**\
@@ -126,7 +146,7 @@ https://www.nytimes.com/interactive/2026/07/30/realestate/miami-florida-homes-to
 `An appeals court in Canada acquitted Brandon Klayme of child pornography-related charges. His Kik username had one less underscore than another account that was involved.`\
 https://www.nytimes.com/2026/07/30/world/canada/wrongful-conviction-kik-username-underscore.html
 
-**7 of Betye Saar’s Most Important Works**\
+**Remembering Betye Saar in 7 Essential Works**\
 `The artist, who died just short of her 100th birthday, subverted racist tropes by turning mammy dolls into warriors and presenting the breadth of the Black experience.`\
 https://www.nytimes.com/2026/07/30/arts/betye-saar-artwork.html
 
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/30/climate/pfas-forever-chemical-pentagon-cleanu
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are on the Upper West Side, in Yorkville and in Greenpoint.`\
 https://www.nytimes.com/2026/07/30/realestate/housing-market-nyc.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a three-bedroom in Wilton, Conn., and a four-bedroom in Great Neck, N.Y.`\
-https://www.nytimes.com/2026/07/30/realestate/housing-market-near-nyc.html
-
-**Iris van Herpen: Please Pleat With Me**\
-`A Dutch fashion iconoclast turns the Brooklyn Museum into her atelier — and a reporter tries to be a couturier for a day.`\
-https://www.nytimes.com/2026/07/30/arts/design/iris-van-herpen-fashion-sculpting-the-senses-brooklyn.html
-
-**How Older Americans Hoard the Future**\
-`Aging politicians are just the “tip of the iceberg.”`\
-https://www.nytimes.com/video/opinion/100000011048682/why-wont-americas-aging-elite-retire.html
-
-**Cuba to Trump: We’re Open for Business**\
-`A top Cuban official says the island won’t negotiate its politics, but it is willing to talk investment, including from President Trump.`\
-https://www.nytimes.com/2026/07/30/world/americas/cuba-deputy-foreign-minister-interview-trump.html
-
-**Air India Offered to Cover My Flight on Another Airline. It Cost Me $2,000.**\
-`After a cancellation and long delays, the airline offered to cover the cost of a flight on another carrier. Then it refused to make good on that promise.`\
-https://www.nytimes.com/2026/07/30/travel/air-india-canceled-flight-refund.html
 

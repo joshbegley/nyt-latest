@@ -1,3 +1,31 @@
+**Trump’s Tariff Exemptions Include Diamonds, Oil and Gas, Copper and Other Items**\
+`A new round of tariff carve-outs has raised familiar questions about who should receive the lucrative exceptions, and why.`\
+https://www.nytimes.com/2026/07/30/business/economy/trump-tariffs-exemptions.html
+
+**Today, In Short**\
+`Influencers. Route 66. And Emeril-maxxing.`\
+https://www.nytimes.com/2026/07/30/briefing/today-in-short.html
+
+**We Need a Better Test for Dangerous A.I.**\
+`Responding to the safety risks A.I. pose means coming to terms with an uncomfortable truth: A.I. models are weapons.`\
+https://www.nytimes.com/2026/07/30/opinion/ai-weapon-testing.html
+
+**Zucchini, Chickpea and Tomato Salad, Super and Simple**\
+`Says one reader: “This is a great way to use my garden bounty.”`\
+https://www.nytimes.com/2026/07/30/dining/zucchini-chickpea-and-tomato-salad-super-and-simple.html
+
+**Wildfire in Suffolk, UK, Breaks Out a Few Miles From Nuclear Power Station**\
+`A large fire engulfed almost 250 acres of land in Suffolk, a scenic area on the coast. It was a few miles from a nuclear power station.`\
+https://www.nytimes.com/2026/07/30/world/europe/suffolk-wildfire-uk.html
+
+**NATO Says Russian Missile Hit Poland During Ukraine Attack**\
+`Russian missiles have briefly entered Polish airspace in the past. Investigators have yet to definitively identify the object that struck overnight.`\
+https://www.nytimes.com/2026/07/30/world/europe/ukraine-poland-russia-missile.html
+
+**Remembering Betye Saar in 7 Essential Works**\
+`The artist, who died just short of her 100th birthday, subverted racist tropes by turning mammy dolls into warriors and presenting the breadth of the Black experience.`\
+https://www.nytimes.com/2026/07/30/arts/betye-saar-artwork.html
+
 **Wildfires Erupt in Greece**\
 `Greek authorities on Thursday battled deadly wildfires fueled by strong winds, which have forced thousands to flee.`\
 https://www.nytimes.com/video/world/europe/100000011063012/greece-wildfires-crete.html
