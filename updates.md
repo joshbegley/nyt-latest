@@ -1,3 +1,7 @@
+**Seattle’s Police Chief Resigns Under Pressure**\
+`The decision follows days of criticism over how the department handled the release of information on a recent shooting that killed three people at a food festival.`\
+https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
+
 **Apple’s Profit Is Up 27%, but Expectations for Current Quarter Disappoint**\
 `The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
 https://www.nytimes.com/2026/07/30/technology/apple-earnings.html

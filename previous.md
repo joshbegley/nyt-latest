@@ -1,3 +1,7 @@
+**Seattle’s Police Chief Resigns Under Pressure**\
+`The decision follows days of criticism over how the department handled the release of information on a recent shooting that killed three people at a food festival.`\
+https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
+
 **Iran War Is Entangling a Growing List of Mideast Nations**\
 `As the U.S. and Iran exchange strikes, more countries are being touched — and some are joining in.`\
 https://www.nytimes.com/2026/07/30/world/middleeast/us-iran-war-expansion.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/arts/music/tanglewood-tension-boston-orchestr
 **Dupes of My Favorite Restaurant Dishes**\
 `Just because I’m taking a break from dining out doesn’t mean I can’t enjoy my go-to orders at home.`\
 https://www.nytimes.com/2026/07/30/dining/dupes-of-my-favorite-restaurant-dishes.html
-
-**A ‘Zombie Court’ for Terror Cases Awakens**\
-`Dormant for 30 years, a little-known tribunal is hearing its first case.`\
-https://www.nytimes.com/2026/07/30/us/politics/the-docket-alien-removal-court.html
 
