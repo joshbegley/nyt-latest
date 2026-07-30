@@ -1,3 +1,11 @@
+**A ‘Credibility Shock’ Looms Over the Fed**\
+`Bonds sold off sharply after the Federal Reserve’s latest rate decision, signaling growing turmoil between the markets and the central bank.`\
+https://www.nytimes.com/2026/07/30/business/dealbook/fed-warsh-credibility-shock.html
+
+**U.S. Aircraft Carrier Makes a Rare Port Call in Vietnam**\
+`The visit, the longest since the two countries restored relations, is a show of mutual cooperation and a signal from the U.S. to China. But it comes during tensions over tariffs.`\
+https://www.nytimes.com/2026/07/30/world/asia/vietnam-aircraft-carrier.html
+
 **How Older Americans Hoard the Future**\
 `Aging politicians are just the “tip of the iceberg.”`\
 https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
