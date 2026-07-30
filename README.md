@@ -1,3 +1,7 @@
+**Scenes from Claire Denis’s 1999 film “Beau Travail”**\
+`Members of the French Foreign Legion training in Claire Denis’s “Beau Travail” (1999).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011046658/scenes-from-claire-deniss-1999-film-beau-travail.html
+
 **NYT Crossword Answers for July 30, 2026**\
 `Joel Woodford’s puzzle comes in loud and clear.`\
 https://www.nytimes.com/2026/07/29/crosswords/daily-puzzle-2026-07-30.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/07/29/headway/eviction-filings-minnesota-housing.ht
 **Crowds in Gaza Rush to Safety as Israel Strikes a Mosque**\
 `Palestinians in Gaza City rushed to evacuate as the Israeli military bombed a mosque near an encampment for the displaced. The Israeli military said the mosque had been used to store weapons for Hamas, a claim Gaza’s government denied. No deaths were reported.`\
 https://www.nytimes.com/video/world/middleeast/100000011060539/gaza-israel-mosque-strike.html
-
-**David Hirsch, Who Turned Sonoma Coast Into World-Class Wine Region, Dies at 81**\
-`He helped establish a windswept part of California as a source for great American pinot noir and chardonnay grapes, and later built his own winery.`\
-https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\

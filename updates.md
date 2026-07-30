@@ -1,3 +1,7 @@
+**Parents of Toddler Found Alive in Arizona Morgue Will Not Face Charges**\
+`The boy, who was 18 months old, had been found unconscious in a pool at the family home in Gilbert, Ariz., and was declared dead. But a medical examiner’s employee later discovered he was breathing.`\
+https://www.nytimes.com/2026/07/29/us/arizona-toddler-dead-alive-morgue.html
+
 **NYT Crossword Answers for July 30, 2026**\
 `Joel Woodford’s puzzle comes in loud and clear.`\
 https://www.nytimes.com/2026/07/29/crosswords/daily-puzzle-2026-07-30.html
