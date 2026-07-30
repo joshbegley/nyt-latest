@@ -1,3 +1,15 @@
+**Apple’s Profit Increases 27 Percent, Topping Wall Street Expectations**\
+`The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
+https://www.nytimes.com/2026/07/30/technology/apples-earnings-profit-increases-topping-wall-street-expectations.html
+
+**Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
+`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending is mounting.`\
+https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
+
+**Does Congress Have the Power to Stop the Iran War?**\
+`In theory, the War Powers Act gives Congress the power to end a war. But our chief White House correspondent, Peter Baker, describes how President Trump is the latest president to find ways to engage in war without congressional approval.`\
+https://www.nytimes.com/video/us/politics/100000011061667/does-congress-have-the-power-to-stop-the-iran-war.html
+
 **Hiker Trekked About 6 Hours to Safety After Impaling Himself With Pole**\
 `David Cifaldi, 32, slipped on a rock and fell on one of his trekking poles while hiking in Montana on Granite Peak. Somehow, he wasn’t in pain and there was no blood, and he was able to trek out.`\
 https://www.nytimes.com/video/us/100000011063804/hiker-montana-pole-granite-peak.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/07/30/business/media/abc-fcc-tv-licenses.html
 **Military Testosterone Policy Raises Questions About Its Links to Aggression**\
 `Defense Secretary Pete Hegseth’s call for a “High-T military” raises questions about testosterone’s effect on aggression in some men.`\
 https://www.nytimes.com/2026/07/30/science/testosterone-behavior-aggression.html
-
-**2 lluvias de estrellas tendrán su pico en la misma noche. Cómo verlas**\
-`El final de julio trae a las Alfa Capricórnidas y las Delta Acuáridas del Sur, ambas estarán en su punto de mayor actividad durante la noche del jueves y la madrugada del viernes.`\
-https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/como-ver-meteoros-capricornidas-acuaridas.html
-
-**Erica Schwartz, Trump’s Nominee for C.D.C. Director, Advances to Full Senate Vote**\
-`A vote to confirm Dr. Erica Schwartz, who has publicly supported childhood vaccines, will take place in the full Senate.`\
-https://www.nytimes.com/2026/07/30/us/politics/trump-cdc-erica-schwartz.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, a portrait of a jazz musician, a French archival family film and an Alabama prison exposé using footage from inmates.`\
-https://www.nytimes.com/2026/07/30/movies/documentaries-streaming.html
 

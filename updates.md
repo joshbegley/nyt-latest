@@ -1,3 +1,15 @@
+**Apple’s Profit Increases 27 Percent, Topping Wall Street Expectations**\
+`The company recently raised prices on a number of products because of component supply shortages caused by the artificial intelligence boom.`\
+https://www.nytimes.com/2026/07/30/technology/apples-earnings-profit-increases-topping-wall-street-expectations.html
+
+**Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
+`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending is mounting.`\
+https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
+
+**Does Congress Have the Power to Stop the Iran War?**\
+`In theory, the War Powers Act gives Congress the power to end a war. But our chief White House correspondent, Peter Baker, describes how President Trump is the latest president to find ways to engage in war without congressional approval.`\
+https://www.nytimes.com/video/us/politics/100000011061667/does-congress-have-the-power-to-stop-the-iran-war.html
+
 **Hiker Trekked About 6 Hours to Safety After Impaling Himself With Pole**\
 `David Cifaldi, 32, slipped on a rock and fell on one of his trekking poles while hiking in Montana on Granite Peak. Somehow, he wasn’t in pain and there was no blood, and he was able to trek out.`\
 https://www.nytimes.com/video/us/100000011063804/hiker-montana-pole-granite-peak.html
