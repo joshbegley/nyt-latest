@@ -1,3 +1,11 @@
+**Trump’s Ballroom Is Racing Ahead. Its Legality Is Still Being Contested.**\
+`See how the construction of the White House ballroom and bunker complex has progressed since December, while its legality is being weighed in court.`\
+https://www.nytimes.com/interactive/2026/07/29/us/politics/trump-east-wing-ballroom-legal.html
+
+**Parents of Boy Found in Arizona Morgue Still Alive Will Not Face Charges**\
+`The boy, who was 18 months old, had been found unconscious in a pool at the family home in Gilbert, Ariz., and was declared dead. But a medical examiner’s employee later discovered he was breathing.`\
+https://www.nytimes.com/2026/07/29/us/arizona-toddler-dead-alive-morgue.html
+
 **Reseña de ‘Spider-Man: un nuevo día’: Peter Parker ya creció**\
 `La saga del Hombre Araña trata sobre crecer. Finalmente, su superhéroe se ha convertido en un adulto.`\
 https://www.nytimes.com/es/2026/07/29/espanol/cultura/resena-spider-man-un-nuevo-dia.html
@@ -59,7 +67,7 @@ https://www.nytimes.com/2026/07/29/opinion/anthony-fauci-hearing-covid.html
 https://www.nytimes.com/2026/07/29/business/economy/treasury-yields-fed-inflation.html
 
 **New Strikes Engulf More Countries in the Iran War**\
-`President Trump threatened retribution after Iran fired missiles at U.S. military bases in Jordan. Strikes by U.S. and Saudi warplanes on Iranian-linked militias in Iraq were a further escalation after a lull.`\
+`The U.S. unleashed new strikes on Iran after a day in which attacks on Iraq, Jordan and Egypt threatened to expand the scope of the war.`\
 https://www.nytimes.com/2026/07/29/world/middleeast/iran-war-us-jordan-saudi-iraq.html
 
 **Trump Unveils $22.5 Billion Redesign of Dulles Airport**\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/07/29/dining/drinks/david-hirsch-dead.html
 **Lindsay Clancy Trial Update: In 911 Call, Husband Screams, ‘She Killed the Kids’**\
 `Prosecutors say Lindsay Clancy planned the killings of her three young children. Her lawyers point to her severe postpartum mental illness.`\
 https://www.nytimes.com/2026/07/29/us/lindsay-clancy-murder-trial-husband.html
-
-**Tiny Love Stories: ‘Women Undulating Underwater’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/07/29/style/tiny-modern-love-stories-women-undulating-underwater.html
-
-**Trump Administration Is Repurposing Federal Land for A.I. Data Centers**\
-`In the latest example, the Energy Department will convert a shuttered Cold War-era uranium enrichment facility into a data center campus and gas plants.`\
-https://www.nytimes.com/2026/07/29/climate/trump-federal-data-centers.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
