@@ -1,3 +1,15 @@
+**Jennifer Finch, Scalding Bassist for Alt-Rock Band L7, Dies at 59**\
+`Often performing barefoot, she provided the thunder for a breakout feminist band of the 1990s, which had an alternative hit with “Pretend We’re Dead.”`\
+https://www.nytimes.com/2026/07/30/arts/music/jennifer-finch-dead.html
+
+**‘Jimmy’ Review: Inhabiting the World of a Young James Baldwin**\
+`The director Yashaddai Owens took his Bolex film camera to Istanbul and Paris to show glimpses of the gifted author before he became a literary quasar.`\
+https://www.nytimes.com/2026/07/30/movies/jimmy-review-james-baldwin.html
+
+**For Museum Boss Who Became a Trump Target, It’s Déjà Vu All Over Again**\
+`Kim Sajet left as director of the National Portrait Gallery when she found herself in the White House cross hairs. Now she’s watching another Smithsonian chief go through it.`\
+https://www.nytimes.com/2026/07/30/arts/design/trump-smithsonian-museums-sajet-hartig.html
+
 **Taco Bell Sales Recover Following Cyclospora Outbreak**\
 `Transparency around pulling affected lettuce from stores has helped Taco Bell regain consumer trust, its parent company, Yum Brands, said.`\
 https://www.nytimes.com/2026/07/30/business/taco-bell-sales-cyclospora.html
