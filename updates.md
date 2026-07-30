@@ -1,3 +1,11 @@
+**España vuelve a enfrentar presión migratoria en Ceuta por el cruce de miles de migrantes**\
+`El aumento repentino de cruces hacia Ceuta volvió a poner a prueba la relación entre España y Marruecos y la capacidad de respuesta de las autoridades europeas.`\
+https://www.nytimes.com/es/2026/07/30/espanol/mundo/espana-marruecos-ceuta-migrantes.html
+
+**Seattle’s Police Chief Resigns Under Pressure**\
+`The decision followed days of criticism over how the department handled the release of information about a shooting that killed three people at a food festival.`\
+https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
+
 **Seattle’s Police Chief Resigns Under Pressure**\
 `The decision follows days of criticism over how the department handled the release of information on a recent shooting that killed three people at a food festival.`\
 https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
