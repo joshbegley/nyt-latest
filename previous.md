@@ -1,3 +1,7 @@
+**Alabama Plans Inmate’s Execution After Supreme Court Blocked Last Attempt**\
+`The state will try again to execute Jeffery Lee — this time, by lethal injection — after courts said doing so using nitrogen gas was “likely unconstitutional.”`\
+https://www.nytimes.com/2026/07/30/us/alabama-plans-inmates-execution-after-supreme-court-blocked-last-attempt.html
+
 **In Queens, a Fantastical Garden Featuring a 25-Foot-Long Teddy Bear**\
 `Ahead of their installation at MoMA PS1, the artist Precious Okoyomon discusses finding inspiration in an empty room and embracing absurdity.`\
 https://www.nytimes.com/2026/07/30/t-magazine/precious-okoyomon-moma-ps1.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/us/politics/democrats-war-powers-votes.html
 **The Fauci Interrogation, and the Diary**\
 `Readers react to Dr. Anthony Fauci’s dramatic hearing before a Senate committee. Also: Betting on elections; happy in the muck.`\
 https://www.nytimes.com/2026/07/30/opinion/anthony-fauci-hearing-diary.html
-
-**Elon Musk Plans at Least $100 Million in Midterm Spending to Help Republicans**\
-`Elon Musk, a year after a huge blowup with President Trump and the Republican Party, is said to be planning to spend in at least eight states to help them in November.`\
-https://www.nytimes.com/2026/07/30/us/politics/elon-musk-midterms-republicans.html
 

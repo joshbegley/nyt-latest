@@ -1,3 +1,7 @@
+**Alabama Plans Inmate’s Execution After Supreme Court Blocked Last Attempt**\
+`The state will try again to execute Jeffery Lee — this time, by lethal injection — after courts said doing so using nitrogen gas was “likely unconstitutional.”`\
+https://www.nytimes.com/2026/07/30/us/alabama-plans-inmates-execution-after-supreme-court-blocked-last-attempt.html
+
 **In Queens, a Fantastical Garden Featuring a 25-Foot-Long Teddy Bear**\
 `Ahead of their installation at MoMA PS1, the artist Precious Okoyomon discusses finding inspiration in an empty room and embracing absurdity.`\
 https://www.nytimes.com/2026/07/30/t-magazine/precious-okoyomon-moma-ps1.html
