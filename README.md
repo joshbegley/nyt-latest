@@ -1,3 +1,7 @@
+**Algunas empresas regresan a China ante los aranceles de Trump**\
+`Para algunas marcas estadounidenses que buscan dónde instalar sus fábricas, la lógica económica vuelve a inclinar la balanza hacia China.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/china-trump-aranceles.html
+
 **China Threatens Retaliation as U.S. Moves to Block Robot Imports**\
 `The dispute highlights how robotics has become the latest battleground in the intensifying technological and industrial rivalry between Washington and Beijing.`\
 https://www.nytimes.com/2026/07/30/business/china-robots-ban-fcc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/world/europe-summer-heat-fires-saudi.html
 **Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
 `The discovery that chronic inflammation is a cause of myriad illnesses could be this century's biggest medical breakthrough.`\
 https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
-
-**Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
-`Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
-https://www.nytimes.com/live/2026/07/29/business/fed-meeting-rates-kevin-warsh
 
