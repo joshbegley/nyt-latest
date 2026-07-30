@@ -1,4 +1,12 @@
-**Folk Singer Linda Perhacs Is Found and Is Safe, the Authorities Confirm**\
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html
+
+**‘This Is Very Strange’: Ancient Smallpox May Have Been Less Deadly**\
+`Scientists have found smallpox viruses in the remains of people in Chile from around 500 years ago, revealing how the virus may have evolved into a global killer.`\
+https://www.nytimes.com/2026/07/30/science/ancient-small-pox.html
+
+**Linda Perhacs, the Folk Singer, Is Found and Is Safe, Authorities Confirm**\
 `Friends of the “Parallelograms” artist, who was reported missing earlier this week, said she is living in a new care facility.`\
 https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/30/business/dealbook/simile-ai-agents-funding.ht
 **Retribution**\
 `We look at the ongoing fight between the Trump administration and James Comey.`\
 https://www.nytimes.com/2026/07/30/briefing/president-trump-james-comey.html
-
-**Pope Leo Says He Hopes to Visit U.S. Within ‘Next Couple of Years’**\
-`When asked about a possible trip, Leo XIV said that he had been looking at the calendar for the “next couple of years.”`\
-https://www.nytimes.com/2026/07/30/world/europe/pope-leo-visit-us-american.html
-
-**How the War With Iran Is Widening, and U.S. Hospitals See a Surge of Uninsured Patients**\
-`Plus, the horrendous smell plaguing one Canadian town.`\
-https://www.nytimes.com/2026/07/30/podcasts/the-headlines/iran-war-us-hospitals-uninsured-patients.html
 
