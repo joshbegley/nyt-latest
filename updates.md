@@ -1,3 +1,7 @@
+**Dentists in Brooklyn Exploited Patients in Pain, Lawsuit Charges**\
+`New York City sued two dental practices, saying they offered patients high-interest loans to pay their bills and often falsely said procedures were not covered by insurance.`\
+https://www.nytimes.com/2026/07/29/us/dentists-canarsie-brooklyn-insurance-lawsuit.html
+
 **Tributes, and Politics Too, at Lindsey Graham’s Funeral in South Carolina**\
 `A gathering of South Carolina’s political elite paid tribute to the late senator’s career against a backdrop of a highly competitive race to replace him.`\
 https://www.nytimes.com/2026/07/29/us/politics/lindsey-graham-funeral-south-carolina.html
