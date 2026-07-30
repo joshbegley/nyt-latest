@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.
 https://www.nytimes.com/es/2026/07/29/espanol/cultura/muere-kavinsky.html
 
 **Senators Cornyn and Tillis Threaten to Block Blanche Nomination Over Trump’s IRS Deal**\
-`John Cornyn and Thom Tillis accused the attorney general nominee of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
+`John Cornyn and Thom Tillis accused the nominee for attorney general of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
 https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
 
 **Un ciudadano de EE. UU. borró los datos de su teléfono. Ahora enfrenta un cargo por delito grave**\

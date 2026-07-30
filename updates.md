@@ -1,3 +1,7 @@
+**Senators Cornyn and Tillis Threaten to Block Blanche Nomination Over Trump’s IRS Deal**\
+`John Cornyn and Thom Tillis accused the nominee for attorney general of refusing to put on paper his promise to kill aspects of the deal he cut to settle President Trump’s suit against the agency.`\
+https://www.nytimes.com/2026/07/29/us/politics/todd-blanche-senate-vote-irs.html
+
 **U.S. Strikes Iran Again, as Trump Encounters a More Determined Adversary in Widened War**\
 `The United States is again exchanging strikes with Iran, just days after the president appeared to reject plans to escalate.`\
 https://www.nytimes.com/2026/07/29/us/trump-iran-war-widens.html
