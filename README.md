@@ -1,3 +1,11 @@
+**Is Drake’s ‘Janice STFU’ the Song of the Summer?**\
+`Is Drake’s “Janice STFU” — an undeniable earworm — too bitter to be crowned the summer anthem... or just bitter enough?`\
+https://www.nytimes.com/video/podcasts/100000011055345/is-drakes-janice-stfu-the-song-of-the-summer.html
+
+**Is Stella Lefty’s ‘Boston’ the Song of the Summer?**\
+`Jon and Joe battle through an 8-song bracket of this summer’s biggest hits — including Stella Lefty’s rising “Boston” — to determine the winner for 2026.`\
+https://www.nytimes.com/video/podcasts/100000011064292/is-stella-leftys-boston-the-song-of-the-summer.html
+
 **Ebola Outbreak Is Now the Second-Deadliest Ever, and in Record Time**\
 `The disease has killed more than 1,500 people in the Democratic Republic of Congo in just over two months, causing deaths faster than officials have ever recorded.`\
 https://www.nytimes.com/2026/07/30/world/africa/ebola-deaths-record.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/07/30/world/middleeast/egyptian-port-attack-suez-ca
 **Mission to Save Falling NASA Space Telescope Suffers Setback**\
 `A spacecraft meant to push NASA’s Swift Observatory to a higher orbit malfunctioned and started tumbling several days ago. Engineers think it can still succeed.`\
 https://www.nytimes.com/2026/07/30/science/nasa-swift-link-rescue-mishap.html
-
-**Amy Winehouse’s Father Ordered to Pay $1.3 Million in Suit Over Her Belongings**\
-`Mitch Winehouse had accused two of the singer’s friends of secretly auctioning her belongings. A judge ruled that he must pay their legal fees.`\
-https://www.nytimes.com/2026/07/30/arts/music/amy-winehouse-father-mitch-friends-lawsuit.html
-
-**A Fire Burned Next Door. Now They Live With the Stench of Rotting Meat.**\
-`The Boyle Heights neighborhood of Los Angeles is still dealing with foul odor and fears over possible toxins over a month after a cold-storage facility burst into flames.`\
-https://www.nytimes.com/2026/07/30/us/boyle-heights-warehouse-fire-smell.html
 
