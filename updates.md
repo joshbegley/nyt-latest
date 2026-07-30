@@ -1,3 +1,11 @@
+**Trump’s Nominee to Oversee VOA, Sarah B. Rogers, Suggests Return of Journalists on Leave**\
+`The statement by the nominee, Sarah B. Rogers, signaled a stark reversal of the president’s earlier efforts to shutter Voice of America and other federally funded news groups.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-voa-news-sarah-rogers.html
+
+**Trump Threatens to Withdraw Blanche as Attorney General, Dealing Blow to Nomination**\
+`President Trump’s threat followed a day of fruitless negotiations with two Republican holdouts, Senators John Cornyn and Thom Tillis.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
+
 **Fried Chicken with Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
 `The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
 https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
