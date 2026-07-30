@@ -1,3 +1,7 @@
+**Is a Novel Ever Finished? Many Writers Say No.**\
+`After finishing his latest book, Karan Mahajan couldn’t decide which opening passage was best. Vote below for the one you prefer.`\
+https://www.nytimes.com/2026/07/30/books/review/unfinished-novel-galley-zadie-smith-saul-bellow.html
+
 **To Know What Your Customers Think, Just Ask Their A.I. Twins**\
 `Simile, a fast-growing start-up, says it can provide companies with accurate insights by surveying millions of A.I.-generated consumers.`\
 https://www.nytimes.com/2026/07/30/business/dealbook/simile-ai-agents-funding.html
