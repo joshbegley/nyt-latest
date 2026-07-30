@@ -1,3 +1,7 @@
+**Kawhi Leonard’s New Secret Side Deal**\
+`As the N.B.A. tries to end its investigation, Pablo digs even deeper.`\
+https://www.nytimes.com/2026/07/30/podcasts/kawhi-leonards-new-secret-side-deal.html
+
 **Algunas empresas regresan a China ante los aranceles de Trump**\
 `Para algunas marcas estadounidenses que buscan dónde instalar sus fábricas, la lógica económica vuelve a inclinar la balanza hacia China.`\
 https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/china-trump-aranceles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/29/opinion/sex-trafficking-epstein-exploited.htm
 **The Summer That Broke Europe**\
 `Record heat and wildfires are devastating the continent, and scientists warn the climate crisis is getting worse.`\
 https://www.nytimes.com/2026/07/29/world/europe-summer-heat-fires-saudi.html
-
-**Inflammation Keeps Us Alive. It's Also Making Us Sick.**\
-`The discovery that chronic inflammation is a cause of myriad illnesses could be this century's biggest medical breakthrough.`\
-https://www.nytimes.com/interactive/2026/07/29/magazine/inflammation-chronic-immune-system-health.html
 

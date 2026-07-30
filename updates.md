@@ -1,3 +1,7 @@
+**Kawhi Leonard’s New Secret Side Deal**\
+`As the N.B.A. tries to end its investigation, Pablo digs even deeper.`\
+https://www.nytimes.com/2026/07/30/podcasts/kawhi-leonards-new-secret-side-deal.html
+
 **Algunas empresas regresan a China ante los aranceles de Trump**\
 `Para algunas marcas estadounidenses que buscan dónde instalar sus fábricas, la lógica económica vuelve a inclinar la balanza hacia China.`\
 https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/china-trump-aranceles.html
