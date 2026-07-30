@@ -154,7 +154,7 @@ https://www.nytimes.com/2026/07/30/world/americas/cuba-deputy-foreign-minister-i
 `After a cancellation and long delays, the airline offered to cover the cost of a flight on another carrier. Then it refused to make good on that promise.`\
 https://www.nytimes.com/2026/07/30/travel/air-india-canceled-flight-refund.html
 
-**The Case Against Office Shorts**\
+**Accept Your Fate. Don’t Wear Shorts to the Office.**\
 `It might be hot but men must resist showing the knee.`\
 https://www.nytimes.com/2026/07/30/opinion/office-shorts-men.html
 

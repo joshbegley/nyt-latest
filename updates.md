@@ -1,3 +1,7 @@
+**Accept Your Fate. Don’t Wear Shorts to the Office.**\
+`It might be hot but men must resist showing the knee.`\
+https://www.nytimes.com/2026/07/30/opinion/office-shorts-men.html
+
 **A ‘Credibility Shock’ Looms Over the Fed**\
 `Bonds sold off sharply after the Federal Reserve’s latest rate decision, signaling growing turmoil between the markets and the central bank.`\
 https://www.nytimes.com/2026/07/30/business/dealbook/fed-warsh-credibility-shock.html
