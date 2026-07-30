@@ -1,3 +1,7 @@
+**In Queens, a Fantastical Garden Featuring a 25-Foot-Long Teddy Bear**\
+`Ahead of their installation at MoMA PS1, the artist Precious Okoyomon discusses finding inspiration in an empty room and embracing absurdity.`\
+https://www.nytimes.com/2026/07/30/t-magazine/precious-okoyomon-moma-ps1.html
+
 **España vuelve a enfrentar presión migratoria en Ceuta por el cruce de miles de migrantes**\
 `El aumento repentino de cruces hacia Ceuta volvió a poner a prueba la relación entre España y Marruecos y la capacidad de respuesta de las autoridades europeas.`\
 https://www.nytimes.com/es/2026/07/30/espanol/mundo/espana-marruecos-ceuta-migrantes.html
