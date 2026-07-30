@@ -1,3 +1,19 @@
+**Iran War Is Entangling a Growing List of Mideast Nations**\
+`As the U.S. and Iran exchange strikes, more countries are being touched — and some are joining in.`\
+https://www.nytimes.com/2026/07/30/world/middleeast/us-iran-war-expansion.html
+
+**Texas Parents Try New Tactic to Remove Ten Commandments From Schools**\
+`A lawsuit filed by three parents argues that the displays violate a state religious freedom law and asks for them to be removed before school starts in August.`\
+https://www.nytimes.com/2026/07/30/us/ten-commandments-texas-schools-lawsuit.html
+
+**Two More Appeals Courts Rule Against Trump’s Detention Policy**\
+`The rulings deepen a split across the judiciary, making it more likely that the Supreme Court will consider the legality of detaining undocumented immigrants indefinitely.`\
+https://www.nytimes.com/2026/07/30/us/politics/appeals-courts-immigrant-detention-policy.html
+
+**Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
+`Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending is mounting.`\
+https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
+
 **The Economy Slows**\
 `Plus, Trump weighs pulling his nomination of Todd Blanche. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/30/briefing/economy-blanche-iran.html
