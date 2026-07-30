@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/07/30/books/review/new-recommended-books.html
 `Scientists have found smallpox viruses in the remains of people in Chile from around 500 years ago, revealing how the virus may have evolved into a global killer.`\
 https://www.nytimes.com/2026/07/30/science/ancient-small-pox.html
 
-**Linda Perhacs, the Folk Singer, Is Found and Is Safe, Authorities Confirm**\
+**The Folk Singer Linda Perhacs Is Found and Is Safe, Authorities Confirm**\
 `Friends of the “Parallelograms” artist, who was reported missing earlier this week, said she is living in a new care facility.`\
 https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.html
 
