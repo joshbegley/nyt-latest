@@ -1,3 +1,7 @@
+**Mission to Save Falling NASA Space Telescope Suffers Setback**\
+`A spacecraft meant to push NASA’s Swift Observatory to a higher orbit malfunctioned and started tumbling several days ago. Engineers think it can still succeed.`\
+https://www.nytimes.com/2026/07/30/science/nasa-swift-link-rescue-mishap.html
+
 **Amy Winehouse’s Father Ordered to Pay $1.3 Million in Suit Over Her Belongings**\
 `Mitch Winehouse had accused two of the singer’s friends of secretly auctioning her belongings. A judge ruled that he must pay their legal fees.`\
 https://www.nytimes.com/2026/07/30/arts/music/amy-winehouse-father-mitch-friends-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/well/family/trans-gender-family-secret.html
 **A Bay Area Pastor Made an A.I. Twin to Talk About God at Any Time**\
 `To meet the growing needs of his church, Justin Lester created an A.I. duplicate of himself. Every day he sees more people using it.`\
 https://www.nytimes.com/2026/07/30/us/ai-twin-pastor-justin-lester-california-church.html
-
-**‘I Want Your Sex’ Review: Working Out the Kinks With Your Boss**\
-`Cooper Hoffman and Olivia Wilde explore a tie-me-up, turn-me-on relationship in Gregg Araki’s jolly sex comedy.`\
-https://www.nytimes.com/2026/07/30/movies/i-want-your-sex-review-olivia-wilde.html
 
