@@ -2,11 +2,11 @@
 `“We live in the world we inherited from them,” the author Dylan Gottlieb says.`\
 https://www.nytimes.com/2026/07/30/style/yuppie-historian-new-york-society-1980s.html
 
-**DOJ Seeks to Use Secretive Court to Deport Mother of Convicted ISIS Supporter**\
+**DOJ Seeks to Use Court to Deport Mother of Convicted ISIS Supporter**\
 `The case is an early test of a court that has never been used before, where much of the evidence is presented in secret and defendants cannot challenge how it was collected.`\
 https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
 
-**U.S. Economic Growth Slowed in the Second Quarter**\
+**U.S. GDP Growth Slowed in Second Quarter of 2026**\
 `Gross domestic product expanded at a 1.5 percent annual rate over the past three months, as war in the Middle East shook energy prices and supply chains.`\
 https://www.nytimes.com/2026/07/30/business/economy/us-economy-gdp-growth.html
 
