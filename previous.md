@@ -1,6 +1,10 @@
+**Los padres de un niño encontrado vivo en una morgue de Arizona no enfrentarán cargos**\
+`El menor de 18 meses fue encontrado inconsciente en una piscina y fue declarado muerto. Un empleado del servicio forense descubrió más tarde que estaba respirando.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/nino-ahogado-vivo-padres.html
+
 **Alabama Plans Inmate’s Execution After Supreme Court Blocked Last Attempt**\
 `The state will try again to execute Jeffery Lee — this time, by lethal injection — after courts said doing so using nitrogen gas was “likely unconstitutional.”`\
-https://www.nytimes.com/2026/07/30/us/alabama-plans-inmates-execution-after-supreme-court-blocked-last-attempt.html
+https://www.nytimes.com/2026/07/30/us/alabama-execution-supreme-court-lee.html
 
 **In Queens, a Fantastical Garden Featuring a 25-Foot-Long Teddy Bear**\
 `Ahead of their installation at MoMA PS1, the artist Precious Okoyomon discusses finding inspiration in an empty room and embracing absurdity.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/us/colin-gray-sentencing-apalachee-school-sho
 **Why Democrats Won’t Stop Forcing Votes On Trump’s Iran War Powers**\
 `Even after winning approval of a measure calling on President Trump to end the war, they continue to call votes to force Republicans to answer for it.`\
 https://www.nytimes.com/2026/07/30/us/politics/democrats-war-powers-votes.html
-
-**The Fauci Interrogation, and the Diary**\
-`Readers react to Dr. Anthony Fauci’s dramatic hearing before a Senate committee. Also: Betting on elections; happy in the muck.`\
-https://www.nytimes.com/2026/07/30/opinion/anthony-fauci-hearing-diary.html
 

@@ -1,3 +1,11 @@
+**Los padres de un niño encontrado vivo en una morgue de Arizona no enfrentarán cargos**\
+`El menor de 18 meses fue encontrado inconsciente en una piscina y fue declarado muerto. Un empleado del servicio forense descubrió más tarde que estaba respirando.`\
+https://www.nytimes.com/es/2026/07/30/espanol/estados-unidos/nino-ahogado-vivo-padres.html
+
+**Alabama Plans Inmate’s Execution After Supreme Court Blocked Last Attempt**\
+`The state will try again to execute Jeffery Lee — this time, by lethal injection — after courts said doing so using nitrogen gas was “likely unconstitutional.”`\
+https://www.nytimes.com/2026/07/30/us/alabama-execution-supreme-court-lee.html
+
 **Seattle’s Police Chief Resigns Under Pressure After Festival Shooting**\
 `The decision followed days of criticism over how the department handled the release of information about a shooting that killed three people.`\
 https://www.nytimes.com/2026/07/30/us/seattle-police-chief-resigns.html
