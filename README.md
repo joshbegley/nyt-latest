@@ -1,3 +1,11 @@
+**Spain Mobilizes Military as Thousands of Migrants Cross Into Ceuta**\
+`The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
+https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html
+
+**Lo que realmente aprendimos de la audiencia de Fauci**\
+`Los juicios espectáculo son perjudiciales para la democracia.`\
+https://www.nytimes.com/es/2026/07/30/espanol/opinion/covid-origen-fauci.html
+
 **Five Hot Dogs, One Man, Infinite Toppings**\
 `Forget ketchup and mustard. At these five New York City spots, hot dogs are taken to the extreme.`\
 https://www.nytimes.com/2026/07/30/dining/latin-america-hot-dogs.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/07/30/briefing/today-in-short.html
 **We Need a Better Test for Dangerous A.I.**\
 `Responding to the safety risks A.I. pose means coming to terms with an uncomfortable truth: A.I. models are weapons.`\
 https://www.nytimes.com/2026/07/30/opinion/ai-weapon-testing.html
-
-**Zucchini, Chickpea and Tomato Salad, Super and Simple**\
-`Says one reader: “This is a great way to use my garden bounty.”`\
-https://www.nytimes.com/2026/07/30/dining/zucchini-chickpea-and-tomato-salad-super-and-simple.html
-
-**Wildfire in Suffolk, UK, Breaks Out a Few Miles From Nuclear Power Station**\
-`A large fire engulfed almost 250 acres of land in Suffolk, a scenic area on the coast. It was a few miles from a nuclear power station.`\
-https://www.nytimes.com/2026/07/30/world/europe/suffolk-wildfire-uk.html
 
