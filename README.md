@@ -1,3 +1,7 @@
+**Trump’s Nominee to Oversee VOA, Sarah B. Rogers, Suggests Return of Journalists on Leave**\
+`The statement by the nominee, Sarah B. Rogers, signaled a stark reversal of the president’s earlier efforts to shutter Voice of America and other federally funded news groups.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-voa-news-sarah-rogers.html
+
 **Fried Chicken with Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
 `The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
 https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
@@ -130,7 +134,7 @@ https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
 `At the height of the psychedelic era, he guided the very vocal San Francisco Mime Troupe’s pointed satire of American militarism, racism and bourgeois values.`\
 https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
 
-**Trump Says He May Drop Blanche’s Attorney General Nomination, for Now**\
+**Trump Threatens to Withdraw Blanche as Attorney General, Dealing Blow to Nomination**\
 `President Trump’s threat followed a day of fruitless negotiations with two Republican holdouts, Senators John Cornyn and Thom Tillis.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/07/30/movies/documentaries-streaming.html
 **Former Officials Protest U.S. Plan to Defund Pan American Health Organization**\
 `The group of former health and national security officials warned that Americans will be more vulnerable to infectious disease threats.`\
 https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organization-withdrawal.html
-
-**Trump’s Tariff Exemptions Include Diamonds, Oil and Gas, Copper and Other Items**\
-`A new round of tariff carve-outs has raised familiar questions about who should receive the lucrative exceptions, and why.`\
-https://www.nytimes.com/2026/07/30/business/economy/trump-tariffs-exemptions.html
 
