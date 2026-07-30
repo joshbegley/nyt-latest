@@ -1,3 +1,11 @@
+**A ‘Zombie Court’ for Terror Cases Awakens**\
+`Dormant for 30 years, a little-known tribunal is hearing its first case.`\
+https://www.nytimes.com/2026/07/30/us/politics/the-docket-alien-removal-court.html
+
+**Bipartisan Senate Bill Would Give Judiciary Control of Some Courthouses**\
+`A new bipartisan bill comes after years of complaints from the courts that the General Services Administration is a bad landlord.`\
+https://www.nytimes.com/2026/07/30/us/senate-bill-gsa-courthouses.html
+
 **¿Las galletas de Crumbl son las mejores o las peores? Da igual**\
 `La cadena de postres de más rápido crecimiento en Estados Unidos tiene divididos a los amantes de los dulces. Pero el debate es excelente para el negocio.`\
 https://www.nytimes.com/es/2026/07/30/espanol/galletas-crumbl.html
