@@ -1,3 +1,19 @@
+**Un incendio forestal en Grecia causa la muerte de 2 bomberos mientras miles evacúan**\
+`Grecia también trabajó para contener incendios en Lesbos y en el Peloponeso, donde murió otro bombero, en medio de una brutal temporada de incendios forestales para Europa.`\
+https://www.nytimes.com/es/2026/07/30/espanol/mundo/incendios-europa-grecia.html
+
+**A clip from the 1977 John Cassavetes film “Opening Night”**\
+`Gena Rowlands in John Cassavetes’s “Opening Night” (1977).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000011063473/a-clip-from-the-1977-john-cassavetes-film-opening-night.html
+
+**ABC Formally Rebukes F.C.C. for Review of TV Licenses**\
+`The network’s comments are part of its efforts to push back against the F.C.C.’s review of its local broadcast licenses.`\
+https://www.nytimes.com/2026/07/30/business/media/abc-fcc-tv-licenses.html
+
+**Military Testosterone Policy Raises Questions About Its Links to Aggression**\
+`Defense Secretary Pete Hegseth’s call for a “High-T military” raises questions about testosterone’s effect on aggression in some men.`\
+https://www.nytimes.com/2026/07/30/science/testosterone-behavior-aggression.html
+
 **2 lluvias de estrellas tendrán su pico en la misma noche. Cómo verlas**\
 `El final de julio trae a las Alfa Capricórnidas y las Delta Acuáridas del Sur, ambas estarán en su punto de mayor actividad durante la noche del jueves y la madrugada del viernes.`\
 https://www.nytimes.com/es/2026/07/30/espanol/ciencia-y-tecnologia/como-ver-meteoros-capricornidas-acuaridas.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/30/business/aca-obamacare-health-insurance.html
 **Conservatives Like the Liberal Arts, Actually. They Just Don’t Like the Phrase.**\
 `Some people revere the “liberal arts” while others call them useless. They’re probably talking about different things.`\
 https://www.nytimes.com/2026/07/30/magazine/liberal-arts-degree-conservatives.html
-
-**36 Hours on Sifnos, Greece: Things to Do and See**\
-`Coastal trails, whitewashed monasteries and thrilling new takes on traditional Greek cuisine make this uncrowded island worth the trip.`\
-https://www.nytimes.com/interactive/2026/07/30/travel/things-to-do-sifnos.html
-
-**For Fame, Press 1. For Infamy, Press 2.**\
-`Would you rather be famous or infamous?`\
-https://www.nytimes.com/2026/07/30/opinion/fauci-el-syed-democratic-socialists-america.html
-
-**Domi and JD Beck Return With ‘Who Asked?’**\
-`With their second album, “Who Asked?,” the virtuoso jazz-and-beyond duo Domi and JD Beck re-emerges with ever more intricate songs.`\
-https://www.nytimes.com/2026/07/30/arts/music/domi-jd-beck-who-asked-interview.html
-
-**Anthony Bourdain’s Wild Summers Still Echo in Provincetown**\
-`As a new film evokes his coming-of-age in this bohemian Cape Cod town, Pete Wells goes looking for the people and restaurants that shaped him.`\
-https://www.nytimes.com/2026/07/30/dining/anthony-bourdain-provincetown-tony-movie.html
 
