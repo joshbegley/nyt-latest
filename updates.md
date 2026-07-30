@@ -1,3 +1,11 @@
+**A Historian Considers the Yuppie**\
+`“We live in the world we inherited from them,” the author Dylan Gottlieb says.`\
+https://www.nytimes.com/2026/07/30/style/yuppie-historian-new-york-society-1980s.html
+
+**Markets Challenge Warsh’s Approach to Taming Inflation**\
+`Kevin M. Warsh has made controlling inflation the top priority of his tenure as Federal Reserve chairman. But his hesitancy to embrace the possibility of higher borrowing costs has sparked a backlash.`\
+https://www.nytimes.com/2026/07/30/business/warshs-performance-falls-flat-with-markets-as-fed-holds-rates-steady.html
+
 **DOJ Seeks to Use Secretive Court to Deport Mother of Convicted ISIS Supporter**\
 `The case is an early test of the court, where much of the evidence is presented in secret and defendants cannot challenge how it was collected.`\
 https://www.nytimes.com/2026/07/30/us/doj-isis-alien-terrorist-removal-court.html
