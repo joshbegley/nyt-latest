@@ -1,3 +1,11 @@
+**Erica Schwartz, Trump’s Nominee for C.D.C. Director, Advances to Full Senate Vote**\
+`A vote to confirm Dr. Erica Schwartz, who has publicly supported childhood vaccines, will take place in the full Senate.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-cdc-erica-schwartz.html
+
+**Three Great Documentaries to Stream**\
+`In this month’s picks, a portrait of a jazz musician, a French archival family film and an Alabama prison exposé using footage from inmates.`\
+https://www.nytimes.com/2026/07/30/movies/documentaries-streaming.html
+
 **Former Officials Protest U.S. Plan to Defund Pan American Health Organization**\
 `The group of former health and national security officials warned that Americans will be more vulnerable to infectious disease threats.`\
 https://www.nytimes.com/2026/07/30/health/paho-us-pan-american-health-organization-withdrawal.html
