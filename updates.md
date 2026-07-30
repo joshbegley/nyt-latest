@@ -1,3 +1,7 @@
+**Si tienes más de 40 años, estás listo para la IA**\
+`La inteligencia artificial debería funcionar como esta práctica mística judía.`\
+https://www.nytimes.com/es/2026/07/30/espanol/opinion/ia-edad-uso.html
+
 **U.S. Renews Strikes on Iran as Fighting Resumes in the Middle East**\
 `U.S. Central Command announced early Thursday local time that it had launched new strikes on Iran in response to Iranian forces that were targeting U.S. military assets in the region.`\
 https://www.nytimes.com/video/world/middleeast/100000011062797/iran-war-us-strikes.html
