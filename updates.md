@@ -1,3 +1,27 @@
+**Quote of the Day: Blistering Summer Pushes Europe to the Brink**\
+`Quotation of the Day for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/30/pageoneplus/quote-of-the-day-blistering-summer-pushes-europe-to-the-brink.html
+
+**As Wildfires Plague Europe, Scotland Races to Save a Cherished National Park**\
+`As Europe’s climate warms, even moorlands and forests in the Cairngorms, in the Scottish Highlands, have fallen victim to rapidly spreading flames.`\
+https://www.nytimes.com/2026/07/30/world/europe/scotland-wildfire-cairngorms-highlands.html
+
+**A.I. Data Centers in Space? A System to Cool Chips Could Help.**\
+`Researchers at Caltech and Sophia Space, a start-up, have developed a technology using solar power to prevent computer equipment from overheating in orbit.`\
+https://www.nytimes.com/2026/07/30/business/solar-powered-data-centers.html
+
+**How Climate Change and Tariffs Help China Raise More Cattle**\
+`As increased rain makes grasslands and cornfields possible in areas that once were deserts, the world’s largest beef importer is becoming more self-reliant by expanding domestic herds.`\
+https://www.nytimes.com/2026/07/30/business/china-beef-imports-tariffs.html
+
+**U.S.-Saudi Attack on Iraqi Militias Risks Drawing Them into War**\
+`Iran-aligned militias in Iraq were under growing pressure to disarm, but the latest strikes may embolden them to get more deeply involved in the war.`\
+https://www.nytimes.com/2026/07/30/world/europe/iraqi-militias-iran-war-saudi-arabia-us.html
+
+**Corrections: July 30, 2026**\
+`Corrections that appeared in print on Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/30/pageoneplus/corrections-july-30-2026.html
+
 **Fertility Doctor Accused of Using Own Sperm to Impregnate Woman**\
 `Dr. Dennis Lutz, the chairman of the University of North Dakota’s OB-GYN department, did not deny the claims in a lawsuit. The university said it intends to fire him.`\
 https://www.nytimes.com/2026/07/29/us/university-north-dakota-obgyn-sued.html

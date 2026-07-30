@@ -1,3 +1,27 @@
+**Quote of the Day: Blistering Summer Pushes Europe to the Brink**\
+`Quotation of the Day for Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/30/pageoneplus/quote-of-the-day-blistering-summer-pushes-europe-to-the-brink.html
+
+**As Wildfires Plague Europe, Scotland Races to Save a Cherished National Park**\
+`As Europe’s climate warms, even moorlands and forests in the Cairngorms, in the Scottish Highlands, have fallen victim to rapidly spreading flames.`\
+https://www.nytimes.com/2026/07/30/world/europe/scotland-wildfire-cairngorms-highlands.html
+
+**A.I. Data Centers in Space? A System to Cool Chips Could Help.**\
+`Researchers at Caltech and Sophia Space, a start-up, have developed a technology using solar power to prevent computer equipment from overheating in orbit.`\
+https://www.nytimes.com/2026/07/30/business/solar-powered-data-centers.html
+
+**How Climate Change and Tariffs Help China Raise More Cattle**\
+`As increased rain makes grasslands and cornfields possible in areas that once were deserts, the world’s largest beef importer is becoming more self-reliant by expanding domestic herds.`\
+https://www.nytimes.com/2026/07/30/business/china-beef-imports-tariffs.html
+
+**U.S.-Saudi Attack on Iraqi Militias Risks Drawing Them into War**\
+`Iran-aligned militias in Iraq were under growing pressure to disarm, but the latest strikes may embolden them to get more deeply involved in the war.`\
+https://www.nytimes.com/2026/07/30/world/europe/iraqi-militias-iran-war-saudi-arabia-us.html
+
+**Corrections: July 30, 2026**\
+`Corrections that appeared in print on Thursday, July 30, 2026.`\
+https://www.nytimes.com/2026/07/30/pageoneplus/corrections-july-30-2026.html
+
 **Fertility Doctor Accused of Using Own Sperm to Impregnate Woman**\
 `Dr. Dennis Lutz, the chairman of the University of North Dakota’s OB-GYN department, did not deny the claims in a lawsuit. The university said it intends to fire him.`\
 https://www.nytimes.com/2026/07/29/us/university-north-dakota-obgyn-sued.html
@@ -169,30 +193,6 @@ https://www.nytimes.com/2026/07/29/business/economy/fed-meeting-interest-rates-t
 **Trump planea enviar a Uruguay a deportados cubanos**\
 `El Departamento de Estado, bajo el mando del secretario de Estado Marco Rubio, ha deportado a cubanos incluso a África. Ahora está negociando con un país sudamericano.`\
 https://www.nytimes.com/es/2026/07/29/espanol/estados-unidos/trump-deportados-cubanos-uruguay.html
-
-**Mental Health Issues Cited in Sentencing of Man Who Drove Into Synagogue**\
-`Dan Sohail, who has spent six months in detention, was sentenced to one more week. The judge in Brooklyn said that he needed mental health treatment and had not acted out of hate.`\
-https://www.nytimes.com/2026/07/29/nyregion/chabad-brooklyn-synagogue-car-ramming.html
-
-**Fauci’s Pardon From Biden Would Not Shield Him From New Offenses**\
-`Republicans have argued that the pre-emptive pardon Dr. Fauci received from former President Biden ought to preclude him from invoking the Fifth Amendment. But the pardon applies only to what happened before it was issued.`\
-https://www.nytimes.com/2026/07/29/us/politics/fauci-biden-pardon-covid-hearing.html
-
-**The Good List: 6 Things to Bring Joy to Your Day**\
-`First Kiss Moon, the biggest museum and being sure of someone.`\
-https://www.nytimes.com/2026/07/29/briefing/29-the-good-list-museum-first-kiss.html
-
-**Teenage Lifeguard Fights Intense Waves to Bring Boy to Safety**\
-`A lifeguard with a relentless grip on a young boy brought him to safety amid enormous waves that ripped across a Santa Cruz beach over the weekend.`\
-https://www.nytimes.com/2026/07/29/us/santa-cruz-lifeguard-rescue-ryder-williams.html
-
-**Teenage Lifeguard Rescues Boy in Unrelenting Surf in Santa Cruz**\
-`A video capturing the rescue showed bystanders rushing into the surf to help as the lifeguard and the boy were sent under multiple times.`\
-https://www.nytimes.com/video/us/100000011060703/lifeguard-rescues-child-california.html
-
-**Work Halted at Another Office Conversion in Midtown Manhattan**\
-`The Department of Buildings ordered work to stop on certain floors at 750 Third Avenue. It’s the third conversion project to have work halted since one became dangerously unstable earlier this month.`\
-https://www.nytimes.com/2026/07/29/nyregion/midtown-manhattan-conversions-steel.html
 
 **Fed Leaves Interest Rates Unchanged, Despite Three Votes for an Increase**\
 `Kevin M. Warsh, the Fed’s new chairman, vowed to fight persistent inflation without offering specifics about whether that would include raising rates.`\
