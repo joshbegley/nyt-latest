@@ -1,3 +1,7 @@
+**Floundering Artificial Intelligence Hedge Fund Is Rescued by Rival**\
+`The once-high flying fund Situational Awareness has been bailed out by Kenneth Griffin’s Citadel, according to three people briefed on the transaction.`\
+https://www.nytimes.com/2026/07/30/business/artificial-intelligence-situational-awareness-citadel.html
+
 **Jennifer Finch, Scalding Bassist for Alt-Rock Band L7, Dies at 59**\
 `Often performing barefoot, she provided the thunder for a breakout feminist band of the 1990s, which had an alternative hit with “Pretend We’re Dead.”`\
 https://www.nytimes.com/2026/07/30/arts/music/jennifer-finch-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/07/30/realestate/miami-florida-homes-to
 **Mistaken Username Sent Man to Prison for 18 Months, Court Finds**\
 `An appeals court in Canada acquitted Brandon Klayme of child pornography-related charges. His Kik username had one less underscore than another account that was involved.`\
 https://www.nytimes.com/2026/07/30/world/canada/wrongful-conviction-kik-username-underscore.html
-
-**Remembering Betye Saar in 7 Essential Works**\
-`The artist, who died just short of her 100th birthday, subverted racist tropes by turning mammy dolls into warriors and presenting the breadth of the Black experience.`\
-https://www.nytimes.com/2026/07/30/arts/betye-saar-artwork.html
 
