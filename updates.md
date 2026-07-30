@@ -1,3 +1,11 @@
+**Ronald G. Davis, a Mime Who Spoke Out, Dies at 92**\
+`At the height of the psychedelic era, he guided the very vocal San Francisco Mime Troupe’s pointed satire of American militarism, racism and bourgeois values.`\
+https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
+
+**Gen Z Thinks Religion Got Too Political**\
+`Does Gen Z feel welcome at church?`\
+https://www.nytimes.com/2026/07/30/opinion/gen-z-religion-evangelicals-trump.html
+
 **Trump Says He May Drop Blanche’s Attorney General Nomination, for Now**\
 `President Trump’s threat followed a day of fruitless negotiations with two holdout Republicans, Senators John Cornyn and Thom Tillis.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html

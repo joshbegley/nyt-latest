@@ -1,3 +1,7 @@
+**Ronald G. Davis, a Mime Who Spoke Out, Dies at 92**\
+`At the height of the psychedelic era, he guided the very vocal San Francisco Mime Troupe’s pointed satire of American militarism, racism and bourgeois values.`\
+https://www.nytimes.com/2026/07/30/theater/ronald-g-davis-dead.html
+
 **Trump Says He May Drop Blanche’s Attorney General Nomination, for Now**\
 `President Trump’s threat followed a day of fruitless negotiations with two holdout Republicans, Senators John Cornyn and Thom Tillis.`\
 https://www.nytimes.com/2026/07/30/us/politics/trump-blanche-attorney-general-cornyn-tillis.html
@@ -187,14 +191,10 @@ https://www.nytimes.com/es/2026/07/30/espanol/america-latina/cuba-trump-bloqueo-
 https://www.nytimes.com/2026/07/30/opinion/american-gerontocracy-samuel-moyn.html
 
 **Gen Z Thinks Religion Got Too Political**\
-`I wonder why that could be.`\
+`Does Gen Z feel welcome at church?`\
 https://www.nytimes.com/2026/07/30/opinion/gen-z-religion-evangelicals-trump.html
 
 **Markets Challenge Warsh’s Approach to Taming Inflation**\
 `Kevin M. Warsh has made controlling inflation the top priority of his tenure as Federal Reserve chairman. But his hesitancy to embrace the possibility of higher borrowing costs has sparked a backlash.`\
 https://www.nytimes.com/2026/07/30/business/warshs-performance-falls-flat-with-markets-as-fed-holds-rates-steady.html
-
-**They Wanted a House in Miami for $800,000 — Attached or Otherwise**\
-`After seeing their rent balloon to more than $4,000 a month, a young couple searched some of Miami’s walkable neighborhoods for a single-family house or townhome where they could start a family.`\
-https://www.nytimes.com/interactive/2026/07/30/realestate/miami-florida-homes-townhouses-prices-sale.html
 
