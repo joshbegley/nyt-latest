@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
+
 **Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions**\
 `Neither Hamas nor the Israeli government has issued an official statement acknowledging the deal, raising concerns about their eagerness to implement its clauses.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/movies/flaco-owl-wild-inside-documentary.html
 **Can Mary Beth Barone Revive Feminist Standup?**\
 `A decade ago, Amy Schumer became the only woman to headline Madison Square Garden. With a new Netflix special, Barone is looking to break out in a very different atmosphere.`\
 https://www.nytimes.com/2026/07/31/arts/television/mary-beth-barone-galaxy-brain-comedy.html
-
-**22 New Books to Read in August: Rachel Cusk, Riley Sager, Claudia Rankine and More**\
-`Gripping thrillers, hockey romance, political history, an Appalachian Trail memoir and more.`\
-https://www.nytimes.com/2026/07/31/books/new-books-august.html
 
