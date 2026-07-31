@@ -86,10 +86,6 @@ https://www.nytimes.com/es/2026/07/31/espanol/america-latina/unam-examen-admisio
 `El cuerpo de Nadhira Alharthy, la primera mujer omaní en alcanzar la cima del Everest, estaba entre los cuerpos recuperados. El alpinista influente Nirmal Purja estaba desaparecido.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/avalancha-alpinistas-pakistan.html
 
-**Líderes de extrema derecha aprovechan la crisis en Ceuta para reforzar su postura antiinmigrante**\
-`Varios migrantes que cruzaron a Ceuta atribuyeron su llegada a los laxos protocolos fronterizos de Marruecos. Pero el sector antiinmigrante de Europa culpó a la política promigración de España.`\
-https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-derecha-politicos-migrantes.html
-
 **Flashback: Your Weekly History Quiz, August 1, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
@@ -154,8 +150,8 @@ https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
 `Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant politicians blamed Spain’s migrant-friendly policies.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
 
-**Crisis migratoria en Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han regresado a Marruecos**\
-`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia provocó una crisis en el gobierno español. Al menos 34 personas fallecieron.`\
+**La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
+`De las 60.000 personas que llegaron a Ceuta, unas 37.000 volvieron en un día. Pero la repentina afluencia puso en jaque al gobierno español. Al menos 34 personas fallecieron.`\
 https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
 
 **Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
