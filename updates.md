@@ -1,3 +1,7 @@
+**A Ton of Space Junk Tumbles Unpredictably to Earth Every Week**\
+`Flaming chunks of metal crash into homes, farms and parking lots. Who’s to blame? And who pays for the damage?`\
+https://www.nytimes.com/2026/07/31/world/asia/space-debris-falling-crashing-earth-risk.html
+
 **Spain’s Leader Rushes to Ceuta After Thousands of Migrants Burst Across Border**\
 `Prime Minister Pedro Sánchez was set to arrive in Ceuta, a Spanish territory in Africa, amid an escalating crisis for his pro-immigration government.`\
 https://www.nytimes.com/2026/07/31/world/europe/spain-ceuta-border-migrants-sanchez.html

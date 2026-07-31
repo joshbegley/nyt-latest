@@ -72,7 +72,7 @@ https://www.nytimes.com/es/2026/07/31/espanol/cultura/sam-smith-nuevo-album.html
 
 **A Ton of Space Junk Tumbles Unpredictably to Earth Every Week**\
 `Flaming chunks of metal crash into homes, farms and parking lots. Who’s to blame? And who pays for the damage?`\
-https://www.nytimes.com/2026/07/31/world/asia/space-debris-earth.html
+https://www.nytimes.com/2026/07/31/world/asia/space-debris-falling-crashing-earth-risk.html
 
 **Political Turmoil Will Not Derail Killer Robot Program, Former Minister Says**\
 `The recently ousted Ukrainian defense minister, Mykhailo Fedorov, an advocate for drone and robot warfare, says Ukraine’s tech-heavy strategy will persist.`\
