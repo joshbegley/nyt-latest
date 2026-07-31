@@ -1,3 +1,7 @@
+**G.O.P. Kills Bid to Expand I.V.F. Access in the Military**\
+`In a notable shift, Republican senators voted unanimously against a proposal to expand the military’s coverage of fertility treatments.`\
+https://www.nytimes.com/2026/07/31/us/politics/gop-ivf-military.html
+
 **Ariana Grande ‘Petal’ Album Review: The Pitfalls of Fame**\
 `The singer’s new album, “Petal,” finds her dissatisfied with fame, but offers few details on exactly why.`\
 https://www.nytimes.com/2026/07/31/arts/music/ariana-grande-petal-review.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/business/media/barbie-sequel-warner-bros-matt
 **In Trump’s Economy, Job Gains Go to Women. That’s Not an Entirely Good Thing.**\
 `Despite the administration’s best attempts, the diminishing status of many American jobs is driving a spike in women’s employment.`\
 https://www.nytimes.com/2026/07/31/magazine/american-women-workforce.html
-
-**Ella Langley? Drake? Stella Lefty? A Song of the Summer Debate.**\
-`Can Drake reclaim the throne? Is it the season of Stella Lefty? Or is Ella Langley inevitable?`\
-https://www.nytimes.com/2026/07/31/arts/music/song-of-the-summer-drake-ella-langley.html
 
