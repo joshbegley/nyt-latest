@@ -1,3 +1,7 @@
+**4 cuerpos son hallados y 6 alpinistas siguen desaparecidos tras una avalancha en Pakistán**\
+`El cuerpo de Nadhira Alharthy, la primera mujer omaní en alcanzar la cima del Everest, estaba entre los cuerpos recuperados. El alpinista influente Nirmal Purja estaba desaparecido.`\
+https://www.nytimes.com/es/2026/07/31/espanol/mundo/avalancha-alpinistas-pakistan.html
+
 **Líderes de extrema derecha aprovechan la crisis en Ceuta para reforzar su postura antiinmigrante**\
 `Varios migrantes que cruzaron a Ceuta atribuyeron su llegada a los laxos protocolos fronterizos de Marruecos. Pero el sector antiinmigrante de Europa culpó a la política promigración de España.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-derecha-politicos-migrantes.html
