@@ -1,3 +1,19 @@
+**Inflation Worries Prompted Fed Officials to Dissent on Holding Rates Steady**\
+`Internal divisions over whether to raise interest rates intensified at Kevin Warsh’s second meeting as chairman of the Federal Reserve.`\
+https://www.nytimes.com/2026/07/31/business/economy/inflation-fed-dissent-interest-rates.html
+
+**The Western United States Is Facing a Weekend of Record Heat**\
+`Unusually hot temperatures, even for the depths of summer, are expected from Arizona to Montana.`\
+https://www.nytimes.com/2026/07/31/weather/california-western-us-heat.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011065682/31vid-jason-beach-40954.html
+
+**Dance Review: ‘To Philly, Love, Rennie’ Is the Sound of Soul, but Muted**\
+`At the Joyce Theater, Philadanco! premiered a new dance of civic pride by Rennie Harris that’s oddly muffled.`\
+https://www.nytimes.com/2026/07/31/arts/dance/review-philadanco-rennie-harris.html
+
 **What a Hedge Fund’s Implosion Says About the A.I. Trade**\
 `Situational Awareness caught the attention of Wall Street with its highly leveraged trades. It nearly collapsed amid a wave of market volatility.`\
 https://www.nytimes.com/2026/07/31/business/dealbook/situational-awareness-ai-hedge-fund.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/31/well/wound-swelling-compartment-syndome.html
 **Vivek Ramaswamy Wants to Be the Future. First He Has to Win.**\
 `His brand of post-Trump fusionism faces a test in Ohio.`\
 https://www.nytimes.com/2026/07/31/opinion/vivek-ramaswamy-ohio-trump.html
-
-**Europe Is Caught Between Low Gas Reserves and Rising Prices From Iran War**\
-`Across Europe, reserves of natural gas for use in the winter months are lagging, meaning continued higher prices for households and businesses.`\
-https://www.nytimes.com/2026/07/31/business/europe-natural-gas-prices.html
-
-**What You Need to Know About Installing Plug-In Solar Panels**\
-`You can now buy panels that plug into electrical outlets, but there are some important safety issues to consider when picking and installing a system.`\
-https://www.nytimes.com/2026/07/31/business/energy-environment/plug-in-solar-panel-guide.html
-
-**The German Auto Industry, a Pillar of the National Psyche, Is Trembling**\
-`The country’s iconic carmakers are struggling with tariffs, the growth of electric vehicles and intense competition from Chinese companies.`\
-https://www.nytimes.com/2026/07/31/business/germany-mercedes-bmw-volkswagen.html
-
-**Major Guggenheim Show Traces Origin and Legacy of Pop Art**\
-`At the Guggenheim Museum, a survey of the origin and legacy of Pop Art tries to extract from the movement a conscience it never really had, our critic argues.`\
-https://www.nytimes.com/2026/07/31/arts/design/guggenheim-pop-art-review.html
 
