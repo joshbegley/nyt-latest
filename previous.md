@@ -1,3 +1,7 @@
+**BP Puts Its North Sea Drilling Business Up for Sale**\
+`The plans are part of the energy giant’s efforts to streamline operations, but BP has deep roots in the region.`\
+https://www.nytimes.com/2026/07/31/business/bp-north-sea.html
+
 **Inflation Worries Prompted Fed Officials to Dissent on Holding Rates Steady**\
 `Internal divisions over whether to raise interest rates intensified at Kevin Warsh’s second meeting as chairman of the Federal Reserve.`\
 https://www.nytimes.com/2026/07/31/business/economy/inflation-fed-dissent-interest-rates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/travel/helsinki-architecture-eliel-saarinen-a
 **A Stab Wound, Then a Real Emergency**\
 `The man was stoic, but stitching up his injury made the pain even worse.`\
 https://www.nytimes.com/2026/07/31/well/wound-swelling-compartment-syndome.html
-
-**Vivek Ramaswamy Wants to Be the Future. First He Has to Win.**\
-`His brand of post-Trump fusionism faces a test in Ohio.`\
-https://www.nytimes.com/2026/07/31/opinion/vivek-ramaswamy-ohio-trump.html
 

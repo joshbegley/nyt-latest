@@ -1,3 +1,7 @@
+**BP Puts Its North Sea Drilling Business Up for Sale**\
+`The plans are part of the energy giant’s efforts to streamline operations, but BP has deep roots in the region.`\
+https://www.nytimes.com/2026/07/31/business/bp-north-sea.html
+
 **Inflation Worries Prompted Fed Officials to Dissent on Holding Rates Steady**\
 `Internal divisions over whether to raise interest rates intensified at Kevin Warsh’s second meeting as chairman of the Federal Reserve.`\
 https://www.nytimes.com/2026/07/31/business/economy/inflation-fed-dissent-interest-rates.html
