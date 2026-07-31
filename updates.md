@@ -1,3 +1,27 @@
+**The Next Met Fashion Blockbuster and Gala Will Honor Controversial Designer John Galliano**\
+`As famous for his antisemitic rant in 2011 as he is for his fashion, Galliano would be one of only three living designers ever to receive the honor.`\
+https://www.nytimes.com/2026/07/31/style/met-gala-costume-institute-john-galliano.html
+
+**Trump Administration Plans to Upend Head Start by Deregulating It**\
+`The White House tried but failed to block funding for preschool for poor children. Instead, it will seek to strip away standards on health, literacy — and brushing teeth.`\
+https://www.nytimes.com/2026/07/31/us/politics/head-start-deregulation.html
+
+**Warsh Considers Reducing Frequency of Fed Policy Meetings**\
+`The Federal Reserve has met at least eight times a year for decades. Reducing the number of meetings would represent the biggest change by Kevin M. Warsh since he became chairman.`\
+https://www.nytimes.com/2026/07/31/business/federal-reserve-warsh-meetings.html
+
+**John Ali, Nation of Islam Official Who Clashed With Malcolm X, Dies at 98**\
+`He was widely suspected of being an F.B.I. informant and of playing a role in the 1965 assassination of Malcolm, the charismatic Black activist.`\
+https://www.nytimes.com/2026/07/31/us/john-ali-dead.html
+
+**Why Mitch McConnell Isn’t Giving Up His Senate Seat**\
+`Democrats are demanding that the Kentucky Republican resign. Others who were sidelined for far longer faced no such calls, but times are changing.`\
+https://www.nytimes.com/2026/07/31/us/why-mitch-mcconnell-isnt-giving-up-his-senate-seat.html
+
+**Migrants Surge Into Spanish Territory, Triggering Political Backlash**\
+`A sudden exodus of migrants from Morocco startled Spanish officials and drew heavy criticism from right-wing parties across the continent.`\
+https://www.nytimes.com/2026/07/31/world/migrants-surge-into-spanish-territory-triggering-political-backlash.html
+
 **Nancy Guthrie Ransom Notes Released by Sheriff’s Department Searching for New Leads**\
 `The 84-year-old mother of Savannah Guthrie, the television news anchor, has been missing for nearly six months.`\
 https://www.nytimes.com/2026/07/31/us/savannah-nancy-guthrie-ransom-note.html
