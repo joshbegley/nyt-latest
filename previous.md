@@ -1,3 +1,19 @@
+**In the Surf**\
+`We examine the brain injuries in the Coast Guard.`\
+https://www.nytimes.com/2026/07/31/briefing/in-the-surf.html
+
+**Returning Home in Spain’s Wildfires**\
+`Amid the worst fires in Spain’s history, our Madrid bureau chief, Jason Horowitz, travels with a couple who fled a fire as they return to see if their home and gardens survived.`\
+https://www.nytimes.com/video/world/europe/100000011063365/returning-home-in-spains-wildfires.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011065658/31vid-tarajal-rush-34704.html
+
+**‘The Headlines’ News Quiz: Jul. 31, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/31/podcasts/the-headlines/the-headlines-news-quiz-jul-31-2026.html
+
 **Open Model Wars + Claire Stapleton’s Dishy Google Memoir + Substack’s Slop Fight**\
 `“It just seems like the temperature is rising on Silicon Valley.”`\
 https://www.nytimes.com/2026/07/31/podcasts/open-source-google.html
@@ -47,7 +63,7 @@ https://www.nytimes.com/2026/07/31/crosswords/strands-sidekick-881.html
 https://www.nytimes.com/2026/07/31/crosswords/connections-companion-1147.html
 
 **Iran Says It Targeted U.S. Military in Kuwait With Drones**\
-`The Iranian army said it had targeted U.S. assets at a Kuwaiti air base. There were no immediate reports of any attacks from Kuwait or from the U.S. military.`\
+`The Kuwaiti military said that it had detected and destroyed multiple drones in its airspace since dawn. The U.S. military did not immediately report any attacks.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
 
 **Can the N.B.A. Police Itself?**\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/31/arts/design/guggenheim-pop-art-review.html
 **Can the Gritty ‘Spider-Man: Brand New Day’ Save the Superhero Movie?**\
 `The newest entry in the franchise took a more grounded approach, a departure for a spectacle-focused genre that is teetering at the box office.`\
 https://www.nytimes.com/2026/07/31/movies/spider-man-brand-new-day-movie.html
-
-**Broadway Shows Closing Soon: ‘Death of a Salesman,’ ‘Ragtime’ and More**\
-`Catch these Tony Award winners and nominees before the curtain comes down on them for a final time.`\
-https://www.nytimes.com/2026/07/31/theater/broadway-shows-closing-soon-death-of-a-salesman-ragtime-and-more.html
-
-**How Trump Has Changed, With Maggie Haberman**\
-`The New York Times correspondent says 70 percent of the president’s mind is dedicated to White House renovations.`\
-https://www.nytimes.com/video/opinion/100000011044730/how-trump-has-changed-with-maggie-haberman.html
-
-**Texas and Florida Draw Up Terrorism Lists and Take Aim at a Muslim Group**\
-`The federal government designates terrorism groups. But Governors Ron DeSantis and Greg Abbott have gotten in the game, and a focus is CAIR, a nonprofit.`\
-https://www.nytimes.com/2026/07/31/us/texas-florida-terrorism-lists-cair-muslim.html
-
-**Selling Burritos Back to Mexico: Chipotle’s Bold Expansion**\
-`As the Mexican-inspired American chain makes its debut in Mexico, it faces a major hurdle: convincing Mexicans to buy an Americanized take on their own national cuisine.`\
-https://www.nytimes.com/2026/07/31/world/americas/chipotle-restaurant-mexico.html
 

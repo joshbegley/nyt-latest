@@ -1,3 +1,23 @@
+**In the Surf**\
+`We examine the brain injuries in the Coast Guard.`\
+https://www.nytimes.com/2026/07/31/briefing/in-the-surf.html
+
+**Returning Home in Spain’s Wildfires**\
+`Amid the worst fires in Spain’s history, our Madrid bureau chief, Jason Horowitz, travels with a couple who fled a fire as they return to see if their home and gardens survived.`\
+https://www.nytimes.com/video/world/europe/100000011063365/returning-home-in-spains-wildfires.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/europe/100000011065658/31vid-tarajal-rush-34704.html
+
+**‘The Headlines’ News Quiz: Jul. 31, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/07/31/podcasts/the-headlines/the-headlines-news-quiz-jul-31-2026.html
+
+**Iran Says It Targeted U.S. Military in Kuwait With Drones**\
+`The Kuwaiti military said that it had detected and destroyed multiple drones in its airspace since dawn. The U.S. military did not immediately report any attacks.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
+
 **Open Model Wars + Claire Stapleton’s Dishy Google Memoir + Substack’s Slop Fight**\
 `“It just seems like the temperature is rising on Silicon Valley.”`\
 https://www.nytimes.com/2026/07/31/podcasts/open-source-google.html
