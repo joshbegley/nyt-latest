@@ -1,3 +1,15 @@
+**Toasted Coconut Rice Salad**\
+`Fluffy toasted rice meets crunchy slaw in this gingery, tofu-topped salad. Jasmine rice gets toasted until fragrant and lightly golden, then it’s cooked with coconut milk to yield a supremely nutty base for the salad.`\
+https://www.nytimes.com/video/dining/100000011065107/toasted-coconut-rice-salad.html
+
+**Defying Trump, Cornyn Uses His Lame-Duck Power**\
+`In standing in the way of Todd Blanche, President Trump’s choice for attorney general, a liberated Senator John Cornyn is wielding his leverage.`\
+https://www.nytimes.com/2026/07/30/us/politics/defying-trump-cornyn-uses-his-lame-duck-power.html
+
+**Trump Claims Peace Board Has Plan for Gaza Disarmament**\
+`There was no immediate comment from Hamas or Israel, and officials gave few details on the plan.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-gaza-peace-board-hamas.html
+
 **Mamdani Leaves Door Open to Paying Reparations to Black New Yorkers**\
 `The mayor said in recent interviews that it was important to acknowledge the city’s role in slavery but that he could not commit to payouts before his racial equity commission completes its report.`\
 https://www.nytimes.com/2026/07/30/nyregion/mamdani-reparations-slavery.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/07/30/arts/music/linda-perhacs-found-folk-singer.ht
 **Saudi Arabia Aims to Deter Red Sea Attacks With New Coalition**\
 `Facing attacks by Yemen’s Houthi militia, Saudi Arabia has invited dozens of countries to assist it in protecting shipping in the Red Sea, diplomats say.`\
 https://www.nytimes.com/2026/07/30/world/middleeast/saudi-arabia-red-sea-houthis.html
-
-**Stone Fruit Caprese**\
-`A standout caprese starts with great fruit. You need ripe tomatoes to weep juices, which then mingle with grassy olive oil and milky cheese to make your dressing.`\
-https://www.nytimes.com/video/dining/100000011063708/stone-fruit-caprese.html
-
-**Bond Investors’ Inflation Angst Rises on Fed’s Lack of Guidance**\
-`The yield on government bonds, which underpins borrowing costs from mortgages to business loans, remained elevated over concerns about the Federal Reserve’s efforts to contain inflation.`\
-https://www.nytimes.com/2026/07/30/business/federal-reserve-warsh-bonds.html
-
-**Colin Gray, Father of Teenage Shooter in Georgia, Sentenced to 15 Years in Prison**\
-`Prosecutors argued that Colin Gray bore responsibility for the 2024 shooting because he had given his son a gun and failed to act as the teen’s mental health deteriorated.`\
-https://www.nytimes.com/2026/07/30/us/colin-gray-sentencing-apalachee-school-shooting.html
 

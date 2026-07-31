@@ -1,3 +1,15 @@
+**Toasted Coconut Rice Salad**\
+`Fluffy toasted rice meets crunchy slaw in this gingery, tofu-topped salad. Jasmine rice gets toasted until fragrant and lightly golden, then it’s cooked with coconut milk to yield a supremely nutty base for the salad.`\
+https://www.nytimes.com/video/dining/100000011065107/toasted-coconut-rice-salad.html
+
+**Defying Trump, Cornyn Uses His Lame-Duck Power**\
+`In standing in the way of Todd Blanche, President Trump’s choice for attorney general, a liberated Senator John Cornyn is wielding his leverage.`\
+https://www.nytimes.com/2026/07/30/us/politics/defying-trump-cornyn-uses-his-lame-duck-power.html
+
+**Trump Claims Peace Board Has Plan for Gaza Disarmament**\
+`There was no immediate comment from Hamas or Israel, and officials gave few details on the plan.`\
+https://www.nytimes.com/2026/07/30/us/politics/trump-gaza-peace-board-hamas.html
+
 **Mamdani Leaves Door Open to Paying Reparations to Black New Yorkers**\
 `The mayor said in recent interviews that it was important to acknowledge the city’s role in slavery but that he could not commit to payouts before his racial equity commission completes its report.`\
 https://www.nytimes.com/2026/07/30/nyregion/mamdani-reparations-slavery.html
