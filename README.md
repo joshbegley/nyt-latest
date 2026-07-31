@@ -1,3 +1,63 @@
+**In Another Wild Day for South Korean Stocks, Market Surges 15 Percent**\
+`After a sharp sell-off, South Korea’s stock market rallied as concerns about overspending on artificial intelligence eased, sending the country’s chip shares higher.`\
+https://www.nytimes.com/2026/07/31/business/korea-stocks-chips-kospi.html
+
+**México presenta un plan para combatir el sargazo en sus playas**\
+`Las algas pardas y malolientes conocidas han asolado las costas del país y de la región en general durante más de una década, pero el pronóstico de este año está batiendo récords.`\
+https://www.nytimes.com/es/2026/07/31/espanol/america-latina/mexico-sargazo-playas.html
+
+**China está produciendo más carne. Los aranceles y el clima extremo ayudan**\
+`A medida que el aumento de las lluvias hace posible que haya pastizales y campos de maíz en áreas que alguna vez fueron desiertos, el mayor importador de carne de res del mundo se está volviendo más autosuficiente al expandir sus rebaños nacionales.`\
+https://www.nytimes.com/es/2026/07/31/espanol/negocios/china-carne-ganado-aranceles-argentina-brasil.html
+
+**Quote of the Day: Cashing In on a Data Center by Selling Cold Beer to Builders**\
+`Quotation of the Day for Friday, July 31, 2026.`\
+https://www.nytimes.com/2026/07/31/pageoneplus/quote-of-the-day-cashing-in-on-a-data-center-by-selling-cold-beer-to-builders.html
+
+**El nuevo álbum de Sam Smith le da una oportunidad al amor**\
+`Tras alcanzar el estatus de estrella pop mundial con himnos sobre el desamor, Smith vuelve con un disco dedicado a un “amor correspondido” desde una mirada abiertamente queer.`\
+https://www.nytimes.com/es/2026/07/31/espanol/cultura/sam-smith-nuevo-album.html
+
+**A Ton of Space Junk Tumbles Unpredictably to Earth Every Week**\
+`Flaming chunks of metal crash into homes, farms and parking lots. Who’s to blame? And who pays for the damage?`\
+https://www.nytimes.com/2026/07/31/world/asia/space-debris-earth.html
+
+**Political Turmoil Will Not Derail Killer Robot Program, Former Minister Says**\
+`The recently ousted Ukrainian defense minister, Mykhailo Fedorov, an advocate for drone and robot warfare, says Ukraine’s tech-heavy strategy will persist.`\
+https://www.nytimes.com/2026/07/31/world/europe/federov-ukraine-killer-robots.html
+
+****\
+`Suspected rocket debris was recovered near Palawan, the Philippines, on Sept. 16, 2025.`\
+https://www.nytimes.com/video/embedded/world/asia/100000011060472/space-debris.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/world/asia/100000011060470/29visualUploader-82137.html
+
+****\
+`Space debris was found in Western Australia on Oct. 18, 2025.`\
+https://www.nytimes.com/video/embedded/world/100000011062966/space-debris3.html
+
+**After 23 Years of Missed Connections, the Third Time Was the Charm**\
+`Sara Tretter and JP Przewoznik fell in love at camp over two decades ago. Years of emails, Facebook texts and letters tied them together.`\
+https://www.nytimes.com/2026/07/31/style/jp-przewoznik-sara-tretter-wedding.html
+
+**It Was ‘Written in the Stars’ Even Before They Met**\
+`Alyannah Kassam and Malik Ladhani had no idea how much their lives overlapped when they matched on a dating app nearly four years ago.`\
+https://www.nytimes.com/2026/07/31/style/alyannah-kassam-malik-ladhani-wedding.html
+
+**A Wedding Suit and Maybe a Marriage ‘Blessed by Zendaya’**\
+`Jackson Fust and Alistair Stephenson had been drawn to each other across many dance floors. Once both were single, romance took off.`\
+https://www.nytimes.com/2026/07/31/style/jackson-fust-alistair-stephenson-wedding.html
+
+**He Impressed the TikTok Star the Old-School Way: By Listening, in Real Life**\
+`Cole Hosman was one of Sienna Gomez’s early followers. She later followed him back and, after a terrible accident, reached out to offer comfort.`\
+https://www.nytimes.com/2026/07/31/style/sienna-gomez-cole-hosman-wedding.html
+
+**The Marriage I Cherished No Longer Existed**\
+`The husband I treasured had disappeared. Why was I happy?`\
+https://www.nytimes.com/2026/07/31/style/modern-love-the-marriage-i-cherished-no-longer-existed.html
+
 **NYT Crossword Answers for July 31, 2026**\
 `Rafael Musa returns to open our solving weekend.`\
 https://www.nytimes.com/2026/07/30/crosswords/daily-puzzle-2026-07-31.html
@@ -137,56 +197,4 @@ https://www.nytimes.com/2026/07/30/technology/apple-earnings.html
 **Big Tech’s A.I. Spending Keeps Rising. So Do the Jitters.**\
 `Amazon joined a procession of tech giants that ramped up their spending on artificial intelligence, as its capital expenditures soared 69 percent. Concerns over the industry’s spending are mounting.`\
 https://www.nytimes.com/2026/07/30/technology/amazon-google-ai-data-center-spending.html
-
-**Does Congress Have the Power to Stop the Iran War?**\
-`In theory, the War Powers Act gives Congress the power to end a war. But our chief White House correspondent, Peter Baker, describes how President Trump is the latest president to find ways to engage in war without congressional approval.`\
-https://www.nytimes.com/video/us/politics/100000011061667/does-congress-have-the-power-to-stop-the-iran-war.html
-
-**Hiker Trekked About 6 Hours to Safety After Impaling Himself With Pole**\
-`David Cifaldi, 32, slipped on a rock and fell on one of his trekking poles while hiking in Montana on Granite Peak. Somehow, he wasn’t in pain and there was no blood, and he was able to trek out.`\
-https://www.nytimes.com/video/us/100000011063804/hiker-montana-pole-granite-peak.html
-
-**Trump’s Nominee to Oversee VOA, Sarah B. Rogers, Suggests Return of Journalists on Leave**\
-`The statement by the nominee, Sarah B. Rogers, signaled a stark reversal of the president’s earlier efforts to shutter Voice of America and other federally funded news groups.`\
-https://www.nytimes.com/2026/07/30/us/politics/trump-voa-news-sarah-rogers.html
-
-**Fried Chicken With Hannah Einbinder, Kristen Stewart and L.A.’s Horror Fans**\
-`The cast of “Teenage Sex and Death at Camp Miasma” packed El Coyote for a night filled with quesadillas, fried chicken nuggets and fake blood.`\
-https://www.nytimes.com/2026/07/30/style/teenage-sex-death-camp-miasma-premiere.html
-
-**Thousands of Migrants Enter Ceuta, a Spanish Enclave, From Morocco**\
-`The arrivals in Ceuta, a six-mile-long peninsula on Morocco’s northern coast that Spain has governed for centuries, have fueled political tensions.`\
-https://www.nytimes.com/2026/07/30/world/europe/spain-morocco-ceuta-migrants.html
-
-**Lo que realmente aprendimos de la audiencia de Fauci**\
-`Los juicios espectáculo son perjudiciales para la democracia.`\
-https://www.nytimes.com/es/2026/07/30/espanol/opinion/covid-origen-fauci.html
-
-**Five Hot Dogs, One Man, Infinite Toppings**\
-`Forget ketchup and mustard. At these five New York City spots, hot dogs are taken to the extreme.`\
-https://www.nytimes.com/2026/07/30/dining/latin-america-hot-dogs.html
-
-**After Claiming ‘Bias’ at Smithsonian, Trump Officials Stage Patriotic Exhibition**\
-`Trump officials have promised to “make visual arts great,” with a museum exhibition that includes artwork by several people with personal connections to the planners.`\
-https://www.nytimes.com/2026/07/30/arts/design/trump-exhibition-patriotism.html
-
-**Trump’s Effort to Gut Education Dept. Rebuked by Senate Committee**\
-`The bipartisan bill is a long way from becoming law, but it represents the strongest opposition yet from Congress to the administration’s agenda.`\
-https://www.nytimes.com/2026/07/30/us/politics/senate-committee-education-dept.html
-
-**Is Drake’s ‘Janice STFU’ the Song of the Summer?**\
-`Is Drake’s “Janice STFU” — an undeniable earworm — too bitter to be crowned the summer anthem... or just bitter enough?`\
-https://www.nytimes.com/video/podcasts/100000011055345/is-drakes-janice-stfu-the-song-of-the-summer.html
-
-**Is Stella Lefty’s ‘Boston’ the Song of the Summer?**\
-`Jon and Joe battle through an 8-song bracket of this summer’s biggest hits — including Stella Lefty’s rising “Boston” — to determine the winner for 2026.`\
-https://www.nytimes.com/video/podcasts/100000011064292/is-stella-leftys-boston-the-song-of-the-summer.html
-
-**Ebola Outbreak Is Now the Second-Deadliest Ever, and in Record Time**\
-`The disease has killed more than 1,500 people in the Democratic Republic of Congo in just over two months, causing deaths faster than officials have ever recorded.`\
-https://www.nytimes.com/2026/07/30/world/africa/ebola-deaths-record.html
-
-**Russian Missile Lands in Polish Field During Deadly Ukraine Attack, NATO Says**\
-`NATO said that a Russian-launched missile had exploded in Poland, a member of the military alliance, during a large-scale overnight assault on neighboring Ukraine.`\
-https://www.nytimes.com/video/world/europe/100000011063135/russian-missile-lands-in-polish-field-during-deadly-ukraine-attack-nato-says.html
 
