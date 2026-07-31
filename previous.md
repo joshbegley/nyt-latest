@@ -1,6 +1,10 @@
+**Open Model Wars + Claire Stapleton’s Dishy Google Memoir + Substack’s Slop Fight**\
+`“It just seems like the temperature is rising on Silicon Valley.”`\
+https://www.nytimes.com/2026/07/31/podcasts/open-source-google.html
+
 **Archaeologists Find Hundreds of Ancient Glyphs in the Amazon**\
 `The geometric earthwork structures, carved into the ground with embankments and ditches, are in some cases more than 2,500 years old, researchers said.`\
-https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geogylphs.html
+https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.html
 
 ****\
 `(No description)`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/us/texas-florida-terrorism-lists-cair-muslim.
 **Selling Burritos Back to Mexico: Chipotle’s Bold Expansion**\
 `As the Mexican-inspired American chain makes its debut in Mexico, it faces a major hurdle: convincing Mexicans to buy an Americanized take on their own national cuisine.`\
 https://www.nytimes.com/2026/07/31/world/americas/chipotle-restaurant-mexico.html
-
-**Flaco on Film (Along With the Community the Owl Inspired)**\
-`“Wild Inside” starts off with the director Penny Lane’s characteristic curiosity and winds up being a collective tribute to a bird and his city.`\
-https://www.nytimes.com/2026/07/31/movies/flaco-owl-wild-inside-documentary.html
 

@@ -1,3 +1,11 @@
+**Open Model Wars + Claire Stapleton’s Dishy Google Memoir + Substack’s Slop Fight**\
+`“It just seems like the temperature is rising on Silicon Valley.”`\
+https://www.nytimes.com/2026/07/31/podcasts/open-source-google.html
+
+**Archaeologists Find Hundreds of Ancient Glyphs in the Amazon**\
+`The geometric earthwork structures, carved into the ground with embankments and ditches, are in some cases more than 2,500 years old, researchers said.`\
+https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.html
+
 **Archaeologists Find Hundreds of Ancient Glyphs in the Amazon**\
 `The geometric earthwork structures, carved into the ground with embankments and ditches, are in some cases more than 2,500 years old, researchers said.`\
 https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geogylphs.html
