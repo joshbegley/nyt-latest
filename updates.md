@@ -1,3 +1,7 @@
+**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 7 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
+https://www.nytimes.com/2026/07/31/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
+
 **Returning Home in Spain’s Wildfires**\
 `Amid the worst fires in Spain’s recent history, our Madrid bureau chief, Jason Horowitz, travels with a couple who fled a fire as they return to see if their home and gardens survived.`\
 https://www.nytimes.com/video/world/europe/100000011063365/returning-home-in-spains-wildfires.html
