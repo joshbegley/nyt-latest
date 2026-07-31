@@ -1,3 +1,19 @@
+**Legionnaires’ Outbreak on Upper East Side Is Over, N.Y.C. Officials Say**\
+`With no new cases reported in more than a week, New York City’s health commissioner says the threat has passed. Seven people have died from the disease this summer.`\
+https://www.nytimes.com/2026/07/31/nyregion/nyc-legionnaires-outbreak-over.html
+
+**Adam O’Neal Resigns as Washington Post Opinion Editor**\
+`Adam O’Neal inherited a mandate from the paper’s owner, Jeff Bezos, to shift toward “personal liberties and free markets.”`\
+https://www.nytimes.com/2026/07/31/business/media/washington-post-opinion-editor-resigns-after-1-year.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011066184/31vid-rubio-trump-sot-icc.html
+
+****\
+`(No description)`\
+https://www.nytimes.com/video/embedded/us/politics/100000011066256/31vid-trump-iran-sot.html
+
 **A Fledgling Food Reviewer’s Battle With Cyclospora**\
 `Christina Hart, 29, started posting reviews on social media in May. Less than two months later, a stomach illness forced her to stop.`\
 https://www.nytimes.com/2026/07/31/us/cyclospora-cyclosporiasis-nashville.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065624/31vid-sleeping-in-ceuta-5085.html
-
-**The Fight Tearing Apart Silicon Valley**\
-`Anthropic and OpenAI are clashing with the rest of the tech industry over whether “open-source” models from China should be freely available or restricted.`\
-https://www.nytimes.com/2026/07/31/podcasts/the-daily/ai-open-source-china-silicon-valley.html
-
-**A Cyberattack on U.S. Water Systems, and the Growing Threat of Falling Space Junk**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/07/31/podcasts/the-headlines/cyberattack-us-water-space-junk-spain-migrants-fifa.html
-
-**Today’s Wordle Hints for August 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
-https://www.nytimes.com/2026/07/31/crosswords/wordle-review-1869.html
-
-**NYT Strands Hints for August 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
-https://www.nytimes.com/2026/07/31/crosswords/strands-sidekick-881.html
 
