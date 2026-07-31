@@ -1,4 +1,4 @@
-**10 Climbers Feared Missing After Avalanche in Pakistan**\
+**10 Climbers, Including Nims Purja, Missing After Avalanche on Broad Peak in Pakistan**\
 `Nirmal Purja, an influential mountaineer, was part of a group struck by an avalanche on Broad Peak, an alpine organization said. A search effort was being mobilized.`\
 https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-broad-peak-pakistan.html
 
