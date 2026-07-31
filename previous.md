@@ -1,3 +1,7 @@
+**Myanmar Pro-Democracy Activists Each Sentenced to 37 Years in Prison**\
+`A group of dissidents this week were each sentenced to 37 years in prison for a peaceful protest against an election widely derided as a sham.`\
+https://www.nytimes.com/2026/07/31/world/asia/myanmar-sentence-activisits-protest.html
+
 **La viruela de hace siglos podría no haber sido tan letal**\
 `Rastros del virus encontrados en los restos de los habitantes de Chile de hace unos 500 años muestran cómo pudo evolucionar hasta convertirse en un asesino global.`\
 https://www.nytimes.com/es/2026/07/31/espanol/ciencia-y-tecnologia/viruela-chile.html
@@ -42,8 +46,8 @@ https://www.nytimes.com/2026/07/31/world/asia/nirmal-purja-nims-avalanche-broad-
 `Pedazos de metal en llamas caen sobre casas, granjas y estacionamientos. ¿De quién es la culpa? ¿Y quién paga por los daños?`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/espacio-tierra-basura-espacial.html
 
-**In Another Wild Day for South Korean Stocks, Market Surges 15 Percent**\
-`After a sharp sell-off, South Korea’s stock market rallied as concerns about overspending on artificial intelligence eased, sending the country’s chip shares higher.`\
+**In Another Wild Day for South Korean Stocks, Market Surges 18 Percent**\
+`After a recent sell-off, South Korea’s stock market rallied as concerns about overspending on artificial intelligence eased, sending the country’s chip shares higher.`\
 https://www.nytimes.com/2026/07/31/business/korea-stocks-chips-kospi.html
 
 **México presenta un plan para combatir el sargazo en sus playas**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/30/us/ten-commandments-texas-schools-lawsuit.htm
 **The Economy Slows**\
 `Plus, Trump weighs pulling his nomination of Todd Blanche. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/07/30/briefing/economy-blanche-iran.html
-
-**What ‘Succession’ Gets Right About Our Aging Elite**\
-`It’s not just politicians — American executives are getting older too, with the average age of chief executives rising to 61 in 2023, according to an April 2026 working paper from the National Bureau of Economic Research. The Yale law professor Samuel Moyn talks about the “dark side” of this trend on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000011048690/what-succession-gets-right-about-our-aging-elite.html
 

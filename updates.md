@@ -1,3 +1,11 @@
+**Myanmar Pro-Democracy Activists Each Sentenced to 37 Years in Prison**\
+`A group of dissidents this week were each sentenced to 37 years in prison for a peaceful protest against an election widely derided as a sham.`\
+https://www.nytimes.com/2026/07/31/world/asia/myanmar-sentence-activisits-protest.html
+
+**In Another Wild Day for South Korean Stocks, Market Surges 18 Percent**\
+`After a recent sell-off, South Korea’s stock market rallied as concerns about overspending on artificial intelligence eased, sending the country’s chip shares higher.`\
+https://www.nytimes.com/2026/07/31/business/korea-stocks-chips-kospi.html
+
 **La viruela de hace siglos podría no haber sido tan letal**\
 `Rastros del virus encontrados en los restos de los habitantes de Chile de hace unos 500 años muestran cómo pudo evolucionar hasta convertirse en un asesino global.`\
 https://www.nytimes.com/es/2026/07/31/espanol/ciencia-y-tecnologia/viruela-chile.html
