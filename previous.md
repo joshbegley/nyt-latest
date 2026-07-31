@@ -1,3 +1,7 @@
+**U.S. Raises Threat of Steep Water Cuts in Lower Colorado River Basin**\
+`A federal plan would impose drastic water cuts on Arizona, California and Nevada in dry years over the next decade. A legal battle could follow.`\
+https://www.nytimes.com/2026/07/31/climate/colorado-river-basin-water-cuts.html
+
 **Today, In Short**\
 `Diet candy. Spider-Man. And frozen pizzas.`\
 https://www.nytimes.com/2026/07/31/briefing/today-in-short.html
@@ -13,6 +17,10 @@ https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
 **Far-right politicians seize on Ceuta**\
 `Several migrants who crossed into Ceuta attributed their arrival to lax Moroccan border protocols. But Europe’s anti-immigrant blamed Spain’s migrant-friendly policies.`\
 https://www.nytimes.com/2026/07/31/world/europe/ceuta-europe-far-right-backlash.html
+
+**Crisis migratoria en Ceuta, en vivo: miles de personas han entrado a España**\
+`Se estima que hasta 60.000 personas entraron procedentes de Marruecos a la ciudad española de Ceuta, lo que ha generado una crisis para el gobierno de Pedro Sánchez. Al menos 34 personas murieron, según informaron las autoridades.`\
+https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
 
 **Missteps Mount in Justice Dept.’s Case Against Minnesota Anti-ICE Protesters**\
 `The problems plaguing the case have not only hurt the government’s chances, lawyers say, but have also undermined the bonds of trust that prosecutors have traditionally enjoyed in court.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/07/31/magazine/paxton-costner-hodgman-q
 **There Are So Many Reasons to Reject Todd Blanche. Here’s Another One.**\
 `Don’t forget this key reason the Senate should reject him.`\
 https://www.nytimes.com/2026/07/31/opinion/todd-blanche-attorney-general-senate-hearing.html
-
-**We All Do Errands. Noah Blau Films Them.**\
-`Fighting a traffic ticket. Hanging a curtain. Installing an air-conditioner. With his cult-hit online series, Noah Blau has made the mundane fascinating.`\
-https://www.nytimes.com/2026/07/31/style/errands-should-be-the-most-boring-show-on-the-internet.html
-
-**How Trump Has Changed, With Maggie Haberman**\
-`The New York Times correspondent says 70 percent of the president’s mind is dedicated to White House renovations.`\
-https://www.nytimes.com/2026/07/31/opinion/ezra-klein-podcast-maggie-haberman.html
 

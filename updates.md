@@ -1,3 +1,11 @@
+**U.S. Raises Threat of Steep Water Cuts in Lower Colorado River Basin**\
+`A federal plan would impose drastic water cuts on Arizona, California and Nevada in dry years over the next decade. A legal battle could follow.`\
+https://www.nytimes.com/2026/07/31/climate/colorado-river-basin-water-cuts.html
+
+**Crisis migratoria en Ceuta, en vivo: miles de personas han entrado a España**\
+`Se estima que hasta 60.000 personas entraron procedentes de Marruecos a la ciudad española de Ceuta, lo que ha generado una crisis para el gobierno de Pedro Sánchez. Al menos 34 personas murieron, según informaron las autoridades.`\
+https://www.nytimes.com/live/2026/07/31/espanol/espana-ceuta-inmigrantes-crisis
+
 **Today, In Short**\
 `Diet candy. Spider-Man. And frozen pizzas.`\
 https://www.nytimes.com/2026/07/31/briefing/today-in-short.html
