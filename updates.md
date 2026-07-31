@@ -1,3 +1,7 @@
+**Ceuta: lo que hay que saber**\
+`La península situada en la costa norte de Marruecos, que España ha gobernado durante siglos, ha sido escenario frecuente de cruces masivos de migrantes y de tensiones políticas.`\
+https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-espana-migrantes-que-pasa.html
+
 **Did 75,000 Students Cheat on a College-Entrance Exam in Mexico?**\
 `The National Autonomous University of Mexico, or UNAM, is investigating after experts found that as many as half of all entrance exams could have involved cheating, including with A.I.`\
 https://www.nytimes.com/2026/07/31/world/americas/unam-college-entrance-exam-mexico.html

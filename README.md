@@ -1,3 +1,7 @@
+**Companies Rush to Close Daring Deals Under Trump**\
+`Companies are seizing on what many say is perhaps the most favorable regulatory environment for businesses in years.`\
+https://www.nytimes.com/2026/07/31/business/corporate-mergers-deals-trump.html
+
 **Ceuta: lo que hay que saber**\
 `La península situada en la costa norte de Marruecos, que España ha gobernado durante siglos, ha sido escenario frecuente de cruces masivos de migrantes y de tensiones políticas.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-espana-migrantes-que-pasa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/07/31/arts/the-odyssey-emily-wilson-christopher-nol
 **Soccer Is Not for Sale. Give the Boot to FIFA’s Private Equity Play.**\
 `Soccer federations should stop FIFA’s boss, Gianni Infantino, from selling it out.`\
 https://www.nytimes.com/2026/07/31/opinion/fifa-uefa-boycott-deal-thrive.html
-
-**How to Shop for Homeowner’s Insurance**\
-`We decode the jargon and explain how to get the coverage your home needs.`\
-https://www.nytimes.com/2026/07/31/podcasts/how-to-shop-for-homeowners-insurance.html
 
