@@ -1,3 +1,7 @@
+**Hunter Biden Blames Cancer for Joe Biden’s Disastrous Debate**\
+`Medical experts say it is unlikely that Mr. Biden’s debate performance was affected by the cancer that was diagnosed months later.`\
+https://www.nytimes.com/2026/07/31/us/politics/hunter-biden-joe-biden-debate-cancer.html
+
 **Next Met Gala Show Will Honor John Galliano, Celebrated Designer Infamous for Antisemitic Rant**\
 `As famous for his antisemitic rant in 2011 as he is for his fashion, Galliano would be one of only three living designers ever to receive the honor.`\
 https://www.nytimes.com/2026/07/31/style/met-gala-costume-institute-john-galliano.html

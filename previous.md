@@ -1,3 +1,7 @@
+**Hunter Biden Blames Cancer for Joe Biden’s Disastrous Debate**\
+`Medical experts say it is unlikely that Mr. Biden’s debate performance was affected by the cancer that was diagnosed months later.`\
+https://www.nytimes.com/2026/07/31/us/politics/hunter-biden-joe-biden-debate-cancer.html
+
 **Next Met Gala Show Will Honor John Galliano, Celebrated Designer Infamous for Antisemitic Rant**\
 `As famous for his antisemitic rant in 2011 as he is for his fashion, Galliano would be one of only three living designers ever to receive the honor.`\
 https://www.nytimes.com/2026/07/31/style/met-gala-costume-institute-john-galliano.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/polls/wyoming-governor-election-polls-2026.h
 **Companies Rush to Close Daring Deals Under Trump**\
 `Companies are seizing on what many say is perhaps the most favorable regulatory environment for businesses in years.`\
 https://www.nytimes.com/2026/07/31/business/corporate-mergers-deals-trump.html
-
-**Ceuta: lo que hay que saber**\
-`La península situada en la costa norte de Marruecos, que España ha gobernado durante siglos, ha sido escenario frecuente de cruces masivos de migrantes y de tensiones políticas.`\
-https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-espana-migrantes-que-pasa.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
