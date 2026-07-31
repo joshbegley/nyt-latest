@@ -1,3 +1,7 @@
+**New York Sues Kalshi in Latest Bid to Regulate Prediction Markets**\
+`The suit is the latest effort by states to crack down on an industry that critics have called predatory. At least 15 states have introduced legislation this year to regulate the markets.`\
+https://www.nytimes.com/2026/07/31/nyregion/kalshi-ny-lawsuit-gambling.html
+
 **How the Michigan Primary Is Dividing Jewish Voters**\
 `U.S. support for Israel is dividing Jewish voters — and reshaping the Democratic Party — ahead of Michigan’s primary on Aug. 4. We traveled to Detroit to meet campaigners on both sides of the issue, and find out how the war in Gaza has shaped their politics, and tested their community.`\
 https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elections-jewish-voters.html
@@ -115,7 +119,7 @@ https://www.nytimes.com/2026/07/31/business/corporate-mergers-deals-trump.html
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-espana-migrantes-que-pasa.html
 
 **Did 75,000 Students Cheat on a College-Entrance Exam in Mexico?**\
-`The National Autonomous University of Mexico, or UNAM, is investigating after experts found that as many as half of all entrance exams could have involved cheating, including with A.I.`\
+`The National Autonomous University of Mexico, or UNAM, has asked all students who passed a demanding entrance exam to take a new test after experts found half of all applicants may have cheated, including with A.I.`\
 https://www.nytimes.com/2026/07/31/world/americas/unam-college-entrance-exam-mexico.html
 
 **U.S. Raises Threat of Steep Water Cuts in Lower Colorado River Basin**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/embedded/world/europe/100000011065682/31vid-jason-
 **Dance Review: ‘To Philly, Love, Rennie’ Is the Sound of Soul, but Muted**\
 `At the Joyce Theater, Philadanco! premiered a new dance of civic pride by Rennie Harris that’s oddly muffled.`\
 https://www.nytimes.com/2026/07/31/arts/dance/review-philadanco-rennie-harris.html
-
-**What a Hedge Fund’s Implosion Says About the A.I. Trade**\
-`Situational Awareness caught the attention of Wall Street with its highly leveraged trades. It nearly collapsed amid a wave of market volatility.`\
-https://www.nytimes.com/2026/07/31/business/dealbook/situational-awareness-ai-hedge-fund.html
 

@@ -1,3 +1,15 @@
+**How the Michigan Primary Is Dividing Jewish Voters**\
+`U.S. support for Israel is dividing Jewish voters — and reshaping the Democratic Party — ahead of Michigan’s primary on Aug. 4. We traveled to Detroit to meet campaigners on both sides of the issue, and find out how the war in Gaza has shaped their politics, and tested their community.`\
+https://www.nytimes.com/video/us/elections/100000011063444/michigan-primary-elections-jewish-voters.html
+
+**Amid Talk of a Party Switch, Fetterman Vows ‘Never’**\
+`Changing one’s affiliation is rare in the Senate, but it can have big consequences. John Fetterman of Pennsylvania says he is staying put as a Democrat.`\
+https://www.nytimes.com/2026/07/31/us/amid-talk-of-a-party-switch-fetterman-vows-never.html
+
+**Readers Choose Their 25 Favorite Clothing Stores Across the U.S.**\
+`Where do you love to shop? We asked and you came through, offering hundreds of thoughtful responses. Here are 25 of your choices.`\
+https://www.nytimes.com/2026/07/31/fashion/best-clothing-stores-reader-favorites.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/us/politics/100000011066392/31vid-trump-jan-6-riots-sot.html
