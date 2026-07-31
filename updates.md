@@ -1,3 +1,11 @@
+**Archaeologists Find Hundreds of Ancient Glyphs in the Amazon**\
+`The geometric earthwork structures, carved into the ground with embankments and ditches, are in some cases more than 2,500 years old, researchers said.`\
+https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geogylphs.html
+
+**Iran Says It Targeted U.S. Military in Kuwait With Drones**\
+`The Iranian army said it had targeted U.S. assets at a Kuwaiti air base. There were no immediate reports of any attacks from Kuwait or from the U.S. military.`\
+https://www.nytimes.com/2026/07/31/world/middleeast/iran-us-military-kuwait-drone-attack.html
+
 ****\
 `(No description)`\
 https://www.nytimes.com/video/embedded/world/europe/100000011065650/31vid-fnideq-13067.html
