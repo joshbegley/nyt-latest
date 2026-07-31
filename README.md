@@ -1,3 +1,27 @@
+**The Next Met Fashion Blockbuster and Gala Will Honor Controversial Designer John Galliano**\
+`As famous for his antisemitic rant in 2011 as he is for his fashion, Galliano would be one of only three living designers ever to receive the honor.`\
+https://www.nytimes.com/2026/07/31/style/met-gala-costume-institute-john-galliano.html
+
+**Trump Administration Plans to Upend Head Start by Deregulating It**\
+`The White House tried but failed to block funding for preschool for poor children. Instead, it will seek to strip away standards on health, literacy — and brushing teeth.`\
+https://www.nytimes.com/2026/07/31/us/politics/head-start-deregulation.html
+
+**Warsh Considers Reducing Frequency of Fed Policy Meetings**\
+`The Federal Reserve has met at least eight times a year for decades. Reducing the number of meetings would represent the biggest change by Kevin M. Warsh since he became chairman.`\
+https://www.nytimes.com/2026/07/31/business/federal-reserve-warsh-meetings.html
+
+**John Ali, Nation of Islam Official Who Clashed With Malcolm X, Dies at 98**\
+`He was widely suspected of being an F.B.I. informant and of playing a role in the 1965 assassination of Malcolm, the charismatic Black activist.`\
+https://www.nytimes.com/2026/07/31/us/john-ali-dead.html
+
+**Why Mitch McConnell Isn’t Giving Up His Senate Seat**\
+`Democrats are demanding that the Kentucky Republican resign. Others who were sidelined for far longer faced no such calls, but times are changing.`\
+https://www.nytimes.com/2026/07/31/us/why-mitch-mcconnell-isnt-giving-up-his-senate-seat.html
+
+**Migrants Surge Into Spanish Territory, Triggering Political Backlash**\
+`A sudden exodus of migrants from Morocco startled Spanish officials and drew heavy criticism from right-wing parties across the continent.`\
+https://www.nytimes.com/2026/07/31/world/migrants-surge-into-spanish-territory-triggering-political-backlash.html
+
 **Nancy Guthrie Ransom Notes Released by Sheriff’s Department Searching for New Leads**\
 `The 84-year-old mother of Savannah Guthrie, the television news anchor, has been missing for nearly six months.`\
 https://www.nytimes.com/2026/07/31/us/savannah-nancy-guthrie-ransom-note.html
@@ -165,26 +189,6 @@ https://www.nytimes.com/2026/07/31/business/corporate-mergers-deals-trump.html
 **Ceuta: lo que hay que saber**\
 `La península situada en la costa norte de Marruecos, que España ha gobernado durante siglos, ha sido escenario frecuente de cruces masivos de migrantes y de tensiones políticas.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-espana-migrantes-que-pasa.html
-
-**Did 75,000 Students Cheat on a College-Entrance Exam in Mexico?**\
-`The National Autonomous University of Mexico, or UNAM, has asked all students who passed a demanding entrance exam to take a new test after experts found half of all applicants may have cheated, including with A.I.`\
-https://www.nytimes.com/2026/07/31/world/americas/unam-college-entrance-exam-mexico.html
-
-**U.S. Raises Threat of Steep Water Cuts in Lower Colorado River Basin**\
-`A federal plan would impose drastic water cuts on Arizona, California and Nevada in dry years over the next decade. A legal battle could follow.`\
-https://www.nytimes.com/2026/07/31/climate/colorado-river-basin-water-cuts.html
-
-**Today, In Short**\
-`Diet candy. Spider-Man. And frozen pizzas.`\
-https://www.nytimes.com/2026/07/31/briefing/today-in-short.html
-
-**“The Best Cucumber Salad I’ve Ever Made”**\
-`And more of the week’s most popular recipes.`\
-https://www.nytimes.com/2026/07/31/dining/the-best-cucumber-salad-ive-ever-made.html
-
-**‘Project Hail Mary’ and More Science Fiction Movies to Stream Now**\
-`From the Ryan Gosling hit “Project Hail Mary” to the psychosexual alien rom-com “Touch Me,” explore this month’s eclectic picks.`\
-https://www.nytimes.com/2026/07/31/movies/science-fiction-movies-streaming.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\
