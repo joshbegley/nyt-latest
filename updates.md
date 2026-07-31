@@ -1,3 +1,11 @@
+**Mexico’s President Unveils Plan to Fight Seaweed That Is Choking Beaches**\
+`The seaweed — a stinky, brown algae known as sargassum — has plagued Mexico and the broader region for more than a decade, but this year’s forecast is setting records.`\
+https://www.nytimes.com/2026/07/30/world/americas/mexico-sargassum-beach-cleanup.html
+
+**Kennedy Center Halts Free Public Tours After Five Decades of Service**\
+`The decision to suspend tours indefinitely came after a volunteer tour guide was featured in a Times article detailing President Trump’s dramatic revamp of the Kennedy Center.`\
+https://www.nytimes.com/2026/07/30/us/politics/kennedy-center-tours.html
+
 **Anthropic dice que su IA se infiltró en 3 organizaciones**\
 `La revelación sucede después de que otra empresa del sector, OpenAI, dio a conocer que su propia tecnología hackeó una biblioteca digital.`\
 https://www.nytimes.com/es/2026/07/30/espanol/negocios/anthropic-hackeo.html
