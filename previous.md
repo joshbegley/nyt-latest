@@ -1,3 +1,19 @@
+**Charges to Be Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
+`David Hearn had been charged in connection with damages to the Lincoln Memorial Reflecting Pool. On Friday, federal prosecutors said the damage was “the result of flawed installation.”`\
+https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html
+
+**What Worries Democrats as the Midterms Heat Up**\
+`There’s a lot going right for the Democrats. Here’s what could go wrong.`\
+https://www.nytimes.com/2026/07/31/us/politics/democrats-primary-elections-midterms.html
+
+**Migrants Flood a Tiny Spanish Territory**\
+`Plus, the Trump administration plans Sun Belt water cuts. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/07/31/briefing/ceuta-gaza-colorado.html
+
+**Divers Search a New Jersey River for Second of 2 Children They Fear Drowned**\
+`A girl, 10, was still missing in the Passaic River on Friday, nearly two days after she was swept away. The body of a boy the same age was recovered earlier; another girl, 11, was rescued.`\
+https://www.nytimes.com/2026/07/31/nyregion/passaic-river-new-jersey-drownings.html
+
 **Who Would Octavia Spencer Be in Another Life?**\
 `What if Octavia Spencer hadn’t become an actor? She reveals the surprising career she’d choose and the TV obsessions that planted the seed.`\
 https://www.nytimes.com/video/us/100000010953626/octavia-spencer-interview-tv-shows.html
@@ -173,22 +189,6 @@ https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
 **Chaos Continues in Ceuta**\
 `People were both leaving and arriving in Ceuta on Friday, a day after tens of thousands of people entered the Spanish territory in North Africa, according to official estimates.`\
 https://www.nytimes.com/video/world/europe/100000011065605/ceuta-spain-morocco-border-migrants.html
-
-**What’s Next for Condé Nast**\
-`A chat with “Empire of the Elite” author, Michael Grynbaum, on the media conglomerate’s hazy future.`\
-https://www.nytimes.com/2026/07/31/style/conde-nast.html
-
-**Where to Eat, Sleep and Shop in Melides, Portugal**\
-`Eighty miles south of Lisbon lies Melides, which has retained its small-town charm and stunning natural beauty even as it’s grown more fashionable.`\
-https://www.nytimes.com/2026/07/31/t-magazine/melides-portugal-alentejo-coast-hotels-restaurants.html
-
-**Arqueólogos descubren cientos de glifos antiguos en la Amazonía**\
-`Las estructuras geométricas de tierra, talladas en el suelo con terraplenes y zanjas, tienen en algunos casos más de 2500 años de antigüedad, dijeron los investigadores.`\
-https://www.nytimes.com/es/2026/07/31/espanol/mundo/amazonia-arqueologia-glifos.html
-
-**Who is Ahead in Florida's 22nd Congressional District?**\
-`Track the latest polls in Florida's 22nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-22-polls-2026.html
 
 **La crisis de Ceuta, en vivo: la mayoría de los migrantes que llegaron a España han vuelto a Marruecos**\
 `De las 60.000 personas que llegaron a Ceuta, unas 48.000 habían vuelto a casa al cabo de un día. Pero la afluencia repentina puso en jaque al gobierno español.`\

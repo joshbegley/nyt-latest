@@ -1,3 +1,19 @@
+**Charges to Be Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
+`David Hearn had been charged in connection with damages to the Lincoln Memorial Reflecting Pool. On Friday, federal prosecutors said the damage was “the result of flawed installation.”`\
+https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html
+
+**What Worries Democrats as the Midterms Heat Up**\
+`There’s a lot going right for the Democrats. Here’s what could go wrong.`\
+https://www.nytimes.com/2026/07/31/us/politics/democrats-primary-elections-midterms.html
+
+**Migrants Flood a Tiny Spanish Territory**\
+`Plus, the Trump administration plans Sun Belt water cuts. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/07/31/briefing/ceuta-gaza-colorado.html
+
+**Divers Search a New Jersey River for Second of 2 Children They Fear Drowned**\
+`A girl, 10, was still missing in the Passaic River on Friday, nearly two days after she was swept away. The body of a boy the same age was recovered earlier; another girl, 11, was rescued.`\
+https://www.nytimes.com/2026/07/31/nyregion/passaic-river-new-jersey-drownings.html
+
 **Who Would Octavia Spencer Be in Another Life?**\
 `What if Octavia Spencer hadn’t become an actor? She reveals the surprising career she’d choose and the TV obsessions that planted the seed.`\
 https://www.nytimes.com/video/us/100000010953626/octavia-spencer-interview-tv-shows.html

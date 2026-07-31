@@ -1,5 +1,5 @@
 **Charges to Be Dropped Against Ex-Olympian David Hearn Accused of Damaging Reflecting Pool**\
-`David Hearn had been charged in connection with damages to the Lincoln Memorial Reflecting Pool. On Friday, federal prosecutors said the damage was “the result of flawed installation.”`\
+`President Trump had repeatedly accused vandals of damaging the Lincoln Memorial Reflecting Pool. On Friday, federal prosecutors acknowledged it was “the result of flawed installation.”`\
 https://www.nytimes.com/2026/07/31/us/david-hearn-reflecting-pool-vandalism-charges.html
 
 **What Worries Democrats as the Midterms Heat Up**\
