@@ -2,7 +2,7 @@
 `Varios migrantes que cruzaron a Ceuta atribuyeron su llegada a los laxos protocolos fronterizos de Marruecos. Pero el sector antiinmigrante de Europa culpó a la política promigración de España.`\
 https://www.nytimes.com/es/2026/07/31/espanol/mundo/ceuta-derecha-politicos-migrantes.html
 
-**Flashback: Your Weekly History Quiz, July 1, 2026**\
+**Flashback: Your Weekly History Quiz, August 1, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/07/31/upshot/flashback.html
 
