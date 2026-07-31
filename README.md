@@ -1,3 +1,23 @@
+**The Fight Tearing Apart Silicon Valley**\
+`Anthropic and OpenAI are clashing with the rest of the tech industry over whether “open-source” models from China should be freely available or restricted.`\
+https://www.nytimes.com/2026/07/31/podcasts/the-daily/ai-open-source-china-silicon-valley.html
+
+**A Cyberattack on U.S. Water Systems, and the Growing Threat of Falling Space Junk**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/07/31/podcasts/the-headlines/cyberattack-us-water-space-junk-spain-migrants-fifa.html
+
+**Today’s Wordle Hints for August 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/07/31/crosswords/wordle-review-1869.html
+
+**NYT Strands Hints for August 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/07/31/crosswords/strands-sidekick-881.html
+
+**NYT Connections Answers for August 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 1, 2026.`\
+https://www.nytimes.com/2026/07/31/crosswords/connections-companion-1147.html
+
 **Iran Says It Targeted U.S. Military in Kuwait With Drones**\
 `The Iranian army said it had targeted U.S. assets at a Kuwaiti air base. There were no immediate reports of any attacks from Kuwait or from the U.S. military.`\
 https://www.nytimes.com/2026/07/31/world/middleeast/iran-says-it-targeted-us-military-in-kuwait-with-drones.html
@@ -54,7 +74,7 @@ https://www.nytimes.com/interactive/2026/07/31/magazine/paxton-costner-hodgman-q
 `Fighting a traffic ticket. Hanging a curtain. Installing an air-conditioner. With his cult-hit online series, Noah Blau has made the mundane fascinating.`\
 https://www.nytimes.com/2026/07/31/style/errands-should-be-the-most-boring-show-on-the-internet.html
 
-**The Todd Blanche Chaos Shows Why He Shouldn’t Be Attorney General**\
+**There Are So Many Reasons to Reject Todd Blanche. Here’s Another One.**\
 `Don’t forget this key reason the Senate should reject him.`\
 https://www.nytimes.com/2026/07/31/opinion/todd-blanche-attorney-general-senate-hearing.html
 
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/07/31/business/energy-environment/plug-in-balcony-s
 **To Save Japan’s Heritage Homes, People Are Shipping Them Across the World**\
 `Millions of abandoned kominkas are scattered across Japan. Now, teams of enthusiasts are dismantling and rebuilding them overseas.`\
 https://www.nytimes.com/2026/07/31/realestate/japan-heritage-homes-kominka-preservation.html
-
-**The Best Summer Drinks for a Crowd**\
-`It’s hot, it’s muggy and the last thing anybody wants is a hassle. These easy-to-prepare drinks are cooling and delicious.`\
-https://www.nytimes.com/2026/07/31/dining/drinks/cold-summer-drinks-for-a-crowd.html
-
-**How the Pro-Trump Media Ecosystem Is Splintering Ahead of the Midterms**\
-`Once united in support of President Trump, right-wing influencers are embroiled in feuds and losing viewers, creating a problem for Republicans in the midterm elections.`\
-https://www.nytimes.com/2026/07/31/us/politics/trump-iran-economy-media-critics.html
-
-**Book Review: ‘The Savage Landscape,’ by Cal Flyn**\
-`In “The Savage Landscape,” the nature writer Cal Flyn argues that wilderness is just one more man-made invention.`\
-https://www.nytimes.com/2026/07/31/books/review/the-savage-landscape-cal-flyn.html
-
-**I Flew in the Douglas DC-3, a WWII Workhorse of Aviation, Over the Amazon**\
-`The Douglas DC-3 was mass produced during World War II. Today, one of the few still remaining transports passengers in Colombia’s jungle.`\
-https://www.nytimes.com/2026/07/31/world/americas/plane-douglas-dc3-wwii-colombia.html
-
-**In a World of Mirrors, Everything Is Strange**\
-`Staring at ourselves on screens, on video and on social media is taking us to a dark place.`\
-https://www.nytimes.com/2026/07/31/opinion/face-self-reflection-technology-video.html
 
